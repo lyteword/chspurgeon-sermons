@@ -2,7 +2,7 @@
 
 ## **Overview**
 
-This project is a comprehensive markdown edition of the complete 63-volume collection of sermons by Charles H. Spurgeon, one of the most influential preachers of the 19th century. Spurgeon's sermons, originally delivered between 1855 and 1917, have inspired generations and remain a cornerstone of evangelical Christian literature[4][5][8]. This markdown project aims to make these sermons easily accessible, searchable, and readable for modern audiences and developers.
+This project is a comprehensive markdown edition of the complete 63-volume collection of sermons by Charles H. Spurgeon, one of the most influential preachers of the 19th century. Spurgeon's sermons, originally delivered between 1855 and 1917, have inspired generations and remain a cornerstone of evangelical Christian literature. This markdown project aims to make these sermons easily accessible, searchable, and readable for modern audiences and developers.
 
 ## **Project Features**
 
@@ -49,7 +49,7 @@ Each sermon file includes:
 
 ## **Acknowledgments**
 
-This project is made possible by the public domain status of Spurgeon's works and the efforts of various organizations and volunteers who have preserved, digitized, and distributed these sermons[1][2][3][4][5].
+This project is made possible by the public domain status of Spurgeon's works and the efforts of various organizations and volunteers who have preserved, digitized, and distributed these sermons[1][2][3].
 
 ---
 
@@ -61,5 +61,3 @@ This project is made possible by the public domain status of Spurgeon's works an
 [1] https://www.spurgeongems.org/spurgeon-sermons/
 [2] https://biblenotes.online/resources/sermonsspurgeon/sermonsspurgeon.htm
 [3] https://www.ccel.org/ccel/spurgeon/sermons63.html
-[4] https://godrules.net/library/spurgeon/spurgeon.htm
-[5] https://www.spurgeon.org/resource-library/blog-entries/learning-to-write-from-spurgeon/
