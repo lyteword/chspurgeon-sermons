@@ -49,7 +49,7 @@ Each sermon file includes:
 
 ## **Acknowledgments**
 
-This project is made possible by the public domain status of Spurgeon's works and the efforts of various organizations and volunteers who have preserved, digitized, and distributed these sermons[1][2][3].
+This project is made possible by the public domain status of Spurgeon's works and the efforts of various organizations and volunteers who have preserved, digitized, and distributed these sermons[1][2][3][4].
 
 ---
 
@@ -58,6 +58,7 @@ This project is made possible by the public domain status of Spurgeon's works an
 
 ---
 
-[1] https://www.spurgeongems.org/spurgeon-sermons/
-[2] https://biblenotes.online/resources/sermonsspurgeon/sermonsspurgeon.htm
-[3] https://www.ccel.org/ccel/spurgeon/sermons63.html
+- [1] https://www.spurgeongems.org/spurgeon-sermons/
+- [2] https://biblenotes.online/resources/sermonsspurgeon/sermonsspurgeon.htm
+- [3] https://www.ccel.org/ccel/spurgeon/sermons63.html
+- [4] https://www.thekingdomcollective.com/spurgeon/
