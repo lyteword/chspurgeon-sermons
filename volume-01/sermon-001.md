@@ -7,6 +7,7 @@
 ---
 
 > “I am the Lord, I change not; therefore you sons of Jacob are not consumed.”
+> 
 > *Malachi 3:6*
 
 It has been said by someone that “the proper study of mankind is man.” I will not oppose the idea, but I believe it is equally true that the proper study of God’s elect is God. The proper study of a Christian is the Godhead. The highest science, the loftiest speculation, the mightiest philosophy which can ever engage the attention of a child of God is the name, the nature, the Person, the work, the doings and the existence of the great God whom he calls his Father. There is something exceedingly improving to the mind in a contemplation of the Divinity. It is a subject so vast, that all our thoughts are lost in its immensity–so deep that our pride is drowned in its infinity.
@@ -14,6 +15,7 @@ It has been said by someone that “the proper study of mankind is man.” I wil
 Other subjects we can compass and grapple with–in them we feel a kind of self-content and go our way with the thought, “Behold I am wise.” But when we come to this master science, finding that our plumb line cannot sound its depth and that our eagle eye cannot see its height, we turn away with the thoughts that vain man would be wise, but he is like a wild ass’s colt and with the solemn exclamation, “I am but of yesterday and know nothing.” No subject of contemplation will tend more to humble the mind, than thoughts of God. We shall be obliged to feel–
 
 > “Great God, how infinite are You,
+> 
 > What worthless worms are we!”
 
 But while the subject humbles the mind it also expands it. He who often thinks of God will have a larger mind than the man who simply plods around this narrow globe. He may be a naturalist, boasting of his ability to dissect a beetle, anatomize a fly, or arrange insects and animals in classes with well-nigh unutterable names. He may be a geologist, able to discourse of the megatherium and the plesiosaurus and all kinds of extinct animals. He may imagine that his science, whatever it is, ennobles and enlarges his mind. I dare say it does, but after all, the most excellent study for expanding the soul is the science of Christ and Him crucified and the knowledge of the Godhead in the glorious Trinity.
@@ -48,8 +50,11 @@ Then again, God changes not in His plans. That man began to build, but was not a
 God alters not His plans–why should He? He is Almighty and therefore can perform His pleasure. Why should He? He is the All-wise and therefore cannot have planned wrongly. Why should He? He is the everlasting God and therefore cannot die before His plan is accomplished. Why should He change? You worthless atoms of existence, ephemera of the day! You creeping insects upon this bay-leaf of existence! You may change your plans, but He shall never, never change His. Then has He told me that His plan is to save me? If so, I am safe–
 
 > “My name from the palms of His hands
+> 
 > Eternity will not erase;
+> 
 > Impressed on His heart it remains,
+> 
 > In marks of indelible grace.”
 
 Yet again, God is unchanging in His promises. Ah, we love to speak about the sweet promises of God. But if we could ever suppose that one of them could be changed–we would not talk anything more about them. If I thought that the notes of the bank of England could not be cashed next week, I should decline to take them and if I thought that God’s promises would never be fulfilled–if I thought that God would see it right to alter some word in His promises–farewell Scriptures! I want immutable things–and I find that I have immutable promises when I turn to the Bible–for, “by two immutable things in which it is impossible for God to lie,” He has signed, confirmed and sealed every promise of His.
@@ -69,13 +74,17 @@ What do you say to that, Moralist? Oh, you wish you could alter it and say, “H
 Mount Sinai is a rough thing. Woe unto the watchman that warns not the ungodly! God is unchanging in His threats. Beware, O Sinner, for “it is a fearful thing to fall into the hands of the living God.” We must just hint at one thought before we pass on and that is–God is unchanging in the objects of His love–not only in His love, but in the objects of it–
 
 > “If ever it should come to pass
+> 
 > That sheep of Christ might fall away,
+> 
 > My fickle, feeble soul, alas,
+> 
 > Would fall a thousand times a day.”
 
 If one dear saint of God had perished, so might all. If one of the Covenant Ones is lost, so may all be and then there is no Gospel promise true. Then the Bible is a lie and there is nothing in it worth my acceptance. I will be an infidel at once, when I can believe that a saint of God can ever fall finally. If God has loved me once, then He will love me forever–
 
 > “Did Jesus once upon me shine,
+> 
 > Then Jesus is forever mine”
 
 The objects of everlasting love never change. Those whom God has called, He will justify. Whom He has justified, He will sanctify. And whom He sanctifies, He will glorify.
@@ -104,8 +113,11 @@ II. Now secondly, let me say a word on THE PERSONS TO WHOM THIS UNCHANGEABLE GOD
 First, they are the sons of God’s election. For it is written, “Jacob have I loved and Esau have I hated, the children being not yet born, neither having done good nor evil.” It was written, “The elder shall serve the younger.” “The sons of Jacob–
 
 > “Are the sons of God’s election,
+> 
 > Who through sovereign grace believe;
+> 
 > By eternal destination
+> 
 > Grace and glory they receive.”
 
 God’s elect are here meant by “the sons of Jacob”–those whom He foreknew and foreordained to everlasting salvation.
@@ -151,7 +163,11 @@ Well, now, time fails us and I can say but little. I have only just cursorily to
 Let your station in life change and your property be gone. Let your whole life be shaken and you become weak and sickly. Let everything flee away–there is one place where change cannot put his finger. There is one name on which mutability can never be written. There is one heart which never can alter. That heart is God’s–that name Love–
 
 > “Trust Him, He will never deceive you.
+> 
 > Though you hardly of Him deem;
+> 
 > He will never, never leave you,
+> 
 > Nor will let you quite leave Him.”
+
 
