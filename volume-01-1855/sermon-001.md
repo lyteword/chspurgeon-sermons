@@ -1,14 +1,10 @@
 # The Immutability of God
 
-*(Sermon No. 1)*
-
-*Delivered on Sabbath Morning, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.*
-
----
+Sermon No. 1 - Delivered on Sabbath Morning, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > "I am the Lord, I change not; therefore ye sons of Jacob are not consumed."
 > 
-> *Malachi 3:6*
+> Malachi 3:6
 
 It has been said by some one that "the proper study of mankind is man." I will not oppose the idea, but I believe it is equally true that the proper study of God's elect is God; the proper study of a Christian is the Godhead. The highest science, the loftiest speculation, the mightiest philosophy, which can ever engage the attention of a child of God, is the name, the nature, the person, the work, the doings, and the existence of the great God whom he calls his Father. There is something exceedingly improving to the mind in a contemplation of the Divinity. It is a subject so vast, that all our thoughts are lost in its immensity; so deep, that our pride is drowned in its infinity. Other subjects we can compass and grapple with; in them we feel a kind of self-content, and go our way with the thought, "Behold I am wise." But when we come to this master-science, finding that our plumb-line cannot sound its depth, and that our eagle eye cannot see its height, we turn away with the thought, that vain man would be wise, but he is like a wild ass's colt; and with the solemn exclamation, "I am but of yesterday, and know nothing." No subject of contemplation will tend more to humble the mind, than thoughts of God. We shall be obliged to feel--
 

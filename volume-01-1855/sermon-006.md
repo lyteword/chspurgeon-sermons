@@ -1,14 +1,10 @@
 # Sweet Comfort for Feeble Saints
 
-*(Sermon No. 6)*
-
-*Delivered on Sabbath Morning, February 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.*
-
----
+Sermon No. 6 - Delivered on Sabbath Morning, February 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > "A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory"
 > 
-> *Matthew 12:20*
+> Matthew 12:20
 
 Babbling fame ever loves to talk of one man or another. Some there be whose glory it trumpets forth, and whose honor it extols above the heavens. Some are her favorites, and their names are carved on marble, and heard in every land, and every clime. Fame is not an impartial judge; she has her favorites. Some men she extols, exalts, and almost deifies; others, whose virtues are far greater, and whose characters are more deserving of commendation, she passes by unheeded, and puts the finger of silence on her lips. You will generally find that those persons beloved by fame are men made of brass or iron, and cast in a rough mould. Fame caresseth Caesar, because he ruled the earth with a rod of iron. Fame loves Luther, because he boldly and manfully defied the Pope of Rome, and with knit brow dared laugh at the thunders of the Vatican. Fame admires Knox; for he was stern, and proved himself the bravest of the brave. Generally, you will find her choosing out the men of fire and mettle, who stood before their fellow-creatures fearless of them; men who were made of courage; who were consolidated lumps of fearlessness, and never knew what timidity might be. But you know there is another class of persons equally virtuous, and equally to be esteemed--perhaps even more so--whom fame entirely forgets. You do not hear her talk of the gentle-minded Melancthon--she says but little of him--yet he did as much, perhaps, in the Reformation, as even the mighty Luther. You do not hear fame talk much of the sweet and blessed Rutherford, and of the heavenly words that distilled from his lips; or of Archbishop Leighton, of whom it was said, that he was never out of temper in his life. She loves the rough granite peaks that defy the storm-cloud: she does not care for the more humble stone in the valley, on which the weary traveller resteth; she wants something bold and prominent; something that courts popularity; something that stands out before the world. She does not care for those who retreat in shade. Hence it is, my brethren, that the blessed Jesus, our adorable Master, has escaped fame. No one says much about Jesus, except his followers. We do not find his name written amongst the great and mighty men; though, in truth, he is the greatest, mightiest, holiest, purest, and best of men that ever lived; but because he was "Gentle Jesus, meek and mild," and was emphatically the man whose kingdom is not of this world; because he had nothing of the rough about him, but was all love; because his words were softer than butter, his utterances more gentle in their flow than oil; because never man spake so gently as this man; therefore he is neglected and forgotten. He did not come to be a conqueror with his sword, nor a Mohammed with his fiery eloquence; but he came to speak with a "still small voice," that melteth the rocky heart; that bindeth up the broken in spirit, and that continually saith, "Come unto me all ye that are weary and heavy laden;" "Take my yoke upon you and learn of me, for I am meek and lowly of heart, and ye shall find rest unto your souls." Jesus Christ was all gentleness; and this is why he has not been extolled amongst men as otherwise he would have been. Beloved! our text is full of gentleness; it seems to have been steeped in love; and I hope I may be able to show you something of the immense sympathy and the mighty tenderness of Jesus, as I attempt to speak from it. There are three things to be noticed: first, mortal frailty; secondly, divine compassion; and thirdly, certain triumph--"till he send forth judgment unto victory."
 
@@ -52,11 +48,11 @@ It says he will not quench--he will not break. But there is more under cover tha
 
 Now I want to say one or two things to Little-Faiths this morning. The little children of God who are here mentioned as being bruised reeds or smoking flax are just as safe as the great saints of God. I wish for a moment to expand this thought, and then I will finish with the other head. These saints of God who are called bruised reeds and smoking flax are just as safe as those who are mighty for their Master, and great in strength, for several reasons. First of all, the little saint is just as much God's elect as the great saint. When God chose his people, he chose them all at once, and altogether; and he elected one just as much as the other. If I choose a certain number of things, one may be less than the rest, but one is as much chosen as the other; and so Mrs. Fearing and Miss Despondency are just as much elected as Great-Heart, or Old Father Honest. Again: the little ones are redeemed equally with the great ones! the feeble saints cost Christ as much suffering as the strong ones; the tiniest child of God could not have been purchased with less than Jesus' precious blood; and the greatest child of God did not cost him more. Paul did not cost any more than Benjamin--I am sure he did not--for I read in the Bible that "there is no difference." Besides, when of old they came to pay their redemption-money, every person brought a shekel. The poor shall bring no less, and the rich shall bring no more than just a shekel. The same price was paid for the one as the other. Now then little child of God, take that thought to thy soul. You see some men very prominent in Christ's cause--and it is very good that they should be--but they did not cost Jesus a farthing more than you did; he paid the same price for you that he paid for them. Recollect again, you are just as much a child of God as the greatest saint. Some of you have five or six children. There is one child of yours, perhaps, who is very tall and handsome, and has, moreover, gifts of mind; and you have another child who is the smallest of the family, perhaps has but little intellect and understanding. But which is the most your child? "The most!" you say; "both alike are my children, certainly, one as much as the other." And so, dear friends, you may have very little learning, you may be very dark about divine things, you may but "see men as trees walking," but you are as much the children of God as those who have grown to the stature of men in Christ Jesus. Then remember, poor tried saint, that you are just as much justified as any other child of God. I know that I am completely justified.
 
-> His blood and righteousness
+> "His blood and righteousness
 > 
 > My beauty are, my glorious dress.
 > 
-> I want no other garments, save Jesus' doings, and his imputed righteousness.
+> I want no other garments, save Jesus' doings, and his imputed righteousness."
 
 The boldest child of God wants no more; and I who am "less than the least of all saints," can be content with no less, and I shall have no less. O Ready-to-Halt, thou art as much justified as Paul, Peter, John the Baptist, or the loftiest saint in heaven. There is no difference in that matter. Oh! take courage and rejoice.
 
@@ -72,13 +68,13 @@ Victory! There is something beautiful in that word. The death of Sir John Moore,
 
 Now a word about this victory. I speak first to aged men and women. Dear brethren and sisters, you are often, I know, like the bruised reed. Coming events cast their shadows before them; and death casts the shadow of old age on you. You feel the grasshopper to be a burden; you feel full of weakness and decay; your frame can hardly hold together. Ah! you have here a special promise. "The bruised reed I will not break." "I will strengthen thee." "When thy heart and thy flesh faileth, I will be the strength of thy heart and thy portion for ever."
 
-> Even down to old age, all my people shall prove
+> "Even down to old age, all my people shall prove
 > 
 > My sovereign, eternal, unchangeable love;
 > 
 > And when hoary hairs shall their temples adorn,
 > 
-> Like lambs they shall still in my bosom be borne.
+> Like lambs they shall still in my bosom be borne."
 
 Tottering on thy staff, leaning, feeble, weak, and wan; fear not the last hour; that last hour shall be thy best; thy last day shall be a consummation devoutly to be wished. Weak as thou art, God will temper the trial to thy weakness; he will make thy pain less, if thy strength be less; but thou shalt sing in heaven, Victory! victory! victory! There are some of us who could wish to change places with you, to be so near heaven--to be so near home. With all your infirmities, your grey hairs are a crown of glory to you; for you are near the end as well as in the way of righteousness.
 
@@ -88,12 +84,12 @@ Ye youths and maidens! I speak to you, and have a right to do so. You and I oftt
 
 Let me not finish without saying a word to little children. You who have never heard of Jesus, he says to you, "The bruised reed I will not break; the smoking flax I will not quench." I believe there is many a little prattler, not six years old, who knows the Saviour. I never despise infantile piety; I love it. I have heard little children talk of mysteries that grey-headed men knew not. Ah! little children who have been brought up in the Sabbath-schools, and love the Saviour's name, if others say you are too forward, do not fear, love Christ still.
 
-> Gentle Jesus, meek and mild,
+> "Gentle Jesus, meek and mild,
 > 
 > Still will look upon a child;
 > 
 > Pity thy simplicity,
 > 
-> And suffer thee to come to him.
+> And suffer thee to come to him."
 
 He will not cast thee away; for smoking flax he will not quench, and the bruised reed he will not break.
