@@ -4,7 +4,7 @@ Sermon No. 22 - Delivered on Sabbath Morning, May 13, 1855, by the REV. C.H. SPU
 
 > "Let him that thinketh he standeth take heed lest he fall."
 > 
-> 1 Cor. 10:12
+> 1 Corinthians 10:12.
 
 IT is a singular fact, but nevertheless most certain, that the vices are the counterfeits of virtues. Whenever God sends from the mint of heaven a precious coin of genuine metal, Satan will imitate the impress, and utter a vile production of no value. God gives love; it is his nature and his essence. Satan also fashioneth a thing which he calls love, but it is lust. God bestows courage; and it is a good thing to be able to look one's fellow in the face, fearless of all men in doing our duty. Satan inspires fool-hardiness, styles it courage, and bids the man rush to the cannon's mouth for "bubble reputation." God creates in man holy fear. Satan gives him unbelief, and we often mistake the one for the other. So with the best of virtues, the saving grace of faith, when it comes to its perfection it ripens into confidence, and there is nothing so comfortable and so desirable to the Christian, as the full assurance of faith. Hence, we find Satan, when he sees this good coin, at once takes the metal of the bottomless pit, imitates the heavenly image and superscription of assurance, and palms upon us the vice of presumption.
 

@@ -4,7 +4,7 @@ Sermon No. 5 - Delivered on Sabbath Evening, January 21, 1855, by the REV. C.H. 
 
 > "But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things and bring all things to your remembrance, whatsoever I have said unto you."
 > 
-> John 14:26
+> John 14:26.
 
 Good old Simeon called Jesus the consolation of Israel; and so he was. Before his actual appearance, his name was the Day-Star; cheering the darkness, and prophetic of the rising sun. To him they looked with the same hope which cheers the nightly watcher, when from the lonely castle-top he sees the fairest of the stars, and hails her as the usher of the morn. When he was on earth, he must have been the consolation of all those who were privileged to be his companions. We can imagine how readily the disciples would run to Christ to tell him of their griefs, and how sweetly, with that matchless intonation of his voice, he would speak to them, and bid their fears be gone. Like children, they would consider him as their Father; and to him every want, every groan, every sorrow, every agony, would at once be carried; and he, like a wise physician, had a balm for every wound; he had mingled a cordial for their every care; and readily did he dispense some mighty remedy to allay all the fever of their troubles. Oh! it must have been sweet to have lived with Christ. Surely sorrows were then but joys in masks, because they gave an opportunity to go to Jesus to have them removed. Oh! would to God, some of us may say, that we could have lain our weary heads upon the bosom of Jesus, and that our birth had been in that happy era, when we might have heard his kind voice, and seen his kind look, when he said, "Let the weary ones come unto me."
 

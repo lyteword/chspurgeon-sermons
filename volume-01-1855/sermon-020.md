@@ -4,7 +4,7 @@ Sermon No. 20 - Delivered on Sabbath Morning, April 22, 1855, by the REV. C.H. S
 
 > "The carnal mind is enmity against God"
 > 
-> Romans 8:7
+> Romans 8:7.
 
 This is a very solemn indictment which the Apostle Paul here prefers against the carnal mind. He declares it to be enmity against God. When we consider what man once was, only second to the angels, the companion of God, who walked with him in the garden of Eden in the cool of the day; when we think of him as being made in the very image of his Creator, pure, spotless, and unblemished, we cannot but feel bitterly grieved to find such an accusation as this preferred against us as a race. We may well hang our harps upon the willows, while we listen to the voice of Jehovah solemnly speaking to his rebellious creature. "How art thou fallen from heaven, thou son of the morning!" "Thou sealest up the sum, full of wisdom, and perfect in beauty. Thou hast been in Eden, the garden of God; every precious stone was thy covering--the workmanship of thy tabrets and of thy pipes was prepared in thee in the day that thou wast created. Thou art the anointed cherub that covereth; and I have set thee so; thou wast upon the holy mountain of God; thou hast walked up and down in the midst of the stones of fire. Thou wast perfect in thy ways from the day that thou wast created, till iniquity was found in thee, and thou hast sinned; therefore, I will cast thee as profane out of the mountain of God; and I will destroy thee, O covering cherub, from the midst of the stones of fire."
 

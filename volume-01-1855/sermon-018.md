@@ -4,7 +4,7 @@ Sermon No. 18 - Delivered on Sabbath Morning, April 8, 1855, by the REV. C.H. SP
 
 > "Come, see the place where the Lord lay."
 > 
-> Matthew 28:6
+> Matthew 28:6.
 
 Every circumstance connected with the life of Christ is deeply interesting to the Christian mind. Wherever we behold our Saviour, he is well worthy of our notice.
 

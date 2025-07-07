@@ -4,7 +4,7 @@ Sermon No. 10 - Delivered on Sabbath Morning, January 28th, 1855, by the REV. C.
 
 > "And hast made us unto our God kings and priests; and we shall reign on the earth."
 > 
-> Revelation 5:10
+> Revelation 5:10.
 
 MUSIC HATH Charms." I am sure sacred music has; for I have felt something of its charms whilst we have been singing that glorious hymn just now. There is a potency in harmony; there is a magic power in melody, which either melts the soul to pity, or lifts it up to joy unspeakable. I do not know how it may be with some minds; they possibly may resist the influence of singing; but I cannot. When the saints of God, in full chorus, "chaunt the solemn lay," and when I hear sweet syllables fall from their lips, keeping measure and time, then I feel elevated; and, forgetting for a time everything terrestrial, I soar aloft towards heaven. If such be the sweetness of the music of the saints below, where there is much of discord and sin to mar the harmony, how sweet must it be to sing above, with cherubim and seraphim. Oh, what songs must those be which the Eternal ever hears upon his throne! What seraphic sonnets must those be which are thrilled from the lips of pure immortals, untainted by a sin, unmingled with a groan: where they warble ever hymns of joy and gladness, never intermingled with one sigh, or groan, or worldly care. Happy songsters! When shall I your chorus join? There is one of your hymns that runs--
 
