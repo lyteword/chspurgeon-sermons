@@ -2,9 +2,8 @@
 
 Sermon No. 94 - Delivered on Monday Afternoon, August 25, 1856, by the REV. C.H. SPURGEON at Maberley Chapel, Kingsland, on Behalf of the Metropolitan Benefit Societies' Asylum, Ball's Pond Road, Islington.
 
-> "Boast not thyself of to-morrow; for thou knowest not what a day may bring forth."
-> 
-> Proverbs 27:1.
+> "Boast not thyself of to-morrow; for thou knowest not what a day may bring forth."  
+> Proverbs 27:1.  
 
 GOD'S MOST holy Word was principally written to inform us of the way to heaven, and to guide us in our path through this world, to the realms of eternal life and light. But as if to teach us that God is not careless concerning our doings in the present scene, and that our benevolent Father is not inattentive to our happiness even in this state, he has furnished us with some excellent and wise maxims, which we may put in practice, not only in spiritual matters, but in temporal affairs also. I have always looked upon the book of Proverbs with pleasure, as being a book not only teaching us the highest spiritual wisdom, but as also more especially speaking on the "now"--the time that is present with us--giving us maxims that will make us wise for this world, and that will instruct us in conducting our affairs whilst we are here amongst our fellow-men. We need some temporal wisdom as well as spiritual illumination; it need not always be that the children of the kingdom should be more foolish than the children of darkness. It is well that we should be wise to order our common affairs aright, as well as to set out house in order for the grave; and hence we find in Scripture maxims and teachings for them both. Since God has been pleased thus to instruct us in the avocations of life, I shall not, then, be out of place, if I use my text, in some degree, in a merely temporal manner, and endeavour to give advice to my friends concerning the business of this life. Afterwards, I shall dwell upon it more spiritually. There is first, the abuse of to-morrow forbidden in the text; in the second place, I shall mention the right use of to-morrow.
 
@@ -44,27 +43,19 @@ Just one hint to the child of God. Ah! my beloved brother or sister, do not, I b
 
 And now, in the last place, if to-morrows are not to be boasted of, are they good for nothing? No, blessed be God! There are great many things we may do with to-morrows. We may not boast of them, but I will tell you what we may do with them if we are the children of God. We may always look forward to them with patience and confidence, that they will work together for our good. We may say of the to-morrows, "I do not boast of them, but I am not frightened at them; I would not glory in them, but I will not tremble about them."
 
-> "What may be my future lot,
-> 
-> Well I know concerns me not;
-> 
-> This doth set my heart at rest,
-> 
-> What my God appoints is best."
+> "What may be my future lot,  
+> Well I know concerns me not;  
+> This doth set my heart at rest,  
+> What my God appoints is best."  
 
 We may be very easy and very comfortable about to-morrow; we may remember that all our times are in his hands, that all events are at his command; and though we know not all the windings of the path of providence, yet He knows them all. They are all settled in his book, and our times are all ordered by his wisdom; whether they be
 
-> "Times of trial and of grief;
-> 
-> Times of triumph and relief;
-> 
-> Times the tempter's power to prove,
-> 
-> Times to taste a Saviour's love:
-> 
-> All must come, and last, and end,
-> 
-> As shall please my heavenly Friend."
+> "Times of trial and of grief;  
+> Times of triumph and relief;  
+> Times the tempter's power to prove,  
+> Times to taste a Saviour's love:  
+> All must come, and last, and end,  
+> As shall please my heavenly Friend."  
 
 And, therefore, we may look upon the to-morrows as we see them in the rough bullion of time, about to be minted into every day's expenditure, and we may say of them all, "They shall all be gold; they shall all be stamped with the King's impress, and, therefore, let them come; they will not make me worse--they will work together for my good."
 

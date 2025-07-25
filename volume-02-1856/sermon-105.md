@@ -2,9 +2,8 @@
 
 Sermon No. 105 - Delivered on Sabbath Morning, November 30, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Then Manasseh knew that the Lord he was God."
-> 
-> 2 Chron. 33:13.
+> "Then Manasseh knew that the Lord he was God."  
+> 2 Chron. 33:13.  
 
 MANASSEH is one of the most remarkable characters whose history is written in the sacred pages. We are accustomed to mention his name in the list of those who greatly sinned, and yet found great mercy. Side by side with Saul of Tarsus, with that great sinner who washed the feet of Jesus with her tears, and wiped them with the hairs of her head, and with the thief that died upon the cross--a forgiven sinner at the eleventh hour--we are wont to write the name of Manasseh, who "shed innocent blood very much," and notwithstanding that, was forgiven and pardoned, finding mercy through the blood of a Saviour who had not then died, but whom God foresaw should die, and the merits of whose sacrifice he therefore imputed to so great a transgressor as Manasseh.
 
@@ -28,15 +27,13 @@ Do you ask me whether such cases ever occur now? I answer, yes they do; too rare
 
 Ay, my associates may laugh, scoff, deride, call me coward, turncoat, I will do an act of justice to my soul. I went to the chapel; I was just stupefied with awe. What could I want there? The door keeper opened his eyes wider, and involuntarily demanded, It's Mr.--isn't it ?' Yes,' I said, it is.' He conducted me to a seat, and afterward brought me a hymn-book. I was fit to burst with anguish. Now,' I thought, I am here, if it be the house of God, heaven grant me an audience, and I will make full surrender. O God, show me some token by which I may know that thou art, and that thou wilt in no wise cast out the vile deserter who has ventured to seek thy face and thy pardoning mercy.' I opened the hymn-book to divert my mind from feelings that were rending me, and the first words that caught my eyes were
 
-> "Dark, dark indeed the grave would be,
-> 
-> Had we no light O God, from thee.'"
+> "Dark, dark indeed the grave would be,  
+> Had we no light O God, from thee.'"  
 
 After giving some things which he looks upon as evidences that he is a true convert of religion, he closes up by saying, "O sir, tell this to the poor wretch whose pride, like mine, has made him league with hell; tell it to the hesitating and to the timid; tell it to the cooling Christian, that God is a very present help to all that are in need. Think of the poor sinner who may never look upon you in this world, but who will live to bless and pray for you here, and long to meet you in the world exempt from sinful doubts, from human pride, and backsliding hearts." Ah, he need not ask my forgiveness; I am happy, too happy, in the hope of calling him " brother" in the Christian church. This letter is from a place many miles from this city and from a man who had no small standing among the ranks of those who hate Christ. Ah! there have been Manassehs saved, and there shall be yet. There have been men who hated God, who have leaped for joy, and said--
 
-> "I'm forgiven, I'm forgiven,
-> 
-> I'm a miracle of grace,"
+> "I'm forgiven, I'm forgiven,  
+> I'm a miracle of grace,"  
 
 and have kissed the very feet which once they scorned and scoffed, and could not bear to hear the mention of.
 
@@ -68,13 +65,10 @@ The other reason was, that Manasseh had a sense of pardoned sin. Ah! that is a d
 
 Why, dear friends, if the poorest old woman in the world should be brought before an infidel of the wisest order, having a mind of the greatest caliber, and he should endeavor to pervert her, I think I see her smile at him, and say, "My good man, it is of no use at all, for the Lord has appeared unto me of old, saying, Yea I have loved thee with an everlasting love,' and so you may tell me what you please: I have had a sense of blood-bought pardon shed abroad in my heart, and I know that he is God, and you can never beat it out of me." As good Watts says, when we have once such an assurance as that,
 
-> "Should all the forms that men devise
-> 
-> Assault my faith with treacherous art,
-> 
-> I'd call them vanity and lies,
-> 
-> And bind the gospel to my heart."
+> "Should all the forms that men devise  
+> Assault my faith with treacherous art,  
+> I'd call them vanity and lies,  
+> And bind the gospel to my heart."  
 
 O! if you have a sense that sin is forgiven, you can never doubt the existence of a God; for it will be said of you, "Then he knew that the Lord he was God."
 
@@ -82,9 +76,8 @@ And now I gather up my strength for just one moment, to speak to those of you wh
 
 The only question is, Did he die for you? He most certainly did if you are a sinner; for it is written--I will repeat it again--"It is a faithful saying, that Christ Jesus came to save sinners." Poor sinner, believe! My dear friend, give me thine hand! I wish I could put it inside Christ's hand. O! embrace him! embrace him! lest haply the clouds of night should come upon thee, and the sun should set ere thou hast found him, O! lay hold on him, lest death and destruction should overtake thee; fly to this mountain, lest thou be consumed, and remember, once in Christ, thou art safe beyond hazard.
 
-> "Once in Christ in Christ for ever,
-> 
-> Nothing from his love can sever."
+> "Once in Christ in Christ for ever,  
+> Nothing from his love can sever."  
 
 O! believe him! believe him, my dear, dear hearers for Jesus sake! Amen.
 

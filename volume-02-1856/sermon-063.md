@@ -2,9 +2,8 @@
 
 Sermon No. 63 - Delivered on Sabbath Morning, January 27, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Who are these that fly as a cloud, and as the doves to their windows?"
-> 
-> Isaiah 60:8.
+> "Who are these that fly as a cloud, and as the doves to their windows?"  
+> Isaiah 60:8.  
 
 The ancient church, in the foresight of her mighty increase in these latter days lifts up her hands in astonishment, and having been so used to see the Lord's grace confined to a small nation, she exclaims in amazement, "Who are these that fly as a cloud, and as the doves to their windows?" We, beloved, are in a somewhat similar position. It has pleased our Father to add to our numbers so greatly beyond all precedent in modern times, that I doubt not that many of our aged members, who remember days of yore, when God was pleased to bless them very greatly, and then think of days of sadness and weariness, when they were diminished and brought low, are this morning lifting up their hands, and saying, as they think of the present prosperity of our church, "Who are these that fly as a cloud, and as the doves to their windows?" I am sure whenever I appoint an evening for seeing the converts I am amazed; I can only stand up afterwards, clap my hands, and go home and weep for very joy, to think that the word of our God is so running and multiplying and abundantly increasing; and as post after post I receive letters from different parts of this country, from one person here, and another there, not in England only, but in Scotland, and even across the sea--in Ireland, and you know, in the Crimea also--I have been overwhelmed with amazement, and have been obliged to cry out, "Who hath begotten me these?" "Who are these that fly as a cloud, and as the doves to their windows?"
 
@@ -22,13 +21,10 @@ The example of Jesus and his apostles is altogether against it; and I take it th
 
 The Targum has another idea, that of publicity. "Who are these that fly as a cloud?" The cloud, you know, flies so that everybody can see it. So do these converts fly openly before the world. It is a matter of admiration with this church and with God's church whenever it is increased, that the converts become so bold and fly so publicly. In the first days of the church, Nicodemus, the ruler of the Jews, came to Jesus by night; he was somewhat ashamed, lest he should be put out of the synagogue. Joseph of Arimathea, the rich man, was afraid to profess his Lord, and therefore loved Jesus "secretly, for fear of the Jews." But you do not read that any of them were afraid, when God poured out the Holy Ghost on the day that Peter preached; but "they broke their bread from house to house, and did eat it in singleness of heart, praising God." They went up to the beautiful gate of the temple, and in the very teeth of all the people, Peter and John healed the lame man. They worked their miracles openly before all men. They were not ashamed. So, when there is a glorious ingathering of souls, you will always notice how bold the people become. Why, there never were such a brazen-faced set of people as those who assemble here. They are not ashamed of their religion. Why, I have seen persons come to the pool of baptism, fearing, shaking, and trembling: but I have not found it so with the majority of those who have been baptized in this place. They seem proud to own their Master. They can sing,--
 
-> "Ashamed of Jesus? Sooner far
-> 
-> Let evening blush to own a star!
-> 
-> Ashamed of Jesus? Just as soon
-> 
-> Let midnight be ashamed of noon!"
+> "Ashamed of Jesus? Sooner far  
+> Let evening blush to own a star!  
+> Ashamed of Jesus? Just as soon  
+> Let midnight be ashamed of noon!"  
 
 You "are not ashamed of the gospel of Christ," for it has been here the power of God unto salvation to many who have believed. I have rejoiced to see the boldness of the young converts; I have heard of them fighting with the antagonists of the truth. I have seen them boldly standing up for their Master, in the face of scorns and jeers, and slanders; and the church says, with regard to them, "Who are these that fly publicly as a cloud?"
 
@@ -46,13 +42,10 @@ First, the church is exceedingly pleased at the character of those who come to h
 
 Ah! beloved, you should be at our church meetings sometimes, and hear the sweet words of experience which are uttered there. I am sure you would say, that they, "fly as the doves to their windows." Now and then there comes before me an old croaking raven, that wants to come in; but we are soon able to tell the raven from the dove. It may be, that now and then a raven gets into our church; but I do hope that the majority are doves. We have seen them so humble, so meek, trusting alone in Jesus, like timid doves, half afraid to speak and tell you, and yet so loving, that they seemed as if they had sat on the finger of Jesus, and picked their food from between his lips; we have marked their conduct afterwards, and seen it to be holy and consistent. We will glory before the world, that notwithstanding the numbers that have been added to us, we have had to cut off as few as any church in the world--but one in a year, out of our vast body! and that one was received from another church, and therefore had never been examined thoroughly. O my brethren, always try to give the church pleasure by your dove-like conversation. "Be wise as serpents, but harmless as doves." Such was your Master's teaching. Let your character be--
 
-> "Humble, teachable, and mild,
-> 
-> Changed into a little child;
-> 
-> Pleased with all the Lord provides,
-> 
-> Weaned from all the world besides."
+> "Humble, teachable, and mild,  
+> Changed into a little child;  
+> Pleased with all the Lord provides,  
+> Weaned from all the world besides."  
 
 "Set your affections on things above, and not on things on the earth." Be not like the unclean bird, that will devour all kinds of filth; but be like the dove, that liveth on the "good corn of the kingdom." And be ye sure that you are like them, loving and kind one to another; and, like them, always mourn when you lose your mate; weep when your Jesus is gone from you, and you lose his delightful presence. Be ye like the dove in all these things.
 
@@ -80,8 +73,7 @@ The last answer I shall give respecting those who have come to join themselves w
 
 There is only one hope for a poor sinner from the justice of Jehovah; and that is in the "Man of sorrows and acquainted with grief," who "gave his back to the smiters, and his cheeks to them that plucked off the hair." Do you know how that dovecot was made for you? Do you know how it is lined for you, and how large the door is? It was made by Jesus, the carpenter's son; it is lined with the blood of his own heart; and the door is so wide that the biggest sinner can get in, but he who has any righteousness will find that the door is not large enough to let him carry his righteousness with him. Poor soul! hast thou a dovecot? and art thou living in it? If so, we rejoice with thee, and glad enough should we be to have thee united with our church; for we love all those who love the Lord Jesus Christ. Yet, lest thou shouldst not understand our holy religion, one moment shall suffice, and thou shalt go. Dost thou not know that the law which God made on Sinai has been broken by us all, and that God, the "jealous God," will "by no means spare the guilty?" And dost thou not know, O sinner, that thou must offer something to God, to make up a recompense for what thou hast done? Dost thou not know, that God is so angry with the man who sins, that he will damn that man, unless there is some one who will be damned for him, and suffer the punishment in his stead? And dost thou not know, that our religion is a religion of substitution--that Jesus Christ the Son of God became man; that he might take the punishment we ought to have had; that he bore the wrath we ought to have borne; that he took the guilt we committed, just as the scape-goat of old did, and carried it right away into the wilderness of forgetfulness; so that now a sinner who is putting his trust in that substitution can escape punishment. God's justice cannot demand payment twice--
 
-> "First at my bleeding Surety's hands,
-> 
-> And then again at mine."
+> "First at my bleeding Surety's hands,  
+> And then again at mine."  
 
 Precious Jesus! what a substitute thou wast for guilt? Sweet Lord Jesus! I kiss thy wounds this day; thou Man! thou God! thou who didst wrestle with Jacob! thou who didst walk with Abraham, the man of God, of Mamre! thou who stoodst in the fiery furnace with Shadrach, Meshach, and Abednego! Thou Son of God, thou Son of Man, who didst appear to Joshua with thy sword drawn! I worship thee, my substitute, my hope! Oh! that others might do so too, and that the whole of this vast multitude might, with one heart, accept him as their Saviour!

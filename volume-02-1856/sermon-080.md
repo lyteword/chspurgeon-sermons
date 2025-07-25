@@ -2,9 +2,8 @@
 
 Sermon No. 80 - Delivered on Sabbath Morning, May 18, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "He only is my rock and my salvation."
-> 
-> Psalm 92:2.
+> "He only is my rock and my salvation."  
+> Psalm 92:2.  
 
 HOW noble a title. So sublime, suggestive, and overpowering. "MY ROCK." It is a figure so divine, that to God alone shall it ever be applied.
 
@@ -34,27 +33,20 @@ And again: sustentation also is absolutely requisite. We need sustentation in pr
 
 Then if we gather the three thoughts in one. The perfection we shall soon have, when we shall stand yonder, near God's throne, will be wholly of the Lord. That bright crown which shall sparkle on our brow, like a constellation of brilliant stars, shall have been fashioned only by our God. I go to a land, but it is a land which the plough of earth hath never upturned, though it be greener than earth's best pastures, and though it be richer than all her harvests ever saw. I go to a building of more gorgeous architecture than man hath builded; it is not of mortal architecture; it is "a house not made with hands, eternal in the heavens". All I shall know in heaven, will be given by the Lord; and I shall say, when at last I appear before him,--
 
-> "Grace all the work shall crown
-> 
-> Through everlasting days;
-> 
-> It lays in heaven the topmost stone,
-> 
-> And well deserves the praise."
+> "Grace all the work shall crown  
+> Through everlasting days;  
+> It lays in heaven the topmost stone,  
+> And well deserves the praise."  
 
 And now, beloved, we come to THE GREAT EXPERIENCE. The greatest of all experience, I take it, is to know that "he only is our rock and our salvation." We have been insisting upon a doctrine; but doctrine is nothing unless proved in our experience. Most of God's doctrines are only to be learned by practice--by taking them out into the world, and letting them bear the wear and tear of life. If I ask any Christian in this place whether this doctrine is true, if he has had any deep experience, he will reply, "True! ay, that it is; not one word in God's Bible is more true than that, for indeed salvation is of God alone." "He only is my rock and my salvation." But, beloved, it is very hard to have such an experimental knowledge of the doctrine that we never depart from it. It is very hard to believe that "salvation is of the Lord." There are times when we put our confidence in something else but God, and sin by linking hand-in-hand with God--something besides him. Let me now dwell a little upon the experience which will bring us to know that salvation is of God alone.
 
 The true Christian will confess that salvation is of God alone effectively; that is, that "he works in him to will and to do of his own pleasure." Looking back on my past life, I can see that the dawning of it all was of God; of God effectively. I took no torch with which to light the sun; but the sun did light me. I did not commence my spiritual life--no, I rather kicked and struggled against the things of the Spirit: when he drew me, for a time, I did not run after him: there was a natural hatred in my soul of everything holy and good. Wooings were lost upon me--warnings were cast to the wind--thunders were despised; and as for the whispers of his love, they were rejected as being less than nothing and vanity. But, sure I am, I can say now, speaking on behalf of myself, and of all who know the Lord, "He only is my salvation, and your salvation too." It was he who turned your heart, and brought you down on your knees. You can say in very deed, then--
 
-> "Grace taught my soul to pray,
-> 
-> Grace made my eyes o'erflow."
-> 
-> And coming to this moment, you can say,--
-> 
-> "Tis grace has kept me to this day,
-> 
-> And will not let me go."
+> "Grace taught my soul to pray,  
+> Grace made my eyes o'erflow."  
+> And coming to this moment, you can say,--  
+> "Tis grace has kept me to this day,  
+> And will not let me go."  
 
 I remember, when I was coming to the Lord, I thought I was doing it all myself, and though I sought the Lord earnestly, I had no idea the Lord was seeking me. I do not think the young convert is at first aware of him. One day when I was sitting in the house of God, I was not thinking much about the man's sermon, for I did not believe it. The thought struck me, "How did you come to be a Christian?" I sought the Lord. "But how did you come to seek the Lord?" The thought flashed across my mind in a moment--I should not have sought him unless there had been some previous influence in my mind to make me seek him. I am sure you will not be many weeks a Christian, certainly not many months, before you will say, "I ascribe my change wholly to God." I desire to make this my constant confession. I know there are some who preach one gospel in the morning, and another at night--who preach a good sound gospel in the morning, because they are preaching to saints, but preach falsehood in the evening, because they are preaching to sinners. But there is no necessity to preach truth at one time and falsehood at another. "The word of the Lord is perfect, converting the soul." There no need to put anything else in it, in order to bring sinners to the Saviour. But, my brothers, you must confess that "Salvation is of the Lord." 
 
@@ -64,21 +56,17 @@ And now look forward to the future. Man! think how many enemies thou hast; how m
 
 Effectively, it all comes of God; and I am sure we must add, meritoriously. We have experienced that salvation is wholly of him. What merits have I? If I were to scrape together all I ever had, and then come to you and beg all you have got, I should not collect the value of a farthing among you all. We have heard of some Catholic, who said that there was a balance struck in his favour between his good works and his bad ones, and therefore he went to heaven. But there is nothing of the sort here; I have seen many people, many kinds of Christians, and many odd Christians, but I never yet met with one who said he had any merits of his own when he came to close quarters. We have heard of perfect men, and we have heard of men perfectly foolish, and we have thought the characters perfectly alike. Have we any merits of our own? I am sure we have not, if we have been taught of God. Once we thought we had; but there came a man called Conviction into our house one night, and took away our gloryings. Ah! we are vile still. I don't know whether Cowper said quite right, when he said,--
 
-> "Since the dear hour that brought me to thy foot,
-> 
-> And cut up all my follies by the root,
-> 
-> I never trusted in an arm but thine--
-> 
-> Nor hoped but in thy righteousness divine!"
+> "Since the dear hour that brought me to thy foot,  
+> And cut up all my follies by the root,  
+> I never trusted in an arm but thine--  
+> Nor hoped but in thy righteousness divine!"  
 
 I think he made a mistake, for most Christians get trusting in self at times, but we are forced to own that "salvation is of the Lord," if we consider it meritoriously.
 
 My dear friends, have you experienced this in your own hearts? Can you say "amen" to that, as it goes round? Can you say, "I know that God is my helper?" I dare say you can, most of you; but you will not say it so well as you will by-and-bye, if God teach you. We believe it, when we commence the Christian life; we know it afterwards; and the longer we live, the more we find it to be the truth--"Cursed is he that trusteth in man and maketh flesh his arm, but blessed is he who trusteth in the Lord, and whose hope the Lord is." In fact, the crown of Christian experience is to be delivered from all trust in self or man, and to be brought to rely wholly and simply on Jesus Christ. I say, Christian, thy highest and noblest experience is not to be groaning about thy corruption, is not to be crying about thy wanderings, but is to say--
 
-> "With all my sin, and care, and woe,
-> 
-> His Spirit will not let me go."
+> "With all my sin, and care, and woe,  
+> His Spirit will not let me go."  
 
 "Lord, I believe, help thou mine unbelief." I like what Luther says: "I would run into Christ's arms if he had a drawn sword in his hands." Trust is called venturesome believing; but as an old divine says, there is no such thing as venturesome believing; we cannot venture on Christ; it is no venture at all; there is no hap-hazard in the least degree. It is a holy and heavenly experience, when we can go to Christ, amid the storm, and say, "Oh! Jesus, I believe I am covered by thy blood;" when we can feel ourselves to be all over rages, and yet can say, "Lord, I believe that through Christ Jesus, ragged though I am, I am fully absolved." A saint's faith is little faith when he believes as a saint; but a sinner's faith is true faith when he believes as a sinner. The faith, not of a sinless being, but the faith of a sinful creature--that is the faith which delights God. Go, then, Christian: ask that this may be thy experience, to learn each day, "He only is my rock and my salvation."
 
@@ -88,13 +76,10 @@ The great duty is--if God only be our rock, and we know it, are we not bound to 
 
 In the first place, Christian, never join anything with Christ. Wouldest thou stitch thy old rags into the new garment he giveth? Wouldest thou put new wine into old bottles? Wouldst thou put Christ and self together? Thou mightest as well yoke an elephant and an emmet; they could never plough together. What! wouldst thou put an archangel in the same harness with a worm, and hope that they would drag thee through the sky! How inconsistent! how foolish! What! thyself and Christ? Sure, Christ would smile; nay, Christ would weep, to think of such a thing! Christ and man together? CHRIST AND CO? No, it never shall be; he will have nothing of the sort; he must be all. Note how inconsistent it would be to put anything else with him; and note, again, how wrong it would be. Christ will never bear to have anything else places with him. He calls them adulterers and fornicators that love anything else but him; he will have thy whole heart to trust in him, thy whole soul to love him, and thy whole life to honor him. He will not come into thy house, till thou puttest all the keys at his girdle; he will not allow thee to give him all the keys but one; he will not come till thou givest him garret, parlour, drawing-room, and cellar too. He will make thee sing--
 
-> "Yet if I might make some reserve,
-> 
-> And duty did not call,
-> 
-> I love my God with zeal so great,
-> 
-> That I should give him all."
+> "Yet if I might make some reserve,  
+> And duty did not call,  
+> I love my God with zeal so great,  
+> That I should give him all."  
 
 Mark thee, Christian; it is a sin to keep anything from God.
 

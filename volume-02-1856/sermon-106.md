@@ -2,9 +2,8 @@
 
 Sermon No. 106 - Delivered on Sabbath Morning, December 7, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "If he turn not, he will whet his sword; he hath bent his bow and made it ready."
-> 
-> Psalm 7:12.
+> "If he turn not, he will whet his sword; he hath bent his bow and made it ready."  
+> Psalm 7:12.  
 
 IF THE SINNER turn not, God will whet his sword." So, then, God has a sword, and he will punish man on account of his iniquity. This evil generation hath laboured to take away from God the sword of his justice; they have endeavoured to prove themselves that God will "clear the guilty," and will by no means "punish iniquity, transgression and sin." Two hundred years ago the predominant strain of the pulpit was one of terror: it was like Mount Sinai, it thundered forth the dreadful wrath of God, and from the lips of a Baxter or a Bunyan, you heard most terrible sermons, full to the brim with warnings of judgment to come. Perhaps some of the Puritanic fathers may have gone too far, and have given too great a prominence to the terrors of the Lord in their ministry: but the age in which we live has sought to forget those terrors altogether, and if we dare to tell men that God will punish them for their sins, it is charged upon us that want to bully them into religion, and if we faithfully and honestly tell our hearers that sin must bring after it certain destruction, it is said that we are attempting to frighten them into goodness. Now we care not what men mockingly impute to us; we feel it our duty, when men sin, to tell them they shall be punished, and so long as the world will not give up its sin we feel we must not cease our warnings. But the cry of the age is, that God is merciful, that God is love. Ay; who said he was not? But remember, it is equally true, God is just, severely and inflexibly just. He were not God, if he were not just; he could not be merciful if he were not just, for punishment of the wicked is demanded by the highest mercy to the rest of mankind. Rest assured, however, that he is just, and that the words I am about to read you from God's Word are true--"The wicked shall be turned into hell, and all the nations that forget God;' "God is angry with the wicked every day;" "If he turn not, he will whet his sword; he hath bent his bow, and made it ready. 
 
@@ -30,13 +29,10 @@ It is very hard to distinguish between legal repentance and evangelical repentan
 
 But one more hint here. When a man is possessed of true and evangelical repentance--I mean the gospel repentance which saves the soul--he not only hates sin for its own sake, but loathes it so extremely and utterly that he feels that no repentance of his own can avail to wash it out, and he acknowledges that it is only by an act of sovereign grace that his sin can be washed away. Now, if any of you suppose that you repent of your sins, and yet imagine that by a course of holy living you can blot them out--if you suppose that by walking uprightly in future you can obliterate your past transgressions--you have not yet truly repented; for true repentance makes a man feel, that
 
-> "Could his zeal no respite know,
-> 
-> Could his tears for ever flow,
-> 
-> All for sin could not atone,
-> 
-> Christ must save, and Christ alone."
+> "Could his zeal no respite know,  
+> Could his tears for ever flow,  
+> All for sin could not atone,  
+> Christ must save, and Christ alone."  
 
 And if it is so killed in thee that thou hatest as a corrupt and abominable thing, and wouldst bury it out of thy sight, but that thou feelest that it will never be entombed, unless Christ shall dig the grave, then thou hast repented of sin. We must humbly confess that we deserve God's wrath, and that we cannot avert it by any deeds of our own, and we must put our trust solely and entirely in the blood and merits of Jesus Christ. If ye have not so repented, again we exclaim in the words of David, "If you turn not, he will whet his sword."
 
@@ -60,13 +56,10 @@ Now briefly what are the MEANS of repentance? Most seriously I say, I do not bel
 
 Then if it should be laid to your heart to endeavour to seek after repentance, I will tell you the best way to find it. Spend an hour first in endeavouring to remember thy sins; and when conviction has gotten a firm hold on thee, then spend another hour--where? At Calvary, my hearer. Sit down and read that chapter which contains the history and mystery of the God that loved and died; sit down and think thou seest that glorious Man, with blood dropping from his hands, and his feet gushing rivers of gore; and if that does not make thee repent, with the help of God's Spirit, then I know of nothing that can. An old divine says, "If you feel you do not love God, love him till you feel you do: if you think you cannot believe, believe till you feel you believe." Many a man says he cannot repent, while he is repenting. Keep on with that repentance, till you feel you have repented. Only acknowledge thy transgressions; confess thy guiltiness; own that he were just if he should destroy thee; and say this, solemnly--
 
-> "My faith doth lay its hand
-> 
-> On that dear head of thine,
-> 
-> While like a penitent I stand,
-> 
-> And there confess my sin."
+> "My faith doth lay its hand  
+> On that dear head of thine,  
+> While like a penitent I stand,  
+> And there confess my sin."  
 
 Oh! what would I give if one of my hearers should be blessed by God to go home and repent! If I had worlds to buy one of your souls, I would readily give them, if I might but bring one of you to Christ. I shall never forget the hour when I hope God's mercy first looked on me. It was in a place very different from this, amongst a despised people, in an insignificant little chapel, of a peculiar sect. I went there bowed down with guilt; laden with transgression. The minister walked up the pulpit stairs, opened his Bible, and read that precious text, "Look unto me, and be ye saved, all the ends of the earth; for I am God, and beside me there is none else;" and, as I thought, fixing his eyes on me, before he began to preach to others, he said, "Young man! look! look! look! You are one of the ends of the earth; you feel you are; you know your need of a Saviour; you are trembling because you think he will never save you. He says this morning, Look!'" Oh, how my soul was shaken within me then! what! thought I, does that man know me, and all about me? He seemed as if he did. And it made me "look!" Well, I thought, lost or saved, I will try; sink or swim, I will run the risk of it; and in that moment I hope by his grace I looked upon Jesus, and though desponding, downcast, and ready to despair, and feeling that I could rather die than live as I had lived, at that very moment it seemed as if a young heaven had had its birth within my conscience. 
 

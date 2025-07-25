@@ -2,9 +2,8 @@
 
 Sermon No. 102 - Delivered on Sabbath Evening, August 24, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "For many walk, of whom I have told you often, and now tell you even weeping, that they are the enemies of the cross of Christ: Whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things."
-> 
-> Philippians 3:18-19.
+> "For many walk, of whom I have told you often, and now tell you even weeping, that they are the enemies of the cross of Christ: Whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things."  
+> Philippians 3:18-19.  
 
 PAUL was the very model of what a Christian minister should be. He was a watchful shepherd over the flock; he did not simply preach to them, and consider that he had done all his duty when he had delivered his message; but his eyes were always upon the Churches, marking their spiritual welfare, their growth in grace, or their declension in godliness. He was the unsleeping guardian of their spiritual welfare. When he was called away to other lands to proclaim the everlasting gospel, he seems always to have kept an eye upon those Christian colonies which he had founded in the midst of heathen darkness. While lighting up other lamps with the torch of truth, he did not fail to trim the lamps already burning. Here you observe he was not indifferent to the character of the little church at Philippi, for he speaks to them and warns them.
 
@@ -28,9 +27,8 @@ It is an easy thing to palm yourself off for a godly man now-a-days. There is li
 
 You see, then, in the Apostle's days there were some who were a disgrace to godliness, and the Apostle wept over them because he knew their guilt. Why, it is guilt enough for a man to make a God of his belly without being a professor; but how much worse for a man who knows better, who even sets up to teach other people better, still to go on and sin against God and against his conscience, by making a solemn profession, which is found in his case to be a lie. Oh! how dreadful is such a man's guilt! For him to stand up and say,
 
-> "Tis done; the great transaction's done.
-> 
-> I am the Lord's, and he is mine,"
+> "Tis done; the great transaction's done.  
+> I am the Lord's, and he is mine,"  
 
 and yet to go and sin like others; to use the same conversation, to practise the same chicanery, to walk in as ungodly a manner as those who have never named the name of Christ--ah! what guilt is here! It is enough to make us weep if we have been guilty ourselves; ay, to weep tears of blood that we should so have sinned against God.
 
@@ -64,6 +62,5 @@ I will doubt for you. If you had not doubt yourself, I begin to doubt. If you ar
 
 You are on board ship, and you laugh at the life-boat, because there is no storm; you will be glad enough to leap into it if you are able when the storm shall come. Now you say Christ is nothing, because you do not want him, but when the storm of vengeance comes, and death lays hold upon you, mark me, you will howl after Christ, though you will not pray for him now; you will shriek after him then, though you will not call for him now. "Turn ye, turn ye; why will ye die, O house of Israel." The Lord bring you to himself, and make you his true and genuine children, that you may not know destruction, but that you may be saved now, and saved for ever!
 
-> *The tongue of the wicked has assailed Mr. SPURGEON with the most virulent abuse and lying detraction. His sentiments have been misrepresented, and his words perverted. His doctrines have been impugned as "blasphemous," "profane," and "diabolical." Nevertheless, the good hand of the Lord has been upon him, and he has not heeded the falsehoods of the ungodly.*
-> 
-> PASSMORE & ALABASTER, Publishers, 18, Paternoster Row.
+> *The tongue of the wicked has assailed Mr. SPURGEON with the most virulent abuse and lying detraction. His sentiments have been misrepresented, and his words perverted. His doctrines have been impugned as "blasphemous," "profane," and "diabolical." Nevertheless, the good hand of the Lord has been upon him, and he has not heeded the falsehoods of the ungodly.*  
+> PASSMORE & ALABASTER, Publishers, 18, Paternoster Row.  

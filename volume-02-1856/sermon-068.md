@@ -2,9 +2,8 @@
 
 Sermon No. 68 - Delivered on Sabbath Morning, February 24, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white; for they are worthy."
-> 
-> Revelation 3:4.
+> "Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white; for they are worthy."  
+> Revelation 3:4.  
 
 MY LEARNED and eminently pious predecessor, Dr. Gill, is of opinion that the different churches spoken of in the Book of Revelation are types of different states through which the church of God shall pass until it comes into the Philadelphia state, the state of love, in which Jesus Christ shall reign in its midst, and afterwards, as he thinks, shall pass into the state of Laodicea, in which condition it shall be when suddenly the Son of Man shall come to judge the world in righteousness and the people in equity. I do not go with him in all his suppositions with regard to these seven churches as following each other in seven periods of time; but I do think he was correct when he declared that the church in Sardis was a most fitting emblem of the church in his days, as also in these. The good old doctor says, "When we shall find any period in which the church was more like the state of Sardis as described here, than it is now?" And he points out the different particulars in which the church of his day (and I am sure it is yet more true of the church at the present day) was exactly like the church in Sardis. I shall use the church in Sardis as a figure of what I conceive to be the sad condition of Christendom at the present moment. My first point will be general defilement--there were but "a few names" in Sardis who had not "defiled their garments;" secondly, special preservation--there were a few who had not defiled their garments; and thirdly, a peculiar reward--"And they shall walk with me in white; for they are worthy."
 
@@ -34,13 +33,10 @@ Another city has but a few defenders: see how that champion rushes first to that
 
 This brings us to the third point, which is a PECULIAR REWARD. "They shall walk in white, for they are worthy." The attentive reader will observe, that in quoting the passage just now, I left out two of the sweetest words in the passage. It reads: "They shall walk with me in white, for they are worthy." That is the very pith of the honor; if the rest of it be gold this is the jewel. "They shall walk with me in white." That is to say, communion with Christ on earth shall be the special reward of those who have not defiled their garments. Now, I must say a very hard thing again, but it is a true one. Go into what company you please, do you meet with many men who hold communion with Christ? Though they may be godly men, upright men, ask them if they hold communion with Christ, and will they understand you? If you give them some of those sweetly spiritual books, that those who hold fellowship love to read, they will say they are mystical, and they do not love them. Ask them whether they can spend an hour in meditation upon Christ, whether they ever rise to heaven and lay their head on the breast of the Saviour, whether they ever know what it is to enter into rest and get into Canaan; whether they understand how he has raised us up together and made us sit together in heavenly places in Christ Jesus; whether they can often say,
 
-> "Abundant sweetness while I sing
-> 
-> Thy love, my ravish'd heart o'erflows;
-> 
-> Secure in thee my God and King
-> 
-> Of glory that no period knows."
+> "Abundant sweetness while I sing  
+> Thy love, my ravish'd heart o'erflows;  
+> Secure in thee my God and King  
+> Of glory that no period knows."  
 
 Ask them that, and they will say, "We don't comprehend you." Now, the reason of it is in the first part of my sermon--they have defiled their garments, and therefore Christ will not walk with them. He says, "Those that have not defiled their garments shall walk with me." Those who hold fast the truth, who take care to be free from the prevailing sins of the times, "These," he says, "shall walk with me; they shall be in constant fellowship with me; I will let them see that I am bone of their bone, and flesh of their flesh: I will bring them into the banqueting-house; my banner over them shall be love; they shall drink wine on the lees well refined; they shall have the secrets of the Lord revealed unto them, because they are the people who truly fear me: they shall walk with me in white." Oh, Christian! if thou wouldst have communion with Christ, the special way to win it is by not defiling thy garments, as the church has done.
 
@@ -48,9 +44,8 @@ But we must dwell on the rest of the passage. "They shall walk with me in white,
 
 But chiefly we should understand this to refer to justification. "They shall walk in white;" that is, they shall enjoy a constant sense of their own justification by faith; they shall understand that the righteousness of Christ is imputed to them, that they have
 
-> "A matchless robe which far exceeds
-> 
-> What earthly princes wear;"
+> "A matchless robe which far exceeds  
+> What earthly princes wear;"  
 
 that they have been washed and make whiter than snow, and purified and made more cleanly than wool.
 

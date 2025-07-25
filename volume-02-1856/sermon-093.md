@@ -2,9 +2,8 @@
 
 Sermon No. 93 - Delivered on Sabbath Morning, August 3rd, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "I will be their God."
-> 
-> Jeremiah 31:33.
+> "I will be their God."  
+> Jeremiah 31:33.  
 
 WHAT A glorious covenant the second covenant is! Well might it be called "a better covenant, which was established upon better promises." Heb. viii. 6. It is so glorious that the very thought of it is enough to overwhelm the soul, when it discerns the amazing condescension and infinite love of God, in having framed a covenant for such unworthy creatures, for such glorious purposes, with such disinterested motives. It is better than the other covenant, the covenant of works, which was made with Adam; or that covenant which is said to have been made with Israel, on the day when they came out of Egypt. It is better, for it is founded upon a better principle. The old covenant was founded on the principle of merit; it was, "Serve God and thou shalt be rewarded for it; if thou walkest perfectly in the fear of the Lord, God will walk well towards thee, and all the blessings of Mount Gerizim shall come upon thee, and thou shalt be exceedingly blessed in this world, and the world which is to come." But that covenant fell to the ground, because, although it was just that man should be rewarded for his good works, or punished for his evil ones, yet man being sure to sin, and since the fall infallibly tending towards iniquity, the covenant was not suitable for his happiness, nor could it promote his eternal welfare. But the new covenant, is not founded on works at all, it is a covenant of pure unmingled grace; you may read it from its first word to its last, and there is not a solitary syllable as to anything to be done by us. The whole covenant is a covenant, not so much between man and his Maker as between Jehovah and man's representative, the Lord Jesus Christ. The human side of the covenant has been already fulfilled by Jesus, and there remains nothing now but the covenant of giving, not the covenant of requirements. The whole covenant with regard to us, the people of God, now stands thus: "I will give this, I will bestow that; I will fulfill this promise; I will grant that favour." 
 
@@ -18,13 +17,10 @@ And now we shall begin with this subject in this way. We shall show you first th
 
 Stop just one moment and think it over before we start. In the covenant of grace God himself conveys himself to you and becomes yours. Understand it: God--all that is meant by that word--eternity, infinity, omnipotence, omniscience, perfect justice, infallible rectitude, immutable love--all that is meant by God--Creator, Guardian, Preserver, Governor, Judge,--all that that great word "GOD" can mean, all of goodness and of love, all of bounty and of grace--all that, this covenant gives you, to be your absolute property as much as anything you can call your own. "I will be their God." We say, pause over that thought. If I should not preach at all, there is enough in that, if opened up and applied by the all-glorious Spirit, to excite your you during the whole of the Sabbath-day. "I will be their God."
 
-> "My God!--how cheerful is the sound!
-> 
-> How pleasant to repeat!
-> 
-> Well may that heart with pleasure bound,
-> 
-> Where God hath fixed his seat."
+> "My God!--how cheerful is the sound!  
+> How pleasant to repeat!  
+> Well may that heart with pleasure bound,  
+> Where God hath fixed his seat."  
 
 How is GOD ESPECIALLY THE GOD OF HIS OWN CHILDREN? For God is the God of all men, of all creatures; he is the God of the worm, of the flying eagle, of the star, and of the cloud; he is God everywhere. How then is he more my God and your God than he is God of all created things? We answer, that in some things God is the God of all his creatures; but even there, there is a special relationship existing between himself and his chosen creatures, whom he has loved with an everlasting love. And in the next place, there are certain relationships in which God does not exist towards the rest of his creatures, but only towards his own children.
 
@@ -46,13 +42,10 @@ Live in the courts of the great King; behold his face, wait at his throne, bear 
 
 Now, for a moment, let us consider THE EXCEEDING PRECIOUSNESS OF THIS GREAT MERCY, "I will be their God." I conceive that God, himself, could say no more than that. I do not think if the Infinite were to stretch his powers, and magnify his grace by some stupendous promise which could outdo every other, I do not believe that it could exceed in glory this promise, "I will be their God." Oh! Christian, do but consider what it is to have God to be thine own; consider what it is, compared with anything else.
 
-> "Jacob's portion is the Lord;
-> 
-> What can Jacob more require?
-> 
-> What can heaven more afford--
-> 
-> Or a creature more desire?"
+> "Jacob's portion is the Lord;  
+> What can Jacob more require?  
+> What can heaven more afford--  
+> Or a creature more desire?"  
 
 Compare this portion with the lot of thy fellow-men! Some of them have their portion in the field, they are rich and increased in goods, and their yellow harvests are even now ripening in the sun; but what are harvests compared with thy God, the God of harvests? Or, what are granaries compared with him who is thy husbandman, and feeds thee with the bread of heaven? Some have their portion in the city; their wealth is superabundant, and in constant streams it flows to them, until they become a very reservoir of gold; but what is gold compared with thy God? Thou couldst not live on it; thy spiritual life could not be sustained by it. Apply it to thy aching head, and would it afford thee any ease? Put it on a troubled conscience, and could thy gold allay its pangs? Put it on thy desponding heart, and see if it could stay a solitary groan, or give thee one grief the less? But thou hast God, and in Him thou hast more than gold or riches e'er could buy, more than heaps of brilliant ore could ever purchase thee. Some have their portion in this world, in that which most men love, applause and fame; but ask thyself, is not thy God more to thee than that? What, if a thousand trumpets should blow thy praise, and if a myriad clarions should be loud with thine applause; what would it all be to thee if thou hadst lost thy God? Would this allay the turmoils of a soul ill at ease with itself? Would this prepare thee to pass the Jordan, and to breast those stormy waves which ere long must be forded by every man, when he is called from this world to lands unknown? Would a puff of wind serve thee then, or the clapping of the hands of thy fellow-creatures bless thee on thy dying bed? No, there are griefs here with which men cannot intermeddle, and there are griefs to come with which men cannot interfere to alleviate the pangs, and pains, and agonies, and dying strife. 
 
@@ -72,27 +65,19 @@ Now, lastly, I said we would conclude, by URGING YOU TO MAKE USE OF GOD, if he b
 
 Since he allows thee, having such a friend, use him daily. My God shall supply all your wants: never want whilst thou hast a God, never fear or faint whilst thou hast a God; go to thy treasure and take whatever thou needest; there is bread, and clothes, and health, and life, and all that thou needest. O Christian, learn the divine skill to make God all things, to make bread of thy God, and water, and health, and friends, and ease; he can supply thee with all these; or what is better, he can be instead of all these, thy food, thy clothing, thy friend, thy life of thee. All this he hath said to thee in this one word, I am thy God; and hereupon thou mayest say, as a heaven-born saint once did, "I have no husband, and yet I am no widow, my Maker is my husband. I have no father or friend, and yet I am neither fatherless nor friendless; my God is both my father and my friend. I have no child, but is not he better to me than ten children? I have no house, but yet I have a home, I have made the Most High my habitation. I am left alone, but yet I am not alone, my God is good company for me; with him I can walk, with him I can take sweet counsel, find sweet repose; at my lying down, at my rising up, whilst I am in the house, or as I walk by the way, my God is ever with me; with him I ravel, I dwell, I lodge, I live, and shall live for ever." Oh! child of God, let me urge thee to make use of thy God. Make use of him in prayer; I beseech thee, go to him often, because he is thy God. If he were another man's God, thou mightest weary him; but he is thy God. If he were my God and not thine, thou wouldst have no right to approach him, but he is thy God; he has made himself over to thee, if we may use such an expression, (and we think we may) he has become the positive property of all his children, so that all he has, and all he is, is theirs. O child, wilt thou let thy treasury lie idle, when thou wantest it? No; go and draw from it by prayer.
 
-> "To him in every trouble flee,
-> 
-> Thy best, thy only friend."
+> "To him in every trouble flee,  
+> Thy best, thy only friend."  
 
 Fly to him, tell him all thy wants. Use him constantly by faith, at all times. Oh! I beseech thee, if some dark providence has come over thee, use thy God as a sun, for he is a sun. If some strong enemy has come out against thee, use thy God for a shield, for he is a shield to protect thee. If thou hast lost thy way in the mazes of life, use him as a guide, for the great Jehovah will direct thee. If thou art in storms, use him for the God who stilleth the raging of the sea, and saith unto the waves, "Be still." If thou art a poor thing, knowing not which way to turn, use him for a shepherd, for the Lord is thy Shepherd, and thou shalt not want. Whate'er thou art, where'er thou art, remember God is just what thou wantest, and he is just where thou wantest. I beseech thee, then, make use of thy God; do not forget him in thy trouble, but flee to him in the midst of thy distresses, and cry,
 
-> "When all created streams are dried,
-> 
-> Thy fulness is the same;
-> 
-> May I with this be satisfied,
-> 
-> And glory in thy name!
-> 
-> No good in creatures can be found
-> 
-> But may be found in thee;
-> 
-> I must have all things and abound,
-> 
-> While God is God to me."
+> "When all created streams are dried,  
+> Thy fulness is the same;  
+> May I with this be satisfied,  
+> And glory in thy name!  
+> No good in creatures can be found  
+> But may be found in thee;  
+> I must have all things and abound,  
+> While God is God to me."  
 
 Lastly, Christian, let me urge thee again to use God to be thy delight this day. If thou hast trial, or if thou art free from it, I beseech thee make God thy delight; go from this house of prayer and be happy this day in the Lord. Remember it is a commandment, "Rejoice in the Lord, always, and again I say, rejoice." Do not be content to be moderately happy; seek to soar to the heights of bliss and to enjoy a heaven below; get near to God, and you will get near to heaven. It is not as it is with the sun here, the higher you go the colder you find it, because on the mountain there is nothing to reflect the rays of the sun; but with God, the nearer you go to him the brighter he will shine upon you, and when there are no other creatures to reflect his goodness, his light will be all the brighter. Go to God continually, importunately, confidently; "delight thyself also in the Lord and he shall bring it to pass;" "commit thy way unto the Lord, and he shall "guide thee by his counsel, and afterwards receive thee to glory."
 

@@ -2,19 +2,15 @@
 
 Sermon No. 104 - Delivered on Sabbath Morning, November 23, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us."
-> 
-> Romans 5:8.
+> "But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us."  
+> Romans 5:8.  
 
 I shall have nothing new to tell you; it will be as old as the everlasting hills, and so simple that a child may understand it. Love's commendation. "God commendeth his love toward us, in that, while we were yet sinners, Christ died for us." God's commendation of himself and of his love is not in words, but in deeds. When the Almighty God would commend his love to poor man, it is not written, "God commendeth his love towards us in an eloquent oration"; it is not written that he commendeth his love by winning professions; but he commendeth his love toward us by an act, by a deed; a surprising deed, the unutterable grace of which eternity itself shall scarce discover. He "commendeth his love toward us, in that, while we were yet sinners, Christ died for us." Let us learn, then upon the threshold of our text, that if we would commend ourselves it must be by deeds, and not by words. Men may talk fairly, and think that thus they shall win esteem; they may order their words aright, and think that so they shall command respect; but let them remember, it is not the wordy oratory of the tongue, but the more powerful eloquence of the hand which wins the affection of "the world's great heart." If thou wouldst commend thyself to thy fellows, go and do--not go and say; if thou wouldst win honour from the excellent, talk not, but act; and if before God thou wouldst show that thy faith is sincere, and thy love to him real: remember, it is no fawning words, uttered either in prayer or praise, but it is the pious deed, the holy act, which is the justification of thy faith, and the proof that it is the faith of God's elect. Doing, not saying--acting, not talking--these are the things which commend a man.
 
-> "No big words of ready talkers,
-> 
-> No fine boastings will suffice;
-> 
-> Broken hearts and humble walkers,
-> 
-> These are dear in Jesus' eyes."
+> "No big words of ready talkers,  
+> No fine boastings will suffice;  
+> Broken hearts and humble walkers,  
+> These are dear in Jesus' eyes."  
 
 Let us imitate God, then, in this. If we would commend our religion to mankind, we cannot do it by mere formalities, but by gracious acts of integrity, charity and forgiveness, which are the proper discoveries of grace within. "Let your light so shine before men that they may see your good works, and glorify your Father which is in heaven." "Let your conversation be such as becometh the gospel of Christ;" and so shall you honour him, and "adorn the doctrine" which you profess.
 
@@ -34,21 +30,16 @@ Come, dear hearers, for a moment weigh those words. "Christ died for us!" Oh, ho
 
 Consider the circumstances which attended his death. It was no common death he died; it was a death of ignominy, for he was put to death by a legal slaughter; it was a death of unutterable pain, for he was crucified; and what more painful fate than to die nailed to a cross? It was a long protracted death, for he hung for hours, with only his hands and his feet pierced--parts which are far away from the seat of life, but in which are situated the most tender nerves, full of sensibility. He suffered a death which for its circumstances still remain unparalleled. It was no speedy blow which crushed the life out of the body, and ended it; but it was a lingering, long, and doleful death, attended with no comforts and no sympathy, but surrounded with scorn and contempt. Picture him! They have hurled him on his back; they have driven nails through his hands and his feet; they have lifted him up. See! They have dashed the cross into its place. It is fixed. And now behold him! Mark his eyes, all full of tears; behold his head, hanging on his breast. Ah! mark him, he seems all silently to say, "I am poured out like water; all my bones are out of joint; I am brought into the dust of death." Hear him, when he groans, "I thirst." Above all, listen to him, whilst he cries, "Eloi, Eloi, lama sabachthani?" My words cannot picture him; my thoughts fail to express it. No painter ever accomplished it, nor shall any speaker be able to perform it. Yet I beseech you regard the Royal Sufferer. See him, with the eye of your faith, hanging on the bloody tree. Hear him cry, before he dies, "It is finished!"
 
-> "See from his head, his hands, his feet,
-> 
-> Sorrow and love flow mingled down!
-> 
-> Did e'er such love and sorrow meet,
-> 
-> Or thorns compose so rich a crown?"
+> "See from his head, his hands, his feet,  
+> Sorrow and love flow mingled down!  
+> Did e'er such love and sorrow meet,  
+> Or thorns compose so rich a crown?"  
 
 Oh! how i wish I could stir you! If I should tell you some silly story of a love-sick maid, ye would weep; if I should turn novelist, and give you some sad account of a fabled hero who had died in pain--if it were a fiction, I should have your hearts; but this is a dread and solemn reality, and one with which you are intimately connected, for all this was done for as many of you as sincerely repent of your sins.
 
-> "All ye that pass by,
-> 
-> to Jesus draw nigh:
-> 
-> To you is it nothing that Jesus should die?"
+> "All ye that pass by,  
+> to Jesus draw nigh:  
+> To you is it nothing that Jesus should die?"  
 
 Bethink you, that if you are saved, it is something to you, for the blood which trickles from his hands, distils for you. That frame which writhes in torture writhes for you; those knees, so weak with pain, are weak for you; those eyes, dripping with showers of tears, do drop for you. Ah! think of him, then, ye who have faith in him; look to him, and as many of you as have not yet believed, I will pray for you, that ye may now behold him as the expiation of your guilt; as the key which opens heaven to all believers.
 
@@ -76,9 +67,8 @@ Ah! thou wilt want him then. And what wilt thou do when thou hast passed that bl
 
 Sirs! Do ye believe there is a hell, and that you are going there? And yet do you still march heedless on? Do you believe that beyond you, when the stream of life is ended, there is a black gulf of misery? and do you still sail downwards to it, quaffing still your glass of happiness, still merry as the live-long day? O stay, poor sinner, stay! Stay! It may be the last moment thou wilt ever have the opportunity to stay in. Therefore stay now I beseech thee. And if thou knowest thyself to be lost and ruined, if the Holy Spirit has humbled thee and made thee feel thy sin, let me tell thee how thou shalt be saved. "He that believeth on the Lord Jesus Christ and is baptized, shall be saved. "He that believeth not," saith the Scripture "shall be damned." Do you not like that message? Ought I to have said another word instead of that? If you wish it, I shall not; what God says I will say; far be it from me to alter the messages from the Most High; I will, if he help me, declare his truth without altering. He saith "He that believeth and is baptized shall be saved; he that believeth not shall be damned." What is it to believe? To tell you as simply as possible: to believe is to give up trusting in yourself and to trust in Jesus Christ as your Saviour. The negro said, you know, "Massa dis here is how I believe--when I see a promise, I do not stand on de promise; but I say, dat promise firm and strong; I fall flat on it; if de promise will not bear me, den it is de promise fault; but I fall flat on it." Now, that is faith. Christ says, "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." Faith is to say, "Well, then, sink or swim, that is my only hope; lost or saved, that is my only refuge. I am resolved, for this my last defence,
 
-> 'If I perish there and die,
-> 
-> At his cross I still will lie'."
+> 'If I perish there and die,  
+> At his cross I still will lie'."  
 
 "What!" says one, "no good works?" Good works will come afterwards, but they do not go with it. You must come to Christ, not with your good works, but with your sins; and coming with your sins, he will take them away, and give you good works afterwards. After you believe, there will be good works as the effect of your faith; but if you think faith will be the effect of good works, you are mistaken. It is "believe and live." Cowper calls them the soul-quickening words, "believe and live." This is the sum and substance of the gospel.
 
@@ -86,20 +76,13 @@ Now, do any of you say this is not the gospel? I shall ask you one day what it i
 
 But again you say, "How can I believe that Christ died for me?" Why, thus,--He says he died for sinners: canst thou say thou art a sinner? I do not mean with that fine complimentary phrase which many of you use, when you say, "Yes, I am a sinner;" and if I sit down to ask you, "Did you break that commandment?" "Oh, no," you will say: "Did you commit that offence?" "Oh, no;" you never did anything wrong. And yet you are sinners. Now that is the sort of sinners I do not think I shall preach to. The sort of sinners I would call to repentance are those whom Christ invited--those who know that they have been guilty, vile, and lost. If thou knowest thy sinnership, so truly Christ died for thee. Remember that striking saying of Luther. Luther says, Satan once came to him and said, "Martin Luther, thou art lost, for thou art a sinner." Said I to him, "Satan, I thank thee for saying I am a sinner, for inasmuch as thou sayest I am a sinner, I answer thee thus--Christ died for sinners; and if Martin Luther is a sinner, Christ died for him." Now, canst thou lay hold on that, my hearer? It is not on my authority, but on God's authority. Go away and rejoice; for if thou be the chief of sinners thou shalt be saved, if thou believest.
 
-> "Jesus, thy blood and righteousness
-> 
-> My beauty are, my glorious dress;
-> 
-> 'Midst flaming worlds in these arrayed,
-> 
-> With joy shall I lift up my head.
-> 
-> Bold shall I stand in that great day.
-> 
-> For who aught to my charge shall lay?
-> 
-> While, thro' thy blood, absolv'd I am
-> 
-> From sin's tremendous curse and shame."
+> "Jesus, thy blood and righteousness  
+> My beauty are, my glorious dress;  
+> 'Midst flaming worlds in these arrayed,  
+> With joy shall I lift up my head.  
+> Bold shall I stand in that great day.  
+> For who aught to my charge shall lay?  
+> While, thro' thy blood, absolv'd I am  
+> From sin's tremendous curse and shame."  
 
 Sing that, poor soul, and thou hast begun to sing the song of Paradise. May the Lord, the Holy Spirit, apply these simple statements of truth to the salvation of your souls.

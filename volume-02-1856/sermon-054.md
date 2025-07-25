@@ -2,9 +2,8 @@
 
 Sermon No. 54 - Delivered on Sabbath Evening, December 2, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For even Christ our passover is sacrificed for us."
-> 
-> 1 Corinthians 5:7.
+> "For even Christ our passover is sacrificed for us."  
+> 1 Corinthians 5:7.  
 
 THE more you read the Bible, and the more you meditate upon it, the more you will be astonished with it. He who is but a casual reader of the Bible, does not know the height, the depth, the length and breadth of the mighty meanings contained in its pages. There are certain times when I discover a new vein of thought, and I put my hand to my head and say in astonishment, "Oh, it is wonderful I never saw this before in the Scriptures." You will find the Scriptures enlarge as you enter them; the more you study them the less you will appear to know of them, for they widen out as we approach them. Especially will you find this the case with the typical parts of God's Word. Most of the historical books were intended to be types either of dispensations, or experiences, or offices of Jesus Christ. Study the Bible with this as a key, and you will not blame Herbert when he calls it "not only the book of God, but the God of books." One of the most interesting points of the Scriptures is their constant tendency to display Christ; and perhaps one of the most beautiful figures under which Jesus Christ is ever exhibited in sacred writ, is the Passover Paschal Lamb. It is Christ of whom we are about to speak to-night.
 
@@ -16,7 +15,7 @@ First, then, JESUS CHRIST IS TYPIFIED HERE UNDER THE PASCHAL LAMB; and should th
 
 We commence, first of all, with the victim--the lamb. How fine a picture of Christ. No other creature could so well have typified him who was holy, harmless, undefiled, and separate from sinners. Being also the emblem of sacrifice, it most sweetly pourtrayed our Lord and Saviour Jesus Christ. Search natural history through, and though you will find other emblems which set forth different characteristics of his nature, and admirably display him to our souls, yet there is none which seems so appropriate to the person of our beloved Lord as that of the Lamb. A child would at once perceive the likeness between a lamb and Jesus Christ, so gentle and innocent, so mild and harmless, neither hurting others, nor seeming to have the power to resent an injury.
 
-> "A humble man before his foes, a weary man and full of woes."
+> "A humble man before his foes, a weary man and full of woes."  
 
 What tortures the sheepish race have received from us! how are they, though innocent, continually slaughtered for our food! Their skin is dragged from their backs, their wool is shorn to give us a garment. And so the Lord Jesus Christ, our glorious Master, doth give us his garments that we may be clothed with them; he is rent in sunder for us; his very blood is poured out for our sins; harmless and holy, a glorious sacrifice for the sins of all his children. Thus the Paschal Lamb might well convey to the pious Hebrew the person of a suffering, silent, patient, harmless Messiah.
 
@@ -46,17 +45,14 @@ The father of the Hebrew house takes his lamb, and examining it once more with a
 
 Do you see them with their hats on their heads, with their loins girt, and their staves in their hands? It is the dead of the night. Suddenly they hear a shriek! The father says, "Keep within doors, my children; you will know what it is in a moment." Now another shriek--another shriek--shriek succeeds shriek: they hear perpetual wailing and lamentation. "Remain within," says he, "the angel of death is flying abroad." A solemn silence is in the room, and they can almost hear the wings of the angel flap in the air as he passes their blood-marked door. "Be calm," says the sire, "that blood will save you." The shrieking increases. "Eat quickly, my children," he says again, and in a moment the Egyptians coming, say, "Get thee hence! Get thee hence! We are not for the jewels that you have borrowed. You have brought death into our houses." "Oh!" says a mother, "Go! for God's sake! go. My eldest son lies dead!" "Go!" says a father, "Go! and peace go with you. It were an ill day when your people came into Egypt, and our king began to slay your first-born, for God is punishing us for our cruelty." Ah! see them leaving the land; the shrieks are still heard; the people are busy about their dead. As they go out, a son of Pharoah is taken away unembalmed, to be buried in one of the pyramids. Presently they see one of their task-master's sons taken away. A happy night for them--when they escape! And do you see, my hearers, a glorious parallel? They had to sprinkle the blood, and also to eat the lamb. Ah! my soul, hast thou e'er had the blood sprinkled on thee? Canst thou say that Jesus Christ is thine? It is not enough to say "he loved the world, and gave his Son," you must say, "He loved me,, and gave himself for me." There is another hour coming, dear friends, when we shall all stand before God's bar; and then God will say, "Angel of death, thou once didst smite Egypt's first born; thou knowest thy prey. Unsheath thy sword." I behold the great gathering, you and I are standing amongst them. It is a solemn moment. All men stand in suspense. There is neither hum nor murmur. The very stars cease to shine lest the light should disturb the air by its motion. All is still. God says, "Has thou sealed those that are mine?" "I have," says Gabriel; "they are sealed by blood every one of them." Then saith he next, "Sweep with thy sword of slaughter! Sweep the Earth! and send the unclothed, the unpurchased, the unwashed ones to the pit." Oh! how shall we feel beloved, when for a moment we see that angel flap his wings? He is just about to fly, "But," will the doubt cross our minds "perhaps he will come to me?" Oh! no; we shall stand and look the angel full in his face.
 
-> "Bold shall I stand in that great day!
-> 
-> For who aught to my charge shall lay?
-> 
-> While through thy blood absolved
-> 
-> I am From sin's tremendous curse and shame."
+> "Bold shall I stand in that great day!  
+> For who aught to my charge shall lay?  
+> While through thy blood absolved  
+> I am From sin's tremendous curse and shame."  
 
 If we have the blood on us, we shall see the angel coming, we shall smile at him; we shall dare to come even to God's face and say,
 
-> "Great God! I'm clean! Through Jesus' blood, I'm clean!"
+> "Great God! I'm clean! Through Jesus' blood, I'm clean!"  
 
 But if, my hearer, thine unwashen spirit shall stand unshriven before its maker, if thy guilty soul shall appear with all its black spots upon it, unsprinkled with the purple tide, how wilt thou speak when thou seest flash from the scabbard the angel's sword swift for death, and winged for destruction, and when it shall cleave thee asunder? Methinks I see thee standing now. The angel is sweeping away a thousand there. There is one of thy pot companions. There one with whom thou didst dance and swear. There another, who after attending the same chapel like thee, was a despiser of religion. Now death comes nearer to thee. Just as when the reaper sweeps the field and the next ear trembles because its turn shall come next, I see a brother and a sister swept into the pit. Have I no blood upon me? Then, O rocks! it were kind of you to hide me. Ye have no benevolence in your arms. Mountains! let me find in your caverns some little shelter. But it is all in vain, for vengeance shall cleave the mountains and split the rocks open to find me out. Have I no blood? Have I no hope? Ah! no! he smites me. Eternal damnation is my horrible portion. The depth of the darkness of Egypt for thee, and the horrible torments of the pit from which none can escape! Ah! my dear hearers, could I preach as I could wish, could I speak to you without my lips and with my heart, then would I bid you seek that sprinkled blood, and urge you by the love of your own soul, by everything that is sacred and eternal, to labour to get this blood of Jesus sprinkled on your souls. It is the blood sprinkled that saves a sinner.
 

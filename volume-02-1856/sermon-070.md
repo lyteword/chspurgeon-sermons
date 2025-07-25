@@ -2,9 +2,8 @@
 
 Sermon No. 70 - Delivered on Sabbath Morning, March 16, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Zealous of good works."
-> 
-> Titus 2:14.
+> "Zealous of good works."  
+> Titus 2:14.  
 
 WE SHALL not be afraid of leading any of you into a legal spirit this morning through what we shall say, for after our frequent exhortations to avoid anything like trusting in your works, attended as they have been, we trust, by the Holy Spirit, we are not afraid that you will so misunderstand us, as to suppose that when we speak of good works, to-day, we shall in any way whatsoever wish you to imagine that they can promote your eternal salvation. We laboured when here the Sabbath morning before last, to let you know the difference between the two covenants, the covenant of grace and the covenant of works; we shall beg you to remember what we then said, and if by any slips of the tongue we should say anything that should look like legality, we beg you will put the two together, and wherein we shall err from the great truth of justification by faith, to reject our testimony.
 
@@ -34,9 +33,8 @@ I am rather fond of being called an Antinomian, for this reason, that the term g
 
 Well, we do love good works. Do you ask, of what use are they? I reply, first: Good works are useful as evidences of grace. The Antinomian says,--But I do not require evidences; I can live without them. This is unreasonable. Do you see yonder clock? That is the evidence of the time of day. The hour would be precisely the same if we had not that evidence. Still, we find the clock of great use. So we say, good works are the best evidence of spiritual life in the soul. Is it not written, "We know that we have passed from death unto life, because we love the brethren?" Loving the brethren is a good work. Again, "If any man abide in me, he shall bring forth fruit." Fruits of righteousness are good works, and they are evidence that we abide in Christ. If I am living in sin day by day, what right have I to conclude I am a child of God? A man comes to this chapel, and while he hears the gospel, he exclaims, "What delicious truth! what heavenly doctrine!" Yet when he leaves the place, you may see him enter one public-house for another, and get intoxicated. Has this man any right to think himself an heir of heaven? The man who comes to God's house, and drinks "wine on the lees, well refined," and then goes away and drinks the cup and enjoys the company of the ungodly, gives no evidence that he is a partaker of divine grace. He says, "I do not like good works." Of course he does not. "I know I shall not be saved by good works." Of this we are certain, for he has none to be saved by. Many are ready enough to say,
 
-> "Nothing in my hands I bring,
-> 
-> Simply to the cross I cling;"
+> "Nothing in my hands I bring,  
+> Simply to the cross I cling;"  
 
 who believe they are children of God, because, though they have no good works as evidence, they think they have faith. Ah, sir! you have faith, and there is another gentleman quite as respectable as you are, who has faith; I shall not tell you his name this morning, but he is better than you are, for it is said, "He believes and trembles," while you sit unmoved by the most powerful appeals. Yes you who think you are children of God while you live in sin, you are in the most dreadful error. There is no delusion, if you except the delusion of the Pharisee, which is more dreadful than the delusion of a man, who thinks that sin and grace can reign together. The Christian has sins of heart, over which he groans and laments, but as regards his outward life, he is kept, so that the evil one touches him not; the Lord keeps him under the shadow of his wing; he doth not, except in some falls, allow him to turn out of the way. Works are the evidence of our faith; by faith our souls are justified before God; by works our faith is justified before ourselves and fellow-men.
 

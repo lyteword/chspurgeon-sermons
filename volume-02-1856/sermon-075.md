@@ -2,9 +2,8 @@
 
 Sermon No. 75 - Delivered on Sabbath Morning, March 23, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For it is impossible for those who were once enlightened, and have tasted of the heavenly gift, and were made partakers of the Holy Ghost, And have tasted the good word of God, and the powers of the world to come, If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame."
-> 
-> Hebrews 6:4-6.
+> "For it is impossible for those who were once enlightened, and have tasted of the heavenly gift, and were made partakers of the Holy Ghost, And have tasted the good word of God, and the powers of the world to come, If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame."  
+> Hebrews 6:4-6.  
 
 THERE are some spots in Europe which have been the scenes of frequent warfare, as for instance, the kingdom of Belgium, which might be called the battle field of Europe. War has raged over the whole of Europe, but in some unhappy spots, battle after battle has been fought. So there is scarce a passage of Scripture which has not been disputed between the enemies of truth and the upholders of it; but this passage, with one or two others, has been the special subject of attack. This is one of the texts which have been trodden under the feet of controversy; and there are opinions upon it as adverse as the poles, some asserting that it means one thing, and some declaring that it means another. We think that some of them approach somewhat near the truth; but others of them desperately err from the mind of the Spirit. We come to this passage ourselves with the intention to read it with the simplicity of a child, and whatever we find therein to state it; and if it may not seem to agree with something we have hitherto held, we are prepared to cast away every doctrine of our own, rather than one passage of Scripture.
 
@@ -40,9 +39,8 @@ But if a child of God could fall away, and grace could cease in a man's heart--n
 
 Mark you, if you come to me and tell me that you have fallen away, how would you like me to say to you, "My friend, you are as much damned as the devil in hell! for it is impossible to renew you to repentance?" "Oh! no, sir," you would say, "I will repent again and join the Church." That is just the Arminian theory all over; but it is not in God's Scripture. If you once fall away, you are as damned as any man who suffereth in the gulf for ever. And yet we have heard a man talk about people being converted three, four, and five times, and regenerated over and over again. I remember a good man (I suppose he was) pointing to a man who was walking along the street, and saying, "That man has been born again three times, to my certain knowledge." I could mention the name of the individual, but I refrain from doing so. "And I believe he will fall again," said he, "he is so much addicted to drinking, that I do not believe the grace of God will do anything for him, unless he becomes a teetotaller." Now, such men cannot read the Bible; because in case their members do positively fall away, here it is stated, as a positive fact, that it is impossible to renew them again unto repentance. But I ask my Arminian friend, does he not believe that as long as there is life there is hope? "Yes," he says:
 
-> "While the lamp holds out to burn,
-> 
-> The vilest sinner may return."
+> "While the lamp holds out to burn,  
+> The vilest sinner may return."  
 
 Well, that is not very consistent, to say this in the very next breath to that with which you tell us that there are some people who fall away, and consequently fall into such a condition, that they cannot be saved. I want to know how you make these two things fit each other; I want you to make these two doctrines agree; and until some enterprising individual will bring the north pole, and set it on the top of the south, I cannot tell how you will accomplish it. The fact is you are quite right in saying, "While there is life there is hope;" but you are wrong in saying that any individual ever did fall into such a condition, that it was impossible for him to be saved.
 
@@ -72,26 +70,18 @@ What does the child do? He says, "Father, keep me; hold thou me up, and I shall 
 
 It is to excite our gratitude. Suppose you say to your little boy, "Don't you know Tommy, if I were not to give you your dinner and your supper you would die? There is nobody else to give Tommy dinner and supper." What then? The child does not think that you are not going to give him his dinner and supper; he knows you will, and he is grateful to you for them. The chemist tells us, that if there were no oxygen mixed with the air, animals would die. Do you suppose that there will be no oxygen, and therefore we shall die? No, he only teaches you the great wisdom of God, in having mixed the gases in their proper proportions. Says one of the old astronomers, "There is great wisdom in God, that he has put the sun exactly at a right distance--not so far away that we should be frozen to death, and not so near that we should be scorched." He says, "If the sun were a million miles nearer to us we should be scorched to death." Does the man suppose that the sun will be a million miles nearer, and, therefore, we shall be scorched to death? He says, "If the sun were a million miles farther off we should be frozen to death." Does he mean that the sun will be a million miles farther off, and therefore we shall be frozen to death? Not at all. Yet it is quite a rational way of speaking, to show us how grateful we should be to God. So says the Apostle. Christian! if thou shouldst fall away, thou couldst never be renewed unto repentance. Thank thy Lord, then, that he keeps thee.
 
-> "See a stone that hangs in air; see a spark in ocean live;
-> 
-> Kept alive with death so near; I to God the glory give."
+> "See a stone that hangs in air; see a spark in ocean live;  
+> Kept alive with death so near; I to God the glory give."  
 
 There is a cup of sin which would damn thy soul, O Christian. Oh! what grace is that which holds thy arm, and will not let thee drink it? There thou art, at this hour, like the bird-catcher of St. Kilda, thou art being drawn to heaven by a single rope; if that hand which holds thee let thee go, if that rope which grasps thee do but break, thou art dashed on the rocks of damnation. Lift up thine heart to God, then, and bless him that his arm is not wearied, and is never shortened that it cannot save. Lord Kenmure, when he was dying, said to Rutherford. "Man! my name is written on Christ's hand, and I see it! that is bold talk, man, but I see it!" Then, if that be the case, his hand must be severed from his body before my name can be taken from him; and if it be engraven on his heart, his heart must be rent out before they can rend my name out.
 
 Hold on, then, and trust believer! thou hast "an anchor of the soul, both sure and steadfast, which entereth within the veil." The winds are bellowing, the tempests howling; should the cable slip, or thine anchor break, thou art lost. See those rocks, on which myriads are driving, and thou art wrecked there if grace leave thee; see those depths, in which the skeletons of sailors sleep, and thou art there, if that anchor fail thee. It would be impossible to moor thee again, if once that anchor broke; for other anchor there is none, other salvation there can be none, and if that one fail thee, it is impossible that thou ever shouldst be saved. Therefore thank God that thou hast an anchor that cannot fail, and then loudly sing--
 
-> "How can I sink with such a prop,
-> 
-> As my eternal God,
-> 
-> Who bears the earth's huge pillars up?
-> 
-> And spreads the heavens abroad?
-> 
-> How can I die, when Jesus lives,
-> 
-> Who rose and left the dead?
-> 
-> Pardon and grace my soul receives,
-> 
-> From my exalted head."
+> "How can I sink with such a prop,  
+> As my eternal God,  
+> Who bears the earth's huge pillars up?  
+> And spreads the heavens abroad?  
+> How can I die, when Jesus lives,  
+> Who rose and left the dead?  
+> Pardon and grace my soul receives,  
+> From my exalted head."  

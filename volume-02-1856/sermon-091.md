@@ -2,9 +2,8 @@
 
 Sermon No. 91 - Delivered on Sabbath Morning, July 6th, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "This man, after he had offered on sacrifice for sins for ever, sat down on the right hand of God; From henceforth expecting till his enemies be made his footstool."
-> 
-> Hebrews 10:12-13.
+> "This man, after he had offered on sacrifice for sins for ever, sat down on the right hand of God; From henceforth expecting till his enemies be made his footstool."  
+> Hebrews 10:12-13.  
 
 AT THE LORD'S table we wish to have no subject for contemplation but our blessed Lord Jesus Christ, and we have been wont generally to consider him as the crucified One, "the Man of sorrows, and acquainted with grief," while we have had before us the emblems of his broken body, and of his blood shed for many for the remission of sins; but I am not quite sure that the crucified Saviour is the only appropriate theme, although, perhaps, the most so. It is well to remember how our Saviour left us--by what road he travelled through the shadows of death; but I think it is quite as well to recollect what he is doing while he is away from us--to remember the high glories to which the crucified Saviour has attained; and it is, perhaps, as much calculated to cheer our spirits to behold him on his throne as to consider him on his cross. We have seen him one his cross, in some sense; that is to say, the eyes of men on earth did see the crucified Saviour; but we have no idea of what his glories are above; they surpass our highest thought. Yet faith can see the Saviour exalted on his throne, and surely there is no subject that can keep our expectations alive, or cheer our drooping faith better than to consider, that while our Saviour is absent, he is absent on his throne, and that when he has left his Church to sorrow for him, he has not left us comfortless--he has promised to come to us--that while he tarries he is reigning, and that while he is absent he is sitting high on his father's throne.
 
@@ -20,9 +19,8 @@ And then note again, that his sitting at the right hand of God implies, that he 
 
 But now, something else. The fact that it is said he has sat down for ever proves that he must have done it. Christ has undertaken to save all the souls of the elect. If he has not already saved them, he is bound to do something that will save them, fir he has given solemn oath and promise to his Father, that he will bring many souls unto glory, and that he will make them perfect through his own righteousness. He has promised to present our souls unblemished and complete,--
 
-> "Before the glory of his face
-> 
-> With joys divinely great."
+> "Before the glory of his face  
+> With joys divinely great."  
 
 Well, if he has not done enough to do that, then he must come again to do it; but from the fact that he is to sit there for ever, that he is to wear no more the thorny crown, that he is never again to leave his throne, to cease to be king any more, that he is still to be girded by his grandeur and his glory, and sit for ever there, is proof that he has accomplished the great work of propitiation. It is certain that he must have done all, from the fact that he is to sit there for ever, to sit on his throne throughout all ages, more visibly in the ages to come, but never to leave it, again to suffer and again to die.
 
@@ -34,9 +32,8 @@ And now, our second point--THE GLORY WHICH HE HAS ASSUMED. "After he has offered
 
 Now, by this you are to understand the complex person of Christ; for Christ, as God, always was on his Father's throne; he always was God; and even when on earth he was still in heaven. The Son of God did not cease to be omnipotent and omnipresent, when he came wrapped in the garments of clay. He was still on his Father's throne; he never left it, never came down from heaven in that sense; he was still there, "God over all, blessed for ever." As he has said, "The Son of Man who came down from heaven, who, also," at that very moment, was "in heaven." But Jesus Christ, as the Man-God, has assumed glories and honors which once he had not; for as man, he did not at one time sit on his Father's throne; he was a man, a suffering man, a man full of pains and groans, more than mortals have ever known: but as God-man, he has assumed a dignity next to God; he sits at the right hand of God: at the right hand of the glorious Trinity, Father, Son, and Holy Ghost, sits the person of the man Jesus Christ, exalted at the right hand of the Majesty on High. From this we gather, that the dignity which Christ now enjoys is surpassing dignity. There is no honor, there is no dignity to be compared to that of Christ. No angel flies higher than he does. Save only the great Three-One God, there is none to be found in heaven who can be called superior to the person of the man Christ Jesus. He sits on the right hand of God, "Far above all angels, and principalities, and powers, and every name that is named." His Father "hath highly exalted him, and given him a name which is above every name, that at the name of Jesus every knee should bow, of things in heaven, and of things on earth, and of things under the earth." No dignity can shine like his. The sons of righteousness that have turned many to God, are but as stars compared with him, the brightest of the suns there. As for angels, they are but flashes of his own brightness, emanations from his own glorious self. He sits there, the great masterpiece of Deity.A
 
-> "God, in the person of his Son,
-> 
-> Hath all his mightiest works outdone."
+> "God, in the person of his Son,  
+> Hath all his mightiest works outdone."  
 
 That glorious man, taken into union with Deity, that mighty Man-God, surpasses everything in the glory of his majestic person. Christian! remember, thy Master has unsurpassed dignity.
 
@@ -46,13 +43,10 @@ And once more: this honor that Christ hath now received (I mean the Man-God Chri
 
 One more illustration, and we have done with this. We must consider the exaltation of Christ in heaven as being in some degree a representative exaltation. Christ Jesus exalted at the Father's right hand, though he has eminent glories, in which the saints must not expect to share, essentially he is the express image of the person of God, and the brightness of his Father's glory, yet, to a very great degree, the honors which Christ has in heaven he has as our representative there. Ah! brethren it is sweet to reflect, how blessedly Christ lives with his people. Ye all know that we were
 
-> "One, when he died, one, when he rose,
-> 
-> One, when he triumphed o'er his foes;
-> 
-> One, when in heaven he took his seat,
-> 
-> And angels sang all hell's defeat."
+> "One, when he died, one, when he rose,  
+> One, when he triumphed o'er his foes;  
+> One, when in heaven he took his seat,  
+> And angels sang all hell's defeat."  
 
 To-day you know that you are one with him, now, in his presence. We are at this moment "raised up together," and may, afterwards, "sit together in heavenly places, even in him." As I am represented in parliament, and as you are, so is ever child of God represented in heaven; but as we are not one with our parliamentary representatives, that figure fails to set forth the glorious representation of us which our forerunner, Christ, carries on in heaven, for we are actually one with him; we are members of his body, of his flesh, and of his bones, and his exaltation is our exaltation. He will give us to sit upon his throne, for as he has overcome, and is set down with his Father on his throne; he has a crown, and he will not wear his crown, unless he gives us crowns too; he has a throne, but he is not content with having a throne to himself; on his right hand there must be his bride in gold of Ophir. And he cannot be there without his bride; the Saviour cannot be content to be in heaven unless he has his Church with him, which is "the fulness of him that filleth all in all." Beloved, look up to Christ now; let the eye of your faith catch a sight of him; behold him there, with many crowns upon his head. Remember, as ye see him there, ye will one day be like him, and when ye shall see him as he is; ye shall not be as great as he is, ye shall not be as glorious in degree, but still ye shall, in a measure, share the same honors, and enjoy the same happiness and the same dignity which he possesses. Be then, content to live unknown for a little while; be content to bear the sneer, the jest, the joke, the ribald song; be content to walk your weary way, through the fields of poverty, or up the hills of affliction; by-and-bye ye shall reign with Christ, for he has "made us kings and priests unto God, and we shall reign for ever and ever." 
 
@@ -64,22 +58,18 @@ He is either Christ's brother, or else Christ's slave, his unwilling vassal, tha
 
 Be we expect greater things than these, beloved, at his coming, when all enemies shall be beneath Christ's feet upon earth. We are, therefore, many of us, "looking for that blessed hope; that glorious appearing of the kingdom of our Saviour Jesus Christ;" many of us are expecting that Christ will come; we cannot tell you when, we believe it to be folly to pretend to guess the time, but we are expecting that even in our life the Son of God will appear, and we know that when he shall appear he will tread his foes beneath his feet, and reign from pole to pole, and from the river even to the ends of the earth. Not long shall anti-christ sit on her seven hills; not long shall the false prophet delude his millions; not long shall idol gods mock their worshippers with eyes that cannot see, and hands that cannot handle, and ears that cannot hear--
 
-> "Lo! he comes, with clouds descending;"
+> "Lo! he comes, with clouds descending;"  
 
 In the winds I see his chariot wheels; I know that he approaches and when he approaches he "breaks the bow and cuts the spear in sunder, and burns the chariot in the fire;" and Christ Jesus shall then be king over the whole world. He is king now, virtually; but he is to have another kingdom; I cannot see how it is to be a spiritual one, for that is come already; he is as much king spiritually now as he ever will be in his Church, although his kingdom will assuredly be very extensive; but the kingdom that is to come, I take it, will be something even greater than the spiritual kingdom; it will be a visible kingdom of Christ on earth. Then kings must bow their necks before his feet; then at his throne the tribes of earth shall bend; then the rich and mighty, the merchants of Tyre, and the travellers where gold is found, shall bring their spices and myrrh before him, and lay their gold and gems at his feet;
 
-> "Jesus shall reign where'er the sun,
-> 
-> Does his successive journeys run;
-> 
-> His kingdom stretch from shore to shore,
-> 
-> Till moons shall wax and wane no more."
+> "Jesus shall reign where'er the sun,  
+> Does his successive journeys run;  
+> His kingdom stretch from shore to shore,  
+> Till moons shall wax and wane no more."  
 
 Once more, beloved; Christ will have all his enemies put beneath his feet, in that great day of judgment. Oh! that will be a terrible putting of his foes beneath his feet, when at that second resurrection the wicked dead shall rise; when the ungodly shall stand before his throne, and his voice shall say, "Depart, ye cursed." Oh! rebel, thou that hast despised Christ, it will be a horrible thing for thee, that that man, that gibbeted, crucified man, whom thou hast often despised, will have power enough to speak thee into hell; that the man whom thou hast scoffed and laughed at, and of whom thou hast virtually said, "If he be the Son of God, let him come down from the cross," will have power enough, in two or three short words, to damn thy soul to all eternity: "Depart from me, ye cursed, into everlasting fire, prepared for the devil and his angels." Oh! what a triumph that will be, when men, wicked men, persecutors, and all those who opposed Christ, are all cast into the lake that burneth! But, if possible, it will be a greater triumph, when he who led men astray shall be dragged forth.
 
-> "Shall lift his brazen front, with thunder scarred,
-> 
-> Receive the sentence, and begin anew his hell."
+> "Shall lift his brazen front, with thunder scarred,  
+> Receive the sentence, and begin anew his hell."  
 
 Oh! when Satan shall be condemned, and when the saints shall judge angels, and the fallen spirits shall all be under the feet of Christ, "then shall be brought to pass the saying that is written, he hath put all things under him." And when death, too, shall come forth, and the "death of death and hell's destruction" shall grind his iron limbs to powder, then shall it be said, "Death is swallowed up in victory," for the great shout of "Victory, victory, victory," shall drown the shrieks of the past; shall put out the sound of the howlings of death; and hell shall be swallowed up in victory. He is exalted on high--he sitteth on his Father's right hand, "from henceforth expecting till his enemies be made his footstool."

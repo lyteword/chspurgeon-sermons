@@ -2,9 +2,8 @@
 
 Sermon No. 83 - Delivered on Sabbath Morning, June 1, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Then Job answered the Lord and said, Behold, I am vile."
-> 
-> Job 40:3-4.
+> "Then Job answered the Lord and said, Behold, I am vile."  
+> Job 40:3-4.  
 
 SURELY, if any man had a right to say, I am not vile, it was Job; for, according to the testimony of God himself, he was "a perfect and an upright man, one that feared God and eschewed evil." Yet we find even this eminent saint, when by his nearness to God he had received light enough to discover his own condition, exclaiming, "Behold I am vile." We are sure that what Job was forced to say, we may each of us assent unto, whether we be God's children or not; and if we be partakers of divine grace, it becomes a subject of great consideration for us, since even we, although we be regenerated, must exclaim, each one for himself, "Behold, I am vile."
 
@@ -60,18 +59,14 @@ Do not become self-sufficient. Self-sufficiency is Satan's net, wherein he catch
 
 Dearly beloved, I have just one word to say, not to the saints, but to the ungodly--one cheering word, sinner, poor lost sinner! You think you must not come to God because you are vile. Now, let me tell you, that there is not a saint in this place but is vile too. If Job, and Isaiah, and Paul, were all obliged to say, "I am vile," oh, poor sinner, wilt thou be ashamed to join the confession, and say, "I am vile," too? If I come to God this night in prayer, when I am on my knees by my bedside, I shall have to come to God as a sinner, vile and full of sin. My brother sinner! dost thou want to have any better confession than that? Thou wantest to be better, dost thou? Why, saints in themselves are no better. If divine grace does not eradicate all sin in the believer, how dost thou hope to do it thyself? and if God loves his people, while they are yet vile, dost thou think thy vileness will prevent his loving thee? Nay, vile sinner, come to Jesus! vilest of the vile! Believe on Jesus, thou off-cast of the world's society, thou who art the dung and dross of the streets, I bid thee come to Christ. Christ bids thee believe on him.
 
-> "Not the righteous, not the righteous,
-> 
-> Sinners, Jesus came to save."
+> "Not the righteous, not the righteous,  
+> Sinners, Jesus came to save."  
 
 Come now; say, "Lord, I am vile; give me faith. Christ died for sinners; I am a sinner. Lord Jesus, sprinkle thy blood on me." I tell thee, sinner, from God, if thou wilt confess thy sin, thou shalt find pardon. If now with all thy heart thou wilt say, "I am vile; wash me;" thou shalt be washed now. If the Holy Spirit shall enable thee to say with thine heart now, "Lord, I am sinful--
 
-> 'Just as I am, without one plea,
-> 
-> But that thy blood was shed for me,
-> 
-> And that thou bid'st me come to thee,
-> 
-> O Lamb of God, I come, I come.'"
+> 'Just as I am, without one plea,  
+> But that thy blood was shed for me,  
+> And that thou bid'st me come to thee,  
+> O Lamb of God, I come, I come.'"  
 
 Thou shalt go out of this place with all thy sins pardoned; and though thou comest in here with every sin that man hath ever committed on thy head, thou shalt go out as innocent, yea, more innocent than the new-born babe. Though thou comest in here all over sin, thou shalt go out with a robe of righteousness, white as angels are, as pure as God himself, so far as justification is concerned. For "now," mark it "now is the accepted time," if thou believest on him who justifieth the ungodly. Oh! may the Holy Spirit give thee faith that thou mayest be saved now, for then thou wilt be saved for ever! may God add his blessing to this feeble discourse for his name's sake!

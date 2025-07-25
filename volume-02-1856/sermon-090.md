@@ -2,9 +2,8 @@
 
 Sermon No. 90 - Delivered on Sabbath Evening, June 29, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Verily he took not on him the nature of angels; but he took on him the seed of Abraham."
-> 
-> Hebrews 2:16.
+> "Verily he took not on him the nature of angels; but he took on him the seed of Abraham."  
+> Hebrews 2:16.  
 
 The Almighty God, who dwelt alone, was pleased to manifest himself by created works, which should display his wisdom and his power. When he set about the mighty work of creation, he determined in his own mind that he would fashion a variety of works, and that all his creatures should not be of one form, nature, grandeur, or dignity; hence he made some grains of dust, and others mountains of stupendous magnitude; he created some drops and some oceans; some mighty hills and some valleys. Even in his inanimate works he preserved a wonderful variety; he gave not to all stars the same glory, neither to all worlds the same ponderous mass; he gave not to all rocks the same texture, nor unto all seas the same shape of fashion, but he was pleased, in the work of his hands, to observe an infinite variety. When he came to create living creatures, there, too, are distinctions that we must note. From the worm up to the eagle, from the eagle to the man, from the man to the angel; such are the steps of creating goodness in the fashion of things that are animate. He hath not made all creatures eagles, neither hath he fashioned al beings worms, but having a right to do what he wills with his own, he has exercised the right in making one creature--the majestic lion--king of the forest, and another, the harmless lamb, which shall be devoured, without power to resist its enemy, or defend itself. He has made his creatures just as it seemed him fit; he has given to one swiftness of foot, to another, speed of wing; to one, clearness of eye, to another, force of sinew. He hath not followed any fixed rule in his creation; but he hath done exactly as it pleased him in the arrangement of the forms which he hath animated. So, also, we must observe a great difference in the rational beings which he has created. 
 
@@ -26,13 +25,10 @@ If I should tell him that I find this world a vast howling wilderness: how could
 
 Once more, Christ became a man, and not an angel, because he desired to be one with his dear church. Christ was betrothed to his church ere time began; and when he came into the world he virtually said, "I will go with thee, my bride, and I will delight myself in thy company. Angels' garments were not a fitting wedding dress for me to wear, if I am to be bone of thy bone, and flesh of thy flesh. I am allied to thee by a union firm and strong. I have called thee Hephzibah, my delight is in thee; and I have said, thy land shall be called Beulah, that is, married. Well, if I am married to thee, I will live in the same condition with thee; it were not fit that husband should live in palace, and that wife would live in cottage; it were not meet that husband should be arrayed in gorgeous robes, and wife in meaner garments." "No," said he to his church, "if thou dwellest upon earth, I will; if thou dwellest in a tabernacle of clay, I will do the same;
 
-> "Yea, said the Lord, with her I'll go,
-> 
-> Through all the depths of care and woe,
-> 
-> And on the cross will even dare
-> 
-> The bitter pangs of death to bear."
+> "Yea, said the Lord, with her I'll go,  
+> Through all the depths of care and woe,  
+> And on the cross will even dare  
+> The bitter pangs of death to bear."  
 
 Christ cannot bear to be different from his church. You know, he would not be in heaven without her, therefore, did he make that long, long journey, to redeem her and visit her, and when he came on this good errand, he would not that she should be made of clay, and he should not be made of clay too; he was the head, and it would have been out of order that the head should have been of gold, and the body of clay; it would have been like Nebuchadnezzar's image, that must be broken. "Since the children were partakers of flesh and blood, he must also take part in the same," for he became "perfect through suffering," since he was "the captain of our salvation." Thus, again, you see his love and his wisdom, that he "took not on him the nature of angels, but took upon him the seed of Abraham."
 
@@ -66,12 +62,11 @@ And now I have closed this subject; and I must just make a practical reflection 
 
 But another practical conclusion. If you do feel this to be true, that God has a right to send you soul to hell, and that if he saves another, and not you, he will be just, but if he save you it will be an act of free distinguishing love, you show a spirit which is very near to the kingdom of heaven. I do not think a man will admit this truth unless he has a change of heart: he may admit it in his mind, but he will not feel it to be true, unless he has got a new heart and a right spirit. I will not go so far as to say that a man who believes divine sovereignty must be a Christian; that were to stretch the truth; but I do say, that if a man is humble enough, meek enough, contrite enough, to lay himself down at the Saviour's feet with this,
 
-> "Nothing in my hands I bring;"
+> "Nothing in my hands I bring;"  
 
 "I have no righteousness, no claims; if thou shouldst damn me, thou wouldst be just; if thou savest me I will thank thee for ever;" such a man must have had a work of grace in his heart to bring him to such a conclusion. If thou canst say that, then, poor sinner, come to Jesus, come to Jesus; for he will never cast you out. Let me tell you a story about the prodigal, and then I have done. The prodigal set out one morning, and he had a long, long journey to go; he had a high hill to climb, called the hill of his own sins and follies. He had scarcely got to the top of it, and was getting near the tower, called the tower of true repentance, when his father, who was sitting on the top of the house, saw him; and when he saw him, he ran out immediately, and ere his son had got to the door, he had fallen on his neck and kissed him. He took his son into his house, and a feast was prepared, and they sat down to it; but after the son had sat down, the farther turned his eye to him, and he was not eating, but the tears were rolling down his cheeks. "My son," said the father, "why don't you eat? Why dost thou weep, my son? The feast is all prepared for thee." Bursting into tears, the son said, "Father, dost thou forgive me all?" "Yes," says the father, "I do. Eat my son. Do not weep." The prodigal went on. The father turned his eye to the other guests, and by-and-bye, looking on his son, he saw that he was weeping again, and not eating. Said the father, "Son, why don't you eat? The feast is all for you. Why do you weep, my son?" "Father," said he, with the tears rolling down his cheeks again, "will you let me stay here?" "Oh, yes, my son," said the father, "eat; do not weep; you shall stay here; you are my beloved son." Well, the prodigal went on, and the father looked at the other guests; but by-and-bye he turned his eyes again, and there was his son weeping once more. "My dear son," he asks, "why do you weep?" "Oh, father," said he, "will you keep me here? for if you do not, I know I shall run away. Father, will you make me stop here?" "yes, my son," said he, "that I will."
 
-> "My grace shall like a fetter bind
-> 
-> That wandering heart to me."
+> "My grace shall like a fetter bind  
+> That wandering heart to me."  
 
 The son wiped his eyes, went on with his meal, and never wept again. There, poor prodigal, there is something for thee; if thou wilt come to Christ, thou shalt always stay there; and over and above that, he will keep thee there. Therefore rejoice; for though he has a right to destroy thee, recollect, he will not; for his heart is full of love and pity towards thee. Only come to him, and thou shalt be saved.

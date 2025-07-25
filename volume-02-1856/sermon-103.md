@@ -2,9 +2,8 @@
 
 Sermon No. 103 - Delivered on Sabbath Morning, August 31, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "I will give thee for a covenant of the people."
-> 
-> Isaiah 49:8.
+> "I will give thee for a covenant of the people."  
+> Isaiah 49:8.  
 
 WE all believe that our Saviour has very much to do with the covenant of eternal salvation. We have been accustomed to regard him as the Mediator of the covenant, as the surety of the covenant, and as the scope or substance of the covenant. We have considered him to be the Mediator of the covenant, for we were certain that God could make no covenant with man unless there were a mediator--a days-man, who should stand between the both. And we have hailed him as the Mediator, who, with mercy in his hands, came down to tell to sinful man the news that grace was promised in the eternal counsel of the Most High. We have also loved our Saviour as the Surety of the covenant, who, on our behalf, undertook to pay our debts; and on his Father's behalf, undertook, also, to see that all our souls should be secure and safe, and ultimately presented unblemished and complete before him. And I doubt not, we have also rejoiced in the thought that Christ is the sum and substance of the covenant; we believe that if we would sum up all spiritual blessings, we must say, "Christ is all." He is the matter, he is the substance of it; and although much might be said concerning the glories of the covenant, yet nothing could be said which is not to be found in that one word, "Christ." But this morning I shall dwell on Christ, not as the Mediator, nor as the surety, nor as the scope of the covenant, but as one great and glorious article of the covenant which God has given to his children. It is our firm belief that Christ is ours, and is given to us of God; we know that "he freely delivered him up for us all," and we, therefore, believe that he will, "with him, freely give us all things." We can say, with the spouse, "My beloved is mine." We feel that we have a personal property in our Lord and Saviour Jesus Christ, and it will therefore delight us for a while, this morning, in the simplest manner possible, without the garnishings of eloquence or the trappings of oratory, just to mediate upon this great thought, that Jesus Christ in the covenant is the property of every believer.
 
@@ -18,13 +17,10 @@ Consider him as man too. All that he has as perfect man is yours. As a perfect m
 
 Then, consider believer, that not only is Christ thine in all his attributes, but he is thine in all his offices. Great and glorious these offices are; we have scarce time to mention them all. Is he a prophet? Then he is thy prophet. Is he a priest? Then he is thy priest. Is he a king? Then he is thy king. Is he a redeemer? Then he is thy redeemer. Is he an advocate? Then he is thy advocate. Is he a forerunner? Then he is thy forerunner. Is he a surety of the covenant? The he is thy surety. In every name he bears, in every crown he wears, in every vestment in which he is arrayed, he is the believer's own. Oh! child of God, if thou hadst grace to gather up this thought into thy soul it would comfort thee marvellously, to think that in all Christ is in office, he is most assuredly thine. Dost thou see him yonder, interceding before his Father, with outstretched arms? Dost thou mark his ephod--his golden mitre on his brow, inscribed with "holiness unto the Lord?" Dost see him as he lifts up his hands to pray? Hearest thou not that marvellous intercession such as man never prayed on earth; that authoritative intercession such as he himself could not use in the agonies of the garden? For
 
-> "With sighs and groans, he offered up
-> 
-> His humble suit below;
-> 
-> But with authority he pleads,
-> 
-> Enthroned I glory now."
+> "With sighs and groans, he offered up  
+> His humble suit below;  
+> But with authority he pleads,  
+> Enthroned I glory now."  
 
 Dost see how he asks, and how he received, as soon as his petition is put up? And canst thou, darest thou believe that that intercession is all thine own, that on his breast thy name is written, that in his heart thy name is stamped in marks of indellible grace, and that all the majesty of that marvellous, that surpassing intercession is thine own, and would all be expended for thee if thou didst require it; that he has not any authority with his Father, that he will not use on thy behalf, if thou dost need it; that he has no power to intercede that he would not employ for thee in all times of necessity? Come now, words cannot set this forth; it is only your thoughts that can teach you this; it is only God the Holy Spirit bringing home the truth that can set this ravishing, this transporting thought in its proper position in your heart; that Christ is yours in all he is and has. Seest thou him on earth? There he stands, the priest offering his bloody sacrifice; see him on the tree, his hands are pierced, his feet are gushing gore! Oh! dost thou see that pallid countenance, and those languid eyes flowing with compassion? Dost thou mark that crown of thorns? Dost thou behold that mightiest of sacrifices, the sum and substance of them all? Believer, that is thine, those precious drops plead and claim thy peace with God; that open side is thy refuge, those pierced hands are thy redemption; that groan he groans for thee; that cry of a forsaken heart he utters for thee; that death he dies for thee. Come, I beseech thee, consider Christ in any one of his various offices; but when thou dost consider him lay hold of this thought, that in all these things he is THY Christ, given unto thee to be one article in the eternal covenant--thy possession for ever.
 
@@ -42,29 +38,24 @@ Now we come to the second: FOR WHAT PURPOSE DOES GOD PUT CHRIST IN THE COVENANT?
 
 Well, in the first place, Christ is in the covenant in order to comfort every coming sinner. "Oh," says the sinner who is coming to God, "I cannot lay hold on such a great covenant as that, I cannot believe that heaven is provided for me, I cannot conceive that the robe of righteousness and all these wondrous things can be intended for such a wretch as I am." Here comes in the thought that Christ is in the covenant. Sinner, canst thou lay hold on Christ? Canst thou say,
 
-> "Nothing in my hand I bring,
-> 
-> Simply to thy cross I cling?"
+> "Nothing in my hand I bring,  
+> Simply to thy cross I cling?"  
 
 Well, if thou hast got that, it was put in on purpose for thee to hold fast by God's covenant mercies all go together, and if thou hast laid hold on Christ, thou hast gained every blessing in the covenant. That is one reason why Christ was put there. Why, if Christ were not there, the poor sinner would say, "I dare not lay hold on that mercy. It is a God-like and a divine one, but I dare not grasp it; it is too good for me. I cannot receive it, it staggers my faith." But he sees Christ with all his great atonement in the covenant; and Christ looks so lovingly at him, and opens his arms so wide, saying, "Come unto me, all ye that labour and are heavy laden, and I will give you rest," that the sinner comes and throws his arms around Christ, and then Christ whispers, "Sinner, in laying hold of me, thou hast laid hold of all." Why, Lord, I dare not think I could have the other mercies. I dare trust thee, but I dare not take the others. Ah, sinner, but in that thou hast taken me thou hast taken all, for the mercies of the covenant are like links in the chain. This one link is an enticing one. The sinner lays hold of it; and God has purposely put it there to entice the sinner to come and receive the mercies of the covenant. For when he has once got hold of Christ--here is the comfort--he has everything that the covenant can give.
 
 Christ is put also to confirm the doubting saint. Sometimes he cannot read his interest in the covenant. He cannot see his portion among them that are sanctified. He is afraid that God is not his God, that the Spirit hath no dealings with his soul; but then,
 
-> "Amid temptations, sharp and strong,
-> 
-> His soul to that dear refuge flies;
-> 
-> Hope is his anchor, firm and strong,
-> 
-> When tempests blow and billows rise."
+> "Amid temptations, sharp and strong,  
+> His soul to that dear refuge flies;  
+> Hope is his anchor, firm and strong,  
+> When tempests blow and billows rise."  
 
 So he lays hold of Christ, and were it not for that, even the believer dare not come at all. he could not lay hold on any other mercy than that with which Christ is connected. "Ah," saith he, "I know I am a sinner, and Christ came to save sinners." So he holds fast to Christ. "I can hold fast here," he says, "my black hands will not black Christ, my filthiness will not make him unclean." So the saint holds hard by Christ, as hard as if it were the death-clutch of a drowning man. And what then? Why, he has got every mercy of the covenant in his hand. It is the wisdom of God that he has put Christ in, so that a poor sinner, who might be afraid to lay hold of another, knowing the gracious nature of Christ, is not afraid to lay hold of him, and therein he grasps the whole, but ofttimes unconsciously to himself.
 
 Again, it was necessary that Christ should be in the covenant, because there are many things there that would be nought without him. Our great redemption is in the covenant, but we have no redemption except through his blood. It is true that my righteousness is in the covenant, but I can have no righteousness apart from that which Christ has wrought out, and which is imputed to me by God. It is very true that my eternal perfection is in the covenant, but the elect are only perfect in Christ. They are not perfect in themselves, nor will they ever be, until they have been washed, and sanctified, and perfected by the Holy Ghost. And even in heaven their perfection consists not so much in their sanctification, as in their justification in Christ.
 
-> "Their beauty this, their glorious dress,
-> 
-> Jesus the Lord their righteousness."
+> "Their beauty this, their glorious dress,  
+> Jesus the Lord their righteousness."  
 
 In fact, if you take Christ out of the covenant, you have just done the same as if you should break the string of a necklace: all the jewels, or beads, or corals, drop off and separate from each other. Christ is the golden string whereon the mercies of the covenant are threaded, and when you lay hold of him, you have obtained the whole string of pearls. But if Christ be taken out, true there will be the pearls, but we cannot wear them, we cannot grasp them; they are separated, and poor faith can never know how to get hold of them. Oh! it is a mercy worth worlds, that Christ is in the covenant.
 
@@ -80,20 +71,16 @@ And now, dearly beloved hearers. I must say one word to those of you to whom I h
 
 Mayhap, poor convinced sinner thou darest not take hold of the covenant to-day. Thou canst not say the covenant is thine. Thou art afraid it never can be thine; thou art such an unworthy wretch. Hark thee; canst thou lay hold on Christ? Darest thou do that? "Oh," sayest thou, "I am too unworthy." Nay, soul, darest thou touch the hem of his garment to-day? Darest thou come up to him just so much as to touch the very skirt that is trailing on the ground? "No," sayest thou "I dare not," Why not, poor soul, why not? Canst thou not trust to Christ?
 
-> "Are not his mercies rich and free?
-> 
-> Then say, poor soul, why not for thee."
+> "Are not his mercies rich and free?  
+> Then say, poor soul, why not for thee."  
 
 "I dare not come; I am so unworthy," you say. Hear, then; my Master bids you come, and will you be afraid after that? "Come unto me, all ye that labour and are heavy laden, and I will give you rest." "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." Why dare you not come to Christ? Oh, you are afraid he will turn you away! Hark ye, then, what he saith; "Whosoever cometh unto me, I will in nowise cast out." Thou sayest, "I know he would cast me out." Come, then, and see if thou canst prove him a liar. I know thou canst not, but come and try. He has said "whosoever." "But I am the blackest." Nevertheless, he has said "whosoever:" come along, blackest of the black. "Oh, but I am filthy." Come along, filthy one, come and try him, come and prove him; recollect he has said he will cast out none that come to him by faith. Come and try him. I do not ask thee to lay hold on the whole covenant, thou shalt do that by-and-bye; but lay hold on Christ, and if thou wilt do that, then thou hast the covenant." "Oh, I cannot lay hold of him," saith one poor soul. Well, then, lie prostrate at his feet, and beg of him to lay hold of thee. Do groan one groan, and say, "Lord, have mercy on me, a sinner!" Do sigh one sigh, and say, "Lord, save, or I perish." Do let thy heart say it, if thy lips cannot. If grief, long smothered, burns like a flame within thy bones, at least let one spark out. Now prayer one prayer, and verily I say unto thee, one sincere prayer shall most assuredly prove that he will save thee. One true groan, where God has put it in the heart, is an earnest of his love; one true wish after Christ, if it be followed by sincere and earnest seeking of him, shall be accepted of God, and thou shalt be saved. 
 
 Come, soul, once more. Lay hold on Christ. "Oh, but I dare not do it." Now I was about to say a foolish thing; I was going to say that I wish I was a sinner like thyself this moment, and I think I would run before, and lay hold on Christ, and then say to you, "Take hold too." But I am a sinner like thyself, and no better than thyself; I have no merits, no righteousness, no works; I shall be damned in hell unless Christ have mercy on me, and should have been there now if I had had my deserts. Here am I a sinner once as black as thou art; and yet, O Christ, these arms embrace thee. Sinner, come and take thy turn after me. Have not I embraced him? Am I not as vile as thou art? Come and let my case assure thee. How did he treat me when I first laid hold of him? Why he said to me, "I have loved thee with an everlasting love, therefore with lovingkindness have I drawn thee." Come, sinner, come and try, If Christ did not drive me away, he will never spurn you. Come along, poor soul, come along--
 
-> "Venture on him, (tis no venture,) venture wholly,
-> 
-> Let no other trust intrude;
-> 
-> None but Jesus
-> 
-> Can do helpless sinners good."
+> "Venture on him, (tis no venture,) venture wholly,  
+> Let no other trust intrude;  
+> None but Jesus  
+> Can do helpless sinners good."  
 
 He can do thee all the good thou wantest: oh! trust my Master, oh! trust my Master; he is a precious Lord Jesus, he is a sweet Lord Jesus, he is a loving Saviour, he is a kind and condescending forgiver of sin. Come, ye black; come, ye filthy; come, ye poor; come, ye dying; come, ye lost--ye who have been taught to feel your need of Christ, come all of you--come now for Jesus bids you come; come quickly. Lord Jesus, draw them, draw them by this Spirit! Amen.

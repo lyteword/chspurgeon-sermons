@@ -2,9 +2,8 @@
 
 Sermon No. 96 - Delivered on Sabbath Evening, August 10, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Therefore, brethren, we are debtors."
-> 
-> Romans 8:12.
+> "Therefore, brethren, we are debtors."  
+> Romans 8:12.  
 
 OBSERVE the title whereby he addressed the Church--"Brethren." It was the gospel which taught Paul how to say brother. If he had not been a Christian, his Jewish dignity would never have condescended to call a Roman--"brother;" for a Jew sneered at the Gentile, and called him "dog." But now in the breast of this "Hebrew of Hebrews," there is the holy recognition of Christian fraternity without reserve or hypocrisy. The gospel softened the breast of Paul, and made him forget all national animosities, otherwise, one of the down-trodden race would not have called his oppressor, "brother." The Roman had his iron foot on the Jew; yet Paul addresses those, who subjugated his race, as "brethren." We repeat, a third time, it was the gospel which implanted in the soul of Paul the feeling of brotherhood, and removed every wall of partition which divided him from any of the Lord's elect. "So then," he said, "we are no more strangers and foreigners, but fellow-citizens with the saints, and of the household of God." He proclaimed the doctrine of the "one blood," and gloried in the fact of "one family" in Christ. He felt within him affinities with all the blood-bought race, and loved them all. He had not seen many of those whom he addressed; yet they were known to him, in the Spirit, as partakers of one glorious and blessed hope, and, therefore, he called them "brethren." My friends, there is a cementing power in the grace of God which can scarcely be over estimated. It resets the dislocated bones of society, rivets the bonds of friendship, and welds the broken metal of manhood into one united mass. It makes all brethren who feel its power. Grace links mankind in a common brotherhood; grace makes the great man give his hand to the poor, and confess a heavenly relationship; grace constrains the intellectual, the learned, the polite, to stoop from their dignity to take hold of the ignorant and unlettered, and call them friends; grace weaves the threads of our separate individualities into one undivided unity. 
 

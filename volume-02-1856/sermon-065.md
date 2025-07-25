@@ -4,9 +4,8 @@ Sermon No. 65 - Delivered on Sabbath Morning, February 10, 1856, by the REV. C.H
 
 *On behalf of the Baptist Fund for the Relief of Poor Ministers.*
 
-> "The young lions do lack, and suffer hunger; but they that seek the Lord shall not want any good thing."
-> 
-> Psalm 34:10.
+> "The young lions do lack, and suffer hunger; but they that seek the Lord shall not want any good thing."  
+> Psalm 34:10.  
 
 RIGHT truly did Paul say, "Whereby he hath given unto us exceeding great and precious promises;" for surely this promise is exceeding great indeed. In the entire compass of God's holy word, there is not to be found a precious declaration which can excel this in sweetness; for how could God promise to use more than all things? how could even his infinite benevolence stretch the line of his grace farther than it hath gone in this verse of the psalm?--"They that seek the Lord shall not want any good thing." There is here no reserve; nothing is kept back; there is no solitary word of exception. There is no codicil in this will striking off the smallest portion of the estate; there is no caveat put in to warn us that there are domains upon which we must not intrude; a large field is laid before the children of God; a wide door is open, and no man can shut it. "They that seek the Lord shall not want any good thing."
 
@@ -18,35 +17,28 @@ We commence with conviction of sin. That is where God begins with us, and no man
 
 But let us go a stage further on, when the Christian has found the Saviour, and is justified, when he can say, in those sweet words I so often repeat,
 
-> "Now, freed from sin I walk at large,
-> 
-> My Jesu's blood's my full discharge."
+> "Now, freed from sin I walk at large,  
+> My Jesu's blood's my full discharge."  
 
 You will find that he has not left off seeking the Lord. No; he seeks now to know more of him; he seeks to understand more of the heights and depths, and lengths, and breadths of the love of Christ, which passeth knowledge. I ask any one here who has an assurance that he is a pardoned man, thoroughly justified and complete in Christ--are you not seeking the Lord? "Oh yes," you say, "I thirst, I long to know more of him; I feel that all I have ever known of him is like the whispering of the sea in the shell, while the awful roar of the sea itself has not yet reached mine ears. I have heard the whisperings of Christ in some little mercy, and I have heard his bounties sing of bottomless, eternal, unchangeable love; but oh! I long to plunge into the sea itself, to bathe myself in the broad ocean of his infinite generosity and love to me." No Christian ever fancies that he knows enough of his Master; there is no Christian who has found the Lord who does not desire to be better acquainted with him. "Lord, I will follow thee whithersoever thou goest," is the cry of the man who has had his sins forgiven. He sitteth down at the feet of Jesus, and looketh up to him, and saith, "Master, teach me more; I am a little child; thou art a great instructor; oh! I long to love and learn more of thee." He is ever seeking the Lord; and, in this more advanced stage, the promise to him is, "They that seek the Lord shall not want any good thing."
 
 But go a little further on, when the Christian has scarcely ever a shadow of a doubt of his acceptance; he has progressed so far in spiritual life that he has attained to the stature of a perfect man in Christ Jesus; his faith has become so confident, that
 
-> "His steady soul doth fear no more
-> 
-> Than solid rocks when billows roar."
+> "His steady soul doth fear no more  
+> Than solid rocks when billows roar."  
 
 He can read his "title clear to mansions in the skies;" he has climbed the Delectable Mountain; his feet are standing fast upon a rock, and his goings are established; but even then he is seeking the Lord. In the highest flights of his assurance, on the topmost pinnacle of his faith, there is something yet beyond. When he had sailed farthest into the sea of Acceptance, there are Fortunate Isles that he hath not reached; there is an ultima thule, a distant land, that he hath not yet seen. He is still seeking the Lord; he feels that he has "not yet attained;" he is still "pressing forward to the mark for the prize of the high calling of God in Christ Jesus." But then he seeks the Lord in a different fashion; he seeks him that he may put a crown on his head; he is not seeking him for mercy, but to give him praise. Oh, that my heart could find thee! that all its strings might sing sweet music to thee. Oh that my mouth could find thine ear, and that I might bid it open and listen to the whisper of my song. Oh that I knew where thou didst dwell, that I might sing hard by the eaves of thy habitation, and that thou mightest hear me ever--that I might perpetually send the songs of my gratitude up to thy sacred courts? I seek thee that I may break the alabaster box of praise on thy dear sacred head. I seek thee that I may put my soul upon the altar, and sacrifice my living self to thee. I seek thee, that I may go where cherubim are singing, whom I envy, because they
 
-> "All night long unwearied sing
-> 
-> High praises to the Eternal King."
+> "All night long unwearied sing  
+> High praises to the Eternal King."  
 
 I will seek thee in business, that there I may adorn the doctrine of God my Saviour in all things. I will seek thee in my songs that I may hymn thy praise. I will seek thee in my musings, that I may magnify the Lord in my thoughts. I will seek thee in my words, that my conversation may show forth thy praise. I will seek thee in my gifts of benevolence, that I may be like my Saviour. I will seek thee ever, for enough I have attained to know that I am thine and thou art mine, though I have nought else to ask of thee, seeing thou hast given me thyself; though thou art
 
-> "Bone of my bone, flesh of my flesh,
-> 
-> My kinsman near allied by blood,"
-> 
-> though now my soul stands perfect in thee, and
-> 
-> "Not a shadow of a spot
-> 
-> Can on my soul be found,"
+> "Bone of my bone, flesh of my flesh,  
+> My kinsman near allied by blood,"  
+> though now my soul stands perfect in thee, and  
+> "Not a shadow of a spot  
+> Can on my soul be found,"  
 
 yet still I will seek thee-seek to honor thee-seek to kiss those blessed feet that bled for me--seek to worship that dear "man who once on Calvary died," and put crowns of eternal unfading honor upon his blessed, thorn-crowned, but now exalted brow.
 
@@ -68,9 +60,8 @@ But here is a contrast, and we will proceed to that at once. "The young lions do
 
 There are certain men in the world who, like the lions, are kings over others. The lion is lord of the forest, and at his roar others tremble; so are there men who walk about among us--noblemen, respectable, great, honorable--persons who are had in reverence and esteem; and they suppose, sometimes, because they are lions they are sure never to have any spiritual hunger. They are great and mighty men; they have no need of a Saviour. Are they not the elders of the city? are they not mighty men of valour? are they not noble and great! They are, moreover, so excellent in their own esteem that their proper language seems to be when they come before their Maker's bar: "Lord, I had not a very bad nature, and wherein it was a little bad, I made the best of it! and wherein I did not do quite as well as I ought, Jesus Christ will make it up." Talk to these men about being depraved! "Rubbish!" they say; they know better; their heart is pure enough. They have no need of the Holy Spirit; they are young lions; you small mice may want it, but not they indeed! They have no need of another's righteousness to cover them; their old shaggy mane is glory enough to them. But do you know these young lions "lack and suffer hunger;" ay, even when we do not know anything about it? They can play bombast before men, but they "lack and suffer hunger" when they are alone. A suspicion often crosses their minds that their righteousness is not good for much; they know very well that while they can make a long prayer the poor widow's house sticks in their throat; that while they boast of their good works they are no better than they should be. You may think, perhaps, like David, that "they are not plagued like other men." But you don't know that. They are very often plagued when they do not tell you. When they roar so loudly their mane scarcely covers their bare ribs. "The young lions do lack and suffer hunger;" but, blessed be God, "they that seek the Lord shall not want any good thing." Poor and helpless though they are, having no works of righteousness of their own, confessing their sin and depravity, they shall want no good thing. Is it not amazing? There is a poor sinner who has sinned against God and in every way dishonored his name; yet he cannot lack any good thing.
 
-> "Poor, helpless worms in Christ possess
-> 
-> Grace, wisdom, peace, and righteousness."
+> "Poor, helpless worms in Christ possess  
+> Grace, wisdom, peace, and righteousness."  
 
 Again, by young lions we may understand men of cunning and men of wisdom. The lion goeth out at night, and prowleth silently through the jungle. It hath a keen scent, and knoweth where to find its prey. It scenteth the fountain, and knoweth that the antelope will go there to drink. When he comes, the lion croucheth down, with wild eyes looks upon him, and in a moment, ere the antelope is aware, he is in the fangs of the lion. Men of cunning and wisdom--have you not seen such? Have you not heard their boastful exclamation, "Submit myself to a dogmatical preacher! No, sir, I will not. Believe in the plenary inspiration of the Scriptures! I cannot believe in any such absurdity. Sit at the feet of Jesus and learn of him in the Scriptures! No, sir, I cannot. I like something to discuss; I like an intellectual religion; I cannot believe everything simply because God says it. I want to be allowed to judge for myself. Am I not wise learned?" And when he sees us in distress, sometimes he says, "Nonsense! you have no brains! you, poor Calvinists must be bereft of your senses." And yet we can show as many men of sense as they can, and we are not afraid of them, however much they glory in their wisdom. But sometimes the poor Christian is frightened by them; he cannot answer their sophisms; he does not see his way through their labyrinths, and cannot escape from their nets. Well, don't try to escape from them. Let them talk on; the best answer is often silence. But do you know that these young lions so gloriously self-sufficient when in argument with you, in secrecy often "lack and suffer hunger?" There was never an infidel in the world that did not suffer spiritual hunger, though he might not confess it. His creed did not satisfy him; there was a hollow place, an aching void somewhere, which the world could never fill. But "they that seek the Lord," who take the Scriptures for their guide, who bow implicity to the words of Jehovah, "do not lack any good thing." They feel no hollow unoccupied; Christ has filled their hearts, and they are satisfied with his presence and his love. "The young lions do lack, and suffer hunger: but they that seek the Lord shall not want any good thing."
 
@@ -78,13 +69,10 @@ Again, the young lions denote those who are very strong, so that they hope to sa
 
 Then we may take it in a temporal sense. Young lions may mean deep cunning schemers. Have you never seen men with their thousand schemes and plans to make themselves rich, men who can overreach others, who are so subtle that you cannot see through them? Their instinct seems to be cunning. They are always lying in wait to take advantage of others; they prowl the world around, to seize on the helpless widow and the defenceless orphan. Or, perhaps, they may be following more legitimate schemes yet, such as are full of speculation and will involve the exercise of all their wits. Surely such can live if others stand. But no, they are just the men who "lack and suffer hunger;" their schemes all prove futile; the arrow which they shoot returneth on their own head and woundeth them. But they who lie gently down in passive faith, singing
 
-> "Father, I wait thy daily will;
-> 
-> Thou shalt divide my portion still,
-> 
-> Give me on earth what seems thee best,
-> 
-> 'Till death and heaven reveal the rest,"
+> "Father, I wait thy daily will;  
+> Thou shalt divide my portion still,  
+> Give me on earth what seems thee best,  
+> 'Till death and heaven reveal the rest,"  
 
 do not lack any good thing.
 

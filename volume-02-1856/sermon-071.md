@@ -2,9 +2,8 @@
 
 Sermon No. 71 - Delivered on Sabbath Morning, March 23, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For I am become like a bottle in the smoke; yet do I not forget they statutes."
-> 
-> Psalm 119:83.
+> "For I am become like a bottle in the smoke; yet do I not forget they statutes."  
+> Psalm 119:83.  
 
 The figure of "a bottle in the smoke" is essentially oriental; we must therefore go to the East for its explanation. This we will supply to our hearers and readers in the words of the Author of the Pictorial Bible: "This doubtless refers to a leathern bottle, of kid or goat-skin. The peasantry of Asia keep many articles, both dry and liquid, in such bottles, which, for security, are suspended from the roof, or hung against the walls of their humble dwellings. Here they soon become quite black with smoke; for as, in the dwellings of the peasantry, there are seldom any chimneys, and the smoke can only escape through an aperture in the roof, or by the door, the apartment is full of dense smoke whenever a fire is kindled in it. And in those nights and days, when the smokiness of the hovels in which we daily rested during a winter's journey in Persia, Armenia, and Turkey, seemed to make the cold and weariness of actual travel a relief, we had ample occasion to observe the peculiar blackness of such skin vessels, arising from the manner in which substances offering a surface of this sort, receive the full influence of the smoke, and detain the minute particles of soot which rest upon them. When such vessels do not contain liquids, and are not quite filled by the solids which they hold, they contract a shrunk and shrivelled appearance, to which the Psalmist may also possibly allude as well as to the blackness. But we presume that the leading idea refers to the latter circumstance, as in the East blackness has an opposite signification to the felicitous meaning of whiteness. David had doubtless seen bottles of this description hanging up in his tent when a wanderer; and though he might have had but few in his palace, yet in the cottages of his own poor people he had, no doubt, witnessed them. Hence he says of himself, I am become,' by trouble and affliction, by trial and persecution, like a bottle in the smoke; yet do I not forget thy statutes.'"
 
@@ -12,9 +11,8 @@ First, God's people have their trials--they get put in the smoke; secondly, God'
 
 GOD'S PEOPLE HAVE THEIR TRIALS. This is an old truth, as old as the everlasting hills, because trials were in the covenant, and certainly the covenant is as old as the eternal mountains. It was never designed by God when he chose his people, that they should be an untried people; that they should be chosen to peace and safety, to perpetual happiness here below, and freedom from sickness and the pains of mortality. But rather, on the other hand, when he made the covenant, he made the rod of the covenant too; when he drew up the charter of privileges, he also drew up the charter of chastisements; when he gave us the roll of heirship, he put down the rods amongst the things to which we should inevitably be heirs. Trials are a part of our lot; they were predestinated for us in God's solemn decrees; and so surely as the stars are fashioned by his hands, he has fixed their orbits, so surely are our trials weighed in scales; he has predestinated their season and their place, their intensity and the effect they shall have upon us. Good men must never expect to escape troubles; if they do, they shall be disappointed; some of their predecessors have escaped them.
 
-> "The path of sorrow, and that path alone,
-> 
-> Leads to the land where sorrow is unknown."
+> "The path of sorrow, and that path alone,  
+> Leads to the land where sorrow is unknown."  
 
 Mark Job, of whose patience ye have heard; read ye well of Abraham, for he had his trials, and by his faith under them, when he offered up Isaac, he became "the father of the faithful." Note ye well the biographies of all the patriarchs, of all the prophets, of all the apostles and martyrs, and you shall discover none of those, whom God made vessels of mercy, who were not hung up like bottles in the smoke. It is ordained of old, that the cross of trouble, even as the sparks fly upwards; and when born again, it does seem as if we had a birth to double trouble; and double toil and trouble come to the man who hath double grace and double mercy bestowed upon him. Good men must have their trials; they must expect to be like bottles in the smoke.
 
@@ -52,35 +50,23 @@ Why was it David still held fast by God's statutes? First of all, David was not 
 
 Another reason why, when David was in the smoke, he did not forget God's statutes was this, that Jesus Christ was in the smoke with him, and the statutes were in the smoke with him too. God's statutes have been in the fire, as well as God's people. Both the promise and the precept are in the furnace; and if I hang up in the smoke, like a bottle, I see hanging up by my side, God's commands, covered with soot, and smoke, subject to the same perils. Suppose I am persecuted: It is a comfort to know that men do not persecute me, but my Master's truth. It is a singular thing, with regard to all the envenomed shafts that have been hurled at me, that they have generally fallen on that part of my frame which is most invulnerable, because they have generally fallen on something I have quoted from somebody else, or proved from Scripture. They may go on; it is sweet to think that Jesus Christ is in the smoke as well as we are; and the more flame there is, the better we shall be able to see our Master in the smoke with us.
 
-> "By God's command where'er I stray,
-> 
-> Sorrow attends me all the way,
-> 
-> A never failing friend;
-> 
-> And, if my sufferings may augment
-> 
-> Thy praise, behold me well content--
-> 
-> Let sorrow still attend!
-> 
-> It costs me no regret, that she
-> 
-> Who follow'd Christ should follow me;
-> 
-> And though where'er she goes,
-> 
-> Thorns spring spontaneous at her feet,
-> 
-> I love her and extract a sweet
-> 
-> From all my bitter woes."
+> "By God's command where'er I stray,  
+> Sorrow attends me all the way,  
+> A never failing friend;  
+> And, if my sufferings may augment  
+> Thy praise, behold me well content--  
+> Let sorrow still attend!  
+> It costs me no regret, that she  
+> Who follow'd Christ should follow me;  
+> And though where'er she goes,  
+> Thorns spring spontaneous at her feet,  
+> I love her and extract a sweet  
+> From all my bitter woes."  
 
 Another reason why David did not forget the statutes was, they were in the soul, where the smoke does not enter. Smoke does not enter the interior of the bottle; it only affects the exterior. So it is with God's children: the smoke does not enter into their hearts; Christ is there, and grace is there, and Christ and grace are both unaffected by the smoke. Come up, clouds of smoke! curl upward, till ye envelop me! Still will I hang on the Nail, Christ Jesus--the sure Nail, which never can be moved from its place--and I will feel, that "while the outward man decayeth, the inward man is renewed day by day;" and the statutes being there, I do not forget them. "For I am become like a bottle in the smoke; yet I do not forget thy statutes." To such of you as can join with David, let me give a word of consolation. If you have been persecuted, and still hold fast by God's word--if ye have been afflicted, and still persevere in the knowledge of our Lord and Master, you have every reason to believe yourself a Christian. If under your trials and troubles you remain just what you were when at ease, you may then hope, and not only so, but steadfastly believe and be assured that you are a child of God. Some of you, however, are very much like Christians, when you hear sermons full of promises; when I preach to you about bruised reeds, or address you with the invitation, "Come unto me, all ye that labour;" but when I give you a smoky sermon--one which you cannot endure--if you then can say, guilty, weak, and helpless I may be, but still I fall into his arms; sinful I know I am, and I have grace cause for doubt, but still
 
-> "There, there, unshaken will I rest,
-> 
-> Till this vile body dies;"
+> "There, there, unshaken will I rest,  
+> Till this vile body dies;"  
 
 I know, poor, weak, and helpless though I am, that I have a rich Almighty Friend; if you can stand a little smoke, then you may believe yourself to be a child of God. But there are some fantastic people we know of, who are shocked with a very puff of smoke, they cannot endure it, they go out at once, just like rats out of the hold of a ship when they begin to smoke it; but if you can live in the smoke and say, "I feel it, and still can endure it,"--if you can stand a smoky sermon, and endure a smoky trial, and hold fast to God under a smoky persecution, then you have reason to believe, that you are certainly a child of God. Fair-weather birds! you are good for nothing; it is the stormy petrels that are God's favorites. He loves the birds that can swim in the tempest; he loves those who can move in the storm, and like the eagle, companion of the lightening flash, can make the wind their chariot, and ride upon forked flames of fire. If in the heat of battle, when your helmet is bruised by some powerful enemy, you can still hold up your head, and say, "I know whom I have believed," and do not swerve from your post, then you are verily a child of heaven; for constancy, endurance, and perseverance, are the true marks of a hero of the cross, and of the invincible warriors of the Lord. Those are no invincible ships that flee away before a storm; he is no brave warrior who hears reports from others that a fort is impregnable, and dares not attack it; but he is brave, who dashes his ship beneath the guns, or runs her well nigh aground, and gives broadside after broadside with a desperate valour against his foe; he who in the smoke and the tempest, in the clamour and roar of the battle, can yet cooly give his commands, and knowing that every man is expected to do his duty, can fight valiantly, he is a brave commander, he is a true soldier, he shall receive from his master a crown of glory. O Christian! cleave to thy Master in the smoke, hold on to thy Lord in the trials, and thou shalt be refined by thine afflictions; yea, thou shalt exceedingly increase, and be profited beyond measure.
 
