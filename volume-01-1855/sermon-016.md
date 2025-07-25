@@ -2,9 +2,8 @@
 
 Sermon - No. 16 Delivered on Sabbath Morning, March 25th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For behold he prayeth"
-> 
-> Acts 9:11.
+> "For behold he prayeth"  
+> Acts 9:11.  
 
 GOD has many methods of quenching persecution. He will not suffer his church to be injured by its enemies, or overwhelmed by its foes; and he is not short of means for turning aside the way of the wicked, or of turning it upside down. In two ways he usually accomplishes his end; sometimes by the confusion of the persecutor, and at others in a more blessed manner, by his conversion. Sometimes, he confuses and confounds his enemies; he makes the diviner mad; he lets the man who comes against him be utterly destroyed, suffers him to drive on to his own destruction, and then at last turns round in triumphant derision upon the man who hoped to have said aha! aha! To the church of God. But at other times, as in this case, he converts the persecutor. Thus, he transforms the foe into a friend; he makes the man who was a warrior against the gospel a soldier for it. Out of darkness he bringeth forth light; out of the eater he getteth honey; yea, out of stony hearts he raiseth up children unto Abraham. Such was the case with Saul. A more furious bigot it is impossible to conceive. He had been bespattered with the blood of Stephen, when they stoned him to death; so officious was he in his cruelty, that the men left their clothes in the charge of a young man named Saul. Living at Jerusalem, in the college of Gamaliel, he constantly came in contact with the disciples of the Man of Nazareth; he laughed at them, he reviled them as they passed along the street; he procured enactments against them, and put them to death; and now, as a crowning point, this were-wolf, having tasted blood, becomes exceeding mad, determines to go to Damascus, that he may glut himself with the gore of men and women; that he may bind the Christians, and bring them to Jerusalem, there to suffer what he considered to be a just punishment for their heresy, and departure from their ancient religion. But oh, how marvelous was the power of God! Jesus stays this man in his mad career; just as with his lance in rest he was dashing against Christ. Christ met him, unhorsed him, threw him on the ground, and questioned him, "Saul, Saul, why persecutest thou me?" He then graciously removed his rebellious heart--gave him a new heart and a right spirit--turned his aim and object--led him to Damascus--laid him prostrate for three days and nights--spoke to him--made mystic sounds go murmuring through his ears--set his whole soul on fire; and when at last he started up from that three days' trance, and began to pray, then it was that Jesus from heaven descended, came in a vision to Ananias, and said, "Arise, and go into the street which is called Straight, and inquire in the house of Judas for one called Saul, of Tarsus; for, behold, he prayeth."
 
@@ -14,13 +13,10 @@ First, here was AN ANNOUNCEMENT; "Go to the house of Saul of Tarsus; for behold,
 
 It was the announcement of a fact which was noticed in heaven. Poor Saul had been led to cry for mercy, and the moment he began to pray, God began to hear. Do you not notice, in reading the chapter, what attention God paid to Saul? He knew the street where he lived; "Go to the street that is called Straight." He knew the house where he resided; "inquire at the house of Judas." He knew his name; it was Saul. He knew the place where he came from; "Inquire for Saul of Tarsus." And he knew that he had prayed. "Behold, he prayeth." Oh! It is a glorious fact, that prayers are noticed in heaven. The poor broken-hearted sinner, climbing up to his chamber, bends his knee, but can only utter his wailing in the language of sighs and tears. Lo! That groan has made all the harps of heaven thrill with music; that tear has been caught by God, and put into the lachrymatory of heaven, to be perpetually preserved. The supplicant, whose fears prevent his words, will be well understood by the Most High. He may only shed one hasty tear; but "prayer is the falling of a tear." Tears are the diamonds of heaven; sighs are a part of the music of Jehovah's throne; for though prayers be
 
-> "The simplest form of speech
-> 
-> That infant lips can try;
-> 
-> so are they likewise the
-> 
-> Sublimest strains that reach The majesty on high."
+> "The simplest form of speech  
+> That infant lips can try;  
+> so are they likewise the  
+> Sublimest strains that reach The majesty on high."  
 
 Let me dilate on this thought a moment. Prayers are noticed in heaven. Oh! I know what is the case with many of you. You think, "If I turn to God, if I seek him, surely I am so inconsiderable a being, so guilty and vile, that it cannot be imagined he would take any notice of me." My friends, harbor no such heathenish ideas. Our God is no god who sits in one perpetual dream; nor doth he clothe himself in such thick darkness that he cannot see; he is not like Baal who heareth not. True, he may not regard battles; he cares not for the pomp and pageantry of kings; he listens not to the swell of martial music; he regards not the triumph and the pride of man; but wherever there is a heart big with sorrow, wherever there is an eye suffused with tears, wherever there is a lip quivering with agony, wherever there is a deep groan, or a penitential sigh, the ear of Jehovah is wide open; he marks it down in the registry of his memory; he puts our prayers, like rose leaves, between the pages of his book of remembrance, and when the volume is opened at last there shall be a precious fragrance springing up therefrom. Oh! Poor sinner, of the blackest and vilest character, thy prayers are heard, and even now God hath said of thee, "Behold, he prayeth." Where was it--in a barn? Where was it--in the closet? Was it at thy bedside this morning, or in this hall? Art thou now glancing thine eye to heaven? Speak, poor heart; did I hear thy lips just now mutter out, "God have mercy upon me, a sinner?" I tell thee, sinner, there is one thing which doth outstrip the telegraph. You know we can now send a message and receive an answer in a few moments; but I read of something in the Bible more swift than the electric fluid. "Before they call I will answer, and while they are speaking I will hear." So, then, poor sinner, thou art noticed; yea, thou art heard by him that sitteth on the throne.
 
@@ -46,54 +42,36 @@ Now for the APPLICATION. A word or two with you, my dear friends, before I send 
 
 First, allow me to address the children of God. Do you not see, my dear brethren, that the best mark of our being sons of God is to be found in our devotion? "Behold, he prayeth." Well, then, does it not follow, as a natural consequence, that the more we are found in prayer the brighter will our evidences be? Perhaps you have lost your evidence this morning; you do not know whether you are a child of God or not; I will tell you where you lost your confidence--you lost it in your closet. I speak what I have felt. I have often gone back from God--never so as to fall finally, I know, but I have often lost that sweet savor of his love which I once enjoyed. I have had to cry,
 
-> "Those peaceful hours I once enjoyed,
-> 
-> How sweet their memory still!
-> 
-> But they have left an aching void,
-> 
-> The world can never fill."
+> "Those peaceful hours I once enjoyed,  
+> How sweet their memory still!  
+> But they have left an aching void,  
+> The world can never fill."  
 
 I have gone up to God's house to preach, without either fire or energy; I have read the Bible, and there has been no light upon it; I have tried to have communion with God, but all has been a failure. Shall I tell where that commenced! It commenced in my closet. I had ceased, in a measure, to pray. Here I stand, and do confess my faults; I do acknowledge that whenever I depart from God it is there it doth begin. O Christians, would you be happy? Be much in prayer. Would ye be victorious? Be much in prayer.
 
-> "Restraining prayer, we cease to fight,
-> 
-> Prayer makes the Christian's armor bright."
+> "Restraining prayer, we cease to fight,  
+> Prayer makes the Christian's armor bright."  
 
 Mrs. Berry used to say, "I would not be hired out of my closet for a thousand worlds." Mr. Jay said, "If the twelve apostles were living near you, and you had access to them, if this intercourse drew you from the closet, they would prove a real injury to your souls." Prayer is the ship which bringeth home the richest freight. It is the soil which yields the most abundant harvest. Brother, when you rise in the morning your business so presses, that with a hurried word or two, down you go into the world, and at night, jaded and tired, you give God the fag end of the day. The consequence is, that you have no communion with him. The reason we have not more true religion now, is because we have not more prayer. Sirs, I have no opinion of the churches of the present day that do not pray. I go from chapel to chapel in this metropolis and I see pretty good congregations; but I go to their prayer-meetings on a week evening, and I see a dozen persons. Can God bless us, can he pour out his Spirit upon us, while such things as these exist? He could, but it would not be according to the order of his dispensations, for he says, "When Zion travails she brings forth children." Go to your churches and chapels with this thought, that you want more prayer. Many of you have no business here this morning. You ought to be in your own places of worship. I do not want to steal away the people from other chapels; there are enough to hear me without them. But though you have sinned this morning, hear while you are here, as much to your profit as possible. Go home and say to your minister, "Sir, we must have more prayer." Urge the people to more prayer. Have a prayer-meeting, even if you have it all to yourself; and if you are asked how many were present, you can say, "Four." "Four! How so?" "Why, there was myself, and God the Father, God the Son, and God the Holy Ghost; and we have had a rich and real communion together." We must have an outpouring of real devotion, or else what is to become of many of our churches? O! May God awaken us all, and stir us up to pray, for when we pray we shall be victorious. I should like to take you this morning, as Samson did the foxes, tie the firebrands of prayer to you, and send you in among the shocks of corn till you burn the whole up. I should like to make a conflagration by my words, and to set all the churches on fire, till the whole has smoked like a sacrifice to God's throne. If you pray, you have a proof that you are a Christian; the less you pray, the less reason have you to believe your Christianity; and if you have neglected to pray altogether, then you have ceased to breathe, and you may be afraid that you never did breathe at all.
 
 And now, my last word is to the ungodly. O, sirs! I could fain wish myself anywhere but here; for if it be solemn work to address the godly, how much more when I come to deal with you. We fear lest, on the one hand, we should so speak to you as to make you trust in your own strength; while, on the other hand, we tremble lest we should lull you into the sleep of sloth and security. I believe most of us feel some difficulty as to the most fit manner to preach to you--not that we doubt but that the gospel is to be preached--but our desire is so to do it, that we may win your souls. I feel like a watchman, who, while guarding a city, is oppressed with sleep; how earnestly does he strive to arouse himself, while infirmity would overcome him. The remembrance of his responsibility bestirs him. His is no lack of will, but of power; and so I hope all the watchmen of the Lord are anxious to be faithful, while, at the same time, they know their imperfection. Truly, the minister of Christ will feel like the old keeper of Eddystone lighthouse; life was failing fast, but, summoning all his strength, he crept round once more to trim the lights before he died. O may the Holy Spirit enable us to keep the beacon-fire blazing, to warn you of the rocks, shoals, and quicksands, which surround you, and may we ever guide you to Jesus, and not to free-will or creature merit. If my friends knew how anxiously I have sought divine direction in the important matter of preaching to sinners, they would not feel as some of them do, when they fancy I address them wrongly. I want to do as God bids me, and if he tells me to speak to the dry bones and they shall live, I must do it, even if it does not please others; otherwise I should be condemned in my own conscience, and condemned of God. Now, with all the solemnity that man can summon, let me say that a prayerless soul is a Christless soul. As the Lord liveth, you who never prayed are without God, without hope, and strangers from the commonwealth of Israel. You who never know what a groan is, or a falling tear, are destitute of vital godliness. Let me ask you, sirs, whether you have ever thought in what an awful state you are? You are far from God, and therefore God is angry with you; for "God is angry with the wicked every day." O, sinner! Lift thine eyes and behold the frowning countenance of God, for he is angry with you. And I beseech you, as you love yourselves, just for one moment contemplate what will become of you, if living as you are, ye should at last die without prayer. Don't think that one prayer on your deathbed will save you. Deathbed prayer is a deathbed farce generally, and passes for nothing; it is a coin that will not ring in heaven, but is stamped by hypocrisy, and made of base metal. Take heed sirs. Let me ask you, if you have never prayed, what will you do? It were a good thing for you, if death were an eternal sleep; but it is not. If you find yourself in hell, oh, the racks and pains! But I will not harrow up your feelings by attempting to describe them. May God grant you never may feel the torments of the lost. Only conceive that poor wretch in the flames who is saying, "O for one drop of water, to cool my parched tongue!" See how his tongue hangs from between his blistered lips! How it excoriates and burns the roof of his mouth, as if it were a firebrand. Behold him crying for a drop of water. I will not picture the scene. Suffice it for me to close up by saying, that the hell of hells will be to thee, poor sinner, the thought that it is to be forever. Thou wilt look up there on the throne of God, and it shall be written "forever!" When the damned jingle the burning irons of their torments, they shall say "forever!" When they howl, echo cries "forever!"
 
-> "Forever' is written on their racks,
-> 
-> 'Forever' on their chains;
-> 
-> 'Forever' burneth in the fire,
-> 
-> 'Forever' ever reigns."
+> "Forever' is written on their racks,  
+> 'Forever' on their chains;  
+> 'Forever' burneth in the fire,  
+> 'Forever' ever reigns."  
 
 Doleful thought! "If I could but get out, then I should be happy. If there were a hope of deliverance, then I might be peaceful; but I am here forever!" Sirs, if ye would escape eternal torments, if ye would be found amongst the numbers of the blessed, the road to heaven can only be found by prayer--by prayer to Jesus, by prayer for the Spirit, by supplication at his mercy seat. "Turn ye, turn ye, why will ye die, O house of Israel? As I live, saith the Lord, I have no pleasure in the death of him that dieth, but had rather that he should turn unto me and live." "The Lord is gracious and full of compassion." Let us go unto him and say, "He shall heal our backslidings, he shall love us freely and forgive us graciously, for his Son's name's sake." Oh! If I may but win one soul to-day, I will go home contented. If I may but gain twenty, then I will rejoice. The more I have, the more crowns I shall wear. Wear! No, I will take them all at once, and cast them at Jesus' feet, and say, "Not unto me, but unto thy name be all the glory, forever."
 
-> "Prayer was appointed to convey
-> 
-> The blessings God designs to give;
-> 
-> Long as they live, should Christians pray,
-> 
-> For only while they pray, they live.
-> 
-> "And wilt thou still in silence lie,
-> 
-> When Christ stands waiting for thy prayer?
-> 
-> My soul, thou hast a friend on high,
-> 
-> Arise, and try thine interest there.
-> 
-> "Tis prayer supports the soul that's weak,
-> 
-> Though thought be broken, language lame;
-> 
-> Pray, if thou canst, or canst not speak,
-> 
-> And pray with faith in Jesus' name."
+> "Prayer was appointed to convey  
+> The blessings God designs to give;  
+> Long as they live, should Christians pray,  
+> For only while they pray, they live.  
+> "And wilt thou still in silence lie,  
+> When Christ stands waiting for thy prayer?  
+> My soul, thou hast a friend on high,  
+> Arise, and try thine interest there.  
+> "Tis prayer supports the soul that's weak,  
+> Though thought be broken, language lame;  
+> Pray, if thou canst, or canst not speak,  
+> And pray with faith in Jesus' name."  

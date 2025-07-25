@@ -2,9 +2,8 @@
 
 Sermon No. 28 - Delivered on Sabbath Morning, June 3, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And I will make them and the places round about my hill a blessing; and I will cause the shower to come down in his season; there shall be showers of blessing."
-> 
-> Ezekiel 34:26.
+> "And I will make them and the places round about my hill a blessing; and I will cause the shower to come down in his season; there shall be showers of blessing."  
+> Ezekiel 34:26.  
 
 THE chapter (Ezek. 34) that I read at the commencement of the service is a prophetical one; and, I take it, it has relation, not to the condition of the Jews during the captivity and their subsequent happiness when they should return to their land, but to a state into which they should they should fall after they had been restored to their country under Nehemiah and Ezra, and in which state they still continue to the present day. The prophet tells us that the shepherds then, instead of feeding the flock, fed themselves; they trod the grass, instead of allowing the sheep to eat it, and they fouled the waters with their feet. That is an exact description of the state of Judea after the captivity; for then there arose the Scribes and Pharisees, who took the key of knowledge, and would not enter themselves, nor allow others to enter; who laid heavy burdens on men's shoulders, and would not touch them with one of their fingers; who made religion to consist entirely in sacrifices and ceremonies, and imposed such a burden on the people, that they cried out, "What a weariness it is!" That same evil has continued with the poor Jews to the present day; and should you read the nonsense of the Talmud and the Gemara, and see the burdens they laid upon them you would say, "Verily they have idle shepherds;" they give the sheep no food; they trouble them with fanciful superstitions and silly views, and instead of telling them that the Messiah is already come, they delude them with the idea that there is a Messiah yet to come, who shall restore Judea, and raise it to its glory. The Lord pronounces a curse upon these Pharisees and Rabbis, these who "thrust with side and with shoulder," those evil shepherds who will not suffer the sheep to lie down, neither will feed them with good pasture. But, after having described this state, he prophesies better times for the poor Jew. The day is coming when the careless shepherds shall be as naught; when the power of the Rabbis shall cease, when the traditions of the Mishna and the Talmud shall be cast aside. 
 
@@ -38,9 +37,8 @@ But next, there is the neighborhood. I am paralyzed sometimes, when I think that
 
 What else do we mean by the places round about our hill? We mean, the churches adjacent. I cannot but rejoice in the prosperity of many churches around us; but as our beloved brother, Mr. Sherman, said, last Thursday morning, "It is not invidious to say, that there are very few churches that are in a prosperous state, and that, taking the churches at large, they are in a deplorable condition. It is only here and there," said he, "that God is pouring out his Spirit; but most of the churches are lying, like barges at Blackfriar's Bridge when the tide is down--right in the mud; and all the king's horses and all the king's men cannot pull them off, till the tide comes and sets them afloat." Who can tell, then, what good may be done by this church? If there is a light in this candlestick, let others come and light their candles by it. If there is a flame here, let the flame spread, until all the neighboring churches shall be lit up with the glory. Then, indeed, shall we be made the rejoicing of the earth; for there is never a revival in one spot, but it shall affect others. Who shall tell, then, where it shall end?
 
-> "Fly abroad, thou mighty gospel;
-> 
-> Win and conquer, never cease."
+> "Fly abroad, thou mighty gospel;  
+> Win and conquer, never cease."  
 
 And it never will cease, when God once makes the places round about his hill a blessing.
 
@@ -50,15 +48,11 @@ First, here is sovereign mercy. Listen to these words; "I will give them the sho
 
 Notice, next, it is needed grace. "I will give them showers." What would the ground do without showers? You may break the clods, you may sow your seeds; but what can you do without the rain? Ah! you may prepare your barn, and sharpen your sickles; but your sickles will be rusted before you have any wheat, unless there are showers. They are needed. So is the divine blessing.
 
-> "In vain Apollos sow the seed,
-> 
-> And Paul may plant in vain;
-> 
-> In vain you come here, in vain you labor, in vain you give you money.
-> 
-> "Till God the plenteous shower bestows,
-> 
-> And sends salvation down."
+> "In vain Apollos sow the seed,  
+> And Paul may plant in vain;  
+> In vain you come here, in vain you labor, in vain you give you money.  
+> "Till God the plenteous shower bestows,  
+> And sends salvation down."  
 
 Then, next, it is plenteous grace. "I will send them showers." It does not say, "I will send them drops," but "I will send them showers." "It seldom rains but it pours." So it is with grace. If God gives a blessing, he usually gives it in such a measure that there is not room enough to receive it. Where are we going to hold God's blessing that we have obtained already? I told the people on Thursday that God had promised us, that if we brought the tithes into the storehouse, he would send us such a blessing that we would not have room to hold it. We have tried it, and the promise has been fulfilled, as it always will be as long as we rely upon it. Plenteous grace! Ah! we shall want plenteous grace, my friends; plenteous grace to keep us humble, plenteous grace to make us prayerful, plenteous grace to make us holy, plenteous grace to make us zealous, plenteous grace to make us truthful, plenteous grace to preserve us through this life, and at last to land us in heaven. We cannot do without showers of grace. How many are there here that have been dry in a shower of grace? Why, there is a shower of grace here; but how is it that it does not fall on some of the people? It is because they put up the umbrella of their prejudice; and though they sit here, even as God's people sit, even when it rains, they have such a prejudice of God's Word, they do not want to hear it, they do not want to love it, and it runs off again. Nevertheless, the showers are there; and we will thank god for them where they do fall.
 
@@ -68,12 +62,11 @@ We have one thought more, and then we have done. Here is a varied blessing. "I w
 
 Now, then, there is a promise in that Bible. We have tried to explain and enlarge upon it. What shall we do with it?
 
-> "In that book there hidden lies
-> 
-> A pearl of price unknown."
+> "In that book there hidden lies  
+> A pearl of price unknown."  
 
 Well, we have examined this rich promise; we as a church are looking at it; we are saying, "Is that ours?" I think most of the members will say, "It is; for God has poured out upon us showers of blessing in their season." Well, then, if the promise is ours, the precept is ours, as much as the promise. Ought we not to ask God to continue to make us a blessing? Some say I did so-and-so when I was a young man; but supposing you are fifty, you are not an old man now. Is there not something you can do? It is all very well to talk about what you have done; but what are you doing now? I know what it is with some of you; you shined brightly once, but your candle has not been snuffed lately, and so it does not shine so well. May God take away some of the worldly cares, and snuff the candles a little! You know there were snuffers and snuffer-trays provided in the temple for all the candles, but no extinguishers; and if there should be a poor candle here this morning, with a terrific snuff, that has not given a light for a long while, you will have no extinguisher from me, but I hope you will always have a snuffing. I thought the first time when I came to the lamps this morning it would be to snuff them. That has been the intention of my sermon--to snuff you a little--to set you to work for Jesus Christ. O Zion, shake thyself from the dust! O Christian, raise thyself from thy slumbers! Warrior, put on thy armor! Soldier, grasp thy sword! The captain sounds the alarm of war. O sluggard! why sleepest thou? O heir of heaven, has not Jesus done so much for thee, that thou shouldst live to him? O beloved brethren, purchased with redeeming mercies, girt about with loving-kindness and with tenderness,
 
-> "Now for a shout of sacred joy."
+> "Now for a shout of sacred joy."  
 
 and after that, to the battle! The little seed has grown to this; who knoweth what it shall be? Only let us together strive, without variance. Let us labor for Jesus. Never did men have so fair an opportunity, for the last hundred years. "There is a tide that, taken at the flood, leads on to fortune." Shall you take it at the flood? Over the bar, at the harbor's mouth! O ship of heaven, let thy sails be out; let not thy canvas be furled; and the wind will blow us across the seas of difficulty that lie before us. O! that the latter day might have its dawning even in this despised habitation! O my God! from this place cause the first wave to spring, which shall move another, and then another, till the last great wave shall sweep over the sands of time, and dash against the rocks of eternity, echoing as it falls, "Hallelujah! Hallelujah! Hallelujah! the Lord God Omnipotent reigneth!"

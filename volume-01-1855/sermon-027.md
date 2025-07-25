@@ -2,9 +2,8 @@
 
 Sermon No. 27 - Delivered on Sabbath Evening, May 27, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "His name shall endure for ever."
-> 
-> Psalm 72:17.
+> "His name shall endure for ever."  
+> Psalm 72:17.  
 
 NO ONE HERE requires to be told that this is the name of Jesus Christ, which "shall endure for ever." Men have said of many of their works, "they shall endure for ever;" but how much have they been disappointed! In the age succeeding the flood, they made the brick, they gathered the slime, and when they had piled old Babel's tower, they said, "This shall last for ever." But God confounded their language; they finished it not. By his lightnings he destroyed it, and left it a monument of their folly. Old Pharoah and the Egyptian monarchs heaped up their pyramids, and they said, "They shall stand for ever," and so indeed they do stand; but the time is approaching when age shall devour even these. So with all the proudest works of man, whether they have been his temples or his monarchies, he has written "everlasting" on them; but God has ordained their end, and they have passed away. The most stable things have been evanescent as shadows, and the bubbles, of an hour, speedily destroyed at God's bidding. Where is Nineveh, and where is Babylon? Where the cities of Persia? Where are the high places of Edom? Where are Moab, and the princes of Ammon? Where are the temples or the heroes of Greece? Where the millions that passed from the gates of Thebes? Where are the hosts of Xerxes, or where the vast armies of the Roman emperors? Have they not passed away? And though in their pride they said, "This monarchy is an everlasting one; this queen of the seven hills shall be called the eternal city," its pride is dimmed; and she who sat alone, and said, "I shall be no widow, but a queen for ever," she hath fallen, hath fallen, and in a little while she shall sink like a millstone in the flood, her name being a curse and a byword, and her site the habitation of dragons and owls. Man calls his works eternal--God calls them fleeting; man conceives that they are built of rock--God says, "Nay, sand, or worse than that--they are air." Man says he erects them for eternity--God blows but for a moment, and where are they? Like baseless fabrics of a vision, they are passed and gone for ever.
 
@@ -30,29 +29,18 @@ Can Christ's name be forgotten? No; it is painted on the skies; it is written on
 
 And so shall the power of his name. Do you inquire what this is? Let me tell you. Seest thou yonder thief hanging upon the cross? Behold the fiends at the foot thereof, with open mouths; charming themselves with the sweet thought, that another soul shall give them meat in hell. Behold the death-bird, fluttering his wings o'er the poor wretch's head; vengeance passes by and stamps him for her own; deep on his breast is written "a condemned sinner;" on his brow is the clammy sweat, expressed from him by agony and death. Look in his heart; it is filthy with the crust of years of sin; the smoke of lust is hanging within in black festoons of darkness; his whole heart is hell condensed. Now, look at him. He is dying. One foot seems to be in hell; the other hangs tottering in life--only kept by a nail. There is a power in Jesus' eye. That thief looks: he whispers, "Lord, remember me." Turn your eye again there. Do you see that thief ? Where is the clammy sweat? It is there. Where is that horrid anguish? It is not there. Positively, there is a smile upon his lips. The fiends of hell, where are they ? There are none: but a bright seraph is present, with his wings outspread, and his hands ready to snatch that soul, now a precious jewel, and bear it aloft to the palace of the great King. Look within his heart; it is white with purity. Look at his breast; it is not written "condemned," but "justified." Look in the book of life: his name is graven there. Look on Jesus' heart: there on one of the precious stones he bears that poor thief's name. Yea, once more, look! seest thou that bright one amid the glorified, clearer than the sun, and fair as the moon? That is the thief! That is the power of Jesus; and that power shall endure for ever. He who saved the thief can save the last man who shall ever live; for still
 
-> "There is a fountain filled with blood,
-> 
-> Drawn from Immanuel's veins;
-> 
-> And sinners plunged beneath that flood
-> 
-> Lose all their guilty stains.
-> 
-> The dying thief rejoiced to see
-> 
-> That fountain in his day;
-> 
-> O may I there, tho' vile as he,
-> 
-> Wash all my sins away!
-> 
-> Dear dying Lamb! that precious blood
-> 
-> Shall never lose its power,
-> 
-> Till all the ransomed church of God
-> 
-> Be saved, to sin no more."
+> "There is a fountain filled with blood,  
+> Drawn from Immanuel's veins;  
+> And sinners plunged beneath that flood  
+> Lose all their guilty stains.  
+> The dying thief rejoiced to see  
+> That fountain in his day;  
+> O may I there, tho' vile as he,  
+> Wash all my sins away!  
+> Dear dying Lamb! that precious blood  
+> Shall never lose its power,  
+> Till all the ransomed church of God  
+> Be saved, to sin no more."  
 
 His powerful "name shall endure for ever."
 

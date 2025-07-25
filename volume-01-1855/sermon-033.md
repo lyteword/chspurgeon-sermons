@@ -2,9 +2,8 @@
 
 Sermon No. 33 - Delivered on Sabbath Morning, July 8, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "He shall choose our inheritance for us."
-> 
-> Psalm 47:4.
+> "He shall choose our inheritance for us."  
+> Psalm 47:4.  
 
 THE CHRISTIAN IS ALWAYS pleased and delighted when he can see Christ in the Scriptures. If he can but detect the footstep of his lord, and discover that the sacred writers are making some reference to him, however indistinct or dark he will rejoice there at: for all the Scriptures are nothing except as we find Christ in them. St. Austin says, "The Scriptures are the swaddling bands of the man-child--Christ Jesus, and were all intended to be hallowed garments in which to wrap him "So they are; and it is our pleasant duty to lift the veil, or remove the garment of Jesus and so behold him in his person, in his nature, or his offices. Now, this text is concerning Jesus Christ--he it is who is to "choose our inheritance for us," he in whom dwelleth all the treasures of wisdom and knowledge is the great Being who is selected as the head of predestination--to choose our lot and our portion, and fix our destiny. Verily, beloved brethren, you and I can rejoice in this great fact, that our Saviour chooses for us. For were we all to be assembled together in some great plain, as Israel was of old, to elect for ourselves a king, we should not propose a second candidate. There would be one who stands like Saul, the son of Kish, head and shoulders taller than all the rest, whom we should at once select to be our king and ruler of Providence for us. We would not ask for some prudent sage or deeply taught philosopher; we would not choose the most experienced senior; but, without a single moment's hesitation, directly we saw Jesus Christ, in the majesty of his person, we should say, in the words of the Psalmist, He who redeemed us, he who ransomed us, he who loved us--"He shall choose our inheritance for us."
 
@@ -48,11 +47,11 @@ Having thus spoken upon the extent of the surrender very briefly, I might hint a
 
 But now another thought. What was the cause of the Psalmist saying this? How came he to be able to feel it? for there are few Christians who can really affirm it and stand to it: "Thou shalt choose my inheritance for me." I think the cause is to be found in this, that he had a true experience of God's wisdom. Poor David could indeed thank God for having chosen his inheritance for him, for he had given him a very goodly one. He had put him in a king's mansion; he had made him conqueror over Goliath, and had raised him to be ruler over a great people. David, by a practical experience, could say, "Thou shalt choose my inheritance for me." Some of you cannot say it, can you? What is the reason? because you have never witnessed Divine guidance, you have never looked to see the hand that supplies your mercies. Some of us who have seen that hand in a few instances are obliged to say from the very force of circumstances,
 
-> "Here I raise my Ebenezer."
+> "Here I raise my Ebenezer."  
 
 Then, again--
 
-> "Hither by thy help I've come."
+> "Hither by thy help I've come."  
 
 I hope and trust in that same good pleasure which has guided me hitherto, that it will bring me safely home.
 
@@ -62,7 +61,7 @@ I might finish, if I had time, by telling you the good effects that this produce
 
 And now you who have been meddling with Christ's business, I have been preaching this to you. You know you sometimes sing--
 
-> "Tis mine to obey, tis his to provide,"
+> "Tis mine to obey, tis his to provide,"  
 
 but then you have been meddling with Christ's business, you have been leaving your own; you have been trying the "providing" part and leaving the "obeying?" to somebody else. Now, you take the obeying part, and let Christ manage the providing. Come then, brethren, doubting and fearful ones, come and see your father's storehouse, and ask whether he will let you starve while he has stored away such plenty in his garner! Come and look at his heart of mercy, see if that will ever fail! Come and look at his inscrutable wisdom and see if that will ever go amiss: Above all, look up there to Jesus Christ your intercessor, and ask yourself, "while he pleads, can my Father forget me?" And if he remembers even sparrows, will he forget one of the least of his poor children? "Cast thy burden upon the Lord and he will sustain thee," "He will never suffer the righteous to be moved."
 

@@ -2,9 +2,8 @@
 
 Sermon No. 4 - Delivered on Sabbath Morning, January 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you."
-> 
-> John 14:16-17.
+> "And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you."  
+> John 14:16-17.  
 
 You will be surprised to hear me announce that I do not intend this morning to say anything about the Holy Spirit as the Comforter. I propose to reserve that for a special Sermon this evening. In this discourse I shall endeavor to explain and enforce certain other doctrines, which I believe are plainly taught in this text, and which I hope God the Holy Ghost may make profitable to our souls. Old John Newton once said, that there were some books which he could not read;--they were good and sound enough; but, said he, "they are books of halfpence;--you have to take so much in quantity before you have any value; there are other books of silver, and others of gold; but I have one book that is a book of bank notes; and every leaf is a bank-note of immense value." So I found with this text: that I had a bank-note of so large a sum, that I could not tell it out all this morning. I should have to keep you several hours before I could unfold to you the whole value of this precious promise--one of the last which Christ gave his people.
 

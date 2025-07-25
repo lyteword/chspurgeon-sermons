@@ -2,9 +2,8 @@
 
 Sermon No. 45 - Delivered on Sabbath Morning, October 7, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Brethren, if any of you do err from the truth; and one convert him; Let him know that he which converteth sinner from the error of his way, shall save a soul from death, and shall hide a multitude of sins."
-> 
-> James 5:19-20.
+> "Brethren, if any of you do err from the truth; and one convert him; Let him know that he which converteth sinner from the error of his way, shall save a soul from death, and shall hide a multitude of sins."  
+> James 5:19-20.  
 
 THE TRUE BELIEVER is always pleased to hear of anything which concerns the salvation of his own soul. He rejoices to hear of the covenant plan drawn up for him from all eternity, of the great fulfillment on the cross at Calvary, of all the stipulations of the Saviour, of the application of them by the Holy Spirit, of the security which the believer has in the person of Christ, and of those gifts and graces which accompany salvation to all those who are heirs thereof: But I feel certain that, deeply pleased as we are when we hear of things touching our own salvation and deliverance from hell, we, as preachers of God, and as new creatures in Christ, being made like unto him, have true benevolence of spirit, and therefore are always delighted when we hear, speak, or think, concerning the salvation of others. Next to our own salvation, I am sure, as Christians, we shall always prize the salvation of other people; we shall always desire that what has been so sweet to our own taste, may also be tasted by others; and what has been of so inestimably precious a value to our own souls, may also become the property of all those whom God may please to shall unto everlasting life. I am sure, beloved, now that I am about to preach concerning the conversion of the ungodly, you will take as deep an interest in it as if it were something that immediately concerned your own souls, for, after all, such were some of you once. You were unconverted and ungodly; and had not God taken thought for you, and set his people to strive for your souls, where had you been? Seek, then, to exercise that charity and benevolence towards others which God and God's people first exercised towards you.
 

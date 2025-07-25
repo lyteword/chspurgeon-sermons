@@ -2,9 +2,8 @@
 
 Sermon No. 30 - Delivered on Sabbath Morning, June 17, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "The power of the Holy Ghost."
-> 
-> Romans 15:13.
+> "The power of the Holy Ghost."  
+> Romans 15:13.  
 
 POWER is the special and peculiar prerogative of God, and God alone. "Twice have I heard this; that power belongeth unto God." God is God; and power belongeth to him. If he delegates a portion of it to his creatures, yet still it is his power. The sun, although he is "like a bridegroom coming out of his chamber, and rejoiceth as a strong man to run his race," yet has no power to perform his motions except as God directs him. The stars, although they travel in their orbits, and none could stay them, yet have neither might nor force, except that which God daily infuses into them. The tall archangel, near his throne, who outshines a comet in its blaze, though he is one of those who excel in strength, and hearken to the voice of the commands of God, yet has no might except that which his Maker gives to him. As for Leviathan, who so maketh the sea to boil like a pot, that one would think the deep were hoary; as for Behemoth, who drinketh up Jordan at a draught, and boasteth that he can snuff up rivers; as for those majestic creatures that are found on earth, they owe their strength to him who fashioned their bones of steel, and made their sinews of brass. And when we think of man, if he has might or power, it is so small and insignificant, that we can scarcely call it such; yea, when it is at its greatest--when he sways his sceptre, when he commands hosts, when he rules nations--still the power belongeth unto God; and it is true, "Twice have I heard this, that power belongeth unto God." This exclusive prerogative of God, is to be found in each of the three persons of the glorious Trinity. The Father hath power; for by his word were the heavens made, and all the hosts of them; by his strength all things stand, and through him they fulfil their destiny. The Son hath power; for, like his Father, he is the Creator of all things; "Without him was not anything made that was made," and "by him all things consist." And the Holy Spirit hath power. It is concerning the power of the Holy Ghost that I shall speak this morning; and may you have a practical exemplification of that attribute in your own hearts, when you shall feel that the influence of the Holy Ghost is being poured out upon me, so that I am speaking the words of the living God to your souls, and bestowed upon you when you are feeling the effects of it in your own spirits.
 
@@ -16,29 +15,18 @@ First, the Spirit has manifested the omnipotence of his power in creation works;
 
 And the Spirit of God moved upon the face of the waters." We know not how remote the period of the creation of this globe may be--certainly many millions of years before the time of Adam. Our planet has passed through various stages of existence, and different kinds of creatures have lived on its surface, all of which have been fashioned by God. But before that era came, wherein man should be its principal tenant and monarch, the Creator gave up the world to confusion. He allowed the inward fires to burst up from beneath, and melt all the solid matter, so that all kinds of substances were commingled in one vast mass of disorder. The only name you could give to the world, then, was that it was a chaotic mass of matter; what it should be, you could not guess or define. It was entirely "without form and void; and darkness was upon the face of the deep." The Spirit came, and stretching his broad wings, bade the darkness disperse, and as he moved over it, all the different portions of matter came into their places, and it was no longer "without form, and void;" but became round, like its sister planets, and moved, singing the high praises of God--not discordantly, as it had done before, but as one great note in the vast scale of creation. Milton very beautifully describes this work of the Spirit, in thus bringing order out of confusion, when the King of Glory, in his powerful Word and Spirit, came to create new worlds:--
 
-> "On heavenly ground they stood; and from the shore
-> 
-> They viewed the vast, immeasurable abyss,
-> 
-> Outrageous as a sea, dark, wasteful, wild,
-> 
-> Up from the bottom turned by furious winds
-> 
-> And surging waves, as mountains, to assault
-> 
-> Heaven's height, and with the centre mix the pole.
-> 
-> "Silence, ye troubled waves, and thou deep, peace,
-> 
-> Said then the Omnific Word; your discord end.
-> 
-> Then on the watery calm,
-> 
-> His brooding wings the Spirit of God outspread
-> 
-> And vital virtue infused, and vital warmth
-> 
-> Throughout the fluid mass."
+> "On heavenly ground they stood; and from the shore  
+> They viewed the vast, immeasurable abyss,  
+> Outrageous as a sea, dark, wasteful, wild,  
+> Up from the bottom turned by furious winds  
+> And surging waves, as mountains, to assault  
+> Heaven's height, and with the centre mix the pole.  
+> "Silence, ye troubled waves, and thou deep, peace,  
+> Said then the Omnific Word; your discord end.  
+> Then on the watery calm,  
+> His brooding wings the Spirit of God outspread  
+> And vital virtue infused, and vital warmth  
+> Throughout the fluid mass."  
 
 This you see, then, is the power of the Spirit. Could we have seen that earth all in confusion, we should have said, "Who can make a world out of this?" The answer would have been, "The power of the Spirit can do it. By the simple spreading of his dove-like wings, he can make all the things come together. Upon that there shall be order where there was naught but confusion." Nor is this all the power of the Spirit. We have seen some of his works in creation. But there was one particular instance of creation in which the Holy Spirit was more especially concerned; viz., the formation of the body of our Lord Jesus Christ. Though our Lord Jesus Christ was born of a woman, and made in the likeness of sinful flesh, yet, the power that begat him was entirely in God the Holy Spirit--as the Scriptures express it, "The Holy One of Israel shall overshadow thee." He was begotten, as the Apostles' Creed says, begotten of the Holy Ghost. "That holy thing which is born of thee shall be called the Son of the Highest." The corporeal frame of the Lord Jesus Christ was a master-piece of the Holy Spirit. I suppose his body to have excelled all others in beauty; to have been like that of the first man, the very pattern of what the body is to be in heaven, when it shall shine forth in all its glory. That fabric, in all its beauty and perfection, was modeled by the Spirit. "In his book were all the members written, when as yet there were none of them." He fashioned and formed him; and here again we have another instance of the creative energy of the Spirit.
 
@@ -56,13 +44,10 @@ Now for the second point, THE INWARD AND SPIRITUAL POWER OF THE HOLY SPIRIT. Wha
 
 First, in that the Holy Ghost has a power over men's hearts. Now, men's hearts are very hard to affect. If you want to get at them for any worldly object, you can do it. A cheating world can win man's heart; a little gold can win man's heart; a trump of fame and a little clamor of applause can win man's heart. But there is not a minister breathing that can win man's heart himself. He can win his ears and make them listen; he can win his eyes, and fix those eyes upon him; he can win the attention, but the heart is very slippery. Yes! The heart is a fish that troubles all gospel fishermen to hold. You may sometimes pull it almost all out of the water; but, slimy as an eel, it slippeth between your fingers, and you have not captured it after all. Many a man has fancied that he has caught the heart, but has been disappointed. It would take a strong hunter to overtake the hart on the mountains. It is too fleet for human foot to approach. The Spirit alone has power over man's heart. Do you every try your power on a heart? If any man thinks that a minister can convert the soul, I wish he would try. Let him go and be a Sabbath School teacher. He shall take his class, he shall have the best books that can be obtained, he shall have the best rules, he shall draw his lines of circumvallation about his spiritual Sebastopol, he shall take the best boy in his class, and if he is not tired in a week I shall be very much mistaken. Let him spend four or five Sabbaths in trying; but he will say, "the young fellow is incorrigible." Let him try another. And he will have to try another, and another and another before he will manage to convert one. He will soon find "it is not by might nor power, but by my Spirit, saith the Lord." Can a minister convert? Can he touch the heart? David said, "Your hearts are as fat as grease." Aye, that is quite true; and we cannot get through so much grease at all. Our sword cannot get at the heart, it is encased in so much fatness; it is harder than a nether millstone. Many a good old Jerusalem blade has been blunted against the hard heart. Many a piece of the true steel that God has put into the hand of his servants has had the edge turned by being set up against the sinner's heart. We cannot reach the soul, but the Holy Spirit can. "My beloved can put in his hand by the hole in the door, and my bowels will move for sin." He can give a sense of blood-bought pardon that shall dissolve a heart of stone. He can
 
-> "Speak with that voice which wakes the dead
-> 
-> And bids the sinner rise;
-> 
-> And makes the guilty conscience dread
-> 
-> The death that never dies."
+> "Speak with that voice which wakes the dead  
+> And bids the sinner rise;  
+> And makes the guilty conscience dread  
+> The death that never dies."  
 
 He can make Sinai's thunders audible; yea, and he can make the sweet whisperings of Calvary enter into the soul. He has power over the heart of man. And here is a glorious proof of the omnipotence of the Spirit that he has rule over the heart.
 
@@ -80,13 +65,10 @@ One more work of the Spirit, which will especially manifest his power--the gener
 
 I have thus attempted to speak of the power of the Spirit, and I trust I have shown it to you. We must now have a moment or two for practical inference. The Spirit is very powerful, Christian! What do you infer from that fact? Why, that you never need distrust the power of God to carry you to heaven. O how that sweet verse was laid to my soul yesterday!
 
-> "His tried Almighty arm
-> 
-> is raised for your defense;
-> 
-> Where is the power can reach you there?
-> 
-> Or what can pluck you thence?"
+> "His tried Almighty arm  
+> is raised for your defense;  
+> Where is the power can reach you there?  
+> Or what can pluck you thence?"  
 
 The power of the Holy Spirit is your bulwark, and all his omnipotence defends you. Can your enemies overcome omnipotence? Then they can conquer you. Can they wrestle with Deity, and hurl him to the ground? Then they might conquer you. For the power of the Spirit is our power; the power of the Spirit is our might.
 

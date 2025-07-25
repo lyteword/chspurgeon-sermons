@@ -2,9 +2,8 @@
 
 Sermon No. 35 - Delivered on Sabbath Morning, August 12, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "I have chosen thee in the furnace of affliction."
-> 
-> Isaiah 48:10.
+> "I have chosen thee in the furnace of affliction."  
+> Isaiah 48:10.  
 
 WHEN travelling through the country, you have often noticed that in different spots the old rocks peep out from under the soil, as if they would let us know what earth's bones are made of, and what are the solid foundations of this globe. So in searching through the Scriptures you will find here instruction, here admonition, here rebuke, and here comfort, but very frequently you will discover the old doctrines like old rocks rising amid other matters; and when you little expect it you will find election, redemption, justification, effectual calling, final perseverance or covenant security introduced, just to let us see what the solid foundations of the gospel are, and what are those deep and mysterious truths on which the entire gospel system must rest. So in this text, for instance, when there seemed in the chapter but little need of the mention of the doctrine of God's choosing his people, on a sudden the Holy Spirit moves the prophet's lips and bids him utter this sentiment, "I have chosen thee;" I have chosen thee by my eternal, sovereign, distinguishing grace; I have chosen thee in covenant purposes; I have chosen thee according to my electing love; "I have chosen thee in the furnace of affliction." Well, it is a good thing that they are mentioned sometimes when we little expect it; for these are things which we are apt to forget. The tendency of the many in the present age is to slight all doctrinal knowledge, and to say, "We care not whether a thing be true or not." This age is a superficial one. Few ministers plough deeper than the top soil; there are very few who come into the inward matter of the gospel, and deal with the stable things on which our faith must rest; and therefore we bless and adore the Holy Spirit that he so frequently pens these glorious truths to make us recollect that there is such a thing as election, after all. "I have chosen thee in the furnace of affliction." How ever, I am not going to dwell upon that, but after making one or two preliminary observations, I shall proceed to discuss the subject of the furnace of affliction being the place where God's chosen ones are continually found.
 
@@ -16,11 +15,9 @@ Therefore thus saith the Lord God; Because ye are all become dross, behold, ther
 
 But the second preliminary remark I would make is on the immutability of God's love to his people. "I have chosen thee in the furnace of affliction." I chose thee before thou wast here; yea, I chose thee before thou hadst a being, and when all creatures lay before me in the pure mass of creatureship, and I could create or not create as I pleased, I chose and created thee a vessel of mercy appointed unto eternal life: and when thou in common with the whole race, hadst fallen, though I might have crushed thee with them, and sent thee down to hell, I chose thee in thy fallen condition, and I provided for thy redemption: in the fulness of time I sent my Son, who fulfilled my law and made it honourable. I chose thee at thy birth, when a helpless infant thou didst sleep upon thy mother's breast. I chose thee when thou didst grow up in childhood with all thy follies and thy sins. Determined to save thee, I watched o'er thy path when, Satan's blind slave, thou didst sport with death. I chose thee when, in manhood, thou didst sin against me with a high hand; when thy unbridled lusts dashed thee on madly towards hell. I chose thee, then, when thou wast a blasphemer and a swearer, and very far from me. I chose thee, then, even when thou wast dead in trespasses and sins: I loved thee, and still thy name was kept in my book. The hour appointed came; I redeemed thee from thy sin; I made thee love; I spake to thee, and made thee leave thy sins and become my child; and I chose thee then over again. Since that hour how often hast thou forgotten me! but I have never forgotten thee. Thou hast wandered from me; thou hast rebelled against me; yea, thy words have been exceeding hot against me, and thou hast robbed me of mine honour; but I chose thee even then; and now that I put thee in the furnace thinkest thou that my love is changed? Am I a summer friend fleeing from thee in the winter? Am I one who loves thee in prosperity and doth cast thee off in adversity? Nay; hearken to these my words. thou furnace-tried one, "I have chosen thee in the furnace of affliction." Think not, then, when you are in trouble that God has cast you off. Think he has cast you off if you never have any trials and troubles, but when in the furnace, say, "Did he not tell me this beforehand?"
 
-> "Temptation or pain?--he told me no less:
-> 
-> The heirs of salvation, I know from his word,
-> 
-> Through much tribulation must follow their Lord."
+> "Temptation or pain?--he told me no less:  
+> The heirs of salvation, I know from his word,  
+> Through much tribulation must follow their Lord."  
 
 O blessed reflection! let it comfort us: his love does not change; it cannot be made to alter; the furnace cannot scorch us, not a single hair of our head can perish; we are as safe in the fire as we are out of it; he loves us as much in the depths of tribulation as he does in the heights of our joy and exultation. Oh! thou who art beloved of friends, "when thy father and mother forsake thee the Lord will take thee up." Thou who canst say, "He that ate bread with me hath lifted up his heel against me," "though all men forsake thee," saith Jehovah, "yet will not I." O Zion, say not thou art forgotten of God; hear him when he speaks--"Can a woman forget her sucking child that she should not have compassion on the son of her womb? Yea, they may forget, yet will I never forget thee." "I have graven thee upon my hands; thy walls are continually before me." Rejoice then, O Christian, in the second thought, that God's love does not fail in the furnace, but is as hot as the furnace, and hotter still.
 
@@ -44,9 +41,8 @@ Another thought is this; the Christian is said to be a sacrifice to God. Now eve
 
 Another reason why we must be put in the furnace is, because else we should not be at all like Jesus Christ. If you read that beautiful description of Jesus Christ in the book of Revelation, you will find it says, that "his feet were like fine brass, as if they burned in a furnace." The feet of Jesus Christ represent his humanity, the head the divinity. The head of his Deity suffered not: as God he could not suffer' but "his feet were like fine brass, as if they burned in a furnace." How can we be like Christ, unless our feet, too, are burned in the furnace? If he walked through the flames, must not we do the same?--that "in all things he might be like unto his brethren." We are we know, to be like Christ in that august appearance when he shall come to be admired of all his saints; we are to be like him when we shall see him as lie is; and shall we fear to be like him here? Will we not tread where our Saviour trod? there is his footstep; shall not our foot fill the same place? There is his track; will we not willingly say--
 
-> "His track I see, and I'll pursue
-> 
-> The narrow way, till him I view?"
+> "His track I see, and I'll pursue  
+> The narrow way, till him I view?"  
 
 Yes! Onward, Christian! the captain of your salvation hath gone through the dark valley before you--therefore, onward! Onward with boldness! Onward with courage! Onward with hope! that ye may be like your Saviour, by participation in his sufferings.
 
@@ -64,20 +60,16 @@ And now, to wind up, let us consider THE COMFORTS IN THE FURNACE. Christian men 
 
 The next comfort is that you have the Son of Man with you in the furnace. In that silent bedchamber of yours, there sitteth by your side one whom thou hast not seen, but whom thou lovest; and ofttimes when thou knowest it not, he makes all thy bed in thy affliction, and smoothes thy pillow for thee. Thou art in poverty; but in that lonely house of thine that hath nought to cover its bare walls, where thou sleepest on a miserable pallet, dost thou know that the Lord of life and glory is a frequent visitor; he often treads those bare floors, and putting his hands upon those walls he consecrates them! Wert thou in a palace he might not come there. He loves to come into these desolate places that he may visit thee. The Son of Man is with thee, Christian. Thou canst not see him, but thou mayest feel the pressure of his hands. Dost thou not hear his voice? It is the valley of the shadow of death: thou seest nothing; but he says, "Fear not, I am with thee; be not dismayed, for I am thy God." It is like that noble speech of Caesar's--"Fear not, thou carriest Caesar and all his fortune." Fear not, Christian! thou carriest Jesus in the same boat with thee, and all his fortune! He is with thee in the same fire. The same fire that scorches thee, scorches him. That which could destroy thee could destroy him, for thou art a portion of the fulness of him that fills all in all. Wilt thou not take hold of Jesus, then, and say--
 
-> "Through floods and flames, if Jesus lead,
-> 
-> I'll follow where he goes."
+> "Through floods and flames, if Jesus lead,  
+> I'll follow where he goes."  
 
 Feeling that you are safe in his hands, will you not laugh even death to scorn, and triumph over the sting of the grave, because Jesus Christ is with you?
 
 Now, dear friends, there is another great furnace besides the one I have been talk ing of. There is a very great furnace, "the pile thereof is fire and much wood, the breath of the Lord, like a stream of brimstone, doth kindle it." There is a furnace so hot, that when the ungodly are cast into it, they shalt be as the crack ling of thorns under a pot. There is a burning so exceedingly fierce that all those tormented in its flames spend their time in "weeping, and wailing, and gnash ing of teeth." There is a furnace "where the worm dieth not, and where the fire is not quenched." Where it is I know not. Methinks it is not down here in the bowels of the earth. It were a sad thought that earth hath hell within her own bowels, but that it is somewhere in the universe the Eternal has declared. Men and women! ye who love not God, a few more years will set you on a journey through the vast unknown to find out where this place is. Should ye die Godless and Christless, a strong hand will seize you on your death-bed, and irresistibly you will be borne along through the vast expanse of ether, unknowing whither you are tending, but with the dread thought that you are in the hand of a demon, who with an iron hand is bearing you most swiftly on. Down he plungeth thee? Ah! what a fall were that my friends! to find yourselves there in that desperate land of torments! May you never know it! Words cannot tell you of it now. I can but Just call up a few dread horrible emotions; I can but picture it in a few short rough words: may you never know it! Would ye wish to escape: there is but one door. Would ye be saved: there is but one way. Would ye find entrance into heaven and escape from hell: there is but one road. The road is this--"Believe on the Lord Jesus Christ and thou shalt be saved." "He that believeth and is baptized shall be saved, and he that believeth not shall be damned." To believe is to trust in Jesus. As an old divine used to say, "Faith is recumbency on Christ." But it is too hard a word. He meant, faith is lying down on Christ. As a child lieth on its mother's arms, so is faith; as the seaman trusteth to his bark, so is faith; as the old man leaneth on his staff, so is faith; as I may trust, there is faith. Faith is to trust. Trust in Jesus, he will ne'er deceive you:
 
-> "Venture on him, venture wholly,
-> 
-> Let no other trust intrude;
-> 
-> None but Jesus
-> 
-> Can do helpless sinners good."
+> "Venture on him, venture wholly,  
+> Let no other trust intrude;  
+> None but Jesus  
+> Can do helpless sinners good."  
 
 Thus may you escape that furnace of fire into which the wicked must be cast. God bless you all, for his name's sake.

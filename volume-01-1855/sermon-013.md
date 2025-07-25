@@ -2,9 +2,8 @@
 
 Sermon No. 13 - Delivered on Sabbath Morning, March 11, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ."
-> 
-> 2 Corinthians 1:5.
+> "For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ."  
+> 2 Corinthians 1:5.  
 
 SEEK ye rest from your distresses ye children of woe and sorrow ? This is the place where ye may lighten your burden, and lose your cares. Oh, son of affliction and misery, wouldst thou forget for a time thy pains and griefs? This is the Bethesda the house of mercy; this is the place where God designs to cheer thee, and to make thy distresses stay their never ceasing course; this is the spot where his children love to be found, because here they find consolation in the midst of tribulation, joy in their sorrows, and comfort in their afflictions. Even worldly men admit that there is something extremely comforting in the sacred Scriptures, and in our holy religion; I have even heard it said of some, that after they had, by their logic, as they thought, annihilated Christianity, and proved it to be untrue, they acknowledged that they had spoilt an excellently comforting delusion, and that they could almost sit down and weep to think it was not a reality. Ay, my friends, if it were not true, ye might weep. If the Bible were not the truth of God--if we could not meet together around his mercy seat, then ye might put your hands upon your loins and walk about as if ye were in travail. If ye had not something in the world beside your reason, beside the fleeting joys of earth--if ye had not something which God had given to you, some hope beyond the sky, some refuge that should be more than terrestrial, some deliverance which should be more than earthly, then ye might weep;--ah! weep your heart out at your eyes, and let your whole bodies waste away in one perpetual tear. Ye might ask the clouds to rest on your head, the rivers to roll down in streams from both your eyes, for your grief would "have need of all the watery things that nature could produce." But, blessed be God, we have consolation, we have joy in the Holy Ghost. We find it nowhere else. We have raked the earth through, but we have discovered ne'er a jewel; we have turned this dunghill-world o'er and o'er a thousand times, and we have found nought that is precious; but here, in this Bible, here in the religion of the blessed Jesus we the sons of God, have found comfort and joy; while we can truly say, "As our afflictions abound, so our consolations also abound by Christ."
 
@@ -12,9 +11,8 @@ There are four things in my text to which I invite your attention: the first is 
 
 Our first division then is, THE SUFFERINGS TO BE EXCPECTED. Our holy Apostle says "The sufferings of Christ abound in us." Before we buckle on the Christian armour we ought to know what that service is which is expected of us. A recruiting sergeant often slips a shilling into the hand of some ignorant youth, and tells him that. Her Majesty's Service is a fine thing, that he has nothing to do but walk about in his flaming colors, that he will have no hard service--in fact, that he has nothing to do but to be a soldier, and go straight on to glory. But the Christian searjeant when he enlists a soldier of the cross, never deceives him like that. Jesus Christ himself said, "Count the cost." He wished to have no disciple who was not prepared to go all the way--"to bear hardness as a good soldier." I have sometimes heard religion described in such a way that its high coloring displeases me. It is true "her ways are ways of pleasantness;" but it is not true that a Christian never has sorrow or trouble. It is true that light-eyed cheerfulness, and airy-footed love, can go through the world without much depression: and tribulation: but it is not true that Christianity will shield a man from trouble; nor ought it to be so represented. In fact, we ought to speak of it in the other-way. Soldier of Christ, if thou enlisteth, thou wilt have to do hard battle. There is no bed of down for thee; there it no riding to heaven in a chariot; the rough way must be trodden; mountains must be climbed, rivers must be forded, dragons must be fought, giants must be slain, difficulties must be overcome, and great trials must be borne. It is not a smooth road to heaven, believe me; for those who have gone but a very few steps therein have found it to be a rough one. It is a pleasant one; it is the most delightful in all the world, but it is not easy in itself; it is only pleasant because of the company, because of the sweet promises on which we lean, because of our Beloved who walks with us through all the rough and thorny brakes of this vast wilderness. Christian, expect trouble: "Count it not strange concerning the fiery trial, and as though some strange thing had happened unto thee;" for as truly as thou art a child of God, thy Saviour hath left thee for his legacy,--"In the world, ye shall have tribulation; in me ye shall have peace." If I had no trouble I would not believe myself one of the family. If I never had a trial I would not think myself a heir of heaven. Children of God must not, shall not, escape the rod. Earthly parents may spoil their children but the heavenly Father never shall his. "Whom he loveth he chasteneth," and scourgeth every son whom he hath chosen. His people must suffer; therefore, expect it Christian; if thou art a child of God believe it, look for it, and when it comes, say, "Well suffering, I foresaw thee; thou art no stranger; I have looked for thee continually." You cannot tell how much it will lighten your trials, if you await them with resignation. In fact, make it a wonder if you get through a day easily. If you remain a week without persecution, think it a remarkable thing; and if you should, perchance, live a month without heaving a sigh from your inmost heart, think it a miracle of miracles. But when the trouble comes, say, "Ah! this is what I looked for; it is marked in the chart to heaven; the rock is put down; I will sail confidently by it; my Master has not deceived me."
 
-> "Why should I complain of want or distress,
-> 
-> Temptation or pain? he told me no less."
+> "Why should I complain of want or distress,  
+> Temptation or pain? he told me no less."  
 
 But why must the Christian expect trouble? Why must he expect the sufferings of Christ to abound in him? Stand here a moment, my brother, and I will show thee four reasons wherefore thou must endure trial. First look upward, then look downward, then look around thee, and then look within thee; and thou wilt see four reasons why the sufferings of Christ should abound in thee.
 
@@ -32,13 +30,10 @@ Now, secondly, there is A DISTINCTION TO BE NOTICED. Our sufferings are said to 
 
 "Well," you say, "What is meant by our sufferings being the sufferings of Christ?" You know the word "Christ" in the Bible sometimes means the whole Church with Christ, as in 1 Cor. xii.12, and several other passages which I cannot just now remember; but you will call to mind a scripture where it says, "I fill up that which is behind of the sufferings of Christ, for his body's sake, which is the Church." Now, as Christ, the head, had a certain amount of suffering to endure, so the body must also have a certain weight laid upon it. Our afflictions are the sufferings of Christ mystical, the sufferings of Christ's body, the sufferings of Christ's church; for you know that if a man could be so tall as to have his head in heaven and his feet at the bottom of the sea, it would be the same body, and the head would feel the sufferings of the feet. So, though my head is in heaven, and I am on earth, my griefs are Christ's griefs; my trials are Christ's trials, my afflictions, he suffers.
 
-> "I feel at my heart all thy sighs and thy groans,
-> 
-> For thou art most near me, my flesh and my bones;
-> 
-> In all thy distresses, thy Head feels the pain,
-> 
-> Yet all are most needful, not one is in vain."
+> "I feel at my heart all thy sighs and thy groans,  
+> For thou art most near me, my flesh and my bones;  
+> In all thy distresses, thy Head feels the pain,  
+> Yet all are most needful, not one is in vain."  
 
 The trials of a true Christian are as much the sufferings of Christ, as the agonies of Calvary.
 
@@ -60,9 +55,8 @@ Now we close up with our last point; and may the Holy Ghost once more strengthen
 
 A word or two to characters--First, I have a word with you who are expecting troubles, and are very sad because you are looking forward to them. Take the advice of the common people, and "never cross a bridge till you get to it." Follow my advice: never bring your troubles nearer than they are, for they will be sure to come down upon you soon enough. I know that many persons fret themselves about their trials before they come. What on earth is the good of it? If you will show me any benefit in it, I will say go on; but to me it seems quite enough for the Father to lay the rod on the child without the child chastising itself. Why should you do so? You, who are afraid of trouble, why should you be so? The trial may never overtake you; and if it does come, strength will come with it. Therefore, up with thee, man, who are sitting down groaning, because of forebodings.
 
-> "Religion never was designed
-> 
-> To make our pleasures less."
+> "Religion never was designed  
+> To make our pleasures less."  
 
 Out on thee! Up! up! Why wilt thou sit down and be frozen to death? When trouble comes, then fight it; with manful heart and strong, plunge into the stream, accoutred as thou art, and swim it through; but oh! do not fear it before it comes.
 
@@ -72,18 +66,11 @@ Then one word with you who are almost driven to despair. I would stretch my hand
 
 Lastly, some of you have no interest in this sermon at all. I never try to deceive my hearers by making them believe that all I say belongs to all who hear me. There are different characters in God's word; it is yours to search your own hearts this day, and see whether ye are God's people, or not. As the Lord liveth, before whom I stand, there are two classes here. I do not own the distinction of aristocratic and democratic; in my sight, and in God's sight, every man is alike. We are made of one flesh and blood; we do not have china gentlemen and earthenware poor people; we are all made of the same mould of fashion. There is one distinction, and only one. Ye are all either the children of God, or children of the devil; ye are all either born again, or dead in trespasses and sins. It is yours to let the question ring in your ears: "Where am I? Is yon black tyrant, with his fiery sword, my king; or do I own Jehovah-Jesus as my strength, my shield, my Saviour?" I shall not force you to answer it; I shall not say anything to you about it. Only answer it yourselves; let your hearts speak; let your souls speak. All I can do is to propose the question. God apply it to your souls! I beseech him to send it home! and make the arrow stick fast!
 
-> "Is Jesus mine! I am now prepared,
-> 
-> To meet with what I thought most hard;
-> 
-> Yes, let the winds of trouble blow,
-> 
-> And comforts melt away like snow,
-> 
-> No blasted trees, nor failing crops,
-> 
-> Can hinder my eternal hopes;
-> 
-> Tho' creatures change, the Lord's the same;
-> 
-> Then let me triumph in his name."
+> "Is Jesus mine! I am now prepared,  
+> To meet with what I thought most hard;  
+> Yes, let the winds of trouble blow,  
+> And comforts melt away like snow,  
+> No blasted trees, nor failing crops,  
+> Can hinder my eternal hopes;  
+> Tho' creatures change, the Lord's the same;  
+> Then let me triumph in his name."  

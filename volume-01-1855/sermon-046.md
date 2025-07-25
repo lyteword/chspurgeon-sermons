@@ -2,9 +2,8 @@
 
 Sermon No. 46 - Delivered on Sabbath Morning, October 14, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Lord thou hast been our dwelling-place in all generations."
-> 
-> Psalm 90:1.
+> "Lord thou hast been our dwelling-place in all generations."  
+> Psalm 90:1.  
 
 Moses was the inspired author of three devotional compositions. We first of all find him as Moses the poet, singing the song which is aptly joined with that of Jesus, in the Revelation, where it says, "The song of Moses and of the Lamb." He was a poet on the occasion when Pharaoh and his hosts were cast into the Red Sea, "his chosen captains also were drowned in the Red Sea." Further on in his life we discover him in the character of a preacher; and then his doctrine distilled as the dew, and his speech dropped like the rain, in those chapters which are full of glorious imagery, and rich with poetry, which you will find in the book of Deuteronomy. And now in the Psalms, we find him the author of a prayer: "A prayer of Moses, the man of God." Happy combination of the poet, the preacher, and the man of prayer! Where three such things are found together, the man becomes a very giant above his fellows. It often happens that the man who preaches has but little poetry; and the man who is the poet would not be able to preach and utter his poems before immense assemblies, but would be only fit to write them by himself. It is a rare combination when true devotion and the spirit of poetry and eloquence meet in the same man. You will see in this Psalm a wondrous depth of spirituality; you will mark how the poet subsides into the man of God; and how, lost in himself, he sings his own frailty, declared the glory of God, and asks that he may have the blessing of his heavenly Father always resting on his head.
 
@@ -24,19 +23,15 @@ Though we are uneasy here, though we are tossed from side to side by troubles, t
 
 Again, the Israelites were very much exposed to all kinds of noxious creatures, owing to their residing in tents, and their habits of wandering. At one time the fiery serpent was their foe. By night the wild beasts prowled around them. Unless that fiery pillar had been a wall of fire around them and glory in the midst, they might all have fallen a prey to the wild monsters that roamed the deserts. Worse foes they found in human kind. The Amalekites rushed down from the mountains; wild wandering hordes constantly attacked them. They never felt themselves secure, for they were travelers through an enemy's country. They were hasting across a land where they were not wanted, to another land that was providing means to oppose them when they should arrive. Such is the Christian. He is journeying through an enemy's land; every day he is exposed to danger. His tent may be broken down by death; the slanderer is behind him, the open foeman is before him; the wild beast that prowls by night, and the pestilence that wasteth by day, continually seek his destruction; he finds no rest where he is; he feels himself exposed. But, says Moses, "Though we live in a tent exposed to wild beasts and fierce men, yet thou art our habitation. In thee we find no exposure. Within thee we find ourselves secure, and in thy glorious person we dwell as in an impregnable tower of defense, safe from every fear and alarm, knowing that we are secure." O Christian, hast thou ever known what it is to stand in the midst of battles, with arrows flying thick around thee more than thy shield can catch; and yet thou hast been as secure as if thou wert folding thine arms and resting within the walls of some strong bastion, where arrow could not reach thee, and where even the sound of trumpet could not disturb thine ears? Hast thou known what it is to dwell securely in God, to enter into the Most High, and laugh to scorn the anger, the frowns, the sneers, the contempt, the slander and calumny of men; to ascent into the sacred place of the pavilion of the Most High, and to abide under the shadow of the Almighty, and to feel thyself secure? And mark thee, thou mayest do this. In times of pestilence it is possible to walk in the midst of cholera and death, singing--
 
-> "Plagues and deaths around me fly,
-> 
-> Till he please, I cannot die."
+> "Plagues and deaths around me fly,  
+> Till he please, I cannot die."  
 
 It is possible to stand exposed to the utmost degree of danger, and yet to feel such a holy serenity that we can laugh at fear; too great, too mighty, too powerful through God to stoop for one moment to the cowardice of trembling, "we know whom we have believed, and we are persuaded that he is able to keep that which we have committed unto him." When houseless men wander, when poor distressed spirits, beaten by the storm, find no refuge, we enter into God, and shutting behind us the door of faith, we say, "Howl, ye winds; blow, ye tempests; roar, ye wild beasts; come on, ye robbers!"
 
-> "He that hath made his refuge God,
-> 
-> Shall find a most secure abode,
-> 
-> Shall walk all day beneath his shade,
-> 
-> And there at night shall rest his head."
+> "He that hath made his refuge God,  
+> Shall find a most secure abode,  
+> Shall walk all day beneath his shade,  
+> And there at night shall rest his head."  
 
 Lord, in this sense, thou hast been our habitation.
 
@@ -46,13 +41,10 @@ The Christian never becomes poorer, and never grows richer with regard to God. "
 
 One thought more in contrasting the position of the Israelites with ourselves--that is, weariness. How weary must Israel have been in the wilderness! How tired must have been the soles of their feet with their constant journeyings! They were not in a place of repose, luxury, and rest, but in a land of journeying, and weariness, and trouble. I think I see them traveling, wiping frequently the burning sweat from their brows, and saying, "O that we had a habitation where we might rest! O that we could enter a land of vines and pomegranates, a city where we might enjoy immunity from alarm! God has promised it to us, but we have not found it. There remaineth a rest for the people of God; O that we might find it." Christian! God is your habitation in this sense. He is your rest; and you will never find rest except in him. I defy a man who has no God to have a soul at rest. He who has not Jesus for his Saviour, will always be a restless spirit. Read some of Byron's verses, and you will find him--if he was truly picturing himself--to be the very personification of that spirit who "walked to and fro seeking rest and finding none." Here is one of his verses:--
 
-> "I fly like a bird of the air,
-> 
-> In search of a home and a rest;
-> 
-> A balm for the sickness of care,
-> 
-> A bliss for a bosom unblest."
+> "I fly like a bird of the air,  
+> In search of a home and a rest;  
+> A balm for the sickness of care,  
+> A bliss for a bosom unblest."  
 
 Read the lives of any men who have had no gospel justification, or have had no knowledge of God, and you will find that they were like the poor bird that had its nest pulled down, and knew not where to rest, flying about, wandering, and seeking a habitation. Some of you have tried to find rest out of God. You have sought to find it in your wealth; but you have pricked your head when you have laid it on that pillow. You have sought it in a friend, but that friend's arm has been a broken reed, where you hoped it would be a wall of strength. You will never find rest except in God; there is no refuge but in him. Oh! what rest and composure are there in him! It is more than sleep, more than calm, more than quiet; deeper than the dead stillness of the noiseless sea in its utmost depths, where it is undisturbed by the slightest ripple, and winds can never intrude. There is a holy calm and sweet repose which the Christian only knows, something like the slumbering stars up there in beds of azure; or like the seraphic rest which we may suppose beatified spirits have when they before the throne continually bow; there is a rest so deep and calm, so still and quiet, so profound, that we find no words to describe it. You have tried it, and can rejoice in it. You know that the Lord has been your dwelling-place--your sweet, calm, constant home, where you can enjoy peace in all generations. But I have dwelt too long upon this part of the subject, and I will speak of it in a different way.
 
@@ -60,25 +52,19 @@ First of all, the dwelling-place of man is the place where he can unbend himself
 
 Then, again, man's home is the place where his affections are centered. God deliver us from those men who do not love their homes! Lives there a man so base, so dead, that he has no affection for his own house? If so, surely the spark of Christianity must have died entirely out. It is natural that men should love their homes; it is spiritual that they should love them better still. In our homes we find those to whom we must and ever shall be most attached. There our best friends and kindred dwell. When we wander, we are as birds that have left their nests and can find no settled home. We wish to go back and to see again that smile, to grasp once more that loving hand, and to find that we are with those to whom the ties of affection have knit us. We wish to feel--and every Christian man will feel--with regard to his own family, that they are the warp and woof of his own nature, that he has become a part and portion of them; and there he centers his affection. He can not afford to lavish his love everywhere. He centers it in that particular spot, that oasis in this dark desert world. Christian man, is God your habitation in that sense? Have you given your whole soul to God? Do you feel you can bring your whole heart to him, and say, "O, God! I love from my soul; with the most impassioned earnestness I love thee.
 
-> "The dearest idol I have known--
-> 
-> Whate'er that idol be--
-> 
-> Help me to tear it from its throne,
-> 
-> And worship only thee!"
+> "The dearest idol I have known--  
+> Whate'er that idol be--  
+> Help me to tear it from its throne,  
+> And worship only thee!"  
 
 O God! though I sometimes wander, yet I love thee in my wanderings, and my heart is fixed on thee. What though the creature doth beguile me, I detest that creature; it is to me as the apple of Sodom. Thou art the master of my soul, the emperor of my heart; no vice-regent, but King of kings. My spirit is fixed on thee as the center of my soul.
 
-> "Thou art the sea of love
-> 
-> Where all my pleasures roll,
-> 
-> The circle where my passions move;
-> 
-> The center of my soul."
+> "Thou art the sea of love  
+> Where all my pleasures roll,  
+> The circle where my passions move;  
+> The center of my soul."  
 
-> "O God! thou hast been our dwelling-place throughout all generations."
+> "O God! thou hast been our dwelling-place throughout all generations."  
 
 My next remark is concerning the lease of this dwelling-place. God is the believer's habitation. Sometimes, you know, people get turned out of their houses, or their houses tumble down about their ears. It is never so with ours: God is our dwelling-place throughout all generations. Let us look back in times past, and we shall find that God has been our habitation. Oh, the old house at home! who does not love it--the place of our childhood, the old roof-tree, the old cottage! There is no village in all the world half so good as that particular village where we were born! True, the gates, and stiles, and posts have been altered; but still there is an attachment to those old houses, the old tree in the park, and the old ivy-mantled tower. It is not very picturesque, perhaps, but we love to go to see it. We like to see the haunts of our boyhood. There is something pleasant in those old stairs where the clock used to stand; and in the room where grandmother was wont to bend her knee, and where we had family prayer. There is no place like that house after all! Well, beloved, God has been the habitation of the Christian in years that are gone by. Christian, your house is indeed a venerable house, and you have long dwelt there. You dwelt there in the person of Christ long before you were brought into this sinful world; and it is to be your dwelling-place throughout all generations. You are never to ask for another house; you will always be contented with that one you have; you will never wish to change your habitation. And if you wished it, you could not; for he is your dwelling-place in all generations. God give you to know what it is to take this house in its long lease, and ever to have God for your dwelling-place!
 
@@ -102,8 +88,7 @@ Houseless soul! in a little while thy body will have gone; and where wilt thou h
 
 Will you take Jesus, and dwell in him throughout eternity? or will you be content to be a houseless soul? Come inside, sir; see, it is furnished from top to bottom with all you want. It has cellars filled with gold, more than you will spend as long as you live; it hath a parlor where you can entertain yourself with Christ, and feast on his love; it has tables well stored with food for you to live on forever; it hath a drawing-room of brotherly love where you can receive your friends. You will find a resting room up there where you can rest with Jesus; and on the top there is a look-out, whence you can see heaven itself. Will you have the house, or will you not? Ah! if you are houseless, you will say, "I should like to have the house; but may I have it?" Yes; there is the key. The key is, "Come to Jesus." But, you say, "I am too shabby for such a house." Never mind; there are garments inside. As Rowland Hill once said--
 
-> "Come naked, come filthy, come ragged, come poor,
-> 
-> Come wretched, come dirty, come just as you are."
+> "Come naked, come filthy, come ragged, come poor,  
+> Come wretched, come dirty, come just as you are."  
 
 If you feel guilty and condemned, come, and though the house is too good for you, Christ will make you good enough for the house by-and-by. He will wash you, and cleanse you, and you will yet be able to sing with Moses, with the same unfaltering voice, "Lord, thou hast been my dwelling place throughout all generations."

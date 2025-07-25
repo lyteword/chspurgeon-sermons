@@ -2,9 +2,8 @@
 
 Sermon No. 23 - Delivered on Sabbath Evening, May 13, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "The sting of death is sin; and the strength of sin is the law. But, thanks be unto God, which giveth us the victory through our Lord Jesus Christ."
-> 
-> 1 Corinthians 15:56-57.
+> "The sting of death is sin; and the strength of sin is the law. But, thanks be unto God, which giveth us the victory through our Lord Jesus Christ."  
+> 1 Corinthians 15:56-57.  
 
 While the Bible is one of the most poetical of books, though its language is unutterably sublime, yet we must remark how constantly it is true to nature. There is no straining of a fact, no glossing over a truth. However dark may be the subject, while it lights it up with brilliance, yet it does not deny the gloom connected with it. If you will read this chapter of Paul's epistle, so justly celebrated as a master-piece of language, you will find him speaking of that which is to come after death with such exultation and glory that you feel, "If this be to die, then it were well to depart at once." Who has not rejoiced, and whose heart has not been lifted up or filled with a holy fire, while he has read such sentences as these: "In a moment, in the twinkling of an eye, at the last trump; for the trumpet shall sound, and the dead shall be raised incorruptible, and we shall be changed. For this corruptible must put on incorruption, and this mortal must put on immortality. So, when this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory. O death, where is thy sting? O grave, where is thy victory?" Yet, with all that majestic language, with all that bold flight of eloquence, he does not deny that death is a gloomy thing. Even his very figures imply it. He does not laugh at it; he does not say, "Oh, it is nothing to die;" he describes death as a monster; he speaks of it as having a sting; he tells us wherein the strength of that sting lies; and even in the exclamation of triumph, he imputes that victory not to unaided flesh, but he says, "Thanks be to God, who giveth us the victory through our Lord Jesus Christ."
 
@@ -32,15 +31,13 @@ Thus, then having painted two full-length pictures, I might give each one of you
 
 But if sin in the retrospect be the sting of death, what must sin in the prospect be? My friends, we do not often enough look at what sin is to be. We see what it is; first the seed, then the blade, then the ear, and then the full corn in the ear. It is the wish, the imagination, the desire, the sight, the taste, the deed; but what is sin in its next development? We have observed sin as it grows; we have seen it, at first, a very little thing, but expanding itself until it has swelled into a mountain. We have seen it like "a little cloud, the size of a man's hand," but we have beheld it gather until it covered the skies with blackness, and sent down drops of bitter rain. But what is sin to be in the next state? We have gone so far, but sin is a thing that cannot stop. We have seen whereunto it has grown, but whereunto will it grow? for it is not ripe when we die; it has to go on still; it is set going, but it has to unfold itself forever. The moment we die, the voice of justice cries, "Seal up the fountain of blood; stop the stream of forgiveness; he that is holy, let him be holy still; he that is filthy, let him be filthy still." And after that, the man goes on growing filthier and filthier still; his lust developes itself, his vice increases; all those evil passions blaze with tenfold more fury, and, amidst the companionship of others like himself, without the restraints of grace, without the preached word, the man becomes worse and worse; and who can tell whereunto his sin may grow? I have sometimes likened the hour of our death to that celebrated picture, which I think you have seen in the National Gallery, of Perseus holding up the head of Medusa. That head turned all persons into stone who looked upon it. There is a warrior there with a dart in his hand; he stands stiffened, turned into stone, with the javelin even in his fist. There is another, with a poniard beneath his robe, about to stab; he is now the statue of an assassin, motionless and cold. Another is creeping along stealthily, like a man in ambuscade, and there he stands a consolidated rock; he has looked only upon that head, and he is frozen into stone. Well, such is death. What I am when death is held before me, that I must be forever. When my spirit goes, if God finds me hymning his praise, I shall hymn it in heaven; doth he find me breathing out oaths, I shall follow up those oaths in hell. Where death leaves me, judgment finds me. As I die, so shall I live eternally.
 
-> "There are no acts of pardon passed
-> 
-> In the cold grave to which we haste."
+> "There are no acts of pardon passed  
+> In the cold grave to which we haste."  
 
 It is forever, forever, forever! Ah! there are a set of heretics in these days who talk of short punishment, and preach about God's transporting souls for a term of years, and then letting them die. Where did such men learn their doctrine, I wonder? I read in God's word that the angel shall plant one foot upon the earth, and the other upon the sea, and shall swear by him that liveth and was dead, that time shall be no longer. But, if a soul could die in a thousand years, it would die in time; if a million of years could elapse, and then the soul could be extinguished, there would be such a thing as time; for, talk to me of years, and there is time. But, sirs, when that angel has spoken the word, "Time shall be no longer," things will then be eternal; the spirit shall proceed in its ceaseless revolution of weal or woe, never to be stayed, for there is no time to stop it; the fact of its stopping would imply time; but everything shall be eternal, for time shall cease to be. It well becomes you, then, to consider where ye are and what ye are. Oh! stand and tremble on the narrow neck of land twixt the two unbounded seas, for God in heaven alone can tell how soon thou mayest be launched upon the eternal future. May God grant that, when that last hour may come, we may be prepared for it! Like the thief, unheard, unseen, it steals through night's dark shade. Perhaps, as here I stand, and rudely speak of these dark, hidden things, soon may the hand be stretched, and dumb the mouth that lisps the faltering strain. Oh! thou that dwellest in heaven, thou power supreme, thou everlasting King, let not that hour intrude upon me in an illspent season; but may it find me rapt in meditation high, hymning my great Creator. So, in the last moment of my life, I will hasten beyond the azure, to bathe the wings of this my spirit in their native element, and then to dwell with thee for ever--
 
-> "Far from a world of grief and sin,
-> 
-> With God eternally shut in."
+> "Far from a world of grief and sin,  
+> With God eternally shut in."  
 
 THE STRENGTH OF SIN is the law.
 
@@ -64,29 +61,23 @@ If it were necessary to-night, I might speak to you concerning the resurrection,
 
 And now, sirs, how many are there here who have any hope that for them Christ Jesus died? Am I coming too close home, when most solemnly I put the question to each one of you, as I stand in God's presence this night, to free my head of your blood; as I stand and appeal with all the earnestness this heart is capable of? Are you prepared to die? I sin pardoned? Is the law satisfied? Can you view the flowing
 
-> "Of Christ's soul-redeeming blood,
-> 
-> With divine assurance knowing,
-> 
-> That he hath made your peace with God?"
+> "Of Christ's soul-redeeming blood,  
+> With divine assurance knowing,  
+> That he hath made your peace with God?"  
 
 O! can ye now put one hand upon your heart, and the other upon the Bible, and say, "God's word and I agree; the witness of the Spirit here and the witness there are one. I have renounced my sins, I have given up my evil practices; I have abhorred my own righteousness; I trust in naught but Jesus' doings; simply do I depend on him.
 
-> 'Nothing in my hand I bring,
-> 
-> Simply to thy cross I cling.'"
+> 'Nothing in my hand I bring,  
+> Simply to thy cross I cling.'"  
 
 If so, should you die where you are--sudden death were sudden glory.
 
 But, my hearers, shall I be faithful with you? or shall I belie my soul? Which shall it be? Are there not many here who, each time the bell tolls the departure of a soul, might well ask the question, "Am I prepared?" and they must say, "No." I shall not turn prophet to-night; but were it right for me to say so, I fear not one-half of you are prepared to die. Is that true? Yea, let the speaker ask himself the question, "Am I prepared to meet my Maker face to face?" Oh, sit in your seat and catechise your souls with that solemn question. Let each one ask himself, "Am I prepared, should I be called, to die?" Methinks I hear one say with confidence, "I know that my Redeemer liveth." "Let him that thinketh he standeth take heed lest he fall." I hear another say with trembling accents--
 
-> "Ah! guilty, weak, and helpless worm,
-> 
-> On Christ's kind arms I fall;
-> 
-> He is my strength and righteousness,
-> 
-> My Jesus and my all."
+> "Ah! guilty, weak, and helpless worm,  
+> On Christ's kind arms I fall;  
+> He is my strength and righteousness,  
+> My Jesus and my all."  
 
 Yes, sweet words! I would rather have written that one verse than Milton's "Paradise Lost." It is such a matchless picture of the true condition of the believing soul. But I hear another say, "I shall not answer such a question as that. I am not going to be dull to-day. It may be gloomy weather outside to-day, but I do not want to be made melancholy." Young man, young man, go thy way. Let thine heart cheer thee in the days of thy youth; but for all this the Lord shall bring thee to judgment. What wilt thou do, careless spirit, when thy friends have forsaken thee, when thou art alone with God? Thou dost not like to be alone, young man, now, dost thou? A falling leaf will startle thee. To be alone an hour will bring on an insufferable feeling of melancholy. But thou wilt be alone--and a dreary alone it will be--with God an enemy! How wilt thou do in the swellings of Jordan? What wilt thou do when he taketh thee by the hand at eventide, and asketh thee for an account; when he says, "What didst thou do in the beginning of thy days? how didst thou spend thy life?" When he asks thee, "Where are the years of thy manhood?" When he questions thee about thy wasted Sabbaths, and inquires how thy latter years were spent, what wilt thou say then? Speechless, without an answer, thou wilt stand. Oh, I beseech you, as ye love yourselves, take care! Even now, begin to weigh the solemn matters of eternal life. Oh! say not, "Why so earnest? why in such haste?" Sirs, if I saw you lying in your bed, and your house was on fire, the fire might be at the bottom of the house, and you might slumber safely for the next five minutes; but with all my might I would pull you from your bed, or I would shout, "Awake! awake! the flame is under thee." So with some of you who are sleeping over hell's mouth, slumbering over the pit of perdition, may I not awake you? may I not depart a little from clerical rules, and speak to you as one speaketh to his fellow whom he loves? 
 

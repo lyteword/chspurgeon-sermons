@@ -2,9 +2,8 @@
 
 Sermon No. 43 - Delivered on Sabbath Morning, September 9, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Thou shalt come to thy grave in a full age, like as a shock of corn cometh in in his season."
-> 
-> Job 5:26.
+> "Thou shalt come to thy grave in a full age, like as a shock of corn cometh in in his season."  
+> Job 5:26.  
 
 WE DO NOT BELIEVE all that Job's friends said. They spoke very often as uninspired men, for we find them saying many things that are not true; and if we read the book of Job through, we might say with regard to them, "miserable comforters are ye all," for they did not speak concerning God's servant, Job, the thing that was right. But, nevertheless, they gave utterance to many holy and pious sentences, which are well worthy of regard, as having come from the lips of three men distinguished in their age for their learning, talent, and ability; three grey-headed sires, who from experience were able to speak what they knew. Their mistakes are not to be wondered at, because they had not then that clear, bright, shining light, which we enjoy in these modern times. They had few opportunities to meet together; there were but few prophets in those days who taught them the things of the kingdom. We only marvel that without the light of the gospel revelation they were able to discover so much of the truth as they did. However I must make a remark concerning this chapter, that I cannot but regard it as being in the main, not so much the utterance of the man--who here speaks--Eliphaz the Temanite--but the very word of God; not so much the simple saying of the unwise comforter who upbraided Job, as the speech of the great Comforter who consoles his people, and who only utters the thing that is right. The opinion is justified by the fact that this chapter is quoted by the apostle Paul. Eliphaz says, in the 13th verse, "He taketh the wise in their own craftiness." And we find the apostle Paul in the Corinthians, saying, "As it is written, he taketh the wise in their own craftiness;" thus giving sanction to this passage as having been inspired of God, at all events as being most certainly truthful. Most certainly the experience of such a man as Eliphaz is worthy of much regard: and when speaking of the general condition of God's people, that they are hid from the scourge of the tongue, "that they are not afraid of destruction when it cometh," that they laugh at destruction and famine, and so on, we may accept his words as being proven by experience, and authenticated by inspiration. 
 
@@ -56,18 +55,14 @@ I have left mortality with all its pains. Oh, how rapid is my flight! Just now I
 
 Beloved, is not this to go to "the grave in full age, like as a shock of corn," fully ripe? The sooner the day shall come, the more we shall rejoice. Oh, tardy wheels of time! speed on your flight. Oh, angels, wherefore come ye on with laggard wings? Oh! fly through the ether and outstrip the lightning's flash! Why may I not die? Why do I tarry here? Impatient heart, be quiet a little while. Thou art not fit for heaven yet, else thou wouldst not be here. Thou hast not done thy work, else thou wouldst have thy rest. Toil on a little longer; there is rest enough in the grave. Thou shalt have it there. On! on!
 
-> "With my scrip on my back, and my staff in my hand,
-> 
-> I'll march on in haste thro' an enemy's land.
-> 
-> Though the way may be rough it cannot be long;
-> 
-> So I'll smooth it with hope, and I'll cheer it with song."
+> "With my scrip on my back, and my staff in my hand,  
+> I'll march on in haste thro' an enemy's land.  
+> Though the way may be rough it cannot be long;  
+> So I'll smooth it with hope, and I'll cheer it with song."  
 
 "My dear friends, you who are not converted, I have no time to say anything to you on this morning. I wish I had. But I pray that all I have said may be yours. Poor hearts, I am sorry I cannot tell you this is yours now. I would I could preach to every one of you, and say that you all shall be in heaven. But God knoweth there are some of you that are on the road to hell; and do not suppose you will enter heaven, if you go hell's road. No body would expect, if he proceeded to the north, to arrive at the south. Nay; God must change thine heart. By simple trust in Jesus, if thou givest thyself up to his mercy, even though the vilest of the vile, thou shalt sing before his face. And methinks, poor sinner, thou wilt say to me, as a poor woman did last Wednesday, after I had been preaching, when I believe every-body had been crying, from the least to the greatest, and even the preacher in the pulpit. As I went down, I said to one, "Are you chaff or wheat?" And she said, "Ah !I trembled to-night, sir." I said to another, "Well, sister, I hope we shall be in Paradise soon." And she replied, "You may, sir." And I came to another, and said, "Well, do you think you will be gathered with the wheat?" And she answered, "One thing I can say--if God ever lets me get into heaven, I will praise him with all my might. I will sing myself away, and shall never think I can sing loud enough." It reminded me of what an old disciple once said: "If the Lord Jesus does but save me he shall never hear the last of it." Let us praise God, then, eternally--
 
-> "While life, or thought, or being lasts,
-> 
-> Or immortality endures!"
+> "While life, or thought, or being lasts,  
+> Or immortality endures!"  
 
 Now may the Three-One God dismiss you with his blessing.

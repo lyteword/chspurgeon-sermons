@@ -2,9 +2,8 @@
 
 Sermon No. 19 - Delivered on Sabbath Morning, April 15, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Although my house be not so with God; yet he hath made with me an everlasting covenant, ordered in all things and sure: for this is all my salvation, and all my desire, although he make it not to grow."
-> 
-> 2 Samuel 23:5.
+> "Although my house be not so with God; yet he hath made with me an everlasting covenant, ordered in all things and sure: for this is all my salvation, and all my desire, although he make it not to grow."  
+> 2 Samuel 23:5.  
 
 THESE be the last words of David; so we read at the commencement of the chapter. Many have been the precious sentences which have fallen front his inspired lips; seraphic has been the music which has dropped from his fingers when they flew along the strings of his harp; but now that sweet voice is to be hushed in death, and now the son of Jesse is to sleep with his fathers. Surely it were well to press around his bed, to hear the dying monarch's last testimony; yea, we can conceive that angels themselves would for an instant check their rapid flight, that they might visit the chamber of the dying mighty one, and listen to his last death song. It is always blessed to hear the words of departing saints. How many choice thoughts have we gained in the bedchamber of the righteous, beloved? I remember one sweet idea, which I once won from a death-bed. A dying man desired to have one of the Psalms read to him, and the 17th being chosen, he stopped at the 6th verse, "Incline thine ear unto me and hear my speech," and faintly whispering, said, "Ah, Lord, I cannot speak, my voice fails me; incline thine ear, put it against my mouth, that thou mayest hear me." None but a weak and dying man, whose life was ebbing fast, could have conceived such a thought. It is well to hear saints' words when they are near heaven--when they stand upon the banks of Jordan. But here is a special case, for these be the last words of David. They are something more than human utterances; for we are told that the Spirit of the Lord spake by him, and his word was in his tongue. These were his closing accents. Ah! methinks, lisping these words he rose from earth to join the chorus of the skies. He commenced the sentence upon earth, and he finished it in heaven. He began, "Although my house be not so with God;" and as he winged his flight to heaven, he still sang, "yet hast thou made with me an everlasting covenant, ordered in all things, and sure: "and now before the throne he constantly hymns the same strain--"yet hast thou made with me an everlasting covenant, ordered in all things, and sure." I hope, my friends, there are many of us who can join in this verse this morning, and who hope to close our earthly pilgrimage with this upon our tongue.
 
@@ -26,37 +25,29 @@ Now let us notice these words as they come. First, David rejoiced in the covenan
 
 But notice its particular application. "Yet hath he made with ME an everlasting covenant." Here lies the sweetness of it to me, as an individual.
 
-> "Oh how sweet to view the flowing
-> 
-> Of Christ's soul-redeeming blood,
-> 
-> With divine assurance knowing,
-> 
-> That he made my peace with God."
+> "Oh how sweet to view the flowing  
+> Of Christ's soul-redeeming blood,  
+> With divine assurance knowing,  
+> That he made my peace with God."  
 
 It is nought for me that he made peace for the world; I want to know whether he made peace for me: it is little that he hath made a covenant, I want to know whether he has made a covenant with ME. David could put his hand upon his heart and say, "Yet hath he made a covenant with ME." I fear I shall not be wrong in condemning the fashionable religion of the day, for it is a religion which belongs to the crowd; and not a personal one which is enjoyed by the individual. You will hear persons say, "Well, I believe the doctrine of justification; I think that men are justified through faith." Yes, but are you justified by faith? "I believe," says another, "that we are sanctified by the Spirit." Yes, all very well, but are you sanctified by the Spirit? Mark you, if ever you talk about personal piety very much, you will always be run down as extravagant. If you really say from your heart, "I know I am forgiven; I am certain that I am a pardoned sinner;"--and every Christian will at times be able to say it, and would always, were it not for his unbelief--if you say, "I know in whom I have believed; I am confident that I have not a sin now recorded in the black roll; that I am free from sin as if I had never transgressed, through the pardoning blood of Jesus," men will say it is extravagant. Well, it is a delightful extravagance, it is the extravagance of God's Word; and I would to God more of us could indulge in that holy, blessed extravagance. For we may well be extravagant when we have an infinite sum to spend; we may well be lavish when we know we never can exhaust the treasure. Oh! how sweet it is to say, "Yet hath he made with ME an everlasting covenant. It is nought that you talk to me of my brother being saved. I am very glad that my friend should get to glory, and I shall rejoice to meet you all; but after all, the thing is, "Shall I be there?"
 
-> "Shall I amongst them stand,
-> 
-> To see his smiling face?"
+> "Shall I amongst them stand,  
+> To see his smiling face?"  
 
 Now, Christian, thou canst apply this personally. The covenant is made with thee. Man, open thine eyes; there is thy name in the covenant. What is it? It is some plain English name, perhaps. It never had an M.P. nor an M.A. after it, nor a "Sir," before it. Never mind, that name is in the covenant. If you could take down your Father's family Bible in heaven, you would find your name put in the register. O blessed thought! my name--positively mine! not another's. So, then, these eyes shall see him, and not another's for me. Rejoice, Christian; it is a personal covenant. "Yet hath he made with me an everlasting covenant."
 
 Furthermore, this covenant is not only divine in its origin, but it is everlasting in its duration. I have had some very pretty letters sent me from anonymous writers who have listened to me; and being great cowards (whom I always abhor) they cannot sign their names. They may know what fate they receive; the condign punishment I appoint to them. I cut them asunder, and thrust them into the fire. I hope the authors will not have a similar fate. Some of them, however, quarrel with me, because I preach the everlasting gospel. I dare not preach another, for I would not have another if it were offered to me. An everlasting gospel is the only one which I think worthy of an everlasting God. I am sure it is the only one which can give comfort to a soul that is to live throughout eternity. Now, you know what an "everlasting covenant" signifies. It meant a covenant which had no beginning, and which shall never, never end. Some do not believe in the everlasting nature of God's love to his people. They think that God begins to love his people when they begin to love him. My Arminian friends, did you ever sing that verse in your meeting?--of course you have--
 
-> "O yes, I do love Jesus,
-> 
-> Because he first lov'd me."
+> "O yes, I do love Jesus,  
+> Because he first lov'd me."  
 
 That is a glorious Calvinistic hymn, though we know whose hymn book it is in. Well, then, if Jesus loved you before you loved him, why cannot you believe that he always did love you? Besides, how stupid it is to talk so, when you know God does not change. There is no such thing as time with him; there is no past with him. If you say, "he loves me now," you have in fact said, "he loved me yesterday, and he will love me for ever." There is nothing but now with God. There is no such thing as past or future; and to dispute about eternal election and so on, is all of no avail; because, if God did choose his people at all--and we all admit that he chooses them now--I do not care about whether you say he did so ten thousand, thousand years ago, because there is no such thing as the past with God; with him it is all now. He sees things, past and future, as present in his eye. Only tell me that he loves me now; that word "now," in God's dictionary, means everlasting. Tell me that God has now pardoned my sins; it means, that he always has, for his acts are eternal acts. Oh how sweet to know an everlasting covenant! I would not barter my gospel for fifty thousand other gospels. I love a certain salvation; and when I first heard it preached, that if I believed, God's grace would keep me all my life long, and would never let me fall into hell, but that I should preserve my character unblemished, and walk among my fellow-creatures pure and holy, then said I, "That is the gospel for me; an everlasting gospel." As for that sandy gospel, which bets you fall away and then come back again, it is the wickedest falsehood on earth. If I believed it, I would preach the gospel and be holy on the Sunday, and fall away on the Monday, and be a Christian again on the Tuesday; and I should say, "I have fallen from grace and have got up again." But now, as a true Calvinistic Christian, I desire to have in myself, and see in others, a life of constant consistency; nor can I think it possible to fall away, and then return, after the many passages which assert the impossibility of such a thing. That is the greatest safeguard on earth--that I have something within me that never can be quenched; that I put on the regimentals of a service which I never must leave, which I cannot leave without having proved that I never was enlisted at all. Oh! that keeps me near my God. But once make me doubt that, and you will see me the vilest character living under the sun. Take from me the everlastingness of the gospel, and you have taken all. Dear old Watts Wilkinson once said to Joseph Irons, when he said, "I love you to preach the covenant everlasting nature of God's love,"--" Ah!" said the old saint, "What is there else in the gospel if you do not preach it?" Brother, what is there else? If we do not preach an everlasting gospel, the gospel is not worth twopence. You may get anything uncertain anywhere else; it is in the Bible alone that we get everlasting things.
 
-> "I to the end shall endure
-> 
-> As sure as the earnest is given;
-> 
-> More happy, but not more secure,
-> 
-> Are the glorified spirits in heaven."
+> "I to the end shall endure  
+> As sure as the earnest is given;  
+> More happy, but not more secure,  
+> Are the glorified spirits in heaven."  
 
 But notice the next word, for it is a sweet one, and we must not let one portion go, " It is ordered in all things." "Order is heaven's first law," and God has not a disorderly covenant. It is an orderly one. When he planned it, before the world began, it was in all things ordered well. He so arranged it, that justice should be fully satisfied, and yet mercy should be linked hand-in-hand with it. He so planned it that vengeance should have its utmost jot and tittle, and yet mercy should save the sinner. Jesus Christ came to confirm it, and by his atonement, he ordered it in all things; he paid every drop of his blood; he did not leave one farthing of the ransom-money for his dear people, but he ordered it in all things. And the Holy Spirit, when he sweetly applies it, always applies it in order; he orders it in all things. He makes us sometimes understand this order, but if we do not, be sure of this, that the covenant is a well-ordered covenant. I have heard of a man who bought a piece of land, and when the covenant was being made, he thought he knew more about it than the lawyer; but you know it is said that when a man is his own lawyer he has a fool for his client. In this case the man had a fool for his client; and he drew up the covenant so badly, that in a few years it was discovered to be good for nothing, and he lost his property. But our Father's covenant is drawn up according to the strictest rules of justice; and so is ordered in all things. If hell itself should search it--if it were passed round amongst a conclave of demons, they could not find a single fault with it. There are the technical terms of heaven's court; there is the great seal at the bottom, and there is the signature of Jesus, written in his own blood. So it is "ordered in all things."
 
@@ -68,24 +59,19 @@ Now to close our meditation. The Psalmist had a satisfaction in his heart. "This
 
 Then, the Psalmist says, he has all his desire. There is nought that can fill the heart of man except the Trinity. God has made man's heart a triangle. Men have been for centuries trying to make the globe fill the triangle, but they cannot do it: it is the Trinity alone that can fill a triangle, as old Quarles well says. There is no way of getting satisfaction but by gaining Christ, getting heaven, winning glory, getting the covenant, for the word covenant comprises all the other things. "All my desire,"--says the Psalmist.
 
-> "I nothing want on earth, above,
-> 
-> Happy in my Saviour's love."
+> "I nothing want on earth, above,  
+> Happy in my Saviour's love."  
 
 I have not a desire; I have nothing to do but to live and be happy all my life in the company of Christ, and then to ascend to heaven, to be in his immediate presence, where
 
-> "Millions of years these wondering eyes
-> 
-> Shall o'er my Saviour's beauties rove,
-> 
-> And endless ages I'll adore
-> 
-> The wonders of his love."
+> "Millions of years these wondering eyes  
+> Shall o'er my Saviour's beauties rove,  
+> And endless ages I'll adore  
+> The wonders of his love."  
 
 Just one word with my friends who do not agree with me in doctrine. I am sure, my dear friends, that I wish not to anathematize any of those whose creed is the reverse of mine; only they must allow me to differ from them and to speak freely; and if they do not allow me they know very well that I shall. But I have this much to say to those dear friends who cannot bear the thought of an everlasting covenant. Now, you cannot alter it, can you? If you do not like it, there it is. "God hath made with me an everlasting covenant." And you must confess, when you read the Bible, that there are some very knotty passages for you. You might, perhaps, remove them out of your Bible; but then you cannot erase them out of divine verities. You know it is true, that God is immutable, do you not? He never changes--you must know that, for the Bible says so. It declares that when he has begun a good work, he will carry it through. Do not get reading frothy commentators any longer; take the Bible as it stands, and if you do not see everlasting love there, there is some fault in your eyes, and it is a case rather for the Ophthalmic hospital, than for me. If you cannot see everlasting, eternal security, blood-bought righteousness, there, I am hopeless altogether of your conversion to the truth, while you read it with your present prejudices. It has been my privilege to give more prominence in the religious world to those old doctrines of the gospel. I have delighted in the musty old folios which many of my brethren have kept bound in sheepskins and goatskins, on their library shelves. As for new books, I leave them to others. Oh! if we might but go back to those days when the best of men were our pastors--the days of the Puritans. Oh! for a puritanical gospel again; then we should not have the sleepy hearers, the empty chapels, the drowsy preachers, the velvet-mouthed men who cannot speak the truth; but we should have "Glory to God in the highest, on earth peace, and good-will towards men." Do go home and search. I have told you what I believe to be true; if it is not true, detect the error by reading your Bibles for yourselves, and searching out the matter. As for you, ye ungodly, who hitherto have had neither portion nor lot in this matter, recollect that God's Word speaks to you as well as to the Christian, and says," Turn ye, turn ye; why will ye die, O house of Israel?" graciously promising that whosoever cometh to Christ he will in no wise cast out. It is a free gospel, free as the air, and he who has but life to breathe it may breathe it; so that every poor soul here, who is quickened, and has a sense of his guilt, may come to Christ.
 
-> "Let not conscience make you linger,
-> 
-> Nor of fitness fondly dream."
+> "Let not conscience make you linger,  
+> Nor of fitness fondly dream."  
 
 All the evidence you require is to feel your need of Christ; and recollect, if you only once come, if you do but believe, you will be safe through all eternity; and amidst the wreck of matter, the crash of worlds, the conflagration of the universe, and the destruction of all terrestrial things, your soul must still be eternally secure in the covenant of God's free grace. God enable you now to become his adopted children by faith in Jesus.

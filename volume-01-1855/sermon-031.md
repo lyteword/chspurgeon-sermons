@@ -2,31 +2,21 @@
 
 Sermon No. 31 - Delivered on Sabbath Morning, June 24, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "With my soul have I desired thee in the night."
-> 
-> Isaiah 26:9.
+> "With my soul have I desired thee in the night."  
+> Isaiah 26:9.  
 
 NIGHT APPEARS to be a time peculiarly favorable to devotion. Its solemn stillness helps to free the mind from that perpetual din which the cares of the world will bring around it; and the stars looking down from heaven upon us shine as if they would attract us up to God. I know not how you may be affected by the solemnities of midnight, but when I have sat alone musing on the great God and the mighty universe, I have felt that indeed I could worship him; for night seemed to be spread abroad as a very temple for adoration, while the moon walked as high priest, amid the stars, the worshippers, and I myself joined in that silent song which they sang unto God: "Great art thou, O God! great in thy works. When I consider thy heavens, the work of thy fingers, the moon and the stars which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?" I find that this sense of the power of midnight not only acts upon religious men, but there is a certain poet, whose character, perhaps, I could scarcely too much reprobate: a man very far from understanding true religion; one whom I may, I suppose, justly style an infidel a libertine of the worst order, and yet he says concerning night in one of his poems:--
 
-> "Tis midnight on the mountains' brown,
-> 
-> The cold round moon shines deeply down;
-> 
-> Blue roll the waters, blue the sky
-> 
-> Spreads like an ocean hung on high,
-> 
-> Bespangled with those isles of light,
-> 
-> So wildly, spiritually bright;
-> 
-> Who ever gazed upon them shining,
-> 
-> And turning to earth without repining,
-> 
-> Nor wish'd for wings to flee away,
-> 
-> And mix with their eternal ray."
+> "Tis midnight on the mountains' brown,  
+> The cold round moon shines deeply down;  
+> Blue roll the waters, blue the sky  
+> Spreads like an ocean hung on high,  
+> Bespangled with those isles of light,  
+> So wildly, spiritually bright;  
+> Who ever gazed upon them shining,  
+> And turning to earth without repining,  
+> Nor wish'd for wings to flee away,  
+> And mix with their eternal ray."  
 
 Even with the most irreligious person, a man farthest from spiritual thought, it seems that there is some power in the grandeur and stillness of night to draw him up to God. I trust many of us can say, like David, "I have thought upon thee continually, I have mused upon thy name in the night watches, and with desire have I desired thee in the night." But I leave that thought altogether. I shall not speak of night natural at all, although there may be a great deal of room for poetic thought and expression. I shall address myself to two orders of persons, and shall endeavor to show what I conceive to be the meaning of the text. May God make it useful to you both. First, I shall speak to confirmed Christians; and from this text I shall bring one or two remarks to bear upon their case, if they are in darkness. Second, I shall speak to newly awakened souls, and try if I can find some of them who can say, "With my soul have I desired thee in the night."
 
@@ -38,9 +28,8 @@ At other times, this darkness over the soul of the Christian rises from temporal
 
 "But oh!" says another, "you have not described my night, sir. I have not much amiss in business; and I would not care if I had--but I have a night in my spirit." "O sir," says one, "I have not a single evidence of my Christianity now. I was a child of God, I know; but something tells me that I am none of his now. There was a season when I flattered myself that I knew something about godliness and God; but now I doubt whether I have any part or lot in the matter. Satan suggests that I must dwell in endless flames. I see no hope for me. I am afraid I am an hypocrite. I think I have imposed on the church and upon myself also. I fear I am none of his. When I turn over God's Scriptures there is no promise; when I look within, corruption is black before me. Then while others are commending me, I am accusing myself of all manner of sin and corruption. I could not have thought that I was half so bad. I am afraid there cannot have been a work of grace in my heart, or else I should not have so many corrupt imaginations, filthy desires, hard thoughts of God; so much pride, so much selfishness and self-will. I am afraid I am none of his." Now, that is the very reason why you are one of his, that you are able to say that: for God's people pass through the night. They have their nights of sorrow. I love to hear a man talk like that. I would not have him do so always. He ought at times to enter into "the liberty where with Christ hath made him free." But I know that frequently bondage will get hold of the spirit, But you say, "Surely no one ever suffers like that." I confess I do myself constantly, and very often there are times when I could not prove my election in Jesus Christ, nor my adoption, though I rejoice that for the most part I can cry,--
 
-> "A debtor to mercy alone
-> 
-> Of covenant mercy I sing."
+> "A debtor to mercy alone  
+> Of covenant mercy I sing."  
 
 Yet at other seasons I am sure the meanest lamb in Jesu's fold I reckon ten thousand times more in advance than myself and if I might but sit down on the meanest bench in the kingdom of heaven, and did but know I was in, I would barter everything I had, and I do not believe there ever existed a Christian yet, who did not now and then doubt his interest in Jesus. I think, when a man says, "I never doubt," it is quite time for us to doubt him, it is quite time for us to begin to say, "Ah, poor soul, I am afraid you are not on the road at all, for if you were, you would see so many things in yourself, and so much glory in Christ more than you deserve, that you would be so much ashamed of yourself, as even to say, It is too good to be true.'"
 
@@ -50,9 +39,8 @@ I have marked it in some of my brethren now present, when they were in deep tria
 
 A third remark from this to the confirmed Christian is, all that the Christian wants in the night is his God. "With desire have I desired thee in the night." By day there are many things that a Christian will desire besides his Lord; but in the night he wants nothing but his God. I cannot understand how it is unless it is to be accounted for by the corruption of our spirit, that when everything goes well with us we are setting our affection first on this object and--then on another, and then on another; and that desire which is as insatiable as death and as deep as hell never rests satisfied. We are always wanting something, always desiring a yet beyond. But if you place a Christian in trouble you will find that he does not want gold then--that he does not want carnal honour--then he wants his God. I suppose he is like the sailor, when he sails along smoothly he loves to have fair weather, and wants this and that to amuse himself with on deck. But when the winds blow all that he wants is the haven. He does not desire anything else. The biscuit may be mouldy, but he does not care. The water may be brackish, but he does not care. He does not think of it in the storm. He only thinks about the haven then. It is just so with the Christian, when he is going along smoothly he wants this and that comfort; he is aspiring after this position, or is wanting to obtain this and that elevation. But let him once doubt his interest in Christ--let him once get into some soul--distress and trouble, so that it is very dark--and all he will feel then is, "With desire have I desired thee in the night." When the child is put upstairs to bed it may lie while the light is there, and look at the trees that shake against the window, and admire the stars that are coming out; but when it gets dark and the child is still awake it cries for its parent. It cannot be amused by aught else. So in daylight will the Christian look at anything. He will cast his eyes round on this pleasure and on that! but, when the darkness gathers, it is "My God! my God! why hast thou forsaken me?" "O why art thou so far from me and from the word of my roaring?" Then it is,
 
-> "Give me Christ or else I die;
-> 
-> These can never satisfy."
+> "Give me Christ or else I die;  
+> These can never satisfy."  
 
 But now one more remark before I leave my address to confirmed saints. There are times when all the saints can do is to desire. We have a vast number of evidences of piety: some are practical, some are experimental, some are doctrinal; and the more evidences a man has of his piety the better, of course. We like a number of signatures, to make a deed more valid, if possible. We like to invest property in a great number of trustees, in order that it may be all the safer, and so we love to have many evidences. Many witnesses will carry our case at the bar better than a few: and so it is well to have many witnesses to testify to our piety. But there are seasons when a Christian cannot get any. He can get scarcely one witness to come and attest his godliness. He asks for good works to come and speak him. But there will be such a cloud of darkness about him, and his good works will appear so black that he will not dare to think of their evidences. He will say, "True, I hope this is the right fruit, I hope I have served God but I dare not plead these works as evidences." He will have lost assurance and with it his enjoyment of communion with God. "I have had that fellowship with him," perhaps he will say, and he will summon that communion to come and be an evidence. But he has forgotten it, and it does not come, and Satan whispers it is a fancy, and the poor evidence of communion has its mouth gagged, so that it cannot speak. But there is one witness that very seldom is gagged, and one that I trust the people of God can always apply, even in the night; and that is, "I have desired thee I have desired thee in the night." "Yes, Lord, if I have not believed in thee, I have desired thee; and if I have not spent and been spent in thy service, yet one thing I know, and the devil cannot beat me out of it, I have desired thee--that I do know--and I have desired thee in the night, too, when no one saw me, when troubles were round about me."
 

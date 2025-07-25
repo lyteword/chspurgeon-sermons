@@ -2,9 +2,8 @@
 
 Sermon No. 49 - Delivered on Sabbath Morning, November 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Now the God of peace be with you all. Amen,"
-> 
-> Romans 15:33.
+> "Now the God of peace be with you all. Amen,"  
+> Romans 15:33.  
 
 PAUL ONCE ADVISED the Romans to strive. Three verses before our text he actually gives them an exhortation to strive, and yet he here utters a prayer that the God of peace might be with them all. Lest you should think him to be a man of strife, you must read the verse. He says: "Now I beseech you, brethren, for the Lord Jesus Christ's sake, and for the love of the spirit, that ye strive together with me in your prayers to God for me." That is a holy strife, and such a strife as that we wish always to see in the church, a strife in prayer, a surrounding the throne together, besieging God's mercy seat, a crying out before God, until it actually amounts to a striving together in our prayers. There is also another kind of striving which is allowed in the church, and that is striving earnestly after the best gifts: a sweet contention which of us shall excel all others in love, in duty, and in faith. May God send us more strife of that kind in our churches, a strife in prayer, a strife in duty; and when we have mentioned these strifes we find them of so peaceable a kind that we come back to the benediction of our text: "Now the God of peace be with you all. Amen." Without any preface, we shall consider, first, the title--"the God of peace;" and secondly, the benediction--"the God of peace be with you all. Amen."
 
@@ -14,9 +13,8 @@ If you consider God in the trinity of his persons for a few moments, you will se
 
 When he says, "Come unto me all ye that are heavy laden "he gives "rest," and with that rest he gives; the peace of God which passeth all understanding," which keeps our heart and mind. He is moreover the God of peace in the Church, for wherever Jesus Christ dwells, he creates a holy peace. As in the case of Aaron of old, the ointment poured upon the head of Christ trickles down to the very skirts of his garments, and thereby he gives peace,--peace by the fruit of the lips, and peace by the fruit of the heart, unto all them that love Jesus Christ in sincerity. So is the Holy Ghost the God of peace. He of old brought peace, when chaotic matter yeas in confusion, by the brooding of his wings: he caused order to appear where once there was nothing but darkness and chaos. So in dark chaotic souls he is the God of peace. When winds from the mountains of Sinai, and gusts from the pit of hell sweep across the distressed soul; when, wandering about for rest, our soul fainteth within us, he speaks peace to our troubles, and gives rest to our spirits. When by earthly cares we are tossed about, like the sea-bird, up and down, up and down, from the base of the wave to the billows' crown, he says, "Peace be still." He it is who on the Sabbath-day brings his people into a state of serenity, and bids them enjoy
 
-> "That holy calm, that sweet repose
-> 
-> Which none but he that feels it knows."
+> "That holy calm, that sweet repose  
+> Which none but he that feels it knows."  
 
 And he shall be the God of peace when at life's latest hour he shall still the current of Jordan, shall hush all the howlings of the fiends, shall give us peace with God through Jesus Christ, and land us safe in heaven. Blessed Trinity! however we consider thee, whether as Father, Son, or Holy Ghost, still is thy name thrice well deserved, the God of peace, and the God of love.
 
@@ -50,13 +48,12 @@ The next enemy to peace is ambition. "Diotrephes loveth to have the pre-eminence
 
 The next enemy to peace is anger. There are some individuals in the world that cannot help getting angry very quickly. They grow on a sudden very wrathful; while others who are not passionate, who take a longer time to be angry, are fearful enough when they do speak. Others who dare not speak at all, are worse still, for they get brewing their anger.
 
-> "Nursing their wrath to keep it warm."
+> "Nursing their wrath to keep it warm."  
 
 They go into a sulky fit, disagreeing with everybody, eternally grumbling; they are like dogs in the flock--only barking, and yielding no fleece. O that nasty anger! If it gets into the church it will split it to pieces. Somehow or other we cannot help getting angry sometimes. O that we could come into the church and leave ourselves behind us! There is nobody I should like to run away from half so much as from myself. Try, beloved, to curb your tempers; and when you do not exactly see with another brother, do not think it necessary to knock him on the eyes to make him see, that is the worst thing in all the world to do, he will not see any the better for it, for
 
-> "The man convinced against his will,
-> 
-> Is of the same opinion still."
+> "The man convinced against his will,  
+> Is of the same opinion still."  
 
 Then envy is another fearful evil. One minister, perhaps, is envious of another, because one church is full and the other not. How can teachers agree in the Sunday-school if there is any envy there? How can church members agree if envy creeps in? One member thinks another is thought more highly of than he deserves. Why, beloved, you are all too much thought of; but, after all, it does not matter what you are thought of by man, it only matters what God thinks of you--and God thinks as much of Little-faith as of Great-heart; he thinks as much of Mrs. Despondency as of Christiana herself. Drive, then, that "green-eyed monster" away, and keep him at a distance.
 
@@ -68,9 +65,8 @@ Now let me briefly show you the appropriateness of this prayer. We indeed ought 
 
 Now, dear brethren is there anything I can plead with you this morning, in order that you may always dwell in peace and love? God has happily commenced a blessed revival amongst us, and under our means, by the help of God, that revival will spread through the entire kingdom. We have seen that "the word of the Lord is quick and powerful." We know that there is nothing that can stop the progress of his kingdom, and there is nothing that can impede your success as a church except this. If the unhappy day should arrive--let the day be accursed when it does come--when you amongst yourselves should disagree, there would be a stop to the building of the Lord's house at once, when those that carry the trowel and bear the spears do not stand side by side, then the work of God must tarry. It is sad to think how much our glorious cause has been impeded by the different failings out amongst the disciples of the Lamb. We have loved one another, brethren, up till now, with a true heart and fervently and I am not afraid but that we shall always do so. At the same time, I am jealous over you, lest there should come in by any possibility any root of bitterness to trouble you. Let us this morning throw around you the bands of a man, let us unite you together with a three-fold cord that cannot be broken, let us entreat you to love one another; let us entreat you by your one Lord, one faith, one baptism, to continue one; let us beg of you, by our great success, to let our unity be commensurate therewith. Remember "how good and how pleasant it is for brethren to dwell together in unity!" The devil wants you to disagree, and nothing will please him better than for you to fall at ears among yourselves. The Moabites and Anmonites cut down one another. Do not let us do that.
 
-> "Those should in strictest concord dwell,
-> 
-> Who the same God obey."
+> "Those should in strictest concord dwell,  
+> Who the same God obey."  
 
 It is continual bickering and jealousy that has brought disgrace upon the holy name of Christ. He has been wounded in the house of his friends. The arrows we have shot at one another have hurt us more than all that ever came from the bow of the devil. We have done more injury to the escutcheon of Christ by our contentions than Satan has ever been able to do. I beseech you, brethren, love one another. I know not how I could endure anything like discord among you. I can bear the scoff of the world, and the laughter of the infidel, methinks I could bear martyrdom; but I could not bear to see you divided. I beseech my God and Master to suffer me first to wear my shroud, before I ever wear a garment of heaviness on account of your divisions. While I feel that I have your love and affection, and that you are bound to one another, I care not for the devils in hell, nor for men on earth. We have been, and we shall be omnipotent, through God; and by faith we will stand firm to one another and to his truth. Let each one resolve within himself--"if there is strife, I will have nothing to do with it." "The beginning of strife is like the letting out of water," and I will not turn the tap. If you will take care not to let the first drop in, I will be surety about the second. Brethren, again I say, for the gospel's sake, for the truth's sake, that we may laugh at our enemies, and rejoice with joy unspeakable, let us love one another.
 

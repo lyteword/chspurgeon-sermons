@@ -2,15 +2,13 @@
 
 Sermon No. 18 - Delivered on Sabbath Morning, April 8, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Come, see the place where the Lord lay."
-> 
-> Matthew 28:6.
+> "Come, see the place where the Lord lay."  
+> Matthew 28:6.  
 
 Every circumstance connected with the life of Christ is deeply interesting to the Christian mind. Wherever we behold our Saviour, he is well worthy of our notice.
 
-> "His cross, his manger, and his crown,
-> 
-> Are big with glories yet unknown."
+> "His cross, his manger, and his crown,  
+> Are big with glories yet unknown."  
 
 All his weary pilgrimage, from Bethlehem's manger to Calvary's cross, is, in our eyes, paved with glory. Each spot upon which he trod is, to our souls, consecrated at once, simply because there the foot of earth's Saviour and our own Redeemer once was placed. When he comes to Calvary, the interest thickens; then our best thoughts are centered on him in the agonies of crucifixion, nor does our deep affection permit us to leave him, even when, the struggle being over, he yields up the ghost. His body, when it is taken down from the tree, still is lovely in our eyes--we fondly linger around the motionless clay. By faith we discern Joseph of Arimathea, and the timid Nicodemus, assisted by those holy women, drawing out the nails and taking down the mangled body; we behold them wrapping him in clean, white linen, hastily girding him round with belts of spices; then putting him in his tomb, and departing for the Sabbath rest. We shall, on this occasion, go where Mary went on the morning of the first day of the week, when waking from her couch before the dawn, she aroused herself to be early at the sepulchre of Jesus. We will try, if it be possible, by the help of God's Spirit, to go as she did--not in body, but in soul--we will stand at that tomb; we will examine it, and we trust we shall hear some truth-speaking voice coming from its hollow bosom which will comfort and instruct us, so that we may say of the grave of Jesus when we go away, "It was none other than the gate of heaven"--a sacred place, deeply solemn, and sanctified by the slain body of our precious Saviour.
 
@@ -24,9 +22,8 @@ Yea, more, I will further urge you to this pious pilgrimage. Come, for angels bi
 
 There is yet one reason more why I would have thee visit this royal sepulchre--because it is a quiet spot. Oh! I have longed for rest, for I have heard this world's rumors in my ears so long, that I have begged for
 
-> "A lodge in some vast wilderness,
-> 
-> Some boundless contiguity of shade,"
+> "A lodge in some vast wilderness,  
+> Some boundless contiguity of shade,"  
 
 where I might hide myself forever. I am sick of this tiring and trying life; my frame is weary, my soul is mad to repose herself awhile. I would I could lay myself down a little by the edge of some pebbly brook, with no companion save the fair flowers or the nodding willows. I would I could recline in stillness, where the air brings balm to the tormented brain, where there is no murmur save the hum of the summer bee, no whisper save that of the zephyrs, and no song except the caroling of the lark. I wish I could be at ease for a moment. I have become a man of the world; my brain is racked, my soul is tired. Oh! wouldst thou be quiet, Christian? Merchant, wouldst thou rest from thy toils? wouldst thou be calm for once? Then come hither. It is in a pleasant garden, far from the hum of Jerusalem; the noise and din of business will not reach thee there; "Come, see the place where the Lord lay." It is a sweet resting spot, a withdrawing room for thy soul, where thou mayest brush from thy garments the dust of earth and muse awhile in peace.
 
@@ -48,65 +45,45 @@ Emotion excited. We have thus surveyed the grave with deep attention, and, I hop
 
 First, I would bid you stand and see the place where the Lord lay with emotions of deep sorrow. Oh cone, my beloved brother, thy Jesus once lay there. He was a murdered man, my soul, and thou the murderer.
 
-> "Ah, you my sins, my cruel sins,
-> 
-> His chief tormentors were,
-> 
-> Each of my crimes became a nail,
-> 
-> And unbelief the spear."
-> 
-> "Alas! and did my Saviour bleed?
-> 
-> And did my Sov'reign die?"
+> "Ah, you my sins, my cruel sins,  
+> His chief tormentors were,  
+> Each of my crimes became a nail,  
+> And unbelief the spear."  
+> "Alas! and did my Saviour bleed?  
+> And did my Sov'reign die?"  
 
 I slew him--this right hand struck the dagger to his heart. My deeds slew Christ. Alas! I slew my best beloved; I killed him who loved me with an everlasting love. Ye eyes, why do you refuse to weep when ye see Jesus' body mangled and torn? Oh! give vent to your sorrow, Christians, for ye have good reason to do so. I believe in what Hart says, that there was a time in his experience when he could so sympathize with Christ, that he felt more grief at the death of Christ than he did joy. It seemed so sad a thing that Christ should have to die; and to me it often appears too great a price for Jesus Christ to purchase worms with his own blood. Methinks I love him so much, that if I had seen him about to suffer, I should have been as bad as Peter, and have said, "That be far from thee, Lord;" but then he would have said to me, "Get thee behind me, Satan", for he does not approve of that love which would stop him from dying. "The cup which my Father hath given me, shall I not drink it?" But I think, had I seen him going up to his cross, I could fain have pressed him back and said "Oh! Jesus, thou shalt not die; I cannot have it. Wilt thou purchase my life with a price so dear?" It seems too costly for him who is the Prince of Life and Glory to let his fair limbs be tortured in agony; that the hands which carried mercies should be pierced with accursed nails; that the temples that were always clothed with love should have cruel thorns driven through them. It appears too much. Oh! weep, Christian, and let your sorrow rise. Is not the price all but too great, that your beloved should for you resign himself? Oh! I should think, if a person were saved from death by another, he would always feel deep grief if his deliverer lost his life in the attempt. I had a friend, who, standing by the side of a piece of frozen water, saw a young lad in it, and sprang upon the ice in order to save him. After clutching the boy, he held him in his hands and cried out, "Here he is! Here he is! I have saved him." But, just as they caught hold of the boy, he sank himself, and his body was not found for some time afterwards, when he was quite dead. Oh! it is so with Jesus. My soul was drowning. From heaven's high portals he saw me sinking in the depths of hell; he plunged in:
 
-> "He sank beneath his heavy woes,
-> 
-> To raise me to a crown;
-> 
-> There's ne'er a gift his hand bestows,
-> 
-> But cost his heart a groan."
+> "He sank beneath his heavy woes,  
+> To raise me to a crown;  
+> There's ne'er a gift his hand bestows,  
+> But cost his heart a groan."  
 
 Ah! we may indeed regret our sin, since it slew Jesus.
 
 Now, Christian, change thy note a moment. "Come, see the place where the Lord lay," with joy and gladness. He does not lie there now. Weep, when ye see the tomb of Christ, but rejoice because it is empty. Thy sin slew him, but his divinity raised him up. Thy guilt hath murdered him, but his righteousness hath restored him. Oh! he hath burst the bonds of death, he hath ungirt the cerements of the tomb, and hath come out more than conqueror, crushing death beneath his feet. Rejoice, O Christian, for he is not there--he is risen.
 
-> "Come, see the place where the Lord lay."
+> "Come, see the place where the Lord lay."  
 
 One more thought, and then I will speak a little concerning the doctrines we may learn from this grave. "Come, see the place where the Lord lay." with solemn awe for you and I will have to lie there too.
 
-> "Hark! from the tomb a doleful sound,
-> 
-> Mine ears, attend the cry,
-> 
-> Ye living men, come view the ground
-> 
-> Where ye must shortly lie."
-> 
-> "Princes, this clay must be your bed,
-> 
-> In spite of all your powers.
-> 
-> The tall, the wise, the reverend head,
-> 
-> Must lie as low as ours."
+> "Hark! from the tomb a doleful sound,  
+> Mine ears, attend the cry,  
+> Ye living men, come view the ground  
+> Where ye must shortly lie."  
+> "Princes, this clay must be your bed,  
+> In spite of all your powers.  
+> The tall, the wise, the reverend head,  
+> Must lie as low as ours."  
 
 It is a fact we do not often think of, that we shall all be dead in a little while. I know that I am made of dust, and not of iron; my bones are not brass, nor my sinews steel; in a little while my body must crumble back to its native elements. But do you ever try to picture to yourself the moment of your dissolution? My friends, there are some of you who seldom realize how old you are, how near you are to death. One way of remembering our age, is to see how much remains. Think how old eighty is, and then see how few years there are before you will get there. We should remember our frailty. Sometimes I have tried to think of the time of my departure. I do not know whether I shall die a violent death or not; but I would to God that I might die suddenly; for sudden death is sudden glory. I would I might have such a blessed exit as Dr. Beaumont, and die in my pulpit, laying down my body with my charge, and ceasing at once to work and live. But it is not mine to choose. Suppose I lie lingering for weeks, in the midst of pains, and griefs, and agonies; when that moment comes, that moment which is too solemn for my lips to speak of, when the spirit leaves the clay--let the physician put it off for weeks, or years, as we say he does, though he does not--when that moment comes, O ye lips, be dumb, and profane not its solemnity. When death comes, how is the strong man bowed down! How doth the mighty man fall! They may say they will not die, but there is no hope for them; they must yield, the arrow has gone home. I knew a man who was a wicked wretch, and I remember seeing him pace the floor of his bedroom saying "O God, I will not die, I will not die." When I begged him to lie on his bed, for he was dying, he said he could not die while he could walk, and he would walk till he did die. Ah! he expired in the utmost torments, always shrieking, "O God, I will not die." Oh! that moment, that last moment. See how clammy is the sweat upon the brow, how dry the tongue, how parched the lips. The man shuts his eyes and slumbers, then opens them again: and if he be a Christian, I can fancy that he will say:
 
-> "Hark! they whisper: angels say,
-> 
-> Sister spirit, come away.
-> 
-> What is this absorbs me quite--
-> 
-> Steals my senses--shuts my sight--
-> 
-> Drowns my spirit--draws my breath?
-> 
-> Tell me, my soul, can this be death?"
+> "Hark! they whisper: angels say,  
+> Sister spirit, come away.  
+> What is this absorbs me quite--  
+> Steals my senses--shuts my sight--  
+> Drowns my spirit--draws my breath?  
+> Tell me, my soul, can this be death?"  
 
 We know not when he is dying. One gentle sigh, and the spirit breaks away. We can scarcely say, "he is gone," before the ransomed spirit takes its mansion near the throne. Come to Christ's tomb, then, for the silent vault must soon be your habitation. Come to Christ's grave, for ye must slumber there. And even you, ye sinners, for one moment I will ask you to come also, because ye must die as well as the rest of us. Your sins cannot keep you from the jaws of death. I say, sinner, I want thee to look at Christ's sepulchre too, for when thou diest it may have done thee great good to think of it. You have heard of Queen Elizabeth, crying out that she would give an empire for a single hour. Or have you heard the despairing cry of the gentleman on board the "Arctic," when it was going down, who shouted to the boat, "Come back! I will give you £30,000 if you will come and take me in." Ah! poor man, it were but little if he had thirty thousand worlds, if he could thereby prolong his life: "Skin for skin, yea, all that a man hath, will he give for his life." Some of you who can laugh this morning, who came to spend a merry hour in this hall, will be dying, and then ye will pray and crave for life, and shriek for another Sabbath-day. Oh! how the Sabbaths ye have wasted will walk like ghosts before you! Oh! how they will shake their snaky hair in your eyes! How will ye be made to sorrow and weep, because ye wasted precious hours, which, when they are gone, are gone too far to be recalled. May God save you from the pangs of remorse.
 
@@ -114,44 +91,32 @@ INSTRUCTION IMPARTED. And now, Christian brethren, "Come, see the place where th
 
 A second doctrine here taught well may charm thee, if the Holy Spirit apply it with power. Behold his empty tomb, O true believer: it is a sign of thine acquittal, and thy full discharge. If Jesus had not paid the debt, he ne'er had risen from the grave. He would have lain there till this moment if he had not cancelled the entire debt, by satisfying eternal vengeance. O beloved, is not that an overwhelming thought?
 
-> "It is finished, it is finished,
-> 
-> Hear the rising Saviour cry."
+> "It is finished, it is finished,  
+> Hear the rising Saviour cry."  
 
 The heavenly turnkey came, a bright angel stepped from heaven and rolled away the stone; but he would not have done so if Christ had not done all: he would have kept him there, he would have said, "Nay, nay, thou art the sinner now; thou hast the sins of all thine elect upon thy shoulder, and I will not let thee go free till thou hast paid the uttermost farthing." In his going free I see my own discharge.
 
-> "My Jesu's blood's my full discharge."
+> "My Jesu's blood's my full discharge."  
 
 As a justified man, I have not a sin now against me in God's book. If I were to turn over God's eternal book, I should see every debt of mine receipted and cancelled.
 
-> "Here's pardon for transgressions past,
+> "Here's pardon for transgressions past,  
 
-> It matter not how black their cast,
-> 
-> And O my soul, with wonder view,
-> 
-> For sins to come, here's pardon too.
-> 
-> Fully discharged by Christ I am,
-> 
-> From Christ's tremendous curse and blame."
+> It matter not how black their cast,  
+> And O my soul, with wonder view,  
+> For sins to come, here's pardon too.  
+> Fully discharged by Christ I am,  
+> From Christ's tremendous curse and blame."  
 
 One more doctrine we learn, and with that we will conclude--the doctrine of the resurrection. Jesus rose, and as the Lord our Saviour rose, so all his followers must rise. Die I must--this body must be a carnival for worms; it must be eaten by those tiny cannibals; peradventure it shall be scattered from one portion of the earth to another; the constituent particles of this my frame will enter into plants, from plants pass into animals, and thus be carried into far distant realms; but, at the blast of the archangel's trumpet, every separate atom of my body shall find its fellow; like the bones lying in the valley of vision, though separated from one another, the moment God shall speak, the bone will creep to its bone; then the flesh shall come upon it; the four winds of heaven shall blow, and the breath shall return. So let me die, let beasts devour me, let fire turn this body into gas and vapor, all its particles shall yet again be restored; this very self-same, actual body shall start up from its grave, glorified and made like Christ's body, yet still the same body, for God hath said it. Christ's same body rose; so shall mine. O my soul, dost thou now dread to die? Thou wilt lose thy partner body a little while, but thou wilt be married again in heaven; soul and body shall again be united before the throne of God. The grave--what is it? It is the bath in which the Christian puts the clothes of his body to have them washed and cleansed. Death--what is it? It is the waiting-room where we robe ourselves for immortality; it is the place where the body, like Esther, bathes itself in spices that it may be fit for the embrace of its Lord. Death is the gate of life; I will not fear to die, then, but will say,
 
-> "Shudder not to pass the stream;
-> 
-> Venture all thy care on him;
-> 
-> Him whose dying love and power
-> 
-> Stilled its tossing, hushed its roar,
-> 
-> Safe in the expanded wave;
-> 
-> Gentle as a summer's eve.
-> 
-> Not one object of his care
-> 
-> Ever suffered shipwreck there."
+> "Shudder not to pass the stream;  
+> Venture all thy care on him;  
+> Him whose dying love and power  
+> Stilled its tossing, hushed its roar,  
+> Safe in the expanded wave;  
+> Gentle as a summer's eve.  
+> Not one object of his care  
+> Ever suffered shipwreck there."  
 
 Come, view the place then, with all hallowed meditation, where the Lord lay. Spend this afternoon, my beloved brethren, in meditating upon it, and very often go to Christ's grave, both to weep and to rejoice. Ye timid ones, do not be afraid to approach, for tis no vain thing to remember that timidity buried Christ. Faith would not have given him a funeral at all; faith would have kept him above ground, and would never have let him be buried; for it would have said, it would be useless to bury Christ if he were to rise. Fear buried him. Nicodemus, the night disciple, and Joseph of Arimathea, secretly, for fear of the Jews, went and buried him. Therefore, ye timid ones, ye may go too. Ready-to-halt, poor Fearing, and thou, Mrs. Despondency, and Much-afraid, go often there; let it be your favorite haunt, there build a tabernacle, there abide. And often say to your heart, when you are in distress and sorrow, "Come, see the place where the Lord lay."

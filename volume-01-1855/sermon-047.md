@@ -2,9 +2,8 @@
 
 Sermon No. 47 - Delivered on Sabbath Morning, October 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil."
-> 
-> John 17:15.
+> "I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil."  
+> John 17:15.  
 
 THIS PRAYER of Christ is an ever precious portion to all true believers, from the fact that each of them has an inalienable interest in it. Every one of us, beloved, when we listen to the words of Christ should recollect that he is praying for us; that while it is for the great body of his elect he intercedes in this chapter and the one preceding it, yet it is also for each believer in particular that he offers intercession. However weak we are, however poor; however little our faith, or however small our grace may be, our names are still written on his heart; nor shall we lose our share in Jesus' love.
 
@@ -58,74 +57,65 @@ And yet, methinks, some of you who have cumbered the ground do most heartily des
 
 There was once a poor man in a small country town who had not all the sense people usually have, but he had sense enough to be a great drunkard and swearer as God would have it, he once listened to a poor woman, who was singing--
 
-> "I'm a poor sinner and nothing at all
-> 
-> But Jesus Christ is my all in all"
+> "I'm a poor sinner and nothing at all  
+> But Jesus Christ is my all in all"  
 
 Home he went, repeating these words, he put his trust in a crucified Saviour, and was really converted. Well, he soon came to the church, and although he was a pedlar, and always travelling about, he said, "I want to join your church." They, remembering his sinful way of life, required some great evidence of a change before they received him, "O!" says he, "I must come in," "But you have been such a great sinner, and you are unconverted," added the elders. "Well," said poor Jack, "I don't know if I'm unconverted, and I confess I am a great sinner--but
 
-> "I'm a poor sinner, and nothing at all;
-> 
-> But Jesus Christ is my all in all."
+> "I'm a poor sinner, and nothing at all;  
+> But Jesus Christ is my all in all."  
 
 They could not get from him any other testimony save this. He would only say--
 
-> "I'm a poor sinner, and nothing at all;
-> 
-> But Jesus Christ is my all in all."
+> "I'm a poor sinner, and nothing at all;  
+> But Jesus Christ is my all in all."  
 
 They could not refuse him, and therefore accepted him for fellowship. After this he was always happy. When a Christian man said to him "But you always seem so happy and pleased, John; how is it?" "Well" said he, " I ought to be happy, for--
 
-> "I'm a poor sinner, and nothing at all;
-> 
-> But Jesus Christ is my all in all."
+> "I'm a poor sinner, and nothing at all;  
+> But Jesus Christ is my all in all."  
 
 "Well but," said the gentleman, "I can't see how you can be always so happy and sure. I sometimes lose my evidences." "I don't," said Jack,
 
-> "I'm a poor sinner, and nothing at all;
-> 
-> But Jesus Christ is my all in all."
+> "I'm a poor sinner, and nothing at all;  
+> But Jesus Christ is my all in all."  
 
 "Ah," said a friend, "I am at times miserable because I remember my sad sinfulness even since conversion." "Ah!" said Jack, "you have not begun to sing,
 
-> "I'm a poor sinner, and nothing at all.
-> 
-> But Jesus Christ is my all in all."
+> "I'm a poor sinner, and nothing at all.  
+> But Jesus Christ is my all in all."  
 
 "Oh!" said the friend, "how do you get rid of your doubts and fears? My faith frequently fails, and I miss my sure hope in Christ. My frames are so variable and feelings so contrary, what do you think of that?" "Think," said poor Jack, " why master I have no good things to care about--
 
-> "I'm a poor sinner and nothing at all,
-> 
-> But Jesus Christ is my all in all."
+> "I'm a poor sinner and nothing at all,  
+> But Jesus Christ is my all in all."  
 
 Well, then, if there is any one here who is "a poor sinner, find nothing at all,"--where is he? in the gallery" or sitting down below? If he cannot say all that poor man said; if he can say the first line, he need not fear to say the second. Never mind if he can't say, "Jesus Christ is my all in all." If he can say, "I'm a poor sinner, and nothing at all," he is most assuredly on the right road.
 
 "Oh! but," says one, "I am sinful, vile, worthless." All right! you're "a Poor sinner and nothing at all," and Jesus Christ is willing to be your "all in all." "But I have blasphemed God, departed from his ways, and greviously transgressed." Well, I believe that, and a great deal more, and am very glad to hear it; for thus I see you are
 
-> "A poor sinner, and nothing at all."
+> "A poor sinner, and nothing at all."  
 
 I am very glad if you will hold that opinion of yourself. "Ah! but I am afraid I have sinned too much. When I try I cannot do anything. When I try to mend my ways; when I try to believe in Christ, I cannot." We are glad, very glad of it brother, that you are
 
-> "A poor sinner, and nothing at all."
+> "A poor sinner, and nothing at all."  
 
 If you had a single particle of goodness; if you had a little bit not big enough to cover the top of your little finger, we should not be glad. But if thou art
 
-> "A poor sinner, and nothing at all,
-> 
-> Jesus Christ is thy all in all."
+> "A poor sinner, and nothing at all,  
+> Jesus Christ is thy all in all."  
 
 Come! wilt thou have him? Thou art "nothing at all." Wilt thou have Christ? There he stands. Ask: it is all he wants, for thou art the object of his regard. There are only three steps. One is to step out of self, the second is to step upon Jesus, the third is to step into heaven. You have taken one step. I am sure you will take the others. God never makes you feel you are
 
-> "A poor sinner, and nothing at all;"
+> "A poor sinner, and nothing at all;"  
 
 but, sooner or later, he gives
 
-> "Jesus Christ as your all in all.'
+> "Jesus Christ as your all in all.'  
 
 O poor sinner, do not be doubtful of my Master's power. Do but touch the hem of his garment, and thou shalt be made whole. Like the poor woman in the crowd, do but get at it and touch it, and he will surely say unto thee, "Thou art saved." If thou wilt go to him with this cry,
 
-> "I'm a poor sinner, and nothing at all,
-> 
-> And Jesus Christ is my all in all,"
+> "I'm a poor sinner, and nothing at all,  
+> And Jesus Christ is my all in all,"  
 
 Then you will see the blessed reason why Jesus interceded thus; "I pray not that thou shouldest take them out of the world."

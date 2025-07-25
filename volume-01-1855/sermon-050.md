@@ -2,9 +2,8 @@
 
 Sermon No. 50 - Delivered on Sabbath Morning, November 18, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Howbeit when he, the spirit of truth, is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come."
-> 
-> John 16:13.
+> "Howbeit when he, the spirit of truth, is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come."  
+> John 16:13.  
 
 THIS GENERATION hath gradually, and almost imperceptibly, become to a great extent a godless generation. One of the diseases of the present generation of mankind, is their secret but deep-seated godlessness, by which they have so far departed from the knowledge of God. Science has discovered to us second causes; and hence, many have too much forgotten the first Great Cause, the Author of all: they have been able so far to pry into secrets, that the great axiom of the existence of a God, has been too much neglected. Even among professing Christians, while there is a great amount of religion, there is too little godliness: there is much external formalism, but too little inward acknowledgment of God, too little living on God, living with God, and relying upon God. Hence arises the sad fact that when you enter many of our places of worship you will certainly hear the name of God mentioned; but except in the benediction, you would scarcely know there was a Trinity. In many places dedicated to Jehovah the name of Jesus is too often kept in the background; the Holy Spirit is almost entirely neglected; and very little is said concerning his sacred influence. Even religious men have become to a large degree godless in this age. We sadly require more preaching regarding God; more preaching of those things which look not so much at the creature to be saved, as at God the Great One to be extolled. My firm conviction is, that in proportion as we have more regard for the sacred godhead, the wondrous Trinity in Unity, shall we see a greater display of God's power, and a more glorious manifestation of his might in our churches. May God send us a Christ-exalting, Spirit-loving ministry--men who shall proclaim God the Holy Ghost in all his offices and shall extol God the Saviour as the author and finisher of our faith, not neglecting that Great God, the Father of his people, who, before all worlds, elected us in Christ his Son, justified us through his righteousness, and will inevitably preserve us and gather us together in one, in the consummation of all things at the last great day.
 
@@ -50,13 +49,10 @@ But sometimes he leads us by direction. The guide points and says--"There, gentl
 
 But perhaps the best way in which the Holy Ghost leads us into all truth is by illumination. He illuminates the Bible. Now, have any of you an illuminated Bible at home? "No," says one, "I have a morocco Bible; I have a Polyglot Bible; I have a marginal reference Bible." Ah! that is all very well but have you an illuminated Bible? "Yes, I have a large family Bible with pictures in it." There is a picture of John the Baptist baptizing Christ by pouring water on his head and many other nonsensical things; but that is not what I mean: have you an illuminated Bible? "Yes, I have a Bible with splendid engravings in it." Yes; I know you may have; but have you an illuminated Bible? "I don't understand what you mean by an illuminated Bible." Well, it is the Christian man who has an illuminated Bible. He does not buy it illuminated originally, but when he reads it
 
-> "A glory gilds the sacred page,
-> 
-> Majestic like the sun
-> 
-> Which gives a light to every age,--
-> 
-> It gives, but burrows none."
+> "A glory gilds the sacred page,  
+> Majestic like the sun  
+> Which gives a light to every age,--  
+> It gives, but burrows none."  
 
 There is nothing like reading an illuminated Bible, beloved. You may read to all eternity, and never learn anything by it, unless it is illuminated by the Spirit; and then the words shine forth like stars. The book seems made of gold leaf; every single letter glitters like a diamond. Oh, it is a blessed thing to read an illuminated Bible lit up by the radiance of the Holy Ghost. Hast thou read the Bible and studied it, my brother, and yet have thine eyes been unenlightened? Go and say, "O Lord gild the Bible for me. I want an expounded Bible. Illuminate it; shine upon it; for I cannot read it to profit, unless thou enlightenest me." Blind men may read the Bible with their fingers, but blind souls cannot. We want a light to read the Bible by, there is no reading it in the dark. Thus the Holy Spirit leads us into all truth, by suggesting ideas, by directing our thoughts, and by illuminating the Scriptures when we read them.
 
@@ -72,7 +68,7 @@ Now, what are the practical inferences from this great doctrine? The first is wi
 
 Another inference is this whenever any of our brethren do not understand the truth let us take a hint as to the best way of dealing with them. Do not let us controvert with them. I have heard many controversies, but never heard of any good from one of them. We have had controversies with certain men called Secularists, and very strong arguments have been brought against them; but I believe that the day of judgment shall declare that a very small amount of good was ever done by contending with these men. Better let them alone, where no fuel is the fire goeth out; and he that debateth with them puts wood upon the fire. So with regard to Baptism. It is of no avail to quarrel with our Paedo-baptist friends. If we simply pray for them that the God of truth may lead them to see the true doctrine, they will come to it far more easily than by discussions. Few men are taught by controversy, for
 
-> "A man convinced against his will, is of the same opinion still."
+> "A man convinced against his will, is of the same opinion still."  
 
 Pray for them that the Spirit of truth may lead them "into all truth." Do not be angry with your brother, but pray for him; cry, "Lord! open thou his eyes that he may behold wondrous things out of thy law."
 

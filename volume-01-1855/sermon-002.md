@@ -2,9 +2,8 @@
 
 Sermon No. 2 - Delivered on Sabbath Evening, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "This do in remembrance of me."
-> 
-> 1 Corinthians 11:24.
+> "This do in remembrance of me."  
+> 1 Corinthians 11:24.  
 
 It seems, then, that Christians may forget Christ. The text implies the possibility of forgetfulness concerning him whom gratitude and affection should constrain them to remember. There could be no need for this loving exhortation, if there were not a fearful supposition that our memories might prove treacherous, and our remembrance superficial in its character, or changing in its nature. Nor is this a bare supposition: it is, alas, too well confirmed in our experience, not as a possibility, but as a lamentable fact. It seems at first sight too gross a crime to lay at the door of converted men. It appears almost impossible that those who have been redeemed by the blood of the dying Lamb should ever forget their Ransomer; that those who have been loved with an everlasting love by the eternal Son of God, should ever forget that Son; but if startling to the ear, it is alas, too apparent to the eye to allow us to deny the fact. Forget him who ne'er forgot us! Forget him who poured his blood forth for our sins! Forget him who loved us even to the death! Can it be possible? Yes it is not only possible, but conscience confesses that it is too sadly a fault of all of us, that we can remember anything except Christ. The object which we should make the monarch of our hearts, is the very thing we are most inclined to forget. Where one would think that memory would linger, and unmindfulness would be an unknown intruder, that is the spot which is desecrated by the feet of forgetfulness, and that the place where memory too seldom looks. I appeal to the conscience of every Christian here: Can you deny the truth of what I utter? Do you not find yourselves forgetful of Jesus? Some creature steals away your heart, and you are unmindful of him upon whom your affection ought to be set. Some earthly business engrosses your attention when you should have your eye steadily fixed upon the cross. It is the incessant round of world, world, world; the constant din of earth, earth, earth, that takes away the soul from Christ. Oh! my friends, is it not too sadly true that we can recollect anything but Christ, and forget nothing so easy as him whom we ought to remember? While memory will preserve a poisoned weed, it suffereth the Rose of Sharon to wither.
 
@@ -26,9 +25,8 @@ Now, finish the scene of woe by a view of Calvary. Think of the pierced hands an
 
 I cannot, however, help saying one thing before I leave this head: and that is, there are some of you who can very well carry away what I have said, because you have read it often, and heard it before; but still you cannot spiritually remember anything about Christ, because you never had him manifested to you, and what we have never known, we cannot remember. Thanks be unto God, I speak not of you all, for in this place there is a goodly remnant according to the election of grace, and to them I turn. Perhaps I could tell you of some old barn, hedge-row, or cottage; or if you have lived in London, about some garret, or some dark lane or street, where first you met with Christ; or some chapel into which you strayed, and you might say, "Thank God, I can remember the seat where first he met with me, and spoke the whispers of love to my soul, and told me he had purchased me."
 
-> "Dost mind the place, the spot of ground,
-> 
-> Where Jesus did thee meet?"
+> "Dost mind the place, the spot of ground,  
+> Where Jesus did thee meet?"  
 
 Yes, and I would love to build a temple on the spot, and to raise some monument there, where Jehovah-Jesus first spoke to my soul, and manifested himself to me. But he has revealed himself to you more than once--has he not? And you can remember scores of places where the Lord hath appeared of old unto you, saying, "Behold I have loved you with an everlasting love." If you cannot all remember such things, there are some of you that can; and I am sure they will understand me when I say, come and do this in remembrance of Christ--in remembrance of all his loving visitations, of his sweet wooing words, of his winning smiles upon you, of all he has said and communicated to your souls. Remember all these things tonight, if it be possible for memory to gather up the mighty aggregate of grace. "Bless the Lord. O my soul, and forget not all his benefits."
 
@@ -38,21 +36,17 @@ Love never says, "Cui bono?" Love never asks what benefit it will derive from lo
 
 And first, remembrance of Jesus will tend to give you hope when you are under the burden of your sins. Notice a few characters here tonight. There comes in a poor creature. Look at him! He has neglected himself this last month; he looks as if he had hardly eaten his daily bread. What is the matter with you? "Oh!" says he, "I have been under a sense of guilt; I have been again and again lamenting, because I fear I can never be forgiven; once I thought I was good, but I have been reading the Bible, and I find that my heart is deceitful above all things, and desperately wicked;' I have tried to reform, but the more I try, the deeper I sink in the mire, there is certainly no hope for me. I feel that I deserve no mercy; it seems to me that God must destroy me, for he has declared, The soul that sinneth it shall die;' and die I must, be damned I must, for I know I have broken God's law." How will you comfort such a man? What soft words will you utter to give him peace? I know! I will tell thee that there is one, who for thee hath made a complete atonement; if thou only believest on him thou art safe for ever. Remember him, thou poor dying, hopeless creature, and thou shalt be made to sing for joy and gladness. See, the man believes, and in ecstasy exclaims, "Oh! come all ye that fear God, and I will tell you what he hath done for my soul."
 
-> "Tell it unto sinners, tell,
-> 
-> I am, I am out of hell."
+> "Tell it unto sinners, tell,  
+> I am, I am out of hell."  
 
 Hallelujah! God hath blotted out my sins like a thick cloud! That is one benefit to be derived from remembering Christ. It gives us hope under a sense of sin, and tells us there is mercy yet.
 
 Now, I must have another character. And what does he say? "I cannot stand it any longer; I have been persecuted and ill-treated, because I love Christ; I am mocked, and laughed at, and despised: I try to bear it, but I really cannot. A man will be a man; tread upon a worm and he will turn upon you; my patience altogether fails me; I am in such a peculiar position that it is of no use to advise me to have patience, for patience I cannot have; my enemies are slandering me, and I do not know what to do." What shall we say to that poor man? How shall we give him patience? What shall we preach to him? You have heard what he has to say about himself. How shall we comfort him under this great trial? If we suffered the same, what should we wish some friend to say to us? Shall we tell him that other persons have borne as much? He will say, "Miserable comforters are ye all!" No, I will tell him, "Brother, you are persecuted; but remember the words of Jesus Christ, how he spake unto us, and said, Rejoice in that day, and leap for joy, for great is your reward in heaven, for so persecuted they the prophets that were before you." My brother! think of him, who, when he died, prayed for his murderers, and said, "Father, forgive them, for they know not what they do." All you have to bear, is as nothing compared with his mighty sufferings. Take courage; face it again like a man; never say die. Let not your patience be gone; take up your cross daily, and follow Christ. Let him be your motto; set him before your eyes. And, now, receiving this, hear what the man will say. He tells you at once--"Hail, persecution; welcome shame. Disgrace for Jesus shall be my honor, and scorn shall be my highest glory.
 
-> "Now, for the love I bear his name,
-> 
-> What was my gain I count my loss,
-> 
-> I pour contempt on all my shame,
-> 
-> And nail my glory to his cross."
+> "Now, for the love I bear his name,  
+> What was my gain I count my loss,  
+> I pour contempt on all my shame,  
+> And nail my glory to his cross."  
 
 There is another effect, you see, to remembering Christ. It tends to give us patience under persecution. It is a girdle to brace up the loins, so that our faith may endure to the end.
 
@@ -78,18 +72,11 @@ And not to lead you into any mistakes, I must just add one thing, and then I hav
 
 Now, O ever glorious Son of God, we approach thy table to feast on the viands of grace, permit each of us, in reliance upon thy Spirit, to exclaim in the words of one of thine own poets:
 
-> "Remember thee, and all thy pains,
-> 
-> And all thy love to me--
-> 
-> Yes, while a pulse or breath remains,
-> 
-> I will remember thee.
-> 
-> And when these failing lips grow dumb,
-> 
-> And thought and memory flee;
-> 
-> When thou shalt in thy kingdom come,
-> 
-> Jesus, remember me!"
+> "Remember thee, and all thy pains,  
+> And all thy love to me--  
+> Yes, while a pulse or breath remains,  
+> I will remember thee.  
+> And when these failing lips grow dumb,  
+> And thought and memory flee;  
+> When thou shalt in thy kingdom come,  
+> Jesus, remember me!"  
