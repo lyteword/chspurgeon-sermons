@@ -2,9 +2,8 @@
 
 Sermon No. 165 - Delivered on Sabbath Morning, November 29, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "He heard the sound of the trumpet, and took not warning; his blood shall be upon him."
-> 
-> Ezekiel 33:5.
+> "He heard the sound of the trumpet, and took not warning; his blood shall be upon him."  
+> Ezekiel 33:5.  
 
 IN ALL WORLDLY THINGS, men are always enough awake to understand their own interests. There is scarce a merchant who reads the paper, who does not read it in some way or other, with a view to his own personal concerns. If he finds that by the rise or fall of the markets, he will be either a gainer or loser, that part of the day's news will be the most important to him. In politics, in everything, in fact, that concerns temporal affairs, personal interest usually leads the van. Men will always be looking out for themselves, and personal and home interests will generally engross the major part of their thoughts. But in religion, it is otherwise. In religion men love far rather to believe abstract doctrines, and to talk of general truths, than the searching inquiries which examine their own personal interest in it. You will hear many men admire the preacher who deals in generalities, but when he comes to press home searching questions, by-and-by they are offended. If we stand and declare general facts, such as the universal sinnership of mankind, or the need of a Saviour, they will give an assent to our doctrine, and possibly they may retire greatly delighted with the discourse, because it has not affected them; but how often will our audience gnash their teeth, and go away in a rage, because, like the Pharisees with Jesus, they perceive, concerning a faithful minister, that he spoke of them. And yet, my brethren, how foolish this is. If in all other matters we like personalities--if in everything else we look to our own concerns, how much more should we do so in religion? for, surely, every man must give an account for himself, at the day of judgment. We must die alone; we must rise at the day of resurrection one by one, and each one for himself must appear before the bar of God; and each one must either have said to him, as an individual, "Come ye blessed;" or else, he must be appalled with the thundering sentence, "Depart, ye cursed." 
 
