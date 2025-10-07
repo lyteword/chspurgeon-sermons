@@ -1,4 +1,4 @@
-# Sermons of Charles H. Spurgeon (Markdown Edition)
+# Sermons of Charles H. Spurgeon - Markdown Edition
 
 ## **Overview**
 
