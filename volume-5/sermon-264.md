@@ -2,8 +2,8 @@
 
 Sermon No. 264 - Delivered on Sabbath Morning, July 24th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "That thou mayest bear thing own shame, and mayest be confounded in all that thou hast done, in that thou art a comfort unto them."  
-> Ezekiel 16:54.  
+> That thou mayest bear thing own shame, and mayest be confounded in all that thou hast done, in that thou art a comfort unto them.    
+> Ezekiel 16:54.    
 
 IT IS NOT a comfortable state to be at enmity with God, and the sinner knows this. Although he perseveres in his rebellion against the Most High, and turns not at the rebuke of the Almighty, but still goeth on in his iniquity, desperately seeking his own destruction, yet is he aware in his own conscience that he is not in a secure position. Hence it is that all wicked men are constantly on the look out for excuses. They find these either in pretended resolutions to reform at some future period, or else in the declaration that reformation is out of their power, and that, acting according to their own nature, they must continue to go on in their iniquities. When a man is willing to find an excuse for being God's enemy he need never be at a loss. He who hath to find a fact may find some difficulty; but he who would forge a lie may sit at his own fireside and do it. Now, the excuses of sinners are all of them false; they are refuges of lies; and therefore we need not wonder that they are exceedingly numerous, and very easy to come at.
 
@@ -21,9 +21,8 @@ The covetousness of too many Christians has had this offset. "Look," says the wo
 
 Another point in which the sinner often excuses himself is the manifest worldliness of many Christians. You will see Christian men and women as fond of dress, and as pleased with the frivolities of the age, as any other persons possibly could be, just as anxious to adorn their outward persons, so as to be seen of men; just as ambitious to win the praise which fools accord to fine dressing, as the most silly fop or the most gaudy among worldly women. What saith the world, when we turn round to it, and accuse it of being a mere butterfly, and finding all its pleasures in gaudy toys? "Oh! yes," it says, "we know your cant, but it is just the same with you." Do you not stand up and sing,
 
-"Jewels to me are gaudy toys,
-
-And gold but sordid dust?"
+> Jewels to me are gaudy toys,    
+> And gold but sordid dust?    
 
 And yet you are just as fond of glittering as we are; your doctors of divinity pride themselves just as much in their D.D. as any of us in other titles. You are Just as punctillious about terms of honor as any of us can be. You talk about carrying the cross; but we do not see it anywhere, except it be a golden cross sometimes hanging on your bosom. You say you are crucified to the world, and the world to you: it is a very merry sort of crucifixion. You say that you mortify your members and deny yourselves: your mortification must be suffered in secret, for it is but very little that we can see of it! Thus the worldling casts back to our challenge, declaring that we are not sincere, and thus he comforts himself a his sin, and justifies himself in his iniquity,
 

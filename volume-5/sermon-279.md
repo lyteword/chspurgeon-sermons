@@ -2,8 +2,8 @@
 
 Sermon No. 279 - Delivered on Sabbath Morning, October 16th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And the Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely."  
-> Revelation 22:17.  
+> And the Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely.    
+> Revelation 22:17.    
 
 THE CRY OF THE CHRISTIAN RELIGION is the simple word, "Come." The Jewish law said, "Go, and take heed unto thy steps as to the path in which thou shalt walk. Go, and break the commandments, and thou shalt perish; Go, and keep them, and thou shalt live." The law was a dispensation of the whip, which drove men before it; the gospel is just of the opposite kind. It is the Shepherds dispensation. He goeth before his sheep, and he bids them follow him, saying unto them, "Come." The law repels; the gospel attracts. The law shows the distance between God and man; the gospel bridges that distance, and brings the sinner across that great fixed gulf which Moses could never bridge. The fact is, as you will all have to learn, if you know anything of gracious experience, that from the first moment of your spiritual life until you are ushered into glory, the cry of Christ to you will be, "Come, come unto me." He will always be ahead of you, bidding you follow him as the soldier follows his leader. He will always go before you to pave your way, and to prepare your path, and he will bid you come after him all through life, and in the solemn hour of death, when you shall lie panting upon your bed, his sweet word with which he shall usher you into the heavenly world shall be--"Come, come unto me. Stretch thy wings and fly straight to this world of joy where I am dwelling. Come and be with me where I am."
 
@@ -23,15 +23,13 @@ Again, it is living water not simply because it is love, and that is life, but i
 
 "But," saith one, "I have a longing within me which I cannot satisfy. I feel sure that if I be pardoned yet there is something which I want--which nothing I have ever heard of, or have ever seen or handled can satisfy. I have within me an aching void which the world can never fill." "There was a time," says one, "when I was satisfied with the theater, when the amusements, the pleasures of men of the world, were very satisfactory to me. But lo! I have pressed this olive till it yields no more the generous oil; it is but the dreggy thick excrement thereof that now I can obtain. My joys have faded; the beauty of my fat valley hath become as a faded flower. No longer can I rejoice in the music of this world." Ah! soul, glad am I that thy cistern has become dry, for till men are dissatisfied with this world they never look out for the next; till the God of this world has utterly deceived them they will not look to him who is the only living and true God. But hearken! thou that art wretched and miserable, here is living water that can quench thy thirst. Come hither and drink, and thou shalt be satisfied; for he that is a believer in Christ finds enough for him in Christ now, and enough for ever. The believer is not the man who has to pace his room, saying, "I find no amusements and no delight." He is not the man whose days are weary, and whose nights are long, for he finds in religion such a spring of joy, such a fountain of consolation, that he is content and happy. Put him in a dungeon and he will find good company; place him in a barren wilderness, still he could eat the bread of heaven; drive him away from friendship, he will find the "friend that sticketh closer than a brother." Blast all his gourds, and he will find shadow beneath the rock of ages; sap the foundation of his earthly hopes, but since the foundation of his God standeth sure, his heart will still be fixed, trusting in the Lord. There is each a fullness in religion, that I can honestly testify from experience,
 
-"I would not change my best estate,
-
-For all that earth calls good or great."
+> I would not change my best estate,    
+> For all that earth calls good or great.    
 
 I never knew what happiness was till I knew Christ; I thought I did. I warmed my hands before the fire of sin, but it was a painted fire. But oh, when once I tasted the Saviour's love, and had been washed in Jesus's blood, that was heaven begun below.
 
-"Tis heaven on earth, and heaven above,
-
-To see his face, to taste his love."
+> Tis heaven on earth, and heaven above,    
+> To see his face, to taste his love.    
 
 Oh, if ye did but know the joys of religion, if ye did but know the sweetness of love to Christ, surely ye could not stand aloof. If ye could but catch a glimpse of the believer when he is dancing for joy, you would renounce your wildest mirth, your greatest joy, to become the meanest child in the family of God. Thus then it is the living water, it is the water of life, because it satisfies our thirst, and gives us the reality of life which we can never find in anything beneath the sky.
 
@@ -49,13 +47,10 @@ Now mark, the question has to do with the will. "Oh," says one, "I am so foolish
 
 "Oh," says one, "I can understand the plan of salvation, but I cannot repent as I would. Sir, my heart is so hard, I cannot bring the tear to my eye, I cannot feel my sins as I would desire.
 
-"My heart how dreadful hard it is,
-
-How heavy here it lies;
-
-Heavy and cold within my breast,
-
-Just like a rock of ice."
+> My heart how dreadful hard it is,    
+> How heavy here it lies;    
+> Heavy and cold within my breast,    
+> Just like a rock of ice.    
 
 Ay, but this text has nothing to do with your heart; it is with your will. Are you willing? Then be your heart hard as the nether millstone if thou art willing to be saved I am bidden to invite thee. "Whosoever will," not "whosoever feels," but "whosoever will, let him come and take the water of life freely." "Yes," says one, "I can honestly say I am willing, but my heart will not soften. I wish that grace would change me. I can say I wish that Christ would soften my heart. I do desire that he would put the living fire within my cold breast and make me repent, and make me love him, and make me believe in him. I am willing." Well, then, the text is for thee, "Whosoever will, let him come." If thou art willing thou art freely invited to Christ. "No," saith one, "but I am such a great sinner. I have been a drunkard; I have been a lascivious man; I have gone far astray from the paths of rectitude. I would not have all my sins known to my fellow creatures. How can God accept of such a wretch as I am, such a foul creature as I have been?" Mark thee, man! There is no reference made here to thy past life. It simply says, "whosoever will," Art thou willing? Art thou willing to be saved? Canst thou say, "Now, Lord, I am willing to be saved, give me a new heart; I am willing to give up my sins; I am willing to be a Christian; I am willing to believe and willing to obey, but oh for this no strength have I, Lord, I have the will; give me the power." Then thou art freely invited to come, if thou art but willing. There is no barrier between thee and Christ except thy stubborn will. If thy will is subdued, and if thou art saying "Yes, Lord, I am willing," then art thou freely invited. Oh, reject not the invitation, but, come and welcome, sinner come."
 
@@ -79,23 +74,17 @@ I will go to the fountain and take of the water of life freely."
 
 And now this brings me to the last head, the condition which is the death of all conditions--LET US TAKE IT FREELY. Methinks I see one here who is saying "I would be saved and I will do what I can to be worthy of it." The fountain is free, and he comes with his halfpenny in his hand, and that a bad one, and he says, "Here, sir, give me a cup of this living water to drink; I am well worthy of it for see the price is in my band." Why, man, if thou could'st bring the wealth of Potosi, or all the diamonds of Galconda, and all the pearls of Ormuz, you could not buy this most costly thing. Put up your money, you could not have it for gold or silver. The man brings his merit, but heaven is not to be sold to meritmongers. Or perhaps you say "I will go to church regularly, I will give to the poor, I will attend my meeting-house, I will take a sitting, I will be baptized, I will do this and the other, and then no doubt I shall have the water of life." Back, miserable herd, bring not your rags and rubbish to God, he wants them not. Stand back, you insult the Almighty when you tender anything as payment. Back with ye; he invites not such as you to come. He says come freely. He wants nothing to recommend you. He needs no recommendation. You want no good works. Do not bring any. But you have no good feelings. Nevertheless you are willing, therefore come. He wants no good feelings of you. You have no belief and no repentance, yet nevertheless you are willing.
 
-"True belief and true repentance,
-
-Every grace that brings us nigh,
-
-Without money,
-
-Come to Jesus Christ and buy."
+> True belief and true repentance,    
+> Every grace that brings us nigh,    
+> Without money,    
+> Come to Jesus Christ and buy.    
 
 Do not try to get them yourself--come to him, and he will give them to you. Come just as you are; it is "freely," "without money and without price." The drinking fountains at the corners of our streets are valuable institutions; but I cannot imagine anyone being so foolish, as when he comes to the drinking. fountains fumbling for his purse, and saying, "I cannot drink because I have not five pounds in my pocket." Why, however poor the man is, there is the fountain, and poor as he is he may drink of it. It is put there for the public. Thirsty souls as they go by, whether they are dressed in fustian or in broad cloth, don't look for any warrant for drinking; they come and drink of it freely. Here it is; the liberality of some good friend has put it there, and they take it and ask no questions whatever. Perhaps the only persons that ever need to go thirsty through the street where there is a drinking fountain, are the fine ladies and gentlemen who are in their carriages. They are very thirsty, and cannot think of being so vulgar as to get out to drink. It would bemean them, they think, to drink at a common drinking fountain, so they go with parched lips. Oh, how many there are that are rich, rich in their own good works, that cannot come to Christ. "I will not he saved," they say, "in the same way as a harlot or a swearer. What I go to heaven the same way as a chimney sweep! Is there no pathway to glory, but the path which a Magdalene may take? I will not be saved that way." Then you fine gentry may remain without. You are not bidden to come, for you are not willing. But remember,
 
-"None are excluded hence,
-
-But those who do themselves exclude;
-
-Welcome the learned and polite,
-
-The ignorant and rude."
+> None are excluded hence,    
+> But those who do themselves exclude;    
+> Welcome the learned and polite,    
+> The ignorant and rude.    
 
 "Whosoever wills let him come." Let him bring nothing to recommend him. Let him not imagine he can give any payment to God or any ransom for his soul; for the one condition that excludes all conditions is, "Let him come and take the water of life freely." There is a man of God here, who has drank of the river of the water of life many times; but he says, "I want to know more of Christ, I want to have nearer fellowship with him; I want to enter more closely into the mystery of his sacrifice; I want to understand more and more of the fellowship of his sufferings, and to be made conformable unto his death." Well, believer, drink freely. You have filled your bowl of faith once, and you drank the draught off, fill it again, drink again, and keep on drinking. Put your mouth to the fountain if you will, drink right on. As good Rutherford says in one of his letters, "I have been sinking my bucket down into the well full often, but now my thirst after Christ has become so insatiable, that I long to put the well itself to my lips, and drain it all, and drink right on." Well take it freely as much as ever you can. You have come now into the field of Boaz, you may pick up every ear that you can find, nay more than that, you may carry away the sheaves if you like, and more than that, you may claim the whole field to be yours if you will. The eating and drinking at Christ's table is like that of Ahasuerus, only in an opposite way. It is said of that table, none did compel; it is said of this, none doth withhold: none can restrain. If there be a big vessel full of this holy water, drink it all up, and if there be one that holdeth twelve firkins, drink it, yea, drink it all, and thou shalt find that even then there is as much as ever. In Christ there is enough for all, enough for each enough for evermore; and none shall ever have need to say that there was not enough in Christ for him. Drink freely. So you see that there are two meanings--drink without price, and drink without stint.
 
@@ -107,12 +96,9 @@ And now will you refuse the invitation? See that you refuse not him that speaket
 
 Oh do not so; grieve not the Spirit of God; to-day is the accepted time; to-day is the day of salvation. If ye turn not he will whet his sword; he hath bent his bow, and made it ready. You have been warned, your conscience has often pricked you, now this day you are sweetly invited. But the time of warnings and invitations will not last for ever: they will soon be over, and when your funeral knell is tolling, you shall be in that lake of fire, that land of misery and pain, where not a drop of water shall ever cool your burning tongue. As you would escape from the flames of hell, as you would be delivered from the eternal torments which God will certainly hurl upon you like hailstones, I beseech thee now consider thy ways, and if now thou art willing thou art invited and none can keep thee back from his mercy. "Whosoever will let him take the water of life freely." Shall I preach in vain? Will you all go away and not take the water of life? Come, soul--is there not one at least that God shall give me this day for my hire--not one? May I not take one of you by the hand, some poor sinning erring brother? Come, brother let us go together and drink. O may the Holy Ghost incline you. Take it my brother. See on that bloody tree Jesus hangs; behold he pays his life a ransom for your sins and mine. Believe on him, trust him, commit your soul to him and be saved. Will you not say in your soul
 
-"Just as I am without one plea
-
-But that thy blood was shed for me
-
-And that thou bid'st me come to thee,
-
-O lamb of God I come, I come?"
+> Just as I am without one plea    
+> But that thy blood was shed for me    
+> And that thou bid'st me come to thee,    
+> O lamb of God I come, I come?    
 
 And as my Master is true and faithful, he cannot cast away one soul that cometh, for "him that cometh unto me I will in no wise cast out." O Spirit, now draw reluctant hearts, and now give timid souls courage to believe for Jesus' sake. Amen.

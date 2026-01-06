@@ -2,8 +2,8 @@
 
 Sermon No. 280 - Delivered on Sabbath Morning, October 23rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The ungodly are not so: but are like the chaff which the wind driveth away."  
-> Psalm 1:4.  
+> The ungodly are not so: but are like the chaff which the wind driveth away.    
+> Psalm 1:4.    
 
 AND WHO are the ungodly? Are they open and wilful sinners--men who take God's name in vain, and curse, and blaspheme--men who break the laws of man, the laws of the state--men who are scarcely to be trusted with liberty? Certainly these are included, but these are not mainly intended. While such men come under the category of "sinners" and "scorners," there is another class expressly aimed at by the term "ungodly." And who are the ungodly? Are they the men who deny God's existence, who neglect the outward forms of religion, who scoff at everything that is sacred, and make a ribald jest of things at which angels tremble? These are included, most certainly, but neither are these the men specially aimed at. They are the scornful, the pestilent: these are the men whose iniquities have gone beforehand to judgment against them, and whose sins are clammering before the throne for justice. Another class of men is intended under the term "ungodly." And who are they? Surely, my brethren, the answer may well strike you with awe. I do trust there are not many in this hall who may be called scorners; and, perhaps, not very many who would come under the denomination of open profligates and rebels; but how large a proportion of all those who attend our places of worship may justly be ranked under the character of the ungodly! What does this exactly mean? Let me just show its differences once again, and then more precisely define it.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 281 - Delivered on Sabbath Morning, October 30th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "On his head were many crowns."  
-> Revelation 19:12.  
+> On his head were many crowns.    
+> Revelation 19:12.    
 
 AH, WELL YE KNOW what head this was, and ye have not forgotten its marvellous history. A head which once in infancy reclined upon the bosom of a woman! A head which was meekly bowed in obedience to a carpenter! A head which became in after years a fountain of water, and a reservoir of tears. A head which "sweat as it were great drops of blood falling to the ground!" A head which was spit upon, whose hair was plucked: A head which at the last in the grim agony of death, crowned with thorns, gave utterance to the terrible death-shriek--lama sabachthani! A head which afterwards slept in the grave; and--glory be unto him that liveth and was dead, but is alive for evermore--a head which afterwards rose again from the tomb, and looked with radiant eyes of love upon the holy women waiting at the sepulcher. This is the head whereof John speaks in the words of the text. Who would have thought that a head, the visage of which was more marred than that of any other man--a head which suffered more from the tempests of heavenward of earth than ever mortal brow before, should now be surrounded with these many diadems, these star-bestudded crowns!
 
@@ -27,13 +27,10 @@ And then again, Christ wears about his head the crown of death. He died, and in 
 
 And yet, once again, another crown hath Christ, and that is the crown of victory over man. Would to God, my hearers, that he wore a crown for each of you. What hard work it is to fight with the evil heart of man. If you wish him to do evil, you can soon overcome him; but if you would overcome him with good, how hard the struggle! Christ could have man's heart, but man would not give it to him. Christ tried him in many a way; he woed him, but man's heart was hard and would not melt. Moses came, and said, "My Master, let me try and open man's heart;" and he used the fire, and the whirlwind, and the hammer of God; but the heart would not break, and the spirit would not open to Christ. Then Christ came, and he said, "Hard-heart, I will win thee; O, icy Soul, I will melt thee." And the Soul said. "No, Jesus, I defy thee." But Christ said, "I will do it." And he came once upon a time to the poor Hard-heart, and brought his cross with him. "See, Hard-heart," said he, "I love thee; though thou lovest not me, yet I love thee, and in proof of this, see here; I will hang upon this cross." And as Hard-heart looked on, suddenly fierce men nailed the Saviour to the tree. His hands were pierced; his soul was rent in agony, and looking down on the Hard-heart, Jesus said, "Hard-heart, wilt thou not love me? I love thee; I have redeemed thee from death; though thou me, yet do I die for thee; though thou kickest against me yet will I surely carry thee to my throne." And the Hard-heart said, "Jesus, I can bear it no longer, I yield to thee. thy love has overcome me; oh, I would be thy subject for ever, only remember me when thou comest into thy kingdom, and let me be numbered with thy subjects both now and for ever." My hearers, has Christ ever overcome you? Say, has his love bean too much for you? Have you been compelled to give up your sins, woed by his love divine? Have your eyes been made to run with tears at the thought of his affection for you, and of your own ingratitude? Have you ever thought this over?--"I, the blackest of sinners, have despised him; his Bible I have left unread; his blood I have trampled under foot, and yet he died for me, and loved me with an everlasting love." Surely, this has made you bow your knee; this has made your spirit cry--
 
-"Oh, sovereign grace my heart subdue;
-
-I will be led in triumph, too,
-
-A willing captive to my Lord
-
-To sing the triumphs of his Word."
+> Oh, sovereign grace my heart subdue;    
+> I will be led in triumph, too,    
+> A willing captive to my Lord    
+> To sing the triumphs of his Word.    
 
 If this be the case with you, then you may yourself recognize one of the many crowns that are on his head.
 
@@ -43,13 +40,10 @@ I am preaching in my own spirit against wind and tide. There are times when one 
 
 The third head deals with the CROWNS OF THANKSGIVING. Surely, concerning these we may well say, "On his head are many crowns." In the first place, all the mighty doers in Christ's church ascribe their crown to him. What a glorious crown is that which Elijah will wear--the man who went to Ahab, and when Ahab said, "Hast thou found me, O mine enemy?" reproved him to his very face--the man who took the prophets of Baal, and let not one of them escape, but hewed them in pieces and made them a sacrifice to God. What a crown will he wear who ascended into heaven in a chariot of fire! What a crown, again, belongs to Daniel, saved from the lion's den--Daniel, the earnest prophet of God. What a crown will be that which shall glitter on the head of the weeping Jeremy, and the eloquent Esaias! What crowns are those which shall begirt the heads of the apostles! What a weighty diadem is that which Paul shall receive for his many years of service! And then, my friends, how shall the crown of Luther glitter, and the crown of Calvin; and what a noble diadem shall that be which Whitfield shall wear, and all those men who have so valiantly served God, and who by his might have put to flight the armies of the Aliens, and have maintained the gospel banner erect in troublous times! Nay, but let me point to you a scene. Elijah enters heaven, and where goes he with that crown which is instantly put upon his head? See, he flies to the throne, and stooping there, he uncrowns himself; "Not unto me, not unto me but unto thy name be all the glory!" See the prophets as they steam in one by one; without exception, they put their crowns upon the head of Christ. And mark the apostles, and all the mighty teachers of the church; they all bow there and cast their crowns at his feet, who, by his grace, enabled them to win them.
 
-"I ask them whence their victory came;
-
-They, with united breath,
-
-Ascribe their triumph to the Lamb,
-
-Their conquest to HIS DEATH."
+> I ask them whence their victory came;    
+> They, with united breath,    
+> Ascribe their triumph to the Lamb,    
+> Their conquest to HIS DEATH.    
 
 Not only the mighty doers but the mighty sufferers do this. How brilliant are the ruby crowns of the martyred saints. From the stake, from the gibbet, from the fire, they ascended up to God; and among the bright ones they are doubly bright, fairest of the mighty host that surrounds the throne of the Blessed One. What crowns they wear! I must confess that I have often envied them. It is a happy thing to live in peaceful days; but while happy, it is not honorable. How much more honorable to have died the death of Lawrence, grilled to death upon that fiery gridiron, or to die pierced with spears, with every bone dislocated on the rack! A noble way of serving Christ, to have stood calmly in the midst of the fires, and have clapped one's hands, and cried. "I can do all things, even give my body to be burned for his dear names sake!" What crowns are those which martyr's wear! An angel might blush to think that his dignity was so small compared with that of those riders in chariots of fire. Where are all those crowns? They are on the head of Christ. Not a martyr wears his crown; they all take their blood-red crowns, and then they place them on his brow--the fire crown, the rack crown, there I see them all glitter. For it was his love that helped them to endure; it was by his blood that they overcame.
 

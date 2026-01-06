@@ -2,8 +2,8 @@
 
 Sermon No. 262 - Delivered on Sabbath Evening, February 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "For who maketh thee to differ from another?"  
-> 1 Corinthians 4:7.  
+> For who maketh thee to differ from another?    
+> 1 Corinthians 4:7.    
 
 OR, AS IT IS in the Greek: "For who distinguisheth thee?" "Who giveth thee distinguishing and discriminating mercy?" "Who maketh thee to differ from another?" Pride is the inherent sin of man, and yet it is of all sins the most foolish. A thousand arguments might be used to show its absurdity; but none of these would be sufficient to quench its vitality. Alive it is in the heart, and there it will be, till we die to this world and rise again without spot or blemish. Yet many are the arrows which may be shot at the heart of our boasting. Take for instance the argument of creation; how strongly that thrusts at our pride. There is a vessel upon the potter's wheel, would it not be preposterous for that clay which the potter fashioneth to boast itself and say, "How well am I fashioned! how beautifully am I proportioned; I deserve much praise!" Why, O lump of clay, whateverthou art, the potter made thee; however elegant thy proportions, however matchless thy symmetry, the glory is due to him that made thee, not to thyself; thou art but the work of his hands. And so let us speak unto ourselves. We are the thing formed; shall we say of ourselves that we deserve honor because God hath formed us excellently and wondrously? No, the fact of our creation should extinguish the sparks of our pride. What are we, after all, but as grasshoppers in his sight, as drops of the bucket, as lumps of animated dust; we are but the infants of a day when we are most old; we are but the insects of an hour when we are most strong; we are but the wild ass's colt when we are most wise, we are but as folly and vanity when we are most excellent--let that tend to humble us. But surely if these prevail not to clip the pinions of our high soaring pride, the Christian man may at least bind its wings with arguments derived from the distinguishing love and peculiar mercies of God. "Who maketh thee to differ from another?"--This question should be like a dagger put to the throat of our boasting;--"and what trust thou that thou didst not receive;"--it would be like a sword thrust through the heart of our self-exaltation and pride.
 
@@ -15,13 +15,10 @@ But the best way for you to feel this part of the discourse is, to go to-morrow 
 
 But this is not the most important point for us to observe. We are now going to look at, not matters of providence, but the things of God's grace. Here it is that we who are now assembled as a church have most reason to bless God, and to say, "Who maketh us to differ from others?" Take, my dear friends, in your mind's eye the cases of the careless, the hardened, and the thoughtless, of even this present congregation. Side-by-side with you, my brother, there may sit a man, a woman, who is dead in trespasses and sins. To such the music of the gospel is like singing to a dead ear, and the dropping of the word is as dew upon a rock. There are many in this congregation whose position in society, and whose moral character are extremely excellent, and yet before God their state is awful. They attend the house of God as regularly as we do. They sing as we sing, sit as we sit, and come and go as we do, and yet are they without God and without hope in the world--strangers from the commonwealth of Israel, and aliens from the covenant of promise. Yet what maketh us to differ? Why is it that I this day am not sitting down a callous hearer, hardened under the gospel? Why am I not at this very hour hearing the Word with my outward ear but rejecting it in my inward heart? Why is it that I have not been suffered to reject the invitation of Christ to despise his grace--to go on, Sunday after Sunday, hearing the Word and yet being like the deaf adder to it. Oh, have I made myself to differ? God forbid that such a proud, blaspheming thought should defile our hearts. No, beloved;
 
-"Twas the same love which spread the feast,
-
-That sweetly forced us in;
-
-Else we had still refused to taste,
-
-And perished in our sin."
+> Twas the same love which spread the feast,    
+> That sweetly forced us in;    
+> Else we had still refused to taste,    
+> And perished in our sin.    
 
 The only reason, my brother, why thou art at this time an heir of God, a joint-heir with Christ, a partaker of sweet fellowship with Jesus, an inheritor of the kingdom of heaven, is because HE hath made thee to differ. Thou wast an heir of wrath, even as others, born in sin and shapen in iniquity. Therefore must thou give all the glory to his holy name, and cry--"Not unto us, not unto us, but unto thy name be all the praise." Even this one thought when fully masticated and digested might feed up our gratitude and make us humbly bow before the footstool of God's throne with joyful thanksgiving.
 
@@ -31,33 +28,27 @@ But now another, the lowest class of sinners do not mingle with our congregation
 
 And now we will pause again, and think over another evil which stares us in the face in connection with every church. There are most melancholy cases of backsliding in so large a church as this. We are compelled often to discover the character of men and women who once seemed fair for heaven, but who manifested that they never had the root of the matter in them. Oh! well did the poet say,--
 
-"When any turn from Zion's way,
-
-Alas! what numbers do!"
+> When any turn from Zion's way,    
+> Alas! what numbers do!    
 
 No trial is greater to the true minister than the apostacy of his flock. All the rage of men is quite unable to bring tears to our eyes, but this has done it. Alas! when those whom I have loved have turned aside from the way of God, when those who have sat with us at the same table, and have joined with us in church communion, have gone out from us, and have brought dishonor upon the Church, and upon the name of Christ, there has been woe in my inmost spirit. Sometimes there are cases as glaring as they are painful, and as vile as they are grievous. Some of those, who were once in the midst of God's sanctuary, have become drunkards and whoremongers--and God in heaven only knows what. They have sinned against everything that is seemly, as well as everything that is holy. At the recollection of these our eyes are filled with tears. "Oh that our head were waters, and our eyes fountains of tears, that we might weep day and night for the slain of the daughter of our people." No mischief-makers are so powerful as deserters. None cause so much agony as those who have nestled beneath our wings, and then have flown away to feed with carrion vultures on the putrid carcases of lust and sin.
 
 But now let us pause. How is it that the minister has not forsaken his profession, and gone back like a dog to his vomit, and like the sow that was washed to her wallowing in the mire? How is it that the deacons of this church have not turned aside unto crooked ways, and denied the faith, and become worse than infidels? How is it that so many members of this church have been kept so that the wicked one toucheth them not? O beloved! I can say for myself, I am a continual miracle of divine grace. If thou leave me, Lord, for a moment, I am utterly undone.
 
-"Leave, O leave me not alone!
-
-Still support and comfort me"
+> Leave, O leave me not alone!    
+> Still support and comfort me    
 
 Let Abraham be deserted by his God, he equivocates and denies his wife. Let Noah be deserted, he becomes a drunkard, and is naked to his shame. Let Lot be left awhile, and, filled with wine, he revels in incestuous embraces, and the fruit of his body becomes a testimony to his disgrace. Nay, let David, the man after God's own heart, be left, and Uriah's wife shall soon show the world that the man after God's own heart hath still an evil heart of unbelief in departing from the living God. Oh! well doth the poet put it--
 
-"Methinks I hear the Saviour say,
-
-Wilt thou forsake me too?"
+> Methinks I hear the Saviour say,    
+> Wilt thou forsake me too?    
 
 And now let our conscience answer:--
 
-"Ah, Lord! with such a heart as mine,
-
-Unless thou hold me fast,
-
-I feel I must, I shall decline
-
-And prove like them at last."
+> Ah, Lord! with such a heart as mine,    
+> Unless thou hold me fast,    
+> I feel I must, I shall decline    
+> And prove like them at last.    
 
 Oh be not rashly self-confident, Christian man. Be as confident as you can in your God, but be distrustful of yourself. Ye may yet become all that is vile and vicious, unless sovereign grace prevent and keep you to the end. But remember if you have been preserved, the crown of your keeping belongs to the Shepherd of lsrael, and ye know who that is. For he hath said "I the Lord do keep it. I will water it every moment: lest any hurt it, I will keep it night and day." "Ye know who is able to keep you from falling, and to present you faultless before his presence with exceeding great joy." Then give all glory to the King immortal, invisible, the only wise God your Saviour, who has kept you thus.
 
@@ -65,13 +56,10 @@ Allow me one more contrast; once again let your gratitude go with me since you a
 
 No, I never shall wear the chain, I ne'er shall be stretched upon that rack, nor feel that fire--
 
-"But I shall see his face,
-
-And never, never sin,
-
-But from the rivers of his grace
-
-Drink endless pleasures in."
+> But I shall see his face,    
+> And never, never sin,    
+> But from the rivers of his grace    
+> Drink endless pleasures in.    
 
 But I most confidently proclaim that the reason why I shall escape and shall be glorified, is not to be found in me, but in him. He hath made me to differ. I have nothing but what I have received.
 

@@ -2,14 +2,13 @@
 
 Sermon No. 260 - Delivered on Sabbath Morning, July 3rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Kiss the Son, lest he be angry, and ye perish from the way when his wrath is kindled but a little. Blessed are all they that put their trust in him."  
-> Psalm 2:12.  
+> Kiss the Son, lest he be angry, and ye perish from the way when his wrath is kindled but a little. Blessed are all they that put their trust in him.    
+> Psalm 2:12.    
 
 IT WILL NOT BE NEEDFUL for me this morning to be controversial in my discourse; for but two Sabbaths ago I addressed you from that text, "The mighty God," and endeavored with the utmost of my ability to prove that Christ must be "very God of very God,"--co-equal and co-eternal with his Father. Without, then, attempting to prove that, let us drive onward towards the practical issue; for, after all, practice is the end of preaching; or, if ye will have it, I will put it into Herbert's words--
 
-"Attend sermons, but prayers most,
-
-Praying's the end of preaching."
+> Attend sermons, but prayers most,    
+> Praying's the end of preaching.    
 
 And that too is in the text, for what lip can give the kiss of sincerity to the Son of God, save the lip of prayer. We drive onward, then, towards the practical conclusion May God the Holy Spirit assist us.
 
@@ -21,61 +20,49 @@ First, then, THE COMMAND--"Kiss the Son." This bears four interpretations. A kis
 
 In the first place, it is a kiss of reconciliation. The kiss is a token of enmity removed, of strife ended, and of peace established. You will remember that when Jacob met Esau, although the hearts of the brothers had been long estranged, and fear had dwelt in the breast of one, and revenge had kindled its fires in the heart of the other; when they met they were pacified towards each other and they fell upon each other's neck, and they kissed: it was the kiss of reconciliation. Now, the very first work of grace in the heart is, for Christ to give the sinner the kiss of his affection, to prove his reconciliation to the sinner. Thus the father kissed his prodigal son when he returned. Before the feast was spread, before the music and the dance began, the father fell upon his son's neck, and kissed him. On our part, however, it is our business to return that kiss; and as Jesus gives the reconciling kiss on God's behalf, it is ours to kiss the lip of Jesus, and to prove by that deed that we are "reconciled to God by the death of his Son." Sinner, thou hast hitherto been an enemy of Christ's gospel. Thou hast hated his Sabbaths; thou hast neglected his Word; thou hast abhorred his commandments and cast his laws behind thy back; thou hast, as much as lieth in thee, opposed his kingdom; thou hast loved the wages of sin, and the ways of iniquity better than the ways of Christ. What sayest thou? Does the Spirit now strive in thy heart? Then, I beseech thee, yield to his gracious influence, and now let thy quarrel be at an end. Cast down the weapons of thy rebellion; pull out the plumes of pride from thy helmet, and cast away the sword of thy rebellion. Be his enemy no longer; for, rest assured, he willst to be thy friend. With arms outstretched, ready to receive thee, with eyes full of tears, weeping over thine obstinacy, and with bowels moved with compassion for thee, he speaks through my lips this morning, and he says, "Kiss the Son;" be reconciled. This is the very message of the gospel--"The ministry of reconciliation." Thus speak we, as God hath commanded us. "We pray you in Christ's stead, be ye reconciled to God." And is this a hard thing we ask of you, that you should be at friendship with him who is your best friend? Is this a rigorous law, like the commands of Pharaoh to the children of Israel in Egypt, when he bids you simply strike hands with him who shed his blood for sinners? We ask you not to be friends of death or hell; we beg you rather to dissolve your league with them; we pray that grace may lead you to forswear their company for ever, and be at peace with him who is incarnate love and infinite mercy. Sinners, why will ye resist him who only longs to save you? Why scorn him who loves you? Why trample on the blood that bought you, and reject the cross which is the only hope of your salvation? "Kiss the Son."
 
-"Bow the knee, and kiss the Son,
-
-Come and welcome, sinner, come."
+> Bow the knee, and kiss the Son,    
+> Come and welcome, sinner, come.    
 
 That is the first meaning of the text--the kiss of reconciliation. The Spirit of God must work a change in man's heart before he will be willing to give this kiss, and it is my heart's desire, that by the words which shall be uttered this morning, the Spirit may bow the obdurate heart, and lead you to give Christ the kiss of reconciliation this very day.
 
 Again, the kiss of my text is a kiss of allegiance and homage. It is an Eastern custom for the subjects to kiss the feet of the king; nay, in some instances their homage is so abject that they kiss the dust beneath his feet, and the very steps of his throne. Now, Christ requires of every man who would be saved, that he shall yield to his government and his rule. There are some who are willing enough to be saved and take Christ to be their priest:, but they are not willing to give up their sins, not willing to obey his precepts, to walk in his ordinances, and keep his commandments. Now, salvation cannot be cut in twain. If you would have justification you must have sanctification too. If your sins are pardoned they must be abhorred; if ye are washed in the blood to take away the guilt of sin, you must be washed in the water to take away the power of sin over your affections and life. Oh, sinners, the command is, "Kiss the Son," bow your knee, and come and own him to be a monarch, and say, "Other lords have had dominion over us; we have worshipped our lusts, our pleasures, our pride, our selfishness, but now will we submit ourselves to thine easy yoke. Take us and make us thine, for we are willing to be thy subjects--
 
-"Oh, sovereign grace our hearts subdue;
-
-We would be led in triumph too,
-
-As willing captives to our Lord,
-
-To sing the triumphs of his Word."
+> Oh, sovereign grace our hearts subdue;    
+> We would be led in triumph too,    
+> As willing captives to our Lord,    
+> To sing the triumphs of his Word.    
 
 You must give him the kiss of fealty, of homage, and loyalty; and take him to be your king. And is this a hard thing? Is this a rigorous commandment? Why look at Englishmen, how they spring to their feet and sing with enthusiasm--
 
-"God save our gracious Queen,
-
-Long live our noble Queen,
-
-God save the Queen!"
+> God save our gracious Queen,    
+> Long live our noble Queen,    
+> God save the Queen!    
 
 And is it a hard thing for you and me to be bidden to cry, "God save King Jesus! Spread his kingdom! Let him reign, King of kings and Lord of lords! Let him reign in our hearts?" Is it a hard thing to bow before his gentle sceptre? Is there any cruelty in the demand, that we should submit ourselves to the law of right, and rectitude, and justice, and love? "His ways are ways of pleasantness and all his paths are peace." "His commandments are not grievous." "Come unto me," saith the Lord, "and I will give you rest; take my yoke upon you;" it is not heavy; "take my yoke upon you, and learn of me, for I am meek and lowly of heart, and ye shall find rest unto your souls." O sinner, leave that black monarch; turn your back upon the king of hell. May grace enable you now to flee away from him who deludes you to-day, and shall destroy you for ever; and come ye to the Prince Immanuel, the Son of God, and now declare yourselves to be the willing subjects of his blessed kingdom. "Kiss the Son." It is the kiss of reconciliation and the kiss of homage.
 
 Again, it is the kiss of worship. They that worshipped Baal kissed the calves. It wee the custom in the east for idolaters to kiss the god which they foolishly adored. Now the commandment is that we should give to Christ divine worship. The Unitarian will not do this: he says, "Christ is but a mere man;" he will not kiss the eternal Son of God. Then let him know that God will not alter his gospel to suit his heresy. If he rebelliously denies the Godhead of Christ, he need not marvel if in the last day Christ shall say--"But those mine enemies, which would not that I should reign over them, bring hither and slay them before me," It is no marvel if he who rejects the Godhead of Christ should find that he has built his house upon the sand, and when the rain descends, and the flood comes, his hope shall totter, and great shall be the fall thereof. We are bidden to worship Christ, and O how pleasant is this command, to kiss him in adoration! It is the highest joy of the Christian to worship Jesus. I know of no thrill of pleasure that can more rejoice the Christian's breast, and thrill his soul to music, than the song of--
 
-"Worthy is he that once was slain,
-
-The Prince of Peace that groan'd and died,
-
-Worthy to rise, and live, and reign
-
-At his Almighty Father's side."
+> Worthy is he that once was slain,    
+> The Prince of Peace that groan'd and died,    
+> Worthy to rise, and live, and reign    
+> At his Almighty Father's side.    
 
 Surely that shall be the very song of heaven, to sing "Worthy the Lamb," and yet again to shout louder still, "Worthy the Lamb! worthy the Lamb! "Well, sinner, thou art bidden to do this--to acknowledge Christ thy God. "Kiss the Son;" go to him in prayer this very day cast thyself on thy knees and worship him; confess thy sin committed against him; lay hold of his righteousness; touch the hem of his garment adore him by thy faith, trusting in him; adore him by thy service, living for him; adore him with thy lip, praising him; adore him with thy heart, loving him, and surrendering thy whole being to him. God help thee in this way to "kiss the Son."
 
 There is yet a fourth meaning, and I think this is the sweetest of all. "Kiss the Son." Ah. Mary Magdalene, I need thee this morning! Come hither, Mary, thou shalt explain my text. There was a woman who had much forgiven and she loved much, and as a consequence, loving much she desired much the company and the presence of the object of her affection. She came to the Pharisee's house where he was feasting, but she was afraid to enter for she was a sinner; the Pharisee would repulse her, and tell her to go away. What did a harlot there in the house of a holy Pharisee? So she came to the door. as if she would peep in and just get a glimpse of him whom her soul loved. But there he lay upon the table, and happily for her, the Pharisee had slighted Christ, he had not put him at the head of the table, but at the end, and therefore his feet--laying backward as he declined--were close against the door. She came, and oh! she could not dare to look upon his head; she stood at his feet, behind him, weeping And as she wept, the tears flowed so plenteously that she washed his feet--which the Pharisee had forgotten to wash--with her tears. And then unbraiding her luxurious tresses, which had been the nets into which she had entangled her lovers, she began to wipe his feet with the hairs of her head. and stooping down she kissed his feet, and kissed them yet again. Poor sinner, thou that art full of guilt, if thou hast played the harlot, or if thou hast been a sinner in other ways, come, I beseech thee, to Jesus now. Look to him, believe in him,
 
-"Trust in his blood, for it alone
-
-Hath power sufficient to atone."
+> Trust in his blood, for it alone    
+> Hath power sufficient to atone.    
 
 And this done, come thou and "kiss the Son"--kiss his feet with love. Oh, if he were here this morning, methinks I would kiss those feet again and again. And if any should enquire the reason, I would answer,
 
-"Love I much? I've much forgiven,
-
-I'm a miracle of grace."
+> Love I much? I've much forgiven,    
+> I'm a miracle of grace.    
 
 Jesus, dost thou permit me to kiss thy feet with the kisses of affection? And may I pray like the spouse in the Canticles: "Let him kiss me with the kisses of his mouth, for thy love is better than wine." May I so pray? Then, glory be to thy name, I will not be slow in praying it. If I may be so highly favored I will not lose the favor through negligence and coldness of heart. Even now my soul gives the kiss of deep and sincere affection.
 
-"Yes, I love thee and adore,
-
-O for grace to love thee more."
+> Yes, I love thee and adore,    
+> O for grace to love thee more.    
 
 "Kiss the Son." Do you see then the meaning of it? It is a kiss of reconciliation, a kiss of homage, a kiss of worship, and a kiss of affectionate gratitude. "Kiss the Son."
 
@@ -85,15 +72,11 @@ This brings us to the second part of the text. "kiss the Son"--and THE ARGUMENT 
 
 I know nothing, I repeat, more fearful than the thought that Christ will be angry, and that if we live and die finally impenitent, rejecting his mercy and despising his sacrifice we have good need to tremble at this sentence, "Kiss the Son lest he be angry." And now do you see again that if Christ once be angry, it must be all over with our hopes or our rest? We will suppose now some poor girl who has stepped aside from the paths of right. She has persevered in her iniquity despite many warnings. Friends rise up to help her, but they drop off one by one, for she becomes incorrigibly wicked. Others come to help her, but as often as they rise they fall again, for she sins, and sins, and sins again. There is, however, one who has oftentimes received her to his bosom, erring though she be--her father. He says, "Shall I forget the child I have begotten? Sinner she is, but she is still my child," and often as she sins and goes away he will not reject her; he receives her to his house again; tainted and defiled, again he gives her the kiss of fond affection. At last she perseveres in her iniquity, and goes to such a length, that one day in her desperate despair, some one says to her, why not seek a friend to deliver you in this your awful hour of distress and anguish on account of sin? "Oh," says she, "I have none left." "But there is your father; have you note father or a mother?" "Yes," says she, "but he is angry, and he will do nothing for me." Then her last door is shut, and her hope is over. What wonder that--
 
-"Mad from life's history,
-
-Glad to death's mystery,
-
-Swift to be hurled--
-
-Anywhere, anywhere,
-
-Out of the world,"
+> Mad from life's history,    
+> Glad to death's mystery,    
+> Swift to be hurled--    
+> Anywhere, anywhere,    
+> Out of the world,    
 
 she ends her life because her only helper is angry, and her hope is gone? Despair must seize her then, when her best, her only helper is angry with her. Let me give you another picture,--a simpler one. There is a dove long gone out of Noah's ark: suppose that dove to have been flying many hours till its wing is weary Poor, poor dove! Across the shoreless sea it flies, and finds never a spot whereon its weary feet may rest. At last, it bethinks itself of the ark, it flies there, hoping there to find a shelter: but suppose it should see Noah standing looking through the window with crossbow to destroy it,--then where were its hope? Its only hope hath proved the gate of death. Now let it fold its wings and sink into the black stream, and die with all the rest. Ah! sinner, these two are but faint pictures of the desperateness of your despair when once he is angry,--he who is the sinner's friend, the sinner's wooer, he of whom we sometimes say,--
 
@@ -105,17 +88,15 @@ And now mark the effects of Christ's anger, "And ye perish from the way, when hi
 
 However, I return to the old reading of the text, "Kiss the Son, lest he be angry, and ye perish from the way, when his wrath is kindled but a little." How terrible is the doom of the wicked! The little kindling of God's wrath kills them; what shall the eternal burnings be? Who among us shall dwell with the devouring fire? who among us shall abide with everlasting burnings? There is a land of thick darkness and despair where dwelleth the undying worm, which in its ceaseless folds doth crush the spirits of the damned. There is a fire quick burning, that drieth up the very marrow of body and soul, and yet destroyeth them not. There also is the pit that knoweth no bottom, the hopeless falling without a thought of ever coming to an end. There is a land where souls linger in eternal death, and yet they never die; crushed, but not annihilated; broken, but not destroyed; for ever, for ever, for ever, is the ceaseless wave which rolls its fresh tide of fire upon a shore of agony, whose years are as countless as the sands of the sea. And shall it be your lot and mine to dwell for ever with the howling spirits of the damned? Must these eyes weep the briny tear that cannot assuage thirst? Must these lips be parched with the infinite heat? Must this body be everlastingly tormented, and this soul, with all its powers, become a lake of grief into which torrents of Almighty wrath shall roll ceaselessly with black and fiery streams? Oh, my God, and can the thought be uttered--there may be some in this hall this morning, who, ere long, shall be in hell? If you should see an arrow fitted to a string pointed in yon direction, would you think it a hard prophecy if I should say, that, ere long, the arrow would find its mark over yonder? "No," you would say, "it is but nature that it should go in the way in which it is directed." But, sinners, some of you are this day fitted on the bow of sin. Sin is the string that impels you forward. Nay, more than this. Some of you are whistling onward towards death, despair, and hell. Sin is the path to hell, and you are traveling in it with lightning speed. Why need you think me harsh if I prophecy that you will get to the end ere long, and reap the harvest to your soul? Oh, "kiss the Son," I beseech you; for if ye kiss him not, if ye receive not his grace and mercy, perish ye must; there is no hope for you; desperate, without remedy, your end must be, if ye will not yield your pride and submit to Jesus. Oh! what language shall I use? Here were a task for Desmosthenes, if he could rise from the dead, and be converted, and preach with all his mighty eloquence, and exhort you to flee from the wrath to come. Here is a text that might exhaust the eloquence of the apostle Paul, while with tears running down his cheeks, he would plead with you to flee to Christ, and lay hold upon his mercy. As for me, I cannot speak my soul out. Would that my heart could speak without my lips to tell out the agony I feel just now concerning your souls. Oh, why will ye die? "Why will ye die, O house of Israel?" Will you make your beds in hell? Will you wrap yourselves about with flame for ever? Will you have the merriment of sin in this life, and then reap the harvest of destruction in the world to come? Oh, men and brethren, I beseech you by the living God, by death, by eternity, by heaven, and by hell; I implore you, stop! stop! and "kiss the Son, lest he be angry, and ye perish from the way." Oh! the terrors of the Lord! who shall speak them? Last night, we saw, as it were, the back parts of the terrible God, when his skirts of light swept through the sky. He made clouds his chariot, and he did ride upon the wings of the wind. Sinners, can ye stand before the God of thunder? Can ye war against the God of lightning? Will ye resist him, and despise his Son, and reject the offer of mercy, and dash yourselves upon his spear, and rush upon his sword? Oh, turn ye? turn ye now! Thus saith the Lord: "Consider your ways."
 
-"Bow the knee, and kiss the Son;
-
-Come, and welcome, sinner, come!"
+> Bow the knee, and kiss the Son;    
+> Come, and welcome, sinner, come!    
 
 And now give me your attention just a moment or two longer while with all earnestness I endeavor to preach for a little while upon THE BENEDICTION WITH WHICH THE TEXT CLOSES: "Blessed are all they that put their trust in him." I have been beating the big drum of threatening, and now let us have the soft, sweet harp of David, of sweet, wooing benedictions. "Blessed are all they that put their trust in him." Dost thou put thy trust in him, my hearer? Beneath the wings of God we nestle, and we know of no security elsewhere. This is enough for us. Now the text says that those that trust in him are blessed; and I would observe, first, that they are really blessed. It is no fiction, no imaginary blessing; it is a real blessedness which belongs to those that trust in God; a blessedness that will stand the test of consideration, the test of life, and the trial of death; a blessedness into which we cannot plunge too deeply, for it is none of it a dream, but all a reality.
 
 Again, those that trust in him have not only a real blessedness, but they oftentimes have a conscious blessedness. They know what it is to be blessed in their troubles, for they are in their trials comforted, and they are blessed in their joys, for their joys are sanctified. They are blest and they know it, they sing about it and they rejoice in it. It is their joy to know that God's blessing is come to them not in words only but in very deed. They are blessed men and blessed women.
 
-"They would not change their blest estate
-
-For all the world calls good and great."
+> They would not change their blest estate    
+> For all the world calls good and great.    
 
 Then, further, they are not only really blessed, and consciously blessed, but they are increasingly blessed. Their blessedness grows. They do not go down hill as the wicked do, from bright hope to black despair. They do not diminish in their delights, the river deepens as they wade into it. They are blessed when the first ray of heavenly light streams on their eye-balls; they are blessed when their eyes are opened wider still, to see more of the love of Christ; they are blessed the more their experience widens and their knowledge deepens, and their love increases. They are blessed in the hour of death, and, best of all, their blessedness increases to eternal blessedness,--the perfection of the saints at the right hand of God. "Blessed are all they that put their trust in him." Time fails me to enter into this blessed benediction, and therefore I pause and come back to my old work again of endeavoring to reach you by earnest entreaty, while I urge you to "kiss the Son."
 
@@ -127,13 +108,10 @@ I go to my chamber, and once more confess that I am a wretch undone, without his
 
 And I conclude now by noticing that this is an open salvation. Every soul in the world that feels its need of a Saviour, and that longs to be saved, may come to Christ. It God hath convinced thee of sin, and brought thee to know thy need come, come away; come, come away! come now; trust now in Christ, and thou shalt now find that blessed are all they that trust in him. The door of mercy does not stand on the jar, it is wide open. The gates of heaven are not merely hanging on the latch, but they are wide open both night and day. Come, let us go together to that blessed house of mercy, and drive our wants away. The grace of Christ is like our street drinking fountains, open to every thirsty wanderer There is the cup, the cup of faith. Come and hold it here while the water freely flows and drink. There is no one can come up and say it is not made for you; for you can say, "Oh, yes it is, I am a thirsty soul; it is meant for me." "Nay," says the devil, "you are too wicked." No, but this is a free-drinking fountain. It does not say over the top of the fountain, "No thieves to drink here." All that is wanted at the drinking fountain, is simply that you should be willing to drink, that you should be thirsty and desire. Come, then,
 
-"Let not conscience make you linger,
-
-Nor of fitness fondly dream;
-
-All the fitness he requireth,
-
-Is to feel your need of him."
+> Let not conscience make you linger,    
+> Nor of fitness fondly dream;    
+> All the fitness he requireth,    
+> Is to feel your need of him.    
 
 He has given you this; come and drink; drink freely. "The Spirit and the bride say come; and let him that heareth say come; and whosoever is athirst, let him come, and take the water of life freely."
 

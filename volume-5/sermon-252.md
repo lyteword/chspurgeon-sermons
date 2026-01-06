@@ -68,7 +68,7 @@ And then, let each one of us as we retire, and if we have tasted that the Lord i
 > The Lord, in vengeance dress'd,    
 > Will lift his hand and swear,    
 > 'You that despise my promised rest,    
-> Shall have no portion there.'    
+> Shall have no portion there.    
 
 Oh! if I had the tongue of Whitfield, or the mouth of an archangel, if I could speak like the cherubim, I would pour out my heart before you, and pray you in Christ's stead, be ye reconciled to God. I must face you soon before God's great bar, and shall your blood be laid to my door? Shall you perish, and must I perish with you for unfaithfulness? May God forbid it! Now may he
 

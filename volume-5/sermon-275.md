@@ -2,8 +2,8 @@
 
 Sermon No. 275 - Delivered on Sabbath Morning, September 18th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Who can tell if God will turn and repent, and turn away from his fierce anger, that we perish not?"  
-> Jonah 3:9.  
+> Who can tell if God will turn and repent, and turn away from his fierce anger, that we perish not?    
+> Jonah 3:9.    
 
 THIS WAS THE FORLORN HOPE of the Ninevites: "Who can tell if God will turn and repent, and turn away from his fierce anger, that we perish not?" The book of Jonah should be exceedingly comfortable to those who are despairing because of the wickedness of their times. Nineveh was a city as great in its wickedness as in its power. If any of us with little faith had been bidden to go round about her, and "tell the towers thereof, and mark well her bulwarks;" if we had been commanded to go through her streets and behold her both in the blaze of the sun and in the light of the moon as her inhabitants indulged in vice, we should have said. "Alas! Alas! the city is wholly given into idolatry, and it is girt about with a wall of sin, as stupendous as its wall of stone." Suppose that the problem had been given to us to solve--how shall this city be moved to repentance? How shall its vice be forsaken and the God of Israel worshipped by all its inhabitants from the highest to the lowest? If we had not been paralyzed with despair, which is the most probable, we should, nevertheless, have sat down carefully to consider our plans. We should have parcelled it out into missionary districts; we should have needed at least several hundreds, it not thousands, of able ministers; at once, expenses would have to be incurred, and we should have considered ourselves bound to contemplate the erection of innumerable structures in which the Word of God might be preached. Our machinery would necessarily become cumbrous; we should find that we, unless we had the full resources of an empire, could not even begin the work. But what saith the Lord concerning this? Putting aside the judgments of reason, and all the plans and schemes which flesh and blood so naturally do follow, he raises up one man. By a singular providence he qualifies that one man for his mission. He sends him down into the very depths of the sea, where the weeds are wrapped about him, he comes up from the great deep, and the awful descent has steeled his soul and completely covered him with the armor of courageous faith. Who need tremble at anything on shore who has passed the bowels of a fish and yet survived? He comes into the city, his eyes almost starting from their sockets with the recollection of the great judgment which had passed over his head, and in stern inflexible manner, with shrill monotonous voice, he begins to cry, "Yet forty days and Nineveh shall be overthrown!" Is this, O God! is this thy way? Is this the means with which thou wilt accomplish the great event? Wilt thou make Nineveh repent at the bidding of one man? Shall yon sallow man fresh from the sea--shall his voice be sufficient to stir this great city? O God! if thou hadst come forth in thy fiery chariot, if thou hadst spoken with thy thunder, if thou hadst shaken the earth with thine earthquakes then might Nineveh feel, but surely this one man is not sufficient for the deed. But as high as the heaven is above the earth, so high are his ways above our ways, and his thoughts above our thoughts. So skillful is he that with the weakest instrument he can produce the mightiest workmanship. That one man begins his journey. Already the inhabitants flock to listen to him. He proceeds--the crowd multiplies. As he stands at the corner of the alleys, and the lanes, every window is thrown up to listen, and the streets are thronged as he walks along. Still on he goes till the whole city has begun to shake with his terrible voice. And now the King himself bide him come into his presence, and the fearless still propounds the threatening of God. Then comes the effect. All Nineveh is wrapped in sackcloth; the cry of man and beast go up in one terrible wailing to God. Jehovah is honored and Nineveh repents. Ah! My brethren, we see in this rich grounds for hope. What cannot God do? Think not that he needs to wait for us. He can accomplish the greatest deeds by the meanest instrumentality. One man, if he willed it, would be sufficient to stir this giant city. One man, if God decreed it, might be the means of the conversion of a nation, nay, a continent should shake beneath the tramping of one man. There is no palace so high that this one man's voice should not reach it, and there is no den of infamy so deep that his cry should not be heard therein. All we need is that God should "make bare his arm," and who can withstand his might. What though he grasp but the jaw-bone of an ass yet is his arm mightier than Samson's, and not only would it be heaps upon heaps, but city upon city, continent upon continent. With the meanest instrument would God slay his thousands and overcome his myriads. Oh church of God, never fear; remember the men that God has given thee in the days of yore. Look back to Paul; remember Augustine; think ye well of Luther, and of Calvin; talk ye of Whitfield, and of Wesley, and remember these were but separate individual men, and yet through them God did a work, the remembrance whereof still rolleth on and shall never cease while this earth endures.
 
@@ -23,21 +23,17 @@ Now the second point was, THE SLENDER GROUND WHICH THE NINEVITES HAD FOR HOPE. A
 
 But once again, the people of Nineveh lacked another encouragement which you and I have. They had never heard of the cross. Jonah's preaching was very powerful, but there was no Christ in it. There was nothing about the Messiah that was to come--no talking of the sprinkled blood--no mention of a great sin-atoning sacrifice--and therefore the men who were in the council of the king, might have said--"Surely we have never heard that any satisfaction has been offered to the injured justice of God. How therefore can he be just and yet the justifier of the ungodly? "Ah," said the king, "who can tell?" and on that slender "who can tell?" they ventured to cry for mercy; but oh, sinner thou art answered this day, that "God hath spared not his own Son, but freely delivered him up for us all, that whosoever believeth on him might not perish, but have everlasting life. For God so loved the world that he sent forth his only begotten Son, that whosoever believeth on him might not perish, but might be saved. For there is now no condemnation to them that are in Christ Jesus." Come sinner, come to the cross, for God can be just, and yet the justifier of the ungodly. I say, this should make thee ask--"Who can tell?" He may wash me clean, he may accept me, and I may yet be able to sing with the loudest of all the voices of his children--
 
-"I the chief of sinners am,
-
-But Jesus died for me."
+> I the chief of sinners am,    
+> But Jesus died for me.    
 
 And now shall I tell you what I think was the hope which the poor king of Nineveh really had? I have set before you his discouragements, and now I will set before you his encouragements. They were very slender, but still they seemed to have been sufficient. Perhaps the king said in his heart, or he might have said to his councillors--"Sirs, there is one thing which ye cannot deny, we are come to the worst, and if we repent and cry for mercy, at least that cry will not be to our disadvantage. We shall be none the worse off even if we are not heard."
 
 Now sometimes I have known a trembling sinner take comfort even from that. The words of our hymn suggest the full idea.
 
-"I can but perish if I go,
-
-I am resolved to try;
-
-For if I stay away I know,
-
-I must for ever die."
+> I can but perish if I go,    
+> I am resolved to try;    
+> For if I stay away I know,    
+> I must for ever die.    
 
 If you seek not Christ; if you repent not of sin; if you put not your trust in him, perish you must. That is certain. If you go, and are rejected, at least you are none the worse off. Try it, and you shall find out that you are much the better, for you shall not be rejected. Remember the cage of the three lepers at the gate of Samaria. They were sitting there without food to eat, and at last the pangs of hunger were strong upon them. One of them said to his fellows, "Let us go now to the host of the Syrians. If they kill us we shall but die; if they save us alive, we shall live, but if we stay here, perish we must. So, as there was nothing to lose, and there might be something to gain, they risked it. Oh, sinner, would to God the Lord would teach thee as much wisdom as this. Go to him just as thou art, and say, "Lord, sink or swim, I take thy cross to be my only trust. If thou wilt not save me, if I perish in the stream, yet will I perish clinging to the rock of my salvation, for no other trust and no other hope have I." Oh that you may be led to do even this, and ye shall not be disappointed.
 
@@ -45,17 +41,12 @@ Besides, the king would add, "It is true that Jonah did not say that God would h
 
 And now, sinner, I would thou wouldst catch hold on this. But thou hast something stronger and firmer still, for there is mercy proclaimed to thee this day. God is not willing that any should perish, but that all should come to repentance. These are his own words and he himself expressly invites you to come to him. He says "Whosoever will, let him come, and take of the water of life freely;" and he gives you his word for it--"Him that cometh unto me I will in nowise cast out." Salvation is free as the air we breathe to every convinced sinner. If thou knowest this day thy need of Christ, take him, he is thine. He is a fountain open for the thirsty. All the preparation thou needest is simply a burning thirst. Then come and drink, and none can say thee nay.
 
-"From the Mount of Calvary,
-
-Where the Saviour deigned to die,
-
-What transporting sounds I hear,
-
-Bursting on my ravished ear!--
-
-Love's redeeming work is done,
-
-Come and welcome, sinner, come!"
+> From the Mount of Calvary,    
+> Where the Saviour deigned to die,    
+> What transporting sounds I hear,    
+> Bursting on my ravished ear!--    
+> Love's redeeming work is done,    
+> Come and welcome, sinner, come!    
 
 Well, then, if thou art invited, "Who can tell?" Come, come and try, for "Who can tell?"
 
@@ -69,9 +60,8 @@ And now, this shall bring me to the third point, namely, THE URGING OF DIVERS RE
 
 It was an old and a horrible custom of past governments, when a man was executed for murder, to allow him to be hung in chains, so that as often as any one passed by the gibbet they might learn, as was thought, the severity of justice. I fear, however, that they more frequently learned the brutality and barbarism of the age. Now, as these were hung in chains as warnings, I would translate this horrible figure into one that shall glitter with joy and delight. God, in order that you may know his mercy, has been pleased to preserve instances thereof, that so often as you look upon them you may be led to say, if such and such an one was saved, why may not I? It is needless for me to refer you to Old Testament and New Testament scriptures. You will remember well the pardon given to David! Surely you have not forgotten the mercy which God had on that chief of sinners, Manasseh! As for the New Testament pardoned sinners, from the thief on the cross to Saul of Tarsus, the chief of sinners, it sufficeth but to hint at them. And now this day behold before your eyes in this place, sinners once like yourselves, who have obtained mercy and are now forgiven. Amongst the thousands in this hall there are not a few who (say some two years ago or less) entered this place out of idle curiosity. I could describe some to you who had never entered a place of worship for twenty or even thirty years. Some of them had been habitual drunkards, their lives had been the abodes of misery; some of them had been harlots, and led others into sin, beside destroying their own bodies and their souls. Into this place they crept, they came merely to listen to the preacher, of whom many a strange thing had been said. Their attention was rivetted. An arrow from the bow of God shot into their hearts and here they are this day. Without boasting I say it, they are my joy and my crown of rejoicing, and shall be such in the day of the appearing of our Lord and Saviour Jesus Christ. If you, who have been like them, but are now repenting of your sins, could hear their testimony as I have done, you would never doubt of the mercy of God. If you could read the account that I have preserved of some of them--sailors, who in every part of the world have sinned--who have never touched upon land except to commit fornication and wickedness--if I could tell you on the other hand the dreadful iniquities into which some here have plunged in the days of their flesh, you would say, "Surely he is a pardoning God, and methinks that might entice you to come. Oh if there be any such here, and there are many such here, I know, if you are sitting in this hall to-day side by side with some trembling sinner, and you observe the tear dropping from his eye, be not slow to tell him, "I am one of the men that Mr. Spurgeon mentions." The Lord has saved thee, and be not slow to take the hand of the penitent, and bid him come where you went, and bid him look for mercy where you sought it and found it. And I may say again, if I may speak for myself here to-day, if you knew my own character as it was before conversion, you need none of you despair of mercy. When I went to God confessing my sins to him, I felt myself to be the vilest sinner out of hell. Others might have praised me, but I had not a word to say on my own account. If the hottest flames of the pit had been mine eternal portion it was not one whit more than I deserved. But
 
-"Tell it unto sinners tell,
-
-I am, I am out of hell,"
+> Tell it unto sinners tell,    
+> I am, I am out of hell,    
 
 And forgiven and accepted in Christ. Who then need despair? Who can tell? Come sinner, come, and say this in thine heart, and go and cry unto God in prayer, and lay hold on Christ by faith, saying, "Who can tell?" The innumerable instances of past mercies should stir us up to say, "Who can tell?"
 

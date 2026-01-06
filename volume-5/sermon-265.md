@@ -2,8 +2,8 @@
 
 Sermon No. 265 - Delivered on Sabbath Morning, July 31st, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart; and ye shall find rest unto your souls. For my yoke is easy, and my burden is light."  
-> Matthew 11:28-30.  
+> Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart; and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.    
+> Matthew 11:28-30.    
 
 THE single sentence which I have selected for my text consists of these words:--"I am meek and lowly in heart." These words might be taken to have three distinct bearings upon the context. They may be regarded as being the lesson to be taught: "Learn of me; for I am meek and lowly in heart." One great lesson of the gospel is to teach us to be meek--to put away our high and angry spirits, and to make us lowly in heart. Peradventure, this is the meaning of the passage-- that it we will but come to Christ's school, he will teach us the hardest of all lessons,--how to be meek and lowly in heart. Again; other expositors might consider this sentence to signify, that is the only Spirit in which a man can learn of Jesus,-- the Spirit which is necessary if we would become Christ's scholars. We can learn nothing, even of Christ himself, while we hold our heads up with pride, or exalt ourselves with self-confidence. We must be meek and lowly in heart, otherwise we are totally unfit to be taught by Christ. Empty vessels may be filled; but vessels that are full already can receive no more. The man who knows his own emptiness can receive abundance of knowledge, and wisdom, and grace, from Christ; but he who glories in himself is not in a fit condition to receive anything from God. I have no doubt that both of these interpretations are true, and might be borne out by the connection. It is the lesson of Christ's school--it is the spirit of Christ's disciples. But I choose, rather, this morning, to regard these words as being a commendation of the Teacher himself. "Come unto me and learn; for I am meek and lowly in heart." As much as to say, "I can teach, and you will not find it hard to learn of me." In fact, the subject of this morning's discourse is briefly this: the gentle, lovely character of Christ should be a high and powerful inducement to sinners to come to Christ. I intend so to use it: first of all, noticing the two qualities which Christ here claims for himself. He is "meek;" and then he is "lowly in heart;" and after we have observed these two things, I shall come to push the conclusion home. Come unto him, all ye that are labouring and are heavy laden; come unto him, and take his yoke upon you; for he is meek and lowly in heart.
 
@@ -19,13 +19,10 @@ I must put in a word here by way of caveat. I am very far from imputing, for a s
 
 Christ is meek in heart. To exhibit this quality in another light, call to your minds Moses. Moses was the meekest of men; and yet Christ far excels Moses in his meekness. Around Moses there seems to be a hedge, a ring of fire. The character of Moses is like Mount Sinai; it hath bounds set about it, so that one cannot draw near unto him. Moses was not an approachable person, he was quiet and meek, and tender, but there was a sacred majesty about the King in Jeshurun that hedged his path, so that we cannot imagine the people making themselves familiar with him. Whoever read of Moses sitting down upon a well, and talking to a harlot like the woman of Samaria? Whoever heard a story of a Magdalene washing the feet of Moses? Can ye conceive Moses eating bread with a sinner, or passing under a sycamore tree, and calling Zaccheus, the thievish publican, and bidding him come down? There is a kind of stately majesty in Moses, no mere affectation of standing alone, but a loneliness of superior worth. Men looked up to him as to some cloud-capped mountain, and despaired of being able to enter into the lofty circle, within which they might have communed with him. Moses always had in spirit what he once had in visible token; he had a glory about his brow, and before he could converse with men he must wear a veil, for they could not bear to look upon the face of Moses. But how different is Jesus! He is a man among men; wherever he goes no one is afraid to speak to him. You scarcely meet with any one who dares not approach him. There is a poor woman, it is true, who hath the flux, and she fears to come near him, because she is ceremonially unclean; but even she can come behind him in the press, and touch the hem of his garment, and virtue goeth Out of him. Nobody was afraid of Jesus. The mothers brought their little babes to him: whoever heard of their doing that to Moses? Did ever babe get a blessing of Moses? But Jesus was all meekness--the approachable man, feasting with the wedding guests, sitting down with sinners, conversing with the unholy and the unclean, touching the leper, and making himself at home with all men. Sinners! this is the one we invite you to--this homely man, Christ. Not to Moses, for you might say, "He hath horns of light, and how shall I draw near to his majesty ! He is bright perfection--the very lightnings of Sinai rest upon his brow." But sinners, ye cannot say that of Christ. He is as holy as Moses--as great, and far greater, but he is still so homely that ye may come to him. Little children, ye may put your trust in him. Ye may say your little prayer,
 
-"Gentle Jesus, meek and mild,
-
-Look on me, a little Child;
-
-Pity my simplicity,
-
-Suffer me to come to thee."
+> Gentle Jesus, meek and mild,    
+> Look on me, a little Child;    
+> Pity my simplicity,    
+> Suffer me to come to thee.    
 
 He will not cast you away, or think you have intruded on him. Ye harlots, ye drunkards, ye feasters, ye wedding guests, ye may all come; "This man receiveth sinners, and eateth with them." He is "meek and lowly in heart." That gives, I think, a still fuller and broader sense to the term, "meek."
 
@@ -61,31 +58,21 @@ Having thus spoken on the two marks of our Lord's character, I propose to conclu
 
 Come to him, then, first, whoever you may be, for he is "meek and lowly in heart." When a man has done anything wrong, and wants a help through his difficulty, if about to employ some counsel to plead for him in a court of law, he might say, "Oh! don't engage Mr. So-and-so for me; I hear he is a very hard-hearted man; I should not like to tell him what I have done, and entrust my case in his hands. Send for Mr. So-and-so; I have heard that he is very kind and gentle; let him come and hear my case, and let him conduct the pleadings for me:" Sinner! you are sinful, but Christ is very tender-hearted. Speed thy way to Christ's private chamber,--your own closet of prayer. Tell him all you have done; he will not upbraid you: confess all your sins; he will not chide you. Tell him all your follies; he will not be angry with you. Commit your case to him, and with a sweet smile he will say, "I have cast thy sins behind my back; thou hast come to reason with me; I will discover to thee a matter of faith which excels all reason,--" Though thy sins be as scarlet, they shall be as wool; though they be red like crimson, they shall be whiter than snow Come to Christ, then, sinful ones, because he is "meek and lowly in heart," and he can bear with the narrative of your offences. "But, sir, I am very timid, and I dare not go." Ah, but however timid you may be, you need not be afraid of him. He knows your timidity, and he will meet you with a smile, and say, "Fear not. Be of good cheer. Tell me thy sin, put thy trust in me, and thou shalt even yet rejoice to know my power to save. Come now," saith he, "come to me at once. Linger no longer. I do not strive nor cry, nor cause my voice to be hearth in the streets. A bruised reed I will not break, the smoking flax I will not quench; but I will bring forth judgment unto victory." Come then, ye timid ones to Christ for he is meek and lowly in heart. "Oh," says one, "but I am despairing; I have been so long under a sense of sin, I cannot go to Christ." Poor soul! he is so meek and lowly, that, despairing though thou mayest be, take courage now; though it be like a forlorn hope to thee, yet go to him. Say, in the words of the hymn--
 
-"I' ll to the gracious King approach,
-
-Whose sceptre pardon gives;
-
-Perhaps he may command my touch,
-
-And then the suppliant lives.
-
-I can but perish if I go;
-
-I am resolved to try;
-
-For if I stay away, I know
-
-I must for ever die."
+> I' ll to the gracious King approach,    
+> Whose sceptre pardon gives;    
+> Perhaps he may command my touch,    
+> And then the suppliant lives.    
+> I can but perish if I go;    
+> I am resolved to try;    
+> For if I stay away, I know    
+> I must for ever die.    
 
 And you may add this comfortable reflection--
 
-"But if I die with mercy sought,
-
-When I the King have tried,
-
-This were to die (delightful thought!)
-
-As sinner never died."
+> But if I die with mercy sought,    
+> When I the King have tried,    
+> This were to die (delightful thought!)    
+> As sinner never died.    
 
 Come to him, then, timid and despairing; for he is "meek and lowly in heart." First, he bids thee confess. What a sweet confessor! Put thy lip to his ear, and tell him all. He is "meek and lowly in heart." Fear not. None of thy sins can move him to anger. If thou dost but confess them. If thou keepest them in thy heart, they shall be like a slumbering volcano; and a furnace of destruction thou shalt find even to the uttermost by-and-bye. But confess thy sins; tell them all; he is meek and lowly in heart." Happy confession! when we have such a confessor.
 

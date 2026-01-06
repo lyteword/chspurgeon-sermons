@@ -2,8 +2,8 @@
 
 Sermon No. 277 - Delivered on Sabbath Morning, September 4th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The blood of the everlasting covenant."  
-> Hebrews 13:20.  
+> The blood of the everlasting covenant.    
+> Hebrews 13:20.    
 
 ALL GOD'S dealings with men have had a covenant character. It hath so pleased Him to arrange it, that he will not deal with us except through a covenant, nor can we deal with Him except in the same manner. Adam in the garden was under a covenant with God and God was in covenant with Him. That covenant he speedily brake. There is a covenant still existing in all its terrible power--terrible I say, because it has been broken on man's part, and therefore God will most surely fulfill its solemn threatenings and sanctions. That is the covenant of works. By this he dealt with Moses, and in this doth he deal with the whole race of men as represented in the first Adam. Afterwards when God would deal with Noah, it was by a covenant; and when in succeeding ages he dealt with Abraham, he was still pleased to bind himself to him by a covenant. That covenant he preserved and kept, and it was renewed continually to many of his seed. God dealt not even with David, the man after his own heart, except with a covenant. He made a covenant with his anointed; and beloved , he dealeth with you and me this day still by covenant. When he shall come in all his terrors to condemn, he shall smite by covenant--namely, by the sword of the covenant of Sinai; and if he comes in the splendors of his grace to save, he still comes to us by covenant--namely, the covenant of Zion; the covenant which he has made with the Lord Jesus Christ, the head and representative of his people. And mark, whenever we come into close and intimate dealings with God, it is sure to be, on our part, also by covenant. We make with God, after conversion, a covenant of gratitude; we come to him sensible of what he has done for us, and we devote ourselves to him. We set our seal to that covenant when in baptism we are united with his church; and day by day, so often as we come around the table of the breaking of the bread, we renew the vow of our covenant, and thus we have personal intercourse with God. I cannot pray to him except through the covenant of grace; and I know that I am not his child unless I am his, first through the covenant whereby Christ purchased me, and secondly, through the covenant by which I have given up myself, and dedicated all that I am and all that I have to him. It is important, then, since the covenant is the only ladder which reaches from earth to heaven--since it is the only way in which God has intercourse with us, and by which we can deal with him, that we should know how to discriminate between covenant and covenant; and should not be in any darkness or error with regard to what is the covenant of grace, and what is not. It shall be our endeavor, this morning, to make as simple and as plain as possible, the matter of the covenant spoken of in our text, and I shall thus speak--first upon the covenant of grace; secondly, its everlasting character; and thirdly, the relationship which the blood bears to it. "The blood of the everlasting covenant."
 
@@ -11,9 +11,8 @@ First of all, then, I have to speak this morning of THE COVENANT mentioned in th
 
 Again, I may remark that the covenant here meant is not the covenant of gratitude which is made between the loving child of God and his Saviour. Such a covenant is very right and proper. I trust all of us who know the Saviour have said in our very hearts:--
 
-"Tis done! The great transaction's done;
-
-I am my Lord's, and he is mine."
+> Tis done! The great transaction's done;    
+> I am my Lord's, and he is mine.    
 
 We have given up everything to him. But that covenant is not the one in the text, for the simple reason that the covenant in our text is an everlasting one. Now ours was only written out some few years ago. It would have been despised by us in the earlier parts of our life, and cannot at the very utmost be so old as ourselves.
 
@@ -29,15 +28,13 @@ And now having seen who were the high contracting parties, and what were the ter
 
 Furthermore, we have to consider what were the motives of this covenant. Why was the covenant made at all? There was no compulsion or constraint on God. As yet there was no creature. Even could the creature have an influence on the Creator, there was none existing in the period when the covenant was made. We can look nowhere for God's motive in the covenant except it be in himself, for of God it could be said literally in that day, "I am, and there is none beside me." Why then did he make the covenant? I answer, absolute sovereignty dictated it. But why were certain men the objects of it and why not others? I answer, sovereign grace guided the pen. It was not the merit of man, it was nothing which God foresaw in us that made him choose many and leave others to go on in their sins. It was nothing in them, it was sovereignty and grace combined that made the divine choice. If you, my brethren and sisters, have a good hope that you are interested in the covenant of grace, you must sing that song--
 
-"What was there in me to merit esteem, or give the Creator delight?
-
-'Twas even so Father I ever sing, for so it seemed good in thy sight."
+> What was there in me to merit esteem, or give the Creator delight?    
+> 'Twas even so Father I ever sing, for so it seemed good in thy sight.    
 
 "He will have mercy on whom he will have mercy," "for it is not of him that willeth, nor of him that runneth, but of God that showeth mercy." His sovereignty elected, and his grace distinguished, and immutability decreed. No motive dictated the election of the individuals, except a motive in himself of love and of divine sovereignty. Doubtless the grand intention of God in making the covenant at all was his own glory; any motive inferior to that would be beneath his dignity. God must find his motives in himself: he has not to look to moths and worms for motives for his deeds. He is the "I AM."
 
-"He sits on no precarious throne,
-
-Nor borrows leave to be."
+> He sits on no precarious throne,    
+> Nor borrows leave to be.    
 
 He doth as he wills in the armies of heaven. Who can stay his hand and say unto him, "What doest thou?" Shall the clay ask the potter for the motive for his making it into a vessel? Shall the thing formed before its creation dictate to its Creator? No, let God be God, and let man shrink into his native nothingness, and if God exalt him, let him not boast as though God found a reason for the deed in man. He finds his motives in himself. He is self-contained, and findeth nothing beyond nor needeth anything from any but himself. Thus have I, as fully as time permits this morning, discussed the first point concerning the covenant. May the Holy Spirit lead us into this sublime truth.
 
@@ -45,9 +42,8 @@ But now, in the second place, we come to notice ITS EVERLASTING CHARACTER. It is
 
 Then, again, it is an everlasting covenant from its sureness. Nothing is everlasting which is not secure. Man may erect his structures and think they may last for ever, but the Tower of Babel has crumbled, and the very Pyramids bear signs of ruin. Nothing which man has made is everlasting, because he cannot ensure it against decay. But as for the covenant of grace, well David say of it, "It is ordered in all things and sure." It is
 
-"Signed, and sealed, and ratified,
-
-In all things ordered well."
+> Signed, and sealed, and ratified,    
+> In all things ordered well.    
 
 There is not an "if" or a "but" in the whole of it from beginning to end. Free-will hates God's "shalls" and "wills," and likes man's "ifs" and "buts," but there are no "ifs" and "buts" in the covenant of grace. Thus the tenure runs: "I will" and "they shall." Jehovah swears it and the Son fulfills it. It is--it must be true. It must be sure, for "I AM" determines. "Hath he said and shall he not do it? Or hath he spoken, and shall he not make it good?" It is a sure covenant. I have sometimes said, if any man were about to build a bridge or a house if he would leave me just one single stone or one timber to put where I liked, I would undertake that his house would fall down. Let me if there is anyone about to construct a bridge, have just simply the placing of one stone--I will select which stone it shall beùand I will defy him to build a bridge that shall stand. I should simply select the key-stone and then he might erect whatever he pleased and it should soon fall. Now, the Armenian's covenant is one that cannot stand because there are one or two bricks in it (and that is putting it in the slightest form; I might have said, "because every stone in it," and that would be nearer the mark) that are dependent on the will of man. It is left to the will of the creator whether he will be saved or not. If he will not, there is no constraining influence that can master and overcome his will. There is no promise that any influence shall be strong enough to overcome him, according to the Armenian. So the question is left to man, and God the mighty Builder--though he put stone on stone massive as the universe--yet may be defeated by this creature. Out upon such blasphemy! The whole structure, from beginning to end, is in the hand of God. The very terms and conditions of that covenant are become its seals and guarantees, seeing that Jesus has fulfilled them all. Its full accomplishment in every jot and title is sure, and must be fulfilled by Christ Jesus, whether man will or man will not. It is not the creature's covenant, it is the Creators. It is not man's covenant, it is the Almighty's covenant, and he will carry it out and perform it, the will of man notwithstanding. For this is the very glory of grace--that man hates to be saved--that he is enmity to him, yet God will have him redeemed--that God's consensus is. "You shall," and man's intention is "I will not, and God's "shall" conquers man's "I will not." Almighty grace rides victoriously over the neck of free will and leads it captive in glorious captivity to the all-conquering power of irresistible grace and love. It is a sure covenant, and therefore deserves the title of everlasting.
 

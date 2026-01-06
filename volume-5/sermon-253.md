@@ -55,7 +55,7 @@ Our astonishment increases every hour when we think of his love to us, for there
 
 and our only answer is--
 
-> 'Twas the same love that spread the feast,    
+> Twas the same love that spread the feast,    
 > That sweetly forced us in;    
 > Else we had still refused to taste    
 > And perish'd in our sin.    

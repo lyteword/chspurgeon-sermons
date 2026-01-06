@@ -2,8 +2,8 @@
 
 Sermon No. 258 - Delivered on Sabbath Morning, June 19th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The mighty God."  
-> Isaiah 9:6.  
+> The mighty God.    
+> Isaiah 9:6.    
 
 OTHER TRANSLATIONS of this divine title have been proposed by several very eminent and able scholars. Not that they have any of them been prepared to deny that this translation is after all most accurate; but rather that whilst there are various words in the original, which we render by the common appellation of "GOD," it might be possible so to interpret this as to show more exactly its definite meaning. One writer, for example, thinks the term might be translate! "The Irradiator,"--he who gives light to men. Some think it bears the meaning of "The Illustrious,"--the bright and the shining one. Still there are very few, if any, who are prepared to dispute the fact that our translation is the most faithful that could possibly be given--the mighty God."
 
@@ -19,13 +19,10 @@ I will say yet another thing, which may startle the believer, but which is inten
 
 Do you remember, my dear friends, when the apostle Paul was preaching on the resurrection of the dead, in his letter to the Corinthians, how he uses an ex post facto argument, to shoe, the natural consequences, if it were possible to overturn the truths He says, "If Christ be not risen, then is mar preaching vain, and your faith is also vain, and ye are yet in your sins." Now, I may fairly use the apostle's line of argument in reference to the Godhead and Sonship of Christ, of which his resurrection gave such a palpable demonstration: "If Christ be not the Son of God, then is our preaching vain, and your faith is also vain, and ye are yet in your sins all our visions of heaven are blasted and withered; the brightness of our hope is quenched for ever; that rock on which our trust is built, turns out to be nothing better than mere sand if the divinity of Christ be not proved. All the joy and consolation we ever had in this world, in our belief that his blood was sufficient to atone for sin, has been but a dream of fancy and a "figment of idle brains;" all the communion we have ever had with him has been but an illusion and a trance, and all the hopes we have of beholding his face in glory, and of being satisfied when we awake in his likeness, are but the foulest delusions that ever cheated the hopes of man. Oh, my brethren, and can any of you believe that the blood of all the martyrs has been shed as a witness to a lie? Have all those who have rotted in Roman dungeons, or have been burned at the stake because they witnessed that Christ was God, died in vain? Verily, if Christ be not God, we are of all men the most miserable. To what purpose is the calumny and abuse that we have had to endure day after day; to what purpose are our repentance, our sighs, our tears; to what purpose is our faith; to what purpose have our fears and bodings been supplanted by our hope and confidence; to what purpose our joy and our rejoicing, if Christ be not the Son of God? Will you put yourselves all down for fools; can you imagine that God's Word has misguided you; that prophets and apostles, and martyrs and saints, have all leagued together to lead you into a trap and to delude your souls? God forbid that we should think such a thing. There is no folly in the world that has in it so much as a do it of madness, compared with the folly of denying the divinity of Christ, and then professing to be his followers. No, beloved:
 
-"Let all the forms that men devise,
-
-Assault our faith with treacherous art;
-
-We'll call them vanity and lies,
-
-And bind the gospel to our heart!"
+> Let all the forms that men devise,    
+> Assault our faith with treacherous art;    
+> We'll call them vanity and lies,    
+> And bind the gospel to our heart!    
 
 We will write this on the forefront of our banner,--Christ is God; co-equal and co-eternal with his Father; very God of very God, who counted it not robbery to be equal with God."
 
@@ -37,23 +34,18 @@ In hours of devout contemplation, how often do we look up to him as being the Et
 
 Again: how frequently do we repeat over to ourselves that precious verse, "Jesus Christ the same yesterday, and to-day, and for ever." We are always in the habit of ascribing to him immutability. Some of our choicest hymns are founded on that circumstance, and our richest hopes flow from that attribute. We know that all things will change. We are convinced that we ourselves are mutable as the winds, and as easily moved as the sand by the waves of the sea; but we know that our Redeemer liveth, and we cannot entertain a suspicion of any change in his love, his purpose, or his power How often do we sing:--
 
-"Immutable his will
-
-Though dark may be my frame,
-
-His loving heart is still Unchangeably the same.
-
-My soul through many changes goes:
-
-His love no variation knows!"
+> Immutable his will    
+> Though dark may be my frame,    
+> His loving heart is still Unchangeably the same.    
+> My soul through many changes goes:    
+> His love no variation knows!    
 
 Do you not see that you have in fact called him God, because none but God is immutable? The creature changes. This is written on the forefront of creation--"Change!" The mighty ocean, that knows no furrows on its brow, changeth at times, and at times shifteth its level. It moveth hither and thither, and we know that it is to be licked up with forked tongues of flame, and yet we ascribe to Christ immutability. We do, then, in fact, ascribe to him, divinity; for, none but the divine can be immutable.
 
 Is it not also our joy to believe that wherever two or three are gathered together in Christ's name, there is he in the midst of them? Do we not repeat it in all our prayer-meetings? Perhaps some minister in Australia began the solemnities of public worship this day with the reflection that Jesus Christ was with him, according to his promise, and I know that as I came here the same reflection comforted me, "Yea, I am with you always even to the end of the world,"--That wherever a Christian is found, there God is. And though there be but two or three met in a barn, or on the greensward under the canopy of God's blue sky, yet there Christ vouchsafes his presence. Now I ask you, have we not ascribed to Christ, omnipresence; and who can be omnipotent but God? Have we not thus in feet then, though not in words, called Christ "God?" How is it possible for us to dream of Him as being here, and there, and everywhere; in the bosom of his Father, with the angels, and in the hearts of the contrite all at the same time, if he be not God? Grant me that he is omnipresent, and you have said that he is God, for none but God can be present everywhere. Again, are we not also wont to ascribe to Christ omnisience? You believe when your heart is aching that Christ knows your pains, and that he reckons every groan; or at least if you do not believe it, it is always my satisfaction to know that--
 
-"He feels at his heart,
-
-All my sighs and my groans."
+> He feels at his heart,    
+> All my sighs and my groans.    
 
 And so he does yours. Wherever you are, you believe that he hears your prayers that he sees your tears, that he knows your wants, that he is ready to pardon your sins; that you are better known to him, than you are to yourself. You believe that he searches your hearts, and tries your reins, and that you never can come to him without finding him full of sympathy, and full of love. Now do you not see that you have ascribed conscience to him. and therefore, though not in words, you have, in accents louder than words, called him the mighty God, for you have assumed that he is omniscient; and who can be omniscient but the very God of very God?
 

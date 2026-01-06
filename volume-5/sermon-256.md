@@ -2,8 +2,8 @@
 
 Sermon No. 256 - Delivered on Sabbath Morning, June 5th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us"  
-> Romans 8:34.  
+> Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us    
+> Romans 8:34.    
 
 THE PROTEST OF an innocent man against the charge of an accuser may well be strong and vehement. But here we have a more uncommon and a sublimer theme. It is the challenge of a justified sinner protesting with holy and inspired fervour that his character is clear and his conscience clean, even in the sight of heaven. Yet it is not the natural innocence of his heart, but the perfect mediation of the Lord Jesus Christ, which gives him this amazing confidence. May the Spirit of God enable me to expound to you this most blessed portion of God's Word.
 
@@ -27,19 +27,15 @@ And now I come to the fourth; and this also hath an encomium passed upon it--"WH
 
 But, perhaps, the sweetest proof that the Christian cannot be condemned, is derived from the intercession of Christ, if we view it thus. Who is Christ, and who is it with whom he intercedes. My soul was in raptures when I mused yesterday upon two sweet thoughts; they are but simple and plain, but they were very interesting to me. I thought that had I to intercede for anybody, and do a mediating part, if I had to intercede for my brother with my father, I should feel I had got a safe case in hand. This is just what Jesus has to do. He has to intercede with his Father, and mark, with our Father too. There is a double precedent to strengthen our confidence that he must prevail. When Christ pleads, he does not plead with one who is stronger than him or inimical to him, but with his own Father. "My Father," saith he "it is my delight to do thy will and it is thy delight to do my will, I will then that they, whom thou hast given me, be with me where I am." And then he adds this blessed argument, "Father those for whom I plead are thine own children, and thou lovest them as much as I do," yea, "thou hast loved them as thou hast loved me." Oh, it is no hard task to plead, when you are pleading with a Father for a brother, and when the advocate can say, "I go to my Father and to your Father, to my God and to your God." Suppose, my dear friends, that any of you were about to be tried for your life, do you think you could trust your advocacy with any man you know? I do really think I should be impatient to speak for myself. But my counsel would say, "Now just be quiet, my dear sir, you perhaps may plead more earnestly than I can, because it is for your own life, but then you do not understand the law, you will make some blunder or other, and commit yourself and spoil your own cause." But still I think if my life were in hazard, and I stood in the dock, and my counsel were pleading for me, my tongue would be itching to plead for myself, and I should want to get up and just say, "My lord, I am innocent, innocent as the babe newly born, of the crime laid to my charge. My hands have never been stained with the blood of any man." Oh! I think I could indeed plead if I were pleading for myself. But, do you know, I have never felt that with regard to Christ. I can sit down and let him plead, and I do not want to get up and conduct the pleading myself. I do feel that he loves me better than I love myself. My cause is quite safe in his hands, especially when I remember again that he pleads with my father, and that he is his own Father's beloved Son, and that he is my brother--and such a brother--a brother born for adversity.
 
-"Give him, my soul, thy cause to plead,
-
-Nor doubt the Father's grace."
+> Give him, my soul, thy cause to plead,    
+> Nor doubt the Father's grace.    
 
 It is enough; he has the cause, nor would we take it from his hand even if we could--
 
-"I know that safe with him remains,
-
-Protected by his power--
-
-What I've committed to his hands
-
-Till the decisive hour."
+> I know that safe with him remains,    
+> Protected by his power--    
+> What I've committed to his hands    
+> Till the decisive hour.    
 
 Well did the apostle say, "To the very uttermost he is able to save them that come unto God by him, because he ever lives to make intercession for them."
 

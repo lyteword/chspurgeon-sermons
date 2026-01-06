@@ -2,8 +2,8 @@
 
 Sermon No. 283 - Delivered on Sabbath Morning, November 13th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Shew me wherefore thou contendest with me."  
-> Job 10:2.  
+> Shew me wherefore thou contendest with me.    
+> Job 10:2.    
 
 AND WILL GOD CONTEND with man? If God be angry, can he not take away the breath of his nostrils, and lay him low in the dust of earth? If the heart of the Almighty be moved unto hot displeasure, can he not speak in his anger, and will not the soul of man sink into the lowest hell? Will God contend--will he set himself in battle array against his creature? and such a creature?--the creature of an hour--a thing that is not, that is here to-day and gone to-morrow? Will the Almighty contend with the nothingness of man? Will the everlasting God take up the weapons of war, and go out to fight against the insect of a day? Well might we cry out to him, "after whom is my Lord the King gone forth? After a dead dog: after a flea?" Wilt thou hunt the partridge on the mountains with an army, and wilt thou go forth against a gnat with shield and spear? Shall the everlasting God who fainteth not, neither is weary, at whose reproof the pillars of heaven's starry roof tremble and start--will he become combatant with a creature? Yet our text saith so. It speaks of God's contending with man. Ah, surely, my brethren, it needs but little logic to understand that this not a contention of anger, but a contention of love. It needs, methinks, but a short sight for us to discover that, if God contendeth with man, it must be a contention of mercy. There must be a design of love in this. If he were angry he would not condescend to reason with his creature, and to have a strife of words with him; much less would he put on his buckler, and lay hold on his sword, to stand up in battle and contend with such a creature as man. You will all perceive at once that there must be love even in this apparently angry word; that this contention must, after all, have something to do with contentment, and that this battle must be, after all, but a disguised mercy, but another shape of an embrace from the God of love. Carry this consoling reflection in your thoughts while I am preaching to you; and if any of you are saying to-day, "Shew me wherefore thou contendest with me," the very fact of God contending with you at all, the fact that he has not consumed you, that he has not smitten you to the lowest hell, may thus, at the very outset, afford consolation and hope.
 
@@ -13,13 +13,10 @@ First, then, to THE CHILD OF GOD. I have--I know I have--in this great assembly,
 
 My first answer on God's part, my brother, is this--it may be that God is contending with thee that he may show his own power in upholding thee. God delighteth in his saints; and when a man delights in his child, if it be a child noted for its brightness of intellect, he delights to see it put through hard questions, because he knows that it will be able to answer them all. So God glories in his children. He loves to hear them tried, that the whole world may see that there is none like them on the face of the earth, and even Satan may be compelled before he can find an accusation against them, to resort to his inexhaustible fund of lies. Sometimes God on purpose puts his children in the midst of this world's trials. On the right, left, before, behind, they are surrounded. Within and without the battle rages. But there stands the child of God, calm amidst the bewildering cry, confident of victory. And then the Lord pointeth joyously to his saint, and he saith, "See, Satan, he is more than a match for thee. Weak though he is, yet through my power, he all things can perform." And sometimes God permits Satan himself to come against one of his children; and the black fiend of hell in dragon's wings, meets a poor Christian just when he is faint and weary from stumblings in the valley of humiliation. The fight is long and terrible, and, well it may be, for it is a worm combating with the dragon. But see what that worm can do. It is trodden under foot, and yet it destroys the heel that treads upon it. When the Christian is cast down he utters a cry, "Rejoice not over me, O mine enemy, for though I fall yet shall I rise again." And so God pointeth to his child and with, "See there! see what I can do: I can make flesh and blood more mighty than the most cunning spirit; I can make poor feeble foolish man, more than a match for all the craft and might of Satan." And what will you say to this third proof that God puts us through? Sometimes God doth as it were, himself enter into the lists; oh, let us wonder to tell it. God to prove the strength of faith, sometimes himself makes war on faith. Think not that this is a stretch of the imagination. It is plain simple fact. Have ye never heard of the brook Jabbok, and of that angel-clothed God who fought with Jacob there, and permitted Jacob to prevail? What was this for? It was this: thus had God determined, "I will strengthen the creature so much, that I will permit it to overcome its Creator." Oh, what noble work is this, that while God is casting down his child with one hand, he should be holding him up with the other: letting a measure of omnipotence fall on him to crush him, while the like omnipotence supports him under the tremendous load. The Lord shows the world--"See what faith can do! "Well does Hart sing of faith--
 
-"It treads on the world and on hell;
-
-It vanquishes death and despair;
-
-And, O! let us wonder to tell,
-
-It overcomes heaven by prayer."
+> It treads on the world and on hell;    
+> It vanquishes death and despair;    
+> And, O! let us wonder to tell,    
+> It overcomes heaven by prayer.    
 
 This is why God contends with thee: to glorify himself, by showing to angels, to men, to devils, how he can put such strength into poor puny man, that he can contend with his Maker, and become a prevailing prince like Israel, who as a prince had power of God, and prevailed. This, then, may be the first reason.
 
@@ -29,9 +26,8 @@ Another reason may be found in this. It may be the Lord contends with thee becau
 
 I have now another reason to give, but it is one which some of you will not understand; some however will. Beloved, ye remember that it is written, that we "must bear the image of the heavenly," namely, the image of Christ. As he was in this world even so must we be. We must have fellowship with him in his sufferings, that we may be conformable unto his death. Hast thou never thought that none can be like the Man of Sorrow unless they have sorrows too? How can you be like unto him, who sweat as it were great drops of blood, if you do not sometimes say, "My soul is exceeding sorrowful, even unto death." Think not, O well-beloved, that thou canst be like the thorn-crowned head, and yet never feel the thorn. Canst thou be like thy dying Lord, and yet be uncrucified? Must thy hand be without a nail, and thy foot without a wound? Canst thou be like him, unless like him thou art compelled to say, "My God, my God, why hast thou forsaken me?" God is chiselling you--you are but a rough block--he is making you into the image of Christ; and that sharp chisel is taking away much which prevents your being like him. Must he who is our head be marred in his visage by reason of grief, and must we for ever rejoice and sing? It cannot be.
 
-"The heirs of salvation, I know from his word,
-
-Through much tribulation must follow their Lord."
+> The heirs of salvation, I know from his word,    
+> Through much tribulation must follow their Lord.    
 
 Sweet is the affliction which gives us fellowship with Christ. Blessed is the plough that ploughs deep furrows, if the furrows be like his. Blessed is the mouth that spits upon us, if the spittle be from the same cause as that which defiled his face. Blessed are the nails and thorns, and vinegar and spear, if they but make us somewhat like to him, in whose glory we shall be partakers when we shall see him as he is. This is a matter which all cannot understand, for it is a path which no unhallowed foot hath trodden, and no careless eye hath so much as seen it. But the true believer can rejoice therein, for he has had fellowship with Christ in his sufferings.
 
@@ -47,17 +43,13 @@ Another answer I will give you is this: perhaps God contends with thee in order 
 
 Yet, again, another matter. "May it not be, my dear hearers, that the reason why God contends with you and does not give you peace is, because you are harbouring some one sin" Now, I will not say what it is; I have known a man solemnly under conviction of sin, but the company which he kept on market-day was of such a caste, that until he was separated entirely from his companions, it was not possible he should have peace. I do not know what your peculiar besetting sin may be. It may be a love for frivolity; it may be the desire to associate with those who amuse you; it may be worse. But remember, Christ and thy soul will never be one till thou and thy sins are two. Thy desires and longings must make a clean sweep of the devil and all his crew, or else Christ will not come and dwell with thee. "Well," says one, "but I cannot be perfect." No, but you cannot find peace till you desire to be. Wherever you harbour a sin, there you harbour misery. One sin wilfully indulged in, and not forsaken by true repentance, will destroy the soul. Sins given up are like goods cast out at sea by the mariners in days of storm; they lighten the ship, and the ship will never float till you have thrown all your sins overboard. There is no hope whatever for you till you can truly say,
 
-"Whate'er consists not with thy love,
+> Whate'er consists not with thy love,    
+> O help me to resign.    
 
-O help me to resign."
-
-"The dearest idol I have known,
-
-Whate'er that idol be,
-
-Help me to tear it from its throne,
-
-And worship only thee."
+> The dearest idol I have known,    
+> Whate'er that idol be,    
+> Help me to tear it from its throne,    
+> And worship only thee.    
 
 Then drawing near to a conclusion let me have your most solemn attention while I give one more hint as to the reason why you have not yet found peace. My dear hearers, perhaps it is because you do not thoroughly understand the plan of salvation. I do feel that all ministers,--and here perhaps, I am as great a sinner as any other, and I condemn myself while I chastise others--we all of us do in some way or other, I fear, help to dim the lustre of God's grace, as manifested in the cross of Christ. Often am I afraid lest I should prefer Calvinism to Calvary, lest I should put the sinner's sense of need like a quickset hedge round the cross, and keep the poor sinner from getting as near as he would to the bleeding Lamb of God. Ah, my dear hearers, remember if you would be saved, your salvation comes wholly and entirely from Jesus Christ, the dying Son of God. View him yonder, sinner, sweating in the garden! See the red drops of blood as they fall from that dear face! Oh, see him sinner, see him in Pilate's hall. View the streams of gore as they gush from those lacerated shoulders. See him, sinner, see him on his cross! View that head still marked with the wounds with which the thorns pierced his temples! Oh, view that face emaciated and marred! See the spittle still hanging there--the spittle of cruel mockers! See the eyes floating in tears with languid pity! Look, too, at those hands, and view them as they stream like founts of blood! Oh, stand and listen while he cries, "Lama Sabacthani!" Sinner, thy life is in him that died; thy healing is in yonder wounds; thy salvation is in his destruction. "Oh," says one, "but I cannot believe." Ah, brother, that was once my mournful cry. But I will tell you how I came to believe. Once upon a time, I was trying to make myself believe, and a voice whispered, "Vain man, vain man, if thou wouldst believe, come and see!" Then the Holy Spirit led me by the hand to a solitary place. And while I stood there, suddenly there appeared before me One upon his cross. I looked up, I had then no faith. I saw his eyes suffused with tears, and the blood still flowing: I saw his enemies about him hunting him to his grave; I marked his miseries unutterable; I heard the groaning which cannot be described; and as I looked up, he opened his eyes and said to me, "The Son of Man is come into the world to seek and to save that which was lost." I clapped my hands, and I said, "Jesus, I do believe, I must believe what thou hast said, I could not believe before, but the sight of thee has breathed faith into my soul. I dare not doubt--it were treason, it were high treason to doubt thy power to save." Dissolved by his agonies, I fell on the ground, and embraced his feet, and when I fell, my sin fell also! And I rejoiced in love divine that blots out sin and saves from death.
 

@@ -2,10 +2,11 @@
 
 Sermon No. 255 - Delivered on Sabbath Morning, May 29th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Just, and the justifier of him which believeth in Jesus."  
-> Romans 3:26.  
+> Just, and the justifier of him which believeth in Jesus.    
+> Romans 3:26.    
 
-"Just to forgive us our sins, and to cleanse us from all unrighteousness."--1 John 1:9.
+> Just to forgive us our sins, and to cleanse us from all unrighteousness.    
+> 1 John 1:9.    
 
 WHEN THE SOUL is seriously impressed with the conviction of its guilt, when terror and alarm get hold upon it concerning the inevitable consequences of its sin, the soul is afraid of God. It dreads at that time every attribute of divinity. But most of all the sinner is afraid of God's justice. "Ah," saith he to himself, "God is a just God; and if so, how can he pardon my sins? for my iniquities cry aloud for punishment, and my transgressions demand that his right hand should smite me low. How can I be saved? Were God unjust, he might forgive: but, alas! he is not so, he is severely just. He layeth justice to the line, and righteousness to the plummet.' He is the judge of all the earth, and he must do right. How then can I escape from his righteous wrath which must be stirred up against me?" Let us be assured that the sinner is quite right in the conviction that there is here a great difficulty. The justice of God is in itself a great barrier to the salvation of sinners. There is no possibility for that barrier to be surmounted, nor even for it to be removed except by one means, which shall this day be proclaimed unto you through the gospel of Jesus Christ our Lord. It is true that God is just. Let old Sodom tell you how God rained fire and brimstone out of heaven upon man's iniquity. Let a drowning world tell you how God lifted the sluices of the fountains of the great deep, and bade the bubbling waters spring up and swallow up man alive. Let the earth tell you; for she opened her mouth when Korah, Dathan, and Abiram rebelled against God. Let the buried cities of Nineveh, and the tattered relics of Tyre and Sidon, tell you that God is just, and will by no means spare the guilty. And direst of all, let hell's bottomless lake declare what is the awful vengeance of God against the sins of man. Let the sighs, and groans, and moans, and shrieks of spirits condemned of God, rise in your ears, and bear witness that he is a God who will not spare the guilty, who will not wink at iniquity, transgression, and sin, but who will have vengeance upon every rebel, and will give justice its full satisfaction for every offence.
 
@@ -31,13 +32,10 @@ Furthermore, if you will please for a moment to consider how terrible were the a
 
 And am I not content, too? Guilty though I am and vile, can I not plead that this bloody sacrifice is enough to satisfy God's demands against me? Oh, yes, I trust I can,
 
-"My faith doth lay its hand,
-
-On that dear head of thine,
-
-While like a penitent I stand,
-
-And here confess my sin."
+> My faith doth lay its hand,    
+> On that dear head of thine,    
+> While like a penitent I stand,    
+> And here confess my sin.    
 
 Jesus, I believe that they sufferings were for me; and I believe that they are more than enough to satisfy for all my sins. By faith I cast myself at the foot of thy cross and cling to it. This is my only hope, my shelter, and my shield. It cannot be, that God can smite me now. Justice itself prevents, for when Justice once is satisfied it were injustice if it should ask for more. Now, is it not clear enough to the eye of every one, whose soul has been aroused, that Justice stands no longer in the way of the sinner's pardon? God can be just, and yet the justifier. He has punished Christ, why should he punish twice for one offence? Christ has died for all his people's sins, and if thou art in the covenant, thou art one of Christ's people. Damned thou canst not be. Suffer for thy sins thou canst not. Until God can be unjust, and demand two payments for one debt, he cannot destroy the soul for whom Jesus died. "Away goes universal redemption," says one. Yes, away it goes, indeed. I am sure there is nothing about that in the Word of God. A redemption that does not redeem is not worth my preaching, or your hearing, Christ redeemed every soul that is saved; no more, and no less. Every spirit that shall be seen in heaven Christ bought. If he had redeemed those in hell, they never could have come there. He has bought his people with his blood, and they alone shall he bring with him. "But who are they?" says one. Thou art one, if thou believest. Thou art one if thou repentest of thy sin. If thou wilt now take Christ to be thy all in all, then thou art one of his; for the covenant must prove a lie, and God must be unjust, and justice must become unrighteousness, and love must become cruelty, and the cross must become a fiction, ere thou canst be condemned if thou trustest in Jesus.
 
@@ -59,50 +57,27 @@ My dear hearers, as to any probability of your being lost after such a confessio
 
 And now in conclusion, I have tried to tell out simply and plainly the story of how God's justice is satisfied, and has become the sinners friend, and I look for fruit, for where the gospel is simply preached it is never preached in vain. Only let us go home and pray now, that we may know the Saviour. Let us pray that others may know him too. If you are convinced of sin, my dear friends, do not lose a moment. Go to your chamber as soon as you get home, shut to your door, go alone to Jesus, and there repeat your confession, and once more affirm your faith in Christ; and you shall have that peace with God which the world cannot give, and which the world cannot take away. Your troubled conscience shalt find rest: your feet shall be on a rock; and a new song shall be in your mouth, even praise for evermore.
 
-"From whence this fear and unbelief?--
-
-Hast thou, O Father, put to grief
-
-Thy spotless Son for me?
-
-And will the righteous Judge of men
-
-Condemn me for that debt of sin,
-
-Which, Lord, was charged on thee?
-
-Complete atonement thou hast made,
-
-And to the utmost farthing paid
-
-Whate'er thy people owed;
-
-How then can wrath on me take place
-
-If shelter'd in thy righteousness,
-
-And sprinkled with thy blood?
-
-If thou hast my discharge procured,
-
-And freely, in my room, endured
-
-The whole of wrath divine;
-
-Payment God cannot twice demand,--
-
-First, at my bleeding Surety's hand,
-
-And then again at mine.
-
-Turn, then, my soul unto thy rest!
-
-The merits of thy great High Priest
-
-Speak peace and liberty:
-
-Trust in his efficacious blood;
-
-Nor fear thy banishment from God,
-
-Since Jesus died for thee."
+> From whence this fear and unbelief?--    
+> Hast thou, O Father, put to grief    
+> Thy spotless Son for me?    
+> And will the righteous Judge of men    
+> Condemn me for that debt of sin,    
+> Which, Lord, was charged on thee?    
+> Complete atonement thou hast made,    
+> And to the utmost farthing paid    
+> Whate'er thy people owed;    
+> How then can wrath on me take place    
+> If shelter'd in thy righteousness,    
+> And sprinkled with thy blood?    
+> If thou hast my discharge procured,    
+> And freely, in my room, endured    
+> The whole of wrath divine;    
+> Payment God cannot twice demand,--    
+> First, at my bleeding Surety's hand,    
+> And then again at mine.    
+> Turn, then, my soul unto thy rest!    
+> The merits of thy great High Priest    
+> Speak peace and liberty:    
+> Trust in his efficacious blood;    
+> Nor fear thy banishment from God,    
+> Since Jesus died for thee.    

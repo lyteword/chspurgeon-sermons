@@ -2,8 +2,8 @@
 
 Sermon No. 267 - Delivered on Sabbath Morning, August 14th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "In whom ye also are builded together for an habitation of God through the Spirit."  
-> Ephesians 2:22.  
+> In whom ye also are builded together for an habitation of God through the Spirit.    
+> Ephesians 2:22.    
 
 UNDER THE OLD Mosaic dispensation God had a visible dwelling-place among men. The bright shekinah was seen between the wings of the cherubim which overehadowed the mercy-seat; and in the tabernacle while Israel journeyed in the wilderness, and in the temple afterwards, when they were established in their own land, there was a visible manifestation of the presence of Jehovah in the place which was dedicated to his service. Now, everything under the Mosaic dispensation was but a type, a picture, a symbol of something higher and nobler. That form of worship was, as it were, a series of shadow-pictures, of which the gospel is the substance. It is a sad fact, however, that there is so much Judaism in all our hearts, that we frequently go back to the old beggarly elements of the law, instead of going forward and seeing in them a type of something spiritual and heavenly, to which we ought to aspire. It is disgraceful to the present century to hear some men talk as they do. They had better at once espouse the Jewish creed. I mean it is disgraceful to hear some men speak as they do with regard to religious edifices. I remember to have heard a sermon once upon this text--"If any man defile the temple of God, him will God destroy." And the first part of the sermon was occupied with a childish anathema against all who should dare to perform any unhallowed act in the churchyard, or who should lean the pole of a tent during the fair of the coming week against any part of that edifice, which, it seemed to me, was the god of the man who occupied the pulpit. Is there such a thing as a holy place anywhere? Is there any spot wherein God now particularly dwells? I know not. Hear ye the words of Jesus, "Believe me, the hour cometh, when ye shall neither in this mountain, nor yet at Jerusalem, worship the Father. But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him." Remember, again, the saying of the apostle at Athens, "God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands."
 
@@ -21,9 +21,8 @@ With regard to this building I have just a remark or two to make before I come t
 
 Another thing may be noticed, namely, her impregnable strength. This habitation of God, this house which is not made with hands, but is of God's building, has often been attacked, but it has never been taken. What multitudes of enemies have battered against her old ramparts! but they have battered in vain. "The kings of the earth stood up, and the rulers took counsel together," but what happened? They came against her, every one of them with mighty men, each man with his sword drawn, but what became of them? The Almighty scattered kings in Hermon like snow in Salmon. As the snow is driven from the mountain side before the stormy blast, even so didst thou drive them away, O God, and they melted before the breath of thy nostrils.
 
-"Then should our souls in Zion dwell,
-
-Nor fear the rage of Rome or hell."
+> Then should our souls in Zion dwell,    
+> Nor fear the rage of Rome or hell.    
 
 The church is not in danger, and she never can be. Let her enemies come on, she can resist. Her passive majesty, her silent rocky strength, bids them defiance now. Let them come on and break themselves in pieces, let them dash themselves against her, and learn the ready road to their own destruction. She is safe, and she must be safe even unto the end. Thus much then we can say of the structure; it is built by infinite wisdom, and it is impregnably secure.
 

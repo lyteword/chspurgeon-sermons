@@ -2,8 +2,8 @@
 
 Sermon No. 261 - Delivered on Sabbath Morning, July 10th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance obeyed; and he went out, not knowing whither he went."  
-> Hebrews 11:8.  
+> By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance obeyed; and he went out, not knowing whither he went.    
+> Hebrews 11:8.    
 
 ABRAHAM'S FAITH was of the most eminent order, for he is called the Father of the Faithful. Let us rest assured that nothing but repeated and fiery trials could have trained his faith to so great a strength as that which it exhibited in his preparation to slay his son at the command of God. This true Jerusalem blade was long annealed before it gained its marvellous edge and matchless temper. Men come not to their perfect stature except by years of growth. Stars cannot reach the zenith of the heavens by one sudden flash, nay even the sun himself must climb to his meridian. Trials are the winds which root the tree of our faith. They are the trainers, drilling God's young soldiers, and teaching their hands to war and their fingers to fight. Foremost among Abraham's trials was that of being called away to a land which he had never been; as this may be our trial also, I pray that my words may be adapted to our present condition.
 
@@ -17,9 +17,8 @@ I have spoken to you of what Abraham left, and whither he went; now I would have
 
 And then again, we have every reason to believe that he obeyed without reluctance. He went as cheerfully away from his father's house as he had ever gone into it. I know not that he was sent away with the voice of tabret and of harp, but I am sure there was the voice of music in his heart. He might have said, "I go as cheerfully to-day I know not where, as ever I have gone to the fat land of Egypt or the spice-bearing country of the Sabeans." Men said his journey was absurd and deplorable, but to him it was the happiest and the best, for God was with him; and if the star did not guide him as it did the wise men to Bethlehem, yet there was a star within his own soul that shone like a sun, and lightened his footsteps and cheered his spirit, and sent him on his joyous way towards his appointed habitation. He went cheerfully, not knowing whither he went, not starting and fretting like a bullock unaccustomed to the yoke, but running with willing footsteps in the way of God. The ancients pictured Mercury with wings upon its heels, and surely faith hath them there.
 
-"Tis love that makes our willing feet
-
-In swift obedience move."
+> Tis love that makes our willing feet    
+> In swift obedience move.    
 
 Love may be the wings, but the wings are upon the feet of faith, and it flies to do the will of God whilst hearkening to his commands.
 
@@ -33,13 +32,10 @@ But now I come to observe that YOU AND I MAY BE PLACED IN THE SAME POSITION. At 
 
 Such Christians as I have referred to, who are not called in early life to endure this trial, frequently have to bear its counterpart at another stage in their journey. On a sudden their minds are enlightened with regard to the pure simplicity of the gospel; their family is professedly religious and they have been in the habit of attending a certain place of worship with their kindred and friends, till at length a change passes over their religious views. Perhaps it is a doctrinal change; they have imbibed the orthodox faith from the pure fountain of revelation itself, unalloyed by the traditions and qualifications of men; they have cast away all the heterodox glossary of man, and have determined to believe nothing but the sovereign grace of God. Perhaps their views on baptism may have changed, and seeing nothing in Scripture to warrant infant sprinkling, they have come out with a determination to practice believer's baptism. It may be that this entails the scoff and scorn of all who know them. This grieves the hearts of those who know and love Jesus, and the question arises with them, "What shall I do?" These matters may be non-essential, shall I keep them back? Shall I for charity's sake weaken my testimony. Shall I only bear testimony to points on which I may agree with other people, and hold my tongue about the rest. Oh, my dear friends, such carnal policy, if you practice it, will do you serious injury. Whatever you believe, carry it out. Depend upon it a grain of truth is a grain of diamond dust, and it is precious. There may be truths non-essential to our salvation; but there are no non-essential truths with regard to our comfort. Every truth is essential. We must keep back none, but follow the Lord wholly; let this be your song,--
 
-"Through floods and flames, if Jesus lead,
-
-I'll follow where he goes,
-
-'Hinder me not,' shall be my cry,
-
-Though earth and hell oppose."
+> Through floods and flames, if Jesus lead,    
+> I'll follow where he goes,    
+> 'Hinder me not,' shall be my cry,    
+> Though earth and hell oppose.    
 
 The tendency of the present age is to temporize; we are asked continually to qualify our testimony; to cut off some portion of the truth we preach; to smooth down and polish our words. God forbid; we will not do so. Whatever we believe to be true, to the last jot and tittle we will speak it out. I hope so long as I live there will always be a straight road from my heart to my mouth, and that I shall be able to preach whatever I believe in my soul, and to keep nothing reserved. Do you the same. Though you should forsake all, and should be by all forsaken, for the truth's sake, with Abraham's trial and Abraham's faith, you shall have Abraham's honor and Abraham's reward.
 

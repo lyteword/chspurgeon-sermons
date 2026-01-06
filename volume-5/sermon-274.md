@@ -2,8 +2,8 @@
 
 Sermon No. 274 - Delivered on Sabbath Morning, September 11th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Having a desire to depart and to be with Christ, which is far better."  
-> Philippians 1:23.  
+> Having a desire to depart and to be with Christ, which is far better.    
+> Philippians 1:23.    
 
 WE KNOW THAT DEATH is not the end of our being. By a confident faith we are persuaded that better things await us in another state. We are speeding onwards through our brief life like an arrow shot from a bow, and we feel that we shall not drop down at the end of our flight into the dreariness of annihilation, but we shall find a heavenly target far across the flood of death. The force which impels us onwards is too mighty to be restrained by death. We have that within us which is not to be accounted for, if there be not a world to come, and especially, as believers, we have hopes, and desires, and aspirations, which cannot be fulfilled, and which must have been given us purposely to make us miserable, and to tantalize us, if there be not a state in which every one of these shall be satisfied and filled to the brim with Joy. We know, too, that the world into which we shall soon be ushered is one which shall never pass away. We have learned full well by experience that all things here are but for a season. They are things which shall be shaken, and, therefore, will not remain in the day when God shall shake both heaven and earth. But equally certain are we that the inheritance which awaits us in the world to come is eternal and unfailing, that the cycles of ages shall never move it; that the onflowing of eternity itself shall not diminish its duration. We know that the world to which we go is not to be measured by leagues, nor is the life thereof to be calculated by centuries. Well does it become every one of us, then, professing the Christian name, to be questioning ourselves as to the view which we take of the world to come. lt may be there are some of you now present who call yourselves believers, who look into a future state with shuddering and awe. Possibly there may be but few here who have attained to the position of the apostle, when he could say, that he had a desire to depart and to be with Christ. I take it that our view of our own death is one of the readiest tokens by which we may judge of our own spiritual condition. When men fear death it is not certain that they are wicked, but it is quite certain that if they have faith it is in a very weak and sickly condition. When men desire death we may not rest assured that they are therefore righteous, for they may desire it for wrong reasons; but if for right reasons they are panting to enter into another state, we may gather from this, not only that their minds are right with God, but that their faith is sanctified and that their love is fervent.
 
@@ -21,13 +21,10 @@ Let me describe what I think the apostle means by the figure of a departure. Man
 
 "Oh! no" says he, "sing me no such a hymn as that; sing me--
 
-"Jerusalem my happy home,
-
-Name ever dear to me,
-
-When shall my labors have an end
-
-In joy, and peace, and thee."
+> Jerusalem my happy home,    
+> Name ever dear to me,    
+> When shall my labors have an end    
+> In joy, and peace, and thee.    
 
 He bide you a last farewell. You see him for a little season even after that, although he is too far gone again to address you. It may be a partial insensibility seizes hold of him; he is like a ship that is just going out of sight; you look at his lips, and as you bow down your ear, you can catch some faint syllables of praise. He is talking to himself of that precious Jesus who is still his joy and hope. You watch him till the last heaving breath has left the body, and you retire with the sweet reflection that his Spirit on a glassy sea has floated joyously to its post. Thus the believer's death is a departure. There is no sinking in the wave; there is no destruction of the vessel: it is a departure. He has gone; he has sailed over a calm and quiet sea, and he is gone to a better land.
 
@@ -35,21 +32,14 @@ At other times deaths are more sudden, and are not heralded by protracted sickne
 
 The apostle's description of death, however, is not finished. He has here only pictured that which is visible. We now come to notice his description of the invisible part of death--
 
-"In vain the fancy strives to paint
-
-The moment after death;
-
-The glories which surround the saint
-
-When yielding up his breath.
-
-This much--and this is all we know,
-
-They are supremely blest;
-
-Have done with sin, and care, and woe,
-
-And with their Saviour rest."
+> In vain the fancy strives to paint    
+> The moment after death;    
+> The glories which surround the saint    
+> When yielding up his breath.    
+> This much--and this is all we know,    
+> They are supremely blest;    
+> Have done with sin, and care, and woe,    
+> And with their Saviour rest.    
 
 This is precisely the apostle's description of the state of the believer after death. They depart; yes, but whither? To be with Christ. Just observe how quickly these scenes follow each other. The sail is spread; the soul is launched upon the deep. How long will be its voyage? How many wearying winds must beat upon the sail ere it shall be reefed in the port of peace? How often shall that soul be tossed upon the waves before it comes to the sea that knows no storm. Oh tell it, tell it everywhere; yon ship that has just departed is already at its haven. It did but spread its sail and it was there. Like the old ship on the lake of Galilee, there was a storm that tossed it, but Jesus said, "Peace, be still," and immediately it came to land. Yes, think not that there is a long period between the instant of death and the eternity of glory. There is not so much as space for the intervening of a lightning's flash. One gentle sigh, the fetter breaks, we scarce can say it is gone before the ransomed spirit takes its mansion near the throne. We depart, we are with Christ; more quickly than I can say the words, swifter than speech can express them they become true. They depart, nod they are with Christ; the selfsame instant they have closed their eyes on earth they have opened them in heaven. And what is this invisible part of death? "To be with Christ." Who can comprehend this but the Christian? It is a heaven which the worldling cares not for, if he could have it, be would not pawn his meanest lust to gain it. To be with Christ is to him a thing of nought, as gold and silver are of no more value to little children than the pieces of platter with which they will amuse themselves. So heaven and being with Christ is of no value to the childish sons of earthly mirth. They know not what a mass of glory is crowded into that one sentence. "To be with Christ." To the believer who understands it, it means, first, vision. "Thine eyes shall see him." I have heard of him, and though I have not seen his face, unceasingly I have adored him. But I shall see him. Yes, we shall actually gaze upon the exalted Redeemer. Realize the thought. Is there not a young heaven within it? Thou shalt see the hand that was nailed for thee; thou shalt kiss the very lips that said, "I thirst;" thou shalt see the thorn-crowned head, and bow with all the blood-washed throng, thou, the chief of sinners, shalt adore him who washed thee in his blood; when thou shalt have a vision of his glory. Faith is precious but what must sight be? To view Jesus as the Lamb of God through the glass of faith makes the soul rejoice with joy unspeakable; but oh! to see him face to face, to look into those dear eyes; to be embraced by those divine arms rapture begins at the very mention of it! While I speak of him, my soul is like the chariots of Aminadab, and I desire to depart and to be with him. But what must the vision be when the veil is taken from his face, and the dimness from our eyes, and when we shall talk with him even as a man talketh with his friend. But it is not only vision, it is communion. We shall walk with him, he shall walk with us, he shall speak to us, and we shall speak to him. All that the spouse desired in Solomon's Song, we shall have, and ten thousand times more. Then will the prayer be fulfilled "Let him kiss me with the kisses of his lips, for his love is better than wine." Then we shall be able to say "His left hand is under my head, and his right hand doth embrace me." Then will he tell us his love; then will rehearse the ancient story of the ever-lasting covenant, of his election of us by his own true love, of his bethrothal of us through his boundless affection, of his purchase of us by his rich compassion, of his preservation of us by his omnipotence, and of his bringing us safe at last to glory as the result of his promise and his blood. And then will we tell to him our love, then into his ear will we pour out the song of gratitude, a song such as we have never sung on earth, unmixed and pure, full of serenity and joy, no groans to mar its melody; a song rapt and seraphic, like the flaming sonnets which flash from burning tongues above. Happy, happy, happy day, when vision and communion shall be ours in fullness!" To be with Christ which is far better."
 
@@ -57,9 +47,8 @@ Nor is this all, it means fruition of Christ. Here we look and long to taste or 
 
 I have thus, as well as I was able, spoken upon the first part. And now my friends, let us consider THE APOSTLE'S DESIRE. How differently do men regard death. We have seen men shriek at the prospect of it. I have seen the man driven to madness when the skeleton king has stared him in the face. Pacing up and down his chamber he has declared with many a curse and imprecation that he would not and could not die--shrieking so that you could scarcely bear his company. He has looked forward to death as the concentration of all despair and agony, and he has vainly striven, with all his might, not to die. When he felt at last that death was stronger than he, and that he must get a desperate fall in the struggle, then has he began to shriek and to cry in such a strain that scarce demons themselves could excel the despair concentrated in each shriek. Others have we seen who have met death somewhat more calmly. Biting their lips, and setting fast their teeth, they have endeavored to keep up appearances, even in the last moment, but they have endured the inward suffering, betrayed to us most plainly by the staring eye, and the awful look. Others, too, we have seen, who, callous through sin, totally deserted by God's Spirit and given up to a seared conscience have gone to their death with idiot resignation. They have even played the madman yet more fully, and have tried to brag and bully even in the jaws of hell. Many Christians, have we met--true believers--who can go so far as to say they were willing to die. Please God, whenever the solemn hour should come, they were prepared to go up to their chamber and stretch themselves upon their bed, and say, "Lord, now lettest thou thy servant depart in peace." But the apostle had gone further than they. He said he had a desire to depart, and the desire was a strong one. The Greek word has much force in it. He panteth, he longeth to be gone. I might paraphrase it by one of the verses of an old hymn--
 
-"To Jesus, the crown of my hope,
-
-My soul is in haste to be gone."
+> To Jesus, the crown of my hope,    
+> My soul is in haste to be gone.    
 
 He desired not to get away from earth for he loved to serve his Master, but he desired to be with Christ, which he declared to be far better. I ask you if you were in Paul's condition would not such a desire contain the very fullness of wisdom. There is a ship at sea, Fully laden. It has a precious cargo of gold on board. Happy is the kingdom that shall receive the wealth which is contained within its hold. Would you not if you were a possessor of such a vessel long to be safe in port. The empty ship needs scarcely fear the water for what hath she to lose. If it casts its ballast into the sea, what is it the poorer? But when the ship is full of treasure well may the captain long to see it safely moored. Now Paul was full of faith and love. He could say, "I have finished my course, I have kept the faith." And what wonder therefore that he was longing to be safely anchored at home. So the soldier, who in the midst of battle has smitten down foe after foe, knows that a high reward awaits him. He has charged upon the enemy, and driven them back in many a desperate struggle. He has already been victor. Do you wonder he wishes the fight now were over, that his laurels may be safe? If he had played the coward he might long that the campaign should be protracted, that he might redeem his disgrace. But having so far fought with honor he may well desire that the garment rolled in blood, may be rolled up for ever. Ay! and so was it with the apostle. He had fought a good fight, and knew that the crown was laid up for him in heaven, and he anticipated the triumph which Christ would give him, and what marvel that panting and longing, he said, "I have a desire to depart and to be with Christ which is far better?" Upon this point I am constrained to be brief, because the next division involves the whole matter, and upon this, I would be somewhat longer. And may God grant that what I shall say upon it may be impressive.
 

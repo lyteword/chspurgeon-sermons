@@ -2,8 +2,8 @@
 
 Sermon No. 285 - Delivered on Sabbath Morning, November 20th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And the Lord said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it shall come to pass that every one that is bitten, when he looketh upon it, shall live."  
-> Numbers 21:8.  
+> And the Lord said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it shall come to pass that every one that is bitten, when he looketh upon it, shall live.    
+> Numbers 21:8.    
 
 I DO not propose this morning to explain again the mystery of the brazen serpent. As many of you well remember, not long ago I preached upon that subject, and endeavored to expound it in all its lengths and breadths. I have a somewhat similar object at the present time, the details may indeed be different, but after all the moral will be the same.
 
