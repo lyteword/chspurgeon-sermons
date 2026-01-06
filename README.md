@@ -47,18 +47,6 @@ Each sermon file includes:
 - **Portability:** Easily viewed and edited across platforms
 - **Integration:** Compatible with version control, web publishing, and note-taking tools
 
-## **Acknowledgments**
-
-This project is made possible by the public domain status of Spurgeon's works and the efforts of various organizations and volunteers who have preserved, digitized, and distributed these sermons[1][2][3][4].
-
----
-
 > “Visit many good books, but live in the Bible.”  
-> — Charles H. Spurgeon
+> &mdash; Charles H. Spurgeon
 
----
-
-- [1] https://www.spurgeongems.org/spurgeon-sermons/
-- [2] https://biblenotes.online/resources/sermonsspurgeon/sermonsspurgeon.htm
-- [3] https://www.ccel.org/ccel/spurgeon/sermons63.html
-- [4] https://www.thekingdomcollective.com/spurgeon/
