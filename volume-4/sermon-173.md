@@ -2,8 +2,8 @@
 
 Sermon No. 173 - Delivered on Sabbath Morning, January 24, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Yet it pleased the Lord to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see his seed, he shall prolong his days, and the pleasure of the Lord shall prosper in his hand."  
-> Isaiah 53:10.  
+> Yet it pleased the Lord to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see his seed, he shall prolong his days, and the pleasure of the Lord shall prosper in his hand.    
+> Isaiah 53:10.    
 
 WHAT myriads of eyes are casting their glances at the sun! What multitudes of men lift up their eyes, and behold the starry orbs of heaven! They are continually watched by thousands--but there is one great transaction in the world's history, which every day commands far more spectators than that sun which goeth forth like a bridegroom, strong to run his race. There is one great event, which every day attracts more admiration than do the sun, and moon, and stars, when they march in their courses. That event is, the death of our Lord Jesus Christ. To it, the eyes of all the saints who lived before the Christian era were always directed; and backwards, through the thousand years of history, the eyes of all modern saints are looking. Upon Christ, the angels in heaven perpetually gaze. "Which things the angels desire to look into," said the apostle. Upon Christ, the myriad eyes of the redeemed are perpetually fixed; and thousands of pilgrims, through this world of tears, have no higher object for their faith, and no better desire for their vision, than to see Christ as he is in heaven, and in communion to behold his person. Beloved, we shall have many with us, whilst this morning we turn our face to the Mount of Calvary. We shall not be solitary spectators of the fearful tragedy of our Saviour's death: we shall but dart our eyes to that place which is the focus of heaven's joy and delight, the cross of our Lord and Saviour Jesus Christ.
 
@@ -13,24 +13,24 @@ First, we have THE ORIGIN OF CHRIST'S DEATH. "It pleased Jehovah to bruise him; 
 
 Now, beloved, there be many who think that God the Father is at best but an indifferent spectator of salvation. Others do belie him still more. They look upon Him as an unloving, severe Being, who had no love to the human race, and could only be made loving by the death and agonies of our Saviour. Now, this is a foul libel upon the fair and glorious grace of God the Father, to whom for ever be honor: for Jesus Christ did not die to make God loving, but he died because God was loving.
 
-> "Twas not to make Jehovah's love  
-> Toward his people flame,  
-> That Jesus from the throne above,  
-> A suffering man became."  
+> Twas not to make Jehovah's love    
+> Toward his people flame,    
+> That Jesus from the throne above,    
+> A suffering man became.    
 
-> "Twas not the death which he endured,  
-> Nor all the pangs he bore,  
-> That God's eternal love procured,  
-> For God was love before."  
+> Twas not the death which he endured,    
+> Nor all the pangs he bore,    
+> That God's eternal love procured,    
+> For God was love before.    
 
 Christ was sent into the world by his Father, as the consequence of the Father's affection for his people. Yea, he "so loved the world, that he gave his only begotten Son that whosoever believeth in him should not perish, but have everlasting life. The fact is, that the Father as much decreed salvation, as much effected it, and as much delighted in it, as did either God the Son, or God the Holy Spirit. And when we speak of the Saviour of the world, we must always include in that word, if we speak in a large sense, God the Father, God the Son, and God the Holy Ghost, for all these three, as one God, do save us from our sins. The text puts away every hard thought concerning the Father, by telling us that it pleased Jehovah to bruise Jesus Christ. The death of Christ is traceable to God the Father. Let us try if we can see it is so.
 
 First it is traceable in decree. God, the one God of heaven and earth, hath the book of destiny entirely in his power. In that book there is nothing written by a stranger's hand. The penmanship of the solemn book of predestination is from beginning to end entirely divine.
 
-> "Chained to his throne a volume lies,  
-> With all the fates of men,  
-> With every angel's form and size  
-> Drawn by th' eternal pen."  
+> Chained to his throne a volume lies,    
+> With all the fates of men,    
+> With every angel's form and size    
+> Drawn by th' eternal pen.    
 
 No inferior hand hath sketched even so much as the least minute parts of providence. It was all, from its Alpha to its Omega, from its divine preface to its solemn finis, marked out, designed, sketched, and planned by the mind of the all-wise, all-knowing God. Hence, not even Christ's death was exempt from it. He that wings an angel and guides a sparrow, he that protects the hairs of our head from falling prematurely to the ground, was not likely, when he took notice of such little things, to omit in his solemn decrees the greatest wonder of earth's miracles, the death of Christ. No; the blood-stained page of that book, the page which makes both past and future glorious with golden words,--that blood-stained page, I say, was as much written of Jehovah, as any other. He determined that Christ should be born of the Virgin Mary, that he should suffer under Pontius Pilate, that he should descend into Hades, that thence he should rise again, leading captivity captive, and then should reign for ever at the right hand of the Majesty on high. Nay, I know not but that I shall have Scripture for my warrant when I say, that this is the very core of predestination, and that the death of Christ is the very center and main-spring by which God did fashion all his other decrees, making this the bottom and foundation-stone upon which the sacred architecture should be builded. Christ was put to death by the absolute foreknowledge and solemn decree of God the Father, and in this sense "it pleased the Lord to bruise him; he hath put him to grief."
 
@@ -56,8 +56,8 @@ Now, mark: when you see Christ going up the Mount of Doom, you see man going the
 
 Understand, then, the sense in which Christ was made a sacrifice for sin. But here lies the glory of this matter. It was as a substitute for sin that he did actually and literally suffer punishment for the sin of all his elect. When I say this, I am not to be understood as using any figure whatever, but as saying actually what I mean. Man for his sin was condemned to eternal fire; when God took Christ to be the substitute, it is true, he did not send Christ into eternal fire, but he poured upon him grief so desperate, that it was a valid payment for even an eternity of fire. Man was condemned to live forever in hell. God did not send Christ forever into hell; but he put on Christ, punishment that was equivalent for that. Although he did not give Christ to drink the actual hells of believers, yet he gave him a quid pro quo--something that was equivalent thereunto. He took the cup of Christ's agony, and he put in there, suffering, misery, and anguish such as only God can imagine or dream of, that was the exact equivalent for all the suffering, all the woe, and all the eternal tortures of every one that shall at last stand in heaven, bought with the blood of Christ. And you say, "Did Christ drink it all to its dregs?" Did he suffer it all? Yes, my brethren, he took the cup, and
 
-> "At one triumphant draught of love,  
-> He drank damnation dry."  
+> At one triumphant draught of love,    
+> He drank damnation dry.    
 
 He suffered all the horror of hell: in one pelting shower of iron wrath it fell upon him, with hail-stones bigger than a talent; and he stood until the black cloud had emptied itself completely. There was our debt; huge and immense; he paid the utmost farthing of whatever his people owed; and now there is not so much as a doit or a farthing due to the justice of God in the way of punishment from any believer; and though we owe God gratitude, though we owe much to his love, we owe nothing to his justice; for Christ in that hour took all our sins, past, present, and to come, and was punished for them all there and then, that we might never be punished, because he suffered in our stead. Do you see, then, how it was that God the Father bruised him? Unless he had so done the agonies of Christ could not have been an equivalent for our sufferings; for hell consists in the hiding of God's face from sinners, and if God had not hidden his face from Christ, Christ could not--I see not how he could--have endured any suffering that could have been accepted as an equivalent for the woes and agonies of his people.
 
@@ -69,8 +69,8 @@ Now, when a ransom is paid for the liberty of a prisoner, does not justice deman
 
 I pause once more; for I hear some timid soul say--"But, sir, I am afraid I am not elect, and if so, Christ did not die for me." Stop sir! Are you a sinner? Do you feel it? Has God, the Holy Spirit, made you feel that you are a lost sinner? Do you want salvation? If you do not want it it is no hardship that it is not provided for you; but if you really feel that you want it, you are God's elect. If you have a desire to be saved, a desire given you by the Holy Spirit, that desire is a token for good. If you have begun believingly to pray for salvation, you have therein a sure evidence that you are saved. Christ was punished for you. And if now you can say,
 
-> "Nothing in my hands I bring,  
-> Simply to the cross I cling."  
+> Nothing in my hands I bring,    
+> Simply to the cross I cling.    
 
 you may be as sure you are God's elect as you are sure of your own existence; for this is the infallible proof of election--a sense of need and a thirst after Christ.
 
@@ -78,13 +78,13 @@ And now I have just to conclude by noticing the BLESSED EFFECTS of the Saviour's
 
 The first effect of the Saviour's death is, "He shall see his seed." Men shall be saved by Christ. Men have offspring by life; Christ had an offspring by death. Men die and leave their children, and they see not their seed; Christ lives, and every day sees his seed brought into the unity of the faith. One effect of Christ's death is the salvation of multitudes. Mark, not a chance salvation. When Christ died the angel did not say, as some have represented him, "Now by his death many may be saved;" the word of prophecy had quenched all "buts" and "peradventures;" "By his righteousness he shall justify many. There was not so much as an atom of chance work in the Saviour's death. Christ knew what he bought when he died; and what he bought he will have--that, and no more, and no less. There is no effect of Christ's death that is left to peradventure. "Shalls" and "wills" made the covenant fast: Christ's bloody death shall effect its solemn purpose. Every heir of grace shall meet around the throne,
 
-> "Shall bless the wonders of his grace,  
-> And make his glories known."  
+> Shall bless the wonders of his grace,    
+> And make his glories known.    
 
 The second effect of Christ's death is, "He shall prolong his days." Yes, bless his name, when he died he did not end his life. He could not long be held a prisoner in the tomb. The third morning came, and the conqueror, rising from his sleep burst the iron bonds of death, and came forth from his prison house, no more to die. He waited his forty days, and then, with shouts of sacred song, he "led captivity captive, and ascended up on high." "In that he died he died unto sin once; but in that he liveth he liveth unto God," no more to die.
 
-> "Now by his Father's side he Sits,  
-> And there triumphant reigns,"  
+> Now by his Father's side he Sits,    
+> And there triumphant reigns,    
 
 The conqueror over death and hell.
 

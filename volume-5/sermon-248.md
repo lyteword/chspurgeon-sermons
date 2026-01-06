@@ -2,8 +2,8 @@
 
 Sermon No. 248 - Delivered on Sabbath Morning, April 17th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Is it not a little one?"  
-> Genesis 19:20.  
+> Is it not a little one?    
+> Genesis 19:20.    
 
 THESE words we shall take for a motto, rather than a text in the ordinary acceptation of that term. I shall not this morning attempt to explain the connection. It was the utterance of Lot, when he pleaded for the salvation of Zoar; but I shall take it altogether away from the connection in which it stands, and make use of it in another fashion. The great Father of Lies hath multitudes of devices by which he seeks to ruin the souls of men. He uses false weights and false balances in order to deceive them. Sometimes he uses false times, declaring at one hour that it is too early to seek the Lord, and at another that it is now too late. And he uses false quantities, for he will declare that great sins are but little, and as for what he confesses to be little sins, he makes them afterwards to be nothing at all--mere peccadilloes, almost worthy of forgiveness in themselves. Many souls, I doubt not, have been caught in this trap, and being snared thereby, have been destroyed. They have ventured into sin where they thought the stream was shallow, and, fatally deceived by its depth, they have been swept away by the strength of the current to that cataract which is the ruin of such vast multitudes of the souls of men.
 

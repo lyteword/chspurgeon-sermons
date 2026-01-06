@@ -2,8 +2,8 @@
 
 Sermon No. 109 - Delivered on Sabbath Morning, December 21, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Go home to thy friends, and tell them how great things the Lord hath done for thee, and hath had compassion on thee."  
-> Mark 5:19.  
+> Go home to thy friends, and tell them how great things the Lord hath done for thee, and hath had compassion on thee.    
+> Mark 5:19.    
 
 THE CASE of the man here referred to is a very extraordinary one: it occupies a place among the memorabilia of Christ's life, perhaps as high as anything which is recorded by either of the evangelists. This poor wretch being possessed with a legion of evil spirits had been driven to something worse than madness. He fixed his home among the tombs, where he dwelt by night and day, and was the terror of all those who passed by. The authorities had attempted to curb him; he had been bound with fetters and chains, but in the paroxysms of his madness he had torn the chains in sunder, and broken the fetters in pieces. Attempts had been made to reclaim him; but no man could tame him. He was worse than the wild beasts, for they might be tamed; but his fierce nature would not yield. He was a misery to himself, for he would run upon the mountains by night and day, crying and howling fearfully, cutting himself with the sharp flints, and torturing his poor body in the most frightful manner. Jesus Christ passed by; he said to the devils, "Come out of him." The man was healed in a moment; he fell down at Jesus' feet; he became a rational being--an intelligent man, yea, what is more, a convert to the Saviour. Out of gratitude to his deliverer, he said, "Lord, I will follow thee whithersoever thou goest; I will be thy constant companion and thy servant; permit me so to be." "No," said Christ, "I esteem your motive; it is one of gratitude to me; but if you would show your gratitude, go home to thy friends and tell them how great things the Lord hath done for thee, and hath had compassion on thee.'"
 
@@ -11,8 +11,8 @@ Now, this teaches us a very important fact, namely, this, that true religion doe
 
 And to the sisters of mercy we would say, "Be sisters of mercy to your own sisters; go home to your friends; take care of your aged parents; turn your own houses into convents; do not sit here nursing your pride by a disobedience to Christ's rule, which says, "go home to thy friends." "Go home to thy friends, and tell them how great things the Lord hath done for thee, and hath had compassion on thee." The love of a solitary and ascetic life, which is by some considered to be a divine virtue, is neither more nor less than a disease of the mind. In the ages when there was but little benevolence, and consequently few hands to build lunatic asylums, superstition supplied the lack of charity, and silly men and women were allowed the indulgence of their fancies in secluded haunts or in easy laziness. Young has most truly said,--
 
-> "The first sure symptoms of a mind in health  
-> Are rest of heart and pleasure found at home."  
+> The first sure symptoms of a mind in health    
+> Are rest of heart and pleasure found at home.    
 
 Avoid, my friends, above all things, those romantic and absurd conceptions of virtue which are the offspring of superstition and the enemies of righteousness. Be not without natural affection, but love those who are knit to you by time of nature.
 
@@ -26,13 +26,13 @@ First, then, HERE IS WHAT THEY ARE TO TELL. It is to be a story of personal expe
 
 Note, next, it must be a story of free grace. It is not, "Tell thy friends how great things thou hast done thyself," but "how great things the Lord hath done for thee." The man who always dwells upon free will and the power of the creature, and denies the doctrines of grace, invariably mixes up a great deal of what he has done himself in telling his experience; but the believer in free grace, who holds the great cardinal truths of the gospel, ignores this, and declares, "I will tell what the Lord hath done for me. It is true I must tell how I was first made to pray; but I will tell it thus--
 
-> 'Grace taught my soul to pray,  
-> Grace made my eyes o'erflow.'  
+> Grace taught my soul to pray,    
+> Grace made my eyes o'erflow.    
 
 It is true, I must tell in how many troubles and trials God has been with me; but I will tell it thus:--
 
-> "Twas grace which kept me to this day,  
-> And will not let me go.'"  
+> Twas grace which kept me to this day,    
+> And will not let me go.'    
 
 He says nothing about his own doings, or willings, or prayings, or seekings, but he ascribes it all to the love and grace of the great God who looks on sinners in love, and makes them his children, heirs of everlasting life. Go home, you man, and tell the poor sinner's story; go home, young woman, and open your diary, and give your friends stories of grace. Tell them of the mighty works of God's hand which he hath wrought in you from his own free, sovereign, undeserved love. Make it a free grace story around your family fire.
 
@@ -56,10 +56,10 @@ Once more, dear friends. I hear one of you say. "Ah! Sir, would to God I could g
 
 The next morning she took another, and the next morning another, and it pleased God to bless her simple statement, when it was given individually: but, without doubt, if she had spoken to them altogether, they would have backed each other up in laughing her to scorn. Reprove a man alone. A verse may hit him whom a sermon flies. You may be the means of bringing a man to Christ who has often heard the Word and only laughed at it, but who cannot resist a gentle admonition. In one of the states of America, there was an infidel who was a great despiser of God, a hater of the Sabbath and all religious institutions. What to do with him the ministers did not know. They met together and prayed for him. But among the rest, one Elder B_____ resolved to spend a long time in prayer for the man; after that he got on horseback, and rode down to the man's forge, for he was a blacksmith. He left his horse outside, and said, "Neighbour, I am under very great concern about your soul's salvation; I tell you I pray day and night for your soul's salvation." He left him, and rode home on his horse. The man went inside to his house after a minute or two, and said to one of his faithful friends, "Here's a new argument; here's Elder B_____ been down here, he did not dispute, and never said a word to me except this, I say, I am under great concern about your soul; I cannot bear that you should be lost.' Oh! that fellow," he said, "I cannot answer him;" and the tears began to roll down his cheeks. He went to his wife, and said, "I can't make this out; I never cared about my soul, but here's an elder, that has no connection with me, but I have always laughed at him, and he has come five miles this morning on horseback just to tell me he is under concern about my salvation. After a little while he thought it was time he should be under concern about his salvation too. He went in, shut the door, began to pray, and the next day he was at the deacon's house, telling him that he too was under concern about his salvation, and asking him to tell him what he must do to be saved. Oh! that the everlasting God might make use of some of those now present in the same way, that they might be induced to
 
-> "Tell to others round  
-> What a dear Saviour they have found;  
-> To point to his redeeming blood,  
-> And say, Behold the way to God!"  
+> Tell to others round    
+> What a dear Saviour they have found;    
+> To point to his redeeming blood,    
+> And say, Behold the way to God!    
 
 I shall not detain you much longer; but there is a third point, upon which we must be very brief. HOW IS THIS STORY TO BE TOLD?
 
@@ -73,8 +73,8 @@ And then, tell it very devoutly. Do not try to tell your tale to man till you ha
 
 To close up, by a short, and I think, a pleasant turning of the text, to suggest another meaning to it. Soon, dear friends, very soon with some of us, the Master will say, "Go home to thy friends." You know where the home is. It is up above the stars.
 
-> "Where our best friends, our kindred dwell,  
-> Where God our Saviour reigns."  
+> Where our best friends, our kindred dwell,    
+> Where God our Saviour reigns.    
 
 Yon grey-headed man has buried all his friends; he has said, "I shall go to them, but they will not return to me." Soon his Master will say, "Thou hast had enough tarrying here in this vale of tears: goo home to thy friends!" Oh! happy hour! Oh! blessed moment, when that shall be the word--"Go home to thy friends!" And when we go home to our friends in Paradise, what shall we do? Why, first we will repair to that blest seat where Jesus sits, take off our crown and cast it at his feet, and crown him Lord of all. And when we have done that, what shall be our next employ? Why, we will tell the blessed ones in heaven what the Lord hath done for us, and how he hath had compassion on us. And shall such a tale be told in heaven? Shall that be the Christmas Carol of the angels? Yes, it shall be; it has been published there before--blush not to tell it yet again--for Jesus has told it before, "When he cometh home, he calleth together his friends and neighbours, saying unto them, Rejoice with me; for I have found my sheep which was lost." And thou, poor sheep, when thou shall be gathered in, wilt thou not tell how thy Shepherd sought thee, and how he found thee? Will thou not sit in the grassy meads of heaven, and tell the story of thine own redemption? Wilt thou not talk with thy brethren and thy sisters, and tell them how God loved thee and hath brought thee there? Perhaps thou sayest, "It will be a very short story." 
 

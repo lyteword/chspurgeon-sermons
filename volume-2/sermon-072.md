@@ -2,22 +2,22 @@
 
 Sermon No. 72 - Delivered on Sabbath Morning, March 30, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "He rebuked the Red Sea also, and it was dried up: so he led them through the depths, as through the wilderness."  
-> Psalm 106:9.  
+> He rebuked the Red Sea also, and it was dried up: so he led them through the depths, as through the wilderness.    
+> Psalm 106:9.    
 
 SEVERAL Sabbaths ago we preached upon the deliverance of the children of Israel out of Egypt, by the blood of the passover: and we told you then, that we believed that event to be typical of the coming forth of God's people from that spiritual house of bondage, that furnace of mental suffering whence they are delivered by the omnipotent grace of God, at the time of their conversion. This morning we pursue the narrative. No doubt the children of Israel supposed that now all was over; the Egyptians has sent them away, entreating them to depart, and loading them with riches. Terror had smitten the heart of Egypt, for from the king on the throne to the prisoner in the dungeon, all was dismay and fear on account of Israel. Egypt was glad for them when they departed. Therefore the children of Israel said within themselves, "We shall now march to Canaan at once; there will be no more dangers, no more troubles, no more trials; the Egyptians themselves have sent us away, and they are too much afraid of us ever to molest us again. Now shall be tread the desert through with hasty footstep; and when a few more days have passed, we shall enter into the land of our possession--the land that floweth with milk and honey." "Not quite so speedily," says God; "the time is not arrived yet for you to rest. It is true I have delivered you from Egypt; but there is much you have to learn before you will be prepared to dwell in Canaan. Therefore I shall lead you about, and instruct you, and teach you." And it came to pass that the Lord led the children of Israel about, through the way of the wilderness of the Red Sea, till they arrived over against Baalzephon, where on either side the craggy mountains shut them in. Pharoah hears of it; he comes upon them, to overcome them; and they stand in terrible fright and jeopardy of them, to overcome them; and they stand in terrible fright and jeopardy of their lives. Now, beloved, it is usually so with the believer: he marches out of Egypt spiritually at the time of his conversion, and he says within himself, "Now I shall always be happy." He has a bright eye, and a light heart, for his fetters have been dashed to the ground, and he feels no longer the lash of conscience upon his shoulder. "Now," says he, "I may have a short life, but it will be a happy one."
 
-> "A few more rolling years at most,  
-> Will land me on fair Canaan's coast."  
+> A few more rolling years at most,    
+> Will land me on fair Canaan's coast.    
 
 And then I shall have no more warfare, no more fighting, no more disturbance; but I shall be at peace." "Not quite as thou desirest," says God. "Oh! thou little one; I have more to teach thee ere thou art prepared for my palace." Then he commences to lead us about, and bring us into straits and perils. The sins which we thought had utterly left us are hunting us behind, while impassible floods block up the way. Even trembling Israel halting by the Red Sea is but a faint emblem of that terrible position into which the child of God usually falls, within a few weeks or months after he has come out of the land of Egypt.
 
 I shall preach this morning a sermon, which I hope will be useful to such of you as have lately come to know the Lord. You were expecting to build tabernacles, in which to dwell on the summit of the mountains of joy for ever; but you find, on the contrary, that you have very great troubles and conflicts; and perhaps now you have a more terrible trial than you ever experienced in all your life before. I will endeavour to show you, that this is just what you might have expected; that there will be a Red Sea very soon after you come out of your house of bondage. Others of you, my dear friends, have passed through all these things many years ago. You can say,--
 
-> "Many days have passed since then,  
-> Many changes I have seen,  
-> Yet have been upheld till now;  
-> Who could hold me up but thou?"  
+> Many days have passed since then,    
+> Many changes I have seen,    
+> Yet have been upheld till now;    
+> Who could hold me up but thou?    
 
 But I am sure you will be glad to re-visit the spot, where God delivered you from your distresses. We find it very pleasant to look upon the place where we were taught in our school-boy days, or to visit the haunts of our childhood. So you who are grey-headed in the cause of your Master, will not find it very tedious work to go back a little way, and look to that Red Sea which God rebuked and dried up, that you might be led through it even as through the wilderness.
 
@@ -33,10 +33,10 @@ Then the children of Israel had a second difficulty. They would not have cared a
 
 Satan is after him, and all the legions of hell seem to be let loose, if possible, utterly to destroy his soul. At such a time, moreover, our sins are more formidable to us than they were before they were forgiven; because, when we were in Egypt, we never saw the Egyptians mounted on horses, or in chariots; they only appeared as our task-masters, with their whips; but now these people see the Egyptians on horseback, clad in armour; they behold all the mighty men of valour come out with their warlike instruments to slay them. So did I find, speaking for myself, that when I first knew the weight of sin, it was as a burden, as a labour, as a trouble; but when the second time
 
-> "I asked the Lord that I might grow,  
-> In faith, and love, and every grace;  
-> Might more of his salvation know,  
-> And seek more earnestly his face;"  
+> I asked the Lord that I might grow,    
+> In faith, and love, and every grace;    
+> Might more of his salvation know,    
+> And seek more earnestly his face;    
 
 and when he answered me by letting all my sins loose upon me they appeared more frightful than before. I thought the Egyptians in Egypt were not half so bad as the Egyptians out of Egypt; I thought the sins I knew before, though they were cruel task-masters, were not half so much to be dreaded as those soldier-sins, armed with spears and axes, with chariots of iron with scythes upon their axles, hastening to assault me. It is true they did not come so near to me as heretofore; nevertheless they occasioned more fright than when I was their slave. It may be, poor child of God, thou art astonished and amazed to find, that thy sins are more black now than they were when thou wast under conviction; that thou hast less hope than thou hadst even then; and that thy condition is possibly far worse than when the law was beating thee from head to foot, and rubbing brine into the wounds of thy conscience. Thou mayest be saying, "Ah! well, I never thought of this; if I be a child of God, if I were really pardoned and forgiven, how could it be that I should be so vexed and tormented with a sense of my guilt? And if all my transgressions have been cast into the depths of the sea, how is it that I hear the armies of my sins, rattling their horse-hoofs and chariot-wheels behind me?" I tell thee, beloved, in the name of the Lord, that is just what you ought to have expected. The pangs after we come out of Egypt are at times even more painful than those we feel in the house of bondage; and there is usually a time of trial a little while after the new birth, which is even more terrible and awful than the previous agony of the soul, though not usually so protracted. This was the second difficulty.
 
@@ -58,10 +58,10 @@ Again: the children of Israel had another refuge, in the fact, that they knew th
 
 But the point to which I want to direct your attention most of all is this. The third refuge which the children of Israel had, was in a man; and neither of the two others, without that, would have been of any avail. It was the man Moses. He did everything for them. Thy greatest refuge, O child of God! in all thy trials, is in a man: not in Moses, but in Jesus; not in the servant, but in the master. he is interceding for thee, unseen and unheard by thee, even as Moses did for the children of Israel. If thou couldst but, in the dim distance, catch the sweet syllables of his voice as they distil from his lips, and see his heart as it speaks for thee, thou wouldst take comfort; for God hears that man when he pleads. He can overcome every difficulty. He has not a rod, but a cross, which can divide the Red sea; he has not only a cloudy pillar of forgiving grace, which can dim the eyes of your foes and keep them at a distance; but he has a cross, which can open the Red sea and drown thy sins in the very midst. He will not leave thee. Look! on yonder rock of heaven he stands, cross in hand, even as Moses with his rod. Cry to him, for with that uplifted cross he will cleave a path for thee, and guide thee through the sea; he will make those hoary floods, which had been friends for ever, and stand asunder like foes. Call to him, and he will make thee a way in the midst of the ocean, and a path through the pathless sea. Cry to him, and there shall not a sin of thine be left alive; he will sweep them all away; and the king of sin, the devil, he too shall be overwhelmed beneath the Saviour's blood, whilst thou shalt sing--
 
-> "Hell and my sins obstruct my path,  
-> But hell and sin are conquer'd foes;  
-> My Jesus nailed them to his cross,  
-> And sang the triumph as he rose."  
+> Hell and my sins obstruct my path,    
+> But hell and sin are conquer'd foes;    
+> My Jesus nailed them to his cross,    
+> And sang the triumph as he rose.    
 
 Still look thou to that man who once on Calvary died!
 

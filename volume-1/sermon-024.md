@@ -2,8 +2,8 @@
 
 Sermon No. 24 - Delivered on Sabbath Morning, May 20, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins."  
-> Isaiah 43:25.  
+> I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.    
+> Isaiah 43:25.    
 
 THERE ARE SOME passages of sacred writ which have been more abundantly blessed to the conversion of souls than others. They may be called salvation texts. We may not be able to discover how it is, or why it is, but certainly it is the fact, that some chosen verses have been more used of God to bring men to the cross of Christ than any others in his Word. Certainly they are not more inspired, but I suppose they are more noticeable from their position, from their peculiar phraseology more adapted to catch the eye of the reader, and more suitable to a prevailing spiritual condition. All the stars in the heavens shine very brightly, but only a few attract the eye of the mariner, and direct his course; the reason is this, that those few stars from their peculiar grouping are more readily distinguished, and the eye easily fixes upon them. So I suppose it is with those passages of God's Word which especially attract attention, and direct the sinner to the cross of Christ. It so happens that this text is one of the chief of them. I have found it, in my experience, to be a most useful one; for out of the hundreds of persons who have come to me to narrate their conversion and experience, I have found a very large proportion who have traced the divine change which has been wrought in their hearts to the hearing of this precious declaration of sovereign mercy read, and the application of it with power to their souls: "I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins." Hence I feel this morning somewhat pleased to have such a text, because I anticipate that my Master will give me souls; and I feel likewise somewhat afraid lest I should spoil the passage by my own imperfect handling thereof. I will, therefore, cast myself implicitly on the help of the Spirit, so that whatever I speak, may be suggested by him, and whatever he saith that may I speak, to the exclusion of my own thoughts as much as possible.
 
@@ -15,15 +15,15 @@ If you will turn to your Bibles, you will find who are the persons here spoken o
 
 Next, these persons were despisers of religion, for observe the language of the same verse:--"Thou hast been weary of me, O Israel." And may I not say to some here--thou despisest religion, thou hatest God; thou art weary of him, and lovest not his services. As for the Sabbath-day, do not too many of you find it the most tiresome day in the week, and do you not, in fact, look over your ledger on the Sabbath afternoon? If you were compelled to attend a place of worship twice on the Sabbath-day, would you not think it the greatest and most terrible hardship that could be inflicted upon you? You have to find some worldly amusement to make the hours of the Sabbath-day pass away with any comfort at all. So far from wishing that "congregations might ne'er break up." and the Sabbath last for eternity, is it not to some of you the most tedious day of the week? You feel it to be a weariness, and are glad when it is gone. You do not understand the sentiment expressed by the poet:
 
-> "Sweet is the work, my God, my King,  
-> To praise thy name, give thanks and sing."  
+> Sweet is the work, my God, my King,    
+> To praise thy name, give thanks and sing.    
 
 You know nothing of the pain of banishment from the courts of Zion, whither the sacred tribes repair; and when there you do not hold communion with God, rejoicing that the hallowed place has become a Bethel--the house of God--the very gate of heaven. You can never say--
 
-> "My willing soul would stay  
-> In such a frame as this  
-> And sit and sing herself away  
-> To everlasting bliss."  
+> My willing soul would stay    
+> In such a frame as this    
+> And sit and sing herself away    
+> To everlasting bliss.    
 
 Ah, no! not only is religion unlovely to you, but it is a weariness. But if you are now convinced of this sin, and are repenting of it, and desire to be delivered from its power, then God speaks to you this morning, and says, "I, even I, am he that blotteth out thy transgressions for mine own sake--return unto me, with unfeigned repentance, and I will have mercy upon you."
 
@@ -41,8 +41,8 @@ The second point is, THE DEED OF MERCY. We have found out the persons to whom Go
 
 Again, it is surprising forgiveness; for the text speaks as if God himself were surprised that such sins should be remitted: "I, even, I;" it is so surprising that it is repeated in this way, lest any of us should doubt it. And it is amazing to the poor sinner when first awakened to his sin and danger. It seems to be too good too be true, and he "wonders to feel his own hardness depart," the mercy offered is so overwhelming. It is said that Alexander, whenever he attacked a city, put a light before the gate of it; and if the inhabitants surrendered before the light was burnt out, he spared them; but if the light went out first, he put them all to death. But our Master is more merciful than this; for if he had manifested grace only while a small light would burn, where should we have been? There be some here seventy or eighty years of age, and God has mercy on you still; but there is a light you know which when once quenched, extinguishes all hope of pardon--the light of life. See then, grey-headed man, thy candle is burnt almost to the socket--it has but the snuff left. Seventy years thou hast been here living in sin, and yet mercy waits on thee; but thou shalt soon depart, and mark me, there is no hope for thee then. But surprising grace, mercy's message is still proclaiming--
 
-> "For while the lamp holds out to burn,  
-> The vilest sinner may return."  
+> For while the lamp holds out to burn,    
+> The vilest sinner may return.    
 
 Unutterable mercy! There is no sinner out of hell so black but that God can wash him white. There is not out of the pit one so guilty that God is not able and willing to forgive him; for he declares the wondrous fact--"I, even I, am he that blotteth out thy transgressions."
 
@@ -52,8 +52,8 @@ I cannot help noticing the completeness of this forgiveness. Suppose you call on
 
 Now, very briefly, the third thing--THE REASON FOR MERCY. Says one poor sinner, "Why should God forgive me? I am sure there is no reason why he should, for I have never done anything to deserve his mercy." Hear what God says, "I am not about to forgive you for your own sake, but for my own sake." "But, Lord, I shall not be thankful enough." "I am not about to pardon you because of your gratitude, but for my name's sake." "But, Lord, if I am taken into thy church I can do very little for thy cause in future years, for I have spent my best days in the devil's service, surely the impure dregs of my life cannot be sweet to thee, O God." "I will not engage to forgive you for your sake, but for my own. I do not want you," says God, "I can do as well without you as with you, the cattle upon a thousand hills are mine; and if I pleased I could create a whole race of men for my service, who should be as renowned as the greatest monarchs, or the most eloquent preachers, but I can do as well without them, as with them; and I forgive you therefore for my own sake." Is there not hope for a guilty sinner here? It cannot be pleaded by any one that his sins are too great to be pardoned, for the amount of guilt is hereby put entirely out of consideration, seeing that God forgives not on account of the sinner, but for his own sake. Did you never hear of a physician visiting a man upon a sick bed, when the poor man said, "I have nothing to give you for your attention to me." "But," says the doctor, "I did not ask for anything; I attend you from pure benevolence; and moreover to prove my skill. It will make no difference to me how long you live, I love to try my skill, and let the world know that I have power to heal diseases. I want to get myself a name." And so God says, I desire to have a name for mercy; so that the worse you are, the more God is honored in your salvation. Go then to Christ, poor sinner--naked, filthy, poor, wretched, vile, lost, dead, come as thou art, for there is nothing required in thee, except the need of him:
 
-> "This he gives you,  
-> 'Tis his Spirit's rising beam."  
+> This he gives you,    
+> 'Tis his Spirit's rising beam.    
 
 "For mine own sake," says God, "I will forgive."
 
@@ -65,7 +65,7 @@ The second meaning of this is, I will not remember thy sins to suspect thee. The
 
 Again: he will not remember in his distribution of the recompense of the reward. The earthly parent will kindly pass over the faults of the prodigal; but you know when that father comes to die, and is about to make his will, the lawyer sitting by his side, he says, "I shall give so much to William, who always behaved well, and my other son shall have so-and-so, and my daughter, she shall have so much; but there is that prodigal, I have spent a large sum upon him when he was young, but he wasted what he received, and though I have taken him again into favour, and for the present he is going on well; still I think I must make a little difference between him and the others. I think it would not be fair--though I have forgiven him--to treat him precisely as the rest;" and so the lawyer puts him down for a few hundred pounds, while the others, perhaps, get their thousands. But God will not remember your sins like that; he gives all an inheritance. He will give heaven to the chief of sinners as well as to the chief of saints. When he divides the portion to his children, it may be he will put Mary Magdalene as high as he does Peter, and the thief as high as he does John; yea, the malefactor who died on the cross is as much in the sight of God as the most moral person that ever lived. Here is a blessed forgetfulness. What sayest thou, poor sinner? Is thy heart drawn by a mysterious inspiration to the foot of the cross? Then I thank my Master; for I trust the one object of my life is to win souls for Christ, and if I may be blessed in that, my life shall be happy. Still do you say, "My sins are too great to be forgiven." Nay, but O man, as high as the heaven is above the earth, so great is his mercy above thy sins, and so far does his grace exceed thy thoughts. Oh, but sayest thou, "He will not accept me." What then is the meaning of this text--"He is able to save unto the uttermost;" or this--"Whosoever cometh unto me I will in no wise cast out;" and again--"Whosoever will, let him come and take of the water of life freely." Do you still say, "This does not include me." Oh be not so faithless, but rather believe. Oh! had I the power, God knows I would weep myself away in order to win your souls.
 
-> "But feeble our compassion proves,  
-> And can but weep where most it loves."  
+> But feeble our compassion proves,    
+> And can but weep where most it loves.    
 
 I can do nothing but preach God's gospel; but since the moment Christ forgave me, I cannot help speaking of his love. I turned away from his gospel, and would have none of his reproofs. I cared not for his voice or his Word. That blessed Bible lay unread; these knees refused to bend in prayer, and my eyes looked on vanity. Has he not pardoned? Has he not forgiven? Yes. Then sooner may this tongue cleave to the roof of my mouth, than cease to proclaim free-grace in all its mighty displays of electing, redeeming, pardoning, and saving mercy. Oh! how loud ought I to sing, seeing I am out of hell, and delivered from condemnation. And if I am out of hell, why should not you be? Why should I be saved and not another? It was for sinners, remember, that Jesus came. Mary Magdalene, Saul of Tarsus--the very chief of sinners, were accepted, and why do you foolishly conclude that you are cast out? Oh, poor penitent if you perish, you will be the FIRST penitent who ever did so. God give you his blessing, my dear friends, for Christ's sake. Amen.

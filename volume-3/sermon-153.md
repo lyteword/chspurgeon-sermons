@@ -2,8 +2,8 @@
 
 Sermon No. 153 - Delivered on Sabbath Morning, September 27, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: That whosoever believeth in him should not perish, but have eternal life."  
-> John 3:14.  
+> And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: That whosoever believeth in him should not perish, but have eternal life.    
+> John 3:14.    
 
 WE are told by wise men that all languages are based upon figures, that the speech of men who are uncivilized is mainly composed of figures; and that indeed the language of the most civilized, when cleaved so as to bring it to its natural foundation, is based upon a set of metaphors perceived by the mind, and then used in language. This much I know, that when we would teach children to speak, we are accustomed to call things, not exactly by the names by which they are known to us, but by some name which represents, for instance, the kind of noise which is uttered by some animal; but which in some way or other, by a species of figure, is easily understood by the child to represent the things. But certain it is that among savage nations, the speech is almost entirely composed of metaphors. Hear an Indian warrior addressing the chiefs, and inflaming them for war; he gathers together all the metaphors of heaven and earth to make his speech. And you will note the same thing is true even in the names which the Indian warriors bear. Those of you who are acquainted with their nomenclature will remember, that the strangest names are given to their great men, by way of figure and metaphor to set forth the qualities of their mind.
 
@@ -31,9 +31,9 @@ But some will have it that the preaching of the cross not only cannot save, but 
 
 But remember, that much as those who heard of the brazen serpent might have despised it, yet there was no other means of cure. And, now hear me for one moment, while I tell the whole story of salvation. Men, brethren, and fathers, we are born of a sinful generation, and we have ourselves increased our guilt, for us there is no hope; do what we may, we cannot save ourselves.
 
-> "Could our zeal no respite know,  
-> Could our tears for ever flow,  
-> All for sin could not atone."  
+> Could our zeal no respite know,    
+> Could our tears for ever flow,    
+> All for sin could not atone.    
 
 But brethren, Christ Jesus, God's eternal Son, came into this world, and was born of the virgin Mary, he lived a doleful life of misery, and at last he died a death accompanied by unutterable pangs--that was the punishment of the sins of those who, as penitents, come to Christ. If you this day so repent, and put your trust in Jesus, you have in your trust and repentance a sure proof that Christ was punished for you.
 
@@ -57,15 +57,15 @@ And now I must tell you one or two sweet things for the encouragement of the poo
 
 Says he, in his strange language, "If they did but dart a little glance at the brazen serpent, they lived." And you who say you cannot believe; if God gives you only half a grain of faith, that will carry you to heaven. If you can only say, "O Lord, I would believe, help thou mine unbelief;" if you can but put out your hand with Simon Peter, and say, "Lord save, or I perish," it is enough. If you can only pray that poor publican's prayer--" God be merciful to me a sinner," that will do. And if you cannot sing with some of the old experienced saints--
 
-> "My name from the palms of his hands,  
-> Eternity cannot erase;"  
+> My name from the palms of his hands,    
+> Eternity cannot erase;    
 
 remember it is quite enough, if you can only sing--
 
-> "I can but perish if I go,  
-> I am resolved to try;  
-> For if I stay away, I know  
-> I must for ever die."  
+> I can but perish if I go,    
+> I am resolved to try;    
+> For if I stay away, I know    
+> I must for ever die.    
 
 And now poor soul I have almost done. But I cannot let thee go. I see thee with the tear in thine eye; I hear thee confessing thy guilt, and bemoaning thy sin; I bid thee look to my Master and live. Be not afraid to try my Lord and Master. I know what thy bashfulness is; I have felt the same, and thought he never would save me. Come soul, thou art in secret now with thyself; for though there be thou sands around thee, thou thinkest I am speaking alone to thee. And so I am. My brother, my sister, you are weeping to-day on account of sin--look to Jesus. And for your encouragement note these three things. Note first that Jesus Christ was put on the cross on purpose for you to look at. The only reason why he died, was that poor sinners might look at him and be saved. Now, my dear brethren, if that was Christ's purpose in being hung on the tree, you need not think you may not do it. If God sends a river, and sends it for us to drink of, will you disappoint him in not drinking? No, rather you will say. "Did he design me to drink it? Then will I drink it." Now, Jesus hung on the cross on purpose to be looked at. Look at him, look at him, and live. Remember again for your encouragement, he asks you to look; he invites you to believe; he has sent his minister this day, even to command you to do it; he has said to me, "Go into all the world and preach the gospel to every creature; he that believeth and is baptized, shall be saved." Now I need not simply say that my Master's door is wide open for you; I will say something more: he has told me to ask you to come in. Wisdom crieth aloud, she uttereth her voice in the streets, she inviteth you; she saith, "My oxen and my fatlings are killed, all things are ready, come ye to the supper." Yea, my Master has given instructions to his Holy Spirit that if men will not come of themselves, he should compel them to come in that his house may be filled. Then, poor sinner, you must be welcome, he will have enough sinners to fill his table; and if he has made you feel your sinnership--come and welcome, sinner, come. 
 

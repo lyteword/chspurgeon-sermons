@@ -2,8 +2,8 @@
 
 Sermon No. 210 - Delivered on Sabbath Morning, August 22, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "As thy days, so shall thy strength be;"  
-> Deuteronomy 33:25.  
+> As thy days, so shall thy strength be;    
+> Deuteronomy 33:25.    
 
 BELOVED, IT SEEMS A SAD THING that every day must die and be followed by a night. When we have seen the hills clad with verdure to their summit, and the seas laving their base with a silver glory; when we have stretched our eye faraway, and have seen the widening prospect full of loveliness and beauty we have felt sad that the sunlight should ever set upon such a scene, and that so much beauty should be shrouded in the oblivion of darkness. But how much reason have we to bless God for nights! for if it were not for nights how much of beauty never would be discovered. Never should I have considered the heavens the work of thy fingers, O my God, if thou hadst not first covered the sun with a thick mantle of darkness: the moon and the stars, which thou hast ordained, had never been bright in mine eyes, if thou hadst not hidden the light of the sun and bidden him retire within the curtains of the west. Night seems to be the great friend of the stars: they must be all unseen by eyes of men, were they not set in the foil of darkness. It is even so with winter. We might feel sad, that all the flowers of summer must die, and all the fruits of autumn must be gathered into their store-house, that every tree must be stripped. and that all the fields must lose their fair flowers. But were it not for winter we should never see the glistening crystals of the snow; we should never behold the beauteous festoons of the icicles that hang from the eaves. Much of God's marvellous miracles of hoar frost must have been hidden from us, if it had not been for the cold chill of winter, which, when it robs us of one beauty, gives us another,--when it takes away the emerald of verdure, it gives us the diamond of ice--when it casts from us the bright rubies of the flowers, it gives us the fair white ermine of snow. 
 
@@ -21,22 +21,22 @@ But, beloved, we prove our weakness, perhaps more visibly, when we come into the
 
 Again, beloved, there is another thing which will very soon prove our weakness, if neither duty nor suffering will do it--namely, progress. You sit down to-morrow and you read the life of some eminent servant of God: perhaps the life of David Brainard, and how he gave up his life for his Master in the wilderness, or the heroic life of Henry Martin, and how he sacrificed all for Christ: and as you read you say within yourself, "I will endeavor to be like this man; I will seek to have his faith, his self denial, his love to never-dying souls" Try and get them, beloved, and you will soon find your own weakness. I have sometimes thought I would try to have more faith but I have found it very hard to keep as much as I had. I have thought, "I will love my Saviour more," and it was right that I should strive to do so; but when I sought to love him more I found that perhaps I was going backward instead of forward. How often do we find out our weakness when God answers our prayers!
 
-> "I ask'd the Lord that I might grow  
-> In faith, and love, and every grace;  
-> Might more of his salvation know  
-> And seek more earnestly his face.  
-> I hop'd that in some favor'd hour  
-> At once he'd answer my request,  
-> And by his love's constraining power,  
-> Subdue my sins, and give me rest.  
-> Instead of this he made me feel  
-> The hidden evils of my heart,  
-> And let the angry power of hell  
-> Assault my soul in every part.  
-> 'Lord why is this?' I trembling cried  
-> 'Wilt thou pursue thy worm to death?'  
-> 'Tis in this way,' the Lord replied;  
-> 'I answer prayer for grace and faith.'"  
+> I ask'd the Lord that I might grow    
+> In faith, and love, and every grace;    
+> Might more of his salvation know    
+> And seek more earnestly his face.    
+> I hop'd that in some favor'd hour    
+> At once he'd answer my request,    
+> And by his love's constraining power,    
+> Subdue my sins, and give me rest.    
+> Instead of this he made me feel    
+> The hidden evils of my heart,    
+> And let the angry power of hell    
+> Assault my soul in every part.    
+> 'Lord why is this?' I trembling cried    
+> 'Wilt thou pursue thy worm to death?'    
+> 'Tis in this way,' the Lord replied;    
+> 'I answer prayer for grace and faith.'    
 
 That is, the Lord helps us to grow downward when we are only thinking about growing upward. Let any of you try to grow in grace, and seek to run the heavenly race, and make a little progress, and you will soon find, in such a slippery road as that which we have to travel, that it is very hard to go one step forward, though remarkably easy to go a great many steps backward.
 
@@ -44,10 +44,10 @@ If neither of these three things will prove thy weakness, Christian, I will advi
 
 While there be other men whom neither lust nor wine can overcome, who may be led by a prospect of profit into that which is dishonest; and others again, whom neither profit, nor lust, nor wine, would turn aside, may be overthrown by anger, or envy, or malice. We have all our tender points. When Thetis dipped Achilles in the Styx, you remember she held him by the heel; he was made invulnerable wherever the water touched him, but his heel not being covered with the water, was vulnerable, and there Paris shot his arrow, and he died. It is even so with us. We may think that we are covered with virtue till we are totally invulnerable, but we have a heel somewhere; there is a place where the arrow of the devil can make way: hence the absolute necessity of taking to ourselves "the whole armor of God," so that there may not be a solitary joint in the harness that shall be unprotected against the arrows of the devil. Satan is very crafty; he knows the ins and outs of manhood. There is many an old castle that has stood against every attack, but at last some traitor from within has gone without, and said "I know an old deserted passage, a subterranean back way, that has not been used for many a-day. In such and such a field you will see an opening; clear away a heap of stones there, and I will lead you down the passage: you will then come to an old door, of which I have the key and I can let you in; and so by a back way I can lead you into the very heart of the citadel, which you may then easily capture." It is so with Satan. Man knoweth not himself so well as Satan knows him. There are back ways and subterranean passages into man's heart which the devil doth well understand. and he who thinketh that he is safe, let him take heed lest he fall. That is not a bad hymn of Dr. Watts, after all, where he tells us that Samson was very strong while he wore his hair, but
 
-> "Samson, when his hair was lost,  
-> Met the Philistines to his cost:  
-> Shook his vain limbs with vast surprise,  
-> Made feeble fight, and lost his eyes."  
+> Samson, when his hair was lost,    
+> Met the Philistines to his cost:    
+> Shook his vain limbs with vast surprise,    
+> Made feeble fight, and lost his eyes.    
 
 The reason was, because there was a back way into Samson's heart. The Philistines could not overcome him: "Heaps upon heaps, with the jaw-bone of an ass, have I slain a thousand men." Come on, Philistines, he will rend you in pieces as he did the young lion; bind him with green withes, and he will snap them as tow; weave his locks with a weaver's beam, and he will carry away loom and all, and go out like a giant refreshed with new wine. But, O Delilah, he hath a back way to his heart; thou hast found it out, and now thou canst overthrow him. Tremble, for ye may yet be overcome! Ye are as weak as water if God shall leave you alone.
 

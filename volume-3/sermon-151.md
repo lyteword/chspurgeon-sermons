@@ -2,8 +2,8 @@
 
 Sermon No. 151 - Delivered on Sabbath Morning, September 13, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich"  
-> 2 Corinthians 8:9.  
+> For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich    
+> 2 Corinthians 8:9.    
 
 THE APOSTLE, in this chapter, was endeavoring to stir up the Corinthians to liberality. He desired them to contribute something for those who were the poor of the flock, that he might be able to minister to their necessities. He tells them, that the churches of Macedonia, though very much poorer than the church at Corinth, had done even beyond their means for the relief of the Lords family, and he exhorts the Corinthians to do the same. But suddenly recollecting that examples taken from inferiors seldom have a powerful effect, he lays aside his argument drawn from the church of Macedonia, and he holds before them a reason for liberality which the hardest heart can scarcely resist, if once that reason be applied by the Spirit. "My brethren," said he, "there is One above, by whom you hope you have been saved, One whom you call Master and Lord, now if you will but imitate him, you can not be ungenerous or illiberal. For, my brethren, I tell you a thing which is an old thing with you and an undisputed truth--'For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich.' Let this constrain you to benevolence." O Christian, whenever thou art inclined to an avaricious withholding from the church of God, think of thy Saviour giving up all that he had to serve thee, and canst thou then, when thou beholdest self-denial so noble,--canst thou then be selfish, and regard thyself, when the claims of the poor of the flock are pressed upon thee? Remember Jesus; think thou seest him look thee in the face and say to thee, "I gave myself for thee, and dost thou withhold thyself from me? For if thou dost so, thou knowest not my love in all its heights and depths and lengths and breadths."
 
@@ -19,7 +19,7 @@ Nor was he poor in any other sense. He that hath wealth on earth, and honor too,
 
 Now, though a spirit from the upper world should come to tell you of the riches of Jesus he could not do it. Gabriel, in thy flights thou hast mounted higher than my imagination dares to follow thee, but thou hast never gained the summit of the throne of God.
 
-> "Dark with insufferable light thy skirts appear."  
+> Dark with insufferable light thy skirts appear.    
 
 Jesus, who is he that could look upon the brow of thy Majesty, who is he that could comprehend the strength of the arm of thy might? Thou art God, thou art infinite, and we poor finite things, are lost in thee. The insect of an hour can not comprehend thyself. We bow before thee, we adore thee; thou art God over all, blessed for ever. But as for the comprehension of thy boundless riches, as for being able to tell thy treasures, or to reckon up thy wealth, that were impossible. All we know is, that the wealth of God, that the treasures of the infinite, that the riches of eternity, were all thine own: thou wast rich beyond all thought.
 
@@ -49,10 +49,10 @@ I have not done, I have three things now to say, and shall say them as briefly a
 
 The first is a doctrine; the doctrine is this: If Christ in his poverty made us rich, what will he do now that he is glorified. If the Man of Sorrows saved my soul, will the man now exalted suffer it to perish? If the dying Saviour availed for our salvation, should not the living, interceding Saviour, abundantly secure it?
 
-> "He lived, he lives and sits above,  
-> For ever interceding there;  
-> What shall divide us from his love,  
-> Or what shall sink us in despair?"  
+> He lived, he lives and sits above,    
+> For ever interceding there;    
+> What shall divide us from his love,    
+> Or what shall sink us in despair?    
 
 If when the nail was in thine hand, O Jesus, thou didst rout all hell, canst thou be defeated now that thou hast grasped the scepter? If, when the thorn crown was put about thy brow, thou didst prostrate the dragon, canst thou be overcome and conquered now that the acclamations of angels are ascending to thee? No, my brethren, we can trust the glorified Jesus; we can repose ourselves on his bosom; if he was so strong in poverty, what must he be in riches?
 

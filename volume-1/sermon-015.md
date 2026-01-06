@@ -2,8 +2,8 @@
 
 Sermon No. 15 - Delivered on Sabbath Evening, March 18, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "I have written to him the great things of my law; but they were counted as a strange thing."  
-> Hosea 8:12.  
+> I have written to him the great things of my law; but they were counted as a strange thing.    
+> Hosea 8:12.    
 
 This is God's complaint against Ephraim. It is no mean proof of his goodness, that he stoops to rebuke his erring creatures; it is a great argument of his gracious disposition, that he bows his head to notice terrestrial affairs. He might, if he pleased, wrap himself with might as with a garment; he might put the stars around his wrist for bracelets, and bind the suns around his brow for a coronet; he might dwell alone, far, far above this world, up in the seventh heaven, and look down with calm and silent indifference upon all the doings of his creatures; he might do as the heathens supposed their Jove did, sit in perpetual silence, sometimes nodding his awful head to make the fates move as he pleased, but never taking thought of the little things of earth, disposing of them as beneath his notice, engrossed with his own being, swallowed up within himself, living alone and retired; and I, as one of his creatures, might stand by night upon a mountain-top, and look upon the silent stars and say, "Ye are the eyes of God, but ye look not down on me; your light is the gift of his omnipotence, but your rays are not smiles of love to me. God, the mighty Creator, has forgotten me; I am a despicable drop in the ocean of creation, a sear leaf in the forest of beings, an atom in the mountain of existence. He knows me not; I am alone, alone, alone." But it is not so, beloved. Our God is of another order. He notices every one of us; there is not a sparrow or a worm but is found in his decrees. There is not a person upon whom his eye is not fixed. Our most secret acts are known to him. Whatsoever we do, or bear, or suffer, the eye of God still rests upon us, and we are beneath his smile--for we are his people; or beneath his frown--for we have erred from him.
 
@@ -31,19 +31,19 @@ But, while all things in God's word are important, all are not equally important
 
 God says, "I have written to him the great things of my law." Do you doubt their greatness? Do ye think they are not worth your attention? Reflect a moment, man. Where art thou standing now?
 
-> "Lo on a narrow neck of land,  
-> 'Twixt two unbounded seas I stand;  
-> An inch of time, a moment's space,  
-> May lodge me in yon heavenly place,  
-> Or shut me up in hell."  
+> Lo on a narrow neck of land,    
+> 'Twixt two unbounded seas I stand;    
+> An inch of time, a moment's space,    
+> May lodge me in yon heavenly place,    
+> Or shut me up in hell.    
 
 I recollect standing on a seashore once, upon a narrow neck of land, thoughtless that the tide might come up. The tide kept continually washing up on either side, and, wrapped in thoughts, I stood there, until at last there was the greatest difficulty in getting on shore. You and I stand each day on a narrow neck, and there is one wave coming up there; see, how near it is to your foot; and lo! another follows at every tick of the clock; "Our hearts, like muffled drums, are beating funeral marches to the tomb." We are always tending downwards to the grave each moment that we live. This book tells me that if I am converted, when I die, there is a heaven of joy and love to receive me; it tells me that angels' pinions shall be stretched, and I, borne by strong cherubic wings, shall out-soar the lightning, and mount beyond the stars, up to the throne of God, to dwell forever.
 
-> "Far from a world of grief and sin,  
-> With God eternally shut in."  
-> Oh! it makes the hot tear start from my eye, it makes my heart too big for this my body, and my brain whirls at the thought of  
-> "Jerusalem, my happy home,  
-> Name ever dear to me."  
+> Far from a world of grief and sin,    
+> With God eternally shut in."    
+> Oh! it makes the hot tear start from my eye, it makes my heart too big for this my body, and my brain whirls at the thought of    
+> "Jerusalem, my happy home,    
+> Name ever dear to me.    
 
 Oh! that sweet scene beyond the clouds; sweet fields arrayed in living green, and rivers of delight. Are not these great things? But then, poor unregenerate soul, the Bible says if thou are lost, thou art lost forever; it tells thee that if thou diest without Christ, without God, there is no hope for thee; that there is no place without a gleam of hope, where thou shalt read, in burning letters, "Ye knew your duty, but ye did it not;" it tells you, that ye shall be driven from his presence with a "depart, ye cursed." Are these not great things? Yes, sirs, as heaven is desirable, as hell is terrible, as time is short, as eternity is infinite, as the soul is precious, as pain is to be shunned, as heaven is to be sought, as God is eternal, and as his words are sure, these are great things, things ye ought to listen to.
 
@@ -59,15 +59,15 @@ I have done. Let us go home and practice what we have heard. I have heard of a w
 
 We may say of THE BIBLE:
 
-> "God's cabinet of revealed counsel it is!  
-> Where weal and woe, are ordered so  
-> That every man may know which shall be his;  
-> Unless his own mistake, false application make.  
-> "It is the index to eternity.  
-> He cannot miss of endless bliss.  
-> That takes this chart to steer by,  
-> Nor can he be mistook that speaketh by this book.  
-> "It is the book of God. What if I should  
-> Say, God of books, let him that looks  
-> Angry at that expression, as too bold,  
-> His thoughts in silence smother, till he find such another."  
+> God's cabinet of revealed counsel it is!    
+> Where weal and woe, are ordered so    
+> That every man may know which shall be his;    
+> Unless his own mistake, false application make.    
+> "It is the index to eternity.    
+> He cannot miss of endless bliss.    
+> That takes this chart to steer by,    
+> Nor can he be mistook that speaketh by this book.    
+> "It is the book of God. What if I should    
+> Say, God of books, let him that looks    
+> Angry at that expression, as too bold,    
+> His thoughts in silence smother, till he find such another.    

@@ -2,8 +2,8 @@
 
 Sermon No. 215 - Delivered on Sabbath Morning, September 26, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor."  
-> Isaiah 9:6.  
+> For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor.    
+> Isaiah 9:6.    
 
 LAST SABBATH MORNING we considered the first title, "His name shall be called Wonderful:" this morning we take the second word, "Counsellor." I need not repeat the remark, that of course these titles belong only to the Lord Jesus Christ, and that we cannot understand the passage except by referring it to Messiah--the Prince. It was by a Counsellor that this world was ruined. Did not Satan mask himself in the serpent, and counsel the woman with exceeding craftiness, that she should take unto herself of the fruit of the tree of knowledge of good and evil, in the hope that thereby she should be as God? Was it not that evil counsel which provoked our mother to rebel against her Maker, and did it not as the effect of sin, bring death into this world with all its train of woe? Ah! beloved, it was meet that the world should have a Counsellor to restore it, if it had a Counsellor to destroy it. It was by counsel that it fell and certainly, without counsel it never could have arisen. But mark the difficulties that surrounded such a Counsellor. Tis easy to counsel mischief; but how hard to counsel wisely! To cast down is easy, but to build up how hard! To confuse this world, and bring upon it all its train of ills was, an easy thing. A woman plucked the fruit and it was done; but to restore order to this confusion, to sweep away the evils which brooded over this fair earth, this was work indeed, and "Wonderful" was that Christ who came forward to attempt the work, and who in the plentitude of his wisdom hath certainly accomplished it, to his own honor and glory, and to our comfort and safety.
 
@@ -17,10 +17,10 @@ And confirms me in my resolution." But God is everlastingly satisfied with himse
 
 Yet another remark concerning the council. It may be asked, "What were the topics deliberated upon at that first council, which was held before the day-star knew its place, and planets ran their round?" We reply, "The first topic was creation." We are told in the passage we have read, (Proverbs viii,) that the Lord Jesus Christ, who represents himself as Wisdom, was with God before the world was created, and we have every reason to believe that we are to understand this as meaning, that he was not only with God in company, but with God in co-operation. Besides, we have other Scriptures to prove that "all things were made by him and without him was not any thing made that was made." And to quote yet another passage that clinches this truth. God said, "Let us make man;" so that a part of the consultation was with reference to the making of worlds, and the creatures that should inhabit them. I believe that in the sovereign council of eternity, the mountains were weighed in scales, and the hills in balances; then was it fixed in sovereign council how far the sea should go, and where should be its bounds--when the sun should arise and come forth, like a giant from the chambers of his darkness, and when he should return again to his couch of rest. Then did God decree the moment when he should say, "Let there be light," and the moment when the sun should be turned into darkness, and the moon into a clot of blood. Then did he ordain the form and size of every angel, and the destinies of every creature; then did he sketch in his infinite thought, the eagle as he soared to heaven and the worm as he burrowed into the earth. Then the little as well as the great, the minute as well as the immense, came under the sovereign decree of God. There was that book written, of which Dr. Watts sings--
 
-> "Chained to his throne a volume lies,  
-> With all the fates of men,  
-> With every angel's form and size,  
-> Drawn by th' eternal pen."  
+> Chained to his throne a volume lies,    
+> With all the fates of men,    
+> With every angel's form and size,    
+> Drawn by th' eternal pen.    
 
 Christ was a Counsellor in the matter of creation; with none else took he counsel; none else instructed him. Christ was the Counsellor for all the wondrous works of God.
 
@@ -50,8 +50,8 @@ All the rest of history is unimportant compared with its end, its issues, its pu
 
 Many people want to know their election before they look to Christ. Beloved you cannot know your election, except as you see it in Christ. If you want to know your election, thus shall you assure your hearts before God.--Do you feel yourself this morning to be a lost, guilty sinner? Go straightway to the cross of Christ, and tell Christ that, and tell him that you have read in the Bible, "That him that cometh unto him he will in no wise cast out." Tell him that he has said, "This is a faithful saying and worthy of all acceptation, that Jesus Christ came into the world to save sinners of whom you are chief." Look to Christ and believe on him, and you shall make proof of your election directly, for so surely as thou believest thou art elect. If thou wilt give thyself wholly up to Christ and trust him, then thou art one of God's chosen ones; but if you stop and say, "I want to know first whether I am elect," that is impossible. If there be something covered up, and I say, "Now, before you can see this you must lift the veil;" and you say, "Nay, but I want to see right through that veil," you cannot. Lift the veil first and you shall see. Go to Christ guilty, just as you are. Leave all curious inquiry about thy election alone. Go straight away to Christ, just as you are, black, naked, penniless and poor, and say,
 
-> "Nothing in my hands I bring,  
-> Simply to thy cross I cling,"  
+> Nothing in my hands I bring,    
+> Simply to thy cross I cling,    
 
 and you shall know your election. The assurance of the Holy Spirit shall be given to you, so that you shall be able to say, "I know whom I have believed, and I am persuaded that he is able to keep that which I have committed to him." Now do notice this. Christ was at the everlasting council: he can tell you whether you were chosen or not, but you cannot find that out anyhow else. You go and put your trust in him, and I know what the answer will be. His answer will be--"I have loved thee with an everlasting love, therefore in lovingkindness have I drawn thee." There will be no doubt about his having chosen you, when you shall feel no doubt about having chosen him.
 

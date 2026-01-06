@@ -2,15 +2,15 @@
 
 Sermon No. 60 - Delivered on Sabbath Morning, January 6, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Look unto me and be ye saved, all the ends of the earth: for I am God, and there is none else."  
-> Isaiah 45:22.  
+> Look unto me and be ye saved, all the ends of the earth: for I am God, and there is none else.    
+> Isaiah 45:22.    
 
 SIX years ago to-day, as near as possible at this very hour of the day, I was "in the gall of bitterness and in the bonds of iniquity," but had yet, by divine grace, been led to feel the bitterness of that bondage, and to cry out by reason of the soreness of its slavery. Seeking rest, and finding none, I stepped within the house of God, and sat there, afraid to look upward, lest I should be utterly cut off, and lest his fierce wrath should consume me. The minister rose in his pulpit, and, as I have done this morning, read this text, "Look unto me, and be ye saved, all the ends of the earth: for I am God, and there is none else." I looked that moment; the grace of faith was vouchsafed to me in the self-same instant; and now I think I can say with truth,
 
-> "Ere since by faith I saw the stream  
-> His flowing wounds supply,  
-> Redeeming love has been my theme,  
-> And shall be till I die."  
+> Ere since by faith I saw the stream    
+> His flowing wounds supply,    
+> Redeeming love has been my theme,    
+> And shall be till I die.    
 
 I shall never forget that day, while memory holds its place; nor can I help repeating this text whenever I remember that hour when first I knew the Lord. How strangely gracious! How wonderfully and marvelously kind, that he who heard these words so little time ago for his own soul's profit, should now address you this morning as his hearers from the same text, in the full and confident hope that some poor sinner within these walls may hear the glad tidings of salvation for himself also, and may to-day, on this 6th of January, be "turned from darkness to light, and from the power of Satan unto God!"
 
@@ -18,8 +18,8 @@ If it were within the range of human capacity to conceive a time when God dwelt 
 
 So where the Almighty formed his creatures, was it not consummate impudence, that they should venture for a moment to compare themselves with him? Yet that arch traitor, that leader of rebels, Satan, sought to climb to the high throne of God, soon to find his aim too high, and hell itself not low enough wherein to escape divine vengeance. He knows that God is "God alone." Since the world was created, man has imitated Satan; the creature of a day, the ephemera of an hour, has sought to match itself with the Eternal. Hence it has even been one of the objects of the great Jehovah, to teach mankind that he is God, and beside him there is none else. This is the lesson he has been teaching the world since it went astray from him. He has been busying himself in breaking down the high places, in exalting the valleys, in casting down imaginations and lofty looks, that all the world might
 
-> "Know that he Lord is God alone,  
-> He can create, and he destroy."  
+> Know that he Lord is God alone,    
+> He can create, and he destroy.    
 
 This morning we shall attempt to show you, in the first place, how God has been teaching this great lesson to the world-- that he is God, and beside him there is none else; and then, secondly, the special way in which he designs to teach it in the matter of salvation-- "Look unto me, and be ye saved: for I am God, and there is none else."
 
@@ -43,10 +43,10 @@ Let a man, for instance, be called to the great work of preaching the gospel. He
 
 Ah! beloved, I do not think he will be very successful as a minister who is not taken into the depths and blackness of his own soul, and made to exclaim, "Unto me, who am less than the least of all saints, is this grace given, that I should preach among the Gentiles the unsearchable riches of Christ." There is another antidote which God applies in the case of ministers. If he does not deal with them personally, he raises up a host of enemies, that it may be seen that he is God, and God alone. An esteemed friend sent me, yesterday, a valuable old Ms. of one of George Whitefield's hymns which was sung on Kennington Common. It is a splendid hymn, thoroughly Whitefieldian all through. It showed that his reliance was wholly on the Lord, and that God was within him. What! will a man subject himself to the calumnies of the multitude, will he toil and work day after day unnecessarily, will he stand up Sabbath after Sabbath and preach the gospel and have his name maligned and slandered, if he has not the grace of God in him? For myself, I can say, that were it not that the love of Christ constrained me, this hour might be the last that I should preach, so far as the ease of the thing is concerned. "Necessity is laid upon us; yea, woe is unto us if we preach not the gospel." But that opposition through which God carries his servants, leads them to see at once that he is God, and that there is none else. If every one applauded, if all were gratified, we should think ourselves God; but, when they hiss and hoot, we turn to our God, and cry,
 
-> "If on my face, for thy dear name,  
-> Shame and reproach should be,  
-> I'll hail reproach and welcome shame,  
-> If thou'lt remember me."  
+> If on my face, for thy dear name,    
+> Shame and reproach should be,    
+> I'll hail reproach and welcome shame,    
+> If thou'lt remember me.    
 
 This brings us to the second portion of our discourse. Salvation is God's greatest work; and, therefore, in his greatest work, he specially teaches us this lesson, That he is God, and that beside him there is none else. Our text tells us how he teaches it. He says, "Look unto me, and be ye saved, all the ends of the earth." He shows us that he is God, and that beside him there is none else, in three ways. First, by the person to whom he directs us: "look unto me, and be ye saved." Secondly, by the means he tells us to use to obtain mercy: "Look," simply, "Look." And thirdly, by the persons whom he calls to "look:" "Look unto me, and be ye saved, all the ends of the earth."
 

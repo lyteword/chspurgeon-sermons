@@ -2,8 +2,8 @@
 
 Sermon No. 231 - Delivered on Sabbath Morning, January 2nd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands."  
-> Psalm 138:8.  
+> The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands.    
+> Psalm 138:8.    
 
 I HAVE SELECTED THIS TEXT, or, rather, it has been given to me to furnish a motto for the whole year to all the believing family of God now present. It was brought under my notice from the fact that I have a very dear friend, a venerable minister of the Church of England, and an earnest lover of the truth as it is in Jesus, who always sends me, at the beginning of the year, or a day or two previously, a little envelope sealed up, that I am not to open till New Year's day, containing a printed text of Scripture, which he desires to be preserved during the remainder of the year, to act as a staff whereon we may rest through the pilgrimage of the next twelve months. When I opened my envelope I found this text, and it charmed me. It contains in itself the very essence of the grace of God. It reads like music to the soul, and is like a bottle of water in the desert to the thirsty lip. Let me read it again, and remember it, and dwell upon it, and digest it during all the year. "The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands."
 
@@ -33,10 +33,10 @@ And now you that are afraid about the future, rest with us in this sweet promise
 
 Let us turn to this word "will" once again. There is a little more in it; it does not say the "Lord may," it does not say, "I hope he will; I trust he will," but it says he will; "The Lord will perfect that which concerneth me." A few months after I first sought and found salvation, I enjoyed the sweet privilege of full assurance, and in talking with a godly Christian I expressed myself very confidently concerning the great truth that God would ne'er forsake his people, nor leave his work undone. I was at once child, I was told I had no right to speak so confidently, for it was presumptuous. The longer I live, the more I feel persuaded that confidence was proper, and the chiding was not deserved. I believe that the happiest of Christians and the truest of Christians are those who never dare to doubt God, but who take his word simply as it stands, and believe it and ask no questions, just feeling assured that if God has said it it will be so. The Psalmist in our text had no more doubt about his own ultimate perfection, than he had about his existence. He says, "the Lord will perfect that which concerneth me." There are many things that may or may not happen, but this I know shall happen,
 
-> "He shall present my soul,  
-> Unblemish'd and complete,  
-> Before the glory of his face,  
-> With joys divinely great."  
+> He shall present my soul,    
+> Unblemish'd and complete,    
+> Before the glory of his face,    
+> With joys divinely great.    
 
 All the purposes of man have been defeated, but not the purposes of God. The promises of man may be broken, many of them are made to be broken, but the purposes of God shall stand, and his promises shall be fulfilled. He is a promise maker, but he never was a promise breaker: he is a promise-keeping God, and his people shall prove it so. Come then, ye that are always hoping amidst trembling, and fear, but are never confident, for once take that doubting note out of your mouth, and say assuredly "the Lord will perfect that which concerneth me." If I be really his child, though full of sin, I shall one day be perfect; if I have really set my heart towards him, I shall one day see his face with joy; and let whatever foes obstruct, I shall conquer through the Lamb's redeeming blood. He "will perfect that which concerneth me." I like to hear God's people speak diffidently of themselves, but confidently of their God. Doubts are the greatest of sins, and even though Christians have doubts, yet doubts are unchristian things. The spirit of Christ is not a spirit of doubting, but a spirit of believing. Doubts may exist in the hearts of spiritual men, but doubts are unspiritual, carnal, and sinful. Let us seek to get rid of them, and speak confidently where God's word is confident.
 
@@ -54,9 +54,9 @@ But I hasten to dwell upon the last word. The faith of our text is a personal fa
 
 What is all the bread in the world, unless I myself feed upon it? I am starved, though Egypt be full of corn. What are all the rivers that run from the mountains to the sea, if I be thirsty? Unless I drink myself, what are all these? If I be poor and in rags, ye do but mock me if ye tell me that Potosi's mines are full of treasure? You do but laugh at me if you speak of Golconda's diamonds. What care I for these, unless I have some participation for myself? But if I can say even of my crust, "It is my own," then I can eat it with a grateful heart. That crust which is my own is more precious than all the granaries of Egypt if they are not my own, and this promise even if it were smaller would be more precious than the largest promise that stands in the Bible, if I could not see my right to it personally myself. But now, by bumble faith, sprinkled with the blood of Christ, resting in his merits, trusting in his death, I come to the text, and say throughout this year, and every year, "The Lord will perfect that which concerneth me"--unworthy me. Lost and ruined me. He will yet save me; and
 
-> "I, among the blood-wash'd throng,  
-> Shall wave the palm, and wear the crown,  
-> And shout loud victory."  
+> I, among the blood-wash'd throng,    
+> Shall wave the palm, and wear the crown,    
+> And shout loud victory.    
 
 This, then, is the believer's confidence. May God grant you the same!
 
@@ -64,8 +64,8 @@ The second thing is THE GROUND OF THIS CONFIDENCE. The ground of it is this--"Th
 
 Come then, beloved, let us just look at this ground of our confidence, and see whether it will bear our weight. It is said that elephants when they are going to cross a bridge are always very careful to sound it, to see whether it will bear them. If they see a horse going over safely that is not enough, for they say to themselves, "I am an elephant, and I must see whether it will bear me." Now, we should always do the same with a promise and with the groundwork of a promise. The promise may have been proved by others before you, but if you feel yourselves to be like huge elephantine sinners, you want to be quite certain whether the arches of the promise are quite strong enough to bear the weight of your sins. Now, I say, here is God's mercy. Ah! this is indeed all-sufficient. What was it that first led the Lord to bring you and me into the covenant at all? It was mercy, pure mercy. We were dead in sin. We had not any merits to recommend us, for some of us used to curse and swear like infidels; some of us were drunkards, sinners of the deepest dye. And why did God save us? Simply because he has said, "I will have mercy upon whom I will have mercy."
 
-> "What was there in you that could merit esteem,  
-> Or give the Creator delight?"  
+> What was there in you that could merit esteem,    
+> Or give the Creator delight?    
 
 'Twas mercy. Well, then, if mercy made God choose me, if he chose me from no other motive than mercy, if that mercy always is the same, he always will choose me, and always will love me. Do you not know it is a rule which none can dispute, that the same cause must always produce the same effect. We are told that the volcano is caused by certain fires within the earth, which must find their vent. Now, as long as there are those inward fires, and they are in a condition to require the vent, the vent they must have. When the cause is the same, the effect must be the same.
 
@@ -73,15 +73,15 @@ The sole cause then, of the salvation of any man is the mercy of God, and not hi
 
 Note the very words of the text: "Thy mercy, O Lord." David brings his confidence into the court of Divine inspection, in order that it may there be proved. He says, "The Lord will perfect that which concerneth me." It is very well for you and I to speak thus here this morning, but dare we go up to the very temple of God, and there, feeling his presence, actually present our confidence before him, and ask him to try it. There are many hypocrites in the world that would tremble to play the hypocrite if they felt that they were in the presence of God. But here we have a man that dares to bring his faith to God's tribunal; he puts it in the scales of infinite justice, and waits the decision. "Thy mercy, O Lord." Can you do the same? Who among us can cry out with Toplady--
 
-> "The terrors of law and of God,  
-> With me can have nothing to do,  
-> My Saviour's obedience and blood,  
-> Hide all my transgressions from view."  
+> The terrors of law and of God,    
+> With me can have nothing to do,    
+> My Saviour's obedience and blood,    
+> Hide all my transgressions from view.    
 
 Can you come into God's presence and say this, or, to quote Hart's words, can you say
 
-> "Great God I'm clean,  
-> Through Jesu's blood I'm clean."  
+> Great God I'm clean,    
+> Through Jesu's blood I'm clean.    
 
 He that can say that is blessed indeed; the Lord shall perfect that which concerneth him.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 58 - Delivered on Sabbath Morning, December 30, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For the land whither thou goest in to possess it, is not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst it with thy foot, as a garden of herbs; but the land whither ye go to possess it, is a land of hills and valleys, and drinketh water of the rain of heaven; a land which the Lord thy God careth for; the eyes of the Lord thy God are always upon it, from the beginning of the year, even unto the end of the year."  
-> Deuteronomy 11:10-12.  
+> For the land whither thou goest in to possess it, is not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst it with thy foot, as a garden of herbs; but the land whither ye go to possess it, is a land of hills and valleys, and drinketh water of the rain of heaven; a land which the Lord thy God careth for; the eyes of the Lord thy God are always upon it, from the beginning of the year, even unto the end of the year.    
+> Deuteronomy 11:10-12.    
 
 IT HAS generally been considered, that the passage of the Jordan by the Israelites is typical of death, and that Canaan is a fitting representation of heaven. We believe that in some sense it is true, and we do fondly cherish the household words of those hymns which describe our passing through Jordan's billows, and landing safe on Canaan's side; but we do think that the allegory does not hold, and that Jordan is not a fair exhibition of death, nor the land of Canaan a fair picture of the sweet land beyond the swelling flood which the Christian gains after death. For mark you, after the children of Israel had entered into Canaan, they had to fight with their enemies. It was a land filled with foes. Every city they entered they had to take by storm, unless a miracle dismantled it. They were warriors, even in the land of Canaan, fighting for their own inheritance; and though each tribe had its lot marked out, yet they had to conquer the giant Anakim, and encounter terrible hosts of Canaanites. But when we cross the river of death we shall have no foes to fight, no enemies to encounter. Heaven is a place already prepared for us; out of it the evil ones have long ago been driven; there brethren shall await us with pleasing faces, kind hands shall clasp ours, and loving words shall alone be heard. The shout of war shall ne'er be raised by us in heaven; we shall throw our swords away, and the scabbards with them. No battles with warriors there, no plains besoaked with blood, no hills where robbers dwell, no inhabitants with chariots of iron. It is "a land flowing with milk and honey;" and it dreams not of the foeman of Canaan of old. We think the church has lost the beauty of Scripture, in taking Jordan to mean death, and that a far fuller meaning is the true allegory to be connected with it. Egypt, as we have lately observed to you, was typical of the condition of the children of God while they are in bondage to the law of sin. 
 
@@ -23,12 +23,12 @@ Beloved, let us improve this thought, by showing you the great value of it. Do y
 
 This thought, again, has a great tendency to keep us from an overweening love of the world. If we think that all our mercies come from heaven, we shall not be so likely to love the world, as we shall be if we think that they are the natural products of the soil. The spies went to Eschol, and fetched thence an immense cluster of the grapes which grew there; but you do not find that the people said, "These are fine fruits, therefore we will stay here." No: they saw that the grapes came from Canaan, and thereupon they said, "Let us go on, and possess them." And so, when we get rich mercies, if we think they come from the natural soil of this earth, we feel,
 
-> "Here I will for ever stay."  
+> Here I will for ever stay.    
 
 But if we know that they come from a foreign clime, we are anxious to go
 
-> "Where our dear Lord his vineyard keeps,  
-> And all the clusters grow."  
+> Where our dear Lord his vineyard keeps,    
+> And all the clusters grow.    
 
 Christian, then, rejoice, rejoice! Thy mercies come from heaven; however small they be, still they are thy Father's gift; not one comes to thee without his knowledge, and his permission. Bless the Lord, therefore, that thou art come to Canaan; where thy "land drinketh water of the rain of heaven!"
 

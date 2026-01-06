@@ -2,8 +2,8 @@
 
 Sermon No. 136 - Delivered on Sabbath Morning, June 14, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And they sang the song of Moses the servant of God, and the song of the Lamb, saying, Great and marvelous are thy works, Lord God Almighty; just and true are thy ways, thou King of saints."  
-> Revelation 15:3.  
+> And they sang the song of Moses the servant of God, and the song of the Lamb, saying, Great and marvelous are thy works, Lord God Almighty; just and true are thy ways, thou King of saints.    
+> Revelation 15:3.    
 
 AT THE OUTSET, let us remark the carefulness of the Holy Spirit in guarding the honor of our blessed Lord. This verse is often quoted as if it runs thus--"They sang the song of Moses and the Lamb." This mistake has led many weak minds to wonder at the expression, for they have imagined that it divided the honor of the song of heaven between Moses and the Redeemer. The clause--"the servant of God"--is doubtless inserted by the Holy Spirit to prevent any error upon this point, and therefore it should be carefully included in the quotation. I take it that the song of Moses is here united with the song of the Lamb, because the one was a type and picture of the other. The glorious overthrow of Pharaoh in the Red Sea shadowed forth the total destruction of Satan and all his host in the day of the great battle of the Lord; and there was in the song of Moses the expression of the same feelings of triumph which will pervade the breasts of the redeemed when they shall triumph with their Captain.
 
@@ -21,29 +21,29 @@ And now the TRIUMPH OF MOSES was a picture of the ultimate triumph of the Lamb. 
 
 Well, I now want to show you why it was that Moses triumphed, and why it is that by-and-by we shall triumph. One reason why Moses sung his song was because all Israel were safe. They were all safely across the sea. Not a drop of spray fell from that solid wall until the last of God's Israel had safely planted his foot on the other side of the flood. That done, immediately the floods dissolved into their proper place again, but not till then. Part of that song was, "Thou hast led thy people like a flock through the wilderness." Now, in the last time, when Christ shall come upon earth, the great song will be--"Lord, thou hast saved thy people; thou hast led them all safely through the paths of providence, and not one of them has fallen into the hands of the enemy." O, it is my strong belief, that in heaven there shall not be a vacant throne. I rejoice that all who love the Lord below, must at last attain to heaven. I do not believe with some that men may start on the road to heaven, and be saved, and yet fall by the hand of the enemy. God forbid, my friends!
 
-> "All the chosen race  
-> Shall meet around the throne,  
-> Shall bless the conduct of his grace,  
-> And make his glories known."  
+> All the chosen race    
+> Shall meet around the throne,    
+> Shall bless the conduct of his grace,    
+> And make his glories known.    
 
 Part of the triumph of heaven will be, that there is not one throne that is unoccupied. As many as God hath chosen, as many as Christ hath redeemed, as many as the Spirit hath called, as many as believe, shall arrive safe across the stream. We are not all safely landed yet:
 
-> "Part of the host have crossed the flood,  
-> And part are crossing now."  
+> Part of the host have crossed the flood,    
+> And part are crossing now.    
 
 The vanguard of the army have already reached the shore. I see them yonder;
 
-> "I greet the blood-besprinkled bands  
-> Upon th' eternal shore."  
+> I greet the blood-besprinkled bands    
+> Upon th' eternal shore.    
 
 And you and I, my brethren, are marching through the depths. We are at this day following hard after Christ, and walking through the wilderness. Let us be of good cheer: the rearguard shall soon be where the vanguard already is; the last of the chosen shall soon have landed; the last of God's elect shall have crossed the sea, and then shall be heard the song of triumph, when all are secure. But O! if one were absent--oh! if one of his chosen family should be cast away--it would make an everlasting discord in the song of the redeemed, and cut the strings of the harps of Paradise, so that music could never be distilled from them again.
 
 But, perhaps, the major part of the joy of Moses lay in the destruction of all the enemies of God. He looked upon his people the day before.
 
-> "He looked upon his people,  
-> And the tear was in his eye;  
-> He looked upon the foeman  
-> And his glance was stern and high."  
+> He looked upon his people,    
+> And the tear was in his eye;    
+> He looked upon the foeman    
+> And his glance was stern and high.    
 
 And now to-day he looks upon his people, and he says, "Blessed art thou, O Israel, safely landed on the shore;" and he looks not upon the foeman, but upon the foeman's tomb; he looks where the living were protected by the shield of God from all their enemies; and he sees--what? A mighty sepulcher of water; a mighty tomb in which were engulfed princes, monarchs, potentates. "The horse and his rider hath he thrown into the sea." Pharaoh's chariots also are drowned therein. And soon, my hearers, you and I shall do the same. I say that now we have to look abroad on hosts of enemies. What with the wild beasts of Rome, what with the antichrist of Mohammed, what with the thousands of idolatries and false gods, what with infidelity in all its myriad shapes, many are the enemies of God, and mighty are the hosts of hell. Lo, you see them gathered together this day; horseman upon horseman, chariot upon chariot, gathered together against the Most High. I see the trembling church, fearing to be over-thrown; I mark her leaders bending their knees in solemn prayer, and crying, "Lord, save thy people, and bless thy heritage." But mine eye looks through the future with telescopic glance, and I see the happy period of the latter days, when Christ shall reign triumphant. I shall ask them where is Babel? where is Rome? where is Mohammed? and the answer shall come--where? Why they have sunk into the depths; they have sunk to the bottom as a stone. Down there the horrid fire devours them, for the sea of glass is mingled with the fire of judgment. To-day I see a battle-field; the whole earth is torn by the hoofs of horses; there is the rumble of cannon and the roll of drum. "To arms! to arms!" both hosts are shouting. But you wait awhile, and you shall walk across this plain of battle, and say, "Seest thou that colossal system of error dead? There lies another, all frozen, in ghastly death, in motionless stupor. 
 
@@ -63,10 +63,10 @@ Furthermore, in this song of Moses, you will notice there is one peculiar beauty
 
 And last of all, the song concludes by noticing the eternity of God's reign; and this will always make a part of the triumphant song. They sang, "The Lord shall reign for ever and ever." Then I can suppose the whole band broke out into their loudest strain of music. "The Lord shall reign for ever and ever." Part of the melody of heaven will be--"The Lord shall reign for ever and ever." That song has cheered us here--"The Lord reigneth; blessed be my Rock!" And that song shall be oar exultation there. "The Lord reigneth for ever and ever." When we shall see the placid sea of providence, when we shall behold the world all fair and lovely, when we shall mark our enemies destroyed, and God Almighty triumphant, then we shall shout the song--
 
-> "Hallelujah! for the Lord  
-> God Omnipotent shall reign;  
-> Hallelujah! let the word  
-> Echo round the earth and main."  
+> Hallelujah! for the Lord    
+> God Omnipotent shall reign;    
+> Hallelujah! let the word    
+> Echo round the earth and main.    
 O! may we be there to sing it!
 
 I have one remark to make, and I have done. You know, my friends, that as there is something in the song of Moses which is typical of the song of the Lamb, there was another song sung by the waters of the Red Sea which is typical of the song of hell. "What mean you, sir, by that dread thought?" O! shall I use the word music? Shall I profane the heavenly word so much as to say, It was doleful music which came from the lips of Pharaoh and his host? Boldly and pompously, with roll of drum and blast of trumpet they had entered into the sea. On a sudden their martial music ceased ; and ah! ye heavens and ye floods what was it? The sea was coming down upon them, utterly to devour them. O! may we never hear that shriek, that awful yell of hideous agony, that seemed to rend the sky, and then was hushed again, when Pharaoh and his mighty men were swallowed up, and went down quick into hell! Ah! stars, if ye had heard it, if the black pall of waters had not shut out the sound from you, ye might have continued trembling unto this hour, and mayhap ye are trembling now; mayhap your twinklings by night are on account of that terrible shriek ye heard; for sure it were enough to make you tremble on for ever. That dreadful shriek, that hideous moan, that horrible howl, when a whole army sank into hell at once when the waters swallowed them up!

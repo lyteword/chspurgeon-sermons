@@ -2,8 +2,8 @@
 
 Sermon No. 11 - Delivered on Sabbath Morning, February 25, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "I have exalted one chosen out of the people."  
-> Psalm 89:19.  
+> I have exalted one chosen out of the people.    
+> Psalm 89:19.    
 
 ORIGINALLY, I have no doubt, these words referred to David. He was chosen out of the people. His lineage was respectable, but not illustrious; his family were holy, but not exalted: the names of Jesse, Obed, Boaz, and Ruth, awoke no royal recollections, and stirred up no remembrances of ancient nobility or glorious pedigree. As for himself, his only occupation had been that of a shepherd-boy, carrying lambs in his bosom, or gently leading the ewes great with young--a simple youth of a right royal soul, and undaunted courage, but yet a plebeian--one of the people. But this was no disqualification for the crown of Judah. In God's eye the extraction of the young hero was no barrier to his mounting the throne of the holy nation, nor shall the proudest admirer of descent and lineage dare to insinuate a word against the valour, wisdom, and the justice of the government of this monarch of the people.
 
@@ -13,8 +13,8 @@ However, in this sermon we shall not speak of David, but of the Lord Jesus Chris
 
 Before I enter into the illustration of this truth I wish to make one statement, so that all objections may be avoided as to the doctrine of my sermon. Our Saviour Jesus Christ, I say, was chosen out of the people; but this merely respects his manhood. As "very God of very God" he was not chosen out of the people; for there was none save him. He was his Father's only-begotten Son, "begotten of the Father before all worlds." He was God's fellow, co-equal, and co-eternal; consequently when we speak of Jesus as being chosen out of the people, we must speak of him as a man. We are, I conceive, too forgetful of the real manhood of our Redeemer, for a man he was to all intents and purposes, and I love to sing,
 
-> "A Man there was, a real Man,  
-> Who once on Calvary died."  
+> A Man there was, a real Man,    
+> Who once on Calvary died.    
 
 He was not man and God amalgamated--the two natures suffered no confusion--he was very God, without the diminution of his essence or attributes; and he was equally, verily, and truly, man. It is as a man I speak of Jesus this morning; and it rejoices my heart when I can view the human side of that glorious miracle of incarnation, and can deal with Jesus Christ as my brother--inhabitant of the same mortality, wrestler with the same pains and ills, companion in the march of life, and, for a little while, a fellow-sleeper in the cold chamber of death.
 
@@ -24,10 +24,10 @@ We will commence with our Saviour's EXTRACTION. We have had many complaints this
 
 Christ, by his very birth, was one of the people. True, he was born of a royal ancestry. Mary and Joseph were both of them descendants of a kingly race, but the glory had departed; a stranger sat on the throne of Judah; while the lawful heir grasped the hammer and the adze. Mark ye well the place of his nativity. Born in a stable--cradled in a manger where the horned oxen fed--his only bed was their fodder, and his slumbers were often broken by their lowings. He might be a prince by birth; but certainly he had not a princely retinue to wait upon him. He was not clad in purple garments, neither wrapped in embroidered clothing; the halls of kings were not trodden by his feet, the marble palaces of monarchs were not honored by his infant smiles. Take notice of the visitors who came around his cradle. The shepherds came first of all. We never find that they lost their way. No, God guides the shepherds, and he did direct the wise men too, but they lost their way. It often happens, that while shepherds find Christ wise men miss him. But, however, both of them came, the magi and the shepherds; both knelt round that manger, to show us that Christ was the Christ of all men; that he was not merely the Christ of the magi, but that he was the Christ of the shepherds--that he was not merely the Saviour of the peasant shepherd, but also the Saviour of the learned, for
 
-> "None are excluded hence, but those  
-> Who do themselves exclude;  
-> Welcome the learned and polite,  
-> The ignorant and rude,"  
+> None are excluded hence, but those    
+> Who do themselves exclude;    
+> Welcome the learned and polite,    
+> The ignorant and rude,    
 
 In his very birth he was one of the people. He was not born in a populous city; but in the obscure village of Bethlehem, "the house of bread," the Son of Man made his advent, unushered by pompous preparations, and unheralded by the blast of courtly trumpets.
 
@@ -43,24 +43,24 @@ But there is another reason why Jesus Christ was chosen out of the people. It is
 
 But, my brethren, let us take a sweeter view than that. Why was he chosen out of the people? Speak, my heart! What is the first reason that rushes up to thyself? for heart thoughts are best thoughts. Thoughts from the head are often good for nothing; but thoughts of the heart, deep musings of the soul, these are priceless as pearls of Ormuz. If it be a humbler poet, provided that his songs gush from his heart, they shall better strike the cords of my soul than the lifeless emanations of mere brain. Here, Christian: what dost thou think is the sweet reason for the election of thy Lord, he being one of the people? was it not this--that he might be able to be thy brother, in the blest tie of kindred blood? Oh! what relationship there is between Christ and the believer? The believer can say
 
-> "One there is above all others  
-> Well deserves the name of friend;  
-> His is love beyond a brother's,  
-> Faithful, free, and knows no end."  
+> One there is above all others    
+> Well deserves the name of friend;    
+> His is love beyond a brother's,    
+> Faithful, free, and knows no end.    
 
 I have a great brother in heaven. I have heard boys say sometimes in the street that they would tell their brother; and I have often said so when the enemy has attacked me--" I will tell my brother in heaven." I may be poor, but I have a brother who is rich; I have a brother who is a king; I am brother to the prince of the kings of the earth; and will he suffer me to starve, or want, or lack, while he is on his throne? Oh! no; he loves me; he has fraternal feelings towards me; he is my brother. But, more than that: think, O believer! Christ is not merely thy brother, but he is thy husband. "Thy maker is thy husband; the Lord of hosts is his name." It rejoices the wife to lean her head on the broad breast of her husband, in full assurance that his arms will be strong to labor for her, or defend her; that his heart ever throbs with love to her, and that all he has, and is, belongs to her, as the sharer of his existence. Oh! to know by the influence of the Holy Ghost, that the sweet alliance is made between my soul and the ever precious Jesus; sure, tis enough to quicken all my soul to music, and make each atom of my frame a grateful songster to the praise of Christ. Come, let me remember when I lay like an infant in my blood, cast out in the open field; let me recollect the notable moment when he said, "Live!" and let me never forget that he has educated me, trained me up, and one day will espouse me to himself in righteousness, crowning me with a nuptial crown in the palace of his father. Oh! it is bliss unspeakable! I wonder not that the thought doth stagger my words to utter it!--that Christ is one of the people, that he might be nearly related to you and to me, that he might be the goel, or kinsman, next of kin.
 
-> "In ties of blood with sinners one,  
-> Our Jesus is to glory gone;  
-> Hath all his foes to ruin hurled--  
-> Sin, satan, earth, death, hell, the world."  
+> In ties of blood with sinners one,    
+> Our Jesus is to glory gone;    
+> Hath all his foes to ruin hurled--    
+> Sin, satan, earth, death, hell, the world.    
 
 Saint, was this blessed thought, like a necklace of diamonds, around the neck of thy memory; put it, as a golden ring, on the finger of recollection; and use it as the king's own seal, stamping the petitions of thy faith with confidence of success.
 
 But now another idea suggests itself. Christ was chosen out of the people--that he might know our wants and sympathize with us. You know the old tale, that one half the world does not know how the other half lives; and that is very true. I believe some of the rich have no notion whatever of what the distress of the poor is. They have no idea of what it is to labor for their daily food. They have a very faint conception of what a rise in the price of bread means. They do not know anything about it; and when we put men in power who never were of the people, they do not understand the art of governing us. But our great and glorious Jesus Christ is one chosen out of the people; and therefore he knows our wants. Temptation and pain he suffered before us; sickness he endured, for when hanging upon the cross, the scorching of that broiling sun brought on a burning fever; weariness--he has endured it, for weary he sat by the well; poverty--he knows it, for sometimes he had not bread to eat, save that bread of which the world knows nothing; to be houseless--he knew it, for the foxes had holes, and the birds of the air had nests, but he had not where to lay his head. My brother Christian, there is no place where thou canst go, where Christ has not been before thee, sinful places alone excepted. In the dark valley of the shadow of death thou mayest see his bloody footsteps--footprints marked with gore; ay, and even at the deep waters of the swelling Jordan, thou shalt, when thou comest hard by the side, say, "There are the footprints of a man: whose are they?" Stooping down, thou shalt discern a nail-mark, and shalt say. "Those are the footsteps of the blessed Jesus." He hath been before thee; he hath smoothed the way; he hath entered the grave, that he might make the tomb the royal bedchamber of the ransomed race, the closet where they lay aside the garments of labor, to put on the vestments of eternal rest. In all places whithersoever we go, the angel of the covenant has been our forerunner; each burden we have to carry, has once been laid on the shoulders of Immanuel.
 
-> "His way was much rougher and darker than mine;  
-> Did Christ my Lord suffer, and shall I repine?"  
+> His way was much rougher and darker than mine;    
+> Did Christ my Lord suffer, and shall I repine?    
 
 I am speaking to those in great trial. Dear fellow-traveller! take courage: Christ has consecrated the road, and made the narrow way the King's own road to life.
 
@@ -74,19 +74,19 @@ Again: Christ was exalted by his resurrection. Oh! I should have liked to have s
 
 But how exalted was he in his ascension! He went out from the city to the top of the hill, his disciples attending him while he waited the appointed moment. Mark his ascension! Bidding farewell to the whole circle, up he went gradually ascending, like the exaltation of a mist from the lake, or the cloud from the steaming river. Aloft he soared: by his own mighty buoyancy and elasticity he ascended up on high--not like Elijah, carried up by fiery horses; nor like Enoch of old, it could not be said he was not, for God took him. He went himself; and as he went, I think I see the angels looking down from heaven's battlements, and crying, See the conquering hero comes!' while at his nearer approach again they shouted, See the conquering hero comes!' So his journey through the plains of ether is complete--he nears the gates of heaven--attending angels shout, "Lift up your heads, ye everlasting gates; and be ye lift up, ye everlasting doors!" The glorious hosts within scarce ask the question, "Who is the king of glory;" when from ten thousand thousand tongues there rolls an ocean of harmony, beating in mighty waves of music on the pearly gates and opening them at once, "The Lord strong and mighty, the Lord mighty in battle." Lo! heaven's barriers are thrown wide open and cherubim are hastening to meet their monarch.
 
-> "They brought his chariot from afar,  
-> To bear him to his throne;  
-> Clapp'd their triumphant wings and said,  
-> 'The Saviour's work is done.'"  
+> They brought his chariot from afar,    
+> To bear him to his throne;    
+> Clapp'd their triumphant wings and said,    
+> 'The Saviour's work is done.'    
 
 Behold he marches through the streets. See how kingdoms and powers fall down before him! Crowns are laid at his feet, and his Father says, Well done, my Son, well done!' while heaven echoes with the shout, Well done! well done!' Up he climbs to that high throne, side by side with the Paternal Deity. "I have exalted one chosen out of the people."
 
 The last exaltation of Christ which I shall mention is that which is to come, when he shall sit upon the throne of his Father David, and shall judge all nations. You will observe I have omitted that exaltation which Christ is to have as the king of this world during the millennium. I do not profess to understand it, and therefore I leave that alone. But I believe Jesus Christ is to come upon the throne of judgment, "and before him shall be gathered all nations; and he shall separate them one from another, as a shepherd divideth his sheep from the goats." Sinner! thou belevest that there is a judgment; thou knowest that the tares and wheat cannot always grow together--that the sheep and the goats shall not always feed in one pasture; but dost thou know of that man who is to judge thee--that he who is to judge thee is a man? I say a man--a man once despised and rejected.
 
-> "The Lord shall come, but not the same  
-> As once in lowliness he came:  
-> A humble man before his foes;  
-> A weary man, and full of woes."  
+> The Lord shall come, but not the same    
+> As once in lowliness he came:    
+> A humble man before his foes;    
+> A weary man, and full of woes.    
 
 Ah! no. Rainbows shall be about his head; he shall hold the sun in his right hand as the token of his government; he shall put the moon and stars beneath his feet, as the dust of the pedestal of his throne, which shall be of solid clouds of light. The books shall be opened--those massive books, which contain the deeds of both quick and dead. Ah! how shall the despised Nazarene sit triumphant over all his foes. No more the taunt, the jeer, the scoff; but one hideous cry of misery, "Hide us from the face of him that sitteth on the throne." Oh, ye, my hearers, who now look with contempt on Jesus and his cross, I tremble for you. Oh, fiercer than a lion on his prey, is love when once incensed. Oh, despisers! I warn ye of that day when the placid brow of the Man of Sorrows shall be knit with frowns; when the eye which once was moistened by dew-drops of pity, shall flash lightning on its enemies; and the hand, which once was nailed to the cross for our redemption, shall grasp the thunderbolt for your damnation; while the mouth which once said, "Come unto me, ye weary," shall pronounce in words louder and more terrible than the voice of the thunder, "Depart ye cursed!" Sinners! ye may think it a trifle to sin against the Man of Nazareth, but ye shall find that in so doing ye have offended the Man who shall judge the earth in righteousness; and for your rebellion ye shall endure waves of torment in the eternal ocean of wrath. From that doom may God deliver you! But I warn you of it. You have all read the story of the lady, who, on her marriage-day stepped up stairs, and seeing an old chest, in her fun and frolic stepped inside, thinking to hide herself an hour, that her friends might hunt for her; but a spring lock lay in ambush there, and fastened her down for ever; nor did they ever find her, until years had passed, when moving that old lumbering chest, they found the bones of a skeleton, with here and there a jewelled ring and some fair thing. She had sprung in there in pleasantry and mirth, but was locked down for ever. Young man! take heed that you are not locked down for ever by your sins. One jovial glass--it is all. "One moment's step." So said she. But there's a secret lock lays in ambush. One turn into that house of ill-fame--one wandering from the paths of rectitude--that is all. Oh, sinner! it is all. But dost thou know what that all is? To be fastened down for ever. Oh! if thou wouldst shun this, list to me, whilst--for I have but one moment more--I tell thee yet again of the Man who was "chosen out of the people."
 

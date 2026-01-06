@@ -2,8 +2,8 @@
 
 Sermon No. 121 - Delivered on Sabbath Evening, March 8, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "But yet in it shall be a tenth, and it shall return, and it shall be eaten as a teil tree, and as an oak, whose substance is in them, when they cast their leaves; so the holy seed shall be the substance thereof."  
-> Isaiah 6:3.  
+> But yet in it shall be a tenth, and it shall return, and it shall be eaten as a teil tree, and as an oak, whose substance is in them, when they cast their leaves; so the holy seed shall be the substance thereof.    
+> Isaiah 6:3.    
 
 OUR FIRST business to-night will be briefly to explain the metaphor employed in the text. The prophet was told that despite all the remonstrances he was instructed to deliver, and notwithstanding the eloquent earnestness of his lips, which had been just touched by a live coal from off the altar, still the people of Israel would persevere in their sins, and would therefore be certainly destroyed. He asked the question, "Lord, how long?" that is, How long will the people be thus impenitent? How long will thy sore judgment thus continue? And he was informed that God would waste and destroy the cities and their inhabitants, till the land should be utterly desolate. Then it was added, for his comfort, "Yet in it shall be a tenth." And so it happened; for when "Nebuchadnezzar carried away all Jerusalem," the historian gives this reservation--'none remained save the poorer sort of the people of the land." They were left by the captain of the guard, "to be vine-dressers and husbandmen." Thus in it there was a tenth; this small remnant of the people, however, was to be nearly destroyed too. "It shall return and shall be eaten;" the sense is, eaten up or consumed. The poor creatures left in the land, many of them fled into Egypt at the time of the conspiracy of Ishmael (not Ishmael, the son of Hagar, but an unworthy member of the royal family of Judah), and there in Egypt most of them were cut off and perished. "But," says God, "although this tenth only shall be preserved, and then even this small part shall be subjected to many perils yet Israel shall not be destroyed, for it shall be as a terebinth tree and as an oak;" their "substance is in them, when they cast their leaves," and so lose their verdure and their beauty; thus, in like manner, a holy seed, a chosen remnant, shall still be the substance of the children of Israel, when the fruitful land is stripped of its foliage, and that fair garden of earth is barren as the desert.
 
@@ -17,13 +17,13 @@ What a history is the history of the Jew! He has antiquity stamped upon his fore
 
 He claims a high dignity above us, and he has a history to come which will be greater and more splendid than the history of any nation that has yet existed. If we read the Scriptures aright, the Jews have a great deal to do with this world's history. They shall be gathered in; Messiah shall come, the Messiah they are looking for--the same Messiah who came once shall come again--shall come as they expected him to come the first time. They then thought he would come a prince to reign over them, and so he will when he comes again. He will come to be king of the Jews, and to reign over his people most gloriously; for when he comes, Jew and Gentile will have equal privileges, though there shall yet be some distinction afforded to that royal family from whose loins Jesus came; for he shall sit upon the throne of his father David, and unto him shall be gathered all nations. O!
 
-> "Ye chosen seed of Israel's race,  
-> A remnant weak and small,"  
+> Ye chosen seed of Israel's race,    
+> A remnant weak and small,    
 
 ye may indeed,
 
-> "Hail him who saves you by his grace,  
-> And crown him Lord of all;"  
+> Hail him who saves you by his grace,    
+> And crown him Lord of all;    
 
 your church shall never die, and your race shall never become extinct. The Lord hath said it. "The race of Abraham shall endure for ever, and his seed as many generations."
 
@@ -55,24 +55,24 @@ The Arminian says that when a Christian loses his leaves he is dead. "No," say G
 
 By losing their leaves allow me to understand two things. Christian men lose their leaves when they lose their comforts, when they lose the sensible enjoyment of their Master's presence, and when their full assurance is turned into doubting. You have had many such a time as that, have you not? Ah! you were one day in such a state of joy, that you said you could
 
-> "Sit and sing yourself away  
-> To everlasting bliss."  
+> Sit and sing yourself away    
+> To everlasting bliss.    
 
 But a wintry state came, and your joy all departed, and you stood like a bare tree, after the wind had swept it in the time of winter, with just perhaps one sere leaf hanging by a thread on the topmost bough. But you were not dead then; no, your substance was in you, when you had lost your leaves. You could not see that substance, and good reason why, because your life was hid with Christ in God; you saw not your signs, but you had your substance still, though you could not discover it. There were no heavings of faith, but faith was there; there were no lookings out of hope, but though hope's eyelids were shut, the eyes were there, to be opened afterwards; there was no lifting, perhaps, of the hand of ardent prayer, but the hands and arms were there, though they hung powerless by the side. God said, afterwards, "Strengthen the feeble knees, and lift up the hands that hang down." Your substance was in you when you had lost your leaves. Good Baxter says--"We do not see graces, except when they are in exercise; and yet they are as much there when they are not in exercise as when they are." Saith he, "Let a man take a walk into a wood; there lieth a hare or a rabbit asleep under the leaves; but he can not see the creature until it is frightened, and it runneth out, and then he seeth it to be there." So if faith be in exercise you will perceive your evidence, but if faith be slumbering and still, you will be led to doubt its existence; and yet it is there all the while.
 
-> "Mountains when in darkness hidden,  
-> Are as real as in day,"  
+> Mountains when in darkness hidden,    
+> Are as real as in day,    
 
 said one; and truly the faith of the Christian, when shrouded by doubts and fears, is just as much there as when he rejoiceth devoutly in the display of it.
 
 It is a common error of young converts that they attempt to live by their experience, instead of tracing their life up to its precious source. I have known persons rejoicing in the fullest assurance one day, and sinking into the deepest despondency the next. The Lord will sometimes strip you of the leaves of evidence to teach you to live by faith, as John Kent says--
 
-> "If to-day he deigns to bless us  
-> With a sense of pardoned sin;  
-> He to-morrow may distress us  
-> Make us feel the plague within;  
-> All to make us  
-> Sick of self and fond of him."  
+> If to-day he deigns to bless us    
+> With a sense of pardoned sin;    
+> He to-morrow may distress us    
+> Make us feel the plague within;    
+> All to make us    
+> Sick of self and fond of him.    
 
 But, ah! there is a worse phase to the subject than this. Some Christians lose their leaves not by doubts, but by sin. This is a tender topic--one which needs a tender hand to touch. O! there are some in our churches that have lost their leaves by lust and sin. Fair professors once they were; they stood green among the church, like the very leaves of paradise; but in an evil hour they fell, the slaves of temptation. They were God's own people by many infallible marks and signs; and if they were so, though it is grievous that they should have lost their leaves, yet there is the sweet consolation, their substance is in them still: they are still the Lord's, still his living children, though they have fallen into the coma of sin, and are now in a fainting fit, having gone astray from him, and having their animation suspended, while life is still there. Some, as soon as they see a Christian do any thing inconsistent with his profession, say, "That man is no child of God; he can not be; it is impossible." Ay, but, sir, remember what he thought who once said--"If a brother err, ye that are spiritual restore such an one in the spirit of meekness, considering thyself, lest thou also be tempted." It is a fact, deny it who will, and abuse it, if you please, to your own wicked purposes; I can not help it--it is a fact that some living children of God have been allowed--and an awful allowance it is--to go into the very blackest sins. 
 
@@ -86,23 +86,23 @@ But did you ever see a child of God after he had been washed from a foul sin? He
 
 I have thought that perhaps some of these men in heaven will song soprano notes before the throne--choice, wondrous notes of grace, because they have gone into the depths of sin after profession; and yet he had loved them when their feet made hast to perdition, and fetched them up, because he "loved them well." There are but few such; for most men will go foully into sin; they will go out from us because they are not of us, for if they had been of us they would doubtless have continued with us. But there have been a few such--great saints, then great backsliding sinners, and then great saints again. Their substance was in them when they had lost their leaves. O! you that have gone far astray, sit and weep. You can not weep too much, though you should cry with Herbert--
 
-> "O, who will give me tears? Come, all ye springs,  
-> Dwell in my head and eyes; come, clouds and rain!  
-> My grief hath need of all the water things  
-> That nature hath produced."  
+> O, who will give me tears? Come, all ye springs,    
+> Dwell in my head and eyes; come, clouds and rain!    
+> My grief hath need of all the water things    
+> That nature hath produced.    
 
 You might well say--
 
-> "Let every vein  
-> Suck up a river to supply mine eyes,  
-> My weary, weeping eyes; too dry for me,  
-> Unless they get new conduits, new supplies,  
-> To bear them out, and with my state agree."  
+> Let every vein    
+> Suck up a river to supply mine eyes,    
+> My weary, weeping eyes; too dry for me,    
+> Unless they get new conduits, new supplies,    
+> To bear them out, and with my state agree.    
 
 But yet remember, "He hath not forsaken his people, neither hath he cut them off;" for still he says--
 
-> "Return, O wanderer, return,  
-> And seek an injured father's heart."  
+> Return, O wanderer, return,    
+> And seek an injured father's heart.    
 
 Return! return! return! Thy Father's bowels still move for thee. He speaks through the written oracles at this moment, saying, "How shall I give thee up, Ephraim? How shall I deliver thee, O Israel? How can I make thee as Adimah? How can I set thee as Zeboim?" My bowels are moved; my repentings are kindled together; for I will heal their backslidings, I will receive them graciously, I will love them freely, for they are mine still. As the terebinth and as the oak, whose substance is in them when they cast their leaves, even so the holy seed within the elect and called vessels of mercy, is still the substance thereof.
 

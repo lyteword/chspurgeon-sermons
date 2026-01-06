@@ -2,8 +2,8 @@
 
 Sermon No. 222 - Delivered on Sabbath Morning, November 7th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations."  
-> 1 Peter 1:6.  
+> Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations.    
+> 1 Peter 1:6.    
 
 THIS VERSE TO A WORLDLY MAN looks amazingly like a contradiction; and even to a Christian man, when he understands it best, it will still be a paradox. "Ye greatly rejoice," and yet "ye are in heaviness." Is that possible? Can there be in the same heart great rejoicing, and yet a temporary heaviness? Most assuredly. This paradox has been known and felt by many of the Lord's children, and it is far from being the greatest paradox of the Christian life. Men who live within themselves, and mark their own feelings as Christians, will often stand and wonder at themselves. Of all riddles, the greatest riddle is a Christian man. As to his pedigree, what a riddle he is! He is a child of the first Adam, "an heir of wrath, even as others." He is a child of the second Adam: he was born free; there is therefore now no condemnation unto him. He is a riddle in his own existence. "As dying, and behold we live; as chastened, and not killed." He is a riddle as to the component parts of his own spiritual frame. He finds that which makes him akin to the devil--depravity, corruption, binding him still to the earth, and causing him to cry out, "O wretched man that I am;" and yet he finds that he has within himself that which exalts him, not merely to the rank of an angel, but higher still--a something which raises him up together, and makes him "sit together with Christ Jesus in heavenly places." He finds that he has that within him which must ripen into heaven, and yet that about him which would inevitably ripen into hell, if grace did not forbid. What wonder, then, beloved, if the Christian man be a paradox himself, that his condition should be a paradox too? Why marvel ye, when ye see a creature corrupt and yet purified, mortal and yet immortal, fallen but yet exalted far above principalities and powers--why marvel ye, that ye should find that creature also possessed of mingled experience, greatly rejoicing, and yet at the same time, "in heaviness through manifold temptations."
 
@@ -39,15 +39,15 @@ Again, you will see another reason. The apostle says that we are "elect through 
 
 But the great and cheering comfort of the apostle is, that we are elect unto an inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for us. And here, brethren, is the grand comfort of the Christian. When the child of God is sore-stricken and much depressed, the sweet hope, that living or dying, there is an inheritance incorruptible, reserved in heaven for him, may indeed make him greatly rejoice. He is drawing near the gates of death, and his spirit is in heaviness, for he has to leave behind him all his family and all that life holds dear. Besides, his sickness brings upon him naturally a depression of spirit. But you sit by his bedside, and you begin to talk to him of the
 
-> "Sweet fields beyond the swelling flood,  
-> Arrayed in living green."  
+> Sweet fields beyond the swelling flood,    
+> Arrayed in living green.    
 
 You tell him of Canaan on the other side the Jordan--of the land that floweth with milk and honey--of the Lamb in the midst of the throne, and of all the glories which God hath prepared for them that love him; and you see his dull leaden eye light up with seraphic brightness, he shakes off his heaviness, and he begins to sing,
 
-> "On Jordan's stormy banks I stand,  
-> And cast a wishful eye,  
-> To Canaan's fair and happy land,  
-> Where my possessions lie"  
+> On Jordan's stormy banks I stand,    
+> And cast a wishful eye,    
+> To Canaan's fair and happy land,    
+> Where my possessions lie    
 
 This makes him greatly rejoice; and if to that you add that possibly before he has passed the gates of death his Master may appear--if you tell him that the Lord Jesus Christ is coming in the clouds of heaven, and though we have not seen him yet believing in him we rejoice with joy unspeakable and full of glory, expecting the second advent--if he has grace to believe in that sublime doctrine, he will be ready to clap his hands upon his bed of weariness and cry, "Even so, Lord Jesus, come quickly! come quickly!"
 

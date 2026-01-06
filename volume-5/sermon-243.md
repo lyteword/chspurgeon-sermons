@@ -2,8 +2,8 @@
 
 Sermon No. 243 - Delivered on Sabbath Morning, March 20th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Strenghten ye the weak hands and confirm the feeble knees."  
-> Isaiah 35:8.  
+> Strenghten ye the weak hands and confirm the feeble knees.    
+> Isaiah 35:8.    
 
 IT IS THE DUTY of all men to be careful of the sons of sorrow. There be some who from their very birth are marked by melancholy as her own. The silent shades of sorrow are their congenial haunts; the glades of the forest of grief are the only places where their leaf can flourish. Others there are who through some crushing misfortune are brought so low that they never hold up their heads again, but go from that time forth mourning to their graves. Some there be, again, who disappointed in their early youth, either in some fond object of their affections, or else in some project of their young ambition, never can dare to face the world, but shrink from contact with their fellows, even as the sensitive plant curls up its tendrils at the touch. In all flocks there must be lambs, and weak and wounded sheep; and among the flock of men, it seems that there must necessarily be some who should more than others prove the truth of Job's declaration, "man is born to trouble even as the sparks fly upwards." It is the duty then of those of us who are more free than others from despondency of spirit, to be very tender to these weak ones. Far be it from the man of courageous disposition, of stern resolve, and of unbending purpose, to be hard towards those who are timid and despairing. If we have a lion-like spirit, let us not imitate the king of beasts in his cruelty to those timid fallow deer that fly before him, but let us place out strength at their service for their help and protection. Let us with downy fingers bind up the wounded heart; with oil and wine let us nourish their fainting spirits. 
 

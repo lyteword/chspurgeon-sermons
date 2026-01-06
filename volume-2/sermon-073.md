@@ -2,8 +2,8 @@
 
 Sermon No. 73 - Delivered on Sabbath Morning, March 30, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "When Jesus came to the place, he looked up, and saw him, and said unto him, Zaccheus, make haste and come down; for to-day I must abide at thy house."  
-> Luke 19:5.  
+> When Jesus came to the place, he looked up, and saw him, and said unto him, Zaccheus, make haste and come down; for to-day I must abide at thy house.    
+> Luke 19:5.    
 
 Notwithstanding our firm belief that you are in the main well instructed in the doctrines of the everlasting gospel, we are continually reminded in our conversation with young converts, how absolutely necessary it is to repeat our former lessons, and repeatedly assert and prove over and over again those doctrines which lie at the basis of our holy religion. Our friends, therefore, who have many years ago been taught the great doctrine of effectual calling, will believe that whilst I preach very simply this morning, the sermon is intended for those who are young in the fear of the Lord, that they may better understand this great starting point of God in the heart, the effectual calling of men by the Holy Spirit. I shall use the case of Zaccheus as a great illustration of the doctrine of effectual calling. You will remember the story. Zaccheus had a curiosity to see the wonderful man Jesus Christ, who was turning the world upside down, and causing an immense excitement in the minds of men. We sometimes find fault with curiosity, and say it is sinful to come to the house of God from that motive; I am not quite sure that we should hazard such an assertion. The motive is not sinful, though certainly it is not virtuous; yet it has often been proved that curiosity is one of the best allies of grace. Zaccheus, moved by this motive, desired to see Christ; but there were two obstacles in the way: first, there was such a crowd of people that he could not get near the Saviour; and again, he was so exceedingly short in stature that there was no hope of his reaching over people's heads to catch a glimpse of him. What did he do? He did as the boys were doing--for the boys of old times were no doubt just like the boys of the present age, and were perched up in the boughs of the tree to look at Jesus as he passed along. Elderly man though he is, Zaccheus jumps up, and there he sits among the children. 
 
@@ -27,10 +27,10 @@ But why did Christ do as he did? Because he would give Zaccheus an affectionate 
 
 Again, it was not only an affectionate call, but it was an abiding call. "To-day I must abide at thy house." A common call is like this: "To-day I shall walk in at thy house at one door, and out at the other." The common call which is given by the gospel to all men is a call which operates upon them for a time, and then it is all over; but the saving call is an abiding call. When Christ speaks, he does not say, "Make haste, Zaccheus, and come down, for I am just coming to look in;" but "I must abide in thy house; I am coming to sit down to eat and drink with thee; I am coming to have a meal with thee; to-day I must abide in thy house." "Ah!" says one, "you cannot tell how many times I have been impressed, sir, I have often had a series of solemn convictions, and I thought I really was saved, but it all died away; like a dream, when one awaketh, all hath vanished that he dreamed, so was it with me." Ah! but poor soul, do not despair. Dost thou feel the strivings of Almighty grace within thine heart bidding thee repent to-day? If thou dost, it will be an abiding call. If it is Jesus at work in thy soul, he will come and tarry in thine heart, and consecrate thee for his own for ever. He says, "I will come and dwell with thee, and that for ever. I will come and say,
 
-> Here I will make my settled rest,  
-> No more will go and come;  
-> No more a stranger or a guest,  
-> But master of this home."  
+> Here I will make my settled rest,    
+> No more will go and come;    
+> No more a stranger or a guest,    
+> But master of this home.    
 
 "Oh!" say you, "that is what I want; I wan an abiding call, something that will last; I do not want a religion that will wash out, but a fast-colour religion." Well, that is the kind of call Christ gives. His ministers cannot give it; but when Christ speaks, he speaks with power, and says, "Zaccheus, make haste, and come down; for to-day I must abide at thy house."
 

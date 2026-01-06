@@ -2,13 +2,13 @@
 
 Sermon No. 124 - Delivered on Sabbath Morning, March 29, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Surely he shall deliver thee from the snare of the fowler."  
-> Psalm 91:3.  
+> Surely he shall deliver thee from the snare of the fowler.    
+> Psalm 91:3.    
 
 If Moses wrote this Psalm he might represent the fowler as being in his case the king of Egypt, who sought to slay him, or the Amalekites, who pounced upon Israel in the plain, when they little expected it. If David penned it, he might have compared Saul to the fowler, for he himself says, he was hunted like a partridge upon the mountains. But we believe, if the verse be applicable to either of those cases, it was intended by the Psalmist not to have a private interpretation, but to be applicable to all time; and we believe it is spoken concerning that arch-enemy of souls, the great deceiver, Satan, of whom we just now sang,
 
-> "Satan, the fowler, who betrays  
-> Unguarded souls a thousand ways."  
+> Satan, the fowler, who betrays    
+> Unguarded souls a thousand ways.    
 
 "The prince of the power of this world, the spirit which still worketh in the children of disobedience," is like a fowler, always attempting to destroy us. It was once said by a talented writer, that the old devil was dead, and that there was a new devil now; by which he meant to say, that the devil of old times was a rather different devil from the deceiver of these times. We believe that it is the same evil spirit; but there is a difference in his mode of attack. The devil of five hundred years ago was a black and grimy thing well portrayed in our old pictures of that evil spirit. He was a persecutor, who cast men into the furnace, and put them to death for serving Christ. The devil of this day is a well-spoken gentleman: he does not persecute--he rather attempts to persuade and to beguile. He is not now so much the furious Romanist, so much as the insinuating unbeliever, attempting to overturn our religion, while at the same time he pretends he would make it more rational, and so more triumphant. He would only link worldliness with religion; and so he would really make religion void, under the cover of developing the great power of the gospel, and bringing out secrets which our forefathers had never discovered. Satan is always a fowler. Whatever his tactics may be, his object is still the same--to catch men in his net. Men are here compared to silly, weak birds, that have not skill enough to avoid the snare, and have not strength enough to escape from it. Satan is the fowler; he has been so and is so still; and if he does not now attack us as the roaring lion, roaring against us in persecution, he attacks us as the adder, creeping silently along the path, endeavoring to bite our heel with his poisoned fangs, and weaken the power of grace and ruin the life of godliness within us. Our text is a very comforting one to all believers, when they are beset by temptation. "Surely he shall deliver them from the snare of the fowler."
 
@@ -38,23 +38,23 @@ By the grace of God, say what you please against me, I will never answer you, bu
 
 And now, ere I close this point, let me observe once more, the fowler, when he is determined to take his birds, uses all these arts at once, perhaps, and besets the bird on every side. So, you will remember, beloved, it is with you. Satan will not leave a stone unturned to ruin your soul for ever.
 
-> "Amidst a thousand snares I stand,  
-> Upheld and guarded by thy hand."  
+> Amidst a thousand snares I stand,    
+> Upheld and guarded by thy hand.    
 
 Old Master Quarles says,
 
-> "The close pursuer's busy hands do plant  
-> Snares in thy substance; snares attend thy want;  
-> Snares in thy credit; snares in thy disgrace;  
-> Snares in thy high estate; snares in thy base;  
-> Snares tuck thy bed; and snares surround thy board;  
-> Snares watch thy thoughts; and snares attach thy words;  
-> Snares in thy quiet; snares in thy commotion;  
-> Snares in thy diet; snares in thy devotion;  
-> Snares lurk in thy resolves, snares in thy doubt;  
-> Snares lie within thy heart, and snares without;  
-> Snares are above thy head, and snares beneath;  
-> Snares in thy sickness, snares are in thy death."  
+> The close pursuer's busy hands do plant    
+> Snares in thy substance; snares attend thy want;    
+> Snares in thy credit; snares in thy disgrace;    
+> Snares in thy high estate; snares in thy base;    
+> Snares tuck thy bed; and snares surround thy board;    
+> Snares watch thy thoughts; and snares attach thy words;    
+> Snares in thy quiet; snares in thy commotion;    
+> Snares in thy diet; snares in thy devotion;    
+> Snares lurk in thy resolves, snares in thy doubt;    
+> Snares lie within thy heart, and snares without;    
+> Snares are above thy head, and snares beneath;    
+> Snares in thy sickness, snares are in thy death.    
 
 There is not a place beneath which a believer walks that is free from snares. Behind every tree there is the Indian with his barbed arrow; behind every bush there is the lion seeking to devour; under every piece of grass there lieth the adder. Everywhere they are. Let us be careful; let us gird ourselves with the might of God's omnipotence, and then shall his Holy Spirit keep us, so that we shall tread on the lion and the adder, the young lion and the dragon shall we trample under our feet, and we shall be "delivered from the snare of the fowler."
 
@@ -72,15 +72,15 @@ And I have noticed one more very singular thing. Sometimes I, myself, have been 
 
 But the second thought was, that God delivers his people, even when they get into the snare. Alas! my hearer, you and I know something about the net; we have been inside it, we have; we have not only seen it spread, we have been in its folds. We know something about the cage, for we have, unfortunately, been in the cage ourselves, even since we have known the Lord. The fowler's hand has been upon our neck; it has only been the sovereign grace of God that has prevented him from utterly destroying us. What a blessed thing it is, that if the believer shall, in an evil hour, come into the net, yet God will bring him out of it! Poor Christian and Hopeful got into the fowler's net when they entered into the castle of Giant Despair; but the key of promise picked the lock, and they escaped. They were in the fowler's net, too, when Flatterer cast a net over them, and left them in the lane; but there came one who, after he had beaten them full sore, took the net off, and then they went on their way, better men than they were before they were in the net. I know one who is in the net now. Some bird, one of God's own ones too, has been taken in the snare, and is now groaning and crying out, because, alas! alas! he has sinned. I have a person here, a good man, a professor of religion, and a truly worthy one! but alas! he has sinned, and at this hour the tears are in his eyes, and he is saying,
 
-> "The tumult of my thoughts  
-> Doth but increase my woe;  
-> My spirit languishes, my heart  
-> Is desolate and low."  
+> The tumult of my thoughts    
+> Doth but increase my woe;    
+> My spirit languishes, my heart    
+> Is desolate and low.    
 
-> "Turn, turn thee to my soul;  
-> Bring thy salvation near;  
-> When will thy hand release my feet  
-> Out of the deadly snare?"  
+> Turn, turn thee to my soul;    
+> Bring thy salvation near;    
+> When will thy hand release my feet    
+> Out of the deadly snare?    
 
 O backslider, be cast down, but do not despair; God will restore thee yet. Wanderer though thou hast been, hear what he says! "Return, O backsliding children; I will have mercy upon you." But you say you can not return. Then here is still a promise--"Surely he shall deliver thee from the snare of the fowler." Thou shalt yet be brought out from all the evil into which thou hast fallen, and though thou shalt never cease to repent thy ways even to thy dying day, yet he that hath loved thee will not cast thee away; he will receive thee; he will admit thee into his dwelling-place, and will even now restore thee to the number of his people, and give thee joy and gladness, that the bones which he has broken may rejoice. "Surely he shall deliver thee from the snare of the fowler."
 
@@ -96,16 +96,16 @@ And now, to conclude, I am to dwell for a moment or two upon that word "SURELY."
 
 Now, it says, "surely he shall deliver thee." Why? First, because he has promised to do it; and God's promises are bonds that never yet were dishonored. If he hath said he will, he will. Secondly, because Christ Jesus hath taken an oath that he will do it. In ages long gone by Christ Jesus became the shepherd of the sheep, and the surety of them too. "If any of them perish," said he, "at my hand, thou shalt require it;" and, therefore, because Christ is responsible, because he is the heavenly sponsor for all God's people, they must be kept: for otherwise Christ's bond were forfeited, and his oath were null and void. They must be kept, again, because otherwise the union that there is between all of them and Christ would not be a real one. Christ and his church are one--one body; but if any of the members of my body were cut off, I should be maimed, and if Christ could lose one of his children he would be a maimed Christ. "We are his body, the fullness of him that filleth all in all." If, then, the whole church were not gathered in, Christ would be an incomplete Christ, seeing he would want his fullness. They must all be saved, for God the Father has determined that they shall be; nay, the Son has sworn they shall be; and God the Holy Spirit vouches for it they shall be. None of God's people shall be cast away, or else the Bible is not true. The whole stability of the covenant rest in their final perseverance. The whole covenant of grace rests upon this--
 
-> "He shall present our souls,  
-> Unblemished and complete,  
-> Before the glory of his face,  
-> With joys divinely great."  
+> He shall present our souls,    
+> Unblemished and complete,    
+> Before the glory of his face,    
+> With joys divinely great.    
 
 And therefore they must be preserved out of the snare of the fowler, because otherwise the covenant would be null and void. If one should perish the oath would be broken; if one should be cast away the covenant would be void; and therefore they must be kept secure.
 
-> "His honor is engaged to save  
-> the meanest of his sheep;  
-> All that his heavenly Father gave,  
-> His hands securely keep."  
+> His honor is engaged to save    
+> the meanest of his sheep;    
+> All that his heavenly Father gave,    
+> His hands securely keep.    
 
 I have no time to enlarge upon that subject, which is big with glory, and might afford a topic for many discourses. I now close up by saying, Men and brethren, is this promise yours? "Surely he shall deliver thee." Are you the men? "How can I tell?" you say. Do you believe on the Lord Jesus Christ? Do you, as a guilty sinner, cast yourself wholly on the blood and righteousness of the immaculate Redeemer? I do not ask you whether you are a Wesleyan, a Churchman, a Baptist, an Independent, or a Presbyterian; my only question is, Are you born again? Have you passed from death unto life? Are you "a new creature in Christ Jesus?" Is all your trust put in the Lord Jesus Christ? Has his life become your model, and does his Spirit dwell in your mortal body? If so, peace be unto you; this promise is yours. You may have been the worst of men; but if you have faith in Christ those sins are all forgiven, and you may take this promise to be yours for ever. But if you are self-righteous, self-sufficient, ungodly, careless, worldly, there is no such promise for you; you are in the snare, you shall be there, and you shall perish, unless you repent; for it is written, "Except ye repent ye shall all likewise perish." May God save you from perishing, by giving you an interest in the blood of Christ; and to the Father, the Son, and the Holy Ghost, be glory for ever and ever.

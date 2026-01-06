@@ -2,8 +2,8 @@
 
 Sermon No. 85 - Delivered on Sabbath Evening, June 15, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Thou God seest me."  
-> Genesis 16:13.  
+> Thou God seest me.    
+> Genesis 16:13.    
 
 There are more eyes fixed on man than he wots of: he sees not as he is seen. He thinks himself obscure and unobserved, but let him remember that a cloud on witnesses hold him in full survey. Wherever he is, at every instant, there are beings whose attention is riveted by his doings, and whose gaze is constantly fixed by his actions. Within this Hall, I doubt not, there are myriads of spirits unseen to us--spirits good and spirits evil; upon us to-night the eyes of angels rest: attentively those perfect spirits regard our order; they hear our songs; they observe our prayers; it may be they fly to heaven to convey to their companions news of any sinners who are born of God, for there is joy in the presence of the angels of God over one sinner that repenteth. Millions of spiritual creatures walk this earth, both when we wake and when we sleep; midnight is peopled with shadows unseen, and daylight hath its spirits too. The prince of the power of the air, attended by his squadron of evil spirits, flits through the ether oft; evil spirits watch our halting every instant, while good spirits, battling for the salvation of God's elect, keep us in all our ways and watch over our feet, lest at any time we dash them against a stone. Hosts of invisible beings attend on every one of us at different periods of our lives. We must remember, also, that not only do the spirits of angels, elect or fallen, look on us, but "the spirits of the just made perfect" continually observe our conversation. We are taught by the Apostle that the noble army of martyrs, and the glorious company of confessors, are "witnesses" of our race to heaven, for he says, "seeing, then, that we are compassed about with so great a cloud of witnesses, let us lay aside every weight and the sin which doth so easily beset us." From yon blue heaven the eyes of the glorified look down on us; there the children of God are sitting on their starry thrones, observing whether we manfully uphold the banner around which they fought; they behold our valour, or they detect our cowardice; and they are intent to witness our valiant deeds of noble daring, or our ignominious retreat in the day of battle.
 
@@ -17,23 +17,23 @@ This may be easily proved, even from the nature of God. It were hard to suppose 
 
 Yet, further, we are sure that God must see us, for we are taught in the Scriptures that God is everywhere, and if God be everywhere, what doth hinder him from seeing all that is done in every part of his universe? God is here: I do not simply live near him, but "in him I live, and move, and have my being." There is not a particle of this mighty space which is not filled with God: go forth into the pure air, and there is not a particle of it where God is not. In every portion of this earth whereon I tread, and the spot whereon I moved, there is God.
 
-> "Within thy circling power I stand;  
-> On every side I find thy hand:  
-> Awake, asleep, at home, abroad,  
-> I am surrounded still with God."  
+> Within thy circling power I stand;    
+> On every side I find thy hand:    
+> Awake, asleep, at home, abroad,    
+> I am surrounded still with God.    
 
 Take the wings of the morning and fly beyond the most distant star, but God is there. God is not a being confined to one place, but he is everywhere; he is there, and there, and there; in the deepest mine man ever bored; in the unfathomable caverns of the ocean; in the heights, towering and lofty; in the gulfs that are deep, which fathom can never reach; God is everywhere. I know from his own words that he is a God who filleth immensity; the heavens are not wide enough for him; he graspeth the sun with one hand and the moon with the other; he stretcheth himself through the unnavigated ether, where the wing of seraph hath never been flapped, there is God; and where the solemnity of silence has never been broken by the son of Cherub, there is God. God is everywhere. Conceive space, and God and space are equal. Well, then, if God be everywhere, how can I refrain from believing that God sees me wherever I am? He doth not look upon me from a distance: if he did, I might screen myself beneath the shades of night; but he is here, close by my side, and not by me only, but in me; within this heart; where these lungs beat; or where my blood gushes through my veins; or where this pulse is beating, like a muffled drum, my march to death; God is there: within this mouth; in this tongue; in these eyes; in each of you God dwells; he is within you, and around you; he is beside you, and behind, and before. Is not much knowledge too wonderful you? Is it not high, and you cannot attain unto it? I say, how can you resist the doctrine, which comes upon you like a flash or lightning, that if God be everywhere he must see everything, and that therefore it is a truth, "Thou God seest me."
 
 But, lest any should suppose that God may be in a place, and yet slumbering, let me remind him that in every spot to which he can travel, there is, not simply God, but also God's activity. Wherever I go I shall find, not a slumbering God, but a God busy about the affairs of this world. Take me to the green sward, and pleasant pasture--why, every little blade of grass there has God's hand in it, making it grow; and every tiny daisy, which a child likes to pluck, looks up with its little eye, and says, "God is in me, circulating my sap, and opening my little flower." Go where you will through this London, where vegetation is scarcely to be found, look up yonder and see those rolling stars; God is active there: it is his hand that wheels along the stars, and moves the moon, in her nightly course. But if there be neither stars nor moon, there are those clouds, heavy with darkness, like the cars of night, who steers them across the sea of azure? Doth not the breath of God blowing upon them drive them along the heavens? God is everywhere, not as a slumbering God, but as an active God. I am upon the sea; and there I see God making the everlasting pulse of nature beat in constant ebbs and flows. I am in the pathless desert, but above me screams the vulture, and I see God winging the wild bird's flight. I am shut up in a hermitage; but an insect drops from its leaf, and I see in that insect, life which God preserves and sustains; yea, shut me out from the animate creation, and put me on the barren rock, where moss itself cannot find a footing; and I shall there discern my God bearing up the pillars of the universe, and sustaining that bare rock as a part of the colossal foundation whereon he hath built the world.
 
-> "Where'er we turn our gazing eyes,  
-> Thy radiant footsteps shine;  
-> Ten thousand pleasing wonders rise,  
-> And speak their source divine.  
-> The living tribes of countless forms,  
-> in earth, and sea, and air,  
-> The meanest files, the smallest worms,  
-> Almighty power declare."  
+> Where'er we turn our gazing eyes,    
+> Thy radiant footsteps shine;    
+> Ten thousand pleasing wonders rise,    
+> And speak their source divine.    
+> The living tribes of countless forms,    
+> in earth, and sea, and air,    
+> The meanest files, the smallest worms,    
+> Almighty power declare.    
 
 Ye shall see God everywhere: if ye see him not around you, look within you; and is he not there? Is not your blood now flowing through every portion of your body, to and fro your heart? And is not God there active? Do you not know that every pulse you beat needs a volition of Deity as its permit, and yet more, needs an exertion of Divine power as its cause? Do you not know that every breath you breathe needs Deity for its inspiration and expiration, and that you must die if God withdraw that power? If we could look within us, there are mighty works going on in this mortal fabric--the garment of the soul--which would astonish you, and make you see, indeed, that God is not asleep, but that he is active and busy. There is a working God everywhere, a God with his eyes open everywhere, a God with his hands at work everywhere; a God doing something, not a God slumbering, but a God labouring. Oh! sirs, does not the conviction flash upon your mind with a brightness, against which you cannot shut your eyes, that since God is everywhere, and everywhere active, it follows, as a necessary and unavoidable consequence, that he must see us, and know all our actions and our deeds?
 
@@ -47,14 +47,14 @@ Mark, God sees you--selecting any one out of this congregation--he sees you, he 
 
 In the next place God sees you entirely. He does not merely note your actions; he does not simply notice what is the appearance of your countenance; he does not merely take into his eyesight what your posture may be; but remember, God sees what you are thinking of; he looks within. God has a window in every man's heart, through which he looks; he does not want you to tell him what you are thinking about--he can see that, he can read right through you. Do you not know that God can read what is written on the rocks at the bottom of the ocean, even though ten thousands fathoms of dark water roll above? And I tell you he can read every word that is in your breasts; he knows every thought, every imagination, every conception, yea every unformed imagination, the thought scarce shot from the bow, reserved in the quiver of the mind; he sees it all, every particle, every atom of it.
 
-> "My thoughts, scarce struggling into birth,  
-> Great God! are known to thee:  
-> Abroad, at home, still I'm enclosed  
-> With thine immensity.  
-> "Behind I glance, and thou art there:  
-> Before me, shines thy name;  
-> And tis thy strong almighty hand  
-> Sustains my tender frame."  
+> My thoughts, scarce struggling into birth,    
+> Great God! are known to thee:    
+> Abroad, at home, still I'm enclosed    
+> With thine immensity.    
+> "Behind I glance, and thou art there:    
+> Before me, shines thy name;    
+> And tis thy strong almighty hand    
+> Sustains my tender frame.    
 
 Can you appropriate that thought? From the crown of your head to the sole of your foot, God is examining you now; his scalpel is in your heart, his lancet in your breast. He is searching your heart and trying your reins; he knows you behind and before. "Thou God seest me;" thou seest me entirely.
 
@@ -68,15 +68,15 @@ Now I come to DIFFERENT INFERENCES for different persons, to serve different pur
 
 First, to the prayerful. Prayerful man, prayerful woman, here is a consolation--God sees you: and if he can see you, surely he can hear you. Why, we can often hear people, when we cannot see them. If God is so near to us, and if his voice is like the thunder, sure his ears are as good as his eyes, and he will be sure to answer us. Perhaps you cannot say a word when you pray. Never mind; God does not want to hear; he can tell what you mean even by seeing you. "There," says the Lord, "is a child of mine in prayer. He says not a word; but do you see that tear rolling down his cheek? do you hear that sigh?" Oh! mighty God, thou canst see both tear and sigh; thou canst read desire when desire hath not clothed itself in words. The naked wish God can interpret; he needs us not to light the candle of our desires with language; he can see the candle ere it is lit.
 
-> "He knows the words we mean to speak,  
-> When from our lips they cannot break,"  
+> He knows the words we mean to speak,    
+> When from our lips they cannot break,    
 
 by reason of the anguish of our spirit. He knows the desire, when words stagger under the weight of it; he knows the wish when language fails to express it. "Thou God seest me." Ah, God, when I cannot pray with words, I will throw myself flat on my face, and I will groan my prayer; and if I cannot groan it I will sigh it; and if I cannot sigh it I will wish it: and when these eye-strings break, and when death has sealed these lips, I will enter heaven with a prayer, which thou wilt not hear but which thou wilt see--the prayer of my inmost spirit, when my heart and my flesh fail me, that God may be the strength of my life and portion for ever. There is comfort for you, you praying ones, that God sees you. That is enough; if you cannot speak he can see you.
 
 I have given a word for the prayerful; now a word for the careful. Some here are very full of care, and doubts, and anxieties, and fears. "Oh! sir," you say, "if you could come to my poor house, you would not wonder that I should feel anxious. I have had to part with much of my little furniture to provide myself with living; I am brought very low; I have not a friend in London; I am alone, alone in the wide world." Stop, stop, sir! you are not alone in the world; there is at least one eye regarding you; there is one hand that is ready to relieve you. Don't give up in despair. If your case be ever so bad, God can see your care, your troubles, and your anxieties. To a good man it is enough to see destitution to relieve it; and for God it is enough to see the distresses of his family at once to supply their wants. If you were lying wounded on the battle-field, if you could not speak, you know right well your comrades who are coming by with an ambulance will pick you up, if they do but see you; and that is enough for you. So if you are lying on the battle-field of life, God sees you; let that cheer you: he will relieve you; for he only needs to look at the woes of his children at once to relieve them. Go on then; hope yet; in night's darkest hour, hope for a brighter morrow. God sees these, whatever thou art doing;
 
-> "He knows thy cares, thy tears, thy sighs;  
-> He shall lift up thy head."  
+> He knows thy cares, thy tears, thy sighs;    
+> He shall lift up thy head.    
 
 And now a word to the slandered. There are some of us who come in for a very large share of slander. It is very seldom that the slander market is much below par; it usually runs up at a very mighty rate; and there are persons who will take shares to any amount. If men could dispose of railway stock as they can of slander, those who happen to have any scrip here would be rich enough by to-morrow at twelve o'clock. There are some who have a superabundance of that matter; they are continually hearing rumours of this, that, and the other; and there is one fool or another who has not brains enough to write sense, nor honesty sufficient to keep him to the truth, who, therefore, writes the most infamous libels upon some of God's servants, compared with whom he himself is nothing, and whom for very envy he chooses to depreciate. Well, what matters it? Suppose you are slandered; here is a comfort: "Thou God seest me." They say that such-and-such is your motive, but you need not answer them; you can say, "God knows that matter." You are charged with such-and-such a thing of which you are innocent; your heart is right concerning the deed, you have never done it: well, you have no need to battle for your reputation; you need only point your finger to the sky, and say, "There is a witness there who will right me at last--there is a Judge of all the earth, whose decision I am content to wait; his answer will be a complete exoneration of me, and I shall come out of the furnace, like gold seven times purified." Young men, are you striving to do good, and do others impute wrong motives to you? Do not be particular about answering them. Just go straight on, and your life will be the best refutation of the calumny. David's brethren said that in his pride and the naughtiness of his heart he had come to see the battle. 
 

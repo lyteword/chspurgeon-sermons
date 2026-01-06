@@ -2,8 +2,8 @@
 
 Sermon No. 37 - Delivered on Sabbath Morning, August 26, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound."  
-> Romans 5:20.  
+> Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound.    
+> Romans 5:20.    
 
 There is no point upon which men make greater mistakes than upon the relation which exists between the law and the gospel. Some men put the law instead of the gospel: others put the gospel instead of the law; some modify the law and the gospel, and preach neither law nor gospel: and others entirely abrogate the law, by bringing in the gospel. Many there are who think that the law is the gospel, and who teach that men by good works of benevolence, honesty, righteousness, and sobriety, may be saved. Such men do err. On the other hand, many teach that the gospel is a law; that it has certain commands in it, by obedience to which, men are meritoriously saved; such men err from the truth, and understand it not. A certain class maintain that the law and the gospel are mixed, and that partly by observance of the law, and partly by God's grace, men are saved. These men understand not the truth, and are false teachers. This morning I shall attempt--God helping me to show you what is the design of the law, and then what is the end of the gospel. The coming of the law is explained in regard to its objects: "Moreover the law entered, that the offence might abound." Then comes the mission of the gospel: "But where sin abounded, grace did much more abound."
 
@@ -43,22 +43,22 @@ When Moses smites the sinner he bruises and mangles him with the first blow, but
 
 Listen, O heavy laden, condemned sinner, while in my Master's name, I publish superabounding grace. Grace excels sin in its measure and efficacy. Though your sins are many, mercy hath many pardons. Though they excel the stars, the sands, the drops of dew in their number, one act of remission can cancel all. Your iniquity, though a mountain, shall be cast into the midst of the sea. Your blackness shall be washed out by the cleansing flood of your Redeemer's gore. Mark! I said YOUR sins, and I meant to say so, for if you are now a law-condemned sinner, I know you to be a vessel of mercy by that very sign. Oh, hellish sinners, abandoned profligates, off-casts of society, outcasts from the company of sinners themselves, if ye acknowledge your iniquity, here is mercy, broad, ample, free, immense, INFINITE. Remember this O sinner,--
 
-> "If all the sins that men have done,  
-> In will, in word, in thoughts, in deed,  
-> Since words were made, or time began,  
-> Were laid on one poor sinner's head.  
-> The stream of Jesus' precious blood  
-> Applied, removes the dreadful load."  
+> If all the sins that men have done,    
+> In will, in word, in thoughts, in deed,    
+> Since words were made, or time began,    
+> Were laid on one poor sinner's head.    
+> The stream of Jesus' precious blood    
+> Applied, removes the dreadful load.    
 
 Yet again, grace excelleth sin in another thing. Sin shows us its parent, and tells us our heart is the father of it, but grace surpasseth sin there, and shows the Author of grace--the King of kings. The law traces sin up to our heart; grace traces its own origin to God, and
 
-> "In his sacred breast I see  
-> Eternal thoughts of love to me."  
+> In his sacred breast I see    
+> Eternal thoughts of love to me.    
 
 O Christian, what a blessed thing grace is, for its source is in the everlasting mountains. Sinner, if you are the vilest in the world, if God forgives you this morning, you will be able to trace your pedigree to him, for you will become one of the sons of God, and have him always for your Father. Methinks I see you a wretched criminal at the bar, and I hear mercy cry, "Discharge him!" He is pallid, halt, sick, maimed--heal him. He is of a vile race--lo, I will adopt him into my family. Sinner! God taketh thee for his son. What, though thou art poor, God says, "I will take thee to be mine for ever. Thou shalt be my heir. There is thy fair brother. In ties of blood he is one with thee--Jesus is thy actual brother!" Yet how came this change? Oh! is not that an act of mercy? "Grace did much more abound."
 
-> "Grace hath put me in the number  
-> Of the Saviour's family."  
+> Grace hath put me in the number    
+> Of the Saviour's family.    
 
 Grace outdoes sin, for it lifts us higher than the place from which we fell.
 
@@ -68,19 +68,19 @@ And yet, once more. Just as sin makes us sick, and grievous, and sad, so does gr
 
 And now, lastly, poor sinner, has sin made thee unfit for heaven? Grace shall render thee a fit companion for seraphs and the just made perfect. Thou who art to-day lost and destroyed by sin, shalt one day find thyself with a crown upon thy head, and a golden harp in thine hand, exalted to the throne of the Most High. Think, O drunkard, if thou repentest, there is a crown laid up for thee in heaven. Ye guiltiest, most lost and depraved, are ye condemned in your conscience by the law? Then I invite you, in my Master's name, to accept pardon through his blood. He suffered in your stead, he has atoned for your guilt and you are acquitted. Thou art an object of his eternal affection, the law is but a schoolmaster, to bring thee to Christ. Cast thyself on him. Fall into the arms of saving grace. No works are required, no fitness, no righteousness, no doings. Ye are complete in him who said, "It is finished."
 
-> "Ye debtors whom he gives to know  
-> That you ten thousand talents owe,  
-> When humble at his feet you fall,  
-> Your gracious God forgives them all.  
-> "Slaves, that have borne the heavy chain  
-> Of sin, and hell's tyrannic reign,  
-> To liberty assert your claim,  
-> And urge the great Redeemer's name.  
-> "The rich inheritance of heaven,  
-> Your joy, your boast, is freely giv'n;  
-> Fair Salem your arrival waits,  
-> With golden streets, and pearly gates.  
-> "Her blest inhabitants no more  
-> Bondage and poverty implore!  
-> No debt, but love immensely great;  
-> Their joy still rises with the debt."  
+> Ye debtors whom he gives to know    
+> That you ten thousand talents owe,    
+> When humble at his feet you fall,    
+> Your gracious God forgives them all.    
+> "Slaves, that have borne the heavy chain    
+> Of sin, and hell's tyrannic reign,    
+> To liberty assert your claim,    
+> And urge the great Redeemer's name.    
+> "The rich inheritance of heaven,    
+> Your joy, your boast, is freely giv'n;    
+> Fair Salem your arrival waits,    
+> With golden streets, and pearly gates.    
+> "Her blest inhabitants no more    
+> Bondage and poverty implore!    
+> No debt, but love immensely great;    
+> Their joy still rises with the debt.    

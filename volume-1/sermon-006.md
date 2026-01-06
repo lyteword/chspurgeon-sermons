@@ -2,8 +2,8 @@
 
 Sermon No. 6 - Delivered on Sabbath Morning, February 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory"  
-> Matthew 12:20.  
+> A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory    
+> Matthew 12:20.    
 
 Babbling fame ever loves to talk of one man or another. Some there be whose glory it trumpets forth, and whose honor it extols above the heavens. Some are her favorites, and their names are carved on marble, and heard in every land, and every clime. Fame is not an impartial judge; she has her favorites. Some men she extols, exalts, and almost deifies; others, whose virtues are far greater, and whose characters are more deserving of commendation, she passes by unheeded, and puts the finger of silence on her lips. You will generally find that those persons beloved by fame are men made of brass or iron, and cast in a rough mould. Fame caresseth Caesar, because he ruled the earth with a rod of iron. Fame loves Luther, because he boldly and manfully defied the Pope of Rome, and with knit brow dared laugh at the thunders of the Vatican. Fame admires Knox; for he was stern, and proved himself the bravest of the brave. Generally, you will find her choosing out the men of fire and mettle, who stood before their fellow-creatures fearless of them; men who were made of courage; who were consolidated lumps of fearlessness, and never knew what timidity might be. But you know there is another class of persons equally virtuous, and equally to be esteemed--perhaps even more so--whom fame entirely forgets. You do not hear her talk of the gentle-minded Melancthon--she says but little of him--yet he did as much, perhaps, in the Reformation, as even the mighty Luther. You do not hear fame talk much of the sweet and blessed Rutherford, and of the heavenly words that distilled from his lips; or of Archbishop Leighton, of whom it was said, that he was never out of temper in his life. She loves the rough granite peaks that defy the storm-cloud: she does not care for the more humble stone in the valley, on which the weary traveller resteth; she wants something bold and prominent; something that courts popularity; something that stands out before the world. She does not care for those who retreat in shade. 
 
@@ -31,17 +31,17 @@ Thus, then, my dear friends, I have tried to find out the parties for whom this 
 
 Now I mount a step higher--to DIVINE COMPASSION.
 
-> "The bruised reed he will not break, the smoking flax he will not quench."  
+> The bruised reed he will not break, the smoking flax he will not quench.    
 
 Notice what is first of all stated, and then let me tell you that Jesus Christ means a great deal more than he says. First of all, what does he say? He says plainly enough that he will not break the bruised reed. There is a bruised reed before me--a poor child of God under a deep sense of sin. It seems as if the whip of the law would never stop. It keeps on, lash, lash, lash; and though you say, "Lord, stop it, and give me a little respite," still comes down the cruel thong, lash, lash, lash. You feel your sins. Ah! I know what you are saying this morning: "If God continues this a little longer my heart will break: I shall perish in despair; I am almost distracted by my sin; if I lie down at night I cannot sleep; it appears as if ghosts were in the room--ghosts of my sins--and when I awake at midnight, I see the black form of death staring at me, and saying, Thou art my prey, I shall have thee;' while hell behind seems to burn." Ah! poor bruised reed, he will not break you; conviction shall be too strong; it shall be great enough to melt thee, and to make thee go to Jesus' feet; but it shall not be strong enough to break thy heart altogether, so that thou shouldst die. Thou shalt never be driven to despair; but thou shalt be delivered; thou shalt come out of the fire, poor bruised reed, and shalt not be broken.
 
 So there is a backslider here this morning; he is like the smoking flax. Years gone by you found such happiness in the ways of the Lord, and such delight in his service, that you said, 
 
-> "There I would for ever stay.  
-> 'What peaceful hours I then enjoyed;  
-> How sweet their memory still!  
-> But they have left an aching void,  
-> The world can never fill.'"  
+> There I would for ever stay.    
+> 'What peaceful hours I then enjoyed;    
+> How sweet their memory still!    
+> But they have left an aching void,    
+> The world can never fill.'    
 
 You are smoking, and you think God will put you out. If I were an Arminian, I should tell you that he would; but being a believer in the Bible, and nothing else, I tell you that he will not quench you. Though you are smoking, you shall not die. Whatever your crime has been, the Lord says, "Return ye backsliding children of men, for I will have mercy upon you." He will not cast thee away, poor Ephraim; only come back to him--he will not despise thee, though thou hast plunged thyself in the mire and dirt, though thou art covered from head to foot with filthiness; come back, poor prodigal, come back, come back! Thy father calls thee. Hearken poor backslider! Come at once to him whose arms are ready to receive thee.
 
@@ -51,9 +51,9 @@ Now I want to say one or two things to Little-Faiths this morning. The little ch
 
 Now then little child of God, take that thought to thy soul. You see some men very prominent in Christ's cause--and it is very good that they should be--but they did not cost Jesus a farthing more than you did; he paid the same price for you that he paid for them. Recollect again, you are just as much a child of God as the greatest saint. Some of you have five or six children. There is one child of yours, perhaps, who is very tall and handsome, and has, moreover, gifts of mind; and you have another child who is the smallest of the family, perhaps has but little intellect and understanding. But which is the most your child? "The most!" you say; "both alike are my children, certainly, one as much as the other." And so, dear friends, you may have very little learning, you may be very dark about divine things, you may but "see men as trees walking," but you are as much the children of God as those who have grown to the stature of men in Christ Jesus. Then remember, poor tried saint, that you are just as much justified as any other child of God. I know that I am completely justified.
 
-> "His blood and righteousness  
-> My beauty are, my glorious dress.  
-> I want no other garments, save Jesus' doings, and his imputed righteousness."  
+> His blood and righteousness    
+> My beauty are, my glorious dress.    
+> I want no other garments, save Jesus' doings, and his imputed righteousness.    
 
 The boldest child of God wants no more; and I who am "less than the least of all saints," can be content with no less, and I shall have no less. O Ready-to-Halt, thou art as much justified as Paul, Peter, John the Baptist, or the loftiest saint in heaven. There is no difference in that matter. Oh! take courage and rejoice.
 
@@ -63,16 +63,16 @@ One thought more and I shall have done with this head. The salvation of great sa
 
 Now, to finish up, there is a CERTAIN VICTORY.
 
-> "Till he send forth judgment unto victory."  
+> Till he send forth judgment unto victory.    
 
 Victory! There is something beautiful in that word. The death of Sir John Moore, in the Peninsular war, was very touching; he fell in the arms of triumph; and sad as was his fate, I doubt not that his eye was lit up with lustre by the shout of victory. So also, I suppose, that Wolfe spoke a truth when he said, "I die happy," having just before heard the shout, "they run, they run." I know victory even in that bad sense--for I look not upon earthly victories as of any value--must have cheered the warrior. But oh! how cheered the saint when he knows that victory is his! I shall fight during all my life, but I shall write "vici" on my shield. I shall be "more than conqueror through him that loved me." Each feeble saint shall win the day; each man upon his crutches; each lame one; each one full of infirmity, sorrow, sickness, and weakness, shall gain the victory. "They shall come with singing unto Zion; as well the blind, and lame, and halt, and the woman with child, together." So saith the Scripture. Not one shall be left out; but he shall "send forth judgment unto victory." Victory! victory! victory! This is the lot of each Christian; he shall triumph through his dear Redeemer's name.
 
 Now a word about this victory. I speak first to aged men and women. Dear brethren and sisters, you are often, I know, like the bruised reed. Coming events cast their shadows before them; and death casts the shadow of old age on you. You feel the grasshopper to be a burden; you feel full of weakness and decay; your frame can hardly hold together. Ah! you have here a special promise. "The bruised reed I will not break." "I will strengthen thee." "When thy heart and thy flesh faileth, I will be the strength of thy heart and thy portion for ever."
 
-> "Even down to old age, all my people shall prove  
-> My sovereign, eternal, unchangeable love;  
-> And when hoary hairs shall their temples adorn,  
-> Like lambs they shall still in my bosom be borne."  
+> Even down to old age, all my people shall prove    
+> My sovereign, eternal, unchangeable love;    
+> And when hoary hairs shall their temples adorn,    
+> Like lambs they shall still in my bosom be borne.    
 
 Tottering on thy staff, leaning, feeble, weak, and wan; fear not the last hour; that last hour shall be thy best; thy last day shall be a consummation devoutly to be wished. Weak as thou art, God will temper the trial to thy weakness; he will make thy pain less, if thy strength be less; but thou shalt sing in heaven, Victory! victory! victory! There are some of us who could wish to change places with you, to be so near heaven--to be so near home. With all your infirmities, your grey hairs are a crown of glory to you; for you are near the end as well as in the way of righteousness.
 
@@ -82,9 +82,9 @@ Ye youths and maidens! I speak to you, and have a right to do so. You and I oftt
 
 Let me not finish without saying a word to little children. You who have never heard of Jesus, he says to you, "The bruised reed I will not break; the smoking flax I will not quench." I believe there is many a little prattler, not six years old, who knows the Saviour. I never despise infantile piety; I love it. I have heard little children talk of mysteries that grey-headed men knew not. Ah! little children who have been brought up in the Sabbath-schools, and love the Saviour's name, if others say you are too forward, do not fear, love Christ still.
 
-> "Gentle Jesus, meek and mild,  
-> Still will look upon a child;  
-> Pity thy simplicity,  
-> And suffer thee to come to him."  
+> Gentle Jesus, meek and mild,    
+> Still will look upon a child;    
+> Pity thy simplicity,    
+> And suffer thee to come to him.    
 
 He will not cast thee away; for smoking flax he will not quench, and the bruised reed he will not break.

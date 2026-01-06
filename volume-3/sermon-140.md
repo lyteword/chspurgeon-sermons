@@ -2,8 +2,8 @@
 
 Sermon No. 140 - Delivered on Sabbath Morning, July 12, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Whosoever shall call upon the name of the Lord shall be saved."  
-> Romans 10:13.  
+> Whosoever shall call upon the name of the Lord shall be saved.    
+> Romans 10:13.    
 
 IT has been said by an eminent divine that many of us in preaching the word suppose too great knowledge in our hearers. "Very often," says this divine, "there are in the congregation persons who are totally unacquainted with the great science of divinity. They are entire strangers to the whole system of grace and salvation." It is proper, then, that the preacher should address himself to his hearers sometimes as if they were totally ignorant of his message, and tell it to them as a new thing, going over the whole of it as if he believed them to be ignorant of it; "For," says this good man, "it is better to suppose too little knowledge, and so to explain the thing clearly, to the meanest comprehension, than to suppose too much, and thus to let the ignorant escape without a word of instruction."
 
@@ -21,15 +21,15 @@ To call upon the name of the Lord, in the first place, signifies to worship God.
 
 But lest any man should run away with a mistaken idea of what worship is, we must just explain a little further. The word "call," in holy Scripture meaning, signifies prayer. You remember the case of Elijah: when the prophets of Baal roughs to get rain from the false god, he said, "I will call upon God"--that is to say, "I will pray to God that he may send the rain." Now, prayer is a sure sign of divine life within. Whosoever prayeth to God through Christ, with sincere prayer shall be saved. Oh, I can remember how this text cheered me once. I felt the weight of sin, and I did not know the Saviour. I thought God would blast me with his wrath, and smite me with his hot displeasure! From chapel to chapel I went to hear the word preached, but never a gospel sentence did I hear; but this one text just preserved me from what I believe I should have been driven to--the commission of suicide through grief and sorrow. It was this sweet word--"Whosoever shall call upon the name of the Lord shall be saved." Well, I thought, I cannot believe on Christ as I could wish. I cannot find pardon, but I know I call upon his name, I know I pray, ay, and pray with groans and tears and sighs day and night; and if I am ever lost, I will plead that promise--"Oh God thou saidst, he that calleth upon thy name shall be saved; I did call; wilt thou cast me away? I did plead thy promise; I did lift up my heart in prayer; canst thou be just, and yet damn the man who did really pray?" But mark that sweet thought: prayer is the certain forerunner of salvation. Sinner, thou canst not pray and perish; prayer and perishing are two things that never go together. I ask you not what your prayer is; it may be a groan, it may be a tear, a wordless prayer, or a prayer in broken English, ungrammatical and harsh to the ear: but if it be a prayer from the inmost heart, thou shalt be saved; or else this promise is a lie. As surely as thou prayest whoever thou mayest be whatever thy past life, whatever the transgressions in which thou hast indulged, though they be the foulest which pollute mankind, yet if from thine heart thou hast learned to pray--
 
-> "Prayer is the breath of God in man  
-> Returning whence it came"--  
+> Prayer is the breath of God in man    
+> Returning whence it came"--    
 
 And thou canst not perish with God's breath in thee. "Whosoever shall call upon the name of the Lord shall be saved!"
 
 But the word "call" signifies a little more, it signifies trust. A man cannot call upon the name of the Lord, unless he trusts in that name. We must have reliance upon the name of Christ, or else we have not called aright. Hear me, then, poor tried sinner; thou hast come here this morning sensible of thy guilt, awakened to thy danger; here is thy remedy. Christ Jesus the Son of God, became a man; he was "born of the virgin Mary, suffered under Pontius Pilate, was crucified, dead and buried." He did this to save sinners such as thou art. Wilt thou believe this? Wilt thou trust thy soul to it? Wilt thou say "Sink or swim, Christ Jesus is my hope; and if I perish I will perish with my arms around his cross, crying--
 
-> 'Nothing in my hands I bring  
-> Simply to the cross I cling?'"  
+> Nothing in my hands I bring    
+> Simply to the cross I cling?'    
 
 Poor soul, if thou canst do that, thou wilt be saved. Come, now, no good works of thine own are needed--no sacraments, all that is asked of thee is this, and that he gives thee. Thou art nothing; wilt thou take Christ to be everything? Come, thou art black, wilt thou be washed? Wilt thou down on thy knees, and cry, "Lord, have mercy upon me, a sinner, not for anything I have done, or can do, but for his dear sake, whose blood streamed from his hands and feet, in whom alone I trust?" Why sinner the solid pillars of the universe shall totter rather than thou shouldst perish; ay heaven should weep a vacant throne, and an extinguished Godhead, rather than the promise should be violated in any case in the world. He that trusteth in Christ, calling on his name, shall be saved.
 
@@ -69,11 +69,11 @@ Smite, if thou wilt, but thou canst not for thou hast smitten him, and sure thou
 
 Shall I tell you one more reason? Believe this truth: it must be true. For it ye call upon the name of God, "In my Father's house," says Christ, "there are many mansions," and there is one there for you. Christ has prepared a house and a crown, from before the foundation of the world, for all them that believe. Come! dost thou think Christ will prepare a house, and not carry the inhabitant there? Will he make crowns, and then lose the heads that are to wear them! God forbid! Turn thine eye towards heaven. There is a seat there that must be filled, and must be filled by thee; there is a crown there that must be worn, and must be worn by thee. Oh! be of good cheer: heavens preparation shall not be too abundant, he shall make room for those that believe, and because he hath made that room those that believe shall come there. Oh! I would to God I might know that some soul could lay hold on this promise! Where are you? Are you standing away among the crowd there, or sitting here in the body of the hall or in the topmost gallery? Are you feeling your sins? Do you shed tears in secret on account of them? Do you lament your iniquities? Oh! take his promise--"Whosoever (sweet whosoever!)--whosoever calleth upon the name of the Lord shall be saved." Say thus. The devil says it is of no use for you to call; you have been a drunkard. Tell him it says, "Whosoever," "Nay," says the evil spirit, "it is of no use for you, you have never been to hear a sermon, or been in the house of God these last ten years." Tell him it says, "Whosoever." "No," says Satan, "remember the sins of last night, and how you have come up to the MUSIC HALL stained with lust." Tell the devil it says. "Whosoever," and that it is a foul falsehood of his, that you can call on God and yet be lost. No; tell him that--
 
-> "If all the sins that men have done  
-> In thought, or word, or deed,  
-> Since worlds were made or time begun,  
-> Could meet on one poor head,  
-> The blood of Jesus Christ alone  
-> For all this guilt could well atone."  
+> If all the sins that men have done    
+> In thought, or word, or deed,    
+> Since worlds were made or time begun,    
+> Could meet on one poor head,    
+> The blood of Jesus Christ alone    
+> For all this guilt could well atone.    
 
 Oh lay this to thine heart. May God's Spirit do it! "Whosoever calleth upon the name of the Lord shall be saved."

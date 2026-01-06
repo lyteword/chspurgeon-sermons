@@ -2,8 +2,8 @@
 
 Sermon No. 233 - Delivered on Sabbath Morning, January 9th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Not for your sakes do I this, saith the Lord God, be it known unto you: be ashamed and confounded for your own ways, O house of Israel."  
-> Ezekiel 36:32.  
+> Not for your sakes do I this, saith the Lord God, be it known unto you: be ashamed and confounded for your own ways, O house of Israel.    
+> Ezekiel 36:32.    
 
 There are two sins of man that are bred in the bone, and that continually come out in the flesh. One is self-dependence and the other is self-exaltation. It is very hard, even for the best of men, to keep themselves from the first error. The holiest of Christians, and those who understand best the gospel of Christ, find in themselves a constant inclination to look to the power of the creature, instead of looking to the power of God and the power of God alone. Over and over again, Holy Scripture has to remind us of that which we never ought to forget, that salvation is God's work from first to last, and is not of man, neither by man. But so it is, this old error--that we are to save ourselves, or that we are to do something in the matter of salvation--always rises up, and we find ourselves continually tempted by it to step aside from the simplicity of our faith in the power of the Lord our God. Why, even Abraham himself was not free from the great error of relying upon his own strength. God had promised to him that He would give him a son--Isaac, the child of promise. Abraham believed it, but at last, weary with waiting, he adopted the carnal expedient of taking to himself Hagar, to wife, and he fancied that Ishmael would most certainly be the fulfillment of God's promise; but instead of Ishmael's helping to fulfill the promise, he brought sorrow unto Abraham's heart, for God would not have it that Ishmael should dwell with Isaac. "Cast out," said the Scripture, "the bondwoman and her son; for the son of the bondwoman shall not be heir with the son of the free woman." 
 
@@ -21,10 +21,10 @@ Here was election on a grand scale; the election of manhood, and the reprobation
 
 Here, very few men object. We notice that if we talk about the election of men and the non-election of fallen angels, there is not a cavil for a moment. Every man approves of Calvinism till he feels that he is the loser by it; but when it begins to touch his own bone and his own flesh then he kicks against it. Come, then, we must go further. The only reason why one man is saved, and not another, lies not, in any sense, in the man saved, but in God's bosom. The reason why this day the gospel is preached to you and not the heathen far away, is not because, as a race, we are superior to the heathen; it is not because we deserve more at God's hands; His choice of Britain, in the election of outward privilege, is not caused by the excellency of the British nation, but entirely because of His own mercy and His own love. There is not reason in us why we should have the gospel preached to us more than any other nation. Today, some of us have received the gospel, and have been changed by it, and have become the heirs of light and immorality, whereas others are left still to be the heirs of wrath. But there is no reason in us why we should have been taken and others left.
 
-> "There was nothing in us to merit esteem,  
-> Or give the Creator delight.  
-> 'Twas Even so, Father!' we ever must sing,  
-> Because it seem'd good in thy sight."  
+> There was nothing in us to merit esteem,    
+> Or give the Creator delight.    
+> 'Twas Even so, Father!' we ever must sing,    
+> Because it seem'd good in thy sight.    
 
 And now, let us review this doctrine at length. We are taught in Holy Scripture that, long before this world was made, God foreknew and foresaw all the creatures He intended to fashion; and there and then foreseeing that the human race would fall into sin, and deserve His anger, determined, in His own sovereign mind, that an immense portion of the human race should be His children, and should be brought to Heaven. As to the rest, He left them to their own deserts. to sow the wind and reap the whirlwind, to scatter crime and inherit punishment. Now, in the great decree of election, the only reason why God selected the vessels of mercy must have been because He would do it. There was nothing in any one of them which caused God to choose them. We all were alike, all lost, all ruined by the fall; all without the slightest claim upon His mercy; all, in fact, deserving His utmost vengeance. His choice of any one, and His choice of all His people, are causeless, so far as anything in them was concerned. It was the effect of His sovereign will, and of nothing which they did, could do, or even would do; for thus saith the text: "Not for your sakes do I this, O house of Israel!"
 
@@ -36,10 +36,10 @@ After Christ's death, there comes, in the next place, the work of the Holy Spiri
 
 To go a little further: this truth, which holds good so far, holds good all the way. God's people, after they are called by grace, are preserved in Christ Jesus; they are "kept by the power of God through faith unto salvation;" they are not suffered to sin away their eternal inheritance, but as temptations arise they have strength given with which to encounter them, and as sin blackens them they are washed afresh, and again cleansed. But mark, the reason why God keeps His people is the same as that which made them His people--His own free sovereign grace. If, my brother, you have been delivered in the hour of temptation, pause and remember that you were not delivered for your own sake. There was nothing in you that deserved the deliverance. If you have been fed and supplied in your hour of need, it is not because you have been a faithful servant of God, nor because you have been a prayerful Christian; it is simply and only because of God's mercy. He is not moved to anything He does for you by anything .that you do for Him; His motive for blessing you lies wholly and entirely in the depths of His own bosom. Blessed be God, His people shall be kept.
 
-> "Nor death, nor Hell shall e'er remove  
-> His favourites from His breast;  
-> In the dear bosom of His love  
-> They must forever rest."  
+> Nor death, nor Hell shall e'er remove    
+> His favourites from His breast;    
+> In the dear bosom of His love    
+> They must forever rest.    
 
 But why? Because they are holy? Because they are sanctified? Because they serve God with good works? No, but because he in his sovereign grace has loved them, does love them, and will love them, even to the end.
 
@@ -73,30 +73,30 @@ This doctrine is true, and therefore it should be a subject of the greatest grat
 
 Go to Christ with earrings in your ears, and jewels upon you; wash your face, and array yourself with gold and silver, and go before Him and say, "Lord, save me; I have washed myself and clothed myself; save me!" "Get you gone! Not for your sakes will I do this." Go to Him again, and say, "Lord, I have put a rope about my neck, and sackcloth about my loins; see how repentant I am, see how I feel my need; now save me!" "No," saith He, "I would not save you on account of your flaunting robes, and now I will not save you because of your rags; I will save you for nothing about you; if I do save you, it will be from something in my heart, not from anything you feel. Get ye gone!" But if today you go to Christ and say, "Lord Jesus, there is no reason in the world why I should be saved--there is one in Heaven; Lord, I cannot urge any plea, I deserve to be lost, I have no excuse to make for all my sins, no apology to offer; Lord, I deserve it, and there is nothing in me why I should be saved, for if thou wouldst save me I should make but a poor Christian, after all; I fear that my future works will be no honour to Thee--I wish they could be, but thy grace must make them good, else they will still be bad. But, Lord, thou I have nothing to bring, and nothing to say for myself, I do say this: I have heard that thou hast come into the world to save sinners--O Lord, save me!
 
-> 'I the chief of sinners am.' 
+> I the chief of sinners am.    
 
 I confess I do not feel this as I ought, I do not mourn it as I ought; I have no repentance to recommend me; nay, Lord, I have no faith to recommend me either, for I do not believe thy promise as I ought; but oh! I cling to this text. Lord, thou hast said thou wilt not do it for my sake. I thank Thee thou hast said that. Thou couldst not do it for my sake, for I have no reason why thou shouldst. Lord, I claim thy gracious promise. Be merciful to me, a sinner."' Ah! you good people, this doctrine does not suit some of you; it is too humbling, is it not? You that have kept your churches regularly, and been to meetings so piously, you that never broke the Sabbath, or never swore an oath, or did anything wrong, this does not suit you. You say it will do very well to preach to harlots, and drunkards, and swearers, but it will not suit such good people as we are. Ah! well, this is your text--"I have not come to call the righteous, but sinners to repentance." You are "whole"--you are; you "need not a physician, but they that are sick." Go your way. Christ came to save such as you are. You think you can save yourselves. Do it, and perish in the doing of it. But I feel that the same gospel that suits a harlot suits me, and that that free grace which saved Saul of Tarsus must save me, else I am never saved. Come, let us all go together. We are all guilty--some more, some less, but all hopelessly guilty. Let us go together to the footstool of His mercy, and though we dare not look up, let us lie there in the dust, and sigh out again, "Lord have mercy upon us for whom Jesus died."
 
-> "Just as I am, without one plea,  
-> But that thy blood was shed for me,  
-> And that thou bidst me come to Thee,  
-> O Lamb of God, I come, I come."  
+> Just as I am, without one plea,    
+> But that thy blood was shed for me,    
+> And that thou bidst me come to Thee,    
+> O Lamb of God, I come, I come.    
 
 Sinner, come now; come now, I beseech thee; I entreat thee, come now. O Spirit of the living God, draw them now! Let these feeble weak words be the means of drawing souls to Christ. Will you reject my Master again? Will you go out of this house hardened once more? You may never again have such feelings as those which are aroused in your soul. Come, now, receive His mercy; now bend your willing necks to His yoke; and then I know you shall go away to taste His faithful love, and at last to sing in Heaven the song of the redeemed--"Unto him that loved us, and washed us from our sins in his own blood, unto him be glory forever. Amen."
 
-> "O thou great eternal Jesus,  
-> High and mighty Prince of Peace,  
-> How Thy wonders shine resplendent,  
-> In the wonders of Thy grace:  
-> Thy rich gospel scorns conditions,  
-> Breathes salvation free as air;  
-> Only breathes triumphant mercy,  
-> Baffling guilt, and all despair.  
-> "O the grandeur of the gospel,  
-> How it sounds the cleansing blood;  
-> Shows the bowels of a Saviour,  
-> Shows the tender heart of God.  
-> Only treats of love eternal,  
-> Swells the all-abounding grace,  
-> Nothing knows but life and pardon,  
-> Full redemption, endless peace."  
+> O thou great eternal Jesus,    
+> High and mighty Prince of Peace,    
+> How Thy wonders shine resplendent,    
+> In the wonders of Thy grace:    
+> Thy rich gospel scorns conditions,    
+> Breathes salvation free as air;    
+> Only breathes triumphant mercy,    
+> Baffling guilt, and all despair.    
+> "O the grandeur of the gospel,    
+> How it sounds the cleansing blood;    
+> Shows the bowels of a Saviour,    
+> Shows the tender heart of God.    
+> Only treats of love eternal,    
+> Swells the all-abounding grace,    
+> Nothing knows but life and pardon,    
+> Full redemption, endless peace.    

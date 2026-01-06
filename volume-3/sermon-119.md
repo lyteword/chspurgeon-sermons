@@ -2,8 +2,8 @@
 
 Sermon No. 119 - Delivered on Sabbath Morning, March 1, 1857, by the REV. C.H. SPURGEON at The Music Hall, Royal Surrey Gardens.
 
-> "By faith the harlot Rahab perished not with them that believed not, when she had received the spies with peace."  
-> Hebrews 11:31.  
+> By faith the harlot Rahab perished not with them that believed not, when she had received the spies with peace.    
+> Hebrews 11:31.    
 
 IN ALMOST every capital of Europe there are varieties of triumphal arches or columns, upon which are recorded the valiant deeds of the country's generals, its emperors, or its monarchs. You will find, in one case, the thousand battles of a Napoleon recorded, and in another, you find the victories of a Nelson pictured. It seems, therefore, but right, that faith, which is the mightiest of the mighty, should have a pillar raised to its honor, upon which its valiant deeds should be recorded. The apostle Paul undertook to raise the structure, and he erected a most magnificent pillar in the chapter before us. It recites the victories of faith. It begins with one triumph of faith, and then proceeds to others. We have, in one place, faith triumphing over death; Enoch entered not the gates of hades, but reached heaven by another road from that which is usual to men. We have faith, in another place, wresting with time; Noah, warned of God concerning things not seen as yet, wrestled with time, which placed his deluge a hundred and twenty years away; and yet, in the confidence of faith, he believed against all rational expectation, against all probability, and his faith was more than a match for probability and time too. We have faith triumphing over infirmity--Abraham begetteth a son in his old age. And then we have faith triumphing over natural affection, as we see Abraham climbing to the top of the hill and raising the knife to slay his only and beloved son at the command of God. We see faith, again, entering the lists with the infirmities of old age and the pains of the last struggle, as we read, "By faith Jacob, when he was dying, blessed both the sons of Joseph, and worshiped, leaning on the top of his staff." 
 
@@ -33,10 +33,10 @@ That was the first day; probably the next day Rahab thought they would come with
 
 This woman's faith was A SELF-DENYING FAITH. She dared to risk her life for the sake of the spies. She knew that if they were found in her house she would be put to death; but though she was so weak as to do a sinful deed to preserve them, yet she was so strong that she would run the risk of being put to death to save these two men. It is some thing to be able to deny ourselves. An American once said, "I have got a good religion; it's the right sort of religion; I do not know that it costs me a cent a year; and yet I believe I am as truly a religious man as anybody." "Ah!" said one who heard it, "the Lord have mercy on your miserable stingy soul, for if you had been saved you would not have been con tent with a cent a year"--a halfpenny per annum! I hazard this assertion, that there is nothing in the faith of that man who does not exercise self-denial. If we never give any thing to Christ's cause, work for Christ, deny ourselves for Christ, the root of the matter is not in us. I might call some of you hypocrites: you sing,
 
-> "And if I might make some reserve,  
-> And duty did not call,  
-> I love my God with zeal so great,  
-> That I could give him all."  
+> And if I might make some reserve,    
+> And duty did not call,    
+> I love my God with zeal so great,    
+> That I could give him all.    
 
 Yes, but you would not, though; you know better than that, for you do not, as it is, give all, no, nor yet half, nor yet the thousandth part. I suppose you think you are poor yourselves, though you have got some thousand pounds odd a year, and so you keep it yourself, under the notion that "he that giveth to the poor lendeth to the Lord." I don't know how else it is you make your religion square with itself, and be at all consistent. This woman said, "If I must die for these men, I will; I am prepared, bad name as I have, to have a worse name still; as a traitor to my country I am prepared to be handed down to infamy, if it be necessary, for having betrayed my country in taking in these spies, for I know it is God's will it should be done, and do it I will at every hazard. "O men and brethren, trust not your faith, unless it has self-denial with it. Faith and self-denial, like the Siamese twins, are born together, and must live together, and the food that nourisheth one must nourish both. But this woman, poor sinner as she was, would deny herself. She brought her life, even as that other woman, who was a sinner, brought the alabaster box of precious ointment, and broke it on the head of Christ.
 
@@ -52,11 +52,11 @@ One more head, and then we have done. Rahab's faith was a SANCTIFYING FAITH. Did
 
 You read the newspaper you read the book; you hear the lecturer; you sit and listen to the pretty essayist; but where is the preacher? Preaching is not taking out a manuscript sermon, asking God to direct your heart, and then reading pages prepared beforehand. That is reading--not preaching. There is a good tale told of an old man whose minister used to read. The minister called to see him, and said, "What are you doing John?" "Why, I'm prophesying, sir." "Prophesying; how is that? You mean you are reading the prophecies?" "No, I don't; I'm prophesying; for you read preaching, and call it preaching, and I read prophecies, and, on the same rule, that is prophesying." And the man was not far from right. We want to have more outspoken, downright utterances of truth and appeals to the conscience, and until we get these, we shall never see any very great and lasting reforms. But by the preaching of God's word, foolishness though it seem to some, harlots are reformed, thieves are made honest, and the worst of men brought to the Saviour. Again let me affectionately give the invitation to the vilest of men, if so they feel themselves to be,
 
-> "Come, ye needy, come and welcome,  
-> God's fine bounty glorify:  
-> True belief and true repentance--  
-> Every grace that brings us nigh--  
-> Without money,  
-> Come to Jesus Christ and buy."  
+> Come, ye needy, come and welcome,    
+> God's fine bounty glorify:    
+> True belief and true repentance--    
+> Every grace that brings us nigh--    
+> Without money,    
+> Come to Jesus Christ and buy.    
 
 Your sins will be forgiven, your transgressions cast away, and you shall henceforth go and sin no more, God having renewed you, and he will keep you even to the end. May God give his blessing, for Jesus sake! Amen.

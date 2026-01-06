@@ -2,8 +2,8 @@
 
 Sermon No. 77 - Delivered on Sabbath Morning, May 4, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Is it not lawful for me to do what I will with mine own?  
-> Matthew 20:15.  
+> Is it not lawful for me to do what I will with mine own?    
+> Matthew 20:15.    
 
 THE householder says, "Is it not lawful for me to do what I will with mine own?" and even so does the God of heaven and earth ask this question of you this morning. "Is it not lawful for me to do what I will with mine own?" There is no attribute of God more comforting to his children than the doctrine of Divine Sovereignty. Under the most adverse circumstances, in the most severe troubles, they believe that Sovereignty hath ordained their afflictions, that Sovereignty overrules them, and that Sovereignty will sanctify them all. There is nothing for which the children of God ought more earnestly to contend than the dominion of their Master over all creation--the kingship of God over all the works of his own hands--the throne of God, and his right to sit upon that throne. On the other hand, there is no doctrine more hated by worldlings, no truth of which they have made such a foot-ball, as the great, stupendous, but yet most certain doctrine of the Sovereignty of the infinite Jehovah. Men will allow God to be everywhere except on his throne. They will allow him to be in his workshop to fashion worlds and to make stars. They will allow him to be in his almonry to dispense his alms and bestow his bounties. They will allow him to sustain the earth and bear up the pillars thereof, or light the lamps of heaven, or rule the waves of the ever-moving ocean; but when God ascends his throne, his creatures then gnash their teeth; and when we proclaim an enthroned God, and his right to do as he wills with his own, to dispose of his creatures as he thinks well, without consulting them in the matter, then it is that we are hissed and execrated, and then it is that men turn a deaf ear to us, for God on his throne is not the God they love. They love him anywhere better than they do when he sits with his sceptre in his hand and his crown upon his head. But it is God upon the throne that we love to preach. It is God upon his throne whom we trust. It is God upon his throne of whom we have been singing this morning; and it is God upon his throne of whom we shall speak in this discourse. I shall dwell only, however, upon one portion of God's Sovereignty, and that is God's Sovereignty in the distribution of his gifts. In this respect I believe he has a right to do as he wills with his own, and that he exercises that right.
 
@@ -29,10 +29,10 @@ But let me drive the doctrine home once more. Behold how God displays his Sovere
 
 A creature--a sinful creature, can have no claim upon God; for that would be to make salvation of works and not of grace. If men can merit salvation, then to save them is only the payment of a debt, and he gives them nothing more than he ought to give them. But we assert that grace must be distinguishing if it be grace at all. O, but some say is it not written that "He giveth to every man a measure of grace to profit withal?" If you like to repeat that wonderful quotation so often hurled at my head, you are very welcome, for it is no quotation from Scripture, unless it be an Arminian edition. The only passage at all like it refers to the spiritual gifts of the saints and the saints only. But I say, granted your supposition, that a measure of grace is given to every man to profit withal, yet he hath given to some a measure of particular grace to make that profit. For what do you mean by grace, which I put out, to profit? I can understand a man's improvement in the use of grace, but grace improved and made use of by the power of man I cannot comprehend. Grace is not a thing which I use; grace is something which uses me. But people talk of grace sometimes as if it was something they could use, and not as influence having power over them. Grace is something not which I improve, but which improves, employs me, works on me; and let people talk as they will about universal grace, it is all nonsense, there is no such thing, nor can there be. They may talk correctly of universal blessings, because we see that the natural gifts of God are scattered everywhere, more or less, and men may receive or reject them. It is not so, however, with grace. Men cannot take the grace of God and employ it in turning themselves from darkness to light. The light does not come to the darkness and say, use me; but the light comes and drives the darkness away. Life does not come to the dead man and say, use me, and be restored to life; but it comes with a power of its own and restores to life. The spiritual influence does not come to the dry bones and say, use this power and clothe yourselves with flesh; but it comes and clothes them with flesh, and the work is done. Grace is a thing which comes and exercises an influence on us.
 
-> "The sovereign will of God alone  
-> Creates us heirs of grace;  
-> Born in the image of his Son,  
-> A new-created race."  
+> The sovereign will of God alone    
+> Creates us heirs of grace;    
+> Born in the image of his Son,    
+> A new-created race.    
 
 And we say to all of you who gnash your teeth at this doctrine, whether you know it or not, you have a vast deal of enmity towards God in your hearts; for until you can be brought to know this doctrine, there is something which you have not yet discovered, which makes you opposed to the idea of God absolute, God unbounded, God unfettered, God unchanging, and God having a free will, which you are so fond of proving that the creature possesses. I am persuaded that the Sovereignty of God must be held by us if we would be in a healthy state of mind. "Salvation is of the Lord alone." Then give all the glory to his holy name, to whom all glory belongs.
 
@@ -52,10 +52,10 @@ I was preaching on one occasion last week to a large crowd of people, and in one
 
 Lastly, GIFTS COMFORTABLE are of God. O, what comfortable gifts do some of us enjoy in the ordinances of God's house, and in a ministry that is profitable. But how many churches have not a ministry of that kind; and why then have we? Because God hath made a difference. Some here have strong faith, and can laugh at impossibilities; we can sing a song in all ill weathers--in the tempest as well as in the calm. But there is another with little faith who is in danger of tumbling down over every straw. We trace eminent faith entirely to God. One is born with a melancholy temperament, and he sees a tempest brewing even in the calm; while another is cheerful, and sees a silver lining to every cloud, however black, and he is a happy man. But why is that? Comfortable gifts come of God. And then observe that we ourselves, differ at times. For a season we may have blessed intercourse with heaven, and be permitted to look within the veil? but anon, these delightful enjoyments are gone. But do we murmur on that account? May he not do as he will with his own? May he not take back what he has given? The comforts we possess were his before they were ours.
 
-> "And shouldst thou take them all away,  
-> Yet would I not repine,  
-> Before they were possessed by me  
-> They were entirely thine."  
+> And shouldst thou take them all away,    
+> Yet would I not repine,    
+> Before they were possessed by me    
+> They were entirely thine.    
 
 There is no joy of the Spirit--there is no exceeding blessed hope--no strong faith--no burning desire--no close fellowship with Christ, which is not the gift of God, and which we must not trace to him. When I am in darkness and suffer disappointment, I will look up and say, he giveth songs in the night; and when I am made to rejoice, I will say, my mountain shall stand fast for ever. The Lord is a Sovereign Jehovah; and, therefore, prostrate at his feet I lie, and if I perish, I will perish there.
 

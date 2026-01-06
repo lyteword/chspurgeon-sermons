@@ -2,8 +2,8 @@
 
 Sermon No. 187 - Delivered on Sabbath Morning, April 11, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "But the very hairs of your head are all numbered."  
-> Matthew 10:30.  
+> But the very hairs of your head are all numbered.    
+> Matthew 10:30.    
 
 DURING THIS WEEK my mind has been much directed to the subject of Providence, and you will not wonder when I relate a portion of one day's story. I was engaged to preach last Wednesday at Halifax, where there was a heavy snow storm. Preparations had been made for a congregation of 8000 persons, and a huge wooden structure had been erected. I considered that owing to the severe weather, few persons could possibly assemble, and I looked forward to the dreary task of addressing an insignificant handful of people in a vast place. However, when I arrived, I found from 5000 to 6000 people gathered together to hear the Word; and a more substantial looking place it has not been my lot to see. It certainly was a huge uncomely building, but, nevertheless, it seemed well adapted to answer the purpose. We met together in the afternoon and worshipped God, and again in the evening, and we separated to our homes, or rather, we were about to separate, and all this while the kind providence of God was watching over us. Immediately in front of me there was a huge gallery, which looked an exceedingly massive structure, capable of holding 2000 persons. This, in the afternoon, was crowded, and it seemed to stand as firm as a rock. Again in the evening there it stood, and neither moved nor shook. But mark the provident hand of God: in the evening, when the people were about to retire, and when there was scarcely more than a hundred persons there, a huge beam gave way, and down came a portion of the flooring of the gallery with a fearful crash. 
 
@@ -31,8 +31,8 @@ To give another instance, there was a poor woman whose son had been raised from 
 
 There is another instance that I remember in the New Testament history. Paul goes into the temple, and the Jews rush upon him in a moment to kill him. They drag him out of the temple, and the doors are shut against him. They are just in the very act of killing him, and what is to become of poor Paul's life? Five minutes longer and Paul will be dead, when up comes the chief captain and delivers him. How was it that the chief captain knew of it? Very probably some young man of the crowd who knew Paul and loved him, ran to tell him. But why was it that the chief captain was at home? How was it that the ruler was able to come on a moment's emergency? How was it that he did come at all? It was only just a Hebrew, a man that was good for nothing, being killed. How was it that he came, and when he came the streets were full; there was a mob about Jerusalem? How did he come to the right street? How did he come at the exact nick of time? Say, "It is all chance!" I laugh at you; it is providence. If there be anything in the world that is plain to any man that thinks, it is plain that God
 
-> "Overrules all mortal things,  
-> And manages our mean affairs."  
+> Overrules all mortal things,    
+> And manages our mean affairs.    
 
 But mark, that the running of the youth, and his arrival at the precise time, and the coming of the chief governor at the precise time, just proved the punctuality of Divine providence; and if God has a design that a thing shall happen at twelve, if you have appointed it for eleven, it shall not happen till twelve; and if he means it to be delayed till one, it is in vain that you propose any earlier or any later. God's punctuality in providence is always sure, and very often apparent.
 
@@ -48,10 +48,10 @@ What necessity for that? Stupid idea of Caesar's! If he had had a parliament, th
 
 Gathering up all our heads into one short statement, it is our firm belief that he who wings an angel guides a sparrow. We believe that he who supports the dignity of his throne amidst the splendors of heaven maintains it also in the depths of the dark sea. We believe that there is nothing above, beneath, around, which is not according to the determination of his own counsel and will; and while we are not fatalists, we do most truly and sternly hold the doctrine, that God hath decreed all things whatsoever that come to pass, and that he overruleth all things for his own glory and good; so that with Martin Luther, we can say,
 
-> "He everywhere hath sway,  
-> And all things serve his might;  
-> His every act pure blessing is,  
-> His path unsullied light."  
+> He everywhere hath sway,    
+> And all things serve his might;    
+> His every act pure blessing is,    
+> His path unsullied light.    
 
 The second point is, THE KIND CONSIDERATION OF GOD, IN TAKING CARE OF HIS PEOPLE. In reading the text, I thought, "There is better care taken of me than I can take care of myself." You all take care of yourselves to some extent, but which of you ever took so much care of himself as to count the hairs of his head? But God will not only protect our limbs, but even the excrescence of hair is to be seen after. And how much this excels all the care of our tenderest friends! Look at the mother, how careful she is. If her child has a little cough, she notices it: the slightest weakness is sure to be observed. She has watched all its motions anxiously, to see whether it walked right, whether all its limbs were sound, and whether it had the use of all its powers in perfection; but she has never thought of numbering the hairs of her child's head, and the absence of one or two of them would give her no great concern. But our God is more careful of us, even than a mother with her child--so careful that he numbers the hairs of our head. How safe are we, then, beneath the hand of God!
 
@@ -73,10 +73,10 @@ I may say to those of you also who have been bereaved--if you believe in provide
 
 It is even so with your friends. They wither not by chance; the grave is not filled by accident; men die according to God's will. Your child is gone, but the Master took it; your husband is gone, your wife is buried,--the Master took them; thank him that he let you have the pleasure of caring for them and tending them while they were here, and thank him that as he gave, he himself has taken away. If others had done it, you would have had cause to be angry; but the Lord has done it. Can you, then, murmur? Will you not say--
 
-> "Thee at all times will I bless;  
-> Having thee I all possess;  
-> How can I bereaved be,  
-> Since I cannot part with thee."  
+> Thee at all times will I bless;    
+> Having thee I all possess;    
+> How can I bereaved be,    
+> Since I cannot part with thee.    
 
 And pardon me when I say, finally, that I think this doctrine, if fully believed, ought to keep us always in an equable frame of mind. One of the things we most want is, to have our equilibrium always kept up. Sometimes we are elated. If I ever find myself elated I know what is coming. I know that I shall be depressed in a very few hours. If the balance goes too much up, it is sure to come down again. The happiest state of mind is to be always on the equilibrium. If good things come, thank God for them; but do not set your heart upon them. If good things go, thank God that he has taken them himself, and still bless his name. Bear all. He who feels that everything cometh to pass according to God's will, hath a great main-stay to his soul. He need not be shaken to and fro by every wind that bloweth; for he is fast bound, so that he need not move. This is an anchor cast into the sea. While the other ships are drifting far away, he can ride calmly through.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 116 - Delivered on Sabbath Morning, February 8, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Cleanse thou me from secret faults.  
-> Psalm 19:12.  
+> Cleanse thou me from secret faults.    
+> Psalm 19:12.    
 
 SELF-RIGHTEOUSNESS arises partly from pride but mainly from ignorance of God's law. It is because men know little or nothing concerning the terrible character of the divine law, that they foolishly imagine themselves to be righteous. They are not aware of the deep spirituality, and the stern severity of the law, or they would have other and wiser notions. Once let them know how strictly the law deals with the thoughts, how it brings itself to bear upon every emotion of the inner man, and there is not one creature beneath God's heaven who would dare to think himself righteous in God's sight in virtue of his own deeds and thoughts. Only let the law be revealed to a man; let him know how strict the law is, and how infinitely just, and his self-righteousness will shrivel into nothing--it will become a filthy rag in his sight, whereas before he thought it to be a goodly garment.
 
@@ -27,26 +27,26 @@ In the next place, let us notice THE MISERY OF SECRET SINS.
 
 Of all sinners the man who makes a profession of religion, and yet lives in iniquity, is the most miserable. A downright wicked man, who takes a glass in his hand, and says, "I am a drunkard, I am not ashamed of it," he shall be unutterably miserable in worlds to come, but brief though it be, he has his hour of pleasure. A man who curses and swears, and says, "That is my habit, I am a profane man," and makes a profession of it, he has, at least, some peace in his soul; but the man who walks with God's minister, who is united with God's Church, who comes out before God's people, and unites with them, and then lives in sin, what a miserable existence he must have of it! Why, he has a worse existence than the mouse that is in the parlour, running out now and then to pick up the crumbs, and then back again to his hole. Such men must run out now and then to sin; and oh! how fearful they are to be discovered! One day, perhaps, their character turns up; with wonderful cunning they manage to conceal and gloss it over; but the next day something else comes, and they live in constant fear, telling lie after lie, to make the last lie appear truthful, adding deception to deception, in order that they may not be discovered.
 
-> "Oh! tis a tangled web we weave,  
-> When once we venture to deceive."  
+> Oh! tis a tangled web we weave,    
+> When once we venture to deceive.    
 
 If I must be a wicked man, give me the life of a roystering sinner, who sins before the face of day; but, if I must sin, let me not act as a hypocrite and a coward; let me not profess to be God's, and spend my life for the devil. That way of cheating the devil is a thing which every honest sinner will be ashamed of. He will say, "Now, if I do serve my master I will serve him out and out, I will have no sham about it; if I make a profession, I will carry it out; but if I do not, if I live in sin, I am not going to gloss it over by cant and hypocrisy." One thing which has hamstringed the church, and cut her very sinews in twain, has been this most damnable hypocrisy. Oh! in how many places have we men whom you might praise to the very skies, if you could believe their words, but whom you might cast into the nethermost pit if you could see their secret actions. God forgive any of you who are so acting! I had almost said, I can scarce forgive you. I can forgive the man who riots openly, and makes no profession of being better, but the man who fawns, and cants, and pretends, and prays, and then lives in sin, that man I hate, I cannot bear him, I abhor him from my very soul. If he will turn from his ways, I will love him, but in his hypocrisy he is to me the most loathsome of all creatures. Tis said the toad doth wear a jewel in her head, but this man hath none, but beareth filthiness about him, while he pretends to be in love with righteousness. A mere profession, my hearers, is but painted pageantry to go to hell in; it is like the plumes upon the hearse and the trappings upon the black horses which drag men to their graves, the funeral array of dead souls. 
 
 Take heed above everything of a waxen profession that will not stand the sun; take care of a life that needs to have two faces to carry it out; be one thing, or else the other. If you make up your mind to serve Satan, do not pretend to serve God; and if you serve God, serve him with all your heart. "No man can serve two masters;" do not try it, do not endeavour to do it, for no life will be more miserable than that. Above all, beware of committing acts which it will be necessary to conceal. There is a singular poem by Hood, called "The Dream of Eugene Aram"--a most remarkable piece it is indeed, illustrating the point on which I am now dwelling. Aram has murdered a man and cast his body into the river--"a sluggish water, black as ink, the depth was so extreme." The next morning he visited the scene of his guilt:
 
-> "And sought the black accursed pool,  
-> With a wild misgiving eye;  
-> And he saw the dead in the river bed,  
-> For the faithless stream was dry."  
+> And sought the black accursed pool,    
+> With a wild misgiving eye;    
+> And he saw the dead in the river bed,    
+> For the faithless stream was dry.    
 
 Next he covered the corpse with heaps of leaves, but a mighty wind swept through the wood and left the secret bare before the sun:
 
-> "Then down I cast me on my face,  
-> And first began to weep,  
-> For I knew my secret then was one  
-> The earth refused to keep;  
-> On land or sea though it should be  
-> Ten thousand fathoms deep."  
+> Then down I cast me on my face,    
+> And first began to weep,    
+> For I knew my secret then was one    
+> The earth refused to keep;    
+> On land or sea though it should be    
+> Ten thousand fathoms deep.    
 
 In plaintive notes he prophesies his own discovery. He buried his victim in a cave, and trod him down with stones, but when years had run their weary round the foul deed was discovered and the murderer put to death.
 
@@ -68,34 +68,34 @@ But I have here some true Christians who indulge in secret sins. They say it is 
 
 And now I come, in finishing up, to plead with all my might with some of you whom God has pricked in your consciences. I have come to intreat you, if it be possible, even to tears, that you will give up your secret sins. I have one here for whom I bless God; I love him, though I know him not. He is almost persuaded to be a Christian; he halteth between two opinions; he intendeth to serve God, he striveth to give up sin, but he findeth it a hard struggle, and as yet he knoweth not what shall become of him. I speak to him with all love: my friend, will you have your sin and go to hell, or leave your sin and go to heaven? This is the solemn alternative: to all awakened sinners I put it; may God choose for you, otherwise I tremble as to which you may choose. The pleasures of this life are so intoxicating, the joys of it so ensnaring, that did I not believe that God worketh in us to will and to do, I should despair of you. But I have confidence that God will decide the matter. Let me lay the alternative before you:--on the one hand there is a hour's merriment, a short life of bliss, and that a poor, poor bliss; on the other hand, there is everlasting life and eternal glory. On the one hand, there is a transient happiness, and afterwards overwhelming woe; in this case there is a solid peace and everlasting joy, and after it overflowing bliss. I shall not fear to be called an Arminian, when I say, as Elijah did, "Choose you this day whom you will serve. If God be God, serve him; if Baal be God serve him." But, now, make your choice deliberately; and may God help you to do it! Do not say you will take up with religion, without first counting the cost of it; remember, there is your lust to be given up, your pleasure to be renounced; can you do it for Christ's sake? Can you? I know you cannot, unless God's grace shall assist you in making such a choice. But can you say, "Yes, by the help of God, earth's gaudy toys, its pomps, pageantries, gewgaws, all these I renounce?--
 
-> "These can never satisfy,  
-> Give me Christ or else I die."  
+> These can never satisfy,    
+> Give me Christ or else I die.    
 
 Sinner, thou wilt never regret that choice, if God help thee to make it; thou wilt find thyself a happy man here, and thrice happy throughout eternity.
 
 "But," says one, "Sir, I intend to be religious, but I do not hold with your strictness." I do not ask you to do so; I hope, however, you will hold with God's strictness, and God's strictness is ten thousand times greater than mine. You may say that I am puritanical in my preaching; God will be puritanical in judging in that great day. I may appear severe, but I can never be so severe as God will be. I may draw the harrow with sharp teeth across your conscience, but God shall drag harrows of eternal fire across you one day. I may speak thundering things! God will not speak them, but hurl them from his hands. Remember, men may laugh at hell, and say there is none; but they must reject their Bibles before they can believe the lie. Men's consciences tell them that
 
-> "There is a dreadful hell,  
-> And everlasting pains;  
-> Where sinners must with devils dwell,  
-> In darkness, fire and chains."  
+> There is a dreadful hell,    
+> And everlasting pains;    
+> Where sinners must with devils dwell,    
+> In darkness, fire and chains.    
 
 Sirs, will ye keep your secret sins, and have eternal fire for them? Remember it is of no use, they must all be given up, or else you cannot be God's child. You cannot by any means have both; it cannot be God and the world, it cannot be Christ and the devil; it must be one or the other. Oh! that God would give you grace to resign all; for what are they worth? They are your deceivers now, and will be your tormentors for ever. Oh! that your eyes were open to see the rottenness, the emptiness and trickery of iniquity. Oh! that God would turn you to himself. Oh! may God give you grace to cross the Rubicon of repentance at this very hour; to say, "Henceforth it is war to the knife with my sins; not one of them will I willingly keep, but down with them, down with them; Canaanite, Hittite, Jebusite, they shall all be driven out."
 
-> "The dearest idol I have known,  
-> Whate'er that idol be;  
-> Help me to tear it from its throne,  
-> And worship only thee."  
+> The dearest idol I have known,    
+> Whate'er that idol be;    
+> Help me to tear it from its throne,    
+> And worship only thee.    
 
 "But oh! sir, I cannot do it; it would be like pulling my eyes out." Ay, but hear what Christ says: "It were better for thee to enter into life with one eye, than having two eyes to be cast into hell fire." "But it would be like cutting my arms off." Ay, and it would be better for thee to enter into life halt or maimed, than to be cast into hell fire for ever. Oh! when the sinner comes before God at last, do you think he will speak as he does now? God will reveal his secret sins: the sinner will not then say, "Lord, I thought my secret sins so sweet, I could not give them up." I think I see how changed it will be then. "Sir" you say now, "you are too strict;" will you say that when the eyes of the Almighty are glowering on you? You say now, "Sir, you are too precise;" will you say that to God Almighty's face? "Sir, I mean to keep such-and-such a sin." Can you say it at God's bar at last? You will not dare to do it then. Ah! when Christ comes a second time, there will be a marvellous change in the way men talk. Methinks I see him; there he sits upon his throne. Now, Caiaphas, come and condemn him now! Judas! comes and kiss him now! What do you stick at, man? Are you afraid of him? Now, Barrabbas! go; see whether they will prefer you to Christ now. Swearer, now is your time; you have been a bold man; curse him to his face now. Now drunkard; stagger up to him now. Now infidel; tell him there is no Christ now--now that the world is lit with lightning and the earth is shaken with thunder till the solid pillars thereof do bow themselves--tell God there is no God now; now laugh at the Bible; now scoff at the minister. Why men, what is the matter with you? Why, can't you do it? Ah! there you are; you have fled to the hills and to the rocks--"Rocks hide us! mountains fall on us; hide us from the face of him that sitteth on the throne." Ah! where are now your boasts, your vauntings, and your glories? Alas! alas! for you, in that dread day of wonders.
 
 Secret sinner, what will then become of thee? Go out of this place unmasked; go out to examine thyself, go out to bend thy knee, go out to weep, go out to pray. God give thee grace to believe! And oh, how sweet and pleasant the thought, that this day sinners have fled to Christ, and men have been born again to Jesus! Brethren, ere I finish, I repeat the words at which so many have cavilled--it is now, or never, it is turn or burn. Solemnly in God's sight I say it; if it be not God's truth I must answer for it in the great day of account. Your consciences tell you it is true. Take it home, and mock me if you will; this morning I am clear of your blood: if any seek not God, but live in sin, I shall be clear of your blood in that day when the watchman shall have your souls demanded of him; oh, may God grant that you may be cleared in a blessed manner! When I went down those pulpit stairs a Sabbath or two ago, a friend said to me words which have been in my mind ever since--"Sir, there are nine thousand people this day without excuse in the day of judgment." It is true of you this morning. If you are damned, it will be not for want of preaching to you, and it shall not be for want of praying for you. God knoweth that if my heart could break of itself, it would, for your souls, for God is my witness, how earnestly I long for you in the bowels of Christ Jesus. Oh, that he might touch your hearts and bring you to him! For death is a solemn thing, damnation is a horrible thing, to be out of Christ is a dreadful thing, to be dead in sin is a terrific thing. May God lead you to view these things as they are, and save you, for his mercy's sake! "He that believeth and is baptised shall be saved."
 
-> "Lord, search my soul, try every thought;  
-> Though my own heart accuse me not  
-> Of walking in a false disguise,  
-> I beg the trial of thine eyes.  
-> Doth secret mischief lurk within?  
-> Do I indulge some unknown sin?  
-> O turn my feet whene'er I stray,  
-> And lead me in thy perfect way."  
+> Lord, search my soul, try every thought;    
+> Though my own heart accuse me not    
+> Of walking in a false disguise,    
+> I beg the trial of thine eyes.    
+> Doth secret mischief lurk within?    
+> Do I indulge some unknown sin?    
+> O turn my feet whene'er I stray,    
+> And lead me in thy perfect way.    

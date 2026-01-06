@@ -2,8 +2,8 @@
 
 Sermon No. 156 - Delivered on Sabbath Morning, October 4, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Fear not, thou worm Jacob, and ye men of Israel; I will help thee, saith the Lord and thy redeemer the Holy one of Israel."  
-> Isaiah 41:14.  
+> Fear not, thou worm Jacob, and ye men of Israel; I will help thee, saith the Lord and thy redeemer the Holy one of Israel.    
+> Isaiah 41:14.    
 
 I SHALL SPEAK this morning to those that are discouraged, depressed in spirit, and sore troubled in the Christian life. There are certain nights of exceeding great darkness, through which the spirit has to grope in much pain and misery, and during which much of the comfort of the Word is particularly needed. Those seasons occur in this manner. Frequently they occur at the outset of a religious life. A young man, deeply impressed under the ministry, has been led to feel the weight of sin; he trusts also he has been led to look for salvation to the Christ who is preached in the gospel. In the young ardor of his spirit he devotes himself wholly to Christ; with the most solemn vows he dedicates body, soul, time, talents, all that he has, to the great work of serving God; he thinks it easy to fulfill his vow; he doth not count the cost; he reckons it will be easy to forsake gay companions, to renounce old established habits, and to become a Christian. Alas! before many days he finds out his mistake, if he did not reckon without his host he certainly reckoned without his heart, for his evil heart of unbelief had deceived him, he knew not how hard would be the struggle, and how desperate the wrestling between his old evil nature and the new-born principle of grace within him. He finds it to be like the rending off of right arms to give up old and cherished habits; he discovers it to be painful to renounce his former pursuits, as painful as it would be to pluck out his right eye. He sits down then, and he says, "If this be the trouble at the outset what may I expect as I proceed. O my soul, thou wast too fast in dedicating thyself to God; thou hast undertaken a warfare which thy prowess can never accomplish; thou hast started on a journey for which thy strength is not adequate; let me again return unto the world;" and if the Spirit saith, "Nay, thou canst not," then the poor soul sits itself down in deep misery, and cries, "I can not go back and I can not go forward; what must I do? 
 
@@ -27,15 +27,15 @@ Again: if you would know your own weakness, try some great labor for Christ. I c
 
 Says another, "I have to-morrow to do such-and-such an eminent service for my Master, and I can say that when I was in my low estate, I was often exalted above measure, but this day my God has cast me into the lowest depths at the recollection of the work for which he has engaged me." Go and do something, some of you, and I will be bound to say it will be the means of pricking that fair bubble of your pride, and letting some of it blow away. If you would understand what is meant by being a worm, go and do what the 15th verse says the worm should do--go and thrash the mountains, and beat them small; make the hills as chaff fanned by the wind, scatter them, and then rejoice in God: and if you can do that,
 
-> "The more God's glories strike your eyes,  
-> The humbler you will lie."  
+> The more God's glories strike your eyes,    
+> The humbler you will lie.    
 
 Devout contemplation, sharp suffering, hard labor--all these will teach us what little creatures we are. Oh! may God by all means and every means keep us, well understanding and knowing that we are nothing more and nothing better than worms!
 
 How easy it is, my brethren, for you and I to fly up! How hard to keep down! That demon of pride was born with us, and it will not die one hour before us. It is so woven into the very warp and woof of our nature, that till we are wrapped in our winding-sheets we shall never hear the last of it. If any man telleth me that he is humble, I know him to be profoundly proud; and if any man will not acknowledge this truth, that he is desperately inclined to self-exaltation, let him know that his denial of this truth is the best proof of it. Do you know what is the sweetest flattery in all the world ? It is that flattery that Caesar's courtiers of old gave to him, when they said Caesar hated flattery, being then most highly flattered. We do not hate flattery, any one of us; we all like it. We do not like it if it is labeled flattery; but we like it if it is given in a little underhand fashion, We all love praise.
 
-> "The proud to gain it toils on toils endure,  
-> The modest shun it, but to make it sure."  
+> The proud to gain it toils on toils endure,    
+> The modest shun it, but to make it sure.    
 
 We all love it, every soul of us, and it is right and meet that we should all bow before God, and acknowledge that pride which is woven into our nature, and ask him to teach us what little things we are, that we may claim this promise--"Fear not, thou worm Jacob."
 
@@ -61,23 +61,23 @@ And lastly, doubt not the Lord, O Christian; for in so doing thou dost lower thy
 
 I feel that my voice fails me, and with it my very powers of thought too, and therefore I can only turn to my comrades in arms, in the good war of Christ, and I say to them, brethren, you and I can do nothing of ourselves; we are poor puny things; but let us attempt great things, for God is with us; let us dare great things, for God will not leave us. Remember what he has done aforetime; and remember what he has done of old he will do again. Remember David the shepherd-boy. Think ye well of Shamgar, with his ox-goad. Forget ye not the jawbone of the ass, and the stone from the sling. If these worked wonders, why should not we? If little things have done great things, let us try to do great things also. You know not, ye atoms, but that your destiny is sublime. Try and make it so by faith; and the least of you may be mighty through the strength of God. O for grace to trust God, and there is no telling what ye can do. Worms, ye are nothing, but ye have eaten princes; worms ye are nothing, but ye have devoured the roots of cedars, and laid them level with the earth; worms, ye are nothing, but ye have piled rocks in the deep, deep sea, and wrecked mighty navies; worms, ye have eaten through the keel of the proudest ship that ever sailed the ocean. If ye have done this yourselves, what can not we do? your strength lies in your mouths; our strength lies in ours too. We will use our mouths in prayer, and in constant adoration, and we shall conquer yet, for God is with us, and victory is sure.
 
-> Ye trembling souls! dismiss your fears;  
-> Be mercy all your theme:  
-> Mercy, which, like a river, flows  
-> In one continued stream.  
-> Fear not the powers of earth and hell;  
-> God will these powers restrain;  
-> His mighty arm their rage repel,  
-> And make their efforts vain.  
-> Fear not the want of outward good;  
-> He will for his provide,  
-> Grant them supplies of daily food,  
-> And all they need beside.  
-> Fear not that he will e'er forsake,  
-> Or leave his work undone;  
-> He's faithful to his promises--  
-> And faithful to his Son.  
-> Fear not the terrors of the grave,  
-> Or death's tremendous sting;  
-> He will from endless wrath preserve--  
-> To endless glory bring.  
+> Ye trembling souls! dismiss your fears;    
+> Be mercy all your theme:    
+> Mercy, which, like a river, flows    
+> In one continued stream.    
+> Fear not the powers of earth and hell;    
+> God will these powers restrain;    
+> His mighty arm their rage repel,    
+> And make their efforts vain.    
+> Fear not the want of outward good;    
+> He will for his provide,    
+> Grant them supplies of daily food,    
+> And all they need beside.    
+> Fear not that he will e'er forsake,    
+> Or leave his work undone;    
+> He's faithful to his promises--    
+> And faithful to his Son.    
+> Fear not the terrors of the grave,    
+> Or death's tremendous sting;    
+> He will from endless wrath preserve--    
+> To endless glory bring.    

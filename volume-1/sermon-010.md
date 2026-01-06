@@ -2,41 +2,41 @@
 
 Sermon No. 10 - Delivered on Sabbath Morning, January 28th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And hast made us unto our God kings and priests; and we shall reign on the earth."  
-> Revelation 5:10.  
+> And hast made us unto our God kings and priests; and we shall reign on the earth.    
+> Revelation 5:10.    
 
 MUSIC HATH Charms." I am sure sacred music has; for I have felt something of its charms whilst we have been singing that glorious hymn just now. There is a potency in harmony; there is a magic power in melody, which either melts the soul to pity, or lifts it up to joy unspeakable. I do not know how it may be with some minds; they possibly may resist the influence of singing; but I cannot. When the saints of God, in full chorus, "chaunt the solemn lay," and when I hear sweet syllables fall from their lips, keeping measure and time, then I feel elevated; and, forgetting for a time everything terrestrial, I soar aloft towards heaven. If such be the sweetness of the music of the saints below, where there is much of discord and sin to mar the harmony, how sweet must it be to sing above, with cherubim and seraphim. Oh, what songs must those be which the Eternal ever hears upon his throne! What seraphic sonnets must those be which are thrilled from the lips of pure immortals, untainted by a sin, unmingled with a groan: where they warble ever hymns of joy and gladness, never intermingled with one sigh, or groan, or worldly care. Happy songsters! When shall I your chorus join? There is one of your hymns that runs--
 
-> "Hark! how they sing before the throne!"  
+> Hark! how they sing before the throne!    
 
 And I have sometimes thought I could "hark! how they sing before the throne." I have imagined that I could hear the full burst of the swell of the chorus, when it pealed from heaven like mighty thunders, and the sound of many waters, and have almost heard those full-toned strains, when the harpers harped with their harps be fore the throne of God; alas, it was but imagination. We cannot hear it now; these ears are not fitted for such music; these souls could not be contained in the body, if we were once to hear some stray note from the harps of angels. We must wait till we get up yonder. Then, purified, like silver seven times, from the defilement of earth, washed in our Saviour's precious blood, sanctified by the purifying influence of the Holy Spirit--
 
-> "We shall, unblemished and complete,  
-> Appear before our Father's throne,  
-> With joys divinely great."  
-> "Then loudest of the crowd we'll sing,  
-> Whilst heaven's resounding mansions ring  
-> With shouts of sovereign grace."  
+> We shall, unblemished and complete,    
+> Appear before our Father's throne,    
+> With joys divinely great."    
+> "Then loudest of the crowd we'll sing,    
+> Whilst heaven's resounding mansions ring    
+> With shouts of sovereign grace.    
 
 Our friend John, the highly favoured apostle of the Apocalypse, has given us just one note from heaven's song; we shall strike that note, and sound it again and again. I shall strike this tuning-fork of heaven, and let you hear one of the key notes. "And hast made us unto our God kings and priests; and we shall reign on the earth." May the great and gracious Spirit, who is the only illumination of darkness, light up my mind whilst I attempt, in a brief and hurried manner, to speak from this text. There are three things in it: first, the Redeemer's doings--" and hast made us; secondly, the saints' honors--" and hast made us kings and priests unto our God;" and, thirdly, the world's future--" and we shall reign upon the earth."
 
 First, then, we have THE REDEEMER'S DOINGS. They who stand before the throne sing of the Lamb--the Lion of the tribe of Judah, who took the book and broke the seals thereof--" Thou hast made us kings and priests unto our God." In heaven they do not sing
 
-> "Glory, honor, praise, and power  
-> Be unto ourselves for ever;  
-> We have been our own Redeemers;--Hallelujah!"  
+> Glory, honor, praise, and power    
+> Be unto ourselves for ever;    
+> We have been our own Redeemers;--Hallelujah!    
 
 They never sing praise to themselves; they glorify not their own strength; they do not talk of their own free-will and their own might; but they ascribe their salvation, from beginning to end, to God. Ask them how they were saved, and they reply, "The Lamb hath made us what we are." Ask them whence their glories came, and they tell you, "They were bequeathed to us by the dying Lamb." Ask whence they obtained the gold of their harps, and they say, "It was dug in mines of agony and bitterness by Jesus," Inquire who stringed their harps, and they will tell you that Jesus took each sinew of his body to make them. Ask them where they washed their robes and made them white, and they will say--
 
-> "In yonder fountain filled with blood,  
-> Drawn from Immanuel's veins."  
+> In yonder fountain filled with blood,    
+> Drawn from Immanuel's veins.    
 
 Some persons on earth do not know where to put the crown; but those in heaven do. They place the diadem on the right head; and they ever sing--" And he hath made us what we are." Well, then, beloved, would not this note well become us here? For " what have we that we have not received?" Who hath made us to differ? I know, this morning, that I am a justified man; I have the full assurance that
 
-> "The terrors of law and of God,  
-> With me can have nothing to do;  
-> My Saviour's obedience and blood  
-> Hide all my transgressions from view."  
+> The terrors of law and of God,    
+> With me can have nothing to do;    
+> My Saviour's obedience and blood    
+> Hide all my transgressions from view.    
 
 There is not a sin against me in God's book they have all been for ever obliterated by the blood of Christ. and cancelled by his own right hand. I have nothing to fear; I cannot be condemned. "Who shall lay anything to the charge of God's elect?" Not God, for he hath justified; not Christ. for he hath died. But if I am justified, who made me so? I say--"And hath made me what I am." Justification from first to last. is of God. Salvation is of the Lord alone.
 
@@ -52,8 +52,8 @@ Beloved, our Saviour Jesus Christ finished the great work of making us what we a
 
 Thus have I briefly spoken upon the dear Redeemer's doings. Poor lips cannot speak better; faint heart will not rise up to the height of this great argument. Oh! that these lips had language eloquent and lofty, that they might speak more of the wondrous doings of our Redeemer!
 
-> "Crown him! crown him!  
-> Crowns become the Saviour's brow."  
+> Crown him! crown him!    
+> Crowns become the Saviour's brow.    
 
 Now, secondly, THE SAINT'S HONORS: "and hast made us unto our God kings and priests." The most honorable of all monarchs have ever been esteemed to be those who had a right not only to royal, but to sacerdotal supremacy--those kings who could wear at one time the crown of loyalty, and at another the mitre of the priesthood, who could both use the censer and hold the sceptre--who could offer intercession for the people, and then govern the nations. Those who are kings and priests are great indeed; and here you behold the saint honored, not with one title, or one office, but with two. He is made not a king merely, but a king and a priest; not a priest merely, but a priest and a king. The saint has two offices conferred upon him at once, he is made a priestly monarch, and a regal priest.
 
@@ -71,7 +71,7 @@ There is another thought here. Kings are considered the most honorable amongst m
 
 But some persons will say, "I wish you would prove what you affirm, when you say that saints are kings; for, if we were kings, we should never have any sorrows; kings are never poor as we are, and never suffer as we do." Who told you so? You say if you are kings, you would live at ease. Do not kings ever suffer? Was not David an anointed king? and was lie not hunted like a partridge on the mountains? Did not the king himself pass over the brook Kedron, and all his people weeping as he went, when his son Absalom pursued him? And was he not a monarch when he slept on the cold ground, with no couch save the damp heather? O yes, kings have their sorrows--crowned heads have their afflictions. Full oft
 
-> "Uneasy lies the head that wears a crown."  
+> Uneasy lies the head that wears a crown.    
 
 Do not expect that because you are a king, you are to have no sorrows. "It is not for kings, O Lemuel, it is not for kings to drink wine; nor for princes strong drink." And it is often so. The saints get but little wine here. It is not for kings to drink the wine of pleasure; it is not for kings to have much of the intoxicating drink and the surfeits of this world's delight. They shall have joy enough up yonder, when they shall drink it new in their Father's kingdom. Poor saint! do dwell on this. Thou art a king! I beseech thee, let it not go away from thy mind; but in the midst of thy tribulation, still rejoice in it. If thou hast to go through the dark tunnel of infamy, for Christ's name; if thou art ridiculed and reviled, still rejoice in the fact, "I am a king, and all the dominions of the earth shall be mine!"
 
@@ -91,7 +91,7 @@ It seems important, when such a throng is gathered, that none should go away. Ou
 
 Now, I have to close up with THE WORLD'S FUTURE. "We shall reign on the earth." I have not much time for this, and I dare say it is expected that I shall tell you about the millennium and the personal reign of Christ. I shall not at all, because I don't know anything about it. I have heard a great many people talk of it; and, if anybody shows me a book on the millennium, I say, "I cannot read it just yet." A good man has lately written a book on it, and a gentleman recommended it to me so strongly, that I could not but buy it out of courtesy; but I elevated it to the aristocratic region of library, in the higher ranks, and there it rests in quiet repose. I do not think myself capable of threading the labyrinths of the subject, and I do not believe the very respectable author can do it. It is a subject so dark, and I have read so many different views upon it, that it is all a phantasmagoria with me. I believe all the Bible says of a glorious future, but I cannot pretend to be a maker of charts for all time. Only this I gather as a positive fact, that the saints will one day reign on the earth. This truth appears to me clear enough, whatever may be the different views on the millennium. Now, the saints do not reign visibly; they are despised. They were driven, in old times, into dens and caves of the earth: but the time is coming when kings will be saints, and princes the called ones of God--when queens shall be the nursing mothers, and kings the nursing fathers of Christ's church. The hour is coming when the saint, instead of being dishonored, shall be honored; and monarchs, once the foes of truth, shall become its friends. The saints shall reign. They shall have the majority; the kingdom of Christ shall have the upper hand; it shall not be cast down--this shall not be Satan's world any longer--it shall again sing with all its sister stars, the never ceasing song of praise. Oh! I believe there is a day coming when Sabbath bells shall sprinkle music over the plains of Africa--when the deep thick jungle of India shall see the saints of God going up to the sanctuary; and, I am assured that the teeming multitudes of China shall gather together in temples built for prayer, and, as you and I have done, shall sing, to the ever glorious Jehovah,
 
-> "Praise God from whom all blessings flow."  
+> Praise God from whom all blessings flow.    
 
 Happy day! happy day! May it speedily come! Now, to close up, one very practical inference. Ye are kings and priests unto your God. Then how much ought kings to give to the collection this morning? Thus speak ye to yourselves. "I am a king; I will give as a king giveth unto a king." Now, mark you, no paltry subscriptions! We don't expect kings to put down their names for trifles. Then, again: you are a priest. Well, priest, do you mean to sacrifice? "Yes." But you would not sacrifice a broken-legged lamb, or a blemished bullock, would you? Would you not select the best of the flock? Very right, then select the very best of the Queen's coins, and offer, if you can, sheep with golden fleece. Excuse my pressing this subject. I want to get this chapel enlarged; so do you; we are all agreed about it; we are all rowing in one boat. I have set my mind on £50, and I must, and will, have it to-day, if possible. I hope you won't disappoint me. It is not my own cause, but my Master's--at other times you have given liberally--I am not afraid of you--but hope to come forward, next Sabbath morning, with the cheering announcement that the £50 is all raised, and then I think my spirits will be so elevated, that, by the help of God, I will venture to promise you one of the best sermons I am capable of delivering.
 

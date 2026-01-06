@@ -2,8 +2,8 @@
 
 Sermon No. 100 Delivered on Sabbath Morning, August 24, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And as he was yet a coming, the devil threw him down, and tare him. And Jesus rebuked the unclean spirit, and healed the child, and delivered him again to his father."  
-> Luke 9:42.  
+> And as he was yet a coming, the devil threw him down, and tare him. And Jesus rebuked the unclean spirit, and healed the child, and delivered him again to his father.    
+> Luke 9:42.    
 
 THIS child possessed with an evil spirit, is a most fitting emblem of every ungodly and unconverted man. Though we be not possessed with devils, yet by nature we are possessed with devilish vices and lusts, which if they do not distress and vex our bodies, will most certainly destroy our souls. Never creature possessed with evil spirit was in a worse plight than the man who is without God, without Christ, and without hope in the world. The casting out of the unclean spirit was moreover a thing that was impossible to man and only possible to God; and so is the conversion of an ungodly sinner a thing beyond the reach of human ability, and only to be accomplished by the might of the Most High. The dreadful bellowings, foamings, and tearings caused in this unhappy child by the unclean spirit, are a picture of the sins, iniquities, and vices into which ungodly men are continually and impetuously hurried; and a type of that sad and terrible suffering which remorse will by-and-bye bring to their conscience, and which the vengeance of God will soon cause to occupy their hearts. The bringing of this child to the Saviour by his parents teaches us a lesson, that those of us to whom the care of youth is entrusted, either as parents or teachers, should be anxious to bring our children to Jesus Christ, that he may graciously save them. The devout desire and compassion of the father for his child is but a pattern of what every parent ought to feel for his offspring. Like Abraham, he should pray, "O that Ishmael might live before thee;" and not only put up the prayer, but also strive in the use of the means to bring his child to the Pool of Siloam that haply the angel may stir the stream, and his son may step into the water and be made whole. The parent should place his offspring where the Saviour walks, that he may look upon him and heal him. The coming of the child to Christ is a picture of saving faith, for faith is coming to Christ, simply believing in the power of his atonement. 
 
@@ -29,11 +29,11 @@ The devil will also pervert the doctrine of final perseverance. "Look," says Sat
 
 Then there is the doctrine of redemption; with which the unclean spirit will assault the soul. "Oh," says Satan, "it is true Christ died, but not for you; you are a peculiar character." I remember the devil once made me believe that I was one alone, without a companion. I thought there was no one like myself. I saw that others had sinned as I had done, and had gone as far as I had, but I fancied what there was something peculiar about my sin. Thus the devil tried to set me apart as if I did not belong to the rest of mankind, I thought that if I had been anybody else I might have been saved. How often I wished I had been a poor swearing drunken man in the streets, and then I thought I might have a better chance; but as it was, I thought I was to die alone, like the deer in the shade of the forest. But well do I remember my friends singing that sweet hymn,--
 
-> "His grace is sov'reign, rich and free,  
-> And why, my soul, why not for thee?"  
-> One of the hymns in Denham's selection, and it ought to have been in Rippon's, as well as I can remember, ends thus,--  
-> "He shed his blood so rich and free,  
-> And why, my soul, why not for thee?"  
+> His grace is sov'reign, rich and free,    
+> And why, my soul, why not for thee?"    
+> One of the hymns in Denham's selection, and it ought to have been in Rippon's, as well as I can remember, ends thus,--    
+> "He shed his blood so rich and free,    
+> And why, my soul, why not for thee?    
 
 That is just the question we never put to ourselves. We say, "Sure, my soul, why not for anybody else but thee." Up, poor soul! If Satan is trying to tear thee, tell him it is written, "He is able to save to save to the uttermost all who come unto God by him;" that "whosoever cometh he will in no wise cast out;" and it may be that thus God will deliver thee from that desperate conflict into which, as a coming sinner, thou hast been cast.
 
@@ -55,7 +55,7 @@ In the third place, there is the DEVIL'S DISCOVERY. I do not think the devil wou
 
 Now I will give the poor sinner a means of detecting Satan, so that he may know whether his convictions are from the Holy Spirit, or merely the bellowing of hell in his ears. In the first, place, you may be always sure that that which comes from the devil will make you look at yourselves and not at Christ. The Holy Spirit's work is to turn our eyes from ourselves to Jesus Christ, but the enemy's work is the very opposite. Nine out of ten of the insinuations of the devil have to do with ourselves. "You are guilty," says the devil--that is self. "You have not faith"--that is self. "You do not repent enough"--that is self. "You have got such a wavering hold of Christ"--that is self. "You have none of the joy of the spirit, and therefore cannot be one of his"--that is self. Thus the devil begins picking holes in us; whereas the Holy Spirit takes self entirely away, and tells us that we are "nothing at all," but that
 
-> "Jesus Christ is all in all."  
+> Jesus Christ is all in all.    
 
 Satan brings the carcass of self and pulls it about, and because that is corrupt, tells us that most assuredly we cannot be saved. But remember, sinner, it is not thy hold of Christ that saves thee--it is Christ; it is not thy joy in Christ that saves thee--it is Christ; it is not even faith in Christ, though that is the instrument--it is Christ's blood and merits; therefore, look not so much to thy hand with which thou art grasping Christ, as to Christ; look not to thy hope, but to Christ, the source of thy hope; look not to thy faith, but to Christ, the author and finisher of thy faith; and if thou dost that, ten thousand devils cannot throw thee down, but as long as thou lookest at thyself, the meanest of those evil spirits may tread thee beneath his feet.
 
@@ -63,17 +63,17 @@ You may discern the devil's insinuations in another way, they generally reflect 
 
 Now, in the last place, we have to consider the DEVIL'S DEFEAT. How was he defeated? Jesus rebuked him. Beloved, there is no other way for us to be saved from the castings down of Satan but the rebuke of Jesus. "Oh," says one poor soul, "many months and years have I been distressed for fear I should not be saved; I have gone from place to place in hopes that some minister might say something which should rebuke the evil spirit." Sister, or beloved brother, have you not been doing wrong? Is it not Jesus who rebukes the evil spirit? Or perhaps you have been trying to rebuke the evil spirit yourself; you have tried to argue and dispute with him; you have said that you are not so vile as he described you to be. Beloved, have you not been doing wrong. It is not your business to rebuke Satan "The Lord rebuke thee," that is what thou shouldst say. Oh! if you had looked to Jesus and said, "Lord, rebuke him," he had only need say, "Hush!" and the demon would have been still in a moment, for he knows how omnipotent Jesus is, since he feels his power. But you get striving to pacify your own heart when you are under these temptations, instead of remembering that it is Jesus only who can remove the affliction. If I had one here who suffered the most from this ailment--the possession of Satan, I would say to him, beloved, sit down; remember Jesus; go to Gethsemane, and depend upon it the devil will never stay there with you; think on the agonies of your Saviour covered with his blood; the devil cannot bear Christ's blood--he goes howling away at the very thought of it. Go to the pavement where Christ endured the accursed flagellation; the devil will not stay long there with you; and if you sit at the foot of his cross and say--
 
-> "Oh! how sweet to view the flowing,  
-> Of his ever precious blood,"  
+> Oh! how sweet to view the flowing,    
+> Of his ever precious blood,    
 
 you will not long find the devil vexing you. It is no use to get praying simply. Prayer is good in itself, but that is not the way to get rid of Satan--it is thinking of Christ. We get saying, "Oh, that I had stronger faith! Oh, that I had love to Jesus!" It is good for a Christian to say that, but it is not enough, the way to overcome Satan, and to have peace with God is through Christ, "I am the way;" if thou wouldst know the way, come to Christ. "I am the truth:" if thou wouldst refute the devil's lies come to the truth. "I am the life:" if thou wouldst be spared from Satan's killing, come to Jesus. There is one thing which we all of us too much becloud in our preaching, though I believe we do it very unintentionally--namely, the great truth that it is not prayer, it is not faith, it is not our doings, it is not our feelings upon which we must rest, but upon Christ, and on Christ alone. We are apt to think that we are not in a right state, that we do not feel enough, instead of remembering that our business is not with self, but Christ. Our business is only with Christ. O soul, if thou couldst fix thy soul on Jesus, and neglect everything else--if thou couldst but despise good works, and aught else, so far as they relate to thy salvation, and look wholly, simply on Christ, I tell thee Satan would soon give up throwing thee down, he would find it would not answer his purpose, for thou wouldst fall on Christ, and like the giant who fell upon his mother, the earth, thou wouldst rise up each time stronger than before. Have I then within hearing one poor tried, tempted, devil-dragged soul? Has Satan been pulling you through the thorns, and briers, and thickets, until you are scarred and bruised? Come now, I have tried to preach a rough sermon to you because I knew I had rough work to do with roughly used souls. Is there nothing here, poor sinner, that thou canst lay hold upon? Art thou so locked up that not one ray of light comes through the iron bars? 
 
 What! art thou so chained that thou canst not move hand or foot? Why, man, I have brought thee a pitcher and a piece of bread to-day even in thy dungeon. Though thou art cast down, there is a little here to comfort thee in what I have said: but oh! if my Master would come he would bring more than that, for he would rebuke the unclean spirit, and it would immediately depart from thee. Let me beseech thee, look only to Christ; never expect deliverance from self, from Satan, from ministers, or from means of any kind apart from Christ; keep thine eye simply on him; let his death, his agonies, his groans, his sufferings, his merits, his glories, his intercession, be fresh upon thy mind; when thou wakest in the morning look for him; when thou liest down at night look for him. Oh! let not thy hopes or fears come between thee and Christ; seek only Christ; let the hymn we sang be thy hymn and thy prayer,--
 
-> "Lord, deny me what thou wilt,  
-> Only ease me of my guilt,  
-> Prostrate at thy feet I lie,  
-> Give me Christ, or else I die."  
+> Lord, deny me what thou wilt,    
+> Only ease me of my guilt,    
+> Prostrate at thy feet I lie,    
+> Give me Christ, or else I die.    
 
 And then, even though the devil throw thee down and tear thee, it were better he should do so now than that he should tear thee for ever.
 

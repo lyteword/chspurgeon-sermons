@@ -2,8 +2,8 @@
 
 Sermon No. 166 - Delivered on Sabbath Morning, December 6, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "That through death he might destroy him that had the power of death, that is the devil"  
-> Hebrews 2:14.  
+> That through death he might destroy him that had the power of death, that is the devil    
+> Hebrews 2:14.    
 
 IN GOD'S ORIGINAL empire everything was happiness, and joy, and peace. If there be any evil, any suffering and pain, that is not God's work. God may permit it, overrule it, and out of it educe much good; but the evil cometh not of God. He himself standeth pure and perfect, the clean fountain out of which gusheth forth ever more sweet and pure waters. The devil's reign, on the contrary, containeth nought of good, "the devil sinneth from the beginning," and his dominion has been one uniform course of temptation to evil and infliction of misery. Death is a part of Satan's dominion, he brought sin into the world when he tempted our mother Eve to eat of the forbidden fruit, and with sin he brought also death into the world, with all its train of woes. There had been likely no death, if there had been no devil. If Satan had not tempted, mayhap man had not revolted, and if he had not revolted he would have lived for ever, without having to undergo the painful change which is caused by death. I think death is the devil's masterpiece. With the solitary exception of hell, death is certainly the most Satanic mischief that sin hath accomplished. Nothing ever delighted the heart of the devil so much as when he found that the threatening would be fulfilled, "In the day that thou eatest thereof thou shalt surely die," and never was his malicious heart so full of hellish joy as when he saw Abel stretched upon the earth, slain by the club of his brother. "Aha!" said Satan, "this is the first of all intelligent creatures that has died. Oh how I rejoice! This is the crowning hour of my dominion. It is true that I have marred the glory of this earth by my guileful temptation; it is true the whole creation groaneth and travaileth in pain by reason of the evil that I have brought into it; but this, this is my masterpiece; I have killed man; I have brought death into him, and here lieth the first--the first dead man." 
 
@@ -21,8 +21,8 @@ The subject of our discourse this morning is this. Jesus Christ through his deat
 
 Let us begin, then, at the beginning. BY THE DEATH OF CHRIST THE DEVIL'S POWER OVER DEATH IS TO THE CHRISTIAN UTTERLY DESTROYED. The devil's power over death lies in three places, and we must look at it in three aspects. sometimes the devil hath power in death over the Christian, by tempting him to doubt his resurrection, and leading him to look into the black future with the dread of annihilation. We will look at that first, and we will endeavor to show you that by the death of Christ that peculiar form of the devil's power in death is entirely removed. When the poor spirit lieth on the verge of eternity, if faith be weak, and if the eye-sight of hope be dim, the Christian will most likely look forward into what? Into a world unknown, and the language of even the infidel sometimes rush into the lips of the most faithful child of God.
 
-> "My soul looks down on what?  
-> A dread eternity; a dreary gulf."  
+> My soul looks down on what?    
+> A dread eternity; a dreary gulf.    
 
 You may tell him of the promises; you may try to cheer him by reminding him of the certain revelations of the future; but apart from the death of Christ, I say, even the Christian himself would look forward to death as being a dreary goal, a dark cloudy end to a life of weariness and woe. Whither am I speeding? An arrow shot from the bow of God's creation! Whither am I speeding? And the answer cometh back from blank nothingness thou camest, and thou art speeding to the same; there is nought to thee; when thou diest thou art lost. Or if reason has been well tutored it may perhaps reply to him, "Yes, there is another world, but reason can only tell him that it thinks so. It dreams of it. but what that other world shall be, what its tremendous mysteries, what its gorgeous splendors, or what its horrible terrors, reason cannot tell." And the sting of death would be to such a man, who had no view of immortality in Christ, the thought that he was to be annihilated--not to exist--or if to exist that he knew not how, or where. But, beloved, by the death of Christ all this is taken away. If I lie a-dying, and Satan comes to me and says, "Thou art to be annihilated, thou art now sinking beneath the waves of time, and thou shalt lie in the caverns of nothingness for ever; thy living, leaping spirit, is to cease for ever and be not." I reply to him, "No, not so: I have no fear of that; O Satan, thy power to tempt me here faileth utterly and entirely. See there my Saviour! He died--he died really and actually, for his heart was pierced, he was buried, he lay in his grave three days; but, O Devil, he was not annihilated, for he rose again from the tomb on the third day, and in the glories of the resurrection he appeared unto many witnesses, and gave infallible proofs that he was risen from the dead. 
 
@@ -32,20 +32,20 @@ But now for a more common temptation--another phase of the devil's power in deat
 
 And he turns over page after page, and he stops over some very black page, and says, "See here!" And he twits the Christian with the thing. "Ah!" saith he, "David, remember Bathsheba. Lot, remember Sodom and the cave, Noah, remember the vineyard and the drunkenness." Ah! and it makes even the saint quiver, when sin stares him in the face--when the ghosts of his old sins rise up and stare upon him. He is a man that has got faith indeed that can look sin in the face, and still say, "The blood of Jesus Christ cleanseth me from sin." But were it not for that blood, were it not for the death of Christ, you can easily conceive what power the devil would have over us in the hour of death, because he would fling all our sins in our teeth just when we came to die, But now see how through death Christ has taken away the devil's power to do that. We reply to the temptation to sin, "In truth O Satan thou art right; I have rebelled, I will not belie my conscience and my memory; I own I have transgressed. O Satan, turn to the blackest page of my history, I confess all,
 
-> 'Should he send my soul to hell  
-> His righteous law approves it well.'  
+> Should he send my soul to hell    
+> His righteous law approves it well.    
 
 But O fiend, let me tell thee my sins were numbered on the scape-goat's head of old. Go thou, O Satan, to Calvary's cross, and see my substitute bleeding there, Behold, my sins are not mine; they are laid on his eternal shoulders, and he has cast them from his own shoulders into the depths of the sea. Avaunt, hell-hound! Wouldst thou worry me? Go thou and satisfy thyself with a sight of that Man, who entered the gloomy dungeons of death, and slept awhile there, and then rent the bars away, and led captivity captive as a proof that he was justified of God the Father. and that I also am justified in him." Oh! yes, this is the way that Christ's death destroys the power of the devil. We can tell the devil that we care not for him, for all our sins are passed away, covered in the thick cloud, and shall not be brought against us any more for ever, "Ah!" said an aged saint once who had been much teased by Satan, "at last I got rid of my temptations, sir, and I enjoyed much peace," "How did you do it?" said a Christian friend who visited him, "I showed him blood, sir; I showed him the blood of Christ." That is a thing the devil cannot endure. You may tell the devil, "Oh! but I prayed so many times." He will sniff at your prayers. You may tell him, "Ah! but I was a preacher" He will laugh in your face, and tell you you preached your own damnation You may tell him you had some good works, and he will lift them up and say, "these are your good works--filthy rags: no one would have them at a gift." You may tell him, "Ah! but I have repented." He will sneer at your repentance. You may tell him what you like, he will sneer at you, till at last you say,
 
-> "Nothing in my hands I bring,  
-> Simply to the cross I cling;"  
+> Nothing in my hands I bring,    
+> Simply to the cross I cling;    
 
 And it is all over with the devil then; there is nothing now that he can do, for the death of Christ has destroyed the power that the devil hath over us to tempt us on account of our guilt. "The sting of death is sin:" our Jesus took the sting away, and now death is harmless to us, because it is not succeeded by damnation.
 
 Once more, you may suppose a Christian who has firm confidence in a future state. The evil one has another temptation for him.."It. may be very true," saith he, "that you are to live for ever and that your sins have been pardoned; but you have hitherto found it very hard work to persevere, and now you are about to die you will be sure to fail. When you have had troubles you know you have been half inclined to go back again to Egypt. Why, the little hornets that you have met have worried you, and now this death is the prince of dragons; it will be all over with you now. You know that when you used to go through a cart-rut you were crying for fear of being drowned: what will you do now that you have got into the swellings of Jordan? "Ah!" says the devil, "you were afraid of the lions when they were chained: what will you do with this unchained lion? How will you come off now? When you were a strong man and had marrow in your bones, and your sinews were full of strength, even then you trembled at me: now I shall have at you, when I get you in your dying-time and your strength fails, and if I once get the grip of you
 
-> 'That desperate tug your soul shall feel,  
-> Through bars of brass and triple-steel.'  
+> That desperate tug your soul shall feel,    
+> Through bars of brass and triple-steel.    
 
 Ah! you will then be overcome." And sometimes the poor feint-hearted Christian thinks that is true; I shall surely fall one day by the hand of the enemy. Up gets the Arminian divine, and says, "that is a very proper sort of feeling, my friend; God often does desert his children and cast them away." To which we reply "Thou liest, Arminian; shut thy mouth, God never did desert his children, neither can he, nor will he."
 
@@ -55,9 +55,9 @@ But please to notice, that this answer springs and arises from Christ's death. L
 
 And the devil laughed for very glee, when he saw the Saviour stand before Pilate's bar. And when it was said, "Let him be crucified," then his joy scarce knew bounds, except that bound which his own misery must ever set to it. As far as he could he revelled in what was to him a delightful thought, that the Lord of glory was about to die. In death, as Christ was seen of angels, he was seen of devils too; and that dreary march from Pilate's palace to the cross was one which devils saw with extraordinary interest. And when they saw him on the cross, there stood the exulting fiend, smiling to himself. "Ah! I have the King of Glory now in my dominions, I have the power of death, and I have the power over the Lord Jesus." He exerted that power, till the Lord Jesus had to cry out in bitter anguish, "My God, my God, Why hast thou forsaken me?" But ah! how short-lived was hellish victory! How brief was the Satanic triumph! He died, and "It is finished!" shook the gates of hell. Down from the cross the conqueror leaped, pursued the fiend with thunder-bolts of wrath; swift to the shades of hell the fiend did fly, and swift descending went the conqueror after him; and we may conceive him exclaiming--
 
-> "Traitor! this bolt shall find and pierce thee through,  
-> Though under hell's profoundest wave thou div'st,  
-> To find a sheltering grave."  
+> Traitor! this bolt shall find and pierce thee through,    
+> Though under hell's profoundest wave thou div'st,    
+> To find a sheltering grave.    
 
 And seize him he did--chained him to his chariot wheel; dragged him up the steps of glory; angels shouting all the while, "He hath led captivity captive, and received gifts for men." Now, devil, thou saidst thou wouldst overcome me, when I came to die. Satan I defy thee, and laugh thee to scorn! My Master overcame thee, and I shall overcome thee yet. You say you will overcome the saint, do you? You could not overcome the saint's Master, and you will not overcome him. You once thought you had conquered Jesus: you were bitterly deceived. Ah! Satan, thou mayest think thou shalt overcome the little faith and the faint heart; but thou art wondrously mistaken--for we shall assuredly tread Satan under our feet shortly; and even in our last extremity, with fearful odds against us, we shall be "more than conquerors through him that loved us."
 
@@ -79,35 +79,35 @@ And now, in conclusion, suffer a word or two of comfort to the people of God, an
 
 O children of God! death hath lost its sting, because the devil's power over it is destroyed. Then cease to fear dying. Thou knowest what death is: look him in the face, and tell him thou art not afraid of him. Ask grace from God, that by an intimate knowledge and a firm belief of thy Master's death, thou mayest be strengthened for that dread hour. And mark me, if thou so livest, thou mayest be able to think of death with pleasure, and to welcome it when it comes with intense delight. It is sweet to die: to lie upon the breast of Christ, and have one's soul kissed out of one's body by the lips of divine affection. And you that have lost friends, or that may be bereaved, sorrow not as those that are without hope; for remember the power of the devil is taken away. What a sweet thought the death of Christ brings us concerning those who are departed! They are gone, my brethren; but do you know how far they have gone? The distance between the glorified spirits in heaven and the militant saints on earth seems great; but it is not so. We are not far from home.
 
-> "One gentle sigh the spirit breaks,  
-> We scarce can say tis gone,  
-> Before the ransomed spirit takes  
-> Its station near the throne."  
+> One gentle sigh the spirit breaks,    
+> We scarce can say tis gone,    
+> Before the ransomed spirit takes    
+> Its station near the throne.    
 
 We measure distance by time. We are apt to say that a certain place is so many hours from us. If it is a hundred miles off and there is no railroad we think it a long way; if there is a railway, we think we can be there in no time, But how near must we say heaven is? For it is just one sigh and we get there. Why, my brethren, our departed friends are only in the upper room, as it were, of the same house; they have not gone far off; they are up stairs, and we are down below.Yea, more as the poet says,
 
-> "Ten thousands to their endless home,  
-> This solemn moment fly,  
-> And we are to the margin come,  
-> And soon expect to die."  
+> Ten thousands to their endless home,    
+> This solemn moment fly,    
+> And we are to the margin come,    
+> And soon expect to die.    
 
 And then he describes them.
 
-> "Part of the host have crossed the flood."  
+> Part of the host have crossed the flood.    
 
 There they are, on the other side the banks. Here is another part, deep in the stream. Here are we on the margin, just about to step down. They are all one army; there is not one gap, right down from Abel to the one that is now departing; and they never shall be but one, till the pearly gates are shut for ever, and they are all secure.
 
-> "E'en now by faith we clasp our hands  
-> With those that went before,  
-> And greet the blood-besprinkled bands  
-> Upon the eternal shore."  
+> E'en now by faith we clasp our hands    
+> With those that went before,    
+> And greet the blood-besprinkled bands    
+> Upon the eternal shore.    
 
 And now I close by saying this word to the sinner O thou that knowest not God, thou that believest not in Christ, death is to thee a horrible thing. I need not tell thee that; for thine own conscience tells it to thee. Why, man, thou mayest laugh sometimes at religion; but in thine own solitary moments it is no laughing thing. The greatest brags in the world are always the greatest cowards. If I hear a man saying, "Oh, I am not afraid of dying, I don't care about your religion," he does not deceive me; I know all about that. He says that to cover up his fears, when he is alone of a night. You should see how white his cheek is if a leaf falls against the window When there is lightning in the air you should look at him. "Oh that flash" he says. Or if he is a strong man perhaps he does not say a word, but he feels in such horror all the time the storm is on. Not like the Christian man: not like the man who has courage. Why, I love the lightnings; God's thunder is my delight. I never feel so well as when there is a tremendous thunder and lightning storm. Then I feel as if I could mount up, and my whole heart sings. I love then to sing--
 
-> "This awful God is mine  
-> My Father and my love,  
-> He shall send down his heavenly powers  
-> To carry me above."  
+> This awful God is mine    
+> My Father and my love,    
+> He shall send down his heavenly powers    
+> To carry me above.    
 
 Yes, you are afraid of dying I know; and what I shall say to you is this _ You have good need to be afraid of dying, and you have good need to be afraid of dying now. Because you have escaped many times you think you shall never die. Suppose we should take a man and tie him to that pillar, and a good marksman should take bow and arrows and shoot at him. Well, one arrow might glance and strike some one that sits at the right, and another might glance and strike some one that is to the left; one might go above his head, and another beneath his feet, but you cannot suppose that man would laugh and mock, when the arrows were flying about his ears, and if he was quite certain that it only wanted the marksman to take an aim at him, and he would be shot, then, my friends, you cannot conceive how he would tell you what terror he would experience. But certainly there would be no laughter. He would not say, "Oh! I shall not die, see, the man has been shooting all these others." No, the risk of dying would be enough to steady him and the thought that that marksman had an eye so true and a hand so steady that he had but to pull the string, and the arrow would certainly reach his heart, would be enough at least to sober him, and keep him always watchful; for in a moment, when he thought not that arrow might fly. Now, that is you to-day, God puts the arrow to the string: your neighbor is dead on the right, and another on the left; the arrow will come to you soon, it might have come before, if God willed it. Oh, mock not at death, and despise not eternity, but begin to think whether you are prepared for death, lest death should come and find you wanting. 
 

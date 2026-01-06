@@ -2,8 +2,8 @@
 
 Sermon No. 245 - Delivered on Sabbath Morning, March 27th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "No man cometh unto the Father, but by me."  
-> St. John 14:6.  
+> No man cometh unto the Father, but by me.    
+> St. John 14:6.    
 
 THERE ARE many men in this world, who so far from coming to God, are going as far as they can from him. Nothing would delight such men so much as to be clean rid of his presence, and to be entirely escaped from the bounds of his dominions. They would be content to make their bed in hell, if they could thus find a satisfactory answer to the question, "Whither shall I go from thy Spirit, or whither shall I flee from thy presence?" Their hearts are at enmity with God; they hate his words and his ways. They know that God is angry with them; and they in return are angry with God. There is another class, who are but very little in advance of these. It cannot be said of them, with the same emphatic meaning, that they actually hate God, but nevertheless they run from him. Perhaps they would indignantly repel a charge of abhorring God, but nevertheless, it is true of them, that they live in utter disregard of him. They say in their hearts "No God." God is not in all their thoughts. They may have sublime thoughts of nature, but few yearnings after him who made nature. They think much of time, and sense, and of the things that are below; but as to eternity and its substantial realities, the things that are unseen and everlasting, these they scarce can think upon. "Beware, ye that forget God," for your state is no better than the state of those I first described. "The wicked shall be turned into hell." those who hate God shall feel his torment, but so shall their companions, for thus runs the text, "The wicked shall be cast into hell with all the nations that forget God." 
 
@@ -11,8 +11,8 @@ It is not needful that you should hate God; that you should go to war with him i
 
 When Adam was perfect in the garden of Eden, God walked with him in the cool of the day. God and man held the most intimate and affectionate intercourse with one another. Man was a happy creature, God was a condescending Creator, and the two met together and held sweet converse and communion. But from the moment when Adam touched the forbidden fruit, the way from God to man became blocked up, the bridge was broken down, a great gulph was fixed, so that if it had not been for the divine plan of grace, we could not have ascended to God, neither could God in justice come down to us. Happily, however, the everlasting covenant ordered in all things and sure, had provided for this great catastrophe. Christ Jesus the Mediator had in old eternity been ordained to become the medium of access between man and God. If you want a figure of him, remember the memorable dream of Jacob. He laid him down in a solitary place, and he dreamed a dream, which had in it something more substantial than anything he had seen with his eyes wide open. He saw a ladder, the foot whereof rested upon earth, and the top thereof reached to heaven itself. Upon this ladder he saw angels ascending and descending. Now this ladder was Christ. Christ in his humanity rested upon the earth, he is bone of our bone, and flesh of our flesh. In his divinity he reaches to the highest heaven, for he is very God of very God. When our prayers ascend on high they must tread the staves of this ladder, and when God's blessings descend to us, the rounds of this marvellous ladder must be the means of their descent. Never has a prayer ascended to God save through Jesus Christ. Never has a blessing come down to man save through the same Divine Mediator. There is now a highway, a way of holiness wherein the redeemed can walk to God, and God can come to us. The king's highway,--
 
-> "The way the holy prophets went--  
-> The road that leads from banishment."  
+> The way the holy prophets went--    
+> The road that leads from banishment.    
 
 Jesus Christ, the way, the truth, and the life.
 
@@ -60,9 +60,9 @@ Away with thee! Heaven is not for such as thou art. But dost thou say, "I will l
 
 Come, now, ye that have nothing to bring, come to Christ this morning, ye perishing, ye guilty, and ye lost. God a ambassador stands before you, and as though Christ did woo you, he pleads with you to come to Jesus now. Ye that are under conviction of sin, and want salvation, believe on him now. In thine heart poor sinner, say--
 
-> "Just as I am, without one plea,  
-> But that thy blood was shed for me,  
-> And that thou bidd'st me come to thee,  
-> O Lamb of God, I come."  
+> Just as I am, without one plea,    
+> But that thy blood was shed for me,    
+> And that thou bidd'st me come to thee,    
+> O Lamb of God, I come.    
 
 The invitation is freely given, the proclamation is openly made. My God is not a God of hatred and of anger; he is a God of love. He bids you who are thirsty, who are longing to see his face, he bids you now come; and he tells you, and he confirms the same with an oath--"As I live, saith the Lord God, I have no pleasure in the death of the wicked but that the wicked turn from his way and live: turn ye, turn ye from your evil ways; for why will ye die, O house of Israel?" Come now! "The Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely." O Spirit of God! draw sinners to Christ! O glorious One! do thou be pleased now to draw them to the Father, through Jesus Christ, the Son of God.

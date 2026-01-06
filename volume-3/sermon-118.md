@@ -2,8 +2,8 @@
 
 Sermon No. 118 - Delivered on Sabbath Morning, February 22, 1857, by the REV. C.H. SPURGEON at The Music Hall, Royal Surrey Gardens.
 
-> "Without shedding of blood is no remission."  
-> Hebrews 9: 22.  
+> Without shedding of blood is no remission.    
+> Hebrews 9: 22.    
 
 I will show you three fools. One is yonder soldier, who has been wounded on the field of battle, grievously wounded, well nigh unto death; the surgeon is by his side, and the soldier asks him a question. Listen, and judge of his folly. What question does he ask? Does he raise his eyes with eager anxiety and inquire if the wound be mortal, if the practitioner's skill can suggest the means of healing, or if the remedies are within reach and the medicine at hand? No, nothing of the sort; strange to tell, he asks, "Can you inform me with what sword I was wounded, and by what Russian I have been thus grievously mauled? I want," he adds, "to learn every minute particular respecting the origin of my wound." The man is delirious or his head is affected. Surely such questions at such a time are proof enough that he is bereft of his senses.
 
@@ -49,11 +49,11 @@ Sir, I have nothing to say to you except this--"The wrath to come! the wrath to 
 
 Now, if I have the pleasure of seeing him, I shall tell him, God does not require a man to think himself the wickedest in the world, because that would sometimes be to think a falsehood; there are some men who are not so wicked as others are. What God requires is this, that a man should say, "I know more of myself than I do of other people; I know little about them, and from what I see of myself, not of my actions, but of my heart, I do think there can be few worse than I am. They may be more guilty openly, but then I have had more light, more privileges, more opportunities, more warnings, and therefore I am still guiltier." I do not want you to bring your brother with you, and say, "I am more wicked than he is;" I want you to come yourself, and say, "Father, I have sinned;" you have nothing to do with your brother William, whether he has sinned more or less; your cry should be, "Father, I have sinned;" you have nothing to do with your cousin Jane, whether or not she has rebelled more than you. Your business is to cry, "Lord, have mercy upon me, a sinner!" That is all. Do you feel yourselves lost? Again, I say,--
 
-> "Come, and welcome, sinner, come!"  
+> Come, and welcome, sinner, come!    
 
 To conclude. There is not a sinner in this place who knows himself to be lost and ruined, who may not have all his sins forgiven, and "rejoice in the hope of the glory of God." You may, though black as hell, be white as heaven this very instant. I know tis only by a desperate struggle that faith takes hold of the promise, but the very moment a sinner believes, that conflict is past. It is his first victory, and a blessed one. Let this verse be the language of your heart; adopt it, and make it your own:
 
-> "A guilty weak, and helpless worm.  
-> In Christ's kind arms I fall;  
-> He is my strength and righteousness,  
-> My Jesus and my all."  
+> A guilty weak, and helpless worm.    
+> In Christ's kind arms I fall;    
+> He is my strength and righteousness,    
+> My Jesus and my all.    

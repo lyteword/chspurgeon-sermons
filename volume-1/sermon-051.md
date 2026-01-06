@@ -2,8 +2,8 @@
 
 Sermon No. 51 - Delivered on Sabbath Morning, November 25, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Oh that I were as in months past."  
-> Job 29:2.  
+> Oh that I were as in months past.    
+> Job 29:2.    
 
 FOR THE MOST part the gracious Shepherd leads his people beside the still waters, and makes them to lie down in green pastures; but at times they wander through a wilderness, where there is no water, and they find no city to dwell in. Hungry and thirsty, their soul fainteth within them, and they cry unto the Lord in their trouble. Though many of his people live in almost constant joy, and find that religion's ways are ways of pleasantness, and all her paths are peace, yet there are many who pass through fire and through water: men do ride over their heads,--they endure all manner of trouble and sorrow. The duty of the minister is to preach to different characters. Sometimes we admonish the confident, lest they should become presumptuous; oftentimes we stir up the slumbering, lest they should sleep the sleep of death. Frequently we comfort the desponding, and this is our duty this morning--or if not to comfort them, yet to give them some exhortation which may by God's help be the means of bringing them out of the sad condition into which they have fallen, so that they may not be obliged to cry out for ever--"Oh that I were as in months past!"
 
@@ -13,13 +13,13 @@ First, there is a COMPLAINT. How many a Christian looks on the past with pleasur
 
 Let us take distinct cases one by one. The first is the case of a man who has lost the brightness of his evidences, and is crying out, "Oh that I were as in months past!" Hear his soliloquy:--"Oh that my past days could be recalled! Then I had no doubt of my salvation. If any man had asked for the reason of the hope that was in me, I could have answered with meekness and with fear. No doubt distressed me, no fear harassed me; I could say with Paul, I know whom I have believed,' and with Job, I know that my Redeemer liveth;
 
-> 'My steady soul did fear no more  
-> Than solid rocks when billows roar.'  
-> I felt myself to be standing on the rock Christ Jesus. I said--  
-> 'Let cares like a wild deluge come,  
-> And storms of sorrow fall;  
-> Sure I shall safely reach my home,  
-> My God, my heaven, my all'  
+> My steady soul did fear no more    
+> Than solid rocks when billows roar.'    
+> I felt myself to be standing on the rock Christ Jesus. I said--    
+> 'Let cares like a wild deluge come,    
+> And storms of sorrow fall;    
+> Sure I shall safely reach my home,    
+> My God, my heaven, my all    
 
 But ah! how changed it is now! Where there was no cloud it; all cloud; where I could read my my title clear,' I tremble to read my damnation quite as clearly. I hoped that I trusted in Christ, but now the dark thought rises up, that I was a hypocrite, and had deceived myself and others. The most I can attain to, is--Methinks I will hope in him still; and if I may not be refreshed with the light of his countenance, still in the shadow of his wings will I trust.' I feel that if I depart from him there is no other Saviour; but oh! what thick darkness surrounds me! Like Paul of old, there have been days and nights wherein neither sun, nor moon nor stars have appeared. I have lost my roll in the Arbour of Ease; I cannot now take it out of my breast, and read it to console me on my journey; but I fear that when I get to the end of the way they will deny me entrance, because I came not in by the door to receive his grace and know his love, but have been deceived, have taken carnal fancies for the workings of the Spirit, and have imputed what was but natural conviction to the work of God the Holy Ghost."
 
@@ -27,41 +27,41 @@ This is one phase, and a very common one. You will meet many who are crying out 
 
 Another phase of this great complaint, which it also very frequently assumes, is one under which we are lamenting--not so much because our evidences are withered as because we do not enjoy a perpetual peace of mind as to other matters. "Oh "says one, "Oh that I were as in months past; for then whatever troubles and trials came upon me, were less than nothing. I had learned to sing--
 
-> 'Father, I wait thy daily will;  
-> Thou shalt divide my portion still;  
-> Give me on earth what seems thee best,  
-> Till death and heaven reveal the rest.'  
+> Father, I wait thy daily will;    
+> Thou shalt divide my portion still;    
+> Give me on earth what seems thee best,    
+> Till death and heaven reveal the rest.    
 
 I felt that I could give up everything to him; that if he had taken away every mercy I could have said--
 
-> 'Yea, if thou take them all away,  
-> Yet will I not repine;  
-> Before they were possessed by me,  
-> They were entirely thine.'  
+> Yea, if thou take them all away,    
+> Yet will I not repine;    
+> Before they were possessed by me,    
+> They were entirely thine.    
 
 I knew no fear for the future. Like a child on its mother's breast I slept securely; I said, Jehovah-jireh, my God will provide,' I put my business into his hands; I went to my daily labor; like the little bird that waketh up in the morning, and knoweth not where its breakfast is to come from, but sitteth on the spray, singing--
 
-> 'Mortal, cease from toil and sorrow  
-> God provideth for the morrow;'  
+> Mortal, cease from toil and sorrow    
+> God provideth for the morrow;    
 
 so was I. I could have trusted Him with my very life, with wife, with children, with everything, I could give all into his hands, and say each morning, Lord, I have not a will of my own, or if I have one, still, thy will be done; thy wish shall be my wish; thy desire shall be my desire.' But oh that I were as in months past!' How changed am I now! I begin fretting about my business; and if I lose now but a live pound note, I am worried incessantly, whereas, if it were a thousand before, I could have thanked the God who took it away as easily as I could the God that gave it to me. How the least thing disturbs me. The least shadow of a doubt as to some calamity that may befall me, rests on my soul like a thick cloud. I am perpetually self-willed, desiring always to have just what I wish. I cannot say I can resign all into his hands; there is a certain something I could not give up. Twined round my heart there is an evil plant called self-love. It has twisted its roots within the very nerves and sinews of my soul. There is something I love above my God. I cannot give up all now; but oh that I were as in months past!' For then my mercies were real mercies, because they were God's mercies. "Oh," says he, "that I were as in months past!' I should not have had to bear such trouble as I have now, for though the burden might have pressed heavily, I would have cast it on the Lord. Oh! that I knew the heavenly science of taking the burdens off my own shoulders, and laying them on the Rock that supports them all! Oh! if I knew how to pour out my griefs and sorrows as I once did! I have been a fool, an arrant fool, a very fool, that I should have run away from that sweet confidence I once had in the Saviour! I used then to go to his ear, and tell him all my griefs.
 
-> 'My sorrows and my griefs I poured  
-> Into the bosom of my God;  
-> He helped me in the trying hour,  
-> He helped me bear the heavy load.'  
+> My sorrows and my griefs I poured    
+> Into the bosom of my God;    
+> He helped me in the trying hour,    
+> He helped me bear the heavy load.    
 
 But now, I foolishly carry them myself, and bear them in my own breast, Ah!
 
-> 'What peaceful hours I then enjoyed!'  
-> Would that they would return to me."  
+> What peaceful hours I then enjoyed!'    
+> Would that they would return to me.    
 
 Another individual perhaps is speaking thus concerning his enjoyment in the house of God and the means of grace. "Oh," says one, "in months past, when I went up to the house of God, how sweetly did I hear! Why, I sat with my ears open, to catch the words, as if it were an angel speaking; and when I listened, how at times did the tears come rolling down my cheeks! and how did my eyes flash, when some brilliant utterance, full of joy to the Christian, aroused my soul! Oh! how did I awake on the Sabbath morning, and sing,
 
-> 'Welcome, sweet day of rest,  
-> That saw the Lord arise;  
-> Welcome to this reviving breast,  
-> And these rejoicing eyes!'  
+> Welcome, sweet day of rest,    
+> That saw the Lord arise;    
+> Welcome to this reviving breast,    
+> And these rejoicing eyes!    
 
 And when they sang in the house of God, whose voice was so fond as mine. When I retired from worship, it was with a light tread; I went to tell my friends and my neighbors what glorious news I had heard in the sanctuary. Those were sweet Sabbaths; and when the prayer-meetings came round, how was I found in my places and the prayers were prayers indeed to my spirit; whoever I heard preach, provided it was the gospel, how did my soul feed and fatten under it! for I sat at a very banquet of joy. When I read the Scriptures they were always illuminated, and glory did gild the sacred page, whenever I turned it over. When I bent my knee in prayer, I could pour my soul out before God, and I loved the exercise; I felt that I could not be happy unless I spent my time upon my knees; I loved my God, and my God loved me; but oh! how changed now! Oh that I were as in months past!' I go up to God's house; it is the same voice that speaks, the same man I love so much, still addresses me; but I have no tears to shed now; my heart has become hardened even under his ministry; I have few emotions of joy; I enter the house of God as a boy goes to school, without much love to it, and I go away without having my soul stirred. When I kneel down in secret prayer, the wheels are taken off my chariot, and it drags very heavily; when I strive to sing, all I can say is, I would but cannot'; Oh that I were as in months past!' when the candle of the Lord shone round about me!"
 
@@ -91,16 +91,16 @@ Just when we imagine we are the worst, we are often the best, and when we concei
 
 And now, the closing up is to be an EXHORTATION. An exhortation, first of all, to consolation, One is saying, "Oh! I shall never be in a more happy state than I now am in, I have lost the light of his countenance; he hath clean gone away from me, and I shall perish." You remember in John Bunyan's "Pilgrim's Progress," the description of the man shut up in the iron cage. One says to him, "Wilt thou never come out of this cage?" "No, never." "Art thou condemned for ever?" "Yes, I am." "Why was this?" "Why I grieved the Spirit, and he is gone; I once thought I loved him, but I have treated him lightly and he has departed. I went from the paths of righteousness, and now I am locked up here, and cannot get out." Yes, but John Bunyan does not tell you that the man never did get out? There have been some in that iron cage that have come out. There may be one here this morning, who has been for a long while sitting in that iron cage, rattling the bars, trying to break them, trying to file them through with his own little might and strength. Oh! dear friend, you will never file through the iron bars of that terrible cage; you will never escape by yourself. What must you do? You must begin to sing like the bird in the cage does; then the kind master will come and let you out. Cry to him to deliver you; and though you cry and shout, and he shutteth out your prayer, he will hear you by-and-bye; and like Jonah you shall exclaim in days to come, "Out of the belly of hell I cried unto the Lord, and he heard me." You will find the roll under the settle, although you have dropped it down the Hill of Difficulty; and when thou hast it thou will put it in thy bosom again, and hold it all the more tightly, because thou hast lost it for a little season.
 
-> "Return, O wanderer, return,  
-> And seek an injured Father's face;  
-> Those warm desires that in thee burn  
-> Were kindled by reclaiming grace."  
+> Return, O wanderer, return,    
+> And seek an injured Father's face;    
+> Those warm desires that in thee burn    
+> Were kindled by reclaiming grace.    
 
 And now another exhortation, not so much to console you as to stir you up more and more to seek to be what you ought to be. O Christian men and women, my brethren and sisters in the faith of Jesus Christ! How many there are of you who are content just to be saved, and merely to enter heaven. How many do we find who are saying "Oh! if I can but just get in at the door--if I can simply be a child of God!" and they carry out their desires literally, for they are as little Christian as possible. They would have moderation in religion! But what is moderation in religion? It is a lie; it is a farce. Doth a wife ask her husband to be moderately loving? Doth a parent expect his child to be moderately obedient? Do you seek to have your servants moderately honest? No! Then how can you talk about being moderately religious? To be moderately religious is to be irreligious. To have a religion that does not enter into the very heart and influence the life, is virtually to have no religion at all. I tremble sometimes, when I think of some of you who are mere professors. Ye are content ye whitewashed sepulchres; because ye are beautifully whitened ye rest satisfied, without looking at the charnel-house beneath. How many of you make clean the outside of the cup and platter; and because the church can lay nothing to your charge, and the world cannot accuse you, you think the outside of the cup will be sufficient. Take heed! take heed! The judge will look at the inside of the cup and platter one day; and if it be full of wickedness he will break that platter, and the fragments shall for ever be cast about in the pit of torment. Oh! may God give you to be real Christians! Waxen-winged professors! ye can fly very well here; but when like Icarus, ye fly upwards, the mighty sun of Jesus shall melt your wings, and ye shall fall into the pit of destruction. Ah! gilded Christians, beautifully painted, varnished, polished, what will ye do when ye shall be found at last to have been worthless metal? 
 
 When the wood, hay, and stubble shall be buried and consumed, what will ye do if ye are not the genuine coin of heaven, if ye have not been molten in the furnace, if ye have not been minted from on high? If ye are not real gold, how shall ye stand the fire in that "great and terrible day of the Lord?" Ah! and there are some of you who can stand the fire, I trust. You are the children of God, but, beloved, do I charge you wrongfully when I say, that many of us know that we are the children of God, but we are content to be as little dwarf children, we are always crying out, "Oh that I were as in months past!" That is a mark of dwarfishness. If we are to do great things in the world we must not often utter this cry, We must often be singing
 
-> "I the chief of sinners am; but Jesus died for me;"  
+> I the chief of sinners am; but Jesus died for me;    
 
 and with cheerful countenance we must be able to say that we "know whom we have believed." Do you wish to be useful? Do you desire to honor your Master? Do you long to carry a heavy crown to heaven, that you may put it on the Saviour's head? If you do--and I know you do--then seek above all things that your soul may prosper and be in health--that your inner-man may not be simply in a living state, but that you may be a tree planted by the rivers of water, bringing forth your fruit in your season, your leaf never withering, and whatsoever you do prospering. Ah! do you want to go to heaven, and wear a starless crown there--a crown that shall be a real crown, but that shall have no star upon it, because no soul has been saved by you? Do you wish to sit in heaven with a dress of Christ's on, but without one single jewel that God has given you for your wages here below? Ah! no; methinks you wish to go to heaven in full dress, and to enter into the fullness of the joy of the Lord. Five talents well improved, five cities; and let no man be satisfied with his one talent merely, but let him seek to put it out at interest; "for unto him that hath shall be given, and he shall have abundance."
 
@@ -108,9 +108,9 @@ And finally, to many of you what I have preached about has no interest whatever.
 
 God the Holy Spirit can build a new house out of thee, with neither stick nor stone of the old man in it, and he can give thee a new heart, a new spirit, new pleasures new happiness, new prospects, and at last give thee a new heaven. "But," says one "I feel that I want these things; but may I have them?" Guess whether you may have them, when I tell you--"This is a faithful saying, and worthy of all acceptation, that Jesus Christ came into the world to save sinners." It does not say it is worthy of some acceptation, but it is worthy of all the acceptation you will ever give it. If you now say, "Jesus came into the world so save sinners, I believe he did! I know he did; he came to save me," you will find it "worthy of all acceptation." You say still, "But will he save me?" I will give you another passage: "Whosoever cometh unto me I will in no wise cast out." Ah! but I do not know whether I may come! "Whosoever," it saith. "Him that cometh unto me I will in no wise cast out." "Whosoever will, let him come," it is written. Dost thou will? I only speak to such as will, who know their need of a Saviour. Dost thou will? Then God the Holy Spirit says, "Whosoever will let him come, and take the water of life freely."
 
-> "The feeble, the guilty, the weak, the forlorn,  
-> In coming to Jesus shall not meet with scorn;  
-> But he will receive them, and bless them, and save  
-> From death and destruction, from hell and the grave."  
+> The feeble, the guilty, the weak, the forlorn,    
+> In coming to Jesus shall not meet with scorn;    
+> But he will receive them, and bless them, and save    
+> From death and destruction, from hell and the grave.    
 
 and he will lift them up to his kingdom of glory. God so grant it; for his name sake.

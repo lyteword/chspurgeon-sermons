@@ -2,8 +2,8 @@
 
 Sermon No. 206 - Delivered on Sabbath Morning, July 25, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "I have multiplied visions, and used similitudes."  
-> Hosea 12:10.  
+> I have multiplied visions, and used similitudes.    
+> Hosea 12:10.    
 
 WHEN THE LORD would win his people Israel from their iniquities, he did not leave a stone unturned, but gave them precept upon precept, line upon line, here a little and there a little. He taught them sometimes with a rod in his hand, when he smote them with sore famine and pestilence, and invasion; at other times he sought to win them with bounties, for he multiplied their corn and their wine and their oil, and he laid no famine upon them. But all the teachings of his providence were unavailing, and whilst his hand was stretched out, still they continued to rebel against the Most High. He hewed them by the prophets. He sent them first one, and then another: the golden mouthed Isaiah was followed by the plaintive Jeremy; while at his heels in quick succession, there followed many far-seeing, thunder-speaking seers. But though prophet followed prophet in quick succession, each of them uttering the burning words of the Most High, yet they would have none of his rebukes, but they hardened their hearts, and went on still in their iniquities. Among the rest of God's agencies for striking their attention and their conscience, was the use of similitudes. The prophets were accustomed not only to preach, but to be themselves as signs and wonders to the people. For instance, Isaiah named his child, Maher-shalal-hash-baz, that they might know that the judgment of the Lord was hastening upon them; and this child was ordained to be a sign, "for before the child shall have knowledge to cry, my father and my mother, the riches of Damascus and the spoil of Samaria shall be taken away before the king of Assyria." 
 

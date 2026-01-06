@@ -2,8 +2,8 @@
 
 Sermon No. 127 - Delivered on Sabbath Morning, April 12, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And you hath he quickened, who were dead in trespasses and sins."  
-> Ephesians 2:1.  
+> And you hath he quickened, who were dead in trespasses and sins.    
+> Ephesians 2:1.    
 
 IT MIGHT NATURALLY be expected that I should have selected the topic of the resurrection on what is usually called the Easter Sabbath. I shall not do so; for although I have read portions which refer to that glorious subject, I have had pressed on my mind a subject which is not the resurrection of Christ, but which is in some measure connected with it--the resurrection of lost and ruined men by the Spirit of God in this life.
 

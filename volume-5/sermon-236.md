@@ -2,12 +2,12 @@
 
 Sermon No. 236 - Delivered on Sabbath Morning, January 30th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Who for the joy that was set before him endured the cross, despising the shame, and is now set down at the right hand of the throne of God."  
-> Hebrews 12:2.
+> Who for the joy that was set before him endured the cross, despising the shame, and is now set down at the right hand of the throne of God.    
+> Hebrews 12:2.    
 
 OH what shall I do, my Saviour to praise?" Where shall language be found which shall describe his matchless, his unparalleled love towards the children of men. Upon any ordinary subject one may find liberty of speech and fullness of utterance, but this subject lies out of the line of all oratory, and eloquence cannot attain unto it. This is one of the unutterable things--unutterable, because it surpasses thought, and defies the power of words. How, then, can we deal with that which is unutterable? I am conscious that all I can say concerning the sufferings of Jesus, this morning, will be but as a drop of the bucket. None of us know the half of the agony which he endured; none of us have ever fully comprehended the love of Christ which passeth knowledge. Philosophers have probed the earth to its very center, threaded the spheres, measured the skies, weighed the hills--nay, weighed the world itself; but this is one of those vast, boundless things, which to measure doth surpass all but the Infinite itself. As the swallow but skimmeth the water, and diveth not into its depths, so all the descriptions of the preacher but skim the surface, while depths immeasurable must lie far beneath our observation. Well might a poet say
 
-> "O love, thou fathomless abyss!"
+> O love, thou fathomless abyss!    
 
 for this love of Christ is indeed measureless and fathomless. None of us can attain unto it. In speaking thereof we feel our own weakness, we cast ourselves upon the strength of the Spirit, but, even then, we feel that we can never attain unto the majesty of this subject. Before we can ever get a right idea of the love of Jesus, we must understand his previous glory in its height of majesty, and his incarnation upon the earth in all its depths of shame. Now, who can tell us the majesty of Christ? When he was enthroned in the highest heavens he was very God of very God; by him were the heavens made, and all the hosts thereof, by his power he hanged the earth upon nothing; his own almighty arm upheld the spheres; the pillars of the heavens rested upon him; the praises of angels, arch-angels, cherubim and seraphim, perpetually surrounded him; the full chorus of the Hallelujahs of the universe unceasingly flowed to the foot of his throne: he reigned supreme above all his creatures, God over all, blessed for ever. Who can tell his height, then? And yet this must be attained before we can measure the length of that mighty stoop which he took when he came to earth to redeem our souls. And who, on the other hand, can tell how low he descended? To be a man was something, but to be a man of sorrows was far more; to bleed, and die, and suffer, these were much for him who was the Son of God; but to suffer as be did--such unparalleled agony--to endure, as lie did, a death of shame and a death of desertion of his God, this is a lower depth of condescending love which the most inspired mind must utterly fail to fathom. And yet must we first understand infinite height, and then, infinite depth; we must measure, in fact, the whole infinite that is between heaven and hell, before we can understand the love of Jesus Christ.
 
@@ -67,8 +67,8 @@ And now HIS GLORIOUS MOTIVE. What was that which made Jesus speak like this?--"F
 
 But why should Christ look on us? Why should he choose to do this to us? Oh my friends, we never deserved anything at his hands. As a good old writer says "When I look at the crucifixion of Christ, I recollect that my sins put him to death. I see not Pilate, but I see myself in Pilate's place, bartering Christ for honor. I hear not the cry of the Jews, but l hear my sins yelling out, Crucify, him, crucify him.' I see not iron nails, but I see my own iniquities fastening him to the cross. I see no spear, but I behold my unbelief piercing his poor wounded side,
 
-> 'For you, my sins, my cruel sins, his chief tormentors were;  
-> Each of my sins became a nail, and unbelief the spear.'"  
+> For you, my sins, my cruel sins, his chief tormentors were;    
+> Each of my sins became a nail, and unbelief the spear.'    
 
 It is the opinion of the Romanist, that the very man who pierced Christ's side was afterwards converted, and became a follower of Jesus. I do not know whether that is the fact, but l know it is the case spiritually. I know that we have pierced the Saviour, I know that we have crucified him; and yet, strange to say, the blood which we fetched from those holy veins has washed us from our sins, and hath made us accepted in the beloved. Can you understand this. Here is manhood mocking the Saviour, parading him through the streets, nailing him to a cross, and then sitting down to mock at his agonies. And yet what is there in the heart of Jesus but love to them? He is weeping all this while that they should crucify him, not so much because he felt the suffering, though that was much, but because he could bear the thought that men whom he loved could nail him to the tree. "That was the unkindest stab of all." You remember that remarkable story of Julius Caesar, when he was struck by his friend Brutus. "When the noble Caesar saw him stab, ingratitude, more strong than traitor's arms, quite vanquished him! Then burst his mighty heart." Now Jesus had to endure the stab in his inmost bowels, and to know that his elect did it--that his redeemed did it, that his own church was his murderer--that his own people nailed him to the tree? Can you think, beloved, how strong must hare been the love that made him submit even to this. 
 
@@ -76,13 +76,13 @@ Picture yourself to-day going home from this hall. You have an enemy who all his
 
 And now, give me just a moment, and I will try and hold the Saviour up for OUR IMITATION. I speak now to Christians--to those who have tasted and handled of the good word of life. Christian men! if Christ endured all this, merely for the joy of saving you, will you be ashamed of bearing anything for Christ? The words are on my lips again this morning,--
 
-> "If on my face for thy dear name, shame and reproach shall be,  
-> I'll hail reproach, and welcome shame, my Lord, I'll die for thee."  
+> If on my face for thy dear name, shame and reproach shall be,    
+> I'll hail reproach, and welcome shame, my Lord, I'll die for thee.    
 
 Oh! I do not wonder that the martyrs died for such a Christ as this! When the love of Christ is shed abroad in our hearts, then we feel that if the stake were present we would stand firmly in the fire to suffer for him who died for us. I know our poor unbelieving hearts would soon begin to quail at the crackling faggot and the furious heat. But surely this love would prevail over all our unbelief: Are there any of you who feel that if you follow Christ you must lose by it, lose your station, or lose your reputation? Will you be laughed at, if you leave the world and follow Jesus? Oh! and will you turn aside because of these little things when he would not turn aside, though all the world mocked him, till he could say "It is finished." No, by the grace of God, let every Christian lift his hands to the Most High God, to the maker of heaven and earth, and let him say within himself,
 
-> "Now for the love I bear his name, what was my gain I count my loss,  
-> I pour contempt on all my shame, and nail my glory to his cross."  
+> Now for the love I bear his name, what was my gain I count my loss,    
+> I pour contempt on all my shame, and nail my glory to his cross.    
 
 "For me to live is Christ; to die is gain," Living I will be his, dying I will be his; I will live to his honor, serve him wholly, if he will help me, and if he needs, I will die for his name's sake.
 

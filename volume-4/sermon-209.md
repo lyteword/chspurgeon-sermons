@@ -2,8 +2,8 @@
 
 Sermon No. 209 - Delivered on Sabbath Morning, August 15, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved."  
-> Acts 4:12.  
+> Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.    
+> Acts 4:12.    
 
 IT IS A VERY HAPPY CIRCUMSTANCE when the servants of God are able to turn everything to account in their ministry. Now, the apostle Peter was summoned before the priests and Sadducees, the chief of his nation, to answer for having restored a man who was lame from his mother's womb. Whilst accounting for this case of cure, or, if I may use the expression, for this case of temporal salvation, the apostle Peter had this thought suggested to him, "While I am accounting for the salvation of this man from lameness, I have now a fine opportunity of showing to these people, who otherwise will not listen to us, the way of the salvation of the soul." So he proceeds from the less to the greater, from the healing of a man's limb to the healing of a man's spirit; and having informed them once that it was through the name of Jesus Christ that the impotent man had been made whole, he now announces that salvation,--the great salvation, must be wrought by the selfsame means; "Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved."
 
@@ -35,21 +35,21 @@ Now, this brings me to the POSITIVE FACT which is inferred in the text, namely, 
 
 I know thee, sinner! Thou hast long been trying to find the road to heaven, and thou hast missed it. Hitherto thou hast had a thousand dazzling cheats to deceive thee, and never yet one solid ground of comfort for thy poor weary foot; and now, encompassed about by thy sins, thou art not able to look up. Guilt, like a heavy burden, is on thy back, and thy finger is on thy lip, for thou darest not yet cry for pardon; thou art afraid to speak, lest out of thine own mouth thou shouldest be condemned. Satan whispers in thine ear, "It is all over with thee; there is no mercy for such as thou art: thou art condemned, and condemned thou must be; Christ is able to save many, but not to save thee." Poor soul! what shall I say unto thee but this--Come with me to the cross of Christ, and thou shalt there see something which shall remove thine unbelief. Seest thou that man nailed to yonder tree? Dost thou know his character? He is without spot or blemish, or any such thing: he was no thief, that he should die a felon's death: he was no murderer and no assassin, that he should be crucified between two malefactors. No; his original was pure, without a sin; and his life was holy, without a flaw. Out of his mouth there proceeded only blessing; his hands were full of good deeds, and his feet were swift for acts of mercy; his heart was white with holiness. There was nought in him that man could blame; even his enemies, when they sought to accuse him, found false witnesses, but even they "agreed not together." Dost thou see him dying? Sinner, there must be merit in the death of such a man as that; for without sin himself, when he is put to grief, it must be for other men's sins. God would not afflict and grieve him when he deserved it not. God is no tyrant that he should crush the innocent; he is not unholy that he should punish the righteous. He suffered, then, for the sins of others.
 
-> "For sins, not his own, he died to atone."
+> For sins, not his own, he died to atone.    
 
 Think of the purity of Christ, and then see whether there is not salvation in him. Come now With thy blackness about thee, and look at his whiteness; come with thy defilement, and look at his purity; and as thou lookest at that purity, like the lily, and thou seest the crimson of his blood overflowing it, let this whisper be heard in thine ear,--he is able to save thee, sinner, inasmuch as though he was "tempted in all points like as we are," yet he was "without sin;" therefore, the merit of his blood must be great. Oh, may God help thee to believe on him!
 
 But this is not the grand thing which should recommend him to thee. Remember, he who died upon the cross, was no less than the everlasting Son of God. Dost see him there? Come, turn thine eye once more to him. Seest thou his hands and feet trickling with streamlets of gore? That man is Almighty God. Those hands that are nailed to the tree, are hands that could shake the world; those feet that are there pierced have in them, if he willed to put it forth, a potency of strength that might make the mountains melt beneath their tread. That head, now bowed in anguish and in weakness, has in it the wisdom of the Godhead, and with its nod it could make the universe tremble. He who hangs upon the cross yonder, is he without whom was not anything made that was made: by him all things consist--Maker, Creator, Preserver, God of providence, and God of grace--he who died for thee is God over all, blessed for ever. And now, sinner, is there any power to save in such a Saviour as this? If he were a mere man, a Socinian's Christ, or an Arian's Christ, I would not bid thee trust him; but since he is none other than God himself incarnate in human flesh, I beseech thee cast thyself upon him;
 
-> "He is able,
-> He is willing, doubt no more."
+> He is able,    
+> He is willing, doubt no more.    
 
-> "He is able to save unto the uttermost, them that come unto God by him."
+> He is able to save unto the uttermost, them that come unto God by him.    
 
 Will you recollect again, as a further consolation for your faith that you may believe that God the Father has accepted the sacrifice of Christ. It is the Father's anger that you have the most cause to dread. The Father is angry with you, for you have sinned, and he has sworn with an oath that he will punish you for your offenses. Now, Jesus Christ was punished in the room, place, and stead of every sinner who hath repented. or ever shall repent. Jesus Christ stood as his substitute and scapegoat. God the Father hath accepted Christ in the stead of sinners. Oh, ought not this to lead you to accept him? If the Judge has accepted the sacrifice, sure you may accept it too; and if he be satisfied, sure you may be content also. If the creditor has written a full and free discharge; you, the poor debtor, may rejoice and believe that that discharge is satisfactory to you, because it is satisfactory to God. But do you ask me how I know that God has accepted Christ's atonement? I remind you that Christ rose again from the dead. Christ was put into the prison-house of the tomb after he died, and there he waited until God should have accepted the atonement.
 
-> "If Jesus ne'er had paid the debt,  
-> He ne'er had been at freedom set."  
+> If Jesus ne'er had paid the debt,    
+> He ne'er had been at freedom set.    
 
 Christ would have been in the tomb at this very day, if God had not accepted his atonement for our justification; but the Lord looked down from heaven, and he surveyed the work of Christ, and said within himself, "It is very good; it is enough;" and turning to an angel, he said, "Angel, my Son is confined in prison, a hostage for my elect; he has paid the price; I know he will not break the prison down himself; go, angel, go and roll away the stone from the door of the sepulcher, and set him at liberty." Down flew the angel, and rolled away the massive stone; and rising from the shades of death the Saviour lived. "He died and rose again for our justification." Now, poor soul, thou seest God has accepted Christ; surely then, thou mayest accept him and believe on him.
 

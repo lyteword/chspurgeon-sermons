@@ -16,8 +16,8 @@ H. SPURGEON.
 
 Clapham, Tuesday Evening, 26th October, 1858.
 
-> "Fear ye not me? saith the Lord; will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? But this people hath a revolting and a rebellious heart; they are revolted and gone."  
-> Jeremiah 5:22-23.  
+> Fear ye not me? saith the Lord; will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? But this people hath a revolting and a rebellious heart; they are revolted and gone.    
+> Jeremiah 5:22-23.    
 
 THE MAJESTY OF God, as displayed in creation and providence, ought to stir up our hearts in adoring wonder and melt them down in willing obedience to his commands. The Almighty power of Jehovah, so clearly manifest in the works if his hands, should constrain us, his creatures, to fear his name and prostrate ourselves in humble reverence before his throne. When we know that the sea, however tempestuous, is entirely submissive to the behests of God; that when he saith, "Hitherto shalt thou come, but no further," it dares not encroach--"the pride of its waves is stayed." When we know that God bridles the tempest, though "nature rocks beneath his tread," and curbs the boisterous storm--he ought to be feared--verily, he is a God before whom it is no dishonour for us to bow ourselves in the very dust. The contemplation of the marvellous works which he doth upon "the great and wide sea," where he tosseth the waves to and fro, and yet keepeth them in their ordained courses, should draw forth our devoutest emotions, and I could almost say, inspire us with homage. Great art thou, O Lord God; greatly art thou to be praised; let the world which thou hast made, and all that therein is, declare thy glory! I can scarcely conceive a heart so callous that it feels no awe, or a human mind so dull and destitute of understanding, as fairly to view the tokens of God's omnipotent power, and then turn aside without some sense of the fitness of obedience. One might think the impression would be spontaneous in every breast, and if not, only let reason do her office, and by slower process every mind should yet be convinced. 
 
@@ -53,8 +53,8 @@ Then again, God guards all his children with providence, in order to keep them f
 
 Yet, once more let me remind you, beloved, that the ordinances of God's house are all intended to be checks to sin. He girds us by the worship of the sanctuary; he girds us by the remembrance of our holy baptism; and all else that is connected with Christianity is intended to check us from sin. And great are the effects which these produce; yet all are insufficient, without the preserving grace of God, given to us day by day. Let us think, beloved, too, that God has given to us a tender conscience, more tender than the conscience of worldly men, because he has given us living consciences, whereas theirs are often seared and dead. And yet, against this living conscience, against the warnings of the Spirit, against precept, against promise, against experience, against the honour of God, and against the gratitude they owe him, the saints of God have dared to sin, and they must confess before him that they are rebellious, and have revolted from him. Bow down your heads with shame while ye consider your ways, and then lift up your hearts, Christians, in adoring love, that he has kept you when your feet were making haste to hell, where you would have gone, but for his preserving grace. Shall not this long suffering of your God, this tender compassion, be your theme every day--
 
-> "While life, and thought, and being last,  
-> Or immortality endures?"  
+> While life, and thought, and being last,    
+> Or immortality endures?    
 
 Will you not pray, that God should not cast you away, nor take his Holy Spirit from you, though you are a rebellious creature, and though you have revolted against him?
 

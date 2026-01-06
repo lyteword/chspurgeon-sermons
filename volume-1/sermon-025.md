@@ -2,8 +2,8 @@
 
 Sermon No. 25 - Delivered on Sabbath Evening, May 20, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "As for me, I will behold thy face in righteousness; I shall be satisfied, when I awake, with thy likeness."  
-> Psalm 17:15.  
+> As for me, I will behold thy face in righteousness; I shall be satisfied, when I awake, with thy likeness.    
+> Psalm 17:15.    
 
 IT WOULD be difficult to say to which the gospel owes most, to its friends or to its enemies. It is true, that by the help of God, its friends have done much for it; they have preached it in foreign lands, they have dared death, they have laughed to scorn the terrors of the grave, they have ventured all things for Christ, and so have glorified the doctrine they believed; but the enemies of Christ, unwittingly, have done no little, for when they have persecuted Christ's servants, they have scattered them abroad, so that they have gone everywhere preaching the Word; yea, when they have trampled upon the gospel, like a certain herb we read of in medicine, it hath grown all the faster: and if we refer to the pages of sacred writ how very many precious portions of it do we owe, under God, to the enemies of the cross of Christ! 
 
@@ -27,8 +27,8 @@ And again, upon this point, you can see that David, at the time he wrote this, w
 
 Oh! what a happy thing to have that faith to say "I shall." Some of you think it quite impossible, I know; but it "is the gift of God," and whosoever asks it shall obtain it: and the very chief of sinners now present in this place may yet be able to say long before he comes to die, "I shall behold thy face in righteousness." Methinks I see the aged Christian. He has been very poor. He is in a garret where the stars look between the tiles. There is his bed. His clothes ragged and torn. There are a few sticks on the hearth: they are the last he has. He is sitting up in his chair; his paralytic hand quivers and shakes, and he is evidently near his end. His last meal was eaten yester-noon; and as you stand and look at him, poor, weak, and feeble, who would desire his lot? But ask him, "Old man, wouldst thou change thy garret for Caesar's palace? Aged Christian, wouldst thou give up these rags for wealth, and cease to love thy God?" See how indignation burns in his eyes at once! He replies, "As for me, I shall,' within a few more days, behold his face in righteousness; I shall be satisfied soon; here I never shall be. Trouble has been my lot, and trial has been my portion, but I have a house not made with hands, eternal in the heavens.'" Bid high; bid him fair; offer him your hands full of gold; lay all down for him to give up his Christ. "Give up Christ?" he will say, "no, never!"
 
-> "While my faith can keep her hold,  
-> I envy not the miser's gold."  
+> While my faith can keep her hold,    
+> I envy not the miser's gold.    
 
 Oh! what a glorious thing to be full of faith, and to have the confidence of assurance, so as to say, "I will behold thy face; I shall be satisfied when I awake with thy likeness."
 
@@ -42,21 +42,21 @@ Yes, ye have heard that voice, and there is a joy marvellously instinct with lov
 
 But there was a peculiar sweetness mixed with this joy, because he knew that he should behold God's face in righteousness. "I shall behold thy face in righteousness." Have I not seen my Father's face here below? Yes, I have, "through a glass darkly," But has not the Christian sometimes beheld him, when in his heavenly moments earth is gone, and the mind is stripped of matter? There are some seasons when the gross materialism dies away, and when the ethereal fire within blazes up so high that it almost touches the fire of heaven. There are seasons, when in some retired spot, calm and free from all earthly thought, we have put our shoes from off our feet because the place whereon we stood was holy ground; and we have talked with God! even as Enoch talked with him so has the Christian held intimate communion with his Father. He has heard his love whispers, he has told out his heart, poured out his sorrows and his groans before him. But after all he has felt that he has not beheld his face in righteousness. There was so much sin to darken the eyes, so much folly, so much frailty, that we could not get a clear prospect of our Jesus. But here the Psalmist says, "I will behold thy face in righteousness." When that illustrious day shall arise, and I shall see my Saviour face to face, I shall see him "in righteousness." The Christian in heaven will not have so much as a speck upon his garment; he will be pure and white; yea, on the earth he is
 
-> "Pure through Jesus' blood, and white as angels are."  
+> Pure through Jesus' blood, and white as angels are.    
 
 But in heaven that whiteness shall be more apparent. Now, it is sometimes smoked by earth, and covered with the dust of this poor carnal world; but in heaven he will have brushed himself, and washed his wings and made them clean; and then will he see God's face in righteousness. My God; I believe I shall stand before thy face as pure as thou art thyself, for I shall have the righteousness of Jesus Christ there shall be upon me the righteousness of a God. "I shall behold thy face in righteousness." O Christian, canst thou enjoy this? Though I cannot speak about it, dost thy heart meditate upon it? To behold his face for ever; to bask in that vision! True, thou canst not understand it; but thou mayest guess the meaning. To behold his face in righteousness!
 
 The second blessing, upon which I will be brief, is satisfaction. He will be satisfied, the Psalmist says, when he wakes up in God's likeness. Satisfaction! this is another joy for the Christian when he shall enter heaven. Here we are never thoroughly satisfied. True, the Christian is satisfied from himself; he has that within which is a wet-spring of comfort, and he can enjoy solid satisfaction. But heaven is the home of true and real satisfaction. When the believer enters heaven I believe his imagination will be thoroughly satisfied. All he has ever thought of he will there see; every holy idea will be solidified; every mighty conception will become a reality, every glorious imagination will become a tangible thing that he can see. His imagination will not be able to think of anything better than heaven; and should he sit down through eternity, he would not be able to conceive of anything that should outshine the lustre of that glorious city. His imagination will be satisfied. Then his intellect will be satisfied.
 
-> "Then shall I see, and hear, and know,  
-> All I desired, or wished, below."  
+> Then shall I see, and hear, and know,    
+> All I desired, or wished, below.    
 
 Who is satisfied with his knowledge here? Are there not secrets we want to know, depths in the arcana of nature that we have not entered? But in that glorious state we shall know as much as we want to know. The memory will be satisfied. We shall look back upon the vista of past years, and we shall be content with whatever we endured, or did, or suffered on earth.
 
-> "There, on a green and flowery mound,  
-> My wearied soul shall sit,  
-> And with transporting joys recount  
-> The labors of my feet."  
+> There, on a green and flowery mound,    
+> My wearied soul shall sit,    
+> And with transporting joys recount    
+> The labors of my feet.    
 
 Hope will be satisfied, if there be such a thing in heaven. We shall hope for a future eternity, and believe in it. But we shall be satisfied as to our hopes continually: and the whole man will be so content that there will not remain a single thing in all God's dealings, that he would wish to have altered; yea, perhaps I say a thing at which some of you will demur--but the righteous in heaven will be quite satisfied with the damnation of the lost. I used to think that if I could see the lost in hell, surely I must weep for them. Could I hear their horrid wailings, and see the dreadful contortions of their anguish, surely I must pity them. But there is no such sentiment as that known in heaven. The believer shall be there so satisfied with all God's will, that he will quite forget the lost in the idea that God has done it for the best, that even their loss has been their own fault, and that he is infinitely just in it. If my parents could see me in hell they would not have a tear to shed for me, though they were in heaven, for they would say, "It is justice, thou great God; and thy justice must be magnified, as well as thy mercy;" and moreover, they would feel that God was so much above his creatures that they would be satisfied to see those creatures crushed if it might increase God's glory. Oh! in heaven I believe we shall think rightly of men. Here men seem great things to us; but in heaven they will seem no more than a few creeping insects that are swept away in ploughing a field for harvest; they will appear no more than a tiny handful of dust, or like some nest of wasps that ought to be exterminated for the injury they have done. They will appear such little things when we sit on high with God, and look down on the nations of the earth as grasshoppers, and "count the isles as very little things." We shall be satisfied with everything; there will not be a single thing to complain of. "I shall be satisfied."
 
@@ -72,13 +72,13 @@ But never, I hope, shall I cease preaching, without telling you what to do to be
 
 Suppose the Emperor of Russia should issue a decree to all the Polish refugees to return to their own country; you see a Polish refugee looking at the great placards hanging on the wall he looks with pleasure, and says, "Well, I shall go back to my country." But some one says to him, "It does not say Walewski." "Yes, "he would reply, "but it says Polish refugees: Polish is my Christian name, and refugee my surname, and that is me." And so, though it does not say your name in the Scriptures, it says lost sinner. Sinner is your Christian name, and lost is your surname; therefore, why not come? It says, "lost sinner;"--is not that enough? "This is a faithful saying, and worthy of all acceptation, that Jesus Christ came into the world to save sinners of whom I am chief." "Yes, but," another one says, "I am afraid I am not elect." Oh! dear souls, do not trouble yourselves about that. If you believe in Christ you are elect. Whoever puts himself on the mercy of Jesus is elect; for he would never do it if he had not been elect. Whoever comes to Christ, and looks for mercy through his blood, is elect, and he shall see that he is elect afterwards; but do not expect to read election till you have read repentance. Election is a college to which you little ones will not go till you have been to the school of repentance. Do not begin to read your book backwards, and say Amen before you have said your paternoster. Begin with "Our Father," and then you will go on to "thine is the kingdom the power and the glory;" but begin with "the kingdom," and you will have hard work to go back to "Our Father." We must begin with faith. We must begin with--
 
-> "Nothing in my hands I bring."  
+> Nothing in my hands I bring.    
 
 As God made the world out of nothing, he always makes his Christians out of nothing; and he who has nothing at all to-night, shall find grace and mercy, if he will come for it.
 
 Let me close up by telling you what I have heard of some poor woman, who was converted and brought to life, just by passing down a street, and hearing a child, sitting at a door, singing--
 
-> "I am nothing at all  
-> But Jesus Christ is all in all."  
+> I am nothing at all    
+> But Jesus Christ is all in all.    
 
 That is a blessed song; go home and sing it; and he who can rightly apprehend those little words, who can feel himself vanity without Jesus, but that he has all things in Christ, is not only far from the kingdom of heaven, but he is there in faith, and shall be there in fruition, when be shall wake up in God's likeness.

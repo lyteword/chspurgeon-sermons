@@ -2,27 +2,27 @@
 
 Sermon No. 144 - Delivered on Sabbath Morning, August 2, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "My soul, wait thou only upon God."  
-> Psalm 62:6.  
+> My soul, wait thou only upon God.    
+> Psalm 62:6.    
 
 CALVIN translates this verse, "My soul, be thou silent before God." Rest calm and undisturbed. Thine enemies are round about thee, and have sore beset thee thy troubles do surround thee like strong bulls of Bashan; but rest, my soul, in God. Thine enemies are mighty, but HE IS Almighty; thy troubles are grievous, but he is greater than thy troubles, and he shall deliver thee from them. Let not thy soul be agitated. The wicked are like the troubled sea that cannot rest: be not thou like unto them. Be thou calm: let not a wave ruffle thine untroubled spirit. "Cast thy burden on the Lord," and then sleep on his bosom. Commit thy way unto Jehovah, and then rest in sure and certain confidence, for
 
-> "He everywhere hath sway,  
-> And all things serve his might;  
-> His every act pure blessing is,  
-> His path unsullied light."  
+> He everywhere hath sway,    
+> And all things serve his might;    
+> His every act pure blessing is,    
+> His path unsullied light.    
 
 Oh! that we had grace to carry out the text in that sense of it! It is a hard matter to be calm in the day of trouble; but it is a high exercise of divine grace when we can stand unmoved in the day of adversity, and feel that
 
-> "Should the earth's old pillars shake,  
-> And all the wheels of nature break,  
-> Our stedfast souls should hear no more  
-> Than solid rocks when billows roar."  
+> Should the earth's old pillars shake,    
+> And all the wheels of nature break,    
+> Our stedfast souls should hear no more    
+> Than solid rocks when billows roar.    
 
 That is to be a Christian indeed. Nothing is so sweet as to
 
-> "Lie passive in God's hand,  
-> And know no will but his."  
+> Lie passive in God's hand,    
+> And know no will but his.    
 
 I shall, however, this morning stand to the authorised version. "My soul, wait thou only upon God, for my expectation is from him." Here is, first, an exhortation, and secondly, an expectation.
 
@@ -56,26 +56,26 @@ The man knew that. "He that taketh the sword shall perish by the sword;" so he j
 
 And now, my dear brethren and sisters, I cannot single out all your cases, but doubtless I have many cases here to which the text will apply. There is a poor Christian there; he does not know much more than where his next meal will come from. My brother, he that feeds the ravens will not let you starve. Instead of looking to find friends to console you, tell your story into the ears of God. As sure as the Bible is true he will not leave you. Shall a father leave his children to die? No, the granaries of earth have no key but the Almighty's will, "The cattle on a thousand hills are his." If he were hungry he would not tell us. Shall he not supply your needs out of the riches of his goodness?
 
-> "All things living he doth feed  
-> His full hand supplies their need."  
+> All things living he doth feed    
+> His full hand supplies their need.    
 
 Shall he forget you, when he clothes the grass of the field, and when he makes the valleys rejoice with food? But is your anxiety about your character? Has some one been slandering you? And are you troubled and grieved, lest you should lose your good name? If a man has called you every name in the world, do not go to law with him. "Wait only upon God." If you have been reviled in every newspaper and falsely charged in every sheet, never answer--leave it alone. "Vengeance is mine; I will repay, saith the Lord." Practise non-resistance in words, as well as in deeds. Just bow yourself, and let the missiles fly over your head. Stand not up to resist. To resist slander is to make it worse. The only way to blunt the edge of calumny is to be silent: it can do no hurt when we are still. Where no wood is the fire goeth out; and if you will not refute nor answer, the fire will die out of itself. Let it alone. "Wait thou only upon God."
 
 And now, what else is thy danger? What else is thy trouble? Art thou afraid of losing thy dearest child? Is thy husband sick? Doth thy wife lie upon the bed of languishing? These are hard troubles; they cut us to the very quick: to see our dear ones sick, and we incapable of helping them, is a trouble indeed. Then the strong man's eye doth weep, and his heart beats heavily, because those he loves are sick. But "wait thou only upon God." Go to thy chamber; tell the Lord thy dear one is ill; pour out thy heart before him, and say to him, "My Lord, spare me this trouble, if it be thy will; take not my friends away; but this know, O God, though thou slay me yet will I trust in thee. Yea,
 
-> 'Shouldst thou take them all away,  
-> Yet would I not repine;  
-> Before they were possessed by me  
-> They were entirely thine.  
-> There! let it go: one look from thee  
-> Shall more than make amends.'"  
+> Shouldst thou take them all away,    
+> Yet would I not repine;    
+> Before they were possessed by me    
+> They were entirely thine.    
+> There! let it go: one look from thee    
+> Shall more than make amends.'    
 
 Oh! it is a happy way of smoothing sorrow, when we can say, "We will wait only upon God." Oh, ye agitated Christians, do not dishonor your religion by always wearing a brow of care; come, cast your burden upon the Lord. I see ye staggering beneath a weight which He would not feel. What seems to you a crushing burden, would be to him but as the small dust of the balance. See! the Almighty bends his shoulders, and he says, "Here, put thy troubles here. What! wilt thou bear thyself what the everlasting shoulders are ready to carry?" No;
 
-> "Give to the winds thy fears  
-> Hope, and be undismayed  
-> God hears thy sighs and counts thy tears,  
-> He shall lift up thy head."  
+> Give to the winds thy fears    
+> Hope, and be undismayed    
+> God hears thy sighs and counts thy tears,    
+> He shall lift up thy head.    
 
 No finer exhibition of the power of religion than the confidence of a Christian in the time of distress. May God vouchsafe such a carriage and bearing unto us through Jesus Christ!
 
@@ -89,20 +89,20 @@ The mandarin was surprised: the next day he was again saluted by the man, who sa
 
 But we have better expectations than that. We shall die soon; and then "my expectation is from him." Do we not expect that when we lie upon the bed of sickness he will send troops of angels to carry us to his bosom? We are believing that when the pulse is faint and few, and the heart heaves heavily, that then some spirit, brighter than the noon-day sun shall draw the curtains of our bed, and look with loving eyes upon us, and whisper, "Sister, spirit, come away!" And do we not expect that then a chariot shall be brought, a triumphal chariot, such as earth's conquerors have not seen; and in it we shall be placed, and drawn by coursers of light up the eternal hills, in majesty and triumph, we shall ride to yon bright gates of pearl. Then shall the gates wide open swing, and he shall say, "Come in, ye blessed of the Lord, inherit the kingdom prepared for you from before the foundations of the world." We are expecting wreaths of aramanth, and harps of gold, and crowns of glory; we are thinking when we have done with this poor clay, the poor terrestrial stuff this body's made of, we shall be made white, like spirits who now shine as stars before the throne of the majesty on high, and that we shall share those splendours and enjoy their happiness, for ever blest with them,
 
-> "Far from a world of grief and sin,  
-> With God eternally shut in."  
+> Far from a world of grief and sin,    
+> With God eternally shut in.    
 
 Now, "My soul, wait thou only upon God," if these be thine expectations. And if thine expectation is based upon God, my soul, live for God; live with only this care, to bless him: live, looping for a better world, but believing this world to be good enough, if we had God in it. You know what Luther said the little bird said to him. He sat upon the spray of the tree, and he sang--
 
-> "Mortal, cease from toil and sorrow; God provideth for the morrow."  
+> Mortal, cease from toil and sorrow; God provideth for the morrow.    
 
 And it chirped and picked up its little grain, and sang again. And yet it had no granary; it had not a handful of wheat stored up anywhere; but it still kept on with its chirping--
 
-> "Mortal, cease from toil and sorrow; God provideth for the morrow."  
+> Mortal, cease from toil and sorrow; God provideth for the morrow.    
 
 Oh! ye that are not Christians, it were worth while to be Christians, if it were only for the peace and happiness that religion gives. If we had to die like dogs, yet this religion were worth having to make us live here like angels. Oh if the grave were what it seems to be, the goal of all existence, if the black nails in the coffin were not bright with stars, if death were the end and our lamps were quenched in darkness, when it was said, "Dust to dust and earth to earth." Yet twere worth while to be a child of God, only to live here.
 
-> "Tis religion that can give sweetest pleasures whilst we live;  
-> 'Tis religion must supply solid comforts when we die."  
+> Tis religion that can give sweetest pleasures whilst we live;    
+> 'Tis religion must supply solid comforts when we die.    
 
 Remember, he that believeth on the Lord Jesus Christ and is baptized shall be saved; and you, as well as any other, if these two things be given you, shall be saved. He that trusts in Christ alone for salvation, and then (to translate the word baptized the right way, and it can only be rightly translated one way) "is immersed, shall be saved." So stands the praise: believing first, baptism afterwards; believing, the great thing, baptism the sign of it; believing the great means of grace, immersion, the outward and visible sign of the washing of the flesh and of the dedication unto God. "He that believeth and is baptized shall be saved." May God give you grace to obey both commands, and so enter into eternal life! But remember, "He that believeth not shall be damned." He that neglects the great essential shall perish. May God grant that none of you may know the terrible meaning of that word!

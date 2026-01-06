@@ -2,8 +2,8 @@
 
 Sermon No. 160 - Delivered on Sabbath Morning, October 25, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "It shall come to pass that at evening time it shall be light."  
-> Zechariah 14:7.  
+> It shall come to pass that at evening time it shall be light.    
+> Zechariah 14:7.    
 
 I SHALL NOT stay to notice the particular occasion upon which these words were uttered, or to discover the time to which they more especially refer; I shall rather take the sentence as a rule of the kingdom, as one of the great laws of God's dispensation of grace, "that at evening time it shall be light." Whenever philosophers wish to establish a general law, they think it necessary to collect a considerable number of individual instances; these being put together, they then infer from them a general rule. Happily, this need not be done with regard to God. We have no need, when we look abroad in providence, to collect a great number of incidents, and then from them infer the truth; for since God is immutable, one act of his grace is enough to teach us the rule of his conduct. Now, I find in this one place it is recorded that on a certain occasion, during a certain adverse condition of a nation, God promised that "at evening time it should be light." If I found that in any human writing, I should suppose that the thing might have occurred once, that a blessing was conferred in emergency on a certain occasion, but I could not from it deduce a rule; but when I find this written in the book of God, that on a certain occasion when it was evening time with his people God was pleased to give them light, I feel myself more than justified in deducing from it the rule, that always to his people at evening time there shall be light.
 
@@ -21,20 +21,20 @@ There was a time when the church of England was sound asleep, when the various b
 
 We may expect to see darker evening times than have ever been beheld. Let us not imagine that our civilization shall be more enduring than any other that has gone before it, unless the Lord shall preserve it. It may be that the suggestion will be realized which has so often been laughed at as folly, that one day men should sit upon the broken arches of London Bridge, and marvel at the civilization that has departed, just as men walk over the mounds of Nimroud, and marvel at cities buried there. It is just possible that all the civilization of this country may die out in blackest night; it may be that God will repeat again the great story which has been so often told--"I looked, and lo, in the vision I saw a great and terrible beast, and it ruled the nations, but lo, it passed away and was not." But if ever such things should be--if the world ever should have to return to barbarism and darkness--if instead of what we sometimes hope for, a constant progress to the brightest day, all our hopes should be blasted, let us rest quite satisfied that "at evening time there shall be light," that the ends of the worlds history shall be an end of glory. However red with blood, however black with sin the world may yet be, she shall one day be as pure and perfect as when she was created. The day shall come when this poor planet shall find herself unrobed of those swaddling bands of darkness that have kept her luster from breaking forth. God shall yet cause his name to be known from the rising of the sun to the going down thereof,
 
-> "And the shouts of jubilee,  
-> Loud as mighty thunders roar,  
-> Or the fullness of the sea,  
-> When it breaks upon the shore,  
-> Shall yet be heard the wide World o'er."  
+> And the shouts of jubilee,    
+> Loud as mighty thunders roar,    
+> Or the fullness of the sea,    
+> When it breaks upon the shore,    
+> Shall yet be heard the wide World o'er.    
 
-> "At evening time it shall be light."  
+> At evening time it shall be light.    
 
 This rule holds equally good in the little, as well as in the great. We know that in nature the very same law that rules the atom, governs also the starry orbs.
 
-> "The very law that molds a tear,  
-> And bids it trickle from its source,  
-> That law preserves the earth a sphere,  
-> And guides the planets in their course."  
+> The very law that molds a tear,    
+> And bids it trickle from its source,    
+> That law preserves the earth a sphere,    
+> And guides the planets in their course.    
 
 It is even so with the laws of grace. "At evening time it shall be light" to the church; "at evening time it shall be light" to every individual. Christian let us descend to lowly things. Thou hast had thy bright days in temporal matters: thou hast sometimes been greatly blessed: thou canst remember the day when the calf was in the stall, when the olive yielded its fruit, and the fig-tree did not deny its harvest; thou canst recollect the years when the barn was almost bursting with the corn, and when the vat overflowed with the oil; thou rememberest when the stream of thy life was deep, and thy ship floated softly on, without one disturbing billow of trouble to molest it. Thou saidst in those days, "I shall see no sorrow; God hath hedged me about; he hath preserved me; he hath kept me; I am the darling of his providence; I know that all things work together for my good, for I can see it is plainly so." Well, Christian, thou hast after that had a sunset; the sun which shone so brightly, began to cast his rays in a more oblique manner every moment, until at last the shadows were long, for the sun was setting, and the clouds began to gather; and though the light of God's countenance tinged those clouds with glory, yet it was waxing dark. Then troubles lowered o'er thee; thy family sickened, thy wife was dead, thy crops were meager, and thy daily income was diminished, thy cupboard was no more full, thou wast wondering for thy daily bread; thou didst not know what should become of thee, mayhap thou wast brought very low; the keel of thy vessel did grate upon the rocks; there was not enough of bounty to float thy ship above the rocks of poverty. "I sink in deep mire," thou saidst, "where there is no standing; all thy waves and thy billows have gone over me." What to do you could not tell; strive as you might, your strivings did but make you worse. "Except the Lord build the house, they labor in vain that build it." You used both industry and economy, and you added "hereunto perseverance; but all in vain. 
 
@@ -50,14 +50,14 @@ Bear with me whilst I just hint at one more particular, and then I will come to 
 
 And so when sinners are running from their sins to the Saviour they have to run in the dark. They get no comfort and no peace, till they are enabled by simple faith to look for all to him who died upon the cross. I have in my presence this morning many poor souls under great distress. Poor heart! my text is a comfort to thee. "At evening time it shall be light." You had a little light once, the light of morality; you thought you could do something for yourself. That is all put out now. Then you had another light: you had the wax taper of ceremonies, and you thought full sure that it would light you; but that is all out now. Still you thought you could grope your way a little by the remaining twilight of your good works, but all that seems to have gone now. You think "God will utterly destroy such a wretch as I am! O sir! O sir!
 
-> 'I the chief of sinners am.'"  
+> I the chief of sinners am.'    
 
 There never lived a wretch so vile; or if there ever lived such an one, surely God must have cast him into hell at once; I am certain there is no hope for me. Why, sir, do what I may, I can not make myself any better. When I try to pray I find I can't pray as I should like; when I read the Bible it is all black against me; it is no use, when I go to the house of God the minister seems to be like Moses, only preaching the law to me--he never seems to have a word of comfort to my soul. Well, I am glad of it, poor heart, I am glad of it; far be it from me to rejoice in thy miseries as such, but I am glad thou art where thou art. I remember what the Countess of Huntingdon once said to Mr. Whitfield's brother. Mr. Whitfield's brother was under great distress of mind, and one day when sitting at tea, talking of spiritual things, he said, "Your ladyship, I know I am lost, I am certain I am!" Well, they talked to him, and they tried to rally him; but he persisted in it, that he was absolutely undone, that he was a lost man. Her ladyship clapped her hands, and said, "I am glad of it, Mr. Whitfield, I'm glad of it." He thought it was a cruel thing for her to say. He knew better when she explained herself by saying, "For the Son of man came to seek and to save that which was lost; so then, he came to seek and to save you. Now, if there be any here who are lost, I can only say, I am glad of it too, for such the mighty Shepherd came to rescue. If there are any of you who feel that you are condemned by God's law, I thank God you are; for those who are condemned by the law in their consciences shall yet be pardoned by the gospel.
 
-> "Come, guilty souls, and flee away  
-> To Christ, and heal your wounds;  
-> This is the glorious gospel day,  
-> Wherein free grace abounds."  
+> Come, guilty souls, and flee away    
+> To Christ, and heal your wounds;    
+> This is the glorious gospel day,    
+> Wherein free grace abounds.    
 
 Nay, this very hour, when you have no day in your heart, when you think the evening time has come, and you must perish for ever--now is the time when God will reveal himself to you. Whilst thou hast a rag of thine own thou shalt never have Christ; whilst thou hast a farthing of thine own righteousness, thou shalt never have him; but when thou art nothing, Christ is thine; when thou hast nothing of thyself to trust to, Jesus Christ in the gospel is thy complete saviour; he bids me tell thee he came to seek and to save such as thou art.
 
@@ -69,9 +69,9 @@ Did you ever notice how venerable grandsires, when they write a letter, fill it 
 
 But at the last the night comes in real earnest; he has lived long enough, and he must die. The old man is on his bed; the sun is going down, and he has no more light. "Throw up the windows, let me look for the last time into the open sky," says the old man. The sun has gone down; I can not see the mountains yonder; they are all a mass of mist; my eyes are dim, and the world is dim too. Suddenly a light shoots across his face, and he cries, "O daughter! daughter, here! I can see another sun rising. Did you not tell me that the sun went down just now? Lo, I see another; and where those hills used to be in the landscape, those hills that were lost in the darkness, daughter, I can see hills that seem like burning brass; and methinks upon that summit I can see a city bright as jasper. Yes, and I see a gate opening, and spirits coming forth. What is that they say? O they sing! they sing! Is this death?" And ere he has asked the question, he hath gone where he needs not to answer it, for death is all unknown. Yes, he has passed the gates of pearl; his feet are on the streets of gold; his head is bedecked with a crown of immortality; the palm-branch of eternal victory is in his hand. God hath accepted him in the beloved.
 
-> "Far from the world of grief and sin,  
-> With God eternally shut in,"  
-> he is numbered with the saints in light, and the promise is fulfilled, "At evening time it shall be light."  
+> Far from the world of grief and sin,    
+> With God eternally shut in,"    
+> he is numbered with the saints in light, and the promise is fulfilled, "At evening time it shall be light.    
 
 And now, my gray-headed hearer, will it be so with thee? I remember the venerable Mr. Jay once in Cambridge, when preaching, reaching out his hand to an old man who sat just as some of you are sitting there, and saying, "I wonder whether those gray hairs are a crown of glory, or a fool's cap; they are one or else the other." For a man to be unconverted at the age to which some of you have attained is indeed to have a fool's cap made of gray hairs; but if you have a heart consecrated to Christ, to be his children now, with the full belief that you shall be his for ever, is to have a crown of glory upon your brows.
 

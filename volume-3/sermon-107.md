@@ -2,8 +2,8 @@
 
 Sermon No. 107 - Delivered on Sabbath Morning, December 14, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Without faith it is impossible to please God."  
-> Hebrews 11:6.  
+> Without faith it is impossible to please God.    
+> Hebrews 11:6.    
 
 THE OLD Assembly's Catechism asks, "What is the chief end of man?" and its answer is, "To glorify God, and to enjoy him for ever." The answer is exceedingly correct; but it might have been equally truthful if it had been shorter. The chief end of man is "to please God;" for in so doing--we need not say it, because it is an undoubted fact--in so doing he will please himself. The chief end of man, we believe, in this life and in the next, is to please God his Maker. If any man pleases God, he does that which conduces most to his own temporal and eternal welfare. Man cannot please God without bringing to himself a great amount of happiness; for if any man pleases God, it is because God accepts him as his son, gives him the blessings of adoption, pours upon him the bounties of his grace, makes him a blessed man in this life, and insures him a crown of everlasting life, which he shall wear, and which shall shine with unfading lustre when the wreaths of earth's glory have all been melted away; while, on the other hand, if a man does not please God, he inevitably brings upon himself sorrow and suffering in this life; he puts a worm and a rottenness in the core of all his joys; he fills his death-pillow with thorns, and he supplies the eternal fire with faggots of flame which shall for ever consume him. He that pleases God, is, through Divine grace, journeying onward to the ultimate reward of all those that love and fear God; but he who is ill-pleasing to God, must, for Scripture has declared it, be banished from the presence of God, and consequently from the enjoyment of happiness. If then, we be right in saying that to please God is to be happy, the one important question is, how can I please God? 
 
@@ -25,10 +25,10 @@ But a man may know a thing, and yet not have faith. I may know a thing, and yet 
 
 But a man may have all this, and yet not possess true faith; for the chief part of faith lies in the last head, namely, in an affiance to the truth; not the believing it merely, but the taking hold of it as being ours, and in the resting on it for salvation. Recumbency on the truth was the word which the old preachers used. You will understand that word. Leaning on it; saying, "This is truth, I trust my salvation on it." Now, true faith, in its very essence rests in this--a leaning upon Christ. It will not save me to know that Christ is a Saviour; but it will save me to trust him to be my Saviour. I shall not be delivered from the wrath to come by believing that his atonement is sufficient, but I shall be saved by making that atonement my trust, my refuge, and my all. The pith, the essence of faith lies in this--a casting one-self on the promise. It is not the lifebuoy on board the ship that saves the man when he is drowning, nor is it his belief that it is an excellent and successful invention. No! He must have it around his loins, or his hand upon it, or else he will sink. To use an old and hackneyed illustration: suppose a fire in the upper room of a house, and the people gathered in the street. A child is in the upper story: how is he to escape? He cannot leap down--that were to be dashed to pieces. A strong man comes beneath, and cries, "Drop into my arms." It is a part of faith to know that the man is there; it is another part of faith to believe that the man is strong; but the essence of faith lies in the dropping down into the man's arms. That is the proof of faith, and the real pith and essence of it. So, sinner, thou art to know that Christ died for sin; thou art also to understand that Christ is able to save, and thou art to believe that; but thou art not saved, unless in addition to that, thou puttest thy trust in him to be thy Saviour, and to be thine for ever. As Hart says in his hymn, which really expresses the gospel--
 
-> "Venture on him, venture wholly;  
-> Let no other trust intrude;  
-> None but Jesus  
-> Can do helpless sinners good."  
+> Venture on him, venture wholly;    
+> Let no other trust intrude;    
+> None but Jesus    
+> Can do helpless sinners good.    
 
 This is the faith which saves; and however unholy may have been your lives up to this hour, this faith, if given to you at this moment, will blot out all your sins, will change your nature, make you a new man in Christ Jesus, lead you to live a holy life, and make your eternal salvation as secure as if an angel should take you on his bright wings this morning, and carry you immediately to heaven. Have you that faith? That is the one all-important question; for while with faith men are saved, without it men are damned. As Brooks hath said in one of his admirable works, "He that believeth on the Lord Jesus Christ, shall be saved, be his sins never so many; but he that believeth not in the Lord Jesus must be damned, be his sins never so few." Hast thou faith? For the text declares, "Without faith it is impossible to please God."
 
@@ -36,8 +36,8 @@ And now we come to the ARGUMENT,--why, without faith, we cannot be saved.
 
 Now there are some gentlemen present who are saying, "Now we shall see whether Mr. Spurgeon has any logic in him." No, you won't, sirs, because I never pretended to exercise it. I hope I have the logic which can appeal to men's hearts; but I am not very prone to use the less powerful logic of the head, when I can win the heart in another manner. But if it were needful, I should not be afraid to prove that I know more of logic and of many other things than the little men who undertake to censure me. It were well if they knew how to hold their tongues, which is at least a fine part of rhetoric. My argument shall be such as I trust will appeal to the heart and conscience, although it may not exactly please those who are always so fond of syllogistic demonstration--
 
-> "Who could a hair divide  
-> Between the west and north-west side."  
+> Who could a hair divide    
+> Between the west and north-west side.    
 
 "Without faith it is impossible to please God." And I gather it from the fact that there never has been the case of a man recorded in Scripture who did please God without faith. The 11th chapter of Hebrews is the chapter of the men who pleased God. Listen to their names: "By faith Abel offered unto God a more excellent sacrifice;" "By faith Enoch was translated;" "By faith Noah built an ark;" "By faith Abraham went out into a place that he should afterwards receive;" "By faith he sojourned in the land of promise;" "By faith Sarah bare Isaac;" "By faith Abraham offered up Isaac;" "By faith Moses gave up the wealth of Egypt;" "By faith Isaac blessed Jacob;" "By faith Jacob blessed the sons of Joseph;" "By faith Joseph, when he died, made mention of the departure of the children of Israel;" "By faith the Red Sea was dried up;" "By faith the walls of Jericho fell down;" "By faith the harlot Rahab was saved;" "And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and of Jephthae, of David also, and Samuel, and of the prophets." But all these were men of faith. Others mentioned in Scripture, have done something; but God did not accept them. Men have humbled themselves, and yet God has not saved them. Ahab did, and yet his sins were never forgiven. Men have repented, and yet have not been saved, because their's was the wrong repentance. Juda repented, and went and hanged himself, and was not saved. Men have confessed their sins, and have not been saved. Saul did it. He said to David, "I have sinned against thee, my son David;" and yet he went on as he did before. Multitudes have confessed the name of Christ, and have done many marvellous things, and yet they have never been pleasing to God, from this simple reason, that they had not faith. And if there be not one mentioned in Scripture, which is the history of some thousand years, it is not likely that in the other two thousand years of the world's history there would have been one, when there was not one during the first four thousand.
 
@@ -53,10 +53,10 @@ It was a fatal mistake; they were both in imminent peril, but the one was drawn 
 
 Faith, then, is an union with Christ. Take care you have it; for if not, cling to your works, and there you go floating down the stream! Cling to your works, and there you go dashing down the gulf! Lost because your works have no hold on Christ and no connection with the blessed Redeemer! But thou, poor sinner, with all thy sin about thee, if the rope is round thy loins, and Christ has hold of it, fear not!
 
-> "His honor is engaged to save  
-> The meanest of his sheep;  
-> All that his heavenly Father gave  
-> His hands securely keep."  
+> His honor is engaged to save    
+> The meanest of his sheep;    
+> All that his heavenly Father gave    
+> His hands securely keep.    
 
 Just one more argument, and then I have done with it. "Without faith it is impossible to please God," because it is impossible to persevere in holiness without faith. What a multitude of fair-weather Christians we have in this age! Many Christians resemble the nautilus, which in fine smooth weather swims on the surface of the sea, in a splendid little squadron, like the mighty ships; but the moment the first breath of wind ruffles the waves, they take in their sails and sink into the depths. Many Christians are the same. In good company, in evangelical drawing-rooms, in pious parlors, in chapels and vestries, they are tremendously religious; but if they are exposed to a little ridicule, if some should smile at them and call them methodist, or presbyterian, or some name of reproach, it is all over with their religion till the next fine day. Then when it is fine weather, and religion will answer their purpose, up go the sails again, and they are as pious as before. Believe me, that kind of religion is worse than irreligion. I do like a man to be thoroughly what he is--a downright man; and if a man does not love God, do not let him say he does; but if he be a true Christian, a follower of Jesus, let him say it and stand up for it; there is nothing to be ashamed of in it; the only thing to be ashamed of is to be hypocritical. Let us be honest to our profession, and it will be our glory. Ah! what would you do without faith in times of persecution? You good and pious people that have no faith, what would you do if the stake were again erected in Smithfield, and if once more the fires consumed the saints to ashes--if the Lollards' toward were again opened, if the rack were again piled, or if even the stocks were used, as they have been used by a Protestant Church as witness the persecution of my predecessor, Benjamin Keach, who was once set in the stocks at Aylesbury, for writing a book against infant baptism. If even the mildest form of persecution were revived, how would the people be scattered abroad! 
 
@@ -66,13 +66,13 @@ He told his wife of it. His wife said, "Why can't you let the poor man pray? He 
 
 And now in conclusion, THE QUESTION, the vital question. Dear hearer, have you faith? Dost thou believe on the Lord Jesus Christ with all thy heart? If so, thou mayest hope to be saved. Ay, thou mayest conclude with absolute certainty that thou shalt never see perdition. Have you faith? Shall I help you to answer that question? I will give you three tests, as briefly as ever I can, not to weary you, and then farewell this morning. He that has faith has renounced his own righteousness. If thou puttest one atom of trust in thyself thou hast no faith; if thou dost place even a particle of reliance upon anything else but what Christ did, thou hast no faith. If thou dost trust in thy works, then thy works are anti-christ, and Christ and anti-christ can never go together. Christ will have all or nothing; he must be a whole Saviour, or none at all. If, then, you have faith, you can say,
 
-> "Nothing in my hands I bring,  
-> Simply to the cross I cling."  
+> Nothing in my hands I bring,    
+> Simply to the cross I cling.    
 
 The true faith may be known by this, that it begets a great esteem, for the person of Christ. Dost thou love Christ? Couldst thou die for him? Dost thou seek to serve him? Dost thou love his people? Canst thou say,
 
-> "Jesus, I love thy charming name,  
-> 'Tis music to my ear."  
+> Jesus, I love thy charming name,    
+> 'Tis music to my ear.    
 
 Oh! if thou dost not love Christ thou dost not believe in him; for to believe in Christ begets love. And yet more: he that has true faith will have true obedience. If a man says he has faith, and has no works, he lies; if any man declares that he believes on Christ, and yet does not lead a holy life, he makes a mistake; for while we do not trust in good works, we know that faith always begets good works. Faith is the father of holiness, and he has not the parent who loves not the child. God's blessings are blessings with both his hands. In the one hand he gives pardon; but in the other hand he always gives holiness; and no man can have the one unless he has the other.
 

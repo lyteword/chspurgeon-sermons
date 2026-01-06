@@ -2,8 +2,8 @@
 
 Sermon No. 228 - Delivered on Sabbath Morning, December 12th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "When I see the blood, I will pass over you."  
-> Exodus 12:13.  
+> When I see the blood, I will pass over you.    
+> Exodus 12:13.    
 
 GOD'S PEOPLE ARE ALWAYS SAFE. "All the saints are in his hand;" and the hand of God is a place for safety, as well as a place of honour. Nothing can hurt the man who has made his refuge God. "Thou hast given commandment to save me," said David; and every believing child of God may say the same. Plague, famine, war, tempest,--all these have received commandment of God to save his people. Though the earth should rock beneath the feet of man, yet the Christian, may stand fast, and though the heavens should be rolled up, and the firmament should pass away like a scroll that is burned by fervent heat, yet need not a Christian fear; God's people shall be saved: if they cannot be saved under the heavens, they shall be saved in the heavens; if there be no safety for them in the time of trouble upon this solid earth, they shall be "caught up together with the Lord in the air, and so shall they be ever with the Lord," and ever safe.
 
@@ -23,7 +23,7 @@ The blood of which I have solemnly to speak this morning, is, first of all, the 
 
 Christ Jesus, too, like the lamb, was not only a divinely appointed victim, but he was spotless. Had there been one sin in Christ, he had not been capable of being our Saviour; but he was without spot or blemish--without original sin, without any practical transgression. In him was no sin, though he was "tempted in all points like as we are." Here, again, is the reason why the blood is able to save, because it is the blood of an innocent victim, a victim the only reason for whose death lay in us, and not in himself. When the poor innocent lamb was put to death, by the head of the household of Egypt, I can imagine that thoughts like these ran through his mind. "Ah" he would say, as he struck the knife into the lamb, "This poor creature dies, not for any guilt that it has ever had, but to show me that I am guilty, and that I deserved to die like this." Turn, then, your eye to the cross, and see Jesus bleeding there and dying for you. Remember,
 
-> "For sins not his own, he died to atone;"  
+> For sins not his own, he died to atone;    
 
 Sin had no foothold in him, never troubled him. The prince of this world came and looked, but he said, "I have nothing in Christ; there is no room for me to plant my foot--no piece of corrupt ground, which I may call my own." O sinner, the blood of Jesus is able to save thee, because he was perfectly innocent himself, and "he died the just for the unjust, to bring us to God."
 
@@ -47,10 +47,10 @@ This blood is not simply the only thing that can save, but it must save alone. P
 
 And here let me stop, and combat a few forms and shapes which our self-righteousness always takes. "Oh," says one, "I could trust in Christ if I felt my sins more." Sir, that is a damning error. Is thy repentance, thy sense of sin, to be a part-Saviour? Sinner! the blood is to save thee, not thy tears, Christ's death, not thy repentance. Thou art bidden this day to trust in Christ; not in thy feelings, not in thy pangs on account of sin. Many a man has been brought into great soul distress, because he has looked more at his repentance than at the obedience of Christ--
 
-> "Could thy tears for ever flow,  
-> Could thy zeal no respite know;  
-> All for sin could not atone,  
-> Christ must save and Christ alone."  
+> Could thy tears for ever flow,    
+> Could thy zeal no respite know;    
+> All for sin could not atone,    
+> Christ must save and Christ alone.    
 
 "Nay," says another, "but I feel that I do not value the blood of Christ as I ought, and therefore I am afraid to believe." My friend, that is another insiduous form of the same error. God does not say, "When I see your estimate of the blood of Christ, I will pass over you; no, but when I see the blood." It is not your estimate of that blood, it is the blood that saves you. As I said before, that magnificent, solitary blood, must be alone.
 
@@ -72,18 +72,18 @@ And now, lastly, WHAT IS THE LESSON. The lesson of the text is to the Christian 
 
 O, brethren, if we could always live with a single eye fixed on the Cross, we should always be happy; but when we get a little peace, and a little joy, we begin to prize the joy and peace so much, that we forget the source whence they come. As Mr. Brooks says, "A husband that loves his wife will, perhaps, often give her jewels and rings; but suppose she should sit down and begin to think of her jewels and rings so much that she should forget her husband, it would be a kind husband's business to take them away from her so that she might fix her affections entirely on him." And it is so with us. Jesus gives us jewels of faith and love, and we get trusting to them, and he takes them away in order that we may come again as guilty, helpless sinners, and put our trust in Christ. To quote a verse I often repeat--I believe the spirit of a Christian should be, from his first hour to his last, the spirit of these two lines:--
 
-> "Nothing in my hand I bring,  
-> Simply to thy cross I cling."  
+> Nothing in my hand I bring,    
+> Simply to thy cross I cling.    
 
 That is the lesson to the saint.
 
 But another minute; there is a lesson here to the sinner. Poor, trembling, guilty self-condemned sinner, I have a word from the Lord for thee. "The blood of Jesus Christ cleanseth us," that is you and me, "cleanseth us from all sin." That "us" includes you, if now you are feeling your need of a Saviour. Now that blood is able to save you, and you are bidden simply to trust that blood, and you shall be saved. But I hear you say, "Sir," you said, "If I feel my need. Now I feel that I do not feel, I only wish I did feel my need enough." Well do not bring your feelings then, but trust only in the blood. If you can rely simply on the blood of Christ, whatever your feelings may be, or may not be, that blood is able to save. But you are saying, "How am I to be saved? What mush I do?" Well there is nothing that you can do. You must leave off doing altogether, in order to be saved. There must be a denial of all your doings. You must get Christ first, and then you may do as much as you like. But you must not trust in your doings. Your business is now to lift up your heart in prayer like this:--"Lord, thou hast shown me something of myself, show me something of my Saviour." See the Saviour hanging on the cross, turn your eye to him, and say, "Lord, I trust thee I have nothing else to trust to, but I rely on thee; sink or swim, my Saviour, I trust thee." And as surely sinner, as thou canst put thy trust in Christ, thou art as safe as an apostle or prophet. Not death nor hell can slay that man whose firm reliance is at the foot of the cross. "Believe on the Lord Jesus Christ and thou shalt be saved." "He that believeth and is baptized shall be saved; he that believeth not shall be damned." He that believeth shall be saved, be his sins never so many; he that believeth not shall be damned, be his sins never so few, and be his virtues never so many. Trust in Jesus now! Sinner, trust in Jesus only.
 
-> "Not all the blood of beasts  
-> On Jewish altars slain  
-> Could give the guilty conscience peace,  
-> Or wash away the stain.  
-> But Christ, the heavenly Lamb,  
-> Takes all our sins away;  
-> A sacrifice of nobler name  
-> And richer blood than they."  
+> Not all the blood of beasts    
+> On Jewish altars slain    
+> Could give the guilty conscience peace,    
+> Or wash away the stain.    
+> But Christ, the heavenly Lamb,    
+> Takes all our sins away;    
+> A sacrifice of nobler name    
+> And richer blood than they.    

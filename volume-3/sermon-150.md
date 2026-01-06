@@ -2,8 +2,8 @@
 
 Sermon No. 150 - Delivered on Sabbath Morning, September 6, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Oh that my head were waters, and mine eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people."  
-> Jeremiah 9:1.  
+> Oh that my head were waters, and mine eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people.    
+> Jeremiah 9:1.    
 
 SOMETIMES tears are base things; the offspring of a cowardly spirit. Some men weep when they should knit their brows, and many a woman weepeth when she should resign herself to the will of God. Many of those briny drops are but an expression of child-like weakness. It were well if we could wipe such tears away, and face a frowning world with a constant countenance. But oft times tears are the index of strength. There are periods when they are the noblest things in the world. The tears of penitents are precious: a cup of them were worth a king's ransom. It is no sign of weakness when a man weeps for sin, it shows that he hath strength of mind; nay more, that he hath strength imparted by God, which enables him to forswear his lusts and overcome his passions, and to turn unto God with full purpose of heart. And there are other tears, too, which are the evidences not of weakness, but of might--the tears of tender sympathy are the children of strong affection, and they are strong like their parents. He that loveth much, must weep much; much love and much sorrow must go together in this vale of tears. The unfeeling heart, the unloving spirit, may pass from earth's portal to its utmost bound almost without a sigh except for itself; but he that loveth, hath digged as many wells of tears as he has chosen objects of affection; for by as many as our friends are multiplied, by so many must our griefs be multiplied too, if we have love enough to share in their griefs and to bear their burden for them. The largest hearted man will miss many sorrows that the little man will feel, but he will have to endure many sorrows the poor narrow-minded spirit never knoweth. It needs a mighty prophet like Jeremiah to weep as mightily as he. Jeremiah was not weak in his weeping; the strength of his mind and the strength of his love were the parents of his sorrow. 
 
@@ -39,10 +39,10 @@ If you could live here always, we might not, perhaps, weep for you; but we, by t
 
 But if ye believe what your Saviour said when he declared that he would destroy both body and soul in hell, I must wonder that ye could endure the thought without weeping for your fellow-creatures who are going there. If I saw mine enemy marching into the flames, I would rush between him and the fire and seek to preserve him; and will you see men and women marching on in a mad career of vice and sin, well aware that "the wages of sin is death," and will you not interpose so much as a tear? What! are you more brutal than the beast, more stolid than the stone! It must be so, if the thought of the unutterable torment of hell, doth not draw tears from your eyes and prayer from your hearts. Oh, if to-day some strong archangel could unbolt the gates of hell, and for a solitary second permit the voice of wailing and weeping to come up to our ears; Oh, how should we grieve! Each man would put his hand upon his loins and walk this earth in terror. That shriek might make each hair stand on an end upon our heads, and then make us roll ourselves in the dust for anguish and woe--
 
-> "Oh, doleful state of dark despair,  
-> When God has far removed,  
-> And fixed their dreadful station where  
-> They must not taste his love."  
+> Oh, doleful state of dark despair,    
+> When God has far removed,    
+> And fixed their dreadful station where    
+> They must not taste his love.    
 
 Oh that my head were waters, and mine eyes a fountain of tears, that I might weep for some of you that are going there this day.
 

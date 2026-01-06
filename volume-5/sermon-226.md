@@ -2,8 +2,8 @@
 
 Sermon No. 226 - Delivered on Sabbath Evening, November 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The governor of the feast called the bridegroom, and saith unto him, every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse; but thou hast kept the good wine until now."  
-> John 2:9-10.  
+> The governor of the feast called the bridegroom, and saith unto him, every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse; but thou hast kept the good wine until now.    
+> John 2:9-10.    
 
 I HAD EXHAUSTED my time this morning by describing the feast of Satan--how at the four tables, whereat did sit the profligate, the self-righteous, the worldly, and the secretly sinful, the course of Satan, was always on this wise,--first, the good wine, and when men had well drunken, that which was worse. His feast diminished in its value as it proceeded, and went from the bright crackling of the thorn under the pot to the blackness of darkness for ever. I had then in my second point to show, that the rule of Christ's banquet is just the very reverse--that Christ doth always give the best wine last--that he doth save the good things until the end of the feast; nay, that sometimes the first cups at the table of Christ are full of wormwood and gall, and are exceeding bitter, but that if we tarry at the feast, they will grow sweeter, and sweeter, and sweeter, until at last, when we shall come into the land Beulah, and especially when we shall enter into the city of our God, we shall be compelled to say, "Thou hast kept the good wine until now."
 
@@ -23,10 +23,10 @@ Their faith is firm and strong; they have much love to the Redeemer; they are en
 
 Entering into particulars for a moment, very briefly, I must just observe, that there are many aspects under which we may regard the heavenly state, and in each of these we shall have to say, that Christ hath kept the good wine until then. Here on earth the believer enters into rest by faith; the Christian enjoys rest even in the wilderness; the promise is fulfilled. "They shall dwell safely in the wilderness, and sleep in the woods." God giveth to his beloved sleep; there is a peace that passeth all understanding, which we may enjoy even in this land of turmoil, strife, and alarms,--a peace which the worldling knoweth not of, nor can he guess it.
 
-> "A holy calm within the heart,  
-> The pledge of glorious rest.  
-> Which for the church of God remains,  
-> The end of cares, the end of pains."  
+> A holy calm within the heart,    
+> The pledge of glorious rest.    
+> Which for the church of God remains,    
+> The end of cares, the end of pains.    
 
 But beloved, drink as we may of the cup of peace, the good wine is kept until a future time. The peace we drink to-day is dashed with some drops of bitter. There are disturbing thoughts; the cares of this world will come, doubts will arise; live as we may in this world, we must have disquietudes; thorns in the flesh must come. But oh! the "rest that remaineth for the people of God." What good wine shall that be! God hath a sun without a spot, a sky without a cloud, a day without a night, a sea without a wave, a world without a tear. Happy are they who, having passed through this world, have entered into rest, and ceased from their own works, as God did from his, bathing their weary souls in seas of heavenly rest.
 
@@ -34,17 +34,17 @@ View heaven under another aspect. It is a place of holy company. In this world w
 
 The saints of heaven make but one communion, they are not divided into separate classes; we shall be allowed to walk through all the glorious ranks, and hold fellowship with all of them; nor need we doubt but that we shall be able to know them all. There are many reasons which I could not now enumerate, for it would occupy me too much time, that seem to my mind to settle the point, that in heaven we shall know even as we are known, and shall perfectly know each other; and that indeed, makes us long to be there. "The general assembly and church of the first-born, whose names are written in haven." Oh, to get away from this poor church here, that is full of strifes and divisions, and bickerings and jealousies and animosities--to get away from the society of men that are full of infirmities, although they have much grace, and to get into a place where there shall be no infirmities in those with whom we talk--no hasty tempers,--where we cannot possibly strike a chord that would make a jarring note--when it shall not be in our power to raise among those holy birds of Paradise a cause of strife--when we shall walk in the midst of them all, and see love beaming from every eye, and feel that deep affection is seated in every heart. Oh! that will be the best wine. Are you not longing to drink of it?--to enter into that great church fellowship, and attend those glorious church meetings,
 
-> "Where all the chosen race  
-> Shall meet around the throne,  
-> To bless the conduct of his grace,  
-> And make his wonders known."  
+> Where all the chosen race    
+> Shall meet around the throne,    
+> To bless the conduct of his grace,    
+> And make his wonders known.    
 
 Again, look at heaven, if you will, in the point of knowledge. We know very much on earth that makes us happy; Jesus Christ hath taught us many things that give us joy and gladness. It is a world of ignorance, but still through grace we have entered into the school of the gospel, and we have learned some sweet truths. It is true we are very much like the boy who is beginning to write. We had to make many ugly pothooks and hangers, and we have not yet learned to write the sweet running hand of joy; but nevertheless, the Lord has taught us some great truths to fill our heart with joy;--the great doctrine of election, the knowledge of our redemption, the fact of our security in Christ; these great but simple doctrines have filled our hearts with bliss. But, brethren, the best wine is kept till the last, when the Lord Jesus Christ shall take the book and break the seals thereof, and permit us to read it all, then shall we rejoice indeed, for the best wine will be at our lips. There are old casks of knowledge that contain the richest wine, and Christ shall stave them in, and we shall drink of them to the full. It is not fit that we should know all things now,--we could not bear many things, and therefore Christ keeps them back; but
 
-> "There shall you see and hear and know  
-> All you desired or wished below,  
-> And every power find sweet employ  
-> In that eternal world of joy."  
+> There shall you see and hear and know    
+> All you desired or wished below,    
+> And every power find sweet employ    
+> In that eternal world of joy.    
 
 You may, if you please, look at heaven in another sense--as a place of manifestations and of joys. Now this world is a place of manifestations to the believer. Shall I venture for a moment, or even for a second, to talk of manifestations of himself which Christ is pleased to afford to his poor children on earth? No, beloved, your own experience shall supply my lack. I will only say that there are times when the Lord Jesus saith unto his beloved, "Come, my beloved, let us go forth into the field; let us lodge in the villages. Let us get up early to the vineyards; let us see if the vine flourish, whether the tender grape appear, and the pomegranates bud forth: there will I give thee my loves." But, what must be the fellowship of heaven? I fail to-night in attempting to talk to you of the best wine, for this simple reason--I believe there are very few men that can preach of heaven so as to interest you much, for you feel that all we can say is so far behind the reality, that we might as well have let it alone. Baxter might write a Saint's Rest, but I am no Baxter--would God I were! The day may come perhaps, when I may talk more copiously of these blessings; but at present, in my own soul, when I begin to talk of the communion of heaven, I seem overcome, I cannot imagine it; for the next thought that always succeeds my first attempt to think of it, is a thought of overwhelming gratitude, coupled with a kind of fear that this is too good for such an unworthy worm as I. 
 

@@ -2,8 +2,8 @@
 
 Sermon No. 211 - Delivered on Sabbath Morning, August 29, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The blood of sprinkling, that speaketh better things than that of Abel."  
-> Hebrews 12:24.  
+> The blood of sprinkling, that speaketh better things than that of Abel.    
+> Hebrews 12:24.    
 
 OF all substances blood is the most mysterious, and in some senses the most sacred. Scripture teacheth us,--and after all there is very much philosophy in Scripture,--that "the blood is the life thereof,"--that the life lieth in the blood. Blood, therefore, is the mysterious link between matter and spirit. How it is that the soul should in any degree have an alliance with matter through blood, we cannot understand; but certain it is that this is the mysterious link which unites these apparently dissimilar things together, so that the soul can inhabit the body, and the life can rest in the blood. God has attached awful sacredness to the shedding of blood. Under the Jewish dispensation, even the blood of animals was considered as sacred. Blood might never be eaten by the Jews; it was too sacred a thing to become the food of man. The Jew was scarcely allowed to kill his own food: certainly he must not kill it except he poured out the blood as a sacred offering to Almighty God. Blood was accepted by God as the symbol of the atonement. "Without shedding of blood there is no remission of sin, because, I take it, blood hath such an affinity with life, that inasmuch as God would accept nought but blood, be signified that there must be a life offered to him, and that his great and glorious Son must surrender his life as a sacrifice for his sheep.
 
@@ -31,10 +31,10 @@ O earth! earth! earth! cover not his blood. This is the first murder thou hast e
 
 And now, beloved, just contrast with this the blood of Christ. That is Jesus Christ, the Incarnate Son of God; he hangs upon a tree; he is murdered--murdered by his own brethren. "He came unto his own, and his own received him not, but his own led him out to death." He bleeds; he dies; and then is heard a cry in heaven. The astonished angels again start from their seats, and they say," What is this? What is this cry that we hear?" And the Mighty Maker answers yet again, "It is the cry of blood; it is the cry of the blood of my only-begotten and well-beloved Son!" And God, uprising from his throne, looks down from heaven and listens to the cry. And what is the cry? It is not revenge; but the voice crieth, "Mercy! mercy! mercy!" Did you not hear it? It said, "Father, forgive them, for they know not what they do." Herein, the blood of Christ "speaketh better things than that of Abel," for Abel's blood said, "Revenge!" and made the sword of God start from its scabbard; but Christ's blood cried "Mercy!" and sent the sword back again, and bade it sleep for ever.
 
-> "Blood hath a voice to pierce the skies,  
-> 'Revenge!' the blood of Abel cries;  
-> But the rich blood of Jesus slain,  
-> Speaks peace as loud from every vein."  
+> Blood hath a voice to pierce the skies,    
+> 'Revenge!' the blood of Abel cries;    
+> But the rich blood of Jesus slain,    
+> Speaks peace as loud from every vein.    
 
 You will note too that Abel's blood cried for revenge upon one man only--upon Cain; it required the death of but one man to satisfy for it, namely. the death of the murderer. "Blood for blood!" The murderer must die the death. But what saith Christ's blood in heaven? Does it speak for only one? Ah! no, beloved; "the free gift hath come upon many." Christ's blood cries mercy! mercy! mercy! not on one, but upon a multitude whom no man can number--ten thousand times ten thousand.
 
@@ -44,10 +44,10 @@ Again: Abel's blood had a second voice. It spoke to the whole world. "He being d
 
 For what is the testimony of Christ? The covenant of grace--that everlasting covenant. He came into this world to tell us that God had from the beginning chosen his people--that he had ordained them to eternal life, and that he had made a covenant with his son Jesus Christ that if he would pay the price they should go free--if he would suffer in their stead they should be delivered. And Christ cried e'er "he bowed his head and gave up the ghost"--"It is finished." The covenant purpose is finished. That purpose was "to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness." Such was the testimony of our Lord Jesus Christ, as his own blood gushed from his heart, to be the diestamp, and seal, that the covenant was ratified. When I see Abel die I know that his testimony was true; but when I see Christ die I know that the covenant is true.
 
-> "This covenant, O believer, stands  
-> Thy rising fears to quell;  
-> 'Tis signed and sealed and ratified,  
-> In all things ordered well."  
+> This covenant, O believer, stands    
+> Thy rising fears to quell;    
+> 'Tis signed and sealed and ratified,    
+> In all things ordered well.    
 
 When he bowed his head and gave up the ghost, he did as much as say, "All things are made sure unto the seed by my giving myself a victim." Come, saint, and see the covenant all blood-bestained, and know that it is sure. He is "the faithful and true witness, the prince of the kings of the earth." First of martyrs, my Lord Jesus, thou hadst a better testimony to witness than they all, for thou hast witnessed to the everlasting covenant; thou hast witnessed that thou art the shepherd and bishop of souls; thou hast witnessed to the putting away of sin by the sacrifice of thyself Again: I say, come, ye people of God, and read over the golden roll. It begins in election--it ends in everlasting life, and all this the blood of Christ crieth in your ears. All this is true; for Christ's blood proves it to be true, and to be sure to all the seed. It "speaketh better things than that of Abel."
 
@@ -59,8 +59,8 @@ His crime refused him sleep. It spoke in his heart, and the walls of his memory 
 
 But now see the sweet change as ye listen to the blood of Christ. It "speaketh better things than that of Abel." Friend! hast thou ever heard the blood of Christ in thy conscience? I have, and I thank God I ever heard that sweet soft voice.
 
-> "Once a sinner near despair;  
-> Sought the mercy seat by prayer."  
+> Once a sinner near despair;    
+> Sought the mercy seat by prayer.    
 
 He prayed: he thought he was praying in vain. The tears gushed from his eyes; his heart was heavy within him; he sought, but he found no mercy. Again, again, and yet again, he besieged the throne of the heavenly grace and knocked at mercy's door Oh! who can tell the mill-stone that lay upon his beating heart, and the iron that did eat into his soul. He was a prisoner in sore bondage; deep, as he thought, in the bondage of despair was he chained, to perish for ever. That prisoner one day heard a voice, which said to him, "Away, away to Calvary!" Yet he trembled at the voice, for he said, "Why should I go thither, for there my blackest sin was committed; there I murdered the Saviour by my trangressions? Why should I go to see the murdered corpse of him who became my brother born for adversity?" But mercy beckoned, and she said, "Come, come away, sinner!" And the sinner followed. The chains were on his legs and on his hands, and he could scarcely creep along. Still the black vulture Destruction seemed hovering in the air. But he crept as best he could, till he came to the foot of the hill of Calvary. On the summit he saw a cross; blood was distilling from the hands, and from the feet, and from the side, and mercy touched his ears and said, "Listen!" and he heard that blood speak; and as it spoke the first thing it said was, "Love!" And the second thing it said was, "Mercy!" The third thing it said was, "Pardon." 
 
@@ -78,30 +78,30 @@ Dear friend, when thou hearest the voice of conscience, stop and try to hear the
 
 Having thus, I trust, sufficiently enlarged upon this subject I shall now close by addressing you with a few earnest words concerning the second point.--The CONDITION INTO WHICH EVERY CHRISTIAN IS BROUGHT. He is said to be "come to the blood of sprinkling." I shall make this a very brief matter, but a very solemn and pointed one. My hearers, have you come to the blood of Christ? I do not ask you whether you have come to a knowledge of doctrine, or of an observance of ceremonies, or of a certain form of experience; but I ask you if you have come to the blood of Christ. If you have, I know how you come. You must come to the blood of Christ with no merits of your own. Guilty, lost, and helpless, you must come to that blood, and to that blood alone, for your hopes; you come to the cross of Christ and to that blood too, I know, with a trembling and an aching heart. Some of you remember how you first came, cast down and full of despair; but that blood recovered you. And this one thing I know: if you have come to that blood once, you will come to it every day. Your life will be just this--"Looking unto Jesus." And your whole conduct will be epitomized in this--"To whom coming as unto a living stone." Not to whom I have come, but to whom I am always coming. If thou hast ever come to the blood of Christ thou wilt feel thy need of coming to it every day. He that does not desire to wash in that fountain every day, has never washed in it at all. I feel it every day to be my joy and my privilege that there is still a fountain opened. I trust I came to Christ years ago but ah! I could not trust to that, unless I could come again to-day. Past experiences are doubtful things to a Christian; it is present coming to Christ that must give us joy and comfort. Did you not, some of you, sing twenty years age that hymn,
 
-> "My faith doth lay her hand  
-> On that dear head of thine  
-> While like a penitent I stand,  
-> And there confess my sin."  
+> My faith doth lay her hand    
+> On that dear head of thine    
+> While like a penitent I stand,    
+> And there confess my sin.    
 
 Why, beloved you can sing it as well to-day as you did then. I was reading the other day some book, in which the author states, that we are not to come to Christ as sinners as long as we live; he says we are to grow into saints. Ah! he did not know much, I am sure; for saints are sinners still, and they have always to come to Christ as sinners. If ever I go to the throne of God as a saint, I get repulsed; but when I go just as a poor humble seeking sinner, relying upon nothing but thy blood, O Jesus, I never can get a repulse, I am sure. To whom coming as unto "blood that speaketh better things than that of Abel." Let this be our experience every day.
 
 But there are some here who confess that they never did come. I cannot exhort you, then, to come every day, but I exhort you to come now for the first time. But you say, "May I come?" Yes, if thou art wishing to come thou mayest come; if thou feelest that thou hast need to come thou mayest come.
 
-> "All the fitness he requireth,  
-> Is to feel your need of him;"  
+> All the fitness he requireth,    
+> Is to feel your need of him;    
 
 And even
 
-> "This he gives you,  
-> 'Tis his Spirit's rising beam."  
+> This he gives you,    
+> 'Tis his Spirit's rising beam.    
 
 But you say, "I must bring some merits." Hark to the blood that speaks! It says, "Sinner, I am full of merit: why bring thy merits here?" "Ah! but," thou sayest "I have too much sin." Hark to the blood: as it falls, it cries, "Of many offenses unto justification of life." "Ah! but," thou sayest, "I know I am too guilty." Hark to the blood! "Though your sins be as scarlet I will make them as wool; though they be red like crimson they shall be whiter than snow." "Nay," says one, "but I have such a poor desire, I have such a little faith." Hark to the blood! "The bruised reed I will not break, and smoking flax I will not quench." "Nay, but," thou sayest, "I know he will cast me out, if I do come." Hark to the blood! "All that the Father giveth me shall come to me, and him that cometh to me I will in no wise cast out." "Nay, but," sayest thou, "I know I have so many sins that I cannot be forgiven." Now, hear the blood once more, and I have done. "The blood of Jesus Christ, his Son, cleanseth us from all sin." That is the blood's testimony, and its testimony to thee. "There are three that bear witness on earth, the Spirit, and the water, and the blood;" and behold the blood's witness is--"The blood of Jesus Christ, his Son, cleanseth us from all sin." Come, poor sinner, cast thyself simply on that truth. Away with your good works and all your trustings! Lie simply flat on that sweet word of Christ. Trust his blood; and if thou canst put thy trust alone in Jesus, in his sprinkled blood, it shall speak in thy conscience better things than that of Abel.
 
 I am afraid there are many that do not know what we mean by believing. Good Dr. Chalmers once visiting a poor old woman, told her to believe in Christ, and she said, "But that is just the thing I do not know what you mean by." So Dr. Chalmers said, "Trust Christ." Now, that is just the meaning of believing. Trust him with your soul; trust him with your sins; trust him with the future; trust him with the past; trust him with everything. Say,
 
-> "A guilty, weak, and worthless worm,  
-> On Christ's kind arms I fall  
-> Be thou my strength and righteousness,  
-> My Jesus and my all."  
+> A guilty, weak, and worthless worm,    
+> On Christ's kind arms I fall    
+> Be thou my strength and righteousness,    
+> My Jesus and my all.    
 
 May the Lord now give you his blessing; for Jesus Christ's sake. Amen.

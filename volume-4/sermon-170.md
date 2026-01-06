@@ -2,8 +2,8 @@
 
 Sermon No. 170 - Delivered on Sabbath Morning, January 3, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Jesus Christ the same yesterday, and to-day, and for ever."  
-> Hebrews 13:8.  
+> Jesus Christ the same yesterday, and to-day, and for ever.    
+> Hebrews 13:8.    
 
 IT IS WELL that there is one person who is the same. It is well that there is one stable rock amidst the changing billows of this sea of life; for how many and how grievous have been the changes of this year? How many of you who commenced in affluence, have by the panic, which has shaken nations, been reduced almost to poverty? How many of you, who in strong health marched into this place on the first Sabbath of last year, have had to come tottering here, feeling that the breath of man is in his nostrils, and wherein is he to be accounted of? Many of you came to this hall with a numerous family, leaning upon the arm of a choice and much loved friend. Alas! for love, if thou wert all and naught beside, O earth! For ye have buried those ye loved the best. Some of you have come here childless, or widows, or fatherless, still weeping your recent affliction. Changes have taken place in your estate that have made your heart full of misery. Your cups of sweetness have been dashed with draughts of gall; your golden harvests have had tares cast into the midst of them, and you have had to reap the noxious weed along with the precious grain. Your much fine gold has become dim, and your glory has departed; the sweet frames at the commencement of last year became bitter ones at the end. Your raptures and your ecstacies were turned into depression and forebodings. Alas! for our changes, and hallelujah to him that hath no change.
 
@@ -19,10 +19,10 @@ Again: Jesus Christ is the same with regard to his Father as ever. He was his Fa
 
 But now there is a yet sweeter thought. Jesus Christ is the same to his people as ever. We have delighted, in our happier moments, in days that have rolled away, to think of him that loved us when we had no being; we have often sung with rapture of him that loved us when we loved not him.
 
-> "Jesus sought me when a stranger,  
-> Wandering from the fold of God;  
-> He to save my soul from danger  
-> Interposed his precious blood."  
+> Jesus sought me when a stranger,    
+> Wandering from the fold of God;    
+> He to save my soul from danger    
+> Interposed his precious blood.    
 
 We have looked back, too, upon the years of our troubles and our trials; and we can bear our solemn though humble witness that he has been true to us in all our exigencies, and has never failed us once. Come, then, let us comfort ourselves with this thought--that though to-day he may distress us with a sense of sin, yet his heart is just the same to us as ever. Christ may wear masks that look black to his people, but his face is always the same; Christ may sometimes take a rod in his hand instead of a golden scepter, but the name of his saint is as much engraved upon the hand that grasps the rod as upon the palm that clasps the scepter. And oh, sweet thought that now bursts upon our mind! Beloved, can you concede how much Christ will love you when you are in heaven? Have you ever tried to fathom that bottomless sea of affection in which you shall swim, when you shall bathe yourself in seas of heavenly rest? Did you ever think of the love which Christ will manifest to you, when he shall present you without spot, or blemish, or any such thing before his Father's throne? Well, pause and remember that he loves you at this hour a. much as he will love you then; for he will be the same for ever as he is to-day, and he is the same to-day as he will be for ever. This one thing I know: if Jesus' heart is set on me he will not love me one atom better when this head wears a crown, and when this hand shall, with joyous fingers, touch the strings of golden harps, than he does now, amid all my sin and care and woe. I believe that saying which is written--"As the Father hath loved me, even so have I loved you;" and a higher degree of love we can not imagine. The Father loves his Son infinitely, and even so to-day, believer, doth the Son of God love thee. All his heart flows out to thee. All his life is thine; all his person is thine. He can not love thee more; he will not love thee less. The same yesterday, to-day, and for ever.
 
@@ -30,10 +30,10 @@ But let us here recollect that Jesus Christ is the same to sinners to-day as he 
 
 Oh! come and try him! Come and try him! Oh! ye that know your need of him, come ye to him; ye that have sold for nought your heritage above may have it back unbought, the gift of Jesus' love. Ye that are empty, Christ is as full today as ever. Come! fill yourselves here. Ye that are thirsty, the stream is flowing; ye that are black, the fountain still can purify; ye that are naked, the wardrobe is not empty.
 
-> "Come, guilty souls, and flee away,  
-> To Christ, and heal your wounds;  
-> Still tis the gospel's gracious day,  
-> And now free grace abounds"  
+> Come, guilty souls, and flee away,    
+> To Christ, and heal your wounds;    
+> Still tis the gospel's gracious day,    
+> And now free grace abounds    
 
 I can not pretend to enter into the fullness of my text as I could desire, but one more thought. Jesus Christ is the same to-day as he was yesterday in the teachings of his Word. They tell us in these times that the improvements of the age require improvements in theology. Why, I have heard it said that the way Luther preached would not suit this age. We are too polite! The style of preaching, they say, that did in John Bunyan's day, is not the style now. True, they honor these men; they are like the Pharisees; they build the sepulchers of the prophets that their fathers slew, and so they do confess that they are their father's own sons, and like their parents. And men that stand up to preach as those men did, with honest tongues, and know not how to use polished courtly phrases, are as much condemned now as those men were in their time; because, say they, the world is marching on, and the gospel must march on too. No, sirs, the old gospel is the same; not one of her stakes must be removed, not one of her cords must be loosened. "Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus." Theology hath nothing new in it except that which is false. The preaching of Paul must be the preaching of the minister to-day. There is no advancement here. We may advance in our knowledge of it; but it stands the same, for this good reason, that it is perfect, and perfection can not be any better. 
 
@@ -45,21 +45,21 @@ I have thus briefly opened the text, not in its fullest meanings, but still enou
 
 And now comes in one of crooked gait, with hideous aspect--one that hath as many lives as a cat, and that can not be killed any how, though many a great gun hath been shot against him. His name is old Mr. Incredulity--unbelief; and he begins his miserable oration by declaring, "How can that be true? Jesus Christ the same yesterday, and to-day, and for ever.' Why, yesterday Christ was all sunshine to me--to-day I am in distress!" Stop, Mr. Unbelief, I beg you to remember that Christ is not changed. You have changed yourself; for you have said in your very accusation that yesterday you rejoiced, but to-day you are in distress. All that may happen, and yet there may be no change in Christ. The sun may be the same always, though one hour may be cloudy and the next bright with golden light; yet there is no proof that the sun has changed. Tis even so with Christ.
 
-> "If today he deigns to bless us  
-> With a sense of pardoned sin,  
-> He to-morrow may distress us,  
-> Make us feel the plague within.  
-> All to make us,  
-> Sick of self and fond of him."  
+> If today he deigns to bless us    
+> With a sense of pardoned sin,    
+> He to-morrow may distress us,    
+> Make us feel the plague within.    
+> All to make us,    
+> Sick of self and fond of him.    
 
 There is no change in him.
 
-> "Immutable his will,  
-> Though dark may be my frame,  
-> His loving heart is still  
-> Unchangeably the same.  
-> My soul through many changes goes,  
-> His love no variation knows"  
+> Immutable his will,    
+> Though dark may be my frame,    
+> His loving heart is still    
+> Unchangeably the same.    
+> My soul through many changes goes,    
+> His love no variation knows    
 
 Your frames are no proof that Christ changes: they are only proof that you change.
 
@@ -80,10 +80,10 @@ Well, then, the next. If Jesus Christ be always the same, then, my soul, endeavo
 
 Again: if Christ be always the same, Christian, rejoice! Come what may, thou art secure.
 
-> "Let mountains from their seats be hurled  
-> Down to the deeps, and buried there;  
-> Convulsions shake the solid world;  
-> Our faith shall never need to fear."  
+> Let mountains from their seats be hurled    
+> Down to the deeps, and buried there;    
+> Convulsions shake the solid world;    
+> Our faith shall never need to fear.    
 
 If kingdoms should go to rack, the Christian need not tremble! Just for a minute imagine a scene like this. Suppose for the next three days the sun should not rise; suppose the moon should be turned into a clot of blood, and shine no more upon the world; imagine that a darkness that might be felt, brooded over all men; imagine, next, that all the world did tremble in an earthquake, till every tower, and house, and hut fell down: imagine, next, that the sea forgot its place, and leaped upon the earth; and that the mountains ceased to stand, and began to tremble from their pedestals; conceive after that, that a blazing comet streamed across the sky--that the thunder bellowed incessantly--that the lightnings, without a moment's pause, followed one the other; conceive, then, that thou didst behold divers terrible sights, fiendish ghosts, and grim spirits; imagine, next, that a trumpet, waxing exceeding loud, did blow; that there were heard the shrieks of men dying and perishing; imagine, that in the midst of all this confusion, there wee to be a found a saint. My friend, "Jesus Christ, the same yesterday, to-day, and for every, would keep him as secure amidst all these horrors, as we are to-day. Oh! rejoice! I have pictured the worst that can come. Then you would be secure. Come what may then, you are safe, while Jesus Christ is the same.
 

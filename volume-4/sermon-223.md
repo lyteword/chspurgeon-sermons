@@ -2,11 +2,11 @@
 
 Sermon No. 223 - Delivered on Sabbath Morning, November 14th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The iniquity of the house of Israel and Judah is exceeding great."  
-> Ezekiel 9:9.  
+> The iniquity of the house of Israel and Judah is exceeding great.    
+> Ezekiel 9:9.    
 
-> "The blood of Jesus Christ his Son cleanseth us from all sin."  
-> 1 John 1:7.
+> The blood of Jesus Christ his Son cleanseth us from all sin."    
+> 1 John 1:7.    
 
 I SHALL HAVE two texts this morning--the evil and its remedy. "The iniquity of the house of Israel and Judah is exceeding great;" and "The blood of Jesus Christ his Son cleanseth us from all sin."
 
@@ -18,8 +18,8 @@ I shall begin, then, with the first doctrine as it is contained in the ninth cha
 
 Some men imagine that the gospel was devised, in some way or other, to soften down the harshness of God towards sin. Ah! how mistaken the idea! There is no more harsh condemnation of sin anywhere than in the gospel. Ye shall go to Sinai, and ye shall there hear its thunders rolling; ye shall behold the flashing of its terrible lightnings, till, like Moses, ye shall exceedingly fear and quake, and come away declaring that sin must be a terrible thing, otherwise, the Holy One had never come upon Mount Paran with all these terrors round about him. But after that ye shall go to Calvary; there ye shall see no lightnings, and ye shall hear no thunders, but instead thereof, ye shall hear the groans of an expiring God, and ye shall behold the contortions and agonies of one who bore
 
-> "All that Incarnate God could bear,  
-> With strength enough, and none to spare."  
+> All that Incarnate God could bear,    
+> With strength enough, and none to spare.    
 
 And then ye shall say, "Now, though I never fear nor quake, yet I know how exceedingly great a thing sin must be, since such a sacrifice was required to make an atonement for it. Oh! sinners; if ye come to the gospel, imagining that there ye shall find an apology for your sin, ye have indeed mistaken your way. Moses charges you with sin, and tells you that you are without excuse; but as for the gospel, it rends away from you every shadow of a covering; it leaves you without a cloak for your sin; it tells you that you have sinned wilfully against the Most High God--that ye have not an apology that ye can possibly make for all the iniquities that ye have committed against him; and so far in any way from smoothing over your sin, and telling you that you are a weak creature and, therefore could not help your sin, it charges upon you the very weakness of your nature, and makes that itself the most damning sin of all. If ye seek apologies, better look even into the face of Moses, when it is clothed with all the majesty of the terrors of the law, than into the face of the gospel, for that is more terrible by far to him who seeks to cloak his sin.
 
@@ -57,24 +57,24 @@ Nay, more than that. Come hither ye thousands who are gathered together this mor
 
 Yet, once more, in the praise of this blood we must notice one further feature. There be some of you here who are saying, "Ah! that shall be my hope when I come to die, that in the last hour of my extremity the blood of Christ will take my sins away; it is now my comfort to think that the blood of Christ shall wash, and purge, and purify the transgressions of life." But, mark! my text saith not so; it does not say the blood of Christ shall cleanse--that were a truth--but it says something greater than that--it says, "The blood of Jesus Christ his Son cleanseth"--cleanseth now. And is it possible that now a man may be forgiven? Can a harlot now have all her sins blotted out of the book of God? And can she know it? Can the thief this day have all his transgressions cast into the sea; and can he know it? Can I, the chief of sinners, this day be cleansed from all my sins, and know it? Can I know that I stand accepted before the throne of God, a holy creature because washed from every sin? Yes, tell it the wide world over, that the blood of Christ can not only wash you in the last dying article, but can wash you now. And let it be known, moreover, that to this there are a thousand witnesses, who, rising in this very place from their seats, could sing--
 
-> "Oh, how sweet to view the flowing  
-> Of my Saviour's precious blood,  
-> With divine assurance knowing,  
-> He has made my peace with God"  
+> Oh, how sweet to view the flowing    
+> Of my Saviour's precious blood,    
+> With divine assurance knowing,    
+> He has made my peace with God    
 
 What would you not give to have all your sins blotted out now? Would you not give yourself away to become the servant of God for ever, if now your sins should be washed away? Ah, then, say not in your hearts, "What shall I do to obtain this mercy?" Imagine not there is any difficulty in your way. Suppose not there is some hard thing to be done before you can come to Christ to be washed, O beloved! to the man that knows himself to be guilty, there is not one barrier between himself and Christ. Come, soul, this moment come to him that hung upon the cross of Calvary! come now and be washed.
 
 But what meanest thou by coming? I mean this: come thou and put thy trust in Christ, and thou shalt be saved. What is meant by believing in Christ? Some say, that "to believe in Christ is to believe that Christ died for me." That is not a satisfactory definition of faith. An Arminian believes that Christ died for everybody. He must, therefore, necessarily believe that Christ died for him. His believing that will not save him, for he will still remain an unconverted man and yet believe that. To believe in Christ is to trust him. The way I believe in Christ, and I know not how to speak of it, except as I feel it myself, is simply this: I know it is written that "Jesus Christ came into the world to save sinners." I do firmly believe that those he came to save he will save. The only question I ask myself is, "Can I put myself among that number whom he has declared he came to save?" Am I a sinner? Not one that utters the word in a complimentary sense, but do I feel the deep compunction in my inmost soul? do I stand and feel convicted, guilty, and condemned? I do; I know I do. Whatever I may not be, one thing I know I am--a sinner, guilty, consciously guilty, and often miserable on account of that guilt. Well, then, the Scripture says, "This is a faithful saying, and worthy of all acceptation, that Jesus Christ came into the world to save sinners."
 
-> "And when thine eye of faith is dim,  
-> Still trust in Jesus, sink or swim;  
-> Thus, at his footstool, bow the knee,  
-> And Israel's God thy peace shall be,"  
+> And when thine eye of faith is dim,    
+> Still trust in Jesus, sink or swim;    
+> Thus, at his footstool, bow the knee,    
+> And Israel's God thy peace shall be,    
 
 Let me put my entire trust in the bloody sacrifice which he offered upon my behalf. No dependence will I have in my playings, my doings, my feelings, my weepings, my preachings, my thinkings, my Bible readings, nor all that. I would desire to have good works, and yet in my good works I will not put a shadow of trust.
 
-> "Nothing in my hands I bring,  
-> Simply to thy cross I cling."  
+> Nothing in my hands I bring,    
+> Simply to thy cross I cling.    
 
 And if there be any power in Christ to save I am saved; if there be an everlasting arm extended by Christ, and if that Saviour who hung there was "God over all, blessed for ever," and if his blood is still exhibited before the throne of God as the sacrifice for sin, then perish I cannot, till the throne of God shall break, and till the pillars of God's justice shall crumble.
 

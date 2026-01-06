@@ -10,8 +10,8 @@ Yours in much affection,
 
 H. S.
 
-> "This man receiveth sinners."  
-> Luke 15:2.  
+> This man receiveth sinners.    
+> Luke 15:2.    
 
 IT WAS A SINGULAR GROUP which had gathered round our Saviour, when these words were uttered; for we are told by the evangelist--"Then drew near unto him all the publicans and sinners for to hear him." The publicans--the very lowest grade, the public oppressors, scorned and hated by the meanest Jew--these, together with the worst of characters, the scum of the streets and the very riff-raff of the society of Jerusalem, came around this mighty preacher, Jesus Christ, in order to listen to his words. On the outside of the throng there stood a few respectable people, who in those days were called Pharisees and Scribes--men who were highly esteemed in the synagogues as rulers, and governors, and teachers. These looked with scorn upon the Preacher; and watched him with invidious eyes, to find some fault. If they could find none in him personally, yet they could easily find it in his congregation; his deportment towards them shocked their false notion of propriety, and when they observed that he was affable with the very worst of characters, that he spoke loving words to the most fallen of mankind, they said of him what they intended for a disgrace, albeit it was highly to his honour: "This man receiveth sinners." 
 
@@ -25,7 +25,7 @@ Now, let us remark, beloved, that there is a very wise distinction on the part o
 
 And mark, again, none but those can come; no man can come to Christ until he truly knows himself to be a sinner. The self-righteous man cannot come to Christ; for what is implied in coming to Christ? Repentance, trust in his mercy, and the denial of all confidence in one's self. Now, a self-righteous man cannot repent, and yet be self-righteous. He conceives that he has no sin; why, then, should he repent? Tell him to come to Christ with humble penitence, and he exclaims--"Ay! you insult my dignity. Why should I approach to God? Wherein have I sinned? My knee shall not bend to seek for pardon, wherein I have not offended; this lip shall not seek forgiveness when I do not believe myself to have transgressed against God; I shall not ask for mercy." The self-righteous man cannot come to God; for his coming to God implies that he ceases to be self-righteous. Nor can a self-righteous man put his trust in Christ; why should he? Shall I trust in a Christ whom I do not require? It I be self-righteous, I need no Christ to save me in my own opinion. How, then, can I come with such a confession as this,
 
-> "Nothing in my hands I bring,"
+> Nothing in my hands I bring,    
 
 when I have got my hands full. How can I say, "Wash me," when I believe myself white? How can I say "Heal me," when I think that I never was sick? How can I cry, "Give me freedom, give me liberty," when I believe I never was a slave, and "never in bondage to any man?" It is only the man who knows his slavery by reason of the bondage of sin, and the man who knows himself to be sick even unto death by reason of the sense of guilt: it is only the man who feels he cannot save himself, who can with faith rely upon the Saviour. Nor can the self-righteous man renounce himself, and lay hold of Christ; because in the renunciation of himself he would at once become the very character whom Christ says he will receive. He would then put himself in the place of the sinner, when he cast away his own righteousness. Why, sirs, coming to Christ implies the taking off the polluted robe of our own righteousness, and putting on Christ's. How can I do that, if I wittingly wrap my own garment about me? and if in order to come to Christ I must forsake my own refuge and all my own hope, how can I do it, if I believe my hope to be good, and my refuge to be secure; and if I suppose that already I am clothed sufficiently to enter into the marriage supper of the Lamb? Nay, beloved, it is the sinner, and the sinner only, who can come to Christ; the self-righteous man cannot do it; it is quite out of his way--he would not do it if he could. His very self-righteousness fetters his foot, so that he cannot come; palsies his arm, so that he cannot take hold of Christ; and blinds his eye, so that be cannot see the Saviour.
 
@@ -45,8 +45,8 @@ Ay, if thou canst only wish for him with the strong wish of one that fears he ne
 
 Doth not this suffice thee? Then here is another reason. I am sure "this man receiveth sinners," because he has received many, many, before you. See, there is Mercy's door; mark how many have been to it; you can almost hear the knocks upon the door now, like echoes of the past. You may remember how many way-worn travellers have called there for rest, how many famished souls have applied there for bread. Go, knock at Mercy's door, and ask the porter this question, "Was there ever one applied to the door that was refused?" I can assure you of the answer: "No, not one."
 
-> "No sinner was ever empty sent back,  
-> Who came seeking mercy for Jesus's sake."  
+> No sinner was ever empty sent back,    
+> Who came seeking mercy for Jesus's sake.    
 
 And shalt thou be the first? Dost thou think God will forfeit his good name, by turning thee away? Mercy's gate has been open night and day, ever since man sinned; dost thou think it will be shut in thy face for the first time? Nay, man, go and try it; and if thou findest it is, come back and say, "Thou hast not read the Bible as thou oughtest to have done;" or else say thou hast found one promise there which has not been fulfilled--for he said, "Him that cometh I will in nowise cast out." I do not believe there ever was in this world one who was suffered by God to say that he sought mercy of him sincerely, and did not find it. Nay more, I believe that such a being never shall exist, but whosoever cometh unto Christ shall most assuredly find mercy. What greater encouragement do you want? Do you want a salvation for those that will not come to be saved? Do you want blood sprinkled on those that will not come to Christ? You must want it, then; I will not preach it to you. I find it not in God's Word, and therefore I dare not.
 
@@ -54,39 +54,39 @@ And now, sinner, I have yet another plea to urge with thee why thou shouldst bel
 
 And now just one point more, to commend this encouragement to you. Indeed, poor souls, I know when ye are under a sense of sin it is very hard to believe. We sometimes say, "Only believe;" but believing is just the hardest thing in the world when sin lies heavy on your shoulders. We say, "Sinner, only trust in Christ." Ah, ye do not know what a great "only" that is. It is a work so great, that no man can do it unaided by God; for faith is the gift of God, and he gives it only to his children. But if anything can call faith into exercise, it is this last thing I shall mention. Sinner, remember that Christ is willing to receive thee, for he came all the way from heaven to seek thee and find thee out in thy wanderings, and to save thee and rescue thee from thy miseries; he hath given proof of his hearty interest in thy welfare, in that he hath shed his very heart's blood to redeem thy soul from death and hell. If he had wanted the companionship of saints, he might have stopped in heaven, for there were many there. Abraham, and Isaac, and Jacob were with him there in glory; but he wanted sinners. He had a thirst after perishing sinners. He wanted to make them trophies of his grace. He wanted black souls, to wash them white. He wanted dead souls, to make them alive. His benevolence wanted objects on which to exert itself; and therefore
 
-> "Down from the shining seats above,  
-> With joyful haste he fled,  
-> Entered the grave in mortal flesh,  
-> And dwelt among the dead."  
+> Down from the shining seats above,    
+> With joyful haste he fled,    
+> Entered the grave in mortal flesh,    
+> And dwelt among the dead.    
 
 Oh, sinner, look there, and see that cross. Mark yonder man upon it!
 
-> "See from his head, his hands, his feet,  
-> Sorrow and love flow mingled down!  
-> Did e'er such love and sorrow meet,  
-> Or thorns compose so rich a crown?"  
+> See from his head, his hands, his feet,    
+> Sorrow and love flow mingled down!    
+> Did e'er such love and sorrow meet,    
+> Or thorns compose so rich a crown?    
 
 Dost thou note that eye? Canst thou see languid pity for thy soul floating in it? Dost thou mark that side? It is opened that thou mayest hide thy sins therein. See those drops of crimson blood; every drop is trickling down for thee. Hearest thou that death-shriek, "Eloi, Eloi, lama sabachthani?" That shriek in all its deep-toned solemnity is for thee. Yes, for thee, if thou art a sinner; if thou dost this night say unto God, "Lord, I know I have offended thee; have mercy upon me for Jesus' sake." If now, taught by the Spirit, thou art led to abhor thyself in dust and ashes, because thou hast sinned, verily, before God--I tell thee in his sight, as his servant, thou shalt be saved; for Jesus would not die for thee and yet let thee perish.
 
 Now the last point is AN EXHORTATION. If it be true that Christ came only to save sinners, my beloved hearers, labour, strive, agonize, to get a sense in your souls of your own sinnership. One of the most distressing things in the world is to feel yourself a sinner; but that is no reason why I should not exhort you to seek it, for while distressing, it is only the distress of the bitter medicine which will effectually work the cure. Do not seek to get high ideas of yourself. Seek to get a low opinion of yourself; do not try to deck yourself with ornaments; let it not be your endeavour to array yourself in gold and silver; do not seek to be made good in yourself, but seek to strip yourself; seek to humble yourself. Do not soar high, but sink low. Do not go up, but go down. Ask God to let thee see that thou art nothing at all. Ask him to bring thee to this, that thou mayest have nothing to say but
 
-> "I the chief of sinners am;"
+> I the chief of sinners am;    
 
 and if God hear your prayer, very likely Satan will tell you that you cannot be saved because you are a sinner. But as Martin Luther said, "Once, when I was racked with pain and sin, Satan said, Luther, thou canst not be saved, for thou art a sinner. Nay,' said Martin Luther, I will cut thine head off with thine own sword. Thou sayest I am a sinner; I thank thee for it. Thou art a holy Satan,' (he says it in mockery no doubt,) when thou sayest I am a sinner. Well, then, Satan, Christ died for sinners, therefore he died for me. Ah,' said he, if thou canst but prove that to me, Satan, I will thank thee for it; and so far from groaning, I will begin to sing, for all we want is to know and feel that we are sinners." Let us feel that; let us know that, and we may receive this as an undoubted fact of revelation, that we have a right to come unto Christ, and to believe on him, and receive him as all our salvation, and all our desire. No doubt Conscience will come and stop you; but do not try to stop the mouth of Conscience, but tell Conscience you are much obliged to him for all that he says Oh, you have been a desperate fellow; you sinned when you were young; you have sinned even until now. How many sermons have been wasted on you! How many Sabbaths you have broken! How many warnings you have despised! Oh, you are a desperate sinner.' Tell Conscience that you thank him, for the more you can prove yourself to be a sinner, not by outward acts, but in your inmost heart, the more you know yourself to be really guilty, the more reason have you to come to Christ and say, "Lord, I believe thou hast died for the guilty; I believe thou intendest to save the worthless. I Cast myself on thee; Lord, save me!" That does not suit some of you, does it? It is not the kind of doctrine that flatters man much. 
 
 No; ye would like to be good people, and help Christ a little, ye like that theory which some ministers are always proclaiming. "God has done a great deal for you; you do the rest, and then you will be saved." That is a very popular kind of doctrine; you do one part, and God will do the other part; but that is not God's truth, it is only a delirious dream; God says, "I will do the whole; come and prostrate thyself at my feet; give up thy doings; let me undertake for thee; afterwards, I will make thee live to my glory. Only in order that thou mayest be holy, I desire thee to confess that thou art unholy; in order that thou mayest be sanctified, thou must confess that thou art as yet unsanctified. Oh, do that my hearers. Fall down before the Lord; cast yourselves down. Do not stand up with pride; but fall down before God in humility; tell him you are undone without his sovereign grace; tell him you have nothing, you are nothing, you never will be anything more than nothing, but that you know Christ does not want anything of you, for he will take you just as you are. Do not seek to come to Christ with anything, besides your sin; do not seek to come to Christ with your prayers for a recommendation; do not come to him even with professions of your faith; come to him with your sin, he will give you faith. If you stop away from Christ, and think that you will have faith apart from him, you have made an error. It is Christ that saves us; we must come to Christ for all we want.
 
-> "Thou, O Christ, art all I want;  
-> All in All in thee I find:  
-> Raise the fallen, cheer the faint,  
-> Heal the sick, and lead the blind."  
+> Thou, O Christ, art all I want;    
+> All in All in thee I find:    
+> Raise the fallen, cheer the faint,    
+> Heal the sick, and lead the blind.    
 
 Jesus will do so and more also; but you must come as blind, you most come as sick, you must come as lost, or else you cannot and must not come at all.
 
 Come then, to Jesus, I beseech you, whatever may up to this time have kept you away. Your doubts would keep you away, but say, "Stand back, Unbelief; Christ says he died for sinners: and I know I am a sinner."
 
-> "My faith will on that promise live,  
-> Will on that promise die."  
+> My faith will on that promise live,    
+> Will on that promise die.    
 
 And there is one thing I want to say, before I have done. Do not stop away from Christ, when you know yourself to be a sinner, because you think you do not understand every point of theology. Very often I get young converts with me, and they say, "I do not understand this or that doctrine." Well, I am very glad, so far as I am able, to explain it to them. But sometimes I get, not young converts, but young convicts, those who are under Conviction of sin; and when I am trying to bring them to this, that if they are but sinners they may believe in Christ, they begin with this knotty point, and that knotty point--and they seem to imagine that they cannot be saved till they are thorough theologians. Now, if you expect to understand all theology before you put your faith in Christ, I can only tell you you never will; for live as long as ever you may, there will be some depths you cannot explore. There are certain unquestionable facts which you must hold; but there will always be some difficulties through which you will not be able to see. The most favoured saint on earth does not understand everything; but you want to understand all things before you come to Christ. One man asks me how sin came into the world, and he will not come unto Christ till he knows that. Why, he will be lost beyond hope of recovery, if he waits till he knows it; for nobody will ever know it. I have no reason to believe that it is even revealed to those who are in heaven. Another wants to know how it is that men are bidden to come,--and yet we are taught in Scripture that no man can come,--and he must have that cleared up; just as if the poor man who had a withered arm, when Christ said, "Stretch out thine arm," had replied, "Lord, I have got a difficulty in my mind; I want to know how you can tell me to stretch out my arm when it is withered." 
 

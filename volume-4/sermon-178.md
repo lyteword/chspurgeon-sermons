@@ -2,8 +2,8 @@
 
 Sermon No. 178 - Delivered on Thursday Evening, November 5, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh?"  
-> Galatians 3:3.  
+> Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh?    
+> Galatians 3:3.    
 
 YES, we are just so foolish. Folly is bound up not only in the heart of a child, but in the heart of even a child of God; and though the rod may be said to bring folly out of a child, it will take many a repetition of the rod of affliction upon the shoulders of a Christian before that folly is taken out of him. I suppose we are all of us very sound as a matter of theory upon this point. If any should ask us how we hope to have our salvation worked in us, we should without the slightest hesitation aver our belief that salvation is of the Lord alone, and we should declare that, as the Holy Spirit first of all commenced our piety in us, we look alone to his might to continue and to preserve, and at last to perfect the sacred work. I say we are sound enough on that point as a matter of theory, but we are all of us very heretical and unsound as a matter of practice; for alas! you will not find a Christian who does not have to mourn over his self-righteous tendencies; you will not discover a believer who has not at certain periods in his life, to groan because the spirit of self-confidence has risen in his heart, and prevented him from feeling the absolute necessity of the Holy Spirit--has led him to put his confidence in the mere strength of nature, the strength of good intentions, the strength of strong resolutions, instead of relying upon the might of God the Holy Spirit alone. This one thing I know, brethren, that whilst as a preacher I can tell you all, that the Holy Spirit must work all our works in us, and that without him we can do nothing, yet as a man I find myself tempted to deny my own preachings, not in my words, but to deny them in fact by endeavoring to do deeds without looking first to the Holy Spirit. 
 

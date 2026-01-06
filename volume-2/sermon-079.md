@@ -2,8 +2,8 @@
 
 Sermon No. 79 - Delivered on Sabbath Morning, May 11, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus."  
-> 2 Timothy 1:13.  
+> Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus.    
+> 2 Timothy 1:13.    
 
 MY INCESSANT anxiety for you, dearly beloved in the faith of Jesus Christ, is that I may be able, in the first place, to teach you what God's truth is; and then, trusting that I have to the best of my ability taught you what I believe to be God's most holy gospel, my next anxiety is, that you should "hold fast the form of sound words;" that whatever may occur in the future, should death snatch away your pastor, or should anything occur which might put you in perilous circumstances, so that you were tempted to embrace any system of heresy, you might every one of you stand as firm and as unmoved as rocks, and as strong as mountains be, abiding in "the faith which was once delivered unto the saints," whereof ye have heard, and which we have proclaimed unto you. If the gospel be worth your hearing, and if it be a true gospel, it is worth your holding, and our anxiety is, that you should be so established in the faith, that you may, "hold fast the profession of your faith without wavering, for he is faithful that has promised."
 
@@ -29,8 +29,8 @@ Now let me show you THE NECESSITY OF HOLDING FAST THIS FORM OF SOUND WORD, AND K
 
 First, for your own sake, hold it fast, for thereby you will receive ten thousand blessings; you will receive the blessing of peace in your conscience. I protest, before God, that if at any time I ever doubt one of the great things I receive from God, instantly there comes an aching void which the world can never fill, and which I can never get filled until I receive that doctrine again, and believe it with all my heart. When at any time I am cast down and dejected, I always find comfort in reading books which are strong on the doctrines of the faith of the gospel; if I turn to some of them that treat of God's eternal love, revealed to his chosen people in the person of Christ; and if I remember some of the exceeding great and precious promises made to the elect in their covenant head, my faith at once becomes strong, and my soul, with wings sublime, mounts upwards towards its God. You cannot tell, beloved, if you have never tasted, how sweet is the peace which the doctrines of grace will give to the soul; there is nothing like them. They are--
 
-> "A sovereign balm for every wound,  
-> A cordial for our fears."  
+> A sovereign balm for every wound,    
+> A cordial for our fears.    
 
 They are God's sweet lullaby, wherewith he singeth his children to sleep, even in storms. They are God's sheet anchors, which are cast out into the sea, to hold our little vessels fast in the midst of tempests. There is a "peace of God which passeth all understanding," which accrues to a man who is strong believer, but you know the tendency of the day is to give up old land marks and to adopt new ones, and to avow anything rather than the old-fashioned divinity. Well, my dear friends, if any of you like to try new doctrines, I warn you, that if you be the children of God you will soon be sick enough of those new-fangled notions, those newly invented doctrines, which are continually taught. You may, for the first week, be pleased enough with their novelty; you may wonder at their transcendental spirituality, or something else, which entices you on; but you will not have lived on them long, before you will say, "Alas! alas! I have taken in my hands the apples of Sodom; they were fair to look upon, but they are ashes in my mouth." If you would be peaceful, keep fast to the truth, hold fast the form of sound words: so shall "your peace be like a river, and your righteousness like the waves of the sea."
 
@@ -72,10 +72,10 @@ Believe the truth. Do not pretend to believe it, but believe it thoroughly. And 
 
 And then the second holdfast is love. Love Christ and love Christ's truth because it is Christ's truth, for Christ's sake, and if you love the truth you will not let it go. It is very hard to turn a man away from the truth he loves. "Oh!" says one, "I cannot argue with you about it, but I cannot give it up: I love it, and cannot live without it; it is a part of myself, woven into my very nature; and though my opponent says that bread is not bread, and I cannot prove that it is, yet I know I go and eat it; it is wonderfully like it to me, and it takes away my hunger. He says that stream is not a pure stream; I cannot prove that it is, but I go and drink of it, and find it the river of the water of life to my soul." And he tells me that my gospel is not a true one: well, it comforts me, it sustains me in my trials, it helps me to conquer sin and to keep down my evil passions, and brings me near to God, and if my gospel be not a true one, I wonder what sort of thing a true one is: mine is wonderfully like it, and I cannot suppose that a true gospel would produce better effects. That is the best thing to do, to believe the Word, to have so full a belief in it, that the enemy cannot pull you away. He may try to do it, but you will say,--
 
-> "Amidst temptations sharp and long,  
-> My soul to the same refuge flies;  
-> Faith is my anchor, firm and strong  
-> When tempests blow or billows rise."  
+> Amidst temptations sharp and long,    
+> My soul to the same refuge flies;    
+> Faith is my anchor, firm and strong    
+> When tempests blow or billows rise.    
 
 Hold on then, Christian, to "faith and love which are by Christ Jesus"--two blessed holdfasts, wherewith we grasp the truth.
 

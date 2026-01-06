@@ -2,13 +2,13 @@
 
 Sermon No. 110 - Delivered on Sabbath Morning, December 28th, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And I looked, and, lo, a Lamb stood on the Mount Sion, and with him an hundred forty and four thousand, having his Father's name written in their foreheads. And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and I heard the voice of harpers harping with their harps; And they sung as it were a new song before the throne, and before the four beasts, and the elders; and no man could learn that song but the hundred and forty and four thousand, which were redeemed from the earth."  
-> Revelation 14:1-3.  
+> And I looked, and, lo, a Lamb stood on the Mount Sion, and with him an hundred forty and four thousand, having his Father's name written in their foreheads. And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and I heard the voice of harpers harping with their harps; And they sung as it were a new song before the throne, and before the four beasts, and the elders; and no man could learn that song but the hundred and forty and four thousand, which were redeemed from the earth.    
+> Revelation 14:1-3.    
 
 THE SCENE of this marvellous and magnificent vision is laid upon Mount Sion; by which we are to understand, not Mount Sion upon earth, but Mount Sion which is above, "Jerusalem, the mother of us all." To the Hebrew mind Mount Sion was a type of heaven, and very justly so. Among all the mountains of the earth none was to be found so famous as Sion. It was there that patriarch Abraham drew his knife to slay his son; it was there, too, in commemoration of that great triumph of faith, Solomon built a majestic temple, "beautiful for situation and the joy of the whole earth." That Mount Sion was the centre of all the devotions of the Jews.
 
-> "Up to her courts, with joys unknown,  
-> The sacred tribes repaired."  
+> Up to her courts, with joys unknown,    
+> The sacred tribes repaired.    
 
 Between the wings of the cherubim Jehovah dwelt; on the one altar there all the sacrifices were offered to high heaven. They loved Mount Sion, and often did they sing, when they drew nigh to her, in their annual pilgrimages, "How amiable are thy tabernacles O Lord God of hosts, my King and my God!" Sion is now desolate; she hath been ravished by the enemy; she hath been utterly destroyed; her vail hath been rent asunder, and the virgin daughter of Sion is now sitting in sackcloth and ashes; but, nevertheless, to the Jewish mind it must ever, in its ancient state, remain the best and sweetest type of heaven. John, therefore, when he saw this sight might have said, "I looked, and, lo, a Lamb stood in heaven, and with him an hundred and forty and four thousand having his Father's name written in their foreheads: And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder; and I heard the voice of harpers harping with their harps: And they sung as it were a new song before the throne, and before the four beasts, and the elders: and no man could learn that song but the hundred and forty and four thousand, which were redeemed from the earth."
 
@@ -16,24 +16,24 @@ This morning I shall endeavour to show you, first of all, the object of heavenly
 
 In the first place, then, we wish to take a view of THE OBJECT OF HEAVENLY WORSHIP. The divine John was privileged to look within the gates of pearl; and on turning round to tell us what he saw--observe how he begins--he saith not, "I saw streets of gold or walls of Jasper;" he saith not, "I saw crowns, marked their lustre, and saw the wearers." That he shall notice afterwards. But he begins by saying, "I looked, and, lo, a Lamb!" To teach us that the very first and chief object of attraction in the heavenly state is "the Lamb of God which taketh away the sins of the world." Nothing else attracted the Apostle's attention so much as the person of that Divine Being, who is the Lord God, our most blessed Redeemer: "I looked, and, lo a Lamb!" Beloved, if we were allowed to look within the vail which parts us from the world of spirits, we should see, first of all, the person of our Lord Jesus. If now we could go where the immortal spirits "day without night circle the throne rejoicing," we should see each of them with their faces turned in one direction; and if we should step up to one of the blessed spirits, and say, "O bright immortal, why are thine eyes fixed? What is it that absorbs thee quite, and wraps thee up in vision?" He, without deigning to give an answer, would simply point to the centre of the sacred circle, and lo, we should see a Lamb in the midst of the throne. They have not yet ceased to admire his beauty, and marvel at his wonders and adore his person.
 
-> "Amidst a thousand harps and songs,  
-> Jesus, our God, exalted reigns."  
+> Amidst a thousand harps and songs,    
+> Jesus, our God, exalted reigns.    
 
 He is the theme of song and the subject of observation of all the glorified spirits and of all the angels in paradise. "I looked, and, lo, a Lamb!"
 
 Christian, here is joy for thee; thou hast looked, and thou hast seen the Lamb. Through thy tearful eyes thou hast seen the Lamb taking away thy sins. Rejoice, then! In a little while, when thine eyes shall have been wiped from tears, thou wilt see the same Lamb exalted on his throne. It is the joy of the heart to hold daily fellowship and communion with Jesus; thou shalt have the same joy in heaven; "there shalt thou see him as he is, and thou shalt be like him." Thou shalt enjoy the constant vision of his presence, and thou shalt dwell with him for aye. "I looked, and, lo, a Lamb!" Why, that Lamb is heaven itself; for as good Rutherford says, "Heaven and Christ are the same things; to be with Christ is to be in heaven, and to be in heaven is to be with Christ." And he very sweetly says in one of his letters, wrapped up in love to Christ. "Oh! my Lord Christ, if I could be in heaven without thee, it would be a hell; and if I could be in hell, and have thee still, it would be a heaven to me, for thou art all the heaven I want." It is true, is it not Christian? Does not thy soul say so?
 
-> "Not all the harps above  
-> Could make a heavenly place,  
-> Should Christ his residence remove,  
-> Or but conceal his face."  
+> Not all the harps above    
+> Could make a heavenly place,    
+> Should Christ his residence remove,    
+> Or but conceal his face.    
 
 All thou needest to make thee blessed, supremely blessed, is "to be with Christ, which is far better."
 
 And now observe the figure under which Christ is represented in heaven. "I looked, and, lo, a Lamb." Now, you know Jesus, in Scripture, is often represented as a lion: he is so to his enemies, for he devoureth them, and teareth them to pieces. "Beware, ye that forget God, lest he tear you in pieces, and there be none to deliver." But in heaven he is in the midst of his friends, and therefore he
 
-> Looks like a lamb that has been slain,  
-> And wears his priesthood still."  
+> Looks like a lamb that has been slain,    
+> And wears his priesthood still.    
 
 Why should Christ in heaven choose to appear under the figure of a lamb, and not in some other of his glorious characters? We reply, because it was as a lamb that Jesus fought and conquered, and, therefore as a lamb he appears in heaven. I have read of certain military commanders, when they were conquerors, that on the anniversary of their victory they would never wear anything but the garment in which they fought. On that memorable day they say, "Nay, take away the robes; I will wear the garment which has been embroidered with the sabre-cut, and garnished with the shot that hath riddled it; I will wear no other garb but that in which I fought and conquered." It seems as if the same feeling possessed the breast of Christ. "As a Lamb," saith he, "I died, and worsted hell; as a Lamb I have redeemed my people, and therefore as a Lamb I will appear in paradise."
 
@@ -41,10 +41,10 @@ But, perhaps, there is another reason; it is to encourage us to come to him in p
 
 And you will further notice that this Lamb is said to stand. Standing is the posture of triumph. The Father said to Christ, "Sit thou on my throne, till I make thine enemies thy footstool." It is done; they are his footstool, and here he is said to stand erect, like a victor over all his enemies. Many a time the Saviour knelt in prayer; once he hung upon the cross; but when the great scene of our text shall be fully wrought out, he shall stand erect, as more than conqueror, through his own majestic might. "I looked, and, lo, a Lamb stood on the Mount Sion." Oh, if we could rend the veil--if now we were privileged to see within it--there is no sight would so enthrall us as the simple sight of the Lamb in the midst of the throne. My dear brethren and sisters in Christ Jesus, would it not be all the sight you would ever wish to see, if you could once behold him whom your soul loveth? Would it not be a heaven to you, if it were carried out in your experience--"Mine eye shall see him, and not another's?" Would you want anything else to make you happy but continually to see him? Can you not say with the poet--
 
-> "Millions of years my wondering eyes  
-> Shall o'er my Saviour's beauty rove,  
-> And endless ages I'll adore  
-> The wonders of his love?"  
+> Millions of years my wondering eyes    
+> Shall o'er my Saviour's beauty rove,    
+> And endless ages I'll adore    
+> The wonders of his love?    
 
 And if a single glimpse of him on earth affords you profound delight; it must be, indeed, a very sea of bliss, and an abyss of paradise, without a bottom or a shore, to see him as he is; to be lost in his splendours, as the stars are lost in the sunlight, and to hold fellowship with him, as did John the beloved, when he leaned his head upon his bosom. And this shall be thy lot, to see the Lamb in the midst of the throne.
 
@@ -66,8 +66,8 @@ You say, "When I go perhaps they will take me in, and perhaps they will not." "B
 
 One more remark here, and we will turn from the worshippers to listen to their song. It is said of all these worshippers that they learned the song before they went there. At the end of the third verse it is said, "No man could learn that song but the hundred and forty and four thousand, which were redeemed from the earth." Brethren, we must begin heaven's song here below, or else we shall never sing it above. The choristers of heaven have all had rehearsals upon earth, before they sing in that orchestra. You think that, die when you may, you will go to heaven, without being prepared. Nay, sir; heaven is a prepared place for a prepared people, and unless you are "made meet to be partakers of the inheritance of the saints in light," you can never stand there among them. If you were in heaven without a new heart and a right spirit, you would be glad enough to get out of it; for heaven, unless a man is heavenly himself, would be worse than hell. A man who is unrenewed and unregenerate going to heaven would be miserable there. There would be a song--he could not join in it; there would be a constant hallelujah, but he would not know a note: and besides, he would be in the presence of the Almighty, even in the presence of the God he hates, and how could he be happy there? No, sirs; ye must learn the song of paradise here, or else ye can never sing it. Ye must learn to sing--
 
-> "Jesus, I love thy charming name,  
-> 'Tis music to my ears."  
+> Jesus, I love thy charming name,    
+> 'Tis music to my ears.    
 
 You must learn to feel that "sweeter sounds than music knows mingle in your Saviour's name," or else you can never chaunt the hallelujahs of the blest before the throne of the great "I AM." Take that thought, whatever else you forget; treasure it up in your memory, and ask grace of God that you may here be taught to sing the heavenly song, that afterwards in the land of the hereafter, in the home of the beautified, you may continually chaunt the high praises of him that loved you.
 
@@ -77,35 +77,35 @@ First, then, singing how loud! It is said to be "like the voice of many waters."
 
 Now, suppose waterfalls dashing upon waterfalls, cataracts upon cataracts, Niagaras upon Niagaras, each of them sounding forth their mighty voices, and you have got some idea of the singing of paradise. "I heard a voice like the voice of many waters." Can you not hear it? Ah! if our ears were opened we might almost cast the song. I have thought sometimes that the voice of the Aeolian harp, when it has swollen out grandly, was almost like an echo of the songs of those who sing before the throne; and on the summer eve, when the wind has come in gentle zephyrs through the forest, you might almost think it was the floating of some stray notes that had lost their way among the harps of heaven, and come down to us, to give us some faint foretaste of that song which hymns out in mighty peals before the throne of the Most High. But why so loud? The answer is, because there are so many there to sing. Nothing is more grand than the singing of multitudes. Many have been the persons who have told me that they could but weep when they heard you sing in this assembly, so mighty seemed the sound when all the people sang--
 
-> "Praise God from whom all blessings flow."  
+> Praise God from whom all blessings flow.    
 
 And, indeed, there is something very grand in the singing of multitudes. I remember hearing 12,000 sing on one occasion in the open air. Some of our friends were then present, when we concluded our service with that glorious hallelujah. Have you ever forgotten it? It was indeed a mighty sound; it seemed to make heaven itself ring again. Think, then, what must be the voice of those who stand on the boundless plains of heaven, and with all their might shout, "Glory and honour and power and dominion unto him that sitteth on the throne, and to the Lamb for ever and ever."
 
 On reason, however, why the song is so loud is a very simple one, namely, because all those who are there think themselves bound to sing the loudest of all. You know our favourite hymn--
 
-> "Then loudest of the crowd I'll sing,  
-> While heav'n's resounding mansions ring  
-> With shouts of sov'reign grace."  
+> Then loudest of the crowd I'll sing,    
+> While heav'n's resounding mansions ring    
+> With shouts of sov'reign grace.    
 
 And every saint will join that sonnet, and each one lift up his heart to God, then how mighty must be the strain of praise that will rise up to the throne of the glorious God our Father!
 
 But note next, while it was a loud voice, how sweet it was. Noise is not music. There may be "a voice like many waters." and yet no music. It was sweet as well as loud; for John says, "I heard the voice of harpers harping with their harps." Perhaps the sweetest of all instruments is the harp. There are others which give forth sounds more grand and noble, but the harp is the sweetest of all instruments. I have sometimes sat to hear a skilful harper, till I could say, "I could sit and hear myself away," whilst with skilful fingers he touched the chords gently, and brought forth strains of melody which flowed like liquid silver, or like sounding honey into one's soul. Sweet, sweet beyond sweetness; words can scarcely tell how sweet the melody. Such is the music of heaven. No jarring notes there, no discord, but all one glorious harmonious song. You will not be there, formalist, to spoil the tune; nor you, hypocrite, to mar the melody; there will be all those there whose hearts are right with God, and therefore the strain will be one great harmonious whole, without a discord. Truly do we sing--
 
-> "No groans to mingle with the songs  
-> That warble from immortal tongues."  
+> No groans to mingle with the songs    
+> That warble from immortal tongues.    
 
 And there will be no discord of any other sort to spoil the melody of those before the throne. Oh! my beloved brethren, that we might be there! Lift us up, ye cherubs! Stretch your wings, and bear us up where the sonnets fill the air. But if ye must not, let us wait our time.
 
-> "A few more rolling suns at most,  
-> Will land us on fair Canaan's coast;"  
+> A few more rolling suns at most,    
+> Will land us on fair Canaan's coast;    
 
 and then we shall help to make the song, which now we can scarcely conceive, but which yet we desire to join.
 
 We now close with a remark upon the last point: WHY IS THE SONG SAID TO BE A NEW SONG? But one remark here. It will be a new song, because the saints were never in such a position before as they will be when they sing this new song. They are in heaven now; but the scene of our text is something more than heaven. It refers to the time when all the chosen race shall meet around the throne, when the last battle shall have been fought, and the last warrior shall have gained his crown. It is not now that they are thus singing, but it is in the glorious time to come, when all the hundred and forty and four thousand--or rather, the number typified by that number--will be all safely housed and all secure. I can conceive the period. Time was--eternity now reigns. The voice of God exclaims, "Are my beloved all safe?" The angel flies through paradise and returns with this message, "Yea, they are." "Is Fearful safe? Is Feeble-mind safe? Is Ready-to-Halt safe? Is Despondency safe?" "Yes, O king, they are," says he. "Shut-to the gates," says the Almighty, "they have been open night and day; shut them to now." Then, when all of them shall be there, then will be the time when the shout shall be louder than many waters, and the song shall begin which will never end. There is a story told in the history of brave Oliver Cromwell, which I use here to illustrate this new song. Cromwell and his Ironsides before they went to battle bowed the knee in prayer, and asked for God's help. Then, with their Bibles in their breasts, and their swords in their hands--a strange and unjustifiable mixture, but which their ignorance must excuse--they cried, "The Lord of hosts is with us, the God of Jacob is our refuge;" and rushing to battle they sang--
 
-> "O Lord our God, arise and let  
-> Thine enemies scattered be,  
-> And let all those that do thee hate  
-> Before thy presence flee."  
+> O Lord our God, arise and let    
+> Thine enemies scattered be,    
+> And let all those that do thee hate    
+> Before thy presence flee.    
 
 They had to fight up hill for a long time, but at last the enemy fled. The Ironsides were about to pursue them and win the booty, when the stern harsh voice of Cromwell was heard--"Halt! halt! now the victory is won, before you rush to the spoil return thanks to God;" and they sang some such song as this--"Sing unto the Lord, for he has gotten us the victory! Sing unto the Lord." It was said to have been one of the most majestic sights in that strange, yet good man's history. (I say that word without blushing, for good he was.) For a time the hills seemed to leap, whilst the vast multitude, turning from the slain, still stained with blood, lifted up their hearts to God. We say, again, it was a strange sight, yet a glad one. But how great shall be that sight, when Christ shall be seen as a conqueror, and when all his warriors, fighting side by side with him, shall see the dragon beaten in pieces beneath their feet. Lo, their enemies are fled; they were driven like thin clouds before a Biscay gale. They are all gone, death is vanquished, Satan is cast into the lake of fire, and here stands the King himself, crowned with many crowns, the victor of the victors. And in the moment of exaltation the Redeemer will say, "Come let us sing unto the Lord;" and then, louder than the shout of many waters, they shall sing, "Hallelujah! the Lord God Omnipotent reigneth." Ah! that will be the full carrying out of the great scene! My feeble words cannot depict it. I send you away with this simple question, "Shall you be there to see the conqueror crowned?" Have you "a good hope through grace" that you shall? If so, be glad; if not, go to your houses, fall on your knees, and pray to God to save you from that terrible place which must certainly be your portion, instead of that great heaven of which I preach, unless you turn to God with full purpose of heart.

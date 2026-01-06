@@ -2,8 +2,8 @@
 
 Sermon No. 64 - Delivered on Sabbath Morning, February 3, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Therefore let us not sleep, as do others: but let us watch and be sober."  
-> 1 Thess. 5:6  
+> Therefore let us not sleep, as do others: but let us watch and be sober.    
+> 1 Thess. 5:6    
 
 As the spiritual guide of the flock of God along the intricate mazes of experience, it is the duty of the gospel minister to point out every turning of the road to heaven, to speak concerning its dangers or its privileges, and to warn any whom he may suspect to be in a position peculiarly perilous. Now, there is a portion of the road which leadeth from the City of Destruction to the Celestial City, which has in it, perhaps, more dangers than any other portion of the way. It doth not abound with lions; there are no dragons in it; it hath no dark woods, and no deep pitfalls; yet more seeming pilgrims have been destroyed in that portion of the road than anywhere else, and not even Doubting Castle, with all its host of bones, can show so many who have been slain there. It is the part of the road called the Enchanted Ground. The great geographer, John Bunyan, well pictured it when he said:
 
@@ -27,8 +27,8 @@ You go to the house of God; but when "the multitude that keep holy day" in the f
 
 Then, again, he that sleepeth is subject to divers illusions. When we sleep, judgment goeth from us, and fancy holdeth carnival within our brain. When we sleep, dreams arise and fashion in our head strange things. Sometimes we are tossed on the stormy deep, and anon we revel in king's palaces. We gather up gold and silver as if they were but the pebbles of the sea; and anon we are poor and naked, shivering in the blast. What illusions deceive us! The beggar in his dream becomes richer than Plautus, and the rich man as poor as Lazarus: the sick man is well, the healthy man hath lost his limbs, or is dead. Yea, dreams do make us descend to hell, or even carry us to heaven. Christian, if thou art one of the sleepy brotherhood, thou art subject to divers illusions. Strange thoughts come to thee which thou never hadst before. Sometimes thou doubtest if there be a God, or if thou dost exist thyself. Thou tremblest lest the gospel should not be true, and the old doctrine which once thou didst hold with a stern hand, thou art almost inclined to let go. Vile heresies assail thee. Thou thinkest that the Lord that bought thee was not the Son of God. The devil tells thee that thou art none of the Lord's, and thou dreamest that thou art cast away from the love of the covenant. Thou criest
 
-> "I would, but cannot sing;  
-> I would, but cannot pray;"  
+> I would, but cannot sing;    
+> I would, but cannot pray;    
 
 and thou feelest as if it were all in question whether thou art one of the Lord's or no. Or perhaps thy dreams are brighter, and thou dreamest that thou art somebody, great and mighty, a special favorite of Heaven; pride puffs thee up; thou dreamest that thou art rich, and hast need of nothing, whilst thou art naked, poor, and miserable. Is this thy state, O Christian? If so, may God wake thee up from it!
 
@@ -44,10 +44,10 @@ You would not mind him coming in the middle of your long prayer; but he will com
 
 But again, Christian, thou art benevolent; thou lovest men's souls, and I will speak to thee of that which will touch thy heart. Wilt thou sleep while souls are being lost? A brother here, some time ago, rushed into a house which was burning, and he saved a person from it; he then returned to his wife, and what did she say to him? "Go back again, my husband, and see if you cannot save another. We will not rest till all are delivered." Methinks that this is what the Christian man would say: "If I have been the means of saving one soul, I will not rest until I have saved another." Oh, hast thou ever thought how many souls sink into hell every hour? Did the dreary thought that the death-knell of a soul is tolled by every tick of yonder clock, ever strike thee? Hast thou never thought that myriads of thy fellow creatures are in hell now, and that myriads more are hastening thither? and yet dost thou sleep? What! physician, wilt thou sleep while men are dying? Sailor, wilt thou sleep when the wreck is out at sea, and the life- boat is waiting for hands to man it! Christian, wilt thou tarry while souls are being lost? I do not say that thou canst save them--God alone can do that--but thou mayest be the instrument; and wouldst thou lose the opportunity of winning another jewel for thy crown in heaven? wouldst thou sleep while work is being done? Well, said the British king, at the battle of Agincourt, "Come on, and conquer."
 
-> And gentlemen in England--now a-bed,  
-> Shall think themselves accursed they were not here:  
-> And hold their manhood cheap, when any speaks  
-> That fought with us upon this glorious day."  
+> And gentlemen in England--now a-bed,    
+> Shall think themselves accursed they were not here:    
+> And hold their manhood cheap, when any speaks    
+> That fought with us upon this glorious day.    
 
 So methinks, when souls are being saved, Christians in bed may think themselves accursed they are not here. Sleep Christian, let me shout in thine ears--thou art sleeping while souls are being lost--sleeping while men are being damned--sleeping while hell is being peopled--sleeping while Christ is being dishonored--sleeping while the devil is grinning at thy sleepy face-- sleeping while demons are dancing around thy slumbering carcase, and telling it in hell that a Christian is asleep. You will never catch the devil asleep; let not the devil catch you asleep. Watch, and be sober, that ye may be always up to do your duty.
 
@@ -69,11 +69,11 @@ But now what is the best plan to keep awake when you are going across the enchan
 
 Then let me remind you that if you will look at interesting things you will not sleep; and how can you be kept awake in the enchanted ground better than by holding up your Saviour before your eyes? There are some things, it is said, which will not let men shut their eyes if they are held before them. Jesus Christ crucified on Calvary is one of them. I never knew a Christian go to sleep at the foot of the cross; but he always said--
 
-> "Sweet the moments, rich in blessing,  
-> Which before the cross I spend."  
-> And he said, too--  
-> "Here I'd sit, for ever viewing  
-> Mercies' streams in streams of blood."  
+> Sweet the moments, rich in blessing,    
+> Which before the cross I spend."    
+> And he said, too--    
+> "Here I'd sit, for ever viewing    
+> Mercies' streams in streams of blood.    
 
 But he never said, "Here I would lay down and sleep;" for he could not sleep with that shriek, "Eloi, Eloi, lama sabachthani," in his ears. He could not sleep with "It is finished!" going into his very soul. Keep thou near to the cross, Christian, and thou wilt not sleep.
 
@@ -81,18 +81,18 @@ Then I would advise thee to let the wind blow on thee; let the breath of the Hol
 
 Lastly, labor to impress thyself with a deep sense of the value of the place to which thou art going. If thou rememberest that thou art going to heaven, thou wilt not sleep on the road. If thou thinkest that hell is behind thee, and the devil pursuing thee, I am sure thou wilt not be inclined to sleep. Would the man-slayer sleep if the avenger of blood were behind him, and the city of refuge before him? Christian, wilt thou sleep whilst the pearly gates are open; the songs of angels waiting for thee to join them; a crown decorated with delight to be worn upon thy brow? Ah, no!
 
-> "Forget the steps already trod,  
-> And onward urge thy way."  
+> Forget the steps already trod,    
+> And onward urge thy way.    
 
-> "Weak as thou art, thou shalt not faint,  
-> Or, fainting, shalt not die;  
-> He feeds the strength of every saint,  
-> He'll help thee from on high."  
+> Weak as thou art, thou shalt not faint,    
+> Or, fainting, shalt not die;    
+> He feeds the strength of every saint,    
+> He'll help thee from on high.    
 
 Dearly beloved, I have finished my sermon. There are some of you that I must dismiss, because I find nothing in the text for you. It is said, "Let us not sleep as do others, but let us watch and be sober." There are some here who do not sleep at all, because they are positively dead; and, if it takes a stronger voice than mine to wake the sleeper, how much more mighty must be that voice which wakes the dead. Yet even to the dead I speak; for God can wake them, though I cannot. O, dead man! dost thou not know that thy body and thy soul are worthless carrion? that whilst thou art dead thou liest abhorred of God, abhorred of man? that soon the vultures of remorse will come and devour thy lifeless soul; and, though thou hast lived in this world these seventy years (perhaps) without God and without Christ, in thy last hour the vulture of remorse shall come and tear thy spirit; and, though thou laughest now at the wild bird that circles in the sky, he will descend upon thee soon, and thy death will be a bed of shrieks, howlings, and wailings, and lamentations and yells! Dost thou know more still, that afterwards that dead soul will be cast into Tophet; and, as in the East they burn the bodies, so thy body and thy soul together shall be burned in hell? Go not away and dream that this is a metaphor. It is truth. Say not it is a fiction; laugh not at it as a mere picture. Hell is a positive flame; it is a fire that burns the body, albeit that it burns the soul, too. There is physical fire for the body, and there is spiritual fire for the soul. Go thy way, O man; such shall be thy fate. E'en now thy funeral pile is building, thy years of sin have laid huge trees across each other; and see, the angel is flying down from heaven with a brand already lit; thou art lying dead upon the pile; he puts the brand to the base thereof; thy disease proves that the lower parts are kindling with the flame; those pains of thine are the crackling of the fire. 
 
 It shall reach thee soon, thou poor diseased one; thou art near death, and when it reaches thee thou shalt know the meaning of the fire that is unquenchable, and the worm that dieth not. Yet while there is hope I will tell thee the gospel. "He that believeth and is baptized shall be saved, and he that believeth not shall be," must be "damned." He that believeth on the Lord Jesus, that is, with a simple, naked faith, comes and puts his trust in him, shall be saved, without anything else; but he that believeth not shall inevitably--hear it, men, and tremble--he that believeth not shall assuredly be damned.
 
-> P.S.--  
-> It is frequently objected that the preacher is censorious: he is not desirous of defending himself from the charge. He is confident that many are conscious that his charges are true, and if true, Christian love requires us to warn those who err; nor will candid men condemn the minister who is bold enough to point out the faults of the church and the age, even when all classes are moved to anger by his faithful rebukes, and pour on his head the full vials of their wrath. IF THIS BE VILE, WE PURPOSE TO BE VILER STILL.  
-> --C.H.S.  
+> P.S.--    
+> It is frequently objected that the preacher is censorious: he is not desirous of defending himself from the charge. He is confident that many are conscious that his charges are true, and if true, Christian love requires us to warn those who err; nor will candid men condemn the minister who is bold enough to point out the faults of the church and the age, even when all classes are moved to anger by his faithful rebukes, and pour on his head the full vials of their wrath. IF THIS BE VILE, WE PURPOSE TO BE VILER STILL.    
+> --C.H.S.    

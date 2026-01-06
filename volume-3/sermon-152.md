@@ -2,8 +2,8 @@
 
 Sermon No. 152 - Delivered on Sabbath Morning, September 20, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Things that accompany Salvation."  
-> Hebrews 6:9.  
+> Things that accompany Salvation.    
+> Hebrews 6:9.    
 
 I AM not quite certain that my text will warrant all I shall say upon it this day if read and understood in its connection. But I have taken the words rather by accommodation than otherwise, and shall make use of them as a kind of heading to the discourse which I hope to be enabled to deliver. I sat myself down, and I meditated on this subject--"Things that accompany Salvation." And after some period of rumination, my thoughts assumed the form of an allegory; in which I hope to present them to you this morning. I compared Salvation to a rich and costly treasure, which God in his infinite love and mercy had determined to send into the world, and I remembered that our Lord Jesus was so much interested in the bringing of this Salvation to this earth, that he did send all that he had, and came himself to attend and to accompany this Salvation. I then pictured to myself a great march of bright ones through this land, carrying in their midst the sacred jewel of Salvation. I looked forward, and I saw a mighty van-guard, who already had attained the shores of Eternity. I looked around Salvation, and I saw it always in every case attended with divers graces and virtues which seemed to be like troops and soldiers to guard it in the ran, about its flanks, and in the rear.
 
@@ -29,9 +29,9 @@ Before a man can be truly converted, he must suffer great agony of spirit; all o
 
 Oh, Thundering Legion, ye are gone; we hear their trumpets and the dying echoes still appal us. We can remember, brethren, those terrible days when they were in our house and in our heart. They are gone. What see we in the rear of them? Close in the rear there follows a broken heart. Look at it; do not despise it, God never despises it, do not thou. "A broken and a contrite heart O God thou wilt not despise." I see how this poor broken heart is broken; it is rent to its very eye and center; it is bathed in tears; it is overwhelmed with suffering. See its humility; it never talks about boasting now. Mark its repentance, the sins it loved before it hates now; it speaks not about self-salvation. Hear it, as the broken heart speaks out its broken language. Hear it--"Lord have mercy upon me a sinner!" Do not fear to come and look at this broken heart; how sweetly is it perfumed! The sacred smell of a sacrifice which God approves rises from it. Hear it, as again it speaks--"Lord, save, or I perish." See this poor broken heart when it is in the world and at its business; it interrupts its business with ejaculations like these--"Oh that--Ah, ah--would that!" And when it can get alone, it pours out its heart before God, and cries,
 
-> Unclean, unclean, and full of sin  
-> From first to last, O Lord I've been;  
-> Deceitful is my heart.'  
+> Unclean, unclean, and full of sin    
+> From first to last, O Lord I've been;    
+> Deceitful is my heart.    
 
 Oh wash my soul in Jesus' blood; forgive me all my guilt, and I will be thy servant for ever and ever.
 
@@ -39,68 +39,68 @@ Dear hearers, has this broken heart ever come to your house? Rest assured I am s
 
 But who are those that follow in the rear? Another troop, another legion, but these are far different from the rest. The silken legion follow, these are not clad in steel; they have no helmets of war upon their head; they have smiling looks and countenances that are full of joy. No weapons of war in their hands; no thunders do they utter, but they speak kind words of pity, and their hands are full of benedictions. Shall I tell you who this silken legion are? There is a troop of them who take the poor wounded heart, and wash it first in blood; they sprinkle on it the sacred blood of the Atonement; and it is amazing how the poor broken heart, though faint and sick, revives at the first drop of the precious blood of our Lord Jesus Christ, and when well washed in blood, another of this legion steps forward and takes it and washes it in water--for both water and blood flowed from the Saviour's heart.
 
-> "Let the water and the blood,  
-> From thy wounded side which flow'd  
-> Be of sin the double cure,  
-> Cleanse me from its guilt and power"  
+> Let the water and the blood,    
+> From thy wounded side which flow'd    
+> Be of sin the double cure,    
+> Cleanse me from its guilt and power    
 
 And oh, what a washing it is! The heart that was once black as the coals of hell, seems white as the snow of Lebanon. When it has once been bathed in the bath of the Saviour's blood and water, oh, how pure it becomes! He who was black as the tents of Kedar becomes fair as the curtains of Solomon. Then follow those who pour oil and wine into the wounds of this poor broken heart, so that where it smarted before, the wounds begin to sing. The sacred oil and wine of the precious promise is poured into every wound; and then follow those who with downy fingers bind up the heart with the sacred liniment of Promise till it seems no longer broken, but the broken heart rejoices. The whole heart sings for gladness; for God hath restored its strength and bound up all its wounds, according to his promise: "He healeth the broken in heart, and bindeth up their wounds." And then, since the work is not quite done, there come those who carry the King's ward-robe; and with the things out of this rich storehouse they array the soul from head to foot; they clothe it with everything that for lustre and for glory could adorn it, and make it bright as the spirits before the throne. And then the King's jewellers come in and complete the whole: they array the soul with ornaments, and bedeck it with precious stones. As the Father said, "Briny forth the best robe and put it on him, and put a ring on his hand and shoes on his feet," even so do this Silken Legion wash and heal and cleanse and glorify the once poor broken heart. Have these ever come to your house? It is an allegory, but it is all plain to him that understandeth it. Sinner, hast thou ever had the blood of Christ applied to thee?
 
-> "Couldst thou look and see the flowing  
-> Of his soul's redeeming blood,  
-> With divine assurance knowing  
-> He hath made thy peace with God?"  
+> Couldst thou look and see the flowing    
+> Of his soul's redeeming blood,    
+> With divine assurance knowing    
+> He hath made thy peace with God?    
 
 Dost thou this hour lay thine hand on the dear head of Christ; confess thy sin, and believe that he was punished for thee? Thou canst? Then, verily salvation is thine. And has thine heart been ever washed with water? Say, dost thou hate sin? Is thy guilt all cleansed, and is the power of guilt cut away, so that thou dost not love the ways of iniquity, nor seek to run in the paths of transgressors. Then thou art an heir of heaven. And say, poor sinner, hast thou ever been arrayed in the robe of Jesus' righteousness? Couldst thou ever fondly hope that thou wast accepted in the Beloved? Methinks I see thee with the tear in thine eye, and hear thee saying, I have sometimes sung with all my heart--
 
-> Jesus, thy blood and righteousness  
-> My beauty are, my glorious dress;  
-> 'Midst flaming worlds, in these array'd,  
-> With joy shall I lift my head.  
-> Bold shall I stand in that great day,  
-> For who aught to my charge shall lay?  
-> Fully absolved through Christ I am  
-> From sin's tremendous curse and shame."  
+> Jesus, thy blood and righteousness    
+> My beauty are, my glorious dress;    
+> 'Midst flaming worlds, in these array'd,    
+> With joy shall I lift my head.    
+> Bold shall I stand in that great day,    
+> For who aught to my charge shall lay?    
+> Fully absolved through Christ I am    
+> From sin's tremendous curse and shame.    
 
 And now we have not yet come to a full conviction of Salvation. The Silken Legion are gone; their banners are still flying in the gale, and their trumpets of promise are still making the air glad with melody. What cometh next? Now come those that are the actual attendants upon Salvation--or rather, that march in the rank immediately before it. There are four of these, called Repentance, Humility, Prayer and a tender Conscience. Just before the full assurance of Salvation there marches Humility. She is of a downcast look; she is not sad, but she hath no high looks; she scarcely dares to lift her eye to the place where God's honor dwelleth. She is often looking downwards, remembering her past estate thinking of all the bitterness and the guilt of her previous life. She never boast; of what God has done for her, she looks to the hole of the pit and the miry clay from whence she was digged. She knows she has been washed in the blood of the Saviour, but she remembers how black she was before she was washed, and oh, she laments the past although she rejoices in the present. She feels her own weakness, she dares not stand alone she leans on the arm of her Beloved, for she knows that she should fall to the ground unless he should constantly maintain her. Side by side with her, is her sister called Repentance, watering the ground with tears to lay the dust before the King. Wherever she goes she weeps and if you ask her why, she will tell you she does not weep because of a fear of hell--that is all gone. The Silken Legion yonder, she tells you, have wiped all her fears away; but she weeps because she smote the Lord that loved her so well she beats her breast, and cries--
 
-> "Twas you, my sins, my cruel sins,  
-> His chief tormentors were;  
-> Each of my crimes became a nail,  
-> And unbelief the spear."  
+> Twas you, my sins, my cruel sins,    
+> His chief tormentors were;    
+> Each of my crimes became a nail,    
+> And unbelief the spear.    
 
 The more you tell her of her Salvation, the more she weeps to think she could have rebelled against such a Saviour. She is confident that her sins are blotted out; she knows her Master has forgiven her; but she never will forgive herself. Then side by side with Repentance is one called Prayer. He is a priest, and he waves in his hand a censer full of odoriferous incense, that the way for the King may be prepared, that wherever he marches there may be a sweet perfume. Prayer riseth by midnight to call upon God, its waking eyes salute the rising sun, that it may lift up its heart to Jehovah, and when the sun is setting, Prayer will not let his wheel be hidden beneath the horizon, until in his chariot he hath carried supplication. Then in this company is the fourth of those immediately attending upon Salvation, a tender Conscience. This tender Conscience is afraid to put one foot before the other, lest it should put its foot in the wrong place. Poor tender Conscience; some despise him; but he is dear to the King's heart. I would to God, my brethren, you and I knew more about him. I used to know a conscience so tender, that I would wish to feel it again. Then we questioned the lawfulness of every act before we committed it, and then, though it was lawful we would stop to see if it were expedient and if we thought it expedient, even then we would not do it, except we felt it would be abundantly honorable to the Lord our God. Every doctrine we used to scruple at, lest we should believe a lie; every ordinance we examined, lest we should commit idolatry; happy were the days when tender Conscience went with us. And now, my hearers, do you know anything about these four? Has Humility ever come to you? Has she ever abased your pride and taught you to lie in the dust before God? Has Repentance ever watered the floor of your hearts with tears? Have you ever been led to weep in secret for your sins, and to bewail your iniquities? Has Prayer ever entered your spirit? Remember, a prayerless soul is a Christless soul. Have you learned to pray, not with the parrot's cry, but with the heart's ever fresh expression. Have you ever learned to pray? And lastly are you tender of Conscience, for unless your conscience is made tender, salvation has not met you, for these are the immediate attendants upon it.
 
 And now comes SALVATION IN ALL ITS FULLESS. The "things that accompany Salvation" make a glorious march in the forefront of it--from Election down to these precious opening buds of virtue in the sinner's heart. What a goodly array! Sure the angels do sometimes fly along in admiration, and see this long array that heralds Salvation to the heart. And now comes the precious casket set with gems and jewels. It is of God-like workmanship; no hammer was ever lifted on it, it was smitten out and fashioned upon the anvil of Eternal blight, and cast in the mould of Everlasting Wisdom; but no human hand hath ever defiled it, and it is set with jewels so unutterably precious, that if heaven and earth were sold they could never buy another Salvation! And who are those that are close around it? There are three sweet sisters that always have the custody of the treasure--you know them, their names are common in Scripture--Faith, Hope, and Love, the three divine sisters; these have Salvation in their bowels and do carry it about with them in their loins. Faith, who layeth hold on Christ, and trusteth all in him; that ventureth everything upon his blood and sacrifice, and hath no other trust. Hope, that with beaming eye looks up to Jesus Christ in glory, and expects him soon to come: looks downward, and when she sees grim Death in her way, expecting that she shall pass through with victory. And thou sweet Love, the sweetest of the three, she whose words are music and whose eyes are stars; Love, also looks to Christ and is enamoured of him; loves him in all his offices, adores his presence, reverences his words, and is prepared to bind her body to the stake and die for him, who bound his body to the cross to die for her. Sweet Love, God hath well chosen to commit to thee the custody of the sacred work. Faith, Hope, and Love--say sinner, hast thou these three? Dost thou believe that Jesus is the Son of God? Dost thou hope that through the efficacy of his merits thou shalt see thy Maker's face with joy? Dost thou love him? Say, couldst thou repeat after me,
 
-> "Jesus! I love thy charming name,  
-> 'Tis music to my ear;  
-> Fain would I sound it out so loud  
-> That earth and heaven might hear.  
-> Yes, thou art precious to my soul,  
-> My transport and my trust;  
-> Jewels to thee are gaudy toys,  
-> And gold is sordid dust."  
+> Jesus! I love thy charming name,    
+> 'Tis music to my ear;    
+> Fain would I sound it out so loud    
+> That earth and heaven might hear.    
+> Yes, thou art precious to my soul,    
+> My transport and my trust;    
+> Jewels to thee are gaudy toys,    
+> And gold is sordid dust.    
 
 Have you these three graces? If so, you have Salvation. Having that, you ere rich to all intents of bliss; for God in the Covenant is yours. Cast your eye forward; remember Election is yours, Predestination and Sovereign Decree are both yours; remember, the terrors of the law are past; the broken heart is mourning; the comforts of religion you have already received; the spiritual graces are already in the bud, you are an heir of immortality, and for you there is a glorious future. These are the "things that accompany Salvation."
 
 Now you must have patience with me for just a few more minutes; I MUST BRING UP THE REAR GUARD. It is impossible that with such a van guard, grace should be unattended from behind. Now see those that follow Salvation. As there were fair bright cherubs that walked in front of it--you remember still their names--Humility, Repentance, Prayer, and a tender Conscience--there are four that follow it, and march in solemn pomp into the sinner's heart. The first of these is Gratitude--always singing, "Bless the Lord O my soul, and all that is within me bless his holy name." And then Gratitude lays hold upon its son's hand; the name of that son is Obedience. "O my master, "saith the hears, "thou hast done so much for me; I will obey thee"--
 
-> "Help me to run in thy commands,  
-> 'Tis a delightful road;  
-> Nor let my heart, nor hands, nor feet,  
-> Offend against my God."  
+> Help me to run in thy commands,    
+> 'Tis a delightful road;    
+> Nor let my heart, nor hands, nor feet,    
+> Offend against my God.    
 
 In company with this fair grace is one called Consecration--a pure white spirit that hath no earthliness; from its head to its foot it is all God's, and all gold. Hear it speak--
 
-> "All that I am and all I have  
-> Shall be for ever thine;  
-> What e'er my duty bids me give,  
-> My cheerful hands resign.  
-> And if I might make some reserve,  
-> And duty did not call,  
-> I love my God with zeal so great,  
-> That I would give him all."  
+> All that I am and all I have    
+> Shall be for ever thine;    
+> What e'er my duty bids me give,    
+> My cheerful hands resign.    
+> And if I might make some reserve,    
+> And duty did not call,    
+> I love my God with zeal so great,    
+> That I would give him all.    
 
 Linked to this bright one, is one with a face Serene and solemn, called Knowledge, "Then shall ye know when ye follow on to know the Lord." whose that are saved understand mysteries, they know the love of Christ; they "know him, whom to know is life eternal."
 
@@ -108,10 +108,10 @@ Now, have you these four? They are rather the successors of Salvation than the h
 
 Now I have almost done. Just in the rear is Perseverance, final, certain and sure. Then there follows complete Sanctification, whereby the soul is purged from every sin, and made as white and pure as God himself. Now we have come to the very rear of the army; but remember as there was an advance guard so far ahead that we could not see them, so there is a rear guard so far behind that we cannot behold them now. Let us just try to see them with the eye of faith. We have seen the army; we have traced it from the Thundering Legion, guided by the Holy Spirit, till we have finished it by complete Sanctification. Hark, I hear the silver trumpet sound; there is a glorious array behind. A guard, far, far back are coming following the steps of the conquering heroes, that have already swept our Sills away. Do you not see in the fore part there is one, whom men paint a skeleton. Look at him, he is not the King's terrors. I know thee, Death, I know thee. Miserably men have belied thee. Thou art no spectre, thine hand bears no dart; thou art not gaunt and frightful. I know thee, thou bright cherub: thou hast not in thy hand a dart, but a golden key that unlocks the gates of Paradise. Thou art fair to look upon, thy wings are like the wings of doves, covered with silver and like yellow gold. Behold this angel Death, and his successor Resurrection. I see three bright things coming; one is called Confidence, see it! it looks at Death; no fear is in its eye, no palor on its brow. See holy Confidence marches with steady steps, the cold chill stream of Death doth not freeze its blood. See behind it its brother Victory; hear him, as he cries, "O Death, where is thy sting? O Grave where is thy victory?" The last word, "victory," is drowned amidst the shouts of angels. These bring up the rear. Angels bear the spirits of the redeemed into the bosom of the Saviour--
 
-> "Far from a world of grief and sin,  
-> With God eternally shut in,  
-> They are for ever blest."  
+> Far from a world of grief and sin,    
+> With God eternally shut in,    
+> They are for ever blest.    
 
 And now follow everlasting songs--"Praise him, praise him, King of kings and Lord of lords; he hath gotten him the victory. Hallelujah, hallelujah, hallelujah, world without end! Hallelujah, yet again!" Let the echoes of eternity perpetually cry, "Hallelujah! for"
 
-> "THINGS THAT ACCOMPANY YOUR SALVATION."  
+> THINGS THAT ACCOMPANY YOUR SALVATION.    

@@ -2,8 +2,8 @@
 
 Sermon No. 232 - Delivered on Sabbath Evening, January 2nd, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For by one offering he hath perfected for ever them that are sanctified."  
-> Hebrews 10:14.  
+> For by one offering he hath perfected for ever them that are sanctified.    
+> Hebrews 10:14.    
 
 THINK OF THIS MORNING'S TEXT--"The Lord WILL perfect that which concerneth me." Is it not very grateful to observe, that what is just in one part of Scripture presented to us as a matter of faith, is in another place states as a matter of fact? Think of this evening's text--"He HATH perfected us for ever." This morning we went downwards, from faith to prayer. After having said in confidence, "The Lord will perfect that which concerneth me," we meekly besought him--"Forsake not the works of thine own hands,"--sinking as it were to a lower note in the scale of music. Then we beheld Perfection in the dim obscurity of the future, like the sun veiled behind a cloud. Our faith rested on it as a thing at present unseen, our hearts yearned after it as an inheritance yet in reserve for us. Now to-night, this perfection is brought nigh to us, I thing accomplished, as an ever-present fact, whose eternal reality shines upon us with unclouded lustre. It is thus I read this verse--"By one offering our Lord Jesus Christ HATH perfected for ever them that are sanctified."
 
@@ -47,12 +47,12 @@ But now, beloved, behold the glory of Christ Jesus as revealed to us in our text
 
 And now, Christian, try and lay hold opon this meaning of the text. Christ has made your conscience at ease for ever; and if it disturbs you, recollect it has no cause to do so, if you are a believer in Christ; for hath not he given you that which will put away all conscience of sin? Oh! rejoice! It has purged you so entirely that you may sit down and rest. You may sing with the poet--
 
-> "Turn, then, my soul, unto thy rest;  
-> The merits of thy great High Priest  
-> Speak peace and liberty.  
-> Trust in his efficacious blood,  
-> Nor fear thy banishment from God,  
-> Since Jesus died for thee."  
+> Turn, then, my soul, unto thy rest;    
+> The merits of thy great High Priest    
+> Speak peace and liberty.    
+> Trust in his efficacious blood,    
+> Nor fear thy banishment from God,    
+> Since Jesus died for thee.    
 
 Look at the text. Once again I am going to say the same things, lest I should not be quite understood. Dear brethren, we could not have access to God, unless on the footing of perfection; for God cannot walk and talk with imperfect creatures. But we are perfect; not in character, mark, for we are still sinners; but we are perfected through the blood of Jesus Christ, so that God can allow us to have access to him as perfected creatures. We may come boldly, because being sprinkled with the blood, God does not look on us as unholy and unclean, otherwise he could not allow us to come to his mercy seat; but he looks upon us as being perfected for ever through the one sacrifice of Christ. That is one thing. The other was this. We are the vessels of God's temple; he has chosen us to be like the golden pots of his sanctuary; but God could not accept a worship which was offered to him in unholy vessels. Those vessels, therefore, were made perfect by being sprinkled with blood. God could not accept the praise which comes from your unholy heart; he could not accept the song which springs from your uncircumcised lips, nor the faith which arises from your doubting soul, unless he had taken the great precaution to sprinkle you with the blood of Christ; and now, whatever he uses you for, he uses you as a perfect instrument, regarding you as being perfect in Christ Jesus. 
 
@@ -60,7 +60,7 @@ That, again, is the meaning of the text, and the same meaning, only a different 
 
 Now, what have I to do, but to turn to you and ask this one question, and I have done. Are you a sanctified person? I have known a man say sometimes to a believer, "Well, you look so sanctified: ah! you are one of those sanctified fellows." Well, if they said so to me, I should say, "I wish you would prove it." What can be a more holy thing than to be a sanctified man? and what a more happy thing! Let me ask you, then, are you sanctified? Says one, "I feel so sinful." That I do not ask you: I ask you whether you are set apart to God's service. Can you say,
 
-> "Dear Lord, I give myself away,  
-> 'Tis all that I can do?"  
+> Dear Lord, I give myself away,    
+> 'Tis all that I can do?    
 
 Take me just as I am, and make use of me; I desire to be wholly thine? Do you feel that for you to live is Christ; that there is not any object you are living for but Christ--that Christ is the great aim of your ambition, the great object of all your labours; that you are like Samson, a Nazarite, consecrated to God? Oh! then, remember that you are perfected in Christ. But, my hearer, if thou art not sanctified to God in this sense, if thou livest to thyself, to pleasure, and to the world, thou art not perfected in Christ, and what is to become of thee? God will give thee no access to him; God will not use thee in his service; thou hast no rest in thy conscience, and in the day when God shall come to separate the precious from the vile, he will say, "Those are my precious ones, who have the blood on them; but these have rejected Christ, they have lived to themselves, they were dead while they lived, and they are damned now they are dead." Take heed of that! May God give you grace to be sanctified to God, and then shall you be for ever perfected through Christ.

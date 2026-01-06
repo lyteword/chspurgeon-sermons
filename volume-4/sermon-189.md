@@ -2,8 +2,8 @@
 
 Sermon No. 189 - Delivered on Sabbath Morning, April 25th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And a vision appeared to Paul in the night. There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us."  
-> Acts 16:9.  
+> And a vision appeared to Paul in the night. There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us.    
+> Acts 16:9.    
 
 THIS WAS NO DOUBT a special vision sent of God for the direction of the apostle. For we are told in the next verse, that they assuredly gathered from this vision, that the Lord had called them to preach the gospel in Macedonia. And yet the vision may be very readily accounted for by natural causes. Men usually dream of that which is most upon their minds. Who would marvel that the miser should, in his restless sleep, be pictured to his own sight as counting over his gold? Who wonders that the mother's dream is often concerning her fair infant? Who marvels that the wife frequently dreams of shipwrecks, when, in the stormy night, she lies upon her bed, her last thoughts having been exercised concerning her husband at sea? You wonder not that the soldier in the trenches dreams of battle. And hence we cannot marvel that the apostle Paul, whose whole soul was full of his Master's cause, should have a vision in the night concerning a new field of labor, which God had intended to open up to him. You will remember that the apostle was, on this occasion, in a peculiar condition. He at first endeavored to preach the gospel in Phrygia and Galatia, but he was forbidden of the Holy Ghost to preach the Word in Asia. And "after they had come to Mysia, they assayed to go into Bithynia, but the Spirit suffered them not." The apostle was like Abraham of old; he went forth, not knowing whither he went. There was a certain path which he must take, and when he strove to turn either to the right hand or to the left, the Spirit directly forbade him, and he was compelled to go on till he came to the sea-port of Troas. 
 
@@ -31,8 +31,8 @@ There is yet one more point which I must mention here in which the gospel is the
 
 Happy are we, thrice happy, that we have a gospel which shall make men
 
-> "Hang the useless helmet high,  
-> And study war no more."  
+> Hang the useless helmet high,    
+> And study war no more.    
 
 Let us spread it, then, to earth's utmost bounds; for, to repeat the text I quoted just now, it hath blessings in both its hands, wherever it goes temporarily as well as eternally, it blesses the human race. And when it shall have spread to its utmost limits, when all the habitable earth shall be covered with it then the mist that swathes our planet shall be rolled away, and bright, like a new-born morning star, this earth shall shine out with her sister stars in all her glory, and the angels shall once more sing, and God himself shall repeat his verdict--"all things are very good."
 
@@ -66,7 +66,7 @@ And now, what are you resolved to do who cannot preach? Why, there are some of y
 
 Now, let each, as he is able, help this great cause; and above all let us all in our spheres be preachers of the gospel,
 
-> "Seeking to tell to others round,  
-> What a dear Saviour we have found."  
+> Seeking to tell to others round,    
+> What a dear Saviour we have found.    
 
 Let me say, before the collection is made, just this word. Alas! there are some of you here, that are as much heathen as if you were in Africa. To you I proclaim the gospel, and I have done--"He that believeth and is baptized shall be saved, he that believeth not shall be damned. Believe on the Lord Jesus Christ, find thou shalt be saved."

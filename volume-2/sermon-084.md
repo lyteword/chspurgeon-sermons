@@ -2,8 +2,8 @@
 
 Sermon No. 84 - Delivered on Sabbath Evening, June, 8, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Where he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them."  
-> Hebrews 7:25.  
+> Where he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them.    
+> Hebrews 7:25.    
 
 SALVATION is a doctrine peculiar to revelation. Revelation affords us a complete history of it, but nowhere else can we find any trace thereof. God has written many books, but only one book has had for its aim the teaching of the ways of mercy. He has written the great book of creation, which is our duty and our pleasure to read. It is a volume embellished on its surface with starry gems and rainbow colours, and containing in its inner leaves marvels at which the wise may wonder for age, and yet find a fresh theme for their conjectures. Nature is the spelling-book of man, in which he may learn his Maker's name, he hath studded it with embroidery, with gold, with gems. There are doctrines of truth in the mighty stars, and there are lessons written on the green earth and in the flowers upspringing from the sod. We read the books of God when we see the storm and tempest, for all things speak as God would have them; and if our ears are open we may hear the voice of God in the rippling of every rill, in the roll of every thunder, in the brightness of every lightning, in the twinkling of every star, in the budding of every flower. God has written the great book of creation, to teach us what he is--how great, how mighty. But I read nothing of salvation in creation. The rocks tell me, "Salvation is not in us;" the winds howl, but they howl not salvation: the waves rush upon the shore, but among the wrecks which they wash up, the reveal no trace of salvation; the fathomless caves of ocean bear pearls, but they bear no pearls of grace; the starry heavens have their flashing meteors, but they have no voices of salvation. I find salvation written nowhere, till in this volume of my Father's grace I find his blessed love unfolded towards the great human family, teaching them that they are lost, but that he can save them, and that in saving them he can be "just, and yet the justifier of the ungodly." Salvation, then, is to be found in the Scriptures, and in the Scriptures only; for we can read nothing of it elsewhere. 
 
@@ -27,10 +27,10 @@ But notice, next, how they come. The "come unto God by Jesus Christ." We have kn
 
 But when these people come, what do they come for? There are some who think they come to God, who do not come for the right thing. Many a young student cries to God to help him in his studies; many a merchant comes to God that he may be guided through a dilemma in his business. They are accustomed, in any difficulty, to put up some kind of prayer which, if they knew its value, they might cease from offering, for "the sacrifice of the wicked is an abomination to the Lord." But the poor sinner, in coming to Christ, has only one object. If all the world were offered to him, he would not think it worth his acceptance if he could not have Jesus Christ. There is a poor man, condemned to die, locked up in the condemned cell: the bell is tolling: he will soon be taken off to die on the gallows. There, man, I have brought you a fine robe. What! not smile at it? Look! it is stiff with silver! Mark you not how it is bedizened with jewels? Such a robe as that cost many and many a pound, and much fine workmanship was expended on it. Contemptuously he smile at it! See here, man, I present thee something else: here is a glorious estate for thee, with broad acres, fine mansions, parks and lawns; take that title deed, tis thine. What! not smile, sir? Had I given that estate to any man who walked the street, less poor than thou art, he would have danced for very joy. And wilt not thou afford a smile, when I make thee rich and clothe thee with gold? Then let me try once more. There is Caesar's purple for thee; put it on thy shoulders--there is his crown; it shall sit on no other head but thine. It is the crown of empires that know no limit. I'll make thee a king; thou shalt have a kingdom upon which the sun shall never set; thou shalt reign from pole to pole. Stand up; call thyself Caesar. Thou art emperor. What! no smile? What dost thou want? "Take away that bauble," says he of the crown; "rend up that worthless parchment; take away that robe; ay, cast it to the winds. Give it to the kings of the earth who live; but I have to die, and of what use are these to me? Give me a pardon, and I will not care to be a Caesar. Let me live a beggar, rather than die a prince." So is it with the sinner when he comes to God: he comes for salvation. He says--
 
-> "Wealth and honor I disdain;  
-> Earthly comforts, Lord, are vain,  
-> These will never satisfy,  
-> Give me Christ, or else I die."  
+> Wealth and honor I disdain;    
+> Earthly comforts, Lord, are vain,    
+> These will never satisfy,    
+> Give me Christ, or else I die.    
 
 Mercy is his sole request. O my friends, if you have ever come to God, crying out for salvation, and for salvation only, then you have come unto God aright. It were useless then to mock you. You cry for bread: should I give you stones? You would but hurl them at me. Should I offer you wealth? It would be little. We must preach to the sinner who comes to Christ, the gift for which he asks--the gift of salvation by Jesus Christ the Lord--as being his own by faith.
 
@@ -38,8 +38,8 @@ One more thought upon this coming to Christ. In what style do these persons come
 
 He lifts up his eyes and he sees it written, "Knock, and it shall be opened to you;" but he fears lest he should profane the gate by his poor touch; he gives at first a gentle rap, and if mercy's gate open not, he is a poor dying creature; so he gives another rap, then another and another; and although he raps times without number, and no answer comes, still he is a sinful man, and he knows himself to be unworthy; so he keeps rapping still; and at last the good angel smiling from the gate, says, "Ah! this gate was built for beggars not for princes; heaven's gate was made for spiritual paupers, not for rich men. Christ died for sinners, not for those who are good and excellent. Hoe came into the world to save the vile.
 
-> 'Not the righteous--  
-> Sinners, Jesus came to call.'  
+> Not the righteous--    
+> Sinners, Jesus came to call.    
 
 Come in, poor man! Come in. Thrice welcome!" And the angels sin, "Thrice welcome!" How many of you, dear friends, have come to God by Jesus Christ in that fashion? Not with the pompous pride of the Pharisee, not with the cant of the good man who thinks he deserves salvation, but with the sincere cry of a penitent, with the earnest desire of a thirsty soul after living water, panting as the thirsty hart in the wilderness after the water-brooks, desiring Christ as they that look for the morning; I say, more than they that look for the morning. As my God who sits in heaven liveth, if you have not come to God in this fashion, you have not come to God at all; but if you have thus come to God, here is the glorious word for you--"He is able to save to the uttermost them that come unto God by him."
 
@@ -69,13 +69,13 @@ And now, lastly, the question. Christ has done so much for you: what have you ev
 
 Oh! beloved, hear again the text,--"He is able to save to the uttermost them that come unto God by him." I am no orator, I have no eloquence; but if I were the one, and had the other, I would preach to you with all my soul. As it is, I only talk right on, and tell you what I do know; I can only say again,
 
-> "He is able;  
-> He is willing: doubt no more.  
-> Come, ye thirsty, come and welcome,  
-> God's free bounty glorify:  
-> True belief and true repentance,  
-> Every grace that brings us nigh--  
-> Without money,  
-> Come to Jesus Christ, and buy."  
+> He is able;    
+> He is willing: doubt no more.    
+> Come, ye thirsty, come and welcome,    
+> God's free bounty glorify:    
+> True belief and true repentance,    
+> Every grace that brings us nigh--    
+> Without money,    
+> Come to Jesus Christ, and buy.    
 
 For he is able to save to the uttermost them that come unto God by him." O Lord! make sinners come! Spirit of God! make them come! Compel them to come to Christ by sweet constraint, and let not our words be in vain, or our labour lost; for Jesus Christ's sake! Amen.

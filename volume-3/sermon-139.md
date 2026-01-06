@@ -2,8 +2,8 @@
 
 Sermon No. 139 - Delivered on Sabbath Morning, July 5, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And I, if I be lifted up, will draw all men unto me."  
-> John 12:32.  
+> And I, if I be lifted up, will draw all men unto me.    
+> John 12:32.    
 
 IT was an extraordinary occasion upon which the Saviour uttered these words. It was the crisis of the world. We very often speak of the "present crisis of affairs," and it is very common for persons of every period to believe their own age to be the crisis and turning point of the whole world's history. They rightly imagine that very much of the future depends upon their present exertions; but they wrongly stretch the thought, and imagine that the period of their existence is the very hinge of the history of the world: that it is the crisis. Now, however it may be correct, in a modified sense, that every period of time is in some sense a crisis, yet there never was a time which could be truly called a crisis, in comparison with the season when our Saviour spoke. In the 31st verse, immediately preceding my text, we find in the English translation, "Now is the judgment of this world;" but we find in the Greek, "Now is the crisis of this world." The world had come to a solemn crisis: now was the great turning point of all the world's history. Should Christ die, or should he not? If he would refuse the bitter cup of agony, the world is doomed, if he should pass onward, do battle with the powers of death and hell! and come off a victor, then the world is blessed, and her future shall be glorious. Shall he succumb? Then is the world crushed and ruined beneath the trail of the old serpent. Shall he conquer? Shall he lead captivity captive and receive gifts for men? Then this world shall yet see times when there shall be "a new heaven and a new earth, wherein dwelleth righteousness." "Now is the crisis of this world!" "The crisis," he says, "is two-fold. Dealing with Satan and men. I will tell you the result of it. Now shall the prince of this world be cast out.' Fear not that hell shall conquer. I shall cast him out; and, on the other hand doubt not but that I shall be victorious over the hearts of men. I, if I be lifted up, will draw all men unto me.'" Remembering the occasion upon which these words were uttered, we shall now proceed to a discussion of them.
 
@@ -53,7 +53,7 @@ And now I close by noticing the last sweet thought--"I, if I be lifted up, will 
 
 And now, poor sinner, I would to God Christ would pardon thee; remember his death on Calvary, remember his agonies and bloody sweat--all this he did for thee; if thou feelest thyself to be a sinner. Does not this draw thee to him?
 
-> "Though thou art guilty he is good,  
-> He'll wash thy soul in Jesus' blood."  
+> Though thou art guilty he is good,    
+> He'll wash thy soul in Jesus' blood.    
 
 Thou hast rebelled against him, and revolted, but he says, "return backsliding children." Will not his love draw thee? I pray that both may have their power and influence, that thou mayest be drawn to Christ now, and at last be drawn to heaven. May God give a blessing for Jesus' sake. Amen.

@@ -2,8 +2,8 @@
 
 Sermon No. 20 - Delivered on Sabbath Morning, April 22, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "The carnal mind is enmity against God"  
-> Romans 8:7.  
+> The carnal mind is enmity against God    
+> Romans 8:7.    
 
 This is a very solemn indictment which the Apostle Paul here prefers against the carnal mind. He declares it to be enmity against God. When we consider what man once was, only second to the angels, the companion of God, who walked with him in the garden of Eden in the cool of the day; when we think of him as being made in the very image of his Creator, pure, spotless, and unblemished, we cannot but feel bitterly grieved to find such an accusation as this preferred against us as a race. We may well hang our harps upon the willows, while we listen to the voice of Jehovah solemnly speaking to his rebellious creature. "How art thou fallen from heaven, thou son of the morning!" "Thou sealest up the sum, full of wisdom, and perfect in beauty. Thou hast been in Eden, the garden of God; every precious stone was thy covering--the workmanship of thy tabrets and of thy pipes was prepared in thee in the day that thou wast created. Thou art the anointed cherub that covereth; and I have set thee so; thou wast upon the holy mountain of God; thou hast walked up and down in the midst of the stones of fire. Thou wast perfect in thy ways from the day that thou wast created, till iniquity was found in thee, and thou hast sinned; therefore, I will cast thee as profane out of the mountain of God; and I will destroy thee, O covering cherub, from the midst of the stones of fire."
 
@@ -35,9 +35,9 @@ And if this applies to children, equally does it include every class of men. The
 
 Again, notice the universality of this at all times. The carnal mind is at all times enmity against God. "Oh," say some, "it may be true that we are at times opposed to God, but surely we are not always so." "There be moments," says one, "when I feel rebellious; at times my passions lead me astray; but surely there are other favorable seasons when I really am friendly to God, and offer true devotion. I have (continues the objector), stood upon the mountain-top, until my whole soul has kindled with the scene below, and my lips have uttered the song of praise,--
 
-> "These are thy glorious works, parent of good,  
-> Almighty, thine this universal frame,  
-> Thus wondrous fair; thyself how wondrous then!"  
+> These are thy glorious works, parent of good,    
+> Almighty, thine this universal frame,    
+> Thus wondrous fair; thyself how wondrous then!    
 
 Yes, but mark, what is true one day is not false another; "the carnal mind is enmity against God" at all times. The wolf may sleep, but it is a wolf still. The snake with its azure hues, may slumber amid the flowers, and the child may stroke its slimy back, but it is a serpent still; it does not change its nature, though it is dormant. The sea is the house of storms, even when it is glassy as a lake; the thunder is still the mighty rolling thunder, when it is so much aloft that we hear it not. And the heart, when we perceive not its ebullitions, when it belches not forth its lava, and sendeth not forth the hot stones of its corruption, is still the same dread volcano. At all times, at all hours, at every moment, (I speak this as God speaketh it), if ye are carnal, ye are each one of you enmity against God.
 
@@ -61,9 +61,9 @@ Oh! weary slaves of sin, are not your ways the paths of folly? Is it wisdom, O m
 
 And now, it may be, some of you are convinced of sin, by the Holy Spirit. I will now proclaim to you the way of salvation. "As Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up; that whosoever believeth in him should not perish, but have eternal life." Behold, O trembling penitent, the means of thy deliverance. Turn thy tearful eye to yonder Mount of Calvary! See the victim of justice--the sacrifice of atonement for your transgression. View the Saviour in his agonies, with streams of blood purchasing thy soul, and with intensest agonies enduring thy punishment. He died for thee, if now thou dost confess thy guilt. O come, thou condemned one, self-condemned, and turn thine eye this way, for one look will save. Sinner! thou art bitten. Look! It is naught but "Look!" It is simply "Look!" If thou canst but look to Jesus, thou art safe. Hear the voice of the Redeemer: "look unto me, and be ye saved." Look! Look! Look! O guilty souls.
 
-> "Venture on him, venture wholly,  
-> Let no other trust intrude;  
-> None but Jesus, kind and loving,  
-> Can do helpless sinners good."  
+> Venture on him, venture wholly,    
+> Let no other trust intrude;    
+> None but Jesus, kind and loving,    
+> Can do helpless sinners good.    
 
 May my blessed Master help you to come to him, and draw you to his Son, for Jesu's sake. Amen and Amen.

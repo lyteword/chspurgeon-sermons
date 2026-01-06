@@ -2,8 +2,8 @@
 
 Sermon No. 167 - Delivered on Sabbath Morning, December 13, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "These be they who separate themselves, sensual, having not the Spirit."  
-> Jude 1:19.  
+> These be they who separate themselves, sensual, having not the Spirit.    
+> Jude 1:19.    
 
 WHEN a farmer comes to thrash out his wheat, and get it ready for the market there are two things that he desires--that there may be plenty of it, of the right sort, and that when he takes it to market, he may be able to carry a clean sample there. He does not look upon the quantity alone; for what is the chaff to the wheat? He would rather have a little clean than he would have a great heap containing a vast quantity of chaff, but less of the precious corn. On the other hand, he would not so winnow his wheat as to drive away any of the good grain, and so make the quantity less than it need to be. He wants to have as much as possible--to have as little loss as possible in the winnowing, and yet to have it as well winnowed as may be. Now, that is what I desire for Christ's Church, and what every Christian will desire. We wish Christ's church to be as large as possible. God forbid that by any of our winnowing, we should ever cast away one of the precious sons of Zion. When we rebuke sharply, we would be anxious lest the rebuke should fall where it is not needed, and should bruise and hurt the feelings of any who God hath chosen. But on the other hand, we have no wish to see the church multiplied at the expense of its purity. We do not wish to have a charity so large that it takes in chaff as well as wheat: we wish to be just charitable enough to use the fan thoroughly to purge God's floor, but yet charitable enough to pick up the most shrivelled ear of wheat, to preserve it for the Master's sake, who is the husbandman. I trust, in preaching this morning, God may help me so to discern between the precious and the vile that I may say nothing uncharitable, which would cut off any of God's people from being part of his true and living and visible church; and yet at the same time I pray that I may not speak so loosely, and so without God's direction, as to embrace any in the arms of Christian affection whom the Lord hath not received in the eternal covenant of his love.
 
@@ -17,10 +17,10 @@ The first work of the Spirit in the heart is a work during which the Spirit is c
 
 The one only feels the force of truth, and that may be strong enough to make him tremble, like Felix; but the other feels the Spirit going with the truth, and that renews the man, regenerates him, and causes him to pass into that gracious condition which is called the state of salvation. This change takes place instantaneously. It is as miraculous a change as any miracle of which we read in Scripture. It is supremely supernatural. It may be mimicked, but no imitation of it can be true and real. Men may pretend to be regenerated without the Spirit, but regenerated they cannot be. It is a change so marvellous that the highest attempts of man can never reach it. We may reason as long as we please, but we cannot reason ourselves into regeneration; we may meditate till our hairs are grey with study; but we cannot meditate ourselves into the new birth. That is worked in us by the sovereign will of God alone.
 
-> "The Spirit, like some heavenly wind,  
-> Blows on the sons of flesh,  
-> Inspires us with a heavenly mind,  
-> And forms the man afresh."  
+> The Spirit, like some heavenly wind,    
+> Blows on the sons of flesh,    
+> Inspires us with a heavenly mind,    
+> And forms the man afresh.    
 
 But ask the man how: he cannot tell you. Ask him when: he may recognize the time, but as to the manner thereof he knoweth no more of it than you do. It is to him a mystery.
 

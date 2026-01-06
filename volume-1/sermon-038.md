@@ -2,8 +2,8 @@
 
 Sermon No. 38 - Delivered on Sabbath Morning, September 16, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Go ye up upon her walls, and destroy; but make not a full end: take away her battlements; for they are not the Lord's."  
-> Jeremiah 5:10.  
+> Go ye up upon her walls, and destroy; but make not a full end: take away her battlements; for they are not the Lord's.    
+> Jeremiah 5:10.    
 
 WE HAVE BEEN talking very freely during this last week of "glorious victories," of "brilliant successes," of "sieges," and of "stormings." We little know what the dread reality is of which we boast. Could our eyes once behold the storming of a city, the sacking of a town, the pillage of the soldiery, the barbarous deeds of fury, when the blood is up and long delay has maddened their souls; could we see the fields saturated with blood, and soaked with gore; could we spend one hour amongst the corpses and the dying; or if we could only let the din of battle, and the noise of the guns reach our ears, we should not so much rejoice, if we had anything of fellow feeling for others as well as for ourselves. The death of an enemy is to me a cause of regret as well as the death of a friend. Are not all my brethren? and doth not Jesus tell me so? Are we not all made of one flesh? and hath not God "made of one blood all nations that dwell upon the face of the earth?" Let us, then, when we hear of slaughtered enemies, and of thousands that have fallen, cease to rejoice in their death. It would betray a spirit utterly inconsistent with the Christian religion, more akin to Mohamedanism, or to the fierce doctrines of Budha, but not in the least to be brought into compatibility with the truths of the gospel of the glorious God. And yet with all that, far be it from me to check any gladness which this nation may experience, now that it hopes that the incubus of war may at last be removed. Clap your hands, O Britons! Rejoice, ye sons of Albion! there is hope that your swords may yet be sheathed, that your men shall not be mown down as grass before the scythe; that the desolation of your hearths shall now be staid; that the tyrant shall be humbled; and that peace shall be restored. 
 
@@ -25,10 +25,10 @@ There are some other churches relying upon learning and erudition. The learning 
 
 But I think that the worst battlement the churches have now, is an earthwork of great and extreme caution. It is held to be improper that certain obnoxious truths in the Bible should be preached; sundry reasons are given why they should be withheld. One is, because it tends to discourage men from coming to Christ. Another is, because certain persons will be offended on account of these rough edges of the gospel. Some would say, "O keep them back! You need not preach such and such a doctrine. Why preach distinguishing grace? Why divine sovereignty? Why election? why perseverance? why effectual calling? These are calculated to offend the people, they cannot endure such truths." If you tell them about the love of Christ, and the vast mercy of God, and such like it will always be pleasing and satisfying; but you must never preach deep searching law-work, you must not be cutting at the heart and sending the lancet into the soul--that would be dangerous. Hence most churches are shielding themselves behind an ignominious bulwark of extreme caution. You never hear their ministers spoken against; they are quite safe behind the screen you will be very much puzzled to tell what are the real doctrinal views of our modern divines. I believe you will pick up in some poor humble chapel more doctrinal knowledge in half an hour, than in some of your larger chapels in half a century. God's church must be brought once more to rely upon the pure truth, upon the simple gospel, the unalloyed doctrines of the grace of God. O may this church never have any bulwark but the promises of God! May he be her strength and shield! May his Aegis be o'er our head and be our constant guard! May we never depart from the simplicity of the faith! And whether men hear, or whether they forbear, may we say--
 
-> "Should all the forms that men devise  
-> Assault my soul with treach'rous art  
-> I'll call them vanities and lies  
-> And bind the gospel to my heart."  
+> Should all the forms that men devise    
+> Assault my soul with treach'rous art    
+> I'll call them vanities and lies    
+> And bind the gospel to my heart.    
 
 We shall now address the text to THE CHRISTIAN--THE REAL CHILD OF GOD. The true believer, also, has a proneness to do as the church does--to build up sundry "battlements," which "are not the Lord's," and to put his hope, his confidence, and his affection in something else, besides the word of the God of Israel.
 
@@ -42,11 +42,11 @@ Once more. Many of us are too prone to make battlements out of our past experien
 
 Then, again, we sometimes get trusting too much to evidence, and good works. Ralph Erskine did not say amiss when he remarked, "I have got more hurt by my good works than my bad ones." That seems something like Antinomianism, but it is true; we find it so by experience. "My bad works," said Erskine, "Always drove me to the Saviour for mercy; my good works often kept me from him, and I began to trust in myself." Is it not so with us? We often get a pleasing opinion of ourselves: we are preaching so many times a week, we attend so many prayer meetings; we are doing good in the Sabbath-school; we are valuable deacons; important members of the church; we are giving away so much in charity; and we say, "Surely I am a child of God--I must be. I am an heir of heaven. Look at me! See what robes I wear. Have I not indeed a righteousness about me that proves me to be a child of God?" Then we begin to trust in ourselves, and say, "Surely I cannot be moved, my mountain standeth firm and fast." Do your know what is the usual rule of heaven when we thus boast? Why the command is given to the foe--"Go ye up against him, make not a full end: take away his battlements; for they are not the Lord's." And what is the consequence? Why, perhaps God suffers us to fall into sin, and down goes self-sufficiency. Many a Christian owes his falls to a presumptuous confidence in his graces. I conceive that outward sin is not more abhorbed by one God than this most wicked sin of reliance on ourselves. May none of you ever learn your own weakness by reading a black book of your own backslidings. More to be desired is the other method of God when he sends the light of the Spirit into the heart, and developes our corruption; Satan comes roaring there, conscience begins calling out, "Man you are not perfect." All the corruptions burst up like a volcano that had slept for a little moment. We are taken into the dark chambers of imagery; we look at ourselves, and say, "Where are my battlements gone?" We go to the hill-top again, and see the battlements are all gone. We go by the side of the city--they are all departed. Then we go again to Christ, and say,
 
-> "I, the chief of sinners am,  
-> Jesus died for me."  
+> I, the chief of sinners am,    
+> Jesus died for me.    
 
-> "Nothing in my hands I bring;  
-> Simply to thy cross I cling."  
+> Nothing in my hands I bring;    
+> Simply to thy cross I cling.    
 
 Heaven smiles again, for now the heart is right, and the soul is in the most fitting position. Take care of your graces, Christians!
 

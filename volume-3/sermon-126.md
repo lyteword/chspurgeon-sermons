@@ -2,17 +2,17 @@
 
 Sermon No. 126 - Delivered on Sabbath Morning, April 5, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Being justified freely by his grace, through the redemption that is in Christ Jesus."  
-> Rom. 3:24.  
+> Being justified freely by his grace, through the redemption that is in Christ Jesus.    
+> Rom. 3:24.    
 
 THE hill of comfort is the hill of calvary; the house of consolation is builded with the wood of the cross; the temple of heavenly cordials is founded upon the riven rock, riven by the spear which pierced its side. No scene in sacred history ever gladdens the soul like the scene on Calvary.
 
-> "Is it not strange, the darkest hour  
-> That ever dawn'd on sinful earth  
-> Should touch the heart with softer power  
-> For comfort, than an angel's mirth?  
-> That to the cross the mourner's eye should turn,  
-> Sooner than where the stars of Bethlehem burn?"  
+> Is it not strange, the darkest hour    
+> That ever dawn'd on sinful earth    
+> Should touch the heart with softer power    
+> For comfort, than an angel's mirth?    
+> That to the cross the mourner's eye should turn,    
+> Sooner than where the stars of Bethlehem burn?    
 
 Nowhere does the soul ever find such consolation as on that very spot where misery reigned, where woe triumphed, where agony reached its climax. There grace hath dug a fountain, which ever gusheth with waters pure as crystal, each drop capable of alleviating the woes and the agonies of mankind. Ye have had your seasons of woe, my brethren and my sisters in Christ Jesus; and ye will confess it was not at Olivet that ye ever found comfort, not on the hill of Sinai, nor on Tabor; but Gethsemane, Gabbatha, and Golgotha have been a means of comfort to you. The bitter herbs of Gethsemane have often taken away the bitters of your life; the scourge of Gabbatha hath often scourged away your cares, and the groans of Calvary have put all other groans to flight.
 
@@ -28,24 +28,24 @@ Now, concerning this ransom, we have to observe, that it was all paid, and all p
 
 And when Christ paid all this ransom, will you just notice, that he did it all himself! He was very particular about that. Simon, the Cyrenian, might bear the cross; but Simon, the Cyrenian, might not be nailed to it. That sacred circle of Calvary was kept for Christ alone. Two thieves were with him there; not righteous men, lest any should have said that the death of those two righteous men helped the Saviour. Two thieves hung there with him, that men might see that there was majesty in his misery, and that he could pardon men and show his sovereignty, even when he was dying. There were no righteous men to suffer; no disciples shared his death; Peter was not dragged there to be beheaded, John was not nailed to a cross side by side with him; he was left there alone. He says, "I have trodden the wine press alone; and of the people there was none with me." The whole of the tremendous debt was put upon his shoulders; the whole weight of the sins of all his people was placed upon him. Once he seemed to stagger under it: "Father, if it be possible." But again he stood upright: "Nevertheless, not my will, but thine be done." The whole of the punishment of his people was distilled into one cup; no mortal lip might give it so much as a solitary sip. When he put it to his own lips, it was so bitter, he well nigh spurned it--"Let this cup pass from me." But his love for his people was so strong, that he took the cup in both his hands, and
 
-> "At one tremendous draught of love  
-> He drank damnation dry,"  
+> At one tremendous draught of love    
+> He drank damnation dry,    
 
 for all his people. He drank it all, he endured all, he suffered all; so that now for ever there are no flames of hell for them, no racks of torment; they have no eternal woes; Christ hath suffered all they ought to have suffered, and they must, they shall go free. The work was completely done by himself, without a helper.
 
 And note, again, it was accepted. In truth, it was a goodly ransom. What could equal it? A soul "exceeding sorrowful even unto death;" a body torn with torture; a death of the most inhuman kind; and an agony of such a character, that tongue cannot speak of it, nor can even man's mind imagine its horror. It was a goodly price. But say, was it accepted? There have been prices paid sometimes, or rather offered, which never were accepted by the party to whom they were offered, and therefore the slave did not go free. But this was accepted. The evidence I will shew you. When Christ declared that he would pay the debt for all his people, God sent the officer to arrest him for it; he arrested him in the garden of Gethsemane, and seizing upon him, he dragged him to the bar of Pilate, to the bar of Herod, and to the judgment seat of Caiaphas; the payment was all made, and Christ was put into the grave. He was there, locked up in durance vile, until the acceptance should have been ratified in heaven. He slept there a portion of three days in his tomb. It was declared that the ratification was to be this: the surety was to go his way as soon as ever his suretyship engagements had been fulfilled. Now let your minds picture the buried Jesus. He is in the sepulchre. Tis true he has paid all the debt, but the receipt is not yet given; he slumbers in that narrow tomb. Fastened in with a seal upon a giant stone, he sleeps still in his grave; not yet has the acceptance been given from God; the angels have not yet come from heaven to say, "The deed is done, God has accepted thy sacrifice." Now is the crisis of this world; it hangs trembling in the balance. Will God accept the ransom, or will he not? We shall see. An angel comes from heaven with exceeding brightness; he rolls away the stone; and forth comes the captive, with no manacles upon his hands, with the grave clothes left behind him; free, never more to suffer, never more to die. Now,
 
-> "If Jesus had not paid the debt,  
-> He ne'er had been at freedom set."  
+> If Jesus had not paid the debt,    
+> He ne'er had been at freedom set.    
 
 If God had not accepted his sacrifice, he would have been in his tomb at this moment; he never would have risen from his grave. But his resurrection was a pledge of God's accepting him. He said, "I have had a claim upon thee to this hour; that claim is paid now; go thy way." And death gave up his royal captive, the stone was rolled into the garden, and the conqueror came forth, leading captivity captive.
 
 And, moreover, God gave a second proof of acceptance; for he took his only begotten Son to heaven, and set him at his right hand, far above all principalities and powers; and therein he meant to say to him, "Sit upon the throne, for thou hast done the mighty deed; all thy works and all thy miseries are accepted as the ransom of men." O my beloved, think what a grand sight it must have been when Christ ascended into glory; what a noble certificate it must have been of his Father's acceptance of him! Do you not think you see the scene on earth? It is very simple. A few disciples are standing upon a hill, and Christ mounts into the air in slow and solemn movement, as if an angel sped his way by gentle degrees, like mist or exhalation from the lake into the skies. Can you imagine what is going on up yonder? Can you for a moment conceive how, when the mighty conqueror entered the gates of heaven, the angels met him,
 
-> "They brought his chariot from on high,  
-> To bear him to his throne;  
-> Clapp'd their triumphant wings, and cried,  
-> 'The glorious work is done'"  
+> They brought his chariot from on high,    
+> To bear him to his throne;    
+> Clapp'd their triumphant wings, and cried,    
+> 'The glorious work is done'    
 
 Can you think how loud were the plaudits when he entered the gates of heaven? Can you conceive how they pressed on one another, to behold how he came conquering and red from the fight? Do you see Abraham, Isaac, Jacob, and all the saints redeemed, come to behold the Saviour and the Lord? They had desired to see him, and now their eyes behold him in flesh and blood, the conqueror over death and hell! Do you think you see him, with hell at his chariot- wheels, with death dragged as a captive through the royal streets of heaven? Oh, what a spectacle was there that day! No Roman warrior ever had such a triumph; none ever saw such a majestic sight. The pomp of a whole universe, the royalty of entire creation, cherubim and seraphim and all powers create, did swell the show; and God himself, the Everlasting One, crowned all, when he pressed his Son to his bosom, and said, "Well done, well done; thou hast finished the work which I gave thee to do. Rest here for ever, mine accepted one." Ah, but he never would have had that triumph, if he had not paid all the debt. Unless his Father had accepted the ransom-price, the ransomer had never been so honoured; but because it was accepted, therefore did he so triumph. So far, then, concerning the ransom.
 
@@ -63,10 +63,10 @@ Take away the filthy garments; that is pardon. Put a mitre on his head; clothe h
 
 "But," says one, "no one is justified like that, till he dies." Believe me, he is.
 
-> "The moment a sinner believes,  
-> And trusts in his crucified God,  
-> His pardon at once he receives;  
-> Salvation in full, through his blood."  
+> The moment a sinner believes,    
+> And trusts in his crucified God,    
+> His pardon at once he receives;    
+> Salvation in full, through his blood.    
 
 If that young man over there has really believed in Christ this morning, realizing by a spiritual experience what I have attempted to describe, he is as much justified in God's sight now as he will be when he stands before the throne. Not the glorified spirits above are more acceptable to God than the poor man below, who is once justified by grace. It is a perfect washing, it is perfect pardon, perfect imputation; we are fully, freely, and wholly accepted, through Christ our Lord. Just one more word here, and then I will leave this matter of justification. Those who are once justified are justified irreversibly. As soon as a sinner takes Christ's place, and Christ takes the sinner's place, there is no fear of a second change. If Christ has once paid the debt, the debt is paid, and it will never be asked for again; if you are pardoned, you are pardoned once for ever. God does not give man a free pardon under his own sign-manual, and then afterwards retract it and punish man: that be far from God so to do. He says, "I have punished Christ; you may go free." And after that, we may "rejoice in hope of the glory of God," that "being justified by faith we have peace with God, through our Lord Jesus Christ." And now I hear one cry, "That is an extraordinary doctrine." Well, so some may think; but let me say to you, it is a doctrine professed by all protestant churches, though they may not preach it. It is the doctrine of the Church of England, it is the doctrine of Luther, it is the doctrine of the Presbyterian church; it is professedly the doctrine of all Christian churches; and if it seems strange in your ears, it is because your ears are estranged, and not because the doctrine is a strange one. It is the doctrine of holy writ, that none can condemn whom God justifies, and that none can accuse those for whom Christ hath died; for they are totally free from sin. So that, as one of the prophets has it, God sees no sin in Jacob nor iniquity in Israel. In the moment they believe, their sins being imputed to Christ, they cease to be theirs, and Christ's righteousness is imputed to them and accounted theirs, so that they are accepted.
 
@@ -78,8 +78,8 @@ And now I close up with the third point, upon which I shall be brief, and I hope
 
 The best livery for a beggar is rags, and the best livery for a sinner to go to Christ in, is for him to go just as he is, with nothing but sin about him. "But no;" say you, "I must be a little better, and then I think Christ will save me!" You cannot get any better, try as long as you please. And besides --to use a paradox--if you were to get better, you would be all the worse; for the worse you are, the better to come to Christ. If you are all unholy come to Christ; if you feel your sin, and renounce it, come to Christ; though you have been the most debased and abandoned soul, come to Christ; if you feel yourself to have nothing about you that can recommend you, come to Christ.
 
-> "Venture on him, venture wholly;  
-> Let no other trust intrude."  
+> Venture on him, venture wholly;    
+> Let no other trust intrude.    
 
 I do not say this to urge any man to continue in sin. God forbid! If you continue in sin, you must not come to Christ; you cannot; your sins will hamper you. You cannot be chained to your galley- oar--the oar of your sins--yet come to Christ, and be a free man. No, sir, it is repentance; it is the immediate leaving off the sin. But mark thee, neither by repentance, nor by leaving off thy sin, can save thee. It is Christ, Christ, Christ--Christ only.
 

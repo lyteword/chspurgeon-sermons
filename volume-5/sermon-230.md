@@ -2,8 +2,8 @@
 
 Sermon No. 230 - Delivered on Sabbath Morning, December 26th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The Lord will go before you; and the God of Israel will be your rereward."  
-> Isaiah 52:12.  
+> The Lord will go before you; and the God of Israel will be your rereward.    
+> Isaiah 52:12.    
 
 THE CHURCH OF CHRIST is continually represented under the figure of an army; yet its Captain is the Prince of Peace; its object is the establishment of peace, and its soldiers are men of a peaceful disposition. The spirit of war is at the extremely opposite point to the spirit of the gospel. Yet nevertheless, the church on earth has, and until the second advent must be, the church militant, the church armed, the church warring, the church conquering. And how is this? It is in the very order of things that so it must be. Truth could not be truth in this world if it were not a warring thing, and we should at once suspect that it were not true if error were friends with it. The spotless purity of truth must always be at war with the blackness of heresy and lies. I say again, it would cast a suspicion upon its own nature; we should feel at once that it was not true, if it were not an enmity with the false. And so at this present time, the church of Christ, being herself the only incarnation of truth left upon this world, must be at war with error of every kind of shape; or if she were not, we should at once conclude that she was not herself the church of the living God. It is but a rule of nature that holiness must be at enmity with sin. That would be but a mock purity which could lie side by side with iniquity and claim its kinship. "Shall the throne of iniquity have fellowship with thee?" Shall Christ and Belial walk together? Shall the holy be linked with the unholy? If it were so, beloved, we might then not only suspect that the church was not the holy, universal and apostolic church; we might not only suspect it, but we might beyond suspicion pronounce a verdict upon her, "Thou art no more Christ's bride; thou art an antichrist, an apostate. 
 
@@ -33,25 +33,25 @@ But I am thinking that perhaps the later trials of the church may represent the 
 
 Can you now conceive the last great day when Jehovah, the rereward shall gather up his people? The time is come; the last of the salt is about to be removed; the church of God is now about to be carried up to dwell with her husband. Do you see the church moving upwards towards heaven? Behind her she leaves a world in flames; she sees the earth destroyed, God removes it as a shepherd's tent; the inhabitants thereof are gone, and the tent must be folded up; as a vesture shall they be folded up, and they shall be changed. But between the church and a blazing world, between the church and the terrible destruction of hell, there is the bright pillar of God's presence--black to his enemies behind, but bright to his church in front. The close of the great dispensation of the Mediator shall be that the God of Israel shall be all in all, his church shall be completely safe; he shall have gathered up all things in one, whether they be things in heaven or things on earth. Then shall the sonnet of the poet be more than fulfilled to the rejoicing and perfected church.
 
-> "Daughter of Zion, awake from thy sadness,  
-> Awake, for thy foes shall oppress thee no more;  
-> Bright o'er thy hills dawns the day-star of gladness:  
-> Arise, for the night of thy sorrow is o'er.  
-> Strong were thy foes, but the arm that subdued them,  
-> And scatter'd their legions, was mightier far;  
-> They fled, like the chaff, from the scourge that pursued them,  
-> Vain were their steeds, and their chariots of war.  
-> Daughter of Zion, the power that hath saved thee  
-> Extoll'd with the harp and the timbrel should be:  
-> Shout, for the foe is destroy'd that enslaved thee,  
-> The oppressor is vanquish'd, and Zion is free."  
+> Daughter of Zion, awake from thy sadness,    
+> Awake, for thy foes shall oppress thee no more;    
+> Bright o'er thy hills dawns the day-star of gladness:    
+> Arise, for the night of thy sorrow is o'er.    
+> Strong were thy foes, but the arm that subdued them,    
+> And scatter'd their legions, was mightier far;    
+> They fled, like the chaff, from the scourge that pursued them,    
+> Vain were their steeds, and their chariots of war.    
+> Daughter of Zion, the power that hath saved thee    
+> Extoll'd with the harp and the timbrel should be:    
+> Shout, for the foe is destroy'd that enslaved thee,    
+> The oppressor is vanquish'd, and Zion is free.    
 
 Let us turn to the second part of the sermon. We are now come to the last Sabbath of the year. Two troubles present themselves, the future and the past. We shall soon launch into another year, and hitherto we have found our years, years of trouble. We have had mercies, but still we find this house of out pilgrimage is not an abiding city, not a mansion of peace and comfort. Perhaps we are trembling to go forward. Foreseeing trouble, we know not how we we shall be able to endure to the end. We are standing here and pausing for a while, sitting down upon the stone of our Ebenezer to rest ourselves, gazing dubiously into the future, saying, "Alas! what shall I do? Surely, I shall one day fall by the hand of the enemy." Brother, arise, arise; anoint your head, and wash your face, and fast no longer; let this sweet morsel now cheer you; put this bottle to your lips, and let your eyes be enlightened: "The Lord Jehovah will go before you." He has gone before you already. Your future path has all been marked out in the great decrees of his predestination. You shall not tread a step which is not mapped out in the great chart of God's decree. Your troubles have been already weighed for you in the scales of his love; your labour is already set aside for you to accomplish by the hand of his wisdom. Depend upon it.
 
-> "Your times of trial and of grief,  
-> Your times of joy and sweet relief,  
-> All shall come and last and end  
-> As shall please your heavenly Friend."  
+> Your times of trial and of grief,    
+> Your times of joy and sweet relief,    
+> All shall come and last and end    
+> As shall please your heavenly Friend.    
 
 Remember, you are not a child of chance. If you were, you might indeed fear. You will go nowhere next year except where God shall send you. You shall be thrust into the hot coals of the fire, but God shall put you there. You shall perhaps be much depressed in spirit, but that heaviness shall be for your good, and shall come from your Father; you shall have the rod, but it shall not be the rod of the wicked--it shall be in God's hand. Oh! how comfortable the thought that everything is in the hand of God, and that all that may occur to me during the future years of my life is fore-ordained and overruled by the great Jehovah, who is my Father and my friend! Now stop, Christian, a moment, and realize the idea that God has gone before, mapping the way; and then let me ask you if you could now this morning be allowed to draw a fresh map, would you do it? If he should condescend to say, "Now your circumstances next year shall be just what you like; you shall have your own way, and go your own route to heaven, would you dare, even with God's permission, to draw a new chart?" If you should have that presumption, I know the result: you would find that you had gone the wrong way; you would soon be glad enough to retrace your step, and with many tears you would go to your heavenly Father, and say, "My Father, I have had enough to do with the helm of this ship; it is hard work to hold it; do what thou wilt with it; steer which way thou pleasest, though it be through the deepest floods and the hottest flame. I am weary, I sleep at the tiller, I cannot guide the ship, my tears fall fast from my eyes, for when I think to be wise I find myself to have committed folly; when I thought I was promoting my own advantage in my scheme, I find I am rushing into a sea of losses." God, then, has gone before you in the decree of his predestination.
 

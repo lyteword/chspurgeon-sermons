@@ -2,8 +2,8 @@
 
 Sermon No. 78 - Delivered on Thursday Evening, November 22, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "They are not of the world, even as I am not of the world."  
-> John 17:16.  
+> They are not of the world, even as I am not of the world.    
+> John 17:16.    
 
 CHRIST'S prayer was for a special people. He declared that he did not offer an universal intercession. "I pray for them," said he. "I pray not for the world, but for them which thou hast given me, for they are thine." In reading this beautiful prayer through, only one question arises to our minds; Who are the people that are described as "them," or as "they?" Who are these favoured individuals, who share a Saviour's prayers, are recognized by a Saviour's love, have their names written on the stones of his precious breastplate, and have their characters and their circumstances mentioned by the lips of the High Priest before the throne on high? The answer to that question is supplied by the words of our text. The people for whom Christ prays are an unearthly people. They are a people somewhat, above the world, distinguished altogether from it. "They are not of the world, even as I am not of the world."
 
@@ -35,15 +35,15 @@ Do we, dearly beloved, feel this truth? Has it ever been laid to our souls, so t
 
 Let me tell you one or two turning points, when every Christian will feel that he is not of the world. One is, when he gets into very deep trouble. I do believe and protest, that we never feel so unearthly as when we get plunged down into trouble. Ah! when some creature comfort hath been swept away, when some precious blessing hath withered in our sight, like the fair lily, snapped at the stalk; when some mercy has been withered, like Jonah's gourd in the night--then it is that the Christian feels, "I am not of the world." His cloak is torn from him, and the cold wind whistles almost through him; and then he says, "I am a stranger in the world, as all my fathers were. Lord, thou hast been my dwelling-place in all generations." You have had at times deep sorrows. Thank God for them! They are testing moments. When the furnace is hot, it is then that the gold is tried best. Have you felt at such a time that you were not of the world? Or, have you rather sat down, and said, "Oh! I do not deserve this trouble?" Did you break under it? Did you bow down before it and let it crush you while you cursed your Maker? Or did your spirit, even under its load, still lift itself unto him, like a man all dislocated on the battle-field, whose limbs are cut away, but who still lifts himself up as best he can, and looks over the field to see if there be a friend approaching. Did you do so? Or did you lie down in desperation and despair? If you did that, methinks you are no Christian; but if there was a rising up, it was a testing moment, and it proved that you were "not of the world," because you could master affliction; because you could tread it under foot, and say--
 
-> "When all created streams are dry,  
-> His goodness is the same;  
-> With this I well am satisfied,  
-> And glory in his name."  
+> When all created streams are dry,    
+> His goodness is the same;    
+> With this I well am satisfied,    
+> And glory in his name.    
 
 But another testing moment is prosperity. Oh! there have been some of God's people, who have been more tried by prosperity than by adversity. Of the two trials, the trial of adversity is less severe to the spiritual man than that of prosperity. "As the fining pot for silver, so is a man to his praise." It is a terrible thing to be prosperous. You had need to pray to God, not only to help you in your troubles, but to help you in your blessings. Mr. Whitfield once had a petition to put up for a young man who had--stop, you will think it was for a young man who had lost his father or his property. No! "The prayers of the congregation are he has need of much grace to keep him humble in the midst of riches." That is the kind of prayer that ought to be put up; for prosperity is a hard thing to bear. Now, perhaps you have become almost intoxicated with worldly delights, even as a Christian. Everything goes well with you; you have loved, and you are loved. Your affairs are prosperous; your heart rejoices, your eyes sparkle; you tread the earth with a happy soul and a joyous countenance; you are a happy man, for you have found that even in worldly things, "godliness with contentment is great gain." Did you ever feel,--
 
-> "These can never satisfy;  
-> Give me Christ, or else I die."  
+> These can never satisfy;    
+> Give me Christ, or else I die.    
 
 Did you feel that these comforts were nothing but the leaves of the tree, and not the fruit, and that you could not live upon mere leaves? Did you feel they were after all nothing but husks? Or did you not sit down and say, "Now, soul, take thine ease; thou hast goods laid up for many years; eat, drink, and be merry?" If you did imitate the rich fool, then you were of the world; but if your spirit went up above your prosperity so that you still lived near to God, then you proved that you were a child of God, for you were not of the world. These are testing points; both prosperity and adversity.
 

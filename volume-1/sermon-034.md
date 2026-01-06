@@ -2,8 +2,8 @@
 
 Sermon No. 34 - Delivered on Sabbath Morning, August 5, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For though I preach the gospel, I have nothing to glory of; for necessity is laid upon me; yea woe is unto me, if I preach not the gospel."  
-> 1 Corinthians 9:16.  
+> For though I preach the gospel, I have nothing to glory of; for necessity is laid upon me; yea woe is unto me, if I preach not the gospel.    
+> 1 Corinthians 9:16.    
 
 THE greatest man of Apostolic times was the apostle Paul. He was always great in everything. If you consider him as a sinner, he was exceeding sinful; if you regard him as a persecutor, he was exceeding mad against the Christians, and persecuted them even unto strange cities, if you take him as a convert, his conversion was the most notable one of which we read, worked by miraculous power, and by the direct voice of Jesus speaking from heaven--"Saul, Saul, why persecutest thou me?"--If we take him simply as a Christian, he was an extraordinary one, loving his Master more than others, and seeking more than others to exemplify the grace of God in his life. But if you take him as an apostle, and as a preacher of the Word, he stands out pre-eminent as the prince of preachers, and a preacher to kings--for he preached before Agrippa, he preached before Nero Caesar--he stood before emperors and kings for Christ's name's sake. It was the characteristic of Paul, that whatever he did, he did with all his heart. He was one of the men who could not allow one half of his frame to be exercised, while the other half was indolent but, when he set to work, the whole of his energies--every nerve, every sinew--were strained in the work to be done, be it bad work or be it good. Paul, therefore, could speak from experience concerning his ministry; because he was the chief of ministers. There is no nonsense in what he speaks; it is all from the depth of his soul. And we may be sure that when he wrote this, he wrote it with a strong unpalsied hand--"Though I preach the gospel, I have nothing to glory of, for necessity is laid upon me, yea, woe is me if I preach not the gospel."
 
@@ -51,8 +51,8 @@ But another thing will make us preach: we shall feel that woe is unto us if we p
 
 Or take another course. Travel round this great metropolis, and stop at the door of some place where there is heard the tinkling of bells, chanting and music, but where the whore of Babylon hath her sway, and lies are preached for truth; and when thou comest home and thinkest of Popery and Puseyism, let a voice come to thee, "Minister woe is unto thee if thou preachest not the gospel." Or step into the hall of the infidel where he blasphemes thy Maker's name; or sit in the theater where plays, libidinous and loose are acted, and from all these haunts of vice there comes the voice, "Minister, woe is unto thee if thou preachest not the gospel." And take thy last solemn walk down to the chambers of the lost; let the abyss of hell be visited, and stand thou and hear
 
-> "The sullen groans, the hollow moans,  
-> And shrieks of tortured ghosts."  
+> The sullen groans, the hollow moans,    
+> And shrieks of tortured ghosts.    
 
 Put thine ear at hell's gate, and for a little while list to the commingled screams and shrieks of agony and fell despair that shall lend thine ear; and as thou comest from that sad place with that doleful music still affrighting thee, thou wilt hear the voice, "Minister! minister! woe is unto thee if thou preaches not the gospel." Only let us have these things before our eyes, and we must preach. Stop preaching! Stop preaching! Let the sun stop shining, and we will preach in darkness. Let the waves stop their ebb and flow, and still our voice shall preach the gospel, let the world stop its revolutions, let the planets stay their motion; we will still preach the gospel. Until the fiery center of this earth shall burst through the thick ribs of her brazen mountains, we shall still preach the gospel; till the universal conflagration shall dissolve the earth, and matter shall be swept away, these lips, or the lips of some others called of God, shall still thunder forth the voice of Jehovah. We cannot help it. "Necessity is laid upon us, yea woe is unto us if we preach not the gospel.
 

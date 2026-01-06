@@ -2,8 +2,8 @@
 
 Sermon No. 86 - Delivered on Sabbath Morning, June 15, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Against thee, thee only, have I sinned, and done this evil in thy sight: that thou mightest be justified when thou speakest, and be clear when thou judgest."  
-> Psalm 51:4.  
+> Against thee, thee only, have I sinned, and done this evil in thy sight: that thou mightest be justified when thou speakest, and be clear when thou judgest.    
+> Psalm 51:4.    
 
 YESTERDAY was to me a day of deep solemnity; a pressure rested on my mind throughout the whole of it, which I could not by any possibility remove, for at every hour I remembered that during that day one of the most fallen of my fellow-creatures was launched into an unknown world, and made to stand before his Maker. Some might have witnessed his execution without tears; I think I could not even have thought of it for long together without weeping, at the terrible idea of a man so guilty, about to commence that endless period of unmingled misery, which is the horrible doom of the impenitent, which God hath prepared for sinners. Yesterday morning the sun saw a sigh which sickened it--the sight of a man launched, by a judicial process, into eternity, for guilt which has rendered him infamous, and which will stamp his name with disgrace as long as it shall be remembered.
 
@@ -27,9 +27,9 @@ This confession is attended with no apology on account of sin. We have heard of 
 
 Again: after the Christian confesses his sin, he offers no promise that he will of himself behave better. Some, when they make confessions to God, say, "Lord, if thou forgive me I will not sin again;" but God's penitents never say that. When they come before him they say, "Lord, once I promised, once I made resolves, but I dare not make them now, for they would be so soon broken, that they would but increase my guilt; and my promises would be so soon violated, that they would but sink my soul deeper in hell. I can only say, if thou wilt create in me a clean heart, I will be thankful for it, and will sing to thy praise for ever; but I cannot promise that I will live without sin, or work out a righteousness of my own. I dare not promise, my Father, that I will never go astray again;
 
-> 'Unless thou hold me fast,  
-> I feel I must, I shall decline,  
-> And prove like them at last.'  
+> Unless thou hold me fast,    
+> I feel I must, I shall decline,    
+> And prove like them at last.    
 
 Lord, if thou dost damn me, I cannot murmur; if thou dost cast me into perdition, I cannot complain; but have mercy upon me, a sinner, for Jesus Christ's sake." In that case, you see, God is justified when he condemns, and he is clear when he judges, even clearer than any earthly judge can be, because it is seldom that such a confession as that is ever made before the bar.
 

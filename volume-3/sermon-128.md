@@ -2,8 +2,8 @@
 
 Sermon No. 128 - Delivered on Sabbath Morning, April 19, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Wherefore then serveth the law? "  
-> Galatians 3:19.  
+> Wherefore then serveth the law?     
+> Galatians 3:19.    
 
 THE APOSTLE, by a highly ingenious and powerful argument, had proved that the law was never intended by God for the justification and salvation of man. He declares that God made a covenant of grace with Abraham long before the law was given on Mount Sinai; that Abraham was not present at Mount Sinai, and that, therefore, there could have been no alteration of the covenant made there by his consent; that, moreover, Abraham's consent was never asked as to any alteration of the covenant, without which consent the covenant could not have been lawfully changed, and, besides that, that the covenant stands fast and firm, seeing it was made to Abraham's seed, as well as to Abraham himself. "This I say, that the covenant, that was confirmed before of God in Christ, the law, which was four hundred and thirty years after, cannot disannul, that it should make the promise of none effect. For if the inheritance be of the law, it is no more of promise: but God gave it to Abraham by promise." Therefore, no inheritance and no salvation ever can be obtained by the law. Now, extremes are the error of ignorance. Generally, when men believe one truth, they carry it so far as to deny another; and, very frequently, the assertion of a cardinal truth leads men to generalise on other particulars, and so to make falsehoods out of truth. The objection supposed may be worded thus: "You say, O Paul, that the law cannot justify; surely then the law is good for nothing at all; Wherefore then serveth the law?' If it will not save a man, what is the good of it? If of itself it will never take a man to heaven, why was it written? Is it not a useless thing?" The apostle might have replied to his opponent with a sneer--he must have said to him, "Oh, fool, and slow of heart to understand. 
 
@@ -33,26 +33,26 @@ And now, a step further. You that know the grace of God can follow me in this ne
 
 Do you not remember, my hearer, when you used to awake in the morning, and the first thing you took up was Alleine's Alarm, or Baxter's Call to the Unconverted? Oh, those books, those books, in my childhood I read and devoured them when under a sense of guilt, but they were like sitting at the foot of Sinai. When I turned to Baxter, I found him saying some such things as these:--"Sinner, bethink thee, within an hour thou mayest be in hell. Bethink thee; thou mayest soon be dying--death is even now gnawing at thy cheek. What wilt thou do when thou standest before the bar of God without a Saviour? Wilt thou tell him thou hadst no time to spend on religion? Will not that empty excuse melt into thin air? Oh, sinner, wilt thou, then, dare to insult thy Maker? Wilt thou, then, dare to scoff at him? Bethink thee; the flames of hell are hot and the wrath of God is heavy. Were thy bones of steel, and thy ribs of brass, thou mightest quiver with fear. Oh, hadst thou the strength of a giant, thou couldst not wrestle with the Most High. What wilt thou do when he shall tear thee in pieces, and there shall be none to deliver thee? What wilt thou do when he shall fire off his ten great guns at thee? The first commandment shall say, Crush him; he hath broken me!' The second shall say, Damn him; he hath broken me!' The third shall say, A curse upon him; he hath broken me!' And so shall they all let fly upon thee; and thou without a shelter, without a place to flee to, and without a hope." Ah! you have not forgotten the days when no hymn seemed suitable to you but the one that began,
 
-> "Stoop down my soul that used to rise  
-> Converse awhile with death  
-> Think how a gasping mortal lies,  
-> And pants away his breath."  
+> Stoop down my soul that used to rise    
+> Converse awhile with death    
+> Think how a gasping mortal lies,    
+> And pants away his breath.    
 
 Or else,
 
-> "That awful day shall surely come,  
-> The pointed hour makes haste,  
-> When I must stand before my Judge,  
-> And pass the solemn test."  
+> That awful day shall surely come,    
+> The pointed hour makes haste,    
+> When I must stand before my Judge,    
+> And pass the solemn test.    
 
 Ay, that was why the law was sent--to convince us of sin, to make us shake and shiver before God. Oh! you that are self-righteous, let me speak to you this morning with just a word or two of terrible and burning earnestness. Remember, sirs, the day is coming when a crowd more vast than this shall be assembled on the plains of earth; when on a great white throne the Saviour, Judge of men, shall sit. Now, he is come; the book is opened; the glory of heaven is displayed, rich with triumphant love, and burning with unquenchable vengeance; ten thousand angels are on either hand; and you are standing to be tried. Now, self-righteous man, tell me now that you went to church three times a day! Come, man, tell me now that you kept all the commandments! Tell me now that you are not guilty! Come before him with a receipt of your mint, and your anise, and your cummin! Come along with you! Where are you? Oh, you are fleeing. You are crying, "Rocks hide us; mountains on us fall." What are you after, man? Why, you were so fair on earth that none dare to speak to you; you were so good and so comely; why do you run away? Come, man, pluck up courage; come before thy Maker; tell him that thou wert honest, sober, excellent, and that thou deservest to be saved! Why dost thou delay to repeat thy boastings? Out with it--come, say it! No, you will not. I see you still flying, with shrieks, away from your Maker's presence. There will be none found to stand before him, then, in their own righteousness. 
 
 But look! look! look! I see a man coming forward out of that motley throng; he marches forward with a steady step, and with a smiling eye. What! is there any man found who shall dare to approach the dread tribunal of God? What! is there one who dares to stand before his Maker? Yes, there is one; he comes forward, and he cries, "Who shall lay anything to the charge of God's elect?" Do you not shudder? Will not the mountains of wrath swallow him? Will not God launch that dreadful thunderbolt against him? No; listen while he confidently proceeds: "Who is he that condemneth? It is Christ that died; yea, rather, that hath risen again." And I see the right hand of God outstretched--"Come, ye blessed, enter the kingdom prepared for you." Now is fulfilled the verse which you once sweetly sang:--
 
-> "Bold shall I stand in that great day,  
-> For who aught to my charge shall lay?  
-> While, through thy blood, absolv'd I am  
-> From sin's tremendous curse and shame."  
+> Bold shall I stand in that great day,    
+> For who aught to my charge shall lay?    
+> While, through thy blood, absolv'd I am    
+> From sin's tremendous curse and shame.    
 
 And now, my dear friends, I am afraid of wearying you; therefore, let me briefly hint at one other thought. "Wherefore then serveth the law." It was sent into the world to shew the value of a Saviour. Just as foils set off jewels, and as dark spots make bright tints more bright, so doth the law make Christ appear the fairer and more heavenly. I hear the law of God curse, but how harsh its voice. Jesus says, "come unto me;" oh, what music! all the more musical after the discord of the law. I see the law condemns; I behold Christ obeying it. Oh! how ponderous that price--when I know how weighty was the demand! I read the commandments, and I find them strict and awfully severe--oh! how holy must Christ have been to obey all these for me! Nothing makes me value my Saviour more than seeing the law condemn me. When I know this law stands in my way, and like a flaming cherubim will not let me enter paradise, then I can tell how sweetly precious must Jesus Christ's righteousness be, which is a passport to heaven, and gives me grace to enter there.
 
@@ -62,14 +62,14 @@ I find that the proudest and most self-righteous people are those who do nothing
 
 And now, says one, "Sir, are there any here that you have been preaching at?" Yes, I like to preach at people. I do not believe it is of any avail to preach to people; preach right into them and right at them. I find in every circle a class, who say, in plain English, "Well, I am as good a father as is to be found in the parish, I am a good tradesman; I pay twenty shillings in the pound; I am no Sir John Dean Paul; I go to church, or I go to chapel, and that is more than everybody does; I pay my subscriptions--I subscribe to the infirmary; I say my prayers; therefore, I believe I stand as good a chance of heaven as anybody in the world." I do believe that three out of four of the people of London think something of that sort. Now, if that be the ground of your trust, you have a rotten hope; you have a plank to stand upon that will not bear your weight in the day of God's account As the Lord my God liveth, before whom I stand, "Unless your righteousness exceed the righteousness of the Scribes and Pharisees, ye shall in no wise enter into the kingdom of heaven." And if ye think the best performance of your hands can save you, this know, that "Israel, which followed after the law of righteousness, hath not attained to the law of righteousness." Those who sought not after it have attained it. Wherefore? Because the one hath sought it by faith, the other hath sought it by the deeds of the law, where justification never was to be found. Hear, now, the gospel, men and women; down with that boasting form of your righteousness; away with your hopes, with all your trusts that spring from this--
 
-> "Could your tears for ever flow,  
-> Could your zeal no respite know,  
-> All for sin could not atone;  
-> Christ must save, and save alone."  
+> Could your tears for ever flow,    
+> Could your zeal no respite know,    
+> All for sin could not atone;    
+> Christ must save, and save alone.    
 
 If ye would know how we must be saved, hear this--ye must come with nothing of your own to Christ. Christ has kept the law. You are to have his righteousness to be your righteousness. Christ has suffered in the stead of all who repent. His punishment is to stand instead of your being punished. And through faith in the sanctification and atonement of Christ, you are to be saved. Come, then, ye weary and heavy laden, bruised and mangled by the Fall, come then, ye sinners, come, then, ye moralists, come, then, all ye that have broken God's law and feel it, leave your own trusts and come to Jesus, he will take you in, give you a spotless robe of righteousness, and make you his for ever. "But how can I come?" says one; "Must I go home and pray?" Nay, sir, nay. Where thou art standing now, thou mayest come to the cross. Oh, if thou knowest thyself to be a sinner, now--I beseech you, ere thy foot shall leave the floor on which thou standest--now, say this--
 
-> "Myself into thy arms I cast:  
-> Lord, save my guilty soul at last."  
+> Myself into thy arms I cast:    
+> Lord, save my guilty soul at last.    
 
 Now, down with you, away with your self-righteousness. Look to me--look, now; say not, "Must I mount to heaven and bring Christ down?" "The word is nigh thee, on thy mouth and in thy heart; if thou shalt confess with thy mouth the Lord Jesus, and believe with thy heart, thou shalt be saved." Yes, thou--thou--thou. Oh! I bless God, we have heard of hundreds who have in this place believed on Christ. Some of the blackest of the human race have come to me but even lately, and told me what God has done for them. Oh, that you, too, would now come to Jesus. Remember, he that believeth shall be saved, be his sins never so many; and he that believeth not, must perish, be his sins never so few. Oh, that the Holy Spirit would lead you to believe; so should ye escape the wrath to come? and have a place in paradise among the redeemed!

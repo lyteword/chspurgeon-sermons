@@ -2,12 +2,12 @@
 
 Sermon No. 115 - Delivered on Sabbath Morning, February 1, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Nevertheless he saved them for his name's sake."  
-> Psalm 106:8.  
+> Nevertheless he saved them for his name's sake.    
+> Psalm 106:8.    
 
 IN LOOKING upon the works of God in creation, there are two questions which at once occur to the thoughtful mind, and which must be answered before we can procure a clue to the philosophy and science of creation itself. The first one is the question of authorship: Who made all these things? And the next question is that of design: For what purpose were all these things created? The first question, "Who made all these things?" is one which is easily answered by a man who has a honest conscience and a sane mind, for when he lifts eyes up yonder to read the stars, he will see those stars spell out in golden letters this word--God; and when he looks below upon the waves, if his ears are honestly opened, he will hear each wave proclaiming, God. If he looks to the summits of the mountains, they will not speak, but with a dignified answer of silence they seem to say,
 
-> "The hand that made us is Divine."  
+> The hand that made us is Divine.    
 
 If we listen to the rippling of the freshet at the mountain side, to the tumbling of the avalanche, to the lowing of the cattle, to the singing of the birds, to every voice and sound of nature, we shall hear this answer to the question, "God is our maker; he hath made us, and not we ourselves."
 
@@ -31,8 +31,8 @@ Now, secondly, THE FAVORED PEOPLE--"He saved them." Who are they? You will reply
 
 Note, first, that they were a stupid people. God sends his gospel not always to the wise and prudent, but unto fools;
 
-> "He takes the fool and makes him know  
-> The wonders of his dying love."  
+> He takes the fool and makes him know    
+> The wonders of his dying love.    
 
 Do not suppose, my hearer, because you are very unlettered and can scarcely read--do not imagine, because you have always been brought up in extreme ignorance, and have scarcely learnt to spell your name, that therefore you cannot be saved. God's grace can save you, and then enlighten you. A brother minister once told me a story of a man who was known in a certain village as a simpleton, and was always considered to be soft in the head; no one thought he could ever understand anything. But one day he came to hear the gospel preached. He had been a drunken fellow, having wit enough to be wicked, which is a very common kind of wit. The Lord was pleased to bless the word to his soul, so that he became a changed character; and what was the marvel of all was, his religion gave him a something which began to develop his latent faculties. He found he had a something to live for, and he began to try what he could do. In the first place he wanted to read his Bible, that he might read his Saviour's name; and after much hammering and spelling away, at last he was able to read a chapter. Then he was asked to pray at a prayer-meeting; here was an exercise of his vocal powers. Five or six words made up his prayer, and down he sat abashed. But by continually praying in his own family at home, he came to pray like the rest of the brethren, and he went on till he became a preacher, and, singularly enough, he had a fluency--a depth of understanding and a power of thought, such as are seldom found among ministers who only occasionally occupy pulpits. Strange it was, that grace should even tend to develop his natural powers, giving him an object, setting him devoutly and firmly upon it, and so bringing out all his resources that they were fully shown. AH, ignorant ones, ye need not despair. He saved them; not for their sakes--there was nothing in them why they should be saved. He saved them, not for their wisdom's sake; but, ignorant though they were, understanding not the meaning of his miracles, "he saved them for his name's sake."
 
@@ -42,10 +42,10 @@ And note, once more, they were a provoking people--"They provoked him at the sea
 
 But I say farewell to you, and I will keep on in my course. But why did you say I encourage men in sin? I encourage them to turn from it. I did not say he saved the provoking people, and then let them still provoke him as they had done before; I did not say he saved the wicked people, and then let them sin as they did before. But you know the meaning of the word "saved;" I explained it the other morning. The word "saved" does not mean merely taking men to heaven; it means more--it means saving them from their sin; it means giving them a new heart, new spirits, new lives; it means making them into new men. Is there anything licentious in saying that Christ takes the worst of men to make them into saints? If there be, I cannot see it. I only wish he would take the worst of this congregation and make them into the saints of the living God, and then there would be far less licentiousness. Sinner, I comfort thee; not in thy sin, but in thy repentance. Sinner, the saints of heaven were once as bad as thou hast been. Art thou a drunkard, a swearer, an unclean person? "Such were some of them; but they have been washed--but they have been sanctified." Is thy robe black? Ask them whether their robes were ever black, they would not have wanted washing, "We have washed our robes, and made them white in the blood of the Lamb." Then sinner, if they were black, and were saved, why not thyself?
 
-> "Are not his mercies rich and free?  
-> Then say, my soul, why not for thee?  
-> Our Jesus died upon the tree,  
-> Then why, my soul, why not for thee?"  
+> Are not his mercies rich and free?    
+> Then say, my soul, why not for thee?    
+> Our Jesus died upon the tree,    
+> Then why, my soul, why not for thee?    
 
 Take heart, penitents, God will have mercy on you. "Nevertheless, he saved them for his name's sake."
 
@@ -63,8 +63,8 @@ Once on a time, Mercy sat upon her snow-white throne, surrounded by the troops o
 
 And the Law went out and scourged the Saviour, nailed him to the cross, and coming back with his face all bright with satisfaction, stood again at the throne of Mercy, and Mercy said, "Law, what hast thou now to say?" "Nothing," said he, "fair angel, nothing." "What! not one of these commands against him?" "No, not one. Jesus, his substitute, has kept them all--has paid the penalty for his disobedience; and now, instead of his condemnation, I demand as a debt of justice that he be acquitted." "Stand thou here," said Mercy, "sit on my throne; I and thou together will now send forth another summons." The trumpet rang again. "Come hither, all ye who have aught to say against this sinner, why he should not be acquitted;" and up comes another--one who often troubled the sinner, one who had a voice not so loud as that of the Law, but still piercing and thrilling--a voice whose whispers were like the cuttings of a dagger. "Who art thou?" says Mercy. "I am Conscience; this sinner must be punished; he has done so much against the law of God that he must be punished; I demand it; and I will give him no rest till he is punished, nor even then, for I will follow him even to the grave, and persecute him after death with pangs unutterable." "Nay," said Mercy, "hear me," and while he paused for a moment, she took a bunch of hyssop and sprinkled Conscience with the blood, saying, "Hear me, Conscience, The blood of Jesus Christ, God's Son, cleanseth us from all sin;' Now hast thou ought to say,?" "No," said Conscience, "nothing."
 
-> 'Covered is his unrighteousness;  
-> From condemnation he is free.'  
+> Covered is his unrighteousness;    
+> From condemnation he is free.    
 
 Henceforth I will not grieve him; I will be a good conscience unto him, through the blood of our Lord Jesus Christ." The trumpet rang a third time, and growling from the innermost vaults, up there came a grim black fiend, with hate in his eyes, and hellish majesty on his brows. He is asked, "Hast thou anything against that sinner?" "Yes," said he, "I have; he has made a league with hell, and a covenant with the grave, and here it is signed with his own hand. He asked God to destroy his soul in a drunken fit, and vowed he would never turn to God; see, here is his covenant with hell!" "Let us look at it," said Mercy; and it was handed up, whilst the grim fiend looked at the sinner, and pierced him through with his black looks. "Ah! but," said Mercy, "this man had no right to sign the deed; a man must not sign away another's property. This man was bought and paid for long beforehand; he is not his own; the covenant with death is disannulled, and the league with hell is rent in pieces. Go thy way Satan," "Nay," said he, howling again, "I have something else to say: that man was always my friend; he listened ever to my insinuations; he scoffed at the gospel; he scorned the majesty of heaven; is he to be pardoned, whilst I repair to my hellish den, for ever to bear the penalty of guilt?" Said Mercy, "Avaunt, thou fiend; these things he did in the days of his unregeneracy; but this word nevertheless' blots them out. Go thou to thy hell; take this for another lash upon thyself--the sinner shall be pardoned, but thou--never, treacherous fiend!" And then Mercy, smilingly turning to the sinner, said, "Sinner, the trumpet must be blown for the last time!" Again it was blown, and no one answered. Then stood the sinner up, and Mercy said, "Sinner ask thyself the question--ask thou of heaven, of earth, of hell--whether any can condemn thee?" 
 
@@ -72,10 +72,10 @@ And the sinner stood up, and with a bold loud voice said, "Who shall lay anythin
 
 Thus, you see, I have what is called, dramatized the thing; but I don't care what it is called; it is a way of arresting the ear, when nothing else will. "Nevertheless;" there is the obstruction taken away! Sinner, whatever be the "nevertheless," it shall never the less abate the Saviour's love; not the less shall it ever make it, but it shall remain the same.
 
-> "Come, guilty soul, and flee away  
-> To Christ and heal thy wounds;  
-> This is the glorious gospel-day,  
-> Wherein free grace abounds.  
-> Come to Jesus, sinner, come."  
+> Come, guilty soul, and flee away    
+> To Christ and heal thy wounds;    
+> This is the glorious gospel-day,    
+> Wherein free grace abounds.    
+> Come to Jesus, sinner, come.    
 
 On thy knee weep out a sorrowful confession; look to his cross, and see the substitute; believe, and live. Ye almost demons, ye that have gone farthest in sin, now, Jesus says, "If you know your need of me, turn unto me, and I will have mercy upon you: and to our God, for he will abundantly pardon."

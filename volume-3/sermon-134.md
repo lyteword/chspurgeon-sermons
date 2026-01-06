@@ -2,8 +2,8 @@
 
 Sermon No. 134 - Delivered on Sabbath Morning, May 31, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "How long halt ye between two opinions? If the Lord be God, follow him; if Baal, then follow him."  
-> 1 Kings 18:21.  
+> How long halt ye between two opinions? If the Lord be God, follow him; if Baal, then follow him.    
+> 1 Kings 18:21.    
 
 IT WAS A DAY to be remembered, when the multitudes of Israel were assembled at the foot of Carmel and when the solitary prophet of the Lord came forth to defy the four hundred and fifty priests of the false god. We might look upon that scene with the eye of historical curiosity, and we should find it rich with interest. Instead of doing so, however, we shall look upon it with the eye of attentive consideration, and see whether we can not improve by its teachings. We have upon that hill of Carmel, and along the plain, three kinds of persons. We have first the devoted servant of Jehovah, a solitary prophet; we have, on the other hand, the decided servants of the evil one, the four hundred and fifty prophets of Baal; but the vast mass of that day belonged to a third class--they were those who had not fully determined whether fully to worship Jehovah, the God of their fathers, or Baal, the god of Jezebel. On the one hand, their ancient traditions led them to fear Jehovah, and on the other hand, their interest at court led them to bow before Baal. Many of them therefore, were secret and half-hearted followers of Jehovah, while they were the public worshipers of Baal. The whole of them at this juncture were halting between two opinions. Elijah does not address his sermon to the priests of Baal; he will have something to say to them by-and-by, he will preach them horrible sermons in deeds of blood. Nor has he aught to say to those who are the thorough servants of Jehovah, for they are not there; but his discourse is alone directed to those who are halting between two opinions.
 
@@ -41,20 +41,20 @@ I will tell them; ye will halt between two opinions, all of you who are undecide
 
 You may decide for him merely as an outward form, but not as an inward spiritual thing, which should possess your heart as a Christian, as a believer in the doctrine of effectual grace. I know that none of you will ever decide for God's gospel, unless God decide you; and I tell you that you must either be decided by the descent of the fire of his Spirit into your hearts now, or else in the day of judgment. O! which shall it be? O! that the prayer might be put up by the thousand lips that are here: "Lord, decide me now by the fire of thy Spirit; O! let thy Spirit descend into my heart, to burn up the bullock, that I may be a whole burnt offering to God; to burn up the wood and the stones of my sin; to burn up the very dust of worldliness; ah, and to lick up the water of my impiety, which now lieth in the trenches, and my cold indifference, that seek to put out the sacrifice."
 
-> "O make this heart rejoice or ache!  
-> Decide this doubt for me;  
-> And if it be not broken, break,  
-> And heal it, if it be."  
-> "O sovereign grace, my heart subdue;  
-> I would be led in triumph too,  
-> A willing captive to my Lord,  
-> To sing the triumphs of his word."  
+> O make this heart rejoice or ache!    
+> Decide this doubt for me;    
+> And if it be not broken, break,    
+> And heal it, if it be."    
+> "O sovereign grace, my heart subdue;    
+> I would be led in triumph too,    
+> A willing captive to my Lord,    
+> To sing the triumphs of his word.    
 
 And it may be, that whilst I speak, the mighty fire, unseen by men, and unfelt by the vast majority of you, shall descend into some heart which has of old been dedicated to God by his divine election, which is now like an altar broken down, but which God, by his free grace, will this day build up. O! I pray that that influence may enter into some hearts, that there may be some go out of this place, saying,
 
-> "Tis done, the great transaction's done,  
-> I am my Lord's, and he is mine;  
-> He drew me, and I followed on,  
-> Glad to obey the voice divine."  
+> Tis done, the great transaction's done,    
+> I am my Lord's, and he is mine;    
+> He drew me, and I followed on,    
+> Glad to obey the voice divine.    
 
 Now rest my undivided heart, fixed on this stable center, rest." O! that many may say that! But remember, if it be not so, the day is coming--dies irae, the day of wrath and anger--when ye shall be decided of God; when the firmament shall be lit up with lightnings, when the earth shall roll with drunken terror, when the pillars of the universe shall shake, and God shall sit, in the person of his Son, to judge the world in righteousness. You will not be undecided then, when, "Depart ye cursed," or "Come, ye blessed," shall be your doom. There will be no indecision then, when you shall meet him with joy or else with terror--when, "rocks hide me, mountains on me fall," shall be your doleful shriek; or else your joyful song shall be, "The Lord is come." In that day you will be decided; but till then, unless the living fire of the Holy Spirit decide you, you will go on halting between two opinions. May God grant you his Holy Spirit that you may turn unto him and be saved!

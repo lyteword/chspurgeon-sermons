@@ -2,8 +2,8 @@
 
 Sermon No. 213 - Delivered on Sabbath Morning, September 12, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Our Father which art in heaven."  
-> Matthew 6:9.  
+> Our Father which art in heaven.    
+> Matthew 6:9.    
 
 I THINK there is room for very great doubt, whether our Saviour intended the prayer, of which our text forms a part, to be used in the manner in which it is commonly employed among professing Christians. It is the custom of many persons to repeat it as their morning prayer, and they think that when they have repeated these sacred words they have done enough. I believe that this prayer was never intended for universal use. Jesus Christ taught it not to all men, but to his disciples, and it is a prayer adapted only to those who are the possessors of grace, and are truly converted. In the lips of an ungodly man it is entirely out of place. Doth not one say, "Ye are of your father the devil, for his works ye do?" Why, then, should ye mock God by saying, "Our Father which art in heaven." For how can he be your Father? Have ye two Fathers? And if he be a Father, where is his honor? Where is his love? You neither honor nor love him, and yet you presumptuously and blasphemously approach him, and say, "Our Father," when your heart is attached still to sin, and your life is opposed to his law, and you therefore prove yourself to be an heir of wrath, and not a child of grace! Oh! I beseech you, leave off sacrilegiously employing these sacred words; and until you can in sincerity and truth say, "Our Father which art in heaven," and in your lives seek to honor his holy name, do not offer to him the language of the hypocrite, which is an abomination to him.
 
@@ -29,33 +29,33 @@ But if this sonship involves the love of God to us, it involves also, the duty o
 
 Furthermore, if we say "Our Father which art in heaven," we must recollect that our being sons involves the duty of obedience to God. When I say "My Father," it is not for me to rise up and go in rebellion against his wishes; if he be a father, let me note his commands, and let me reverentially obey; if he hath said "Do this," let me do it, not because I dread him, but because I love him; and if he forbids me to do anything, let me avoid it. There are some persons in the world who have not the spirit of adoption, and they can never be brought to do a thing unless they see some advantage to themselves in it; but with the child of God, there is no motive at all; he can boldly say, "I have never done a right thing since I have followed Christ because I hoped to get to heaven by it, nor have I ever avoided a wrong thing because I was afraid of being damned." For the child of God knows his good works do not make him acceptable to God, for he was acceptable to God by Jesus Christ long before he had any good works; and the fear of hell does not affect him, for he knows that he is delivered from that, and shall never come into condemnation, having passed from death unto life. He acts from pure love and gratitude, and until we come to that state of mind, I do not think there is such a thing as virtue; for if a man has done what is called a virtuous action because he hoped to get to heaven or to avoid hell by it, whom has he served? Has he not served himself? and what is that but selfishness? But the man who has no hell to fear and no heaven to gain, because heaven is his own and hell he never can enter, that man is capable of virtue; for he says--
 
-> "Now for the love I bear his name,  
-> What was my gain I count my loss;  
-> I pour contempt on all my shame,  
-> And nail my glory to his cross"--  
+> Now for the love I bear his name,    
+> What was my gain I count my loss;    
+> I pour contempt on all my shame,    
+> And nail my glory to his cross"--    
 
 to his cross who loved, and lived, and died for me who loved him not, but who desires now to love him with all my heart, and soul, and strength.
 
 And now permit me to draw your attention to one encouraging thought that may help to cheer the downcast and Satan-tempted child of God. Sonship is a thing which all the infirmities of our flesh, and all the sins into which we are hurried by temptation, can never violate or weaken. A man hath a child; that child on a sudden is bereaved of its senses; it becomes an idiot. What a grief that is to a father, for a child to become a lunatic or an idiot, and to exist only as an animal, apparently without a soul! But the idiot child is a child, and the lunatic child is a child still; and if we are the fathers of such children they are ours, and all the idiocy and all the lunacy that can possibly befall them can never shake the fact that they are our sons. Oh! what a mercy, when we transfer this to God's case and ours! How foolish we are sometimes--how worse than foolish! We may say as David did, "I was as a beast before thee." God brings before us the truths of his kingdom; we cannot see their beauty, we cannot appreciate them; we seem to be as if we were totally demented ignorant, unstable, weary, and apt to slide. But, thanks be unto God, we are his children still! And if there be anything worse that can happen to a father than his child becoming a lunatic or an idiot, it is when he grows up to be wicked. It is well said, "Children are doubtful blessings." I remember to have heard one say, and, as I thought, not very kindly, to a mother with an infant at her breast--"Woman! you may be suckling a viper there." It stung the mother to the quick, and it was not needful to have said it. But how often is it the fact, that the child that has hung upon its mother's breast, when it grows up, brings that mother's grey hairs with sorrow to the grave!
 
-> "Oh! sharper than a serpent's tooth  
-> To have a thankless child!"  
+> Oh! sharper than a serpent's tooth    
+> To have a thankless child!    
 
 ungodly, vile, debauched--a blasphemer! But mark, brethren: if he be a child he cannot lose his childship, nor we our fatherhood, be he who or what he may. Let him be transported beyond the seas, he is still our son; let us deny him the house because his conversation might lead others of our children into sin, yet our son he is, and must be, and when the sod shall cover his head and ours, "father and son" shall still be on the tombstone. The relationship never can be severed as lone as time shall last. The prodigal was his father's son, when he was amongst the harlots, and when he was feeding swine; and God's children are God's children anywhere and everywhere, and shall be even unto the end. Nothing can sever that sacred tie, or divide us from his heart.
 
 There is yet another thought that may cheer the Little-faiths and Feeble minds. The fatherhood of God is common to all his children. Ah! Little-faith, you have often looked up to Mr. Great-heart, and you have said, "Oh that I had the courage of Great-heart, that I could wield his sword and cut old giant Grim in pieces! Oh that I could fight the dragons, and that I could overcome the lions! But I am stumbling at every straw, and a shadow makes me afraid." List thee, Little-faith. Great-heart is God's child, and you are God's child too; and Great-heart is not a whit more God's child than you are. David was the son of God, but not more the son of God than thou. Peter and Paul, the highly-favored apostles, were of the family of the Most High; and so are you. You have children yourselves; one is a son grown up, and out in business, perhaps, and you have another, a little thing still in arms. Which is most your child the little one or the big one? "Both alike," you say. "This little one is my child near my heart and the big one is my child too." And so the little Christian is as much a child of God as the great one.
 
-> "This cov'nant stands secure,  
-> Though earth's old pillars bow;  
-> The strong, the feeble, and the weak,  
-> Are one in Jesus now;"  
+> This cov'nant stands secure,    
+> Though earth's old pillars bow;    
+> The strong, the feeble, and the weak,    
+> Are one in Jesus now;    
 
 and they are one in the family of God, and no one is ahead of the other. One may have more grace than another, but God does not love one more than another. One may be an older child than another, but he is not more a child; one may do more mighty works, and may bring more glory to his Father, but he whose name is the least in the kingdom of heaven is as much the child of God as he who stands among the king's mighty men. Let this cheer and comfort us, when we draw near to God and say, "Our Father which art in heaven."
 
 I will make but one more remark before I leave this point, namely, this,--that our being the children of God brings with it innumerable privileges. Time would fail me, if I were to attempt to read the long roll of the Christian's joyous privileges. I am God's child: if so, he will clothe me; my shoes shall be iron and brass; he will array me with the robe of my Saviour's righteousness, for he has said, "Bring forth the best robe and put it on him," and he has also said that he will put a crown of pure gold upon my head and inasmuch as I am a king's son, I shall have a royal crown. Am I his child? Then he will feed me; my bread shall be given me, and my water shall be sure; he that feeds the ravens will never let his children starve. If a good husbandman feeds the barn-door fowl, and the sheep and the bullocks, certainly his children shall not starve. Does my Father deck the lily, and shall I go naked? Does he feed the fowls of the heaven that sow not, neither do they reap, and shall I feel necessity? God forbid! My Father knoweth what things I have need of before I ask him, and he will give me all I want. If I be his child, then I have a portion in his heart here, and I shall have a portion in his house above. for "if children then heirs, heirs of God and joint heirs with Christ," "If we suffer with him we shall be also glorified together." And oh! brethren, what a prospect this opens up! The fact of our being heirs of God and joint-heirs with Christ, proves that all things are ours--the gift of God, the purchase of a Saviour's blood.
 
-> "This world is ours, and worlds to come;  
-> Earth is our lodge, and heaven our home."  
+> This world is ours, and worlds to come;    
+> Earth is our lodge, and heaven our home.    
 
 Are there crowns? They are mine if I be an heir. Are there thrones? Are there dominions? Are there harps, palm branches, white robes? Are there glories that eye hath not seen? and is there music that ear hath not heard? All these are mine, if I be a child of God. "And it doth not yet appear what we shall be, but we know that when he shall appear, we shall be like him, for we shall see him as he is." Talk of princes, and kings, and potentates: Their inheritance is but a pitiful foot of land, across which the bird's wing can soon direct its flight; but the broad acres of the Christian cannot be measured by eternity. He is rich, without a limit to his wealth. he is blessed, without a boundary to his bliss. All this, and more than I can enumerate, is involved in our being able to say, "Our Father which art in heaven."
 

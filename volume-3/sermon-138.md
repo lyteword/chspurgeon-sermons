@@ -2,8 +2,8 @@
 
 Sermon No. 138 - Delivered on Sabbath Morning, June 28, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Thus saith the Lord God; I will yet for this be enquired of by the house of Israel to do it for them; I will increase them with men like a flock."  
-> Ezekiel 36:37.  
+> Thus saith the Lord God; I will yet for this be enquired of by the house of Israel to do it for them; I will increase them with men like a flock.    
+> Ezekiel 36:37.    
 
 IN reading the chapter we have seen the great and exceeding precious promises which God had made to the favored nation of Israel. God in this verse declares, that though the promise was made, and though he would fulfill it, yet he would not fulfill it until his people asked him so to do. He would give them a spirit of prayer, by which they should cry earnestly for the blessing, and then when they should have cried aloud unto the living God, he would be pleased to answer them from heaven, his dwelling-place. The word used here to express the idea of prayer is a suggestive one. "I will yet for this be enquired of by the house of Israel." Prayer, then, is an enquiry. No man can pray aright, unless he views prayer in that light. First, I enquire what the promise is. I turn to my Bible and I seek to find the promise whereby the thing which I desire to seek is certified to me as being a thing which God is willing to give. Having enquired so far as that, I take that promise, and on my bended knees I enquire of God whether he will fulfill his own promise. I take to him his own word of covenant, and I say to him, "O Lord, wilt thou not fulfill it, and wilt thou not fulfill it now?" So that there, again, prayer is enquiry. After prayer I look out for the answer; I expect to be heard, and if I am not answered I pray again, and my repeated prayers are but fresh enquiries. I expect the blessing to arrive; I go and enquire whether there is any tidings of its coming. I ask; and thus I say "Wilt thou answer me, O Lord? Wilt thou keep thy promise? Or wilt thou shut up thine ear, because I misunderstand my own wants and mistake thy promise." Brethren, we must use enquiry in prayer, and regard prayer as being, first, an enquiry for the promise, and shell on the strength of that promise an enquiry for the fulfillment. 
 
@@ -43,10 +43,10 @@ I think it is, in the first place, because God loves that man should have some r
 
 But there is another reason. God would make prayer the preface to mercy, because often prayer itself gives the mercy. You are full of fear and sorrow, you want comfort, God says, pray, and you shall get it; and the reason is because prayer is of itself a comforting exercise. We are all aware, that when we have any heavy news upon our minds, it often relieves us if we can tell a friend about it. Now there are some troubles we would not tell to others, for perhaps many minds could not sympathize with us: God has therefore provided prayer, as a channel for the flow of grief. "Come," saith he, "thy troubles may find vent here; come, put them into my ear; pour out thine heart before me, and so wilt thou prevent its bursting. If thou must weep, come and weep at my mercy-seat; if thou must cry come and cry in the closet, and I will hear thee." And how often have you and I tried that! We have been on our knees overwhelmed with sorrow, and we have risen up, and said, "Ah! I can meet it all now!"
 
-> "Now I can say my God is mine  
-> Now I can all my joys resign,  
-> Can tread the world beneath my feet,  
-> And all that earth calls good or great."  
+> Now I can say my God is mine    
+> Now I can all my joys resign,    
+> Can tread the world beneath my feet,    
+> And all that earth calls good or great.    
 
 Prayer itself sometimes gives the mercy.
 

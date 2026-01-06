@@ -4,8 +4,8 @@ This sermon was originally printed together with a pastoral letter from C. H. S.
 
 Sermon No. 221 - Delivered on Sabbath Evening, September 21, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Comfort ye, comfort ye my people, saith your God."  
-> Isaiah 40:1.
+> Comfort ye, comfort ye my people, saith your God.    
+> Isaiah 40:1.    
 
 WHAT A SWEET TITLE: "My people!" What a cheering revelation: "Your God!" How much of meaning is couched in those two words, "My people!" Here is speciality. The whole world is God's; the heaven, even the heaven of heavens are the Lord's and he reigneth among the children of men. But he saith of a certain number, "My people." Of those whom he hath chosen, whom he hath purchased to himself, he saith what he saith not of others. While nations and kindreds are passed by as being simply nations, he says of them "My people." In this word there is the idea of proprietorship to teach us that we are the property of God. In some special manner the "Lord's portion is his people; Jacob is the lot of his inheritance." All the nations upon earth are his; he taketh up the isles as a very little thing; the whole world is in his power; yet are his people, his chosen, favoured people, more especially his possesion; for he has done more for them than others; he has bought them with his blood; he has brought them nigh to himself; he has set his great heart upon them; he has loved them with an everlasting love, a love which many waters cannot quench, and which the revolutions of time shall never suffice in the least degree to diminish. "My people!" O my hearers, can you by faith put yourselves in that number who believe that God says of them, "My people?" Can you look up to heaven to-night, and say, "My Lord, and my God: mine by that sweet relationship which entitles me to call thee Father; mine by that hallowed fellowship which I delight to hold with thee when thou art pleased to manifest thyself unto me as thou dost not unto the world?" Canst thou, beloved, put thine hand into thine heart and find there the indentures of thy salvation? Canst thou read thy title writ in precious blood? Canst thou by humble faith lay hold of Jesus's garments, and say, "My Christ?" If thou canst, then God saith of thee, "My people;" for if God be your God, and Christ your Christ, the Lord has a special, peculiar favour to you; you are the object of his choice, and you shall be accepted, at last, in his beloved Son. 
 
@@ -29,14 +29,14 @@ But, my friends, do not support your ministers as an excuse for the discharge of
 
 If I were an orphan now, and needed a helper, I would seek one who had been an orphan in his youth, that he might sympathize with me. Were I houseless and poor, I would not go to the man who has rolled in wealth from earliest youth, but I would seek out the man who, like myself, has trodden with bare feet the cold pavement of the street at midnight; I would seek out the man who, penniless and poor, has begged his way from town to town, and then, by God's providence, has worked himself up; for I could believe that such an one would have a heart to sympathize with me. Go, thou poor tried one, go thou weather-beaten soul if thou canst, and call to thy mate, who is just out at sea with thee, and tell him to be of good cheer. Thou who art in the valley of the shadow of death, sing, "Yea, though I walk through the valley of the shadow of death, I will fear no evil;" and mayhap some brother far behind thee will hear the song, and will take heart.
 
-> "Lives of great men all remind us,  
-> We can make our lives sublime,  
-> And departing, leave behind us,  
-> Foot-prints on the sands of time.  
-> Foot-prints that, perhaps, another,  
-> Sailing o'er life's solemn main,  
-> A forlorn and shipwrecked brother,  
-> Seeing, may take heart again."  
+> Lives of great men all remind us,    
+> We can make our lives sublime,    
+> And departing, leave behind us,    
+> Foot-prints on the sands of time.    
+> Foot-prints that, perhaps, another,    
+> Sailing o'er life's solemn main,    
+> A forlorn and shipwrecked brother,    
+> Seeing, may take heart again.    
 
 Go, and when thou hast found any good, strive to perpetuate it by communicating it to others. When thy foot is on the rock, show others how to put their feet there. When thou art glad, tell others how thou wast made glad, and the same cordial which cheered thee may cheer them likewise. "Comfort ye, comfort ye my people."
 
@@ -60,17 +60,17 @@ Go and cheer him. What! are there no families near you where the head has lately
 
 In the last place. God never gives his children a duty to do without giving them THE MEANS TO DO IT; he never bids them make bricks without straw, and when he tells us to comfort God's people, we may be certain there are many means whereby they may be comforted. Let me just hint at those things in the everlasting gospel which have a tendency to comfort the saints. What, child of God! Art thou at a loss for a topic to comfort the aching heart? Hark thee, then; go tell of the ancient things of former days; whisper in the mourner's ear electing grace, and redeeming mercy, and dying love. When thou findest a troubled one, tell him of the covenant, in all things ordered well, signed, sealed, and ratified; tell him what the Lord hath done in former days, how he cut Rahab and wounded the dragon; tell him the wondrous story of God's dealings with his people. Tell him that God who divided the Red sea can make a highway for his people through the deep waters of affliction; that he who appeared in the burning bush which was not consumed, will support him in the furnace of tribulation. Tell him of the marvellous things which God has wrought for his chosen people: surely there is enough there to comfort him. Tell him that God watcheth the furnace as the goldsmith the refining pot."
 
-> Thy days of trial then,  
-> Are all ordained by heaven;  
-> If he appoint the number ten,'  
-> You ne'er shall have eleven."  
+> Thy days of trial then,    
+> Are all ordained by heaven;    
+> If he appoint the number ten,'    
+> You ne'er shall have eleven.    
 
 If that does not suffice, tell him of his present mercies; tell him that he has much left, though much is gone. Tell him there is "now no condemnation to them which are in Christ Jesus;" tell him that now he is accepted in the beloved; tell him that he is now adopted, and that his standing is safe. Tell him that Jesus is above, wearing the breast-plate, or pleading his cause. Tell him that though earth's pillars shake, God is a refuge for us; tell the mourner that the everlasting God faileth not, neither is weary. Let present facts suffice thee to cheer him.
 
 But if this is not enough, tell him of the future; whisper to him that there is a heaven with pearly gates and golden streets; tell him that
 
-> "A few more rolling suns at most,
-> Will land him on fair Canaan's coast."
+> A few more rolling suns at most,    
+> Will land him on fair Canaan's coast.    
 
 and therefore he may well bear his sorrows. Tell him that Christ is coming, and that his sign is in the heavens, his advent is near, he will soon appear to judge the earth with equity, and his people in righteousness. And if that suffice not, tell him all about that God who lived and died. Take him to Calvary; picture to him the bleeding hands, and side, and feet; tell him of the thorn-crowned King of grief; tell him of the mighty Monarch of woe and blood, who wore the scarlet of mockery which was yet the purple of the empire of grief; tell him that he himself bore our sins in his own body on the tree. And if I have not said enough, go to thy Bible, read its pages, bend thy knee and ask for guidance, and then tell him some great and precious promise, that so thou mayest accomplish thy mission, and comfort one of God's people.
 

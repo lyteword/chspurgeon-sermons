@@ -2,8 +2,8 @@
 
 Sermon No. 88 - Delivered on Sabbath Evening, June 22, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Do as thou hast said.'  
-> 2 Samuel 7:25.  
+> Do as thou hast said.    
+> 2 Samuel 7:25.    
 
 NATHAN had been giving to David, on God's behalf, sundry exceeding great and precious promises. David expresses his gratitude to God for having so promised, and he says, "Now, O Lord God, the word that thou hast spoken concerning thy servant, and concerning his house, establish it for ever, and do as thou hast said.'
 
@@ -37,10 +37,10 @@ But when faith in all its raggedness and poverty, and sickness about it, goes to
 
 Another remark. Faith has very good reasons for appealing to God to do as he has said. If you should say to faith, "Faith, why do you expect God to do as he has said it, why do you expect it?" Faith would answer, "I have a whole bundle of reasons that justify the act. And in the first place, I have a right to expect him to do as he has said, because he is a true God; I know he cannot lie. He has said he will give me such-and-such a thing; if he was not a truthful God, I would not say, do as thou hast said!' but since he is a true God, and never was known to break his promise, and since, moreover, by two immutable things, wherein it is impossible for God to lie--his oath and his promise--he has made the thing secure; and since I know that in Christ all the promises are yea and amen, I think I have good reason enough for going to him and saying, do as thou hast said.' If he were some fallible being who promised and would not perform, I might hesitate somewhat; but since he is always true and constantly precious, I will go and say to him, Lord, do as thou hast said.'" Poor sinner! God has said, "He that confesseth his sin shall find mercy." Now, if you go to God, you want no other plea than this,--"Lord, do as thou hast said;' I have confessed my sins;' do as thou hast said.'" "But, sinner, why should I do as I have said? you do not deserve it." "Lord, thou art a true God."
 
-> "Thou hast promised to forgive,  
-> All who on thy Son believe;  
-> Lord I know thou canst not lie,  
-> Give me Christ or else I die."  
+> Thou hast promised to forgive,    
+> All who on thy Son believe;    
+> Lord I know thou canst not lie,    
+> Give me Christ or else I die.    
 
 Go, poor sinner, tell the Lord that, and as truly as he is God, he will never send you empty away. Faith has good reasons to feel that God is true, and therefore he will do as he has said. And not only so, but he is able to do it; his ability is infinite. His intentions also are the same, his promises never get worn out by being circulated, and they become all the more sure for being tried. Poor sinner, here again is a joyful thought: thou canst go to God, and say, "Lord thou hast promised to wash away all our iniquities, and cast them into the depths of the sea. Lord, if thou hadst been a changeable God, I might have thought thou wouldst not wash away mine, but thou didst wash Manasseh, and thou didst wash Paul; now, Lord, because thou art unchangeable, do as thou hast said.' For thou art just the same now, just as merciful, just as powerful, and just as kind as ever thou wert. What, wilt thou break thy promise, Lord? Do as thou hast said.'"
 

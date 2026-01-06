@@ -2,8 +2,8 @@
 
 Sermon No. 239 - Delivered on Sabbath Morning, January 16th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Jacob have I loved, but Esau have I hated."  
-> Romans 9:15.  
+> Jacob have I loved, but Esau have I hated.    
+> Romans 9:15.    
 
 DO NOT IMAGINE for an instant that I pretend to be able thoroughly to elucidate the great mysteries of predestination. There are some men who claim to know all about the matter. They twist it round their fingers as easily as if it were an everyday thing; but depend upon it, he who thinks he knows all about this mystery, knows but very little. It is but the shallowness of his mind that permits him to see the bottom of his knowledge; he who dives deep, finds that there is in the lowest depth to which he can attain a deeper depth still. The fact is, that the great questions about man's responsibility, free-will, and predestination, have been fought over, and over, and over again, and have been answered in ten thousand different ways; and the result has been, that we know just as much about the matter as when we first began. The combatants have thrown dust into each other's eyes, and have hindered each other from seeing; and then they have concluded, that because they put other people's eyes out, they could therefore see.
 
@@ -23,8 +23,8 @@ Do you not see the fact, that God does not treat every man alike? He has made so
 
 Though, I believe to a degree, the Spirit works in the hearts of all who hear the Word, so that they are all without excuse, yet I am sure he works in some so powerfully, that they can no longer resist him, but are constrained by his grace to cast themselves at his feet, and confess him Lord of all; while others resist the grace that comes into their hearts; and it does not act with the same irresistible force that it does in the other case, and they perish in their sins, deservedly and justly condemned. Are not these things facts? Does any man deny them? can any man deny them? What is the use of kicking against facts? I always like to know when there is a discussion, what is the fact. You have heard the story of King Charles the Second and the philosophers--King Charles asked one of them, "What is the reason why, if you had a pail of water, and weighed it, and then put a fish into it, that the weight would be the same?" They gave a great many elaborate reasons for this. At last one of them said, "Is it the fact?" And then they found out that the water did weigh more, just as much more as the fish put into it. So all their learned arguments fell to the ground. So, when we are talking about election, the best thing is to say, "Put aside the doctrine for a moment, let us see what is the fact?" We walk abroad; we open our eyes; we see, there is the fact. What, then, is the use of our discussing any longer? We had better believe it, since it is an undeniable truth. You may alter an opinion, but you cannot alter a fact. You may change a mere doctrine, but you cannot possibly change a thing which actually exists. There it is--God does certainly deal with some men better than he does with others. I will not offer an apology for God; he can explain his own dealings; he needs no defence from me,
 
-> "God is his own interpreter,  
-> And he will make it plain;"  
+> God is his own interpreter,    
+> And he will make it plain;    
 
 but there stands the fact. Before you begin to argue upon the doctrine, just recollect, that whatever you may think about it, you cannot alter it; and however much you may object to it, it is actually true that God did love Jacob, and did not love Esau.
 

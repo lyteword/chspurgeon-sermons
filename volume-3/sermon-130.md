@@ -2,8 +2,8 @@
 
 Sermon No. 130 - Delivered on Sabbath Morning, May 3, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Except a man be born again, he can not see the kingdom of God."  
-> John 3:3.  
+> Except a man be born again, he can not see the kingdom of God.    
+> John 3:3.    
 
 In daily life our thoughts are most occupied with things that are most necessary for our existence. No one murmured that the subject of the price of bread was frequently on the lips of men at a time of scarcity, because they felt that the subject was one of vital importance to the mass of the population? and therefore they murmured not, though they listened to continual declamatory speeches, and read perpetual articles in the newspapers concerning it. I must offer the same excuse, then, for bringing before you this morning the subject of regeneration. It is one of absolute and vital importance; it is the hinge of the gospel; it is the point upon which most Christians are agreed, yea, all who are Christians in sincerity and truth. It is a subject which lies at the very basis of salvation. It is the very groundwork of our hopes for heaven; and as we ought to be very careful of the basement of our structure, so should we be very diligent to take heed that we are really born again, and that we have made sure work of it for eternity. There are many who fancy they are born again who are not. It well becomes us, then, frequently to examine ourselves; and it is the minister's duty to bring forward those subjects which lead to self-examination, and have a tendency to search the heart and try the reins of the children of men.
 
@@ -39,8 +39,8 @@ Well, there is no such a heaven yet made; and therefore there is no heaven for y
 
 But there are some other reasons; there are reasons why
 
-> "Those holy gates for ever bar  
-> Pollution, sin, and shame."  
+> Those holy gates for ever bar    
+> Pollution, sin, and shame.    
 
 There are reasons, besides those in yourselves, why you can not see the kingdom of God, unless you are born again. Ask yon spirits before the throne: "Angels, principalities and powers, would ye be willing that men who love not God, who believe not in Christ, who have not been born again, should dwell here?" I see them, as they look down upon us, and hear them answering, "No! Once we fought the dragon and expelled him because he tempted us to sin; we must not and we will not, have the wicked here. These alabaster walls must not be soiled with black and lustful fingers; the white pavement of heaven must not be stained and rendered filthy by the unholy feet of ungodly men. No!" I see a thousand spears bristling, and the fiery faces of a myriad seraphs thrust over the walls of Paradise. "No, while these arms have strength, and these wings have power, no sin shall ever enter here." I address myself moreover to the saints in heaven, redeemed by sovereign grace: "Children of God, are ye willing that the wicked should enter heaven as they are, without being born again? Ye love men, say, say, say, are ye willing that they should be admitted as they are?" I see Lot rise up, and he cries, "Admit them into heaven! No! What! must I be vexed with the conversation of Sodomites again, as once I was?" I see Abraham; and he comes forward, and he says, "No; I can not have them here. I had enough of them while I was with them on earth--their jests and jeers, their silly talkings, their vain conversation, vexed and grieved us. We want them not here." And, heavenly though they be, and loving as their spirits are, yet there is not a saint in heaven who would not resent with the utmost indignation the approach of any one of you to the gates of paradise, if you are still unholy, and have not been born again.
 
@@ -50,8 +50,8 @@ Go, crawling grasshopper; go, fight with thy brothers; strive with them, but com
 
 Now, my friends, A LITTLE EXPOSTULATION WITH YOU, and then farewell. I hear one man say, "Well, well, well, I see it. I will hope that I shall be born again after I am dead." O, sir, believe me, you will be a miserable fool for your pains. When men die their state is fixed.
 
-> "Fixed as their everlasting state,  
-> Could they repent, tis now too late."  
+> Fixed as their everlasting state,    
+> Could they repent, tis now too late.    
 
 Our life is like that wax melting in the flame; death puts its stamp on it, and then it cools, and the impress never can be changed. You to-day are like the burning metal running forth from the cauldron in the mold; death cools you in your mold, and you are cast in that shape throughout eternity. The voice of doom crieth over the dead, "He that is holy let him be holy still; he that is unjust let him be unjust still; he that is filthy, let him be filthy still." The damned are lost forever; they can not be born again; they go on cursing, ever being cursed ; ever fighting against God, and ever being trampled beneath his feet; they go on ever mocking, ever being laughed at for their mockery; ever rebelling and ever being tortured with the whips of conscience, because they are ever sinning. They can not be regenerated because they are dead.
 

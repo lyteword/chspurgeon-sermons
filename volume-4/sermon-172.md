@@ -2,8 +2,8 @@
 
 Sermon No. 172 - Delivered on Sabbath Morning, January 17, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "To the law and to the testimony; if they speak not according to this word, it is because there is no light in them."  
-> Isaiah 8:20.  
+> To the law and to the testimony; if they speak not according to this word, it is because there is no light in them.    
+> Isaiah 8:20.    
 
 WHEN men will not learn of God, how huge their folly grows! If they despise the wisdom that is from above, how grievously does God allow them to prove their own ignorance! When a man will not bow down before God the Most High, immediately he buildeth for himself an idol; he maketh an image of wood or stone, and he degradeth himself by bowing before the work of his own hands. When men will not receive the Scripture testimony concerning God's creation, straightway they begin to form theories that are a thousand times more ridiculous than they have ever endeavoured to make the Bible account of it, for God leaveth them, if they will not accept his solution of the problem, to grope for another, and their own solution is so absurd, that all the world except themselves hath sense enough to laugh at it. And when men leave the Sacred Book of Revelation, ah! my friends, where do they go? We find that in Isaiah's time they went to strange places; for he says in the 19th verse, that they sought unto familiar spirits, unto wizards that did peep and mutter; yea, they sought for things concerning the living, amongst the dead, and became the dupes of necromancers. It is marvellous that the men who most of all rail at faith are remarkable for credulity. One of the greatest unbelievers in the world, who has called himself a free-thinker from his birth, is to be found now tottering into his tomb, believing the veriest absurdity that a child might confute. Not caring to have God in their hearts, forsaking the living foundation, they have hewn out to themselves cisterns which are broken, and hold no water. 
 
@@ -47,10 +47,10 @@ But again: I do not like a man who is always looking out for error. That man has
 
 Now, Bible readers, you can attain this confidence, but you can get it nowhere else but at the foot of Scripture. Hear ministers alone, and ye shall be led to doubt, for one of them shall confound what his brought sought to prove; but read your Bibles, and when ye get the Word legible by its own light, impressed upon your own hearts by the Holy Spirit, then
 
-> "Should all the forms that men devise,  
-> Assault your faith with treacherous art,  
-> You'll call them vanity and lies,  
-> And bind the gospel to your heart."  
+> Should all the forms that men devise,    
+> Assault your faith with treacherous art,    
+> You'll call them vanity and lies,    
+> And bind the gospel to your heart.    
 
 Furthermore, search the Scriptures, and bring everything you hear to this great test, because in so doing you will get a rich harvest of blessing to your own soul. I suppose there is scarce a text in Holy that has not been the instrument of the salvation of a soul. Now, "he that walketh among wise men will be wise;" and he that walks amongst the wise men that wrote Holy Scripture stands at least the highest probability of being made wise unto salvation. If I desired to put myself into the most likely place for the Lord to meet with me, I should prefer the house of prayer, for it is in preaching, that the Word is most blessed; but still I think I should equally desire the reading of the Scriptures; for I might pause over every verse, and say, "Such a verse was blessed to so many souls; then, why not to me? I am at least in the pool of Bethesda; I am walking amongst its porches, and who can tell but that the angel will stir the pool of the Word, whilst I lie helplessly by the side of it, waiting for the blessing?" Yea, the truth is so great, that God has blessed every word of Scripture, that I remember a striking anecdote of the conversion of a man by a passage of Scripture that did not seem adapted for any such purpose. You know that chapter in Genesis, that very dull chapter, where we read, "and Methusaleh lived 969 years, and he died," and such a one lived so many years and he died? 
 

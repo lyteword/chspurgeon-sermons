@@ -2,8 +2,8 @@
 
 Sermon No. 200 - Delivered on Sabbath Morning, June 13, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And so I saw the wicked buried, who had come and gone from the place of the holy and they were forgotten in the city where they had so done: this is also vanity."  
-> Ecclesiastes 8:10.  
+> And so I saw the wicked buried, who had come and gone from the place of the holy and they were forgotten in the city where they had so done: this is also vanity.    
+> Ecclesiastes 8:10.    
 
 IT IS QUITE CERTAIN that there are immense benefits attending our present mode of burial in extra mural cemeteries. It was high time that the dead should be removed from the midst of the living--that we should not worship in the midst of corpses, and sit in the Lord's house on the Sabbath, breathing the noxious effluvia of decaying bodies. But when we have said this, we must remember that there are some advantages which we have lost by the removal of the dead, and more especially by the wholesale mode of burial which now seems very likely to become general. We are not so often met by the array of dead. In the midst of our crowded cities we sometimes see the sable hearse bearing the relics of men to their last homes, but the funeral ceremonies are now mostly confined to those sweet sleeping places beyond our walks, where rest the bodies of those who are very dear to us. Now, I believe the sight of a funeral is a very healthful thing for the soul. Whatever harm may come to the body by walking through the vault and the catacomb, the soul can there find much food for contemplation, and much excitement for thought. In the great villages, where some of us were wont to dwell, we remember how when the funeral came now and then, the tolling of the bell preached to all the villagers a better sermon than they had heard in the church for many a day, and we recollect, how as children, we used to cluster around the grave, and look at that which was not so frequent an occurrence in the midst of a rare and spare population; and we remember the solemn thoughts which used to arise even in our young hearts when we heard the words uttered, "Earth to earth, ashes to ashes, dust to dust." 
 
@@ -61,9 +61,9 @@ We may commend him for going; it is a respectable thing, perhaps, and right that
 
 But, sir, you will be more laughed at for your pretensions than if you had made none. Having professed to be religious, and having pretended to carry it out, you shall have more scorn than if you had came out in your right colors, and have said, "Who is the Lord, that I should fear him? Who is Jehovah, that I should obey his voice?" And now, are there any here who are so wicked as to choose eternal wrath? Have I any here so besotted as to choose destruction? Yes, yes, many; for if to-day, my hearer, thou art choosing sin; if thou art choosing self-righteousness, if thou art choosing pride, or lust, or the pleasures of this world, remember, thou art choosing damnation, for the two things cannot but go together. Sin is the guilt, and hell is the bread beneath it. If you choose sin, you have virtually chosen perdition. Think of this, I beseech you.
 
-> "O Lord! do thou the sinner turn!  
-> Now rouse him from his senseless state;  
-> O let him not thy counsel spurn,  
-> Nor rue his fatal choice too late."  
+> O Lord! do thou the sinner turn!    
+> Now rouse him from his senseless state;    
+> O let him not thy counsel spurn,    
+> Nor rue his fatal choice too late.    
 
 May the Lord lead you to Jesus Christ, who is the way, the truth and the life! And when ye are buried, may ye be buried with the righteous, and may your last end be like his!

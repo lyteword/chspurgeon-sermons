@@ -2,8 +2,8 @@
 
 Sermon No. 161 - Delivered on Sabbath Morning, November 1, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "As the mountains are round about Jerusalem, so the Lord is round about his people from henceforth even for ever."  
-> Psalm 125:2.  
+> As the mountains are round about Jerusalem, so the Lord is round about his people from henceforth even for ever.    
+> Psalm 125:2.    
 
 THE CHANGES of society may well illustrate the immutability of God. In the days of David, Jerusalem was looked upon as an impregnable fortress. It is surrounded by a natural rampart of hills; and appears to lie in the center of an amphitheatre raised purposely for its defense. By the ancient Jew it was considered to be an impregnable citadel. How changed now are the manners of war! A small troop could easily take the city, and it must indeed be a strong army that would be able to garrison it in its present condition. Yet whilst Jerusalem is changed, and the figure has become inappropriate, Jerusalem's God remains, for with him is "no variableness, neither shadow of turning." We must this morning consider the text, not as we should understand it in our day, but as we should have understood it in David's time. David looked upon the city of Jerusalem, and he thought within himself, "No army can ever be able to surprise this city, and however numerous may be the invading hosts, my people will always be able to hold their own in the midst of a city so firmly fortified both by nature and by art." In his time, indeed, and in the time of his son Solomon, I suppose it would have been utterly impossible for any enemy, possessed only of the tactics of ancient warfare, to have scaled those mighty ramparts of earth which God had piled about the city. And therefore, when David said in his day, "As the mountains are round about Jerusalem, so the Lord is round about his people;" he meant this--"As Jerusalem is fortressed by the mountains, so are God's people castled in the covenant, fortressed in the Omnipotence of God, and therefore they are impregnably secure. We shall thus understand the text, and endeavor this morning to work out the great thought of the security of God's people in the arms of Jehovah their Lord.
 
@@ -39,20 +39,20 @@ Thus we have disposed of the first point; THE CHURCH impregnably secure, fortres
 
 What is true of the mass is true of the unit. The fact which relates to the Church includes in it EVERY MEMBER OF THE CHURCH. God has fortressed his people; so that every believer is infallibly secure. There are in the world certain people who teach that Christ gives grace to men, and tells them, "Now, you shall be saved it you will persevere; but this must be left to yourself." This reminds me of an old Puritanical illustration, "The Duke of Alva having given some prisoners their lives, they afterwards petitioned him for some food. His answer was, that, he would grant them life but no meat.' And they were famished to death." The deniers of final perseverance represent the Deity in a similar view. God promises eternal life to the saints if they endure to the end,' but he will not secure to them the continuance of that grace without which eternal life cannot be had! Oh! surely if that were true, eternal life were not worth a fig to any of us. Unless our God who first saves us did engage to keep us alive and to provide for all our necessities, of what use were eternal life at all? But we bless his name,
 
-> "Whom once he loves he never leaves,  
-> But loves them to the end."  
+> Whom once he loves he never leaves,    
+> But loves them to the end.    
 
-> "Once in Christ, in Christ for ever,  
-> Nothing from his love can sever."  
+> Once in Christ, in Christ for ever,    
+> Nothing from his love can sever.    
 
 The Christian is fortified and secured from all harm. And yet, O child of God, there be many that will seek to destroy thee, and thy fears will often tell thee that thou art in the jaws of the enemy. Providence will often seem against thee, thine eyes shall be seldom dry; it may be funeral shall follow funeral. Loss shall follow loss; a burning house shall be succeeded by a blasted crop. The Christian in this world is not secured against the perils which happen to manhood. Oh! child of God, it may seem that all things are against thee; perhaps all God's waves and billows will go over thee; thou mayest know what hunger, and nakedness, and thirst do mean; thou mayest be found in this world houseless, friendless, fatherless, motherless, but oh! remember, that neither famine, nor hunger, nor poverty, nor sickness, nor weakness, nor contempt, can separate thee from the love of God, which is in Christ Jesus thy Lord. Thou mayest sink ever so low, but thou canst never sink lower than the arm of God can reach. Thy poor ship may be drifted before the gale, but it shall never go so fast but God can keep her off the rocks. Be of good cheer, the trials of this mortal life shall work out for thee "a far more exceeding and eternal weight of glory."
 
 Again, you may be tempted by the world! traps may be set for you on every hand, you may be tempted by your flesh, your corruptions may have great power over you, and often stagger your faith, and make you tremble, lest you should be utterly overthrown, and the devil may set upon you with fiery darts, he may pierce you with foul insinuations, he may almost make you blaspheme, and with terrible suggestions he may drive you well-nigh to despair. But oh! remember,
 
-> "Hell and thy sins obstruct thy course,  
-> But hell and sin are vanquished foes;  
-> Thy Jesus nailed them to his cross  
-> And sang the triumph when he rose."  
+> Hell and thy sins obstruct thy course,    
+> But hell and sin are vanquished foes;    
+> Thy Jesus nailed them to his cross    
+> And sang the triumph when he rose.    
 
 And thou mayest, too, be overcome by sin. Thou mayest fall God grant thou mayest not; but though thou be kept eminently consistent and extremely virtuous, thou wilt sin and sometimes that sin will get such a head against thee that thou canst scarcely stem the torrent. Conscience will whisper, "How couldst thou be a child of God, and yet sin thus?" And Satan will howl in thine ears, "He that sinneth knoweth not God." And so thou wilt be ready to be destroyed by thy sin. But do thou then, in the hour of thy dark distress, read this verse--"As the mountains are round about Jerusalem, so the Lord is round about his people from henceforth even for ever." Be thou confident in this, that even sin itself shall not be able to cut the golden link which joins thee to thy Saviour.
 

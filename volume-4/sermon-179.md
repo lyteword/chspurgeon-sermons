@@ -2,8 +2,8 @@
 
 Sermon No. 179 - Delivered on Sabbath Morning, February 21, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Keep thy heart with all diligence; for out of it are the issues of life."  
-> Proverbs 4:23.  
+> Keep thy heart with all diligence; for out of it are the issues of life.    
+> Proverbs 4:23.    
 
 If I should vainly attempt to fashion my discourse after lofty models, I should this morning compare the human heart to the ancient city of Thebes, out of whose hundred gates multitudes of warriors were wont to march. As was the city, such were her armies, as was her inward strength, such were they who came forth of her. I might then urge the necessity of keeping the heart, because it is the metropolis of our manhood, the citadel and armory of our humanity. Let the chief fortress surrender to the enemy, and the occupation of the rest must be an easy task. Let the principal stronghold be possessed by evil, the whole land must be overrun thereby. Instead, however, of doing this, I shall attempt what possibly I may be able to perform, by a humble metaphor and a simple figure, which will be easily understood; I shall endeavor to set forth the wise man's doctrine, that our life issues from the heart, and thus I shall labor to show the absolute necessity of keeping the heart with all diligence.
 
@@ -35,10 +35,10 @@ For the ways of God he has no relish; in God's house he finds no pleasure, in hi
 
 Ah! Christian keep thy heart pure. Thou sayest, "How can I do this?" Well, there was of old a stream of Marah, to which the thirsty pilgrims in the desert came to drink; and when they came to taste of it, it was so brackish that though their tongues were like torches, and the roofs of their mouths were parched with heat, yet they could not drink of that bitter water. Do you remember the remedy which Moses prescribed? It is the remedy which we prescribe to you this morning. He took a certain tree, and he cast it into the waters, and they became sweet and clear. Your heart is by nature like Marah's water, bitter and impure. There is a certain tree, you know its name, that tree on which the Saviour hung, the cross. Take that tree, put it into your heart, and though it were even more impure than it is, that sweet cross, applied by the Holy Spirit, would soon transform it into its own nature, and make it pure. Christ Jesus in the heart is the sweet purification. He is made unto us sanctification. Elijah cast salt into the waters; but we must cast the blood of Jesus there. Once let us know and love Jesus, once let his cross become the object of our adoration and the theme of our delight, the heart will beam its cleansing, and the life will become pure also. Oh! that we all did learn the sacred lesson of fixing the cross in the heart! Christian man! love thy Saviour more; cry to the Holy Spirit that thou mayest have more affection for Jesus; and then, how ever gainful may be thy sin, thou wilt say with the poet,
 
-> "Now for the love I bear his name,  
-> What was my gain I count my loss;  
-> My former pride I call my shame,  
-> And nail my glory to his cross."  
+> Now for the love I bear his name,    
+> What was my gain I count my loss;    
+> My former pride I call my shame,    
+> And nail my glory to his cross.    
 
 The cross in the heart is the purifier of the soul; it purges and it cleanses the chambers of the mind. Christian! keep thy heart pure, "for out of it are the issues of life."
 

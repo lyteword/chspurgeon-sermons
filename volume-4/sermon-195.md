@@ -2,13 +2,13 @@
 
 Sermon No. 195 - Delivered on Sabbath Morning, May 23, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "They looked unto him, and were lightened: and their faces were not ashamed."  
-> Psalm 34:5.  
+> They looked unto him, and were lightened: and their faces were not ashamed.    
+> Psalm 34:5.    
 
 FROM THE CONNECTION we are to understand the pronoun "him" as referring to the word "Lord" in the preceding verse. "They looked unto the Lord Jehovah, and were lightened." But no man ever yet looked to Jehovah God, as he is in himself, and found any comfort in him, for "our God is a consuming fire." An absolute God, apart from the Lord Jesus Christ, can afford no comfort whatever to a troubled heart. We may look to him, and we shall be blinded, for the light of Godhead is insufferable, and as mortal eye cannot fix its gaze upon the sun, no human intellect could ever look unto God, and find light, for the brightness of God would strike the eye of the mind with eternal blindness. The only way in which are can see God is through the Mediator Jesus Christ.
 
-> "Till God in human flesh I see,  
-> My thoughts no comfort find,--"  
+> Till God in human flesh I see,    
+> My thoughts no comfort find,--    
 
 God shrouded and veiled in the manhood,--there we can with steady gaze behold him, for so he cometh down to us, and our poor finite intelligence can understand and lay hold upon him. I shall therefore use my text this morning, and I think very legitimately, in reference to our Lord and Saviour Jesus Christ--"They looked unto him, and were lightened;" for when we look at God, as revealed in Jesus Christ our Lord, and behold the Godhead as it is apparent in the Incarnate Man, who was born of the Virgin Mary, and was crucified by Pontius Pilate, we do see that which enlightens the mind, and casts rays of comfort into our awakened heart.
 
@@ -16,10 +16,10 @@ And now this morning, I shall first invite you, in order to illustrate my text, 
 
 First, then, we shall LOOK TO THE LORD JESUS CHRIST IN HIS LIFE. And here the troubled saint will find the most to enlighten him. In the example, in the patience, in the sufferings of Jesus Christ, there are stars of glory to cheer the midnight darkness of the sky of your tribulation. Come hither, ye children of God and whatever now are your distresses, whether they be temporal or spiritual, you shall, in the life of Jesus Christ and his sufferings, find sufficient to cheer and comfort you, if the Holy Spirit shall now open your eyes to look unto him. Perhaps I have among my congregation, indeed I am sure I have, some who are plunged in the depths of poverty. You are the children of toil; with much sweat of your brow you eat your bread; the heavy yoke of oppression galls your neck; perhaps at this time you are suffering the very extremity of hunger; you are pinched with famine, and though in the house of God, your body complains, for you feel that you are brought very low. Look unto Him, thou poor distressed brother in Jesus; look unto Him, and be lightened.
 
-> "Why dost thou complain of want or distress,  
-> Temptation or pain?--he told thee no less;  
-> The heirs of salvation, we know from his word,  
-> Through much tribulation must follow their Lord."  
+> Why dost thou complain of want or distress,    
+> Temptation or pain?--he told thee no less;    
+> The heirs of salvation, we know from his word,    
+> Through much tribulation must follow their Lord.    
 
 See him there! Forty days he fasts and he hungers. See him again, he treads the weary way, and at last all athirst he sits upon the curb of the well of Sychar and he the Lord of glory, he who holds the clouds in the hollow of his hand, said to a woman, "Give me to drink." And shall the servant be above his master, and the disciple above his Lord? If he suffered hunger, and thirst, and nakedness, O heir of poverty, be of good cheer; in all these thou hast fellowship with Jesus; therefore be comforted, and look unto him and be lightened.
 
@@ -31,7 +31,7 @@ But, possibly I may have here some one who is much persecuted by man. "Ah!" sait
 
 And now I have to invite you to a more dreary sight; but, strange it is just as the sight becomes more black, so to us, does it grow more bright. The more deeply the Saviour dived into the depths of misery, the brighter were the pearls which he brought up--the greater his griefs, the greater our joys, and the deeper his dishonor, the brighter our glories. Come, then--and this time I shall ask poor, doubting, trembling sinners and saints, to come with me,--come ye now to Calvary's cross. There, on the summit of that little hill, outside the gates of Jerusalem, where common criminals were ordinarily put to death--the Tyburn of Jerusalem, the Old Bailey of that city, where criminals were executed--there stand three crosses; the center one is reserved for one who is reputed to be the greatest of criminals. See there! They have nailed him to the cross. It is the Lord of life and glory, before whose feet angels delight to pour full vials of glory They have nailed him to the cross: he hangs there in mid-heaven, dying, bleeding; he is thirsty, and he cries. They bring him vinegar and thrust it into his mouth. He is in suffering, and he needs sympathy, but they mock at him, and they say, "He saved others; himself he cannot save." They misquote his words, they challenge him now to destroy the temple, and build it in three days; while the very thing was being fulfilled, they taunt him with his powerlessness to accomplish it. How see him, ere the veil is drawn over agonies too black for eye to behold. See him now! Was ever face marred like that face? Was ever heart so big with agony? And did eyes ever seem so pregnant with the fire of suffering, as those great wells of fiery agony? Come and behold him, come and look to him now. The sun is eclipsed, refusing to behold him! earth quakes; the dead rise; the horrors of his sufferings have startled earth itself,
 
-> "He dies! the friend of sinners dies;"
+> He dies! the friend of sinners dies;    
 
 And we invite you to look to this scene that you may be lightened. What are your doubts this morning? Whatever they be, they can find a kind and fond solution here, by looking at Christ on the cross. You have come here, perhaps, doubting God's mercy; look to Christ upon the cross, and can you doubt it then? If God were not full of mercy, and plenteous in his compassion, would he have given his Son to bleed and die? Think you, that a Father would rend his darling from his heart and nail him to a tree, that he might suffer an ignominious death for our sakes, and yet be hard, merciless, and without pity? God forbid the impious thought! There must be mercy in the heart of God, or else there had never been a cross on Calvary.
 
@@ -39,11 +39,11 @@ But do you doubt God's power to save! Are you saying in yourself this morning, "
 
 But I know you say, "My doubt is not of his general mercy, nor of his power to forgive, but of his willingness to forgive me." Now I beseech you, by him that liveth and was dead, do not this morning look into your own heart in order to find an answer to that difficulty; do not now sit down and look at your sins; they have brought you into the danger--they cannot bring you out of it. The best answer you will ever get, is at the foot of the cross. Sit down, when you get home this morning, for half-an-hour, in quiet contemplation, sit at the foot of the cross, and contemplate the dying Saviour, and I will defy you then to say, "I doubt his love to me." Looking at Christ begets faith. You cannot believe on Christ except as you see him, and if you look to him you will learn that he is able to save; you will learn his loving-kindness; and you cannot doubt him after having once beheld him. Dr. Watts says,
 
-> "His worth, if all the nations knew,  
-> Sure the whole world would love him too;"  
-> and I am sure it is quite true if I read it another way--  
-> "His worth, if all the nations knew  
-> Sure the whole world would trust him too."  
+> His worth, if all the nations knew,    
+> Sure the whole world would love him too;"    
+> and I am sure it is quite true if I read it another way--    
+> "His worth, if all the nations knew    
+> Sure the whole world would trust him too.    
 
 Oh, that you would look to him now, and your doubts would soon be removed; for there is nothing that so speedily kills all doubt and fear, as a look into the loving eye of the bleeding, dying Lord. "Ah," says one, "but my doubts are concerning my own salvation in this respect; I cannot be so holy as I want to be." "I have tried very much," says one, "to get rid of all my sins, and I cannot; I have labored to live without wicked thoughts, and without unholy acts, and I still find that my heart is deceitful above all things;' and I wander from God. Surely I cannot be saved, while I am like this?" Stay! Look to him, and be lightened. What business have you to be looking to yourself? The first business of a sinner is not with himself, but with Christ. Your business is to come to Christ, sick, weary, and soul-diseased, and ask Christ to cure you. You are not to be your own physician, and then go to Christ, but just as you are; the only salvation for you is to trust implicitly, simply, nakedly, on Christ. As I sometimes put it--make Christ the only pillar of your hope, and never seek to buttress or prop him up. "He is able, he is willing." All he asks of you is just to trust him. As for your good works, they shall come afterwards. They are after-fruits of the Spirit: but your first business is not to do, but to believe. Look to Jesus, and put your only trust in him. "Oh," another cries, "Sir, I am afraid I do not feel my need of a Saviour as I ought." Looking to yourselves again! all looking to yourselves you see! 
 
@@ -51,57 +51,57 @@ This is all wrong. Our doubts and fears all arise from this cause--we will turn 
 
 And you children of God, I turn to you, for you have your doubts too. Would you get rid of them? Would you rejoice in the Lord with faith unmoved and confidence unshaken? Then look to Jesus; look again to him and you shall be lightened. I know not how it is with you my beloved friends, but I very often find myself in a doubting frame of mind; and it seems to be a question whether I have any love to Christ or not. And despite the fact that some laugh at the hymn, It is a hymn that I am forced to sing:--
 
-> "Tis a point I long to know,  
-> Oft it causes anxious thought!  
-> Do I love the Lord or not  
-> Am I his, or am I not?"  
+> Tis a point I long to know,    
+> Oft it causes anxious thought!    
+> Do I love the Lord or not    
+> Am I his, or am I not?    
 
 And really I am convinced that every Christian has his doubts at times, and that the people who do not doubt are just the people that ought to doubt; for he who never doubts about his state perhaps may do so when it is too late. I knew a man who said he never had a doubt for thirty years. I told him that I knew a person who never had a doubt about him for thirty years. "How is that?" said he "that is strange." He thought it a compliment. I said, "I knew a man who never had a doubt about you for thirty years. He knew you were always the most confounded hypocrite he ever met; he had no doubt about you." But this man had no doubt about himself: he was a chosen child of God, a great favourite of the Most High; he loved the doctrine of Election, wrote it on his very brow; and yet he was the hardest driver and the most cruel oppressor to the poor I ever met with, and when brought to poverty himself, he might very frequently be seen rolling through the streets. And this man had not a doubt for thirty years; and yet the best people are always doubting. Some of those who are just living outside the gates of heaven, are afraid of being cast into hell after all; while those people who are on the high road to the pit are not the least afraid. However, if you would get rid of your doubts once more, turn to Christ. You know what Dr. Carey had put on his tomb-stone--just these words, for they were his comfort;--
 
-> "A guilty, weak, and helpless worm,  
-> Into Christ's arms I fall;  
-> He is my strength and righteousness,  
-> My Jesus and my all."  
+> A guilty, weak, and helpless worm,    
+> Into Christ's arms I fall;    
+> He is my strength and righteousness,    
+> My Jesus and my all.    
 
 Remember what that eminent Scotch divine said, when he was dying. Some one said to him, "What, are you dying now?" Said he, "I am just gathering all my good works up together, and I am throwing them all overboard; and I am lashing myself to the plank of free grace, and I hope to swim to glory on it." So do you do; every day keep your eye only on Christ; and so long as your eye is single, your whole body must and shall be full of light. But if you once look cross-eyed, first to yourself and then to Christ, your whole body shall be full of darkness. Remember, then, Christian, to hie away to the cross. When that great black dog of hell is after you, away to the cross! Go where the sheep goes when he is molested by the dog; go to the shepherd. The dog is afraid of the shepherd's crook; you need not be afraid of it, it is one of the things that shall comfort you. "Thy rod and thy staff they comfort me." Away to the cross, my brothers! away to the cross, if thou wouldest get rid of thy doubts. Certain I am, that if we lived more with Jesus, were more like Jesus, and trusted more to Jesus, doubts and fears would be very scarce and rare things, and we should have as little to complain of them as the first emigrants in Australia had to complain of thistles; for they found none there, and none would have been there if they had not been carried there. If we live simply by faith on the cross of Christ, we live in a land where there are no thistles, but if we will live on self, we shall have plenty of thistles and thorns, and briers, and nettles growing there. "They looked unto him, and were lightened."
 
 And now I invite you to a glorious scene--CHRIST'S RESURRECTION. Come you here, and look at him, as the old serpent bruises his heel!
 
-> "He dies! the friend of sinners dies,  
-> And Salem's daughters weep around."  
+> He dies! the friend of sinners dies,    
+> And Salem's daughters weep around.    
 
 He was wrapped in his grave-clothes and put into his grave, and there he slept three days and nights. And on the first day of the week, he, who could not be holden by the bands of death, and whose flesh did not see corruption, neither did his soul abide in Hades--he arose from the dead. In vain the bands that swaddled him; he unfolded them by himself, and by his ownliving power wrapped them in perfect order, and laid them in their place. In vain the stone and the seal; the angel appeared and rolled away the stone, and forth the Saviour came. In vain the guards and watchmen; for in terror they fled far away, and he rose the conqueror over death--the firstfruits of them that slept. By his own power and might, he came again to life. I see among my congregation, not a few wearing the black weeds of sorrow. You have lost, some of you, the dearest of your earthly relatives There are others here, who, I doubt not, are under the constant fear of death. You are all your lifetime subject to bondage, because you are thinking upon the groans, and dying strife, which fall upon men, when they near the river Jordan. Come, come, I beseech you, ye weeping and timid spirits, behold Jesus Christ risen! For remember, this is a great truth--"Now is Christ risen from the dead, and become the first-fruits of them that slept." And the verse of our song just embodies it:--
 
-> "What though our inbred sins require  
-> Our flesh to see the dust,  
-> Yet as the Lord our Saviour rose,  
-> So all his followers must."  
+> What though our inbred sins require    
+> Our flesh to see the dust,    
+> Yet as the Lord our Saviour rose,    
+> So all his followers must.    
 
 There widow; weep no longer for your husband, if he died in Jesus. See the Master; he is risen from the dead; no spectre is he. In the presence of his disciples he eats a piece of broiled fish and part of an honeycomb. No spirit is he; for he saith, "Handle me and see; a spirit hath not flesh and bones as ye see me have." That was a real resurrection. And learn then, beloved, when you weep, to restrain your sorrows; for thy loved ones shall live again. Not only shall their spirits live, but their bodies too.
 
-> "Corruption, earth, and worms,  
-> Do but refine this flesh;  
-> At the archangel's sounding trump,  
-> We put it on afresh."  
+> Corruption, earth, and worms,    
+> Do but refine this flesh;    
+> At the archangel's sounding trump,    
+> We put it on afresh.    
 
 Oh! think not that the worm has eaten up your children, your friends, your husband, your father, your aged parents--true, the worms seem to have devoured them. Oh! what is the worm after all, but the filter through which our poor filthy flesh must go? For in the twinkling of an eye, at the last trump, we shall be raised incorruptible, and the living shall be changed, you shall see the eye that just now has been closed, and you shall look on it again, you shall again grasp the hand that just now fell motionless at the side. You shall kiss the lips that just now were clay-cold, and white, and you shall hear again the voice that is silent in the tomb. They shall live again. And you that fear death--why fear to die? Jesus died before you, and he passed through the iron gates, and as he passed through them before you, he will come and meet you. Jesus who lives can
 
-> "Make the dying bed  
-> Feel soft as downy pillows are."  
+> Make the dying bed    
+> Feel soft as downy pillows are.    
 
 Why should you weep? for Jesus rose from the dead; so shall you. Be of good cheer and confidence. You are not lost when you are put into the tomb; you are but seed sown to ripen against the eternal harvest. Your spirit mounts to God; your body slumbers for awhile to be quickened into eternal life. It cannot be quickened except it die; but when it dies it shall receive a new life; it shall not be destroyed. "they looked to him, and were lightened." Oh! this is a precious thing to look to--a risen Saviour. I know of nothing that can lift our spirits higher than a true view of the resurrection of Jesus Christ from the dead. We have not lost any friends then; they have gone before. We shall not die ourselves; we shall seem to die, but are shall begin to live; for it is written
 
-> "He lives to die; he dies to live;  
-> He lives to die no more."  
+> He lives to die; he dies to live;    
+> He lives to die no more.    
 
 May that be the lot of each one of us!
 
 And with the greatest possible brevity, I invite you to LOOK AT JESUS CHRIST ASCENDING INTO HEAVEN. After forty days, he takes his disciples to the hill, and while he discourses with them, on a sudden he mounts upward; and he is separated from them, and a cloud receives him into glory. Perhaps I may be allowed a little poetical license if I try to picture that which occurred after he ascended into the clouds. The angels came from heaven--
 
-> "They brought his chariot from on high,  
-> To bear him to his throne  
-> Clapped their triumphant wings and cried,  
-> The glorious work is done."  
+> They brought his chariot from on high,    
+> To bear him to his throne    
+> Clapped their triumphant wings and cried,    
+> The glorious work is done.    
 
 I doubt not, that with matchless triumph he ascended the hill of light and went to the celestial city, and when he neared the portals of that great metropolis of the universe, the angels shouted, "Lift up your heads, O ye gates; and be ye lift up ye everlasting doors," and the bright spirits from burning battlements, cried out, "Who is this King of Glory--who?" And the answer came, "the Lord mighty in battle, and the Lord of Hosts; he is the King of Glory." And then both they upon the walls, and they who walk with the chariot join the song once more, and with one mighty sea of music, beating its melodious waves against the gates of heaven and forcing them open, the strain is heard, "Lift up your heads, O ye gates, and be ye lift up ye everlasting doors, that the King of Glory may come in"--and in he went. And at his feet the angelic hosts all cast their crowns, and forth came the blood-washed and met him, not casting roses at his feet, as are do at the feet of conquerors in our streets, but casting immortal flowers, imperishable wreaths of honor that never can decay; while again, again, again, the heavens did ring with this melody, "Unto him that hath loved us, and washed us from our sins in his blood, and hath made us kings and priests unto God and his Father--unto him be glory forever and ever. And all the saints and all the angels said, "Amen." Now look here ye Christians, here is your comfort; Jesus Christ won wrestling with spiritual enemies, not with flesh and blood, but with principalities and powers; you are at war today, and mayhap the enemy has thrust sore at you, and you have been ready to fall; it is a marvel to you, that you have not turned your back in the day of battle, for you have often feared lest you should be made to fly like a coward from the field. 
 

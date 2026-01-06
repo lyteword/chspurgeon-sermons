@@ -2,8 +2,8 @@
 
 Sermon No. 36 - Delivered on Sabbath Morning, August 19, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "That clouds are the dust of his feet."  
-> Nahum 1:3.  
+> That clouds are the dust of his feet.    
+> Nahum 1:3.    
 
 IT IS POSSIBLE for a man to read too many books. We will not despise learning, we will not undervalue erudition, such acquisitions are very desirable; and, when his talents are sanctified to God, the man of learning frequently becomes in the hands ofthe Spirit far more useful than the ignorant and the unlearned; but at the same time, if a man acquire his knowledge entirely from books, he will not find himself to be a very wise man. There is such a thing as heaping so many books on your brains that they cannot work--pouring such piles of type, and letters, and manuscripts, and papers, and prints, and pamphlets, and volumes, and tomes, and folios, upon your weary head, that your brains are absolutely buried and cannot move at all. I believe that many of us, whilst we have sought to learn by books, have neglected those great volumes which God has given us; we have neglected to study this great book, the Bible! moreover, perhaps, we have not been careful enough students of the great volume of nature, and we have forgotten that other great book, the human heart. For my own part, I desire to be somewhat a student of the heart; and I think I have learned far more from conversation with my fellow-men than I ever did from reading, and the examination of my own experience, and the workings of my own heart, have taught me far more of humanity than all the metaphysical books I have ever perused. I like to read the book of my fellow creatures; nothing delights me so much as when I see a multitude of them gathered together, or when I have the opportunity of having their hearts poured into mine, and mine into theirs. He will not be a wise man who does not study the human heart, and does not seek to know something of his fellows and of himself. But if there be one book I love to read above all others, next to the book of God, it is the volume of nature. I care not what letters they are that I read, whether they be the golden spellings of the name of God up yonder in the stars, or whether I read, in rougher lines, his name printed on the rolling floods, or see it hieroglyphed in the huge mountain, the dashing cataract, or the waving forest. 
 
@@ -11,17 +11,17 @@ Wherever I look abroad in nature I love to discern my Father's name spelled out 
 
 Well, the first remark I make upon this shall be--the way of God is generally a hidden one. This we gather from the text, by regarding the connection, "the Lord hath his way in the whirlwind and in the storm, and the clouds are the dust of his feet." When God works his wonders he always conceals himself. Even the motion of his feet causes clouds to arise; and if these; clouds are but the dust of his feet," how deep must be that dense darkness which veils the brow of the Eternal. If the small dust which he causes is of equal magnitude with our clouds--if we can find no other figure to image "the dust of his feet" than the clouds of heaven, then, how obscure must be the motions of the Eternal one, how hidden and how shrouded in darkness! This great truth suggested by the text, is well borne out by facts. The ways of God are hidden ones. Cowper did not say amiss when he sang,--
 
-> "He plants his footsteps in the sea,  
-> And rides upon the storm."  
+> He plants his footsteps in the sea,    
+> And rides upon the storm.    
 
 His footsteps cannot be seen, for, planted on the sea, the next wave washes them out; and placed in the storm, rioting as the air then is, every impression of his chariot wheels is soon erased. Look at God, and at whatever he has deigned to do, and you will always see him to have been a hidden God. He has concealed himself, and all his ways have been veiled in the strictest mystery. Consider his works of salvation. How did he hide himself when he determined to save mankind? He did not manifestly reveal himself to our forefathers. He gave them simply one dim lamp of prophecy which shone in words like these "The seed of the woman shall bruise the serpent's head;" and for four thousand years God concealed his Son in mystery, and no one understood what the Son of God was to be. The smoking incense beclouded their eyes, and while it showed something of Jesus, it did hide far more. The burning victim sent its smoke up towards the sky, and it was only through the dim mists of the sacrifice that the pious Jew could see the Saviour. Angels themselves, we are told, desired to look into the mysteries of redemption, yet though they stood with their eyes intently fixed upon it, until the hour when redemption developed itself on Cavalry, not a single angel could understand it. The profoundest sage might have sought to find out how God could be just and yet the justifier of the ungodly; but he would have failed in his investigations. The most intensely pious man might meditate, with the help of that portion of God's Spirit which was then given to the prophets, on this mighty subject, and he could not have discovered what the mystery of godliness was--"God manifest in the flesh." God marched in clouds, "He walked in the whirlwinds;" he did not deign to tell the world what he was about to do; for it is his plan to gird himself in darkness, and "the clouds are the dust of his feet." Ah! and so it always has been in Providence as well as grace. God never condescends to make things very plain to his creatures. He always does rightly; and therefore, he wants his people always to believe that he does rightly. But if he showed them that he did so, there would be no room for their faith.
 
 Turn your eye along the page of history, and see how mysterious God's dealings have been. Who would conceive that a Joseph sold into Egypt would be the means of redeeming a whole people from famine? Who would suppose that when an enemy should come upon the land, it should be after all but the means of bringing glory to God? Who could imagine that a harlot's blood should mingle with the genealogy from which came the great Messiah, the Shiloh of Israel? Who could have guessed much less could have compassed, the mighty scheme of God? Providence has always been a hidden thing.
 
-> "Deep in unfathomable mines  
-> Of never failing skill,  
-> He treasures up his bright designs,  
-> And works his sov'reign will."  
+> Deep in unfathomable mines    
+> Of never failing skill,    
+> He treasures up his bright designs,    
+> And works his sov'reign will.    
 
 And yet, beloved, you and I are always wanting to know what God is about. There is a war in the Crimea. We have had some great disasters at Sebastopol, and we are turning over the papers, and saying, "Whatever is God doing here?" What did he do in the last war? What was the benefit of it? We see that even Napoleon was the means of doing good, for he broke down the aristocracy and made all monarchs respect for the future, the power, and the rights of the people. We see what was the result even of that dread hurricane, that it swept away a pestilence which would have devoured full many more. But we ask, "What is God doing with this world?" We want to know what will be the consequences. Suppose we should humble Russia, where would it end? Can Turkey be maintained as a separate kingdom? And ten thousand other questions arise. Beloved, I always think, "let the potsherds strive with the potsherds of the earth," and--as a good old friend of mine says--let them crack themselves, too, if they like. We will not interfere. If the potsherds will go smashing one another, why, then they must. We pray that old England may come off the safest of them all. But we are not much concerned to know the result. We believe that this war, as well as everything else, will have a beneficial tendency. We cannot see in history that this world ever went a step backwards. God is ever moving it in its orbit; and it has always progressed even when it seemed retrograding.
 
@@ -43,20 +43,20 @@ A little while ago some of us were fretting about this Mormonism, and we said, "
 
 Now, one more remark. "The clouds are the dust of his feet." Then we learn from that, that THE MOST TERRIBLE THINGS IN NATURE HAVE NO TERROR TO A CHILD OF GOD. Sometimes clouds are very fearful things to mariners; they expect a storm when they see the clouds and darkness gathering. A cloud to many of us, when it forebodes a tempest is a very unpleasant thing. But let me read my text, and you will see what I mean by my remark that the most terrible things in nature are not terrible to the saints. The clouds are the dust of HIS feet,"--of God's feet. Do you not see what I mean? There is nothing terrible now, because it is only the dust of my Father's feet. Did you ever know a child who was afraid of the dust of his father's feet? Nay; if the child sees the dust of his father's feet in the distance, what does he do? He rejoices because it is his father, and runs to meet him. So the most awful things in nature, even the clouds, have lost all their terror to a child of God, because he knows they are but the dust of his Father's feet. If we stand in the midst of the lightning storm, a flash rives yon cedar, or splits the oak of the forest; another flash succeeds, and then another, till the whole firmament becomes a sea of flame. We fear not, for they are only the flashes of our Father's sword as he waves it in the sky. Hark to the thunder as it shakes the earth, causes the hinds to calve, and discovereth the forests; we shake not at the sound.
 
-> "The God that rules on high,  
-> And thunders when he please,  
-> That rides upon the stormy sky,  
-> And manages the seas.  
-> This awful God is ours,  
-> Our Father and our love."  
+> The God that rules on high,    
+> And thunders when he please,    
+> That rides upon the stormy sky,    
+> And manages the seas.    
+> This awful God is ours,    
+> Our Father and our love.    
 
 We are not afraid, for we hear our Father's voice. And what favored child ever quaked at his Father's speech. We love to hear that voice; although it is deep, bass, sonorous, yet we love its matchless melody, for it issues from the depths of affection. Put me to sea, and let the ship be driven along, that wind is my Father's breath let the clouds gather, they are the dust of my Father's feet; let the waterspout appear from heaven, it is my Father dipping his hand in the laver of his earthly temple. The child of God feareth nothing. All things are his Father's; and divested now of everything that is terrible, he can look upon them with complacency, for he says, "The clouds are the dust of his feet."
 
-> "He drives his chariot through the sky,  
-> Beneath his feet his thunders roar;  
-> He shakes the earth, he veils the sky,  
-> My soul, my soul, this God adore--  
-> He is thy Father, and thy love."  
+> He drives his chariot through the sky,    
+> Beneath his feet his thunders roar;    
+> He shakes the earth, he veils the sky,    
+> My soul, my soul, this God adore--    
+> He is thy Father, and thy love.    
 
 Fall down before his feet and worship him, for he hath loved thee by his grace. You know there are many fearful events which may befall us; but we are never afraid of them, if we are saints, because they are the dust of his feet. Pestilence may ravage this fair city once again; the thousands may fall, and the funeral march be constantly seen in our streets. Do we fear it? Nay; the pestilence is but one of our Father's servants, and we are not afraid of it, although it walketh in darkness. There may be no wheat, the flocks may be cut off from the herd and the stall; nevertheless, famine and distress are our Father's doings, and what our Father does we will not view with alarm. There is a man there with a sword in his hand--he is an enemy, and I fear him My father has a sword, and I fear him not; I rather love to see him have a sword, because I know he will only use it for my protection.
 

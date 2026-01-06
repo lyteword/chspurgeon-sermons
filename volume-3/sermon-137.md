@@ -2,8 +2,8 @@
 
 Sermon No. 137 - Delivered on Sabbath Morning, June 21, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The Lord is slow to anger and great in power, and will not at all acquit the wicked."  
-> Nahum 1:3.  
+> The Lord is slow to anger and great in power, and will not at all acquit the wicked.    
+> Nahum 1:3.    
 
 WORKS OF ART require some education in the beholder, before they can be thoroughly appreciated. We do not expect that the uninstructed should at once perceive the varied excellencies of a painting from some master hand; we do not imagine that the superlative glories of the harmonies of the prince of song will enrapture the ears of clownish listeners. There must be something in the man himself, before he can understand the wonders either of nature or of art. Certainly this is true of character. By reason of failures in our character and faults in our life, we are not capable of understanding all the separate beauties, and the united perfection of the character of Christ, or of God, his Father. Were we ourselves as pure as the angels in heaven, were we what our race once was in the garden of Eden, immaculate and perfect, it is quite certain that we should have a far better and nobler idea of the character of God than we can by possibility attain unto in our fallen state. But you can not fail to notice, that men, through the alienation of their natures, are continually misrepresenting God, because they can not appreciate his perfection. Does God at one time withhold his hand from wrath? Lo, they say that God hath ceased to judge the world, and looks upon it with listless phlegmatic indifference. Does he at another time punish the world for sin? They say he is severe and cruel. Men will misunderstand him, because they are imperfect themselves, and are not capable of admiring the character of God.
 
@@ -45,14 +45,14 @@ But to proceed at once to the link. A great reason why he is slow to anger, is b
 
 And, now, there is no difficulty in showing how this link unites itself with the next part of the text, "He is great in power, and will not at all acquit the wicked." This needs no demonstration in words; I have but to touch the feelings, and you will see it. The greatness of his power is an assurance, and an assurance that he will not acquit the wicked. Who among you could witness the storm on Friday night without having thoughts concerning your own sinfulness stirred in your bosoms? Men do not think of God the punisher, or Jehovah the avenger, when the sun is shining, and the weather calm ; but in times of tempest, whose cheek is not blanched? The Christian oftentimes rejoiceth in it; he can say, "My soul is well at ease, amid this revelry of earth; I do rejoice in it; it is a day of feasting in my Father's hall, a day of high-feast and carnival in heaven, and I am glad.
 
-> "The God that reigns on high,  
-> And thunders when he please,  
-> That rides upon the stormy sky,  
-> And manages the seas,  
-> This awful God is ours,  
-> Our Father and our love,  
-> He shall send down his heavenly powers,  
-> To carry us above."  
+> The God that reigns on high,    
+> And thunders when he please,    
+> That rides upon the stormy sky,    
+> And manages the seas,    
+> This awful God is ours,    
+> Our Father and our love,    
+> He shall send down his heavenly powers,    
+> To carry us above.    
 
 But the man who is not of an easy conscience will be ill at ease when the timbers of the house are creaking, and the foundations of the solid earth seem to groan. Ah! who is he then that doth not tremble? Yon lofty tree is riven in half; that lightning flash has smitten its trunk, and there it lies for ever blasted, a monument of what God can do. Who stood there and saw it? Was he a swearer? Did he swear then? Was he a Sabbath-breaker? Did he love his Sabbath-breaking then? Was he haughty? Did he then despise God? Ah! how he shook then! Saw you not his hair stand on end? Did not his cheek blanch in an instant? Did he not close his eyes and start back in horror when he saw that dreadful spectacle, and thought God would smite him too? Yes, the power of God, when seen in the tempest, on sea or on land, in the earthquake or in the hurricane, is instinctively a proof that he will not acquit the wicked. I know not how to explain the feeling, but it is nevertheless the truth; majestic displays of omnipotence have an effect upon the mind of convincing even the hardened, that God, who is so powerful, "will not at all acquit the wicked." Thus have I just tried to explain and make bare the link of the chain.
 
@@ -70,10 +70,10 @@ We reply, God will not acquit the wicked, because he is good. What! doth goodnes
 
 And again, the justice of God demands it. God is infinitely just, and his justice demands that men should be punished, unless they turn to him with full purpose of heart. Need I pass through all the attributes of God to prove it? Methinks I need not. We must all of us believe that the God who is slow to anger and great in power is also sure not to acquit the wicked. And now just a home-thrust or two with you. What is your state this morning? My friend, man or woman, what is thy state? Canst thou look up to heaven and say, "Though I have sinned greatly I believe Christ was punished in my stead,
 
-> "My faith looks back to see,  
-> The burden he did bear,  
-> When hanging on the cursed,  
-> And knows her guilt was there?"  
+> My faith looks back to see,    
+> The burden he did bear,    
+> When hanging on the cursed,    
+> And knows her guilt was there?    
 
 Can you by humble faith look to Jesus, and say, "My substitute, my refuge, my shield; thou art my rock, my trust; in thee do I confide?" Then, beloved, to you I have nothing to say, except this, Never be afraid when you see God's power; for now that you are forgiven and accepted, now that by faith you have fled to Christ for refuge, the power of God need no more terrify you, than the shield and sword of the warrior need terrify his wife or his child. "Nay," saith the woman, "is he strong? He is strong for me. Is his arm brawney, and are all his sinews fast and strong? Then are they fast and strong for me. While he lives, and wears a shield, he will stretch it over my head; and while his good sword can cleave foes, it will cleave my foes too, and ransom me." Be of good cheer; fear not his power.
 

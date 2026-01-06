@@ -2,8 +2,8 @@
 
 Sermon No. 122 - Delivered on Sabbath Morning, March 15, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Wist ye not that I must be about my Father's business?"  
-> Luke 2:49.  
+> Wist ye not that I must be about my Father's business?    
+> Luke 2:49.    
 
 Behold then, how great an interest God the Father takes in the work of salvation. It is called "his business;" and though Jesus Christ came to accomplish our redemption, came to set us a perfect example, and to establish a way of salvation, yet he came not upon his own business, but upon his Father's business--his Father taking as much interest in the salvation of men as even he himself did--the great heart of the Father being as full of love as the bleeding heart of the Son, and the mind of the first person of the Trinity being as tenderly affected towards his chosen as even the mind of Christ Jesus, our substitute, our surety, and our all. It is his "Father's business" Behold, also, the condescension of the Son, that he should become the servant of the Father, to do not his own business, but the Father's business. See how he stoops to become a child, subject to his mother; and mark how he stoops to become a man, subject to God his Father. He took upon himself the nature of man, and though he was the Son, equal in power with God, who "counted it not robbery to be equal with God," yet he "took upon himself the form of a servant and became obedient unto death, even the death of the cross." Learn, then, O believer, to love all the persons of the Divine Trinity alike. Remember that salvation is no more the work of one than of the other. They all three agree in one, and as in the creation they all said, "Let us make man;" so in salvation they all say, "Let us save man;" and each of them does so much of it that it is truly the work of each and undividedly the work of all. Remember that notable passage of Isaiah the prophet--"I will divide him a portion with the great and he shall divide the spoil with the strong." 
 
@@ -35,11 +35,11 @@ And so in the matter that I have called establishment, that is the establishment
 
 And ah, beloved, when he came to the climax of his labor, when he came to the greatest toil of all, that which a thousand men could never have done; when he came to do the great work of expiation, how thoroughly he did it
 
-> "View him prostrate in the garden;  
-> On the ground your Maker lies.  
-> On the bloody tree behold him:  
-> Hear him cry before he dies--  
-> 'IT IS FINISHED!'"  
+> View him prostrate in the garden;    
+> On the ground your Maker lies.    
+> On the bloody tree behold him:    
+> Hear him cry before he dies--    
+> 'IT IS FINISHED!'    
 
 And there you have a proof that he was about his Father's business. It was his Father's business made him sweat great drops of blood; his Father's business ploughed his back with many gory furrows; his Father's business pricked his temple with the thorn crown; his Father's business made him mocked and spit upon; his Father's business made him go about bearing his cross; his Father's business made him despise the shame when, naked, he hung upon the tree; his Father's business made him yield himself to death, though he needed not to die if so he had not pleased; his Father's business made him tread the gloomy shades of Gehenna, and descend into the abodes of death; his Father's business made him preach to the spirits in prison; and his Father's business took him up to heaven, where he sitteth on the right hand of God, doing his Father's business still! His Father's business makes him plead day and night for Sion; the same business shall make him come as the Judge of quick and dead, to divide the sheep from the goats; the same business shall make him gather together in one, all people who dwell on the face of the earth! Oh, glory to thee, Jesus; thou hast done it! Thou hast done thy Father's business well.
 
@@ -53,10 +53,10 @@ If you cannot bear snuffing, depend upon it you cannot be well lit yet. Dare to 
 
 Again, even the best of your friends, if you are truly zealous of God, will come to you and say--and very kindly too--"Now, you must take a little more care of your constitution. Now, don't be doing so much; don't, I beseech you! "Or if you are giving money away--"Now you must be a little more prudent; take more care of your family. Really, you must not do so." Or if you are earnest in prayer, they will say--"There is no need of such enthusiasm as this: you know you can be religious, and not too religious; you can be moderately so." And so you find both friends and enemies striving to hinder your consecration to Christ. Now, I like what old Rowland Hill said, when some one told him that he was "moderately religious." "Well then, you are irreligious, for a man that is moderately honest is a rogue for certain; and so the man that is moderately religious is irreligious." If religion be worth anything it is worth everything; if it be anything it is everything. Religion cannot go halves with anything else, it must be all. We must, if we be thoroughly imbued with the spirit of Christ, imitate Christ in this--the giving up of all to God; so that we can sincerely say,
 
-> "And if I might make some reserve,  
-> And duty did not call,  
-> I love my God with zeal so great,  
-> That I could give him all."  
+> And if I might make some reserve,    
+> And duty did not call,    
+> I love my God with zeal so great,    
+> That I could give him all.    
 
 I shall never forget the circumstance, when after I thought I had made a full consecration to Christ, a slanderous report against my character came to my ears, and my heart was broken in agony because I should have to lose that, in preaching Christ's gospel I fell on my knees, and said, "Master, I will not keep back even my character for thee. If I must lose that too, then let it go, it is the dearest thing I have, but it shall go, if, like my Master, they shall say I have a devil and am mad; or, like him I am a drunken man and a wine-bibber. It is gone, if I may but say--"I have suffered the loss of all things; and I do count them but dross that I may win Christ!" And you, Christian, will never get on well in serving God, till you have given all to him. That which you keep back will canker, If you reserve the least portion of your time, your property, or your talents, and do not give all to Christ, you will find there will be a sore, a gangrene in it; for Christ will bless you in all when you give all to him; but what you keep from him, he will curse, and blight, and ruin. He will have all of us, the whole of us, all we possess, or else he never will be satisfied.
 
@@ -76,7 +76,7 @@ Again, would you be happy? Be about your Father's business. Oh! it is sweet empl
 
 And this dear friends, will be the way--and I trust you can be moved by this--this will be the way to have eternal glory at the last, not for the sake of what you do, but as the gracious reward of God for what you have done. "They that turn many to righteousness shall shine as the stars for ever and ever." Would you like to go to heaven alone? I do not think you would. My happiest thought is this, that when I die, if it shall be my privilege to enter into rest in the bosom of Christ I know I shall not enter heaven alone. Thousands have been there, whose hearts have been pricked and have been drawn to Christ under the labors of my ministry. Oh! what a pleasant thing to flap one's wings to heaven and have a multitude behind, and when you enter heaven to say, "Here am I and the children thou hast given me! "You cannot preach, perhaps, but you can travail in birth with children for God, in a spiritual sense, in another way; for if you help the cause you shall share the honour too. You do that, perhaps, which is not known among men yet you are the instrument, and God shall crown your head with glory amongst those that "shine as the stars for ever and ever." I think, dear Christian friends, I need say no more, except to bid you remember that you owe so much to Christ for having saved you from hell; you owe so much to that blood which redeemed you--that you are in duty bound to say--
 
-> "Here, Lord, I give myself away;  
-> 'Tis all that I can do."  
+> Here, Lord, I give myself away;    
+> 'Tis all that I can do.    
 
 Go out now, and if you are tempted by the world, may the Spirit enable you to reply, "I must be about my Father's business." Go out, and if they call you fanatical, let them laugh at you as much as you like, tell them you must be about your Father's business. Go on, and conquer. God be with you. And now farewell, with this last word, "He that believeth and is baptized, shall be saved; he that believeth not, shall be damned." Faith in Christ is the only way of salvation. Ye who know your guilt cast yourselves on Christ, and then dedicate yourselves to him. So shall you have joy here, and glory everlasting in the kind of the blessed, where bliss is without alloy, and joy without end.

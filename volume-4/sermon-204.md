@@ -2,8 +2,8 @@
 
 Sermon No. 204 - Delivered on Sabbath Morning, July 11, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "For the Son of man is come to seek and to save that which was lost."  
-> Luke 19:10.  
+> For the Son of man is come to seek and to save that which was lost.    
+> Luke 19:10.    
 
 HOW FOND OUR MASTER WAS of the sweet title, the "Son of Man!" If he had chosen, he might always have spoken of himself as the Son of God, the Everlasting Father, the Wonderful, the Counseller, the Prince of Peace. He hath a thousand gorgeous titles, resplendent as the throne of heaven, but he careth not to use them: to express his humility and let us see the lowliness of him whose yoke is easy and whose burden is light. He calls not himself the Son of God, but he speaks of himself evermore as the Son of Man who came down from heaven. Let us learn a lesson of humility from our Saviour; let us never court great titles, nor proud degrees. What are they, after all, but beggarly distinctions whereby one worm is known from another? He that hath the most of them is a worm still, and is in nature no greater than his fellows. If Jesus called himself the Son of Man, when he had far greater names, let us learn to humble ourselves unto men of low estate, knowing that he that humbleth himself shall in due time be exalted. Methinks, however, there is a sweeter thought than this in that name, Son of Man. It seems to me that Christ loved manhood so much, that he always desired to honor it; and since it is a high honor, and indeed the greatest dignity of manhood, that Jesus Christ was the Son of Man, he is wont to display this name, that he may as it were put rich stars upon the breast of manhood, and put a crown upon its head. 
 

@@ -2,8 +2,8 @@
 
 Sermon No. 199 - Delivered on Friday Afternoon, June 11, 1858, by the REV. C.H. SPURGEON on the Grand Stand, Epsom Race-Course.
 
-> "Yea, come, buy wine and milk without money and without price."  
-> Isaiah 55:1.  
+> Yea, come, buy wine and milk without money and without price.    
+> Isaiah 55:1.    
 
 YOU see, I have something to sell this evening, I have to invite you to come and buy that which, in the gospel will this night be proclaimed. Now, it is usual when persons have anything to sell, to exhibit the article, to describe its character, and speak of its excellencies, for until persons are made aware of the nature of that which you exhibit, it is not likely that they will be prepared to buy it. That shall be my first business this evening Then the man who has aught to sell, in the next place, endeavors to bring those who hear him up to the price at which he desires to sell. My business tonight is to bring you down to the price--"Come buy wine and milk without money and without price." I shall then conclude by addressing a few sentences of earnest persuasion to those who despise that glorious salvation which it is our privilege to preach, and turn away from those generous stipulations--"without money and without price."
 
@@ -17,35 +17,35 @@ It is like milk--an everyday dish--a thing which we may always have, and upon wh
 
 Now, I think I have explained the figure in my text; but still some will say, "What is the gospel?" Well, the gospel, as I take it, can be looked at in various ways, but I will put it to night as this--the gospel is the preaching of a full, free, present, everlasting pardon to sinners through Jesus Christ's atoning blood. If I understand the gospel at all, it has in it a great deal more than this; but still this is the substance of it. I have to preach to night the great fact that while all have sinned, Christ hath died, and to all penitents who now confess their sins and put their trust in Christ, there is a full, free pardon--free in this respect, that you have nothing to do in order to get it. The meanest sin-stricken sinner has simply to pour out his plaintive griefs before God; that is all he asks. There is no fitness needed;--
 
-> "All the fitness he requireth,  
-> Is to feel your need of him:  
-> This he gives you;  
-> 'Tis his Spirit's rising beam."  
+> All the fitness he requireth,    
+> Is to feel your need of him:    
+> This he gives you;    
+> 'Tis his Spirit's rising beam.    
 
 There is no need to pass through years of penance, of hard labor, and of trial; the gospel is as free as the air you breathe. You do not pay for breathing; you do not pay for seeing the sunlight, nor for the water that flows in the river as you stoop to drink it in your thirst. So the gospel is free; nothing is to be done in order to get it. No merits need be brought in order to obtain it. There is free pardon for the chief of sinners through Jesus Christ's blood. But I said it was a full pardon, and so it is. When Christ does anything he never does it by halves. He is willing this night to blot out every sin and cleanse every iniquity of every soul present who is now prepared by God's grace to seek his mercy. If now, sinner, God hath put it in thine heart to seek him, the pardon which he is prepared to give thee, is a full one; not a pardon for a part of your sins, but for all at once:--
 
-> "Here's pardon for transgressions past,  
-> It matters not how black their cast,  
-> And, oh! my soul with wonder view,  
-> For sins to come here's pardon too."  
+> Here's pardon for transgressions past,    
+> It matters not how black their cast,    
+> And, oh! my soul with wonder view,    
+> For sins to come here's pardon too.    
 
 Here is pardon for your drunkenness, pardon for your oaths, pardon for your lust, pardon for your rebellion against heaven; for the sins of your youth and the sins of your old age, for the sins of the sanctuary and the sins of the brothel, or the tavern. Here is pardon for all sin, for "the blood of Jesus Christ his Son cleanseth us from all sin." But again, the pardon we have to preach is a present pardon. If you feel your need of a Saviour, if now you are enabled to believe in Christ, you shall be pardoned now. Those who have ordinary hopes say they hope to be pardoned when they come to die. But, beloved, that is not the religion we preach. If you will now make confession of sin, now seek the Lord, you shall be pardoned now. It is possible for a man to have come in here with all his sins hanging about his neck like a millstone, enough to sink him lower than the lowest hell, and yet to go out of this door with every sin blotted out. If now he is enabled to believe on him, he may this night receive perfect pardon from the hand of God. The pardon of a sinner is not a thing done when he is dying, it is done when he is living--done now. And there be some here I trust, and they not a few, who can rejoice to night in the fact that they are pardoned. Oh! Is it not a magnificent thing for a man to be able to tread God's earth with this for a song in his mouth, "I am forgiven, I am forgiven; I am pardoned?" I think it is one of the sweetest songs in all the world--scarcely less sweet than that of the cherubim before the throne--
 
-> "Oh. how sweet to view the flowing  
-> Of his soul redeeming blood!  
-> With divine assurance knowing,  
-> He has made my peace with God."  
+> Oh. how sweet to view the flowing    
+> Of his soul redeeming blood!    
+> With divine assurance knowing,    
+> He has made my peace with God.    
 
 Oh! what would you give for such a salvation as this, ye mourning souls? It is preached to you without money and without price, and I am bidden to cry "Ho! ho! Every one that thirsteth; if you feel your need of Christ, if you are now ready to confess your sins, come and take it freely without money and without price." But the best remains for the last. The pardon which is proclaimed to-night, is not only a free, and full, and present, but it is a pardon that will last for ever. If the Queen pardons any one--grants a free pardon--it is impossible that man should be punished for the same offense. Very often, however, the Queen grants a reprieve that is not a full pardon. There are cases in which persons are so far pardoned, that they are not executed for the crime, but confined during Her Majesty's pleasure. Now, our Lord never does that; he makes a clean sweep of it: there is not one sin that he allows to remain. When he does wash a soul, he washes it whiter than the driven snow. God doth things perfectly. But the best of it is, that what he does once is done for ever. This is the very glory of the gospel. If you get pardon to-night, you are saved now, but you never shall be condemned. If a man believeth in Christ with all his heart, his salvation is secure beyond hazard; and I always look upon this as the very jewel of the crown of salvation, that it be irreversible. If I commit my soul into the hands of God,
 
-> "His honor is engaged to save  
-> The meanest of his sheep.  
-> All that his heavenly father gave  
-> His hands securely keep.  
-> Not death or hell shall e'er divide  
-> His fav'rites from his breast;  
-> In the dear bosom of their God  
-> They must for ever rest."  
+> His honor is engaged to save    
+> The meanest of his sheep.    
+> All that his heavenly father gave    
+> His hands securely keep.    
+> Not death or hell shall e'er divide    
+> His fav'rites from his breast;    
+> In the dear bosom of their God    
+> They must for ever rest.    
 
 God does not make you his child to-day, and turn you out to-morrow; he does not forgive you to-day, and then punish you the next day. As true as God is God, if thou gettest thy pardon to-night Christian, the earth may melt away just as a moment's foam dissolves into the wave that bears it and is lost for ever; the great universe may pass away and be like the hoar-frost before the morning sun; but thou never canst be condemned. As long as God is God, he who has got his pardon signed and sealed, is beyond the reach of harm. I would not preach any other--I dare not. It would not be worth your receiving, it would not be worth my taking the trouble to preach; but this is worth any man's having indeed, for it is a sure investment. He Who puts himself into the hands of Christ has a sure keeper, come what may--and there may come strong temptations and strong affections, and there may come strong pains and hard duties, but he that hath helped us bears us through, and makes us more than conquerors too. Oh! to be pardoned once, with the certain assurance that we shall be pardoned for ever, beyond the hazard of being cast away!
 
@@ -65,9 +65,9 @@ If I should say, "My dear man, I do not like these chimney-pots to be put into t
 
 But see another man. He is a long way off, and he says, "Sir, I am afraid to come; I could not come and make a bid for the salvation. Sir, I've got no larnin', I'm no scholard I can't read a book, I wish I could. My children go to Sunday-school; I wish there was such a thing in my time, I can't read, and its no use my hoping to go to heaven. I goes to church sometimes, but oh dear! it's no good; the man uses such long words I can't understand'em, and I goes to chapel sometimes, but I can't make it out. I knows a little of the hymns my child says, about
 
-> 'Gentle Jesus meek and mild,'--and
+> Gentle Jesus meek and mild,'--and    
 
-> 'Oh! that will be joyful, when we meet to part no more.'
+> Oh! that will be joyful, when we meet to part no more.    
 
 I wish they would preach like that, and then, maybe, I could make it out. But I'm no sholard, sir, and I don't think I can be saved." O my dear friend, you need not stand over there at the back. Come along with you. It wants no scholarship to go to heaven. The more you know the better it will be for you on earth no doubt, but it will be of no particular use to you in heaven. If you can "read your title clear to mansions in the skies," if you know enough to know yourself a lost sinner, and Christ a great Saviour, that is all you want to know to get to heaven. There is many a man in heaven that never read a letter on earth--many a man that could not, if his life depended on it, have signed his name, but was obliged to write a cross as "Tom Stiles's mark" and there he is among the brightest. Peter himself has not a brighter place than manly poor ignorant souls who looked to Jesus Christ, and were enlightened. I will tell you something to comfort you. Don't you know that Christ said, the poor had the gospel preached to them and besides that, he said, "Except a man be converted, and become as a little child, he cannot enter into the kingdom of heaven." What does that mean, but that we must believe the gospel like little children? A little child has not much learning: he just believes what he is told, and that is what you are to do. You are to believe what God tells you. He says, that Jesus Christ came into the world to save sinners. That is no hard thing, is it? You can believe that; and if you can, it you are destitute of all human knowledge, you shall without doubt, know hereafter what you know not now.
 
@@ -75,25 +75,25 @@ Now, I see a man come up to the stall, and he says, "Well, I will have salvation
 
 It is too precious a place to be bought with gold and silver. If all the wealth of the Indies could be shot out in order to buy one glimpse of heaven, it would be useless. There is no man that could get so much as a distant peep within its pearly gates for all the gold that heart could conceive or covetousness desire. It is given away for nothing. Christ will never sell it--never--because there is nothing that can be brought at all equal to its value. What Christ bought with blood you cannot buy with gold. He redeemed us not with corruptible things, as silver and gold, but with his precious blood; and there is no other price that can ever be allowed. Ah! my rich friend, you are just on a level with your poorest laborer. You may wear broadcloth, and he fustian, yet he has as good an opportunity of being saved as you. Ah! my lady, satin has no preference in heaven above calico or cotton.
 
-> "None are excluded hence but those who do themselves exclude."
+> None are excluded hence but those who do themselves exclude.    
 
 Wealth makes distinction on earth, but no distinction at the cross of Christ. You must all come alike to the footstool of Jesus, or else not come at all. I knew a minister who told me he was once sent for to the dying bed of a Roman who was very well to do in the world, and she said, "Mr. Baxter, do you think when I get to heaven Betsy my servant will be there?" "Well," he said, "I don't know much about you, but Betsy will be there; for if I know any one who is a pious girl, it is she." "Well," said the lady, "don't you think there will be a little distinction? for I never could find it in my heart to sit down with a girl of that sort, she has no taste, no education, and I could not endure it. I think there ought to be a little difference." "Ah! you need not trouble yourself, madam," said he, "there will be a great distinction between you and Betsy, if you die in the temper in which you now are; but the distinction will be on the wrong side; for you will see her in Abraham's bosom, but you yourself will be cast out. As long as you have such pride in your heart, you can never enter into the kingdom of heaven." He spoke to her very plainly, and she was mightily offended. But I believe she preferred to be found out of heaven to submitting to sit with her servant Betsy. Let us respect rank and title here, if you please: but when we preach the gospel we know no such thing. If I preached to a congregation of kings, I would preach just the same gospel that I would preach to a congregation of clodhoppers. The king on his throne, and the queen in her palace, have no gospel different from you and me. However humble and obscure we may be there stands the gate of heaven wide open; there is the king's royal highway for us. The highway is as much for the poor man as for the rich man; so is the kingdom of heaven--"without money and without price."
 
 Now I hear my friend the Calvinist over there say, "Well, I like that, but still I think I can come, and though I can say with you,--
 
-> 'nothing in my hands I bring, simply to thy cross I cling.'
+> nothing in my hands I bring, simply to thy cross I cling.    
 
 Yet I can say this--I have had a deep experience, sir, I have been led to see the plague of my own heart, and I have felt a great deal. When I come to Christ I rely a great deal upon my feelings. I do not think you are right in calling all kinds of sinners to come to Christ, but you are right in calling me, for I am one of the right sort. I am one of the publican sort; I am pharisaical enough to think that; I think that I most certainly have a special commission to come, for I have such an experience that if I were to write my biography, you would say, This is a good experience; this man has a right to come to Christ.' " Well, friend, I am sorry to upset you, but I shall be compelled to do so. If you bring your experience to Christ when you come to him, you are as bad as the Romanist who brings his masses and Ave-Marias. I like your experience very well, if it be the work of God's grace in your heart, but if you bring it when you come to Christ, you put that before Christ, and it is an Anti-Christ. Away with it! away with it! When we have been preaching to poor sinners and tried to describe their state by nature and their feelings, I have been afraid after all, that we were fostering a spirit of self righteousness, and teaching our hearers to think that they must get certain feelings, before they can come to Christ. Let me just, if I can, preach the gospel in the broadest way possible, and that is the most truthful way. Christ wants your feelings no more than he does your money, and that is, not at all. If you want good experience you must come to Christ:--
 
-> "All the fitness he requireth, is to feel your need of him."
+> All the fitness he requireth, is to feel your need of him.    
 
 Yes, but stop--
 
-> "This he gives you, tis his Spirit's rising beam."
+> This he gives you, tis his Spirit's rising beam.    
 
 You are to come to Christ to get everything. You are not to say, "Well, I will believe first, and then come." No; go to Christ for faith. You must look to the cross even to get a sense of sin. We do not feel our sins so much before we see the cross, but we feel them most afterwards. We look to Christ first; then repentance flows from both our streaming eyes. Remember, if you go anywhere else to find a Saviour, you are on the wrong track. If you try to bring anything to Christ, to use a homely proverb, it is like bringing coals to Newcastle. He has plenty--he does not want any of yours, and what is more, as soon as he sees anything in your hands he will turn you straight away. He will have nothing to do with you until you can say--
 
-> "Nothing in my hands I bring, simply to thy cross I cling."
+> Nothing in my hands I bring, simply to thy cross I cling.    
 
 I have heard of a negro who was convinced of sin, and at the same time his master was under conviction. The negro found peace with God, but the master was a long time seeking without any hope; and at last he said, "I cannot make out how it is that you found comfort so soon, and I cannot get it at all." So the negro after asking his master to excuse his speaking plainly, said, "Massa, I tink it is just dis. When Jesus say, Come along,' he say, I give you a righteousness dat cover you from head to foot.' I, poor negro, looks down at myself, covered all over wid filthy rags, and I say, Lord, clothe me, I am naked,'--and off go my rags. Now, massa, you not so bad as dat. When he say, Come along,' to you, you look at your coat, and you say, Well, it wants a little mending, but I fink it will wear a little longer. Dere is a great hole here, but a little darning and stitching will do it up again.' So, massa, you keep your old coat; you keep on darning and stitching, and you never get comfort. But if you would take it off, you would get comfort at once." That is just it, we will be trying to get something before we come to Christ.
 
@@ -101,10 +101,10 @@ Now I dare say in this congregation I have a hundred different phases of this si
 
 Give up thinking, and believe. Are your thoughts as God's thoughts? Remember, his thoughts are as much higher than yours as heaven is higher than earth "But," says one, "I have sought him and I have not found him." Dear friend, can you truly say that you have come to Christ with nothing in your hand, and have looked alone to him, and yet he has cast you away? Do you dare to say that? No, if God's Word be true, and you are true, you cannot say that. Ah! I remember how that struck my heart when I heard my mother say it once. I had been some years seeking Christ, and I never could believe he would save me. She said she had heard many people swear and blaspheme God, but one thing she had never heard--she had never heard a man say he had sought Christ, and Christ had rejected him. "And," said she, "I do not believe that God would permit any man to live to say that." Well, I thought I could say it; I thought I had sought him, and he had cast me away, and I determined I would say it, even if it destroyed my soul: I would speak what I thought was the truth. But, I said to myself, "I will try once more" and I went to the Master, with nothing of my own, casting myself simply on his mercy; and I believed that he died for me:--and I have never said that, and blessed be his holy name, I know I never shall. Nor will you. Oh, do try him.
 
-> "Make but a trial of his love;
-> Experience will decide
-> How blest are they, and only they,
-> Who in his love confide."
+> Make but a trial of his love;    
+> Experience will decide    
+> How blest are they, and only they,    
+> Who in his love confide.    
 
 If you will come down to this price, and take Christ for nothing, just as he is, "without money and without price," you shall not find him a hard Master.
 

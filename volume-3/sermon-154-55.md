@@ -8,56 +8,56 @@ O GOD, the God of heaven and of earth, we do this day pay Thee reverence, and me
 
 Let us now praise God by singing the first Hymn. I shall read it through; and then, perhaps, you will be kind enough to sing it through.
 
-> BEFORE Jehovah's awful throng,  
-> Ye nations bow with sacred joy;  
-> Know that the Lord is God alone;  
-> He can create and he destroy.  
-> His sovereign power, without our aid,  
-> made us of clay and form'd us men!  
-> And when like wand'ring sheep, we stray'd,  
-> He brought us to his fold again.  
-> We are his people, we his care,  
-> Our souls and all our mortal frame;  
-> What lasting honors shall we rear,  
-> Almighty Maker to thy name?  
-> We'll crowd thy gates with thankful songs,  
-> High as the heavens our voices raise;  
-> And earth with her ten thousand tongues,  
-> Shall fill thy courts with sounding praise.  
-> Wide as the world is thy command;  
-> Vast as eternity thy love;  
-> Firm as a rock thy truth must stand,  
-> When rolling years shall cease to move.  
+> BEFORE Jehovah's awful throng,    
+> Ye nations bow with sacred joy;    
+> Know that the Lord is God alone;    
+> He can create and he destroy.    
+> His sovereign power, without our aid,    
+> made us of clay and form'd us men!    
+> And when like wand'ring sheep, we stray'd,    
+> He brought us to his fold again.    
+> We are his people, we his care,    
+> Our souls and all our mortal frame;    
+> What lasting honors shall we rear,    
+> Almighty Maker to thy name?    
+> We'll crowd thy gates with thankful songs,    
+> High as the heavens our voices raise;    
+> And earth with her ten thousand tongues,    
+> Shall fill thy courts with sounding praise.    
+> Wide as the world is thy command;    
+> Vast as eternity thy love;    
+> Firm as a rock thy truth must stand,    
+> When rolling years shall cease to move.    
 
 ## EXPOSITION.
 
-> DANIEL 9:1-19.  
+> DANIEL 9:1-19.    
 
-> "In the first year of Darius the Son of Ahasuerus, of the seed of the Medes, which was made king over the realm of the Chaldeans;  
-> "In the first year of his reign I Daniel understood by books the number of the years, whereof the word of the Lord came to Jeremiah the prophet, that he would accomplish seventy years in the desolations of Jerusalem.  
-> "And I set my face unto the Lord God, to seek by prayer and supplications, withfasting, and sackcloth, and ashes:  
-> "And I prayed unto the Lord my God, and made my confession, and said, O Lord, the great and dreadful God, keeping the covenant and mercy to them that love him, and to them that keep his commandments;  
-> "We have sinned, and have committed, iniquity, and have done wickedly, and have rebelled, even by departing from thy precepts and from thy judgments:  
-> "Neither have we hearkened unto thy servants the prophets, which spake thy name to our kings, our princes, and our fathers, and to all the people of the land.  
-> "O Lord, righteousness belongeth unto thee, but unto us confusion of faces, as at this day; to the men of Judah, and to the inhabitants of Jerusalem, and unto all Israel, that are near, and that are far off, through all the countries whither thou hast driven them, because of their trespass that they have trespassed against thee.  
-> "O Lord, to us belongeth confusion of face, to our kings, to our princes, and to our fathers, because we have sinned against thee.  
-> "To the Lord our God belong mercies and forgivenesses, though we have rebelled against him."  
+> In the first year of Darius the Son of Ahasuerus, of the seed of the Medes, which was made king over the realm of the Chaldeans;    
+> "In the first year of his reign I Daniel understood by books the number of the years, whereof the word of the Lord came to Jeremiah the prophet, that he would accomplish seventy years in the desolations of Jerusalem.    
+> "And I set my face unto the Lord God, to seek by prayer and supplications, withfasting, and sackcloth, and ashes:    
+> "And I prayed unto the Lord my God, and made my confession, and said, O Lord, the great and dreadful God, keeping the covenant and mercy to them that love him, and to them that keep his commandments;    
+> "We have sinned, and have committed, iniquity, and have done wickedly, and have rebelled, even by departing from thy precepts and from thy judgments:    
+> "Neither have we hearkened unto thy servants the prophets, which spake thy name to our kings, our princes, and our fathers, and to all the people of the land.    
+> "O Lord, righteousness belongeth unto thee, but unto us confusion of faces, as at this day; to the men of Judah, and to the inhabitants of Jerusalem, and unto all Israel, that are near, and that are far off, through all the countries whither thou hast driven them, because of their trespass that they have trespassed against thee.    
+> "O Lord, to us belongeth confusion of face, to our kings, to our princes, and to our fathers, because we have sinned against thee.    
+> "To the Lord our God belong mercies and forgivenesses, though we have rebelled against him.    
 
 There is the first bright star which shines in the midst of the darkness of our sins. God is merciful. He is just--as just as if he were not merciful. He is merciful--as merciful as if he were not just, and in very deed more merciful than if he were too lenient; instead of blending a wise severity of justice with a gracious clemency of long-suffering. My brethren, we should rejoice that we have not this day to address the gods of the heathens. You have not to-day to bow down before the thundering Jove; you need not come before implacable deities, who delight in the blood of their creatures, or rather, of the creatures whom it is pretended that they have made. Our God delights in mercy, and in the deliverance of Britain from its ills. God will be as much pleased as Britain; yea, when Britain shall have forgotten it, and only the page of history shall record his mercies, God will still remember what he did for us in this day of our straits and our difficulties. As to the hope that he will help us it is a certainty. There is no fear that when we unite in prayer God will refuse to hear. It is as sure as that there is a God, that God will hear us; and if we ask him aright, the day shall come when the world shall see what Britain's God has done, and how he has heard her cry, and answered the voice of her supplications.
 
-> "Neither have we obeyed the voice of the Lord our God, to walk in his laws, which he set before us by his servants the prophets.  
-> "Yea, all Israel have transgressed thy law, even by departing, that they might not obey thy voice; therefore the curse is poured upon us, and the oath that is written in the law of Moses the servant of God, because we have sinned against him.  
-> "And he hath confirmed his words, which he spake against us, and against our judges that judged us, by bringing upon us a great evil: for under this whole heaven hath not been done as hath been done upon Jerusalem.  
-> "As it is written in the law of Moses, all this evil is come upon us: yet made we not our prayer before the Lord our God, that we might turn front our iniquities, and understand thy truth.  
-> "Therefore hath the Lord watched upon the evil, and brought it upon us: for the Lord our God is righteous in all his works which he doeth: for we obeyed not his voice.  
-> "And now, O Lord our God, that hast brought thy people forth out of the land of Egypt with a mighty hand, and hast gotten thee renoun, as at this day; we have sinned, we have done wickedly."  
+> Neither have we obeyed the voice of the Lord our God, to walk in his laws, which he set before us by his servants the prophets.    
+> "Yea, all Israel have transgressed thy law, even by departing, that they might not obey thy voice; therefore the curse is poured upon us, and the oath that is written in the law of Moses the servant of God, because we have sinned against him.    
+> "And he hath confirmed his words, which he spake against us, and against our judges that judged us, by bringing upon us a great evil: for under this whole heaven hath not been done as hath been done upon Jerusalem.    
+> "As it is written in the law of Moses, all this evil is come upon us: yet made we not our prayer before the Lord our God, that we might turn front our iniquities, and understand thy truth.    
+> "Therefore hath the Lord watched upon the evil, and brought it upon us: for the Lord our God is righteous in all his works which he doeth: for we obeyed not his voice.    
+> "And now, O Lord our God, that hast brought thy people forth out of the land of Egypt with a mighty hand, and hast gotten thee renoun, as at this day; we have sinned, we have done wickedly.    
 
 The prophet in his prayer pleads what God has done for them, as the reason why he should make bare his arm; he tells how God delivered Israel out of Egypt; and he therefore prays that God would deliver them from their present trouble. And, my brethren, not Israel itself could boast a nobler history than we, measuring it by God's bounties. We have not yet forgotten an armada scattered before the breath of heaven, scattered upon the angry deep as a trophy of what God can do to protect his favored Isle. We have not yet forgotten a fifth of November, wherein God discovered divers plots that were formed against our religion and our commonwealth. We have not yet lost the old men, whose tales of even the victories in war are still a frequent story. We remember how God swept before our armies the man who thought to make the world his dominion, who designed to cast his shoe over Britain, and make it a dependency of his kingdom. God wrought for us; he wrought with us; and he will continue to do so. He hath not left his people, and he will not leave us, but he will be with us even to the end. Cradle of liberty! Refuge of distress! Storms may rage around thee, but not upon thee, nor shall all the wrath and fury of men destroy thee, for God hath pitched his tabernacle in thy midst, and his saints are the salt in the midst of thee.
 
-> "O Lord, according to all thy righteousness, I beseech thee, let thine anger and thy fury be turned away from thy city Jerusalem, thy holy mountain: because for our sins, and for the iniquities of our fathers, Jerusalem and thy people are become a reproach to all that are about us.  
-> "Now, therefore, O our God, hear the prayer of thy servant, and his supplications, and cause thy face to thine upon thy sanctuary that is desolate, for the Lord's sake.  
-> "O my God, incline thins ear, and hear; open thine eyes, and behold our desolations, and the city which is called by thy name: for we do not present our supplications before thee for our righteousnesses, but for thy great mercies.  
-> "O Lord, hear; O Lord, forgive; O lord, hearken and do; defer not, for thine own sake, O my God: for thy city and thy people are called by thy name."  
+> O Lord, according to all thy righteousness, I beseech thee, let thine anger and thy fury be turned away from thy city Jerusalem, thy holy mountain: because for our sins, and for the iniquities of our fathers, Jerusalem and thy people are become a reproach to all that are about us.    
+> "Now, therefore, O our God, hear the prayer of thy servant, and his supplications, and cause thy face to thine upon thy sanctuary that is desolate, for the Lord's sake.    
+> "O my God, incline thins ear, and hear; open thine eyes, and behold our desolations, and the city which is called by thy name: for we do not present our supplications before thee for our righteousnesses, but for thy great mercies.    
+> "O Lord, hear; O Lord, forgive; O lord, hearken and do; defer not, for thine own sake, O my God: for thy city and thy people are called by thy name.    
 
 And now for a few moments let us endeavor to pray:--
 
@@ -73,33 +73,33 @@ But, O Lord, it is ours this day to humble ourselves before Thee. We are a sinfu
 
 Let us now sing the second hymn. It is made up of verses selected from different psalms, which I thought to be appropriate to the occasion
 
-> OUR God, our help in ages past,  
-> Our hope for years to come,  
-> Our shelter from the stormy blast,  
-> And our eternal home.  
-> Under the shadow of thy throne,  
-> Thy saints have dwelt secure  
-> Sufficient is thine arm alone,  
-> And our defense is sure.  
-> Our foes insult us, but our hope  
-> In thy compassion lies  
-> This thought shall bear our spirits up,  
-> That God will not despise.  
-> In vain the sons of Satan boast  
-> Of armies in array;  
-> When God has first despised their host,  
-> They fall an easy prey.  
-> Our God, our help in ages past,  
-> Our hope for years to come  
-> Be thou our guard while troubles last,  
-> And our eternal home.  
+> OUR God, our help in ages past,    
+> Our hope for years to come,    
+> Our shelter from the stormy blast,    
+> And our eternal home.    
+> Under the shadow of thy throne,    
+> Thy saints have dwelt secure    
+> Sufficient is thine arm alone,    
+> And our defense is sure.    
+> Our foes insult us, but our hope    
+> In thy compassion lies    
+> This thought shall bear our spirits up,    
+> That God will not despise.    
+> In vain the sons of Satan boast    
+> Of armies in array;    
+> When God has first despised their host,    
+> They fall an easy prey.    
+> Our God, our help in ages past,    
+> Our hope for years to come    
+> Be thou our guard while troubles last,    
+> And our eternal home.    
 
 Hoping to receive help from God's Holy Spirit, I shall now proceed to address you from a part of the 9th verse of the 6th chapter of Micah:--
 
 ## SERMON.
 
-> "Hear ye the rod, and who hath appointed it."  
-> Micah 6:9.  
+> Hear ye the rod, and who hath appointed it."    
+> Micah 6:9.    
 
 THIS world is not the place of punishment for sin; not the place; it may sometimes be a place, but not usually. It is very customary among religious people, to talk of every accident which happens to men in the indulgence of sin, as if it were a judgment. The upsetting of a boat upon a river on a Sunday is assuredly understood to be a judgment for the sin of Sabbath-breaking. In the accidental fall of a house, in which persons were engaged in any unlawful occupation, the inference is at once drawn that the house fell because they were wicked. Now, however some religionists may hope to impress the people by such childish stories as those, I, for one, forswear them all. I believe what my Master says is true, when he declared, concerning the men upon whom the tower of Siloam fell, that they were not sinners above all the sinners that were upon the face of the earth. They were sinners; there is no doubt about it; but the falling of the wall was not occasioned by their sin, nor was their premature death the consequence of their excessive wickedness. Let me, however, guard this declaration, for there are many who carry this doctrine to an extreme. Because God does not usually visit each particular offense in this life upon the transgressor, men are apt to deny altogether the doctrine of judgments. But here they are mistaken. I feel persuaded that there are such things as national judgments, national chastisements for national sins--great blows from the rod of God, which every wise man must acknowledge to be, either a punishment of sin committed, or a monition to warn us to a sense of the consequences of sins, leading us by God's grace to humiliate ourselves, and repent of our sin.
 
@@ -143,13 +143,13 @@ Lives there a man in England who will this day refuse his help to those of his c
 
 The following Chorus was then sung--
 
-> GLORY, honor, praise, and power,  
-> Be unto the Lamb for ever;  
-> Jesus Christ is our Redeemer,  
-> Hallelujah, Amen.  
+> GLORY, honor, praise, and power,    
+> Be unto the Lamb for ever;    
+> Jesus Christ is our Redeemer,    
+> Hallelujah, Amen.    
 
 After which, the benediction having been pronounced, the service terminated.
 
 There were upwards of 24,000 persons present at this service; and the amount collected towards the Indian Relief Fund amounted to nearly £500, of which £25 was given by Miss Nightingale. The Crystal Palace Company contributed £200 in addition--making a total of nearly £700.
 
-> "To God be all the glory."  
+> To God be all the glory.    

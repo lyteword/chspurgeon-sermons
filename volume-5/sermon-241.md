@@ -2,15 +2,15 @@
 
 Sermon No. 241 - Delivered on Sabbath Morning, March 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Moreover whom he did predestinate, them he also called."  
-> Romans 8:30  
+> Moreover whom he did predestinate, them he also called.    
+> Romans 8:30    
 
 THE GREAT BOOK OF GOD'S DECREES is fast closed against the curiosity of man. Vain man would be wise; he would break the seven seals thereof, and read the mysteries of eternity. But this cannot be; the time has not yet come when the book shall be opened, and even then the seals shall not be broken by mortal hand, but it shall be said, "The lion of the tribe of Judah hath prevailed to open the book and break the seven seals thereof."
 
-> Eternal Father, who shall look  
-> Into thy secret will?  
-> None but the Lamb shall take the book,  
-> And open every seal.  
+> Eternal Father, who shall look    
+> Into thy secret will?    
+> None but the Lamb shall take the book,    
+> And open every seal.    
 
 None but he shall ever unroll that sacred record and read it to the assembled world. How then am I to know whether I am predestinated by God unto eternal life or not? It is a question in which my eternal interests are involved; am I among that unhappy number who shall be left to live in sin and reap the due reward of their iniquity; or do I belong to that goodly company, who albeit that they have sinned shall nevertheless be washed in the blood of Christ, and shall in white robes walk the golden streets of paradise? Until this question be answered my heart cannot rest, for I am intensely anxious about it. My eternal destiny infinitely more concerns me than all the affairs of time. Tell me, oh, tell me, if ye know, seers and prophets, is my name recorded in that book of life? Am I one of those who are ordained unto eternal life, or am I to be left to follow my own lusts and passions, and to destroy my own soul? Oh! man, there is an answer to thy inquiry; the book cannot be opened, but God himself hath published many a page thereof. He hath not published the page whereon the actual names of the redeemed are written; but that page of the sacred decree whereon their character is recorded is published in his Word, and shall be proclaimed to thee this day. 
 
@@ -28,7 +28,7 @@ The effectual call of grace is precisely similar; the sinner is dead in sin; he 
 
 "Well," cries one, "but what are the words which Christ uses when he calls a sinner from death?" Why the Lord may use any words. It was not long ago there came unto this hall, a man who was without God and without Christ, and the simple reading of the hymn--
 
-> "Jesus lover of my soul,"
+> Jesus lover of my soul,    
 
 was the means of his quickening. He said within himself, "Does Jesus love me? then I must love him," and he was quickened in that selfsame hour. The words which Jesus uses are various in different cases. I trust that even while I am speaking this morning, Christ may speak with me, and some word that may fall from my lips, unpremeditated and almost without design, shall be sent of God as a message of life unto some dead and corrupt heart here, and some man who has lived in sin hitherto, shall now live to righteousness, and live to Christ. That is the first illustration I will give you of what is meant by effectual calling. It finds the sinner dead, it gives him life, and he obeys the call of life and lives.
 
@@ -54,10 +54,10 @@ Can ye say, "Lord, thou knowest all things, thou knowest that I desire to keep a
 
 Another text. In Philippians 3:13 and 14 you find these words. "Forgetting those things which are behind, and reaching forth unto those which are before, I press towards the mark for the prize of the high calling of God in Christ Jesus." Is then your calling a high calling, has it lifted up your heart, and set it upon heavenly things? Has it lifted up your hopes, to hope no longer for things that are on earth, but for things that are above? Has it lifted up your tastes, so that they are no longer grovelling, but you choose the things that are of God? Has it lifted up the constant tenor of your life, so that you spend your life with God in prayer, in praise, and in thanksgiving, and can no longer be satisfied with the low and mean pursuits which you followed in the days of your ignorance? Recollect, if you are truly called it is a high calling, a calling from on high, and a calling that lifts up your heart, and raises it to the high things of God, eternity, heaven, and holiness. In Hebrews 3:1, you find this sentence. "Holy brethren partakers of the heavenly calling." Here is another test. Heavenly calling means a call from heaven. Have you been called, not of man but of God? Can you now detect in your calling, the hand of God, and the voice of God? If man alone call thee, thou art uncalled. Is thy calling of God? and is it a call to heaven as well as from heaven? Can you heartily say that you can never rest satisfied till you
 
-> --"behold his face  
-> And never, never sin,  
-> But from the rivers of his grace,  
-> Drink endless pleasures in."  
+> --"behold his face    
+> And never, never sin,    
+> But from the rivers of his grace,    
+> Drink endless pleasures in.    
 
 Man, unless thou art a stranger here, and heaven is thy home, thou hast not been called with a heavenly calling, for those who have been so called, declare that they look for a city which hath foundations, whose builder and maker is God, and they themselves are strangers and pilgrims upon the earth.
 
@@ -83,12 +83,12 @@ Come on, slanderers! rail on as pleases you. Come on thou world in arms! Catarac
 
 A second consolation is drawn from the grand truth, that if a man be called he will certainly be saved at last. To prove that, however, I will refer you to the express words of scripture: Romans 11:29--"The gifts and calling of God are without repentance." He never repents of what he gives, nor of what he calls. And indeed this is proved by the very chapter out of which we have taken our text. "Whom he did predestinate, them he also called; and whom he called, them he also justified; and whom he justified, them he also glorified," everyone of them. Now, believer, thou mayest be very poor, and very sick, and very much unknown and despised, but sit thee down and review thy calling this morning, and the consequences that flow from it. As sure as thou art God's called child today, thy poverty shall soon be at an end, and thou shalt be rich to all the intents of bliss. Wait awhile; that weary head shall soon be girt with a crown. Stay awhile; that horny hand of labor shall soon grasp the palm branch. Wipe away that tear; God shall soon wipe away thy tears for ever. Take away that sigh--why sigh when the everlasting song is almost on thy lip? The portals of heaven stand wide open for thee. A few winged hours must fly; a few more billows must roll o'er thee, and thou wilt be safely landed on the golden shore. Do not say, "I shall be lost; I shall be cast away." Impossible.
 
-> Whom once he loves he never leaves,  
-> But loves them to the end.  
+> Whom once he loves he never leaves,    
+> But loves them to the end.    
 
 If he hath called thee, nothing can divide thee from his love. The wolf of famine cannot gnaw the bond; the fire of persecution cannot burn the link, the hammer of hell cannot break the chain; old time cannot devour it with rust, nor eternity dissolve it, with all its ages. Oh! believe that thou art secure; that voice which called thee, shall call thee yet again from earth to heaven, from death's dark gloom to immortality's unuttered splendours; Rest assured, the heart that called thee, beats with infinite love towards thee, a love undying, that many waters cannot quench, and that floods cannot drown. Sit thee down; rest in peace; lift up thine eye of hope, and sing thy song with fond anticipation. Thou shall soon be with the glorified, where thy portion is; thou art only waiting here to be made meet, for the inheritance, and that done, the wings of angels shall waft thee far away, to the mount of peace, and joy, and blessedness, where
 
-> Far from a world of grief and sin,  
-> With God eternally shut in,  
+> Far from a world of grief and sin,    
+> With God eternally shut in,    
 
 thou shall rest for ever and ever. Examine yourselves then whether you have been called.--And may the love of Jesus be with you. Amen.

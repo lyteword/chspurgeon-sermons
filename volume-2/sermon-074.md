@@ -2,8 +2,8 @@
 
 Sermon No. 74 - Delivered on Sabbath Morning, April 13, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Thy people shall be willing in the day of thy power, in the beauties of holiness from the womb of the morning: thou hast the dew of thy youth."  
-> Psalm 110:3.  
+> Thy people shall be willing in the day of thy power, in the beauties of holiness from the womb of the morning: thou hast the dew of thy youth.    
+> Psalm 110:3.    
 
 Never verse in the Scripture has puzzled me more than this to find out its meaning and its connection. In reading it over hastily, at first sight, it may appear very easy; but if you search into it very carefully you will find you can with difficulty string the words together, or give them any intelligible meaning. I have taken down all the commentators I have in my possession; I find they all give a meaning to the words, but not a soul of them--not even Dr. Gill--gives a connected meaning to the whole sentence. After looking at the old translations, and employing every means in my power to discover the meaning, I found myself as far off as when I began. Matthew Henry, one of the wisest commentators, certainly the best for family reading, makes the passage read as if it were like this: "Thy people shall come willingly in the day of thy power in the beauties of holiness. In the womb of the morning thou hast the dew of thy youth." That is how he explains it, though he does not say that is the proper translation. He explains the last sentence, "Thou hast the dew of thy youth," as meaning that in early life, from the womb of the morning, young people would give themselves to Jesus Christ. But it is no such thing. There is a colon at the word "morning," dividing the sentence. Besides, it does not say, the "people shall be willing; thou hast the dew of their youth," as it would read if it were as the expositors understand it; but it says to Christ, "Thou hast the dew of thy youth." It was not until we had thoroughly looked at the connection of the verse, and tried to catch the scope of the Psalm, that we thought we had hit upon its meaning; and even now we shall leave it with your judgment to decide whether or not we have gained the mind of the Spirit, as we hope we have.
 
@@ -35,15 +35,15 @@ I tell you of hell; I bid you flee from it; I tell you of Christ; I bid you look
 
 I think this word applies not only to their being willing to be saved, but willing to work after they are saved. Did you ever know a minister who preached on the Sunday, but who at the prayer-meeting on the Monday night seemed as if he would much rather be at home? And if there was a lecture on Thursday, did not he, poor man, come up as if he were about to perform some enormously hard duty? What do you think of him? Why, you think he is not one of the people of God, else he would be willing. Some persons come to the house of God, but they come just as the negro would to his whipping place, they do not like it, and they are glad to get away again. But what do we say of God's people,--
 
-> "Up to her courts with joys unknown,  
-> The sacred tribes repair."  
+> Up to her courts with joys unknown,    
+> The sacred tribes repair.    
 
 They are a willing people. There is a collection. The Church of God requires some assistance. One man doles out as small a trifle as ever he can to keep up his respectability. You do not think he exhibits the spirit of a Christian because he is not willing; but Christ's people are willing; all that they do, they do willingly, for they are constrained by no compulsion, but by grace alone. I am sure we all can do a thing far better when we are willing than when we are forced. God loves his people's services, because they do them voluntarily. Voluntaryism is the essence of the gospel. Willing people are those whom God delights to have as his servants. He would not have slaves to grace his throne, but free men, who, with gladness and joy, should be willing in the day of his power.
 
 We shall scarcely have time for a discussion of the whole text, but we must briefly notice the character of these people as well as their dispositions. "Thy people shall be willing in the day of thy power." "They shall be willing in the beauties of holiness." This is how they shall be clothed--not merely in holiness, but in the beauties of holiness, for holiness hath its beauties, its gems, its pearls; and what are these? They shall be clothed in the beauties of holiness of imputed righteousness and of imparted grace. God's people are, in themselves a deformed people, hence their comeliness must be given them. The standard of beauty is saintship. If an angel should descend from heaven, and carry up to God the most beautiful creature he could find, he would not cull earth's roses, he would not gather her lilies, but he would take up to heaven the fair character of a child of God. Where he found a self-denying hero, where he discovered a disinterested Christian--an ardent disciple, the angel would take him up, exclaiming, "Great God, here is beauty; take it, this is thy beauty." We walk along and admire statues and such-like things, and we say, "Here is beauty," but the Christian has on him the true beauty--the beauties of holiness. Oh! ye young, ye gay, ye proud, ye ask for beauty, but do you know that all the beauties of this earth can do you no good, for you must die and wear a shroud?
 
-> "Time will rob you of your bloom,  
-> Death will drag you to the tomb."  
+> Time will rob you of your bloom,    
+> Death will drag you to the tomb.    
 
 But if you have the beauties of holiness, they shall increase and become fairer and fairer, and amongst the fair angels, you, as fair as they, shall stand decked in your Saviour's righteousness. "Thy people shall be willing" to come forward, and they shall be the right sort of people; they will be a holy people, arrayed in all "the beauties of holiness."
 

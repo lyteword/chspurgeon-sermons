@@ -2,8 +2,8 @@
 
 Sermon No. 251 - Delivered on Sabbath Morning, May 8th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And I will put my Spirit within you."  
-> Ezekiel, 36:27.  
+> And I will put my Spirit within you.    
+> Ezekiel, 36:27.    
 
 The miracles of Christ are remarkable for one fact, namely that they are none of them unnecessary. The pretended miracles of Mahomet, and of the church of Rome, even if they had been miracles, would have been pieces of folly. Suppose that Saint Denis had walked with his head in his hand after it had been cut off, what practical purpose would have been subserved thereby? He would certainly have been quite as well in his grave, for any practical good he would have conferred on men. The miracles of Christ were never unnecessary. They are not freaks of power; they are displays of power it is true, but they all of them have a practical end. The same thing may be said of the promises of God. We have not one promise in the Scripture which may be regarded as a mere freak of grace. As every miracle was necessary, absolutely necessary, so is every promise that is given in the Word of God. And hence from the text that is before us, may I draw, and I think very conclusively, the argument, that if God in his covenant made with his people has promised to put his Spirit within them, it must be absolutely necessary that this promise should have been made, and it must be absolutely necessary also to our salvation that every one of us should receive the Spirit of God. This shall be the subject of this morning's discourse. I shall not hope to make it very interesting, except to those who are anxiously longing to know the way of salvation.
 
@@ -33,29 +33,29 @@ These two experiences would be sufficient to prove the necessity of the Holy Spi
 
 But look at the Christian, too, in his joyous moments. He is rich. God has given him all his heart's desire on earth. Look at him: he says, "I do not value these things at all, except as they are the gift of God; I sit loose by them all and, notwithstanding this house and home, and all these comforts, I am willing to depart and be with Christ, which is far better.' It is true, I want nothing here on earth; but still I feel that to die would be gain to me, even though I left all these." He holds earth loosely; he does not grasp it with a tight hand, but looks upon it all as dust,--a thing which is to pass away. He takes but little pleasure therein, saying,--
 
-> "I've no abiding city here,   
-> I seek a city out of sight."
+> I've no abiding city here,    
+> I seek a city out of sight.    
 
 Mark that man; he has plenty of room for pleasures in this world, but he drinks out of a higher cistern. His pleasure springs from things unseen; his happiest moments are when he can shut all these good things out, and when he can come to God as a poor guilty sinner, and come to Christ and enter into fellowship with him, and rise into nearness of access and confidence, and boldly approach to the throne of the heavenly grace. Now, what is it that keeps a man who has all these mercies from setting his heart upon the earth? This is a wonder, indeed, that a man who has gold and silver, and flocks and herds, should not make these his god, but that he should still say,--
 
-> "There's nothing round this spacious earth   
-> That suits my large desire;   
-> To boundless joy and solid mirth   
-> My nobler thoughts aspire."
+> There's nothing round this spacious earth    
+> That suits my large desire;    
+> To boundless joy and solid mirth    
+> My nobler thoughts aspire.    
 
 These are not my treasure; my treasure is in heaven, and in heaven only. What can do this? No mere moral virtue. No doctrine of the Stoic ever brought a man to such a pass as. that. No, it must be the work of the Spirit, and the work of the Spirit alone, that can lead a man to live in heaven, while there is a temptation to him to live on earth. I do not wonder that a poor man looks forward to heaven; he has nothing to look upon on earth. When there is a thorn in the nest, I do not wonder that the lark flies up, for there is no rest for him below. When you are beaten and chafed by trouble, no wonder you say,--
 
-> "Jerusalem! my happy home!   
-> Name ever dear to me;   
-> When shall my labors have an end,   
-> In joy, and peace, and thee?"
+> Jerusalem! my happy home!    
+> Name ever dear to me;    
+> When shall my labors have an end,    
+> In joy, and peace, and thee?    
 
 But the greatest wonder is, if you line the Christian's nest never so softly, if you give him all the mercies of this life, you still cannot keep him from saying,--
 
-> "To Jesus, the crown of my hope,   
-> My soul is in haste to be gone;   
+> To Jesus, the crown of my hope,    
+> My soul is in haste to be gone;    
 > Oh bear me, ye cherubim, up,    
-> And waft me away to his throne."
+> And waft me away to his throne.    
 
 And now, last of all, the acts, the acceptable acts, of the Christian's life, cannot be performed without the Spirit; and hence, again, the necessity for the Spirit of God. The first act of the Christian's life is repentance. Have you ever tried to repent? If so, if you tried without the Spirit of God you know that to urge a man to repent without the promise of the Spirit to help him, is to urge him to do an impossibility. A rock might as soon weep, and a desert might as soon blossom, as a sinner repent of his own accord. If God should offer heaven to man, simply upon the terms of repentance of sin, heaven would be as impossible as it is by good works; for a man can no more repent of himself, than he can perfectly keep God's law; for repentance involves the very principle of perfect obedience to the law of God. It seems to me that in repentance there is the whole law solidified and condensed; and if a man can repent of himself then there is no need of a Saviour, he may as well go to heaven up the steep sides of Sinai at once.
 

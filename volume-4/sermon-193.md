@@ -2,8 +2,8 @@
 
 Sermon No. 193 - Delivered on Sabbath Morning, May 9, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "These that have turned the world upside down are come hither also."  
-> Acts 17:6.  
+> These that have turned the world upside down are come hither also.    
+> Acts 17:6.    
 
 THIS IS JUST an old version of an oft-repeated story. When disturbances arise in a state, and rebellions and mutinies cause blood to be shed, it is still the custom to cry, "The Christians have done this." In the days of Jesus we know that it was laid to the charge of our blessed and divine Master, that he was a stirrer of sedition, whereas he himself had refused to be a king, when his followers would have taken him by force to make him one, for he said, "My kingdom is not of this world;" yet was he crucified under the two false charges of sedition and blasphemy. The same thing occurred with the Apostles. Wherever they went to preach the gospel, the Jews who opposed them sought to stir up the refuse of the city to put an end to their ministry; and then, when a great tumult had been made by the Jews themselves, who had taken unto them certain lewd fellows of the baser sort, and gathered a company, and set all the city in an uproar, and assaulted the house of Jason, and sought to bring him out to the people, then the Jews laid the tumult and the uproar at the door of the Apostles, saying, "These that have turned the world upside down are come hither also." This plan was followed all through the Roman empire, until Christianity became the state religion. There was never a calamity befel Rome, never a war arose, never a famine or a plague, but the vulgar multitude cried, "The Christians to the lions! The Christians have done this." Nero himself imputed the burning of Rome, of which he himself doubtless was the incendiary, to the Christians. 
 
@@ -41,10 +41,10 @@ Now turn to the next beatitude--in the seventh verse--"Blessed are the merciful:
 
 "Blessed are the pure in heart: for they shall see God." The world says, "Blessed is the man who indulges in a gay life." If you ask the common run of mankind who is the happy man, they will tell you, "The happy man is he who has abundance of money, and spends it freely, and is freed from restraint--who leads a merry dance of life, who drinks deep of the cup of intoxication--who revels riotously--who, like the wild horse of the prairie, is not bitted by order, or restrained by reason, but who dashes across the broad plains of sin, unharnessed, unguided, unrestrained." This is the man whom the world calls happy: the proud man, the mighty man, the Nimrod; the man who can do just as he wishes, and who spurns to keep the narrow way of holiness. Now, the Scripture says, Not so; "Blessed are the pure in heart, for they shall see God."
 
-> "Blest is the man who shuns the place  
-> Where sinners love to meet;  
-> Who fears to tread their wicked ways,  
-> And hates the scoffer's seat,"--  
+> Blest is the man who shuns the place    
+> Where sinners love to meet;    
+> Who fears to tread their wicked ways,    
+> And hates the scoffer's seat,"--    
 
 the man who cannot touch one thing because that would be lascivious, nor another because that would spoil his communion with his Master; a man who cannot frequent this place of amusement, because he could not pray there, and cannot go to another, because he could not hope to have his Master's sanction upon an hour so spent. That man, pure in heart, is said to be a Puritanical moralist, a strict Sabbatarian, a man who has not any mind of his own; but Jesus Christ puts all straight, for he says, these are the blessed men these are the happy ones. "Blessed are the pure in heart: for they shall see God."
 
@@ -74,10 +74,10 @@ Again, it is a complete upsetting of all your pleasures. You loved the tavern on
 
 It is marvellous how great a change the gospel makes in a man's house too. Why, it turns his house upside down. Look over the mantle-piece--There is a vile daub of a picture there, or a wretched print, and the subject is worse than the style of the thing. But when the man follows Jesus he takes that down, and he gets a print of John Bunyan in his prison, or his wife standing before the magistrate, or a print of the apostle Paul preaching at Athens, or some good old subject representing something Biblical. There is a pack of cards and a cribbage board in the cupboard; he turns them out, and instead he puts there perhaps the monthly magazine, or mayhaps few works of old divines, just here and there one of the publications of the Religious Tract Society, or a volume of a Commentary. Every thing is upside down there. The children say, "Father is so altered." They never knew such a thing. He used to come home sometimes drunk of a night, and the children used to run up stairs and be in bed before he came in; and now little John and little Sarah sit at the window and watch till he comes home; and they go toddling down the street to meet him, and he takes one in his arms, and the other by the hand, and brings them home with him. He used to teach them to sing "Begone dull care" or something worse, now he tells them of "Gentle Jesus meek and mild" or puts into their mouth some sweet song of old. A jolly set of companions he used to have come to see him, and a roaring party there used to be of them, on a Sunday afternoon; but that is all done with. The mother smiles upon her husband: she is a happy woman now; she knows that he will no longer disgrace himself by plunging into the vilest of society, and being seduced into the worst of sins. Now, if you could take a man's heart out, and put a new heart right into him, it would not be half so good, if it were another natural heart, as the change that God works, when he takes out the heart of stone, and puts in a heart of flesh--
 
-> "A heart resigned, submissive, meek,  
-> Our dear Redeemer's throne  
-> Where only Christ is heard to speak,  
-> Where Jesus reigns alone."  
+> A heart resigned, submissive, meek,    
+> Our dear Redeemer's throne    
+> Where only Christ is heard to speak,    
+> Where Jesus reigns alone.    
 
 I put, then, the question to you again: Have you been turned upside down? How about your companions? You loved those the best who could swear the loudest, talk the fastest, and tell the greatest falsehoods: now you love those who can pray the most earnestly, and tell you the most of Jesus. Everything is changed with you. If you were to meet your old self going down the street, you would not know him, except by hearsay; you are no relation to him at all. Sometimes the old gentleman comes to your house, and he begins to tempt you to go back; but you turn him out of doors as soon as you can, and say, "Begone! I never got on so long as I knew you; I had a ragged coat to my back then, and I was always giving the publican all my money; I never went to God's house, but cursed my Maker, and added sin to sin, and tied a mill-stone round my neck. So away from me, I will have nothing to do with you; I have been buried with Christ, and I have risen with him. I am a new man in Christ Jesus, old things have passed away, and behold all things have become new."
 

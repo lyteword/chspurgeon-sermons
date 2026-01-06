@@ -2,13 +2,13 @@
 
 Sermon No. 1 - Delivered on Sabbath Morning, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "I am the Lord, I change not; therefore ye sons of Jacob are not consumed."  
-> Malachi 3:6.  
+> I am the Lord, I change not; therefore ye sons of Jacob are not consumed.    
+> Malachi 3:6.    
 
 It has been said by some one that "the proper study of mankind is man." I will not oppose the idea, but I believe it is equally true that the proper study of God's elect is God; the proper study of a Christian is the Godhead. The highest science, the loftiest speculation, the mightiest philosophy, which can ever engage the attention of a child of God, is the name, the nature, the person, the work, the doings, and the existence of the great God whom he calls his Father. There is something exceedingly improving to the mind in a contemplation of the Divinity. It is a subject so vast, that all our thoughts are lost in its immensity; so deep, that our pride is drowned in its infinity. Other subjects we can compass and grapple with; in them we feel a kind of self-content, and go our way with the thought, "Behold I am wise." But when we come to this master-science, finding that our plumb-line cannot sound its depth, and that our eagle eye cannot see its height, we turn away with the thought, that vain man would be wise, but he is like a wild ass's colt; and with the solemn exclamation, "I am but of yesterday, and know nothing." No subject of contemplation will tend more to humble the mind, than thoughts of God. We shall be obliged to feel--
 
-> "Great God, how infinite art thou,  
-> What worthless worms are we!"  
+> Great God, how infinite art thou,    
+> What worthless worms are we!    
 
 But while the subject humbles the mind it also expands it. He who often thinks of God, will have a larger mind than the man who simply plods around this narrow globe. He may be a naturalist, boasting of his ability to dissect a beetle, anatomize a fly, or arrange insects and animals in classes with well nigh unutterable names; he may be a geologist, able to discourse of the megatherium and the plesiosaurus, and all kinds of extinct animals; he may imagine that his science, whatever it is, ennobles and enlarges his mind. I dare say it does, but after all, the most excellent study for expanding the soul, is the science of Christ, and him crucified, and the knowledge of the Godhead in the glorious Trinity. Nothing will so enlarge the intellect, nothing so magnify the whole soul of man, as a devout, earnest, continued investigation of the great subject of the Deity. And, whilst humbling and expanding, this subject is eminently consolatary. Oh, there is, in contemplating Christ, a balm for every wound; in musing on the Father, there is a quietus for every grief; and in the influence of the Holy Ghost, there is a balsam for every sore. Would you lose your sorrows? Would you drown your cares? Then go, plunge yourself in the Godhead's deepest sea; be lost in his immensity; and you shall come forth as from a couch of rest, refreshed and invigorated. I know nothing which can so comfort the soul; so calm the swelling billows of grief and sorrow; so speak peace to the winds of trial, as a devout musing upon the subject of the Godhead. It is to that subject that I invite you this morning. We shall present you with one view of it,--that is the immutability of the glorious Jehovah. "I am," says my text, "Jehovah," (for so it should be translated) "I am Jehovah, I change not: therefore ye sons of Jacob are not consumed."
 
@@ -24,10 +24,10 @@ He changes not in his attributes. Whatever the attributes of God were of old, th
 
 Then again, God changes not in his plans. That man began to build, but was not able to finish, and therefore he changed his plan, as every wise man would do in such a case; he built upon a smaller foundation and commenced again. But has it ever been said that God began to build but was not able to finish? Nay. When he hath boundless stores at his command, and when his own right hand would create worlds as numerous as drops of morning dew, shall he ever stay because he has not power? and reverse, or alter, or disarrange his plan, because he cannot carry it out? "But," say some, "perhaps God never had a plan." Do you think God is more foolish than yourself then, sir? Do you go to work without a plan? "No," say you, "I have always a scheme." So has God. Every man has his plan, and God has a plan too. God is a master-mind; he arranged everything in his gigantic intellect long before he did it; and once having settled it, mark you, he never alters it. "This shall be done," saith he, and the iron hand of destiny marks it down, and it is brought to pass. "This is my purpose," and it stands, nor can earth or hell alter it. "This is my decree," saith he, promulgate it angels; rend it down from the gate of heaven ye devils; but ye cannot alter the decree; it shall be done. God altereth not his plans; why should he? He is Almighty, and therefore can perform his pleasure. Why should he? He is the All-wise, and therefore cannot have planned wrongly. Why should he? He is the everlasting God, and therefore cannot die before his plan is accomplished. Why should he change? Ye worthless atoms of existence, ephemera of the day! Ye creeping insects upon this bayleaf of existence! ye may change your plans, but he shall never, never change his. Then has he told me that his plan is to save me? If so, I am safe.
 
-> "My name from the palms of his hands  
-> Eternity will not erase;  
-> Impress'd on his heart it remains,  
-> In marks of indelible grace."  
+> My name from the palms of his hands    
+> Eternity will not erase;    
+> Impress'd on his heart it remains,    
+> In marks of indelible grace.    
 
 Yet again, God is unchanging in his promises. Ah! we love to speak about the sweet promises of God; but if we could ever suppose that one of them could be changed, we would not talk anything more about them. If I thought that the notes of the bank of England could not be cashed next week, I should decline to take them; and if I thought that God's promises would never be fulfilled--if I thought that God would see it right to alter some word in his promises--farewell Scriptures! I want immutable things: and I find that I have immutable promises when I turn to the Bible: for, "by two immutable things in which it is impossible for God to lie," he hath signed, confirmed, and sealed every promise of his. The gospel is not "yea and nay," it is not promising today, and denying tomorrow; but the gospel is "yea, yea," to the glory of God. Believer! there was a delightful promise which you had yesterday; and this morning when you turned to the Bible the promise was not sweet. Do you know why? Do you think the promise had changed? Ah, no! You changed; that is where the matter lies. You had been eating some of the grapes of Sodom, and your mouth was thereby put out of taste, and you could not detect the sweetness. 
 
@@ -37,15 +37,15 @@ But now comes one jarring note to spoil the theme. To some of you God is unchang
 
 We must just hint at one thought before we pass away and that is--God is unchanging in the objects of his love--not only in his love, but in the objects of it.
 
-> "If ever it should come to pass,  
-> That sheep of Christ might fall away.  
-> My fickle, feeble soul, alas,  
-> Would fall a thousand times a day."  
+> If ever it should come to pass,    
+> That sheep of Christ might fall away.    
+> My fickle, feeble soul, alas,    
+> Would fall a thousand times a day.    
 
 If one dear saint of God had perished, so might all; if one of the covenant ones be lost, so may all be, and then there is no gospel promise true; but the Bible is a lie, and there is nothing in it worth my acceptance. I will be an infidel at once, when I can believe that a saint of God can ever fall finally. If God hath loved me once, then he will love me for ever.
 
-> "Did Jesus once upon me shine,  
-> Then Jesus is for ever mine."  
+> Did Jesus once upon me shine,    
+> Then Jesus is for ever mine.    
 
 The objects of everlasting love never change. Those whom God hath called, he will justify; whom he has justified, he will sanctify; and whom he sanctifies, he will glorify.
 
@@ -63,10 +63,10 @@ Now secondly, let me say a word on THE PERSONS TO WHOM THIS UNCHANGEABLE GOD IS 
 
 First, they are the sons of God's election; for it is written, "Jacob have I loved, and Esau have I hated, the children being not yet born neither having done good nor evil." It was written, "The elder shall serve the younger." "The sons of Jacob"--
 
-> "Are the sons of God's election,  
-> Who through sovereign grace believe;  
-> Be eternal destination  
-> Grace and glory they receive."  
+> Are the sons of God's election,    
+> Who through sovereign grace believe;    
+> Be eternal destination    
+> Grace and glory they receive.    
 
 God's elect are here meant by "the sons of Jacob,"--those whom he foreknew and fore-ordained to everlasting salvation.
 
@@ -88,7 +88,7 @@ We should have proved suicides to our own souls; we should have mixed the cup of
 
 Well, now, time fails us, and I can say but little. I have only just cursorily touched on the text. I now hand it to you. May the Lord help you "sons of Jacob" to take home this portion of meat; digest it well, and feed upon it. May the Holy Ghost sweetly apply the glorious things that are written! And may you have "a feast of fat things, of wines on the lees well refined!" Remember God is the same, whatever is removed. Your friends may be disaffected, your ministers may be taken away, every thing may change, but God does not. Your brethren may change and cast out your name as vile: but God will love you still. Let your station in life change, and your property be gone; let your whole life be shaken, and you become weak and sickly; let everything flee away--there is one place where change cannot put his finger; there is one name on which mutability can never be written; there is one heart which never can alter; that heart is God's--that name Love.
 
-> "Trust him, he will ne'er deceive you.  
-> Though you hardly of him deem;  
-> He will never, never leave you,  
-> Nor will let you quite leave him."  
+> Trust him, he will ne'er deceive you.    
+> Though you hardly of him deem;    
+> He will never, never leave you,    
+> Nor will let you quite leave him.    

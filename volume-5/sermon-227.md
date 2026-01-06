@@ -2,8 +2,8 @@
 
 Sermon No. 227 - Delivered on Sabbath Morning, December 5th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Compel them to come in."  
-> Luke 14:23.  
+> Compel them to come in.    
+> Luke 14:23.    
 
 I FEEL in such a haste to go out and obey this commandment this morning, by compelling those to come in who are now tarrying in the highways and hedges, that I cannot wait for an introduction, but must at once set about my business.
 
@@ -19,15 +19,15 @@ First, I must FIND YOU OUT. If you read the verses that precede the text, you wi
 
 And now I see you again. You are not only poor, but you are maimed. There was a time when you thought you could work out your own salvation without God's help, when you could perform good works, attend to ceremonies, and get to heaven by yourselves; but now you are maimed, the sword of the law has cut off your hands, and now you can work no longer; you say, with bitter sorrow--
 
-> "The best performance of my hands,  
-> Dares not appear before thy throne."  
+> The best performance of my hands,    
+> Dares not appear before thy throne.    
 
 You have lost all power now to obey the law; you feel that when you would do good, evil is present with you. You are maimed; you have given up, as a forlorn hope, all attempt to save yourself, because you are maimed and your arms are gone. But you are worse off than that, for if you could not work your way to heaven, yet you could walk your way there along the road by faith; but you are maimed in the feet as well as in the hands; you feel that you cannot believe, that you cannot repent, that you cannot obey the stipulations of the gospel. You feel that you are utterly undone, powerless in every respect to do anything that can be pleasing to God. In fact, you are crying out--
 
-> "Oh, could I but believe,  
-> Then all would easy be,  
-> I would, but cannot, Lord relieve,  
-> My help must come from thee."  
+> Oh, could I but believe,    
+> Then all would easy be,    
+> I would, but cannot, Lord relieve,    
+> My help must come from thee.    
 
 To you am I sent also. Before you am I to lift up the blood-stained banner of the cross, to you am I to preach this gospel, "Whoso calleth upon the name of the Lord shall be saved;" and unto you am I to cry, "Whosoever will, let him come and take of the water of life freely."
 
@@ -59,8 +59,8 @@ I entreat you let this message enter your heart for another reason. I picture my
 
 Some hyper-calvinist would tell me I am wrong in so doing. I cannot help it. I must do it. As I must stand before my Judge at last, I feel that I shall not make full proof of my ministry unless I entreat with many tears that ye would be saved, that ye would look unto Jesus Christ and receive his glorious salvation. But does not this avail? are all our entreaties lost upon you; do you turn a deaf ear? Then again I change my note. Sinner, I have pleaded with you as a man pleadeth with his friend, and were it for my own life I could not speak more earnestly this morning than I do speak concerning yours. I did feel earnest about my own soul, but not a whit more than I do about the souls of my congregation this morning; and therefore, if ye put away these entreaties I have something else:--I must threaten you. You shall not always have such warnings as these. A day is coming, when hushed shall be the voice of every gospel minister, at least for you; for your ear shall be cold in death. It shall not be any more threatening; it shall be the fulfillment of the threatening. There shall be no promise, no proclamations of pardon and of mercy; no peace-speaking blood, but you shall be in the land where the Sabbath is all swallowed up in everlasting nights of misery, and where the preachings of the gospel are forbidden because they would be unavailing. I charge you then, listen to this voice that now addresses your conscience; for if not, God shall speak to you in his wrath, and say unto you in his hot displeasure, "I called and ye refused; I stretched out my hand and no man regarded; therefore will I mock at your calamity; I will laugh when your fear cometh." Sinner, I threaten you again. Remember, it is but a short time you may have to hear these warnings. You imagine that your life will be long, but do you know how short it is? Have you ever tried to think how frail you are? Did you ever see a body when it has been cut in pieces by the anatomist? Did you ever see such a marvelous thing as the human frame?
 
-> "Strange, a harp of a thousand strings,  
-> Should keep in tune so long."  
+> Strange, a harp of a thousand strings,    
+> Should keep in tune so long.    
 
 Let but one of those cords be twisted, let but a mouthful of food go in the wrong direction, and you may die. The slightest chance, as we have it, may send you swift to death, when God wills it. Strong men have been killed by the smallest and slightest accident, and so may you. In the chapel, in the house of God, men have dropped down dead. How often do we hear of men falling in our streets--rolling out of time into eternity, by some sudden stroke. And are you sure that heart of your's is quite sound? Is the blood circulating with all accuracy? Are you quite sure of that? And if it be so, how long shall it be? O, perhaps there are some of you here that shall never see Christmas-day; it may be the mandate has gone forth already, "Set thine house in order, for thou shalt die and not live." Out of this vast congregation, I might with accuracy tell how many will be dead in a year; but certain it is that the whole of us shall never meet together again in any one assembly. Some out of this vast crowd, perhaps some two or three, shall depart ere the new year shall be ushered in. I remind you, then, my brother, that either the gate of salvation may be shut, or else you may be out of the place where the gate of mercy stands. Come, then, let the threatening have power with you. I do not threaten because I would alarm without cause, but in hopes that a brother's threatening may drive you to the place where God hath prepared the feast of the gospel. And now, must I turn hopelessly away? Have I exhausted all that I can say? No, I will come to you again. 
 

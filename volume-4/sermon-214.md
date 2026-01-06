@@ -2,8 +2,8 @@
 
 Sermon No. 214 - Delivered on Sabbath Morning, September 19, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "His name shall be called Wonderful."  
-> Isaiah 9:6.  
+> His name shall be called Wonderful.    
+> Isaiah 9:6.    
 
 ONE EVENING LAST WEEK I stood by the sea-shore when the storm was raging. The voice of the Lord was upon the waters; and who was I that I should tarry within doors, when my Master's voice was heard sounding along the water? I rose and stood to behold the flash of his lightnings, and listen to the glory of his thunders. The sea and the thunders were contesting with one another; the sea with infinite clamor striving to hush the deep-throated thunder, so that his voice should not be heard; yet over and above the roar of the billows might be heard that voice of God, as he spoke with flames of fire, and divided the way for the waters. 
 
@@ -29,8 +29,8 @@ I do believe that the very angels have never wondered but once and that has been
 
 But trace the Saviours course, and all the way he is wonderful. Is it not marvellous that he submitted to the taunts and jeers of his enemies--that for a long life he should allow the bulls of Bashan to gird him round, and the dogs to encompass him? Is it not surprising that he should have bridled in his anger when blasphemy was uttered against his sacred person? Had you or I been possessed of his matchless might, we should have dashed our enemies down the brow of the hill, if they had sought to cast us there; we should never have submitted to shame and spitting; no, we would have looked upon them, and with one fierce look of wrath, have dashed their spirits into eternal torment. But he hears it all--keeps in his noble spirit--the lion of the tribe of Judah, but bearing still the lamb-like character of
 
-> "The humble man before his foes,
-> A weary man, and full of woes."
+> The humble man before his foes,    
+> A weary man, and full of woes.    
 
 I do believe that Jesus of Nazareth was the king of heaven, and yet he was a poor, despised, persecuted, slandered man; but while I believe it I never can understand it. I bless him for it; I love him for it; I desire to praise his name while immortality endures for his infinite condescension in thus suffering for me; but to understand it, I can never pretend. His name must all his life long be called Wonderful.
 
@@ -38,8 +38,8 @@ But see him die. Come O my brothers, ye children of God, and gather round the cr
 
 But he died. He died! See Salem's daughters weep around. Joseph of Arimathea takes up the lifeless body after it has been taken down from the cross. They bear it away to the sepulcher. It is put in a garden. Do you can him Wonderful now?
 
-> "Is this the Saviour long foretold
-> To usher in the age of gold?"
+> Is this the Saviour long foretold    
+> To usher in the age of gold?    
 
 And is he dead? Lift his hands! They drop motionless by his side. His foot exhibits still the nail-print; but there is no mark of life. "Aha," cries the Jew, "is this the Messiah? He is dead; he shall see corruption in a little space of time. Oh! watchman, keep good ward lest his disciples steal his body. His body can never come forth, unless they do steal it; for he is dead. Is this the Wonderful the Counsellor?" But God did not leave his soul in Hades; nor did he suffer his body--"his holy one"--to see corruption? Yes, he is wonderful, even in his death. That clay-cold corpse is wonderful. Perhaps this is the greatest wonder of all, that he who is "Death of death and hell's destruction" should for awhile endure the bonds of death. But here is the wonder. He could not be holden of those bonds. Those chains which have held ten thousand of the sons and daughters of Adam, and which have never been broken yet by any man of human mould, save by a miracle, were but to him as green withes. Death bound our Samson fast and said, "I have him now, I have taken away the locks of his strength; his glory is departed, and now he is mine; but the hands that kept the human race in chains were nothing to the Saviour; the third day he burst them, and he rose again from the dead, from henceforth to die no more. Oh! thou risen Saviour--thou who couldst not see corruption--thou art wonderful in thy resurrection. And thou art wonderful too in thine ascension--as I see thee leading captivity captive and receiving gifts for men. "His name shall be called Wonderful."
 

@@ -2,8 +2,8 @@
 
 Sermon No. 162 - Delivered on Sabbath Morning, November 8, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment."  
-> Mark 12:30.  
+> Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment.    
+> Mark 12:30.    
 
 OUR SAVIOUR said, "This is the first and great commandment." It is "the first" commandment--the first for antiquity, for this is older than even the ten commandments of the written law. Before God said, "Thou shalt not commit adultery, thou shalt not steal," this law was one of the commands of his universe; for this was binding upon the angels when man was not created. It was not necessary for God to say to the angels, "Thou shalt do no murder, thou shalt not steal;" for such things to them were very probably impossible; but he did doubtless say to them, "Thou shalt love the Lord thy God with all thy heart;" and when first Gabriel sprang out of his native nothingness at the fiat of God, this command was binding on him. This is "the first commandment," then, for antiquity. It was binding upon Adam in the garden; even before the creation of Eve, his wife, God had commanded this; before there was a necessity for any other command this was written upon the very tablets of his heart--"Thou shalt love the Lord thy God."
 
@@ -29,13 +29,13 @@ I do not believe that there is any vast extent of deism or atheism throughout En
 
 There are a class of men who are a great deal nobler than the herd of simpletons who allow the sublimities of the God-head to be concealed by their carking care for mere sensual good. There are some who do not forget that there is a God; no, they are astronomers, and they turn their eyes to heaven, and they view the stars, and they marvel at the majesty of the Creator. Or they dig into the bowels of the earth, and they are astonished at the magnificence of God's works of yore. Or they examine the animal, and marvel at the wisdom of God in the construction of its anatomy. They, whenever they think of God, think of him with the deepest awe, with the profoundest reverence. You never hear them curse or swear: you will find that their souls are possessed of a deep awe of the great Creator. But ah! my friends, this is not enough: this is not obedience to the command. God does not say thou shalt wonder at him, thou shalt have awe of him. He asks more than that; he says, "Thou shalt love me!" Oh! thou that seest the orbs of heaven floating in the far expanse, it is something to lift thine eye to heaven, and say--
 
-> "These are thy glorious works, Parent of good,  
-> Almighty, thine this universal frame.  
-> Thus wondrous fair; thyself, how wondrous then!  
-> Unspeakable, who sitt'st above these Heavens  
-> To us invisible, or dimly seen  
-> In these thy lowest works; yet these declare  
-> Thy goodness beyond thought, and power divine."  
+> These are thy glorious works, Parent of good,    
+> Almighty, thine this universal frame.    
+> Thus wondrous fair; thyself, how wondrous then!    
+> Unspeakable, who sitt'st above these Heavens    
+> To us invisible, or dimly seen    
+> In these thy lowest works; yet these declare    
+> Thy goodness beyond thought, and power divine.    
 
 'Tis something thus to adore the great Creator, but tis not all he asks. Oh! if thou couldst add to this--"He that made these orbs, that leadeth them out by their hosts, is my Father, and my heart beats with affection towards him." Then wouldst thou be obedient, but not till then. God asks not thine admiration, but thine affection. "Thou shalt love the Lord thy God with all thine heart."
 
@@ -79,10 +79,10 @@ What hast thou to say to this command, O man? Have I one here so profoundly brai
 
 "Oh!" cries one, "I wish I could say that I could thus escape the wrath of the law! Oh that I knew that Christ did keep the law for me!" Stop, then, and I will tell you. Do you feel to-day that you are guilty, lost, and ruined? Do you with tears in your eyes confess that none but Jesus can do you good? Are you willing to give up all trusts, and cast yourself alone on him who died upon the cross? Can you look to Calvary, and see the bleeding sufferer, all crimson with streams of gore? Can you say
 
-> "A guilty, weak, and helpless worm,  
-> Into thine arms I fall;  
-> Jesus, be thou my righteousness,  
-> My Saviour and my all!"  
+> A guilty, weak, and helpless worm,    
+> Into thine arms I fall;    
+> Jesus, be thou my righteousness,    
+> My Saviour and my all!    
 
 Canst say that? Then he kept the law for you, and the law can not condemn whom Christ has absolved. If Law comes to you and says, "I will damn you because you did not keep the law," tell him that he dares not touch a hair of your head, for though you did not keep it, Christ kept it for you, and Christ's righteousness is yours; tell him there is the money and though you did not coin it Christ did; and tell him, when you have paid him all he asks for, he dares not touch you; you must be free, for Christ has satisfied the law.
 

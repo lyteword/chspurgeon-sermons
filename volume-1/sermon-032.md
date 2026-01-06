@@ -2,8 +2,8 @@
 
 Sermon No. 32 - Delivered on Sabbath Morning, July 1, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And the apostle said unto the Lord, increase our faith."  
-> Luke 17:5.  
+> And the apostle said unto the Lord, increase our faith.    
+> Luke 17:5.    
 
 VERILY IF THE APOSTLE said this, one and all of us had need take up the prayer. If the twelve mightiest in the army of the Lord of hosts had need of such a supplication, what shall we say who are but the interior soldiers--the feeblest saints? If ye hope to win the day, does it not well become us to pray, "Increase our faith?"
 
@@ -45,17 +45,17 @@ I am sure I pray for all bigots, that they may have a little wider heart. I shou
 
 Next, "Increase my faith," in its intensity. Faith needs to be increased in its power, as well as in its extent. We do not wish to act as some do with a river, when they break the banks, to let it spread over the pasture, and so make it shallower but we wish, while it increases in surface, that it may increase likewise in its depth. Increase "the intensity of our faith!" Faith at first takes God's mercy with an open palm: as it increases it holds it with his fingers, and not more firmly; but when faith grows strong, ah! she takes it, as with an iron vice, and grasps it, and not death nor hell could rend a promise from faith's hand when faith is strong. The young Christian at first is not constant in his faith a little wind comes, and he shakes, when he gets an old Christian he will take old Boreas, with fifty of his winds, to move him. Do you not feel, my dear friends, that you want faith to be increased in its intensity? Would you not sing with Watts:
 
-> "Oh! that I had a stronger faith,  
-> To look within the veil;  
-> To credit what my Saviour saith,  
-> Whose word can never fail?"  
+> Oh! that I had a stronger faith,    
+> To look within the veil;    
+> To credit what my Saviour saith,    
+> Whose word can never fail?    
 
 Your poor little faith cannot see many yards before it, for there are clouds of darkness all around; but strong faith can climb the hill that is called "Clear," and from the top thereof can see the celestial city, and the land that is very far off. Oh! may God increase your faith to such a degree, that you may often have visions of heaven"--that you may sweetly sing, as Moses might have done at the top of Pisgah,--
 
-> "Oh! the transporting rapturous scene  
-> That rises to my sight.  
-> Sweet fields arrayed in living green,  
-> And rivers of delight."  
+> Oh! the transporting rapturous scene    
+> That rises to my sight.    
+> Sweet fields arrayed in living green,    
+> And rivers of delight.    
 
 That you may climb up there, bathe your eyes in splendor, plunge your soul in rivers of bliss, and be thoroughly transported and carried away by visions of that state of beatitude which shortly shall be yours, let me exhort you to cry to the Lord, "Increase my faith "in its power of realizing heaven and in every other way.
 
@@ -65,10 +65,10 @@ I have been speaking in very great pain; but I would, if possible, close by aski
 
 But there are some of you, dear friends, who could not use this petition, and dare not. What would it avail you if you did so? Seeing you have no faith, how could that be increased which has no existence. Rather, your first need is the possession of the simple germs of faith. Oh! my hearers, I marvel what some of you do without the comforts which faith can alone afford. Some of you are very poor people: how do you manage to endure your toils and troubles without faith? Where is your comfort? I do not wonder at your going to get drunk, or rioting in the ale-house, if you have no other comfort in this world. When I have penetrated some of our back streets and seen the poverty of the people, I have thought, "If these people have no religion, what have they to comfort them? They are not like the rich man, who can indulge himself in every way: what have they got in this world worth living for?" I suppose they have some kind of happiness: what sort of a thing it is I cannot tell: it is to me a source of continual inquiry. And you rich men, what will you do without faith? You know that you must leave all your properly behind you; surely this will make the idea of death dreadful to you. I cannot understand even your happiness, if you have any. I know this--that
 
-> "I would not change my blest estate  
-> For all the earth calls good or great;  
-> And while my faith can keep her hold,  
-> I envy not the sinner's gold."  
+> I would not change my blest estate    
+> For all the earth calls good or great;    
+> And while my faith can keep her hold,    
+> I envy not the sinner's gold.    
 
 But I want to ask you what would you do in the next world without faith. Remember, you are standing now upon the edge of the vast gulf of an unknown future. Your soul stands quivering on the verge of the dark abyss; each time your pulse heats your soul is brought nearer to eternity. Faith gives wings to the soul; but what will you do without wings? There is a narrow gulf dividing earth from heaven; the Christian flaps his wings, and borne upon them, he flies to heaven; but what will you do without wings? It will be a leap--a leap into perdition, to sink for ever, without the power of ever recovering yourself. If a Christian could sink on his journey to heaven he would not sink far for he would flap his wings and be up again. But there you will be, perpetually descending through that pit that has no bottom--struggling to rise, but you cannot, for you have no wings. Once more, oh! unbeliever, what will you do without faith? For faith gives eyes to the soul; faith gives us to see things that are not seen: it is "the substance of things hoped for, the evidence of things not seen." The Christian, when he dies, will enter the land of death with his eyes open; by means of which, goodly hosts of angels shall cheer his vision; but you must die a blind and eyeless spirit. Unhappy is the lot of the blind in this present world, but how infinitely deplorable that eternal blindness which shall prevent a sight of the splendours of paradise, and shut out for ever even the feeblest ray of joy or hope. And, once more; faith is the hand of the soul. The Christian, when he dies, catches hold of Christ's garment, and Christ bears him into heaven. A bright angel descends,--I clasp that angel, and on his wings he wafts me up to bliss. But when the unbeliever dies the angel would have a useless errand, for he has no hands. Suppose, O sinner, Christ is there, but you cannot even touch his garments, for you have no hands to do it with. What will you do in the next world without hands? 
 

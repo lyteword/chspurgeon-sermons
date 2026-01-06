@@ -2,8 +2,8 @@
 
 Sermon No. 234 - Delivered on Sabbath Morning, January 16th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons,Why do ye look one upon another? And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die."  
-> Genesis 42:1, 2.
+> Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons,Why do ye look one upon another? And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.    
+> Genesis 42:1, 2.    
 
 GOD in his wisdom hath so made the outward world, that it is a strange and wonderful picture of the inner world. Nature has an analogy with grace. The wonders that God does in the heart of man, each of them finds a parallel, a picture, a metaphor, an illustration, in the wonders which God performs in providence. It is the duty of the minister always to look for these analogies. Our Saviour did so. He is the model preacher: his preaching was made up of parables, pictures from the outer world, accommodated to teach great and mighty truths. And so is man's mind constituted that we can always see a thing better through a picture than anyhow else. If you tell a man a simple truth, he does not see it nearly so well as if you told it to him in an illustration. If I should attempt to describe the flight of a soul from sin to Christ, you would not see it one half so readily as if I should picture John Bunyan's pilgrim running out of the city of destruction, with his fingers in his ears, and hastening with all his might to the wicket gate. There is something tangible in a picture, a something which our poor flesh and blood can lay hold of; and therefore the mind, grasping through the flesh and the blood, is able to understand the idea, and to appropriate it. Hence the necessity and usefulness of the minister always endeavonring to illustrate his sermon, and to make his discourse as much as possible like the parables of Jesus Christ.
 

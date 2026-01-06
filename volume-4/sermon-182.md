@@ -2,8 +2,8 @@
 
 Sermon No. 182 - Delivered on Sabbath Morning, March 7, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "No man can come to me, except the Father which hath sent me draw him."  
-> John 6:44.  
+> No man can come to me, except the Father which hath sent me draw him.    
+> John 6:44.    
 
 COMING to Christ" is a very common phrase in Holy Scripture. It is used to express those acts of the soul wherein, leaving at once our self-righteousness, and our sins, we fly unto the Lord Jesus Christ, and receive his righteousness to be our covering, and his blood to be our atonement. Coming to Christ, then, embraces in it repentance, self-negation, and faith in the Lord Jesus Christ, and it sums within itself all those things which are the necessary attendants of these great states of heart, such as the belief of the truth, earnestness of prayer to God, the submission of the soul to the precepts of God's gospel, and all those things which accompany the dawn of salvation in the soul. Coming to Christ is just the one essential thing for a sinner's salvation. He that cometh not to Christ, do what he may, or think what he may, is yet in "the gall of bitterness and in the bonds of iniquity." Coming to Christ is the very first effect of regeneration. No sooner is the soul quickened than it at once discovers its lost estate, is horrified thereat, looks out for a refuge, and believing Christ to be a suitable one, flies to him and reposes in him. Where there is not this coming to Christ, it is certain that there is as yet no quickening; where there is no quickening, the soul is dead in trespasses and sins, and being dead it cannot enter into the kingdom of heaven. We have before us now an announcement very startling, some say very obnoxious. 
 
@@ -55,10 +55,10 @@ Do not conceive that any man will be plunged in the bath of a Saviour's blood wh
 
 What I thought was a mole-hill has grown into a mountain; it was but the hyssop on the wall before, but now it has become a cedar of Lebanon. Oh," saith the man within himself, "I will try and reform; I will do good deeds enough to wash these black deeds out." Then comes the Holy Spirit and shows him that he cannot do this, takes away all his fancied power and strength, so that the man falls down on his knees in agony, and cries, "Oh! once I thought I could save myself by my good works, but now I find that
 
-> "Could my tears for ever flow,  
-> Could my zeal no respite know,  
-> All for sin could not atone,  
-> Thou must save and thou alone.'"  
+> Could my tears for ever flow,    
+> Could my zeal no respite know,    
+> All for sin could not atone,    
+> Thou must save and thou alone.'    
 
 Then the heart sinks, and the man is ready to despair. And saith he, "I never can be saved. Nothing can save me." Then, comes the Holy Spirit and shows the sinner the cross of Christ, gives him eyes anointed with heavenly eye-salve, and says, "Look to yonder cross. that Man died to save sinners; you feel that you are a sinner; he died to save you." And he enables the heart to believe, and to come to Christ. And when it comes to Christ, by this sweet drawing of the Spirit, it finds "a peace with God which passeth all understanding, which keeps his heart and mind through Jesus Christ our Lord." Now, you will plainly perceive that all this may be done without any compulsion. Man is as much drawn willingly, as if he were not drawn at all; and he comes to Christ with full consent, with as full a consent as if no secret influence had ever been exercised in his heart. But that influence must be exercised, or else there never has been and there never will be, any man who either can or will come to the Lord Jesus Christ.
 
@@ -70,9 +70,9 @@ Thou canst not resist his will nor thwart his purpose. Thou hast deserved his wr
 
 Now, the comfortable reflection is this:--Some of you this morning are conscious that you are coming to Christ. Have you not begun to weep the penitential tear? Did not your closet witness your prayerful preparation for the hearing of the Word of God? And during the service of this morning, has not your heart said within you, "Lord, save me, or I perish, for save myself I cannot?" And could you not now stand up in your seat, and sing,
 
-> "Oh, sovereign grace my heart subdue;  
-> I would be led in triumph, too,  
-> A willing captive of my Lord,  
-> To sing the triumph of his Word"?  
+> Oh, sovereign grace my heart subdue;    
+> I would be led in triumph, too,    
+> A willing captive of my Lord,    
+> To sing the triumph of his Word"?    
 
 And have I not myself heard you say in your heart--"Jesus, Jesus, my whole trust Is in thee: I know that no righteousness of my own can save me, but only thou, O Christ--sink or swim, I cast myself on thee?" Oh, my brother, thou art drawn by the Father, for thou couldst not have come unless he had drawn thee. Sweet thought! And if he has drawn thee, dost thou know what is the delightful inference? Let me repeat one text, and may that comfort thee: "The Lord hath appeared of old unto me, saying, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee." Yes, my poor weeping brother, inasmuch as thou art now coming to Christ, God has drawn thee; and inasmuch as he has drawn thee, it is a proof that he has loved thee from before the foundation of the world. Let thy heart leap within thee, thou art one of his. Thy name was written on the Saviour's hands when they were nailed to the accursed tree. Thy name glitters on the breast-plate of the great High Priest to-day; ay, and it was there before the day-star knew its place, or planets ran their round. Rejoice in the Lord ye that have come to Christ, and shout for joy all ye that have been drawn of the Father. For this is your proof, your solemn testimony, that you from among men have been chosen in eternal election, and that you shall be kept by the power of God, through faith, unto the salvation which is ready to be revealed.

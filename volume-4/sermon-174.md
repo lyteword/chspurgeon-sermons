@@ -2,8 +2,8 @@
 
 Sermon No. 174 - Delivered on Sabbath Evening, November 8, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For as many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them."  
-> Galatians 3:10.  
+> For as many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them.    
+> Galatians 3:10.    
 
 MY HEARER, ART THOU a believer, or no? for, according to thine answer to that question, must be the style in which I shall address thee to-night. I would ask thee as a great favor to thine own soul, this evening to divest thyself of the thought that thou art sitting in a chapel, and hearing a minister who is preaching to a large congregation. Think thou art sitting in thine own house, in thine own chair, and think that I am standing by thee, with thy hand in mine, and am speaking personally to thee, and to thee alone; for that is how I desire to preach this night to each of my hearers--one by one. I want thee, then, in the sight of God, to answer me this all important and solemn question before I begin--Art thou in Christ, or art thou not? Hast thou fled for refuge to him who is the only hope for sinners? or art thou yet a stranger to the commonwealth of Israel, ignorant of God, and of his holy Gospel? Come--be honest with thine own heart, and let thy conscience say yes, or no, for one of these two things thou art to-night--thou art either under the wrath of God, or thou art delivered from it. 
 
@@ -49,8 +49,8 @@ And die he did, without a Bible in his house, without having one prayer offered 
 
 My hearers, the matters I now talk of are no dreams, no frauds, no whims, no old wives' stories. These are realities, and you will soon know them. O sinner, thou that hast not continued in all things written in the book of the law; thou that hast no Christ; the day is coming when these things will stand before thee, as dread, solemn, real things. And then; ah! then; ah! then; ah! then what wilt thou do?--"And after death the judgment."--O, can ye picture--
 
-> "The pomp of that tremendous day,  
-> When Christ with clouds shall come."  
+> The pomp of that tremendous day,    
+> When Christ with clouds shall come.    
 
 I think I see that terrible day. The bell of time has tolled the last day. Now comes the funeral of damned souls. Your body has just started up from the grave, and you unwind your cerements, and you look up. What is that I see? O! what is that I hear? I hear one dread, tremendous blast, that shakes the pillars of heaven, and makes the firmament reel with affright; the trump, the trump, the trump of the arch-angel shakes creation's utmost bound. You look and wonder. Suddenly a voice is heard, and shrieks from some, and songs from others--he comes--he comes--he comes; and every eye must see him. There he is; the throne is set upon a cloud, which is white as alabaster. There he sits. Tis He, the Man that died on Calvary--I see his pierced hands--but ah, how changed! No thorn-crown now. He stood at Pilate's bar, but now the whole earth must stand at his bar. But hark! the trumpet sounds again: the Judge opens the book, there is silence in heaven, a solemn silence: the universe is still. "Gather mine elect together, and my redeemed from the four winds of heaven." Swiftly they are gathered. 
 
@@ -66,10 +66,10 @@ O my Lord I am a sinner; I am a hopeless sinner, unless thou savest me; I am a h
 
 O Lord, I have tried to be better, and have done nothing with it all, but have only grown worse. O Lord, I have slighted thy grace, I have despised thy gospel: I wonder thou hast not damned me years ago; Lord, I marvel at myself; that thou sufferest such a base wretch as I am to live at all. I have despised a mother's teaching, I have forgotten a father's prayers. Lord, I have forgotten thee; I have broken thy Sabbath, taken thy name in vain. I have done everything that is wrong; and if thou dost condemn me, what can I say? Lord, I am dumb before thy presence. I have nothing to plead. But Lord; I come to tell thee to-night, thou hast said in the Word of God, "Him that cometh unto me, I will in no wise cast out." Lord, I come: my only plea is that thou hast said, This is a faithful saying, and worthy of all acceptation, that Jesus Christ came into the world to save sinners.' Lord, I am a sinner; he came to save me; I trust in it--sink or swim--Lord, this is my only hope: I cast away every other, and hate myself to think I ever should have had any other. Lord, I rely on Jesus only. Do but save me, and though I can not hope by my future life to blot out my past sin, O Lord, I will ask of thee to give me a new heart and a right spirit, that from this time forth even for ever I may run in the way of thy commandments: for, Lord, I desire nothing so much as to be thy child. Thou knowest, O Lord, I would give all, if thou wouldest but love me; and I am encouraged to think that thou dost love me; for my heart feels so. I am guilty, but I should never have known that I was guilty if thou hadst not taught it to me. I am vile, but I never should have known my vileness, unless thou hadst revealed it. Surely, thou wilt not destroy me, O God, after having taught me this. If thou dost, thou art just, but,
 
-> "Save a trembling sinner, Lord,  
-> Whose hopes still hovering round thy Word,  
-> Would light on some sweet promise there;  
-> Some sure support against despair."  
+> Save a trembling sinner, Lord,    
+> Whose hopes still hovering round thy Word,    
+> Would light on some sweet promise there;    
+> Some sure support against despair.    
 
 If you can not pray such a long prayer as that, I tell you what to go home and say. Say this, "Lord Jesus, I know I am nothing at all; be thou my precious all in all."
 

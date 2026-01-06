@@ -2,15 +2,15 @@
 
 Sermon No. 5 - Delivered on Sabbath Evening, January 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things and bring all things to your remembrance, whatsoever I have said unto you."  
-> John 14:26.  
+> But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things and bring all things to your remembrance, whatsoever I have said unto you.    
+> John 14:26.    
 
 Good old Simeon called Jesus the consolation of Israel; and so he was. Before his actual appearance, his name was the Day-Star; cheering the darkness, and prophetic of the rising sun. To him they looked with the same hope which cheers the nightly watcher, when from the lonely castle-top he sees the fairest of the stars, and hails her as the usher of the morn. When he was on earth, he must have been the consolation of all those who were privileged to be his companions. We can imagine how readily the disciples would run to Christ to tell him of their griefs, and how sweetly, with that matchless intonation of his voice, he would speak to them, and bid their fears be gone. Like children, they would consider him as their Father; and to him every want, every groan, every sorrow, every agony, would at once be carried; and he, like a wise physician, had a balm for every wound; he had mingled a cordial for their every care; and readily did he dispense some mighty remedy to allay all the fever of their troubles. Oh! it must have been sweet to have lived with Christ. Surely sorrows were then but joys in masks, because they gave an opportunity to go to Jesus to have them removed. Oh! would to God, some of us may say, that we could have lain our weary heads upon the bosom of Jesus, and that our birth had been in that happy era, when we might have heard his kind voice, and seen his kind look, when he said, "Let the weary ones come unto me."
 
 But now he was about to die. Great prophecies were to be fulfilled; and great purposes were to be answered; and therefore Jesus must go. It behoved him to suffer, that he might be made a propitiation for our sins. It behoved him to slumber in the dust awhile, that he might perfume the chamber of the grave to make it--
 
-> "No more a charnel house to fence  
-> The relics of lost innocence."  
+> No more a charnel house to fence    
+> The relics of lost innocence.    
 
 It behoved him to have a resurrection, that we, who shall one day be the dead in Christ, might rise first, and in glorious bodies stand upon earth. And if behoved him that he should ascend up on high, that he might lead captivity captive; that he might chain the fiends of hell; that he might lash them to his chariot wheels, and drag them up high heaven's hill, to make them feel a second overthrow from his right arm, when he should dash them from the pinnacles of heaven down to the deeper depths beneath. "It is right I should go away from you," said Jesus, "for if I go not away, the Comforter will not come." Jesus must go. Weep, ye disciples; Jesus must be gone. Mourn, ye poor ones, who are to be left without a Comforter. But hear how kindly Jesus speaks: "I will not leave you comfortless, I will pray the Father, and he shall send you another Comforter, who shall be with you, and shall dwell in you forever." He would not leave those few poor sheep alone in the wilderness; he would not desert his children, and leave them fatherless. Albeit that he had a mighty mission which did fill his heart and hand; albeit he had so much to perform, that we might have thought that even his gigantic intellect would be overburdened; albeit he had so much to suffer, that we might suppose his whole soul to be concentrated upon the thought of the sufferings to be endured. Yet it was not so; before he left, he gave soothing words of comfort; like the good Samaritan, he poured in oil and wine, and we see what he promised: "I will send you another Comforter--one who shall be just what I have been, yea, even more; who shall console you in your sorrows, remove your doubts, comfort you in your afflictions, and stand as my vicar on earth, to do that which I would have done had I tarried with you."
 
@@ -46,10 +46,10 @@ The second thing is the COMFORT. Now there are some persons who make a great mis
 
 Ah! does he not whisper to the heart, "Saint, be of good cheer; there is one who died for thee; look to Calvary, behold his wounds, see the torrent gushing from his side--there is thy purchaser, and thou art secure. He loves thee with an everlasting love, and this chastisement is meant for thy good; each stroke is working thy healing; by the blueness of the wound thy soul is made better." "Whom he loveth he chasteneth, and scourgeth every son whom he receiveth." Doubt not his grace, because of thy tribulation; but believe that he loveth thee as much in seasons of trouble, as in times of happiness. And then, moreover, he says, "What is all thy suffering compared with that of thy Lord's? or what, when weighed in the scales of Jesus' agonies, is all thy distress? And especially at times does the Holy Ghost take back the veil of heaven, and lets the soul behold the glory of the upperworld! Then it is that the saint can say, "O thou art a Comforter to me!"
 
-> "Let cares like a wild deluge come,  
-> And storms of sorrow fall;  
-> May I but safely reach my home,  
-> My God, my heaven, my all."  
+> Let cares like a wild deluge come,    
+> And storms of sorrow fall;    
+> May I but safely reach my home,    
+> My God, my heaven, my all.    
 
 Some of you could follow, were I to tell of manifestations of heaven. You, too, have left sun, moon, and stars at your feet, while, in you flight, outstripping the tardy lightning, you have seemed to enter the gates of pearl, and tread the golden streets, borne aloft on wings of the Spirit. But here we must not trust ourselves; lest, lost in reverie, we forget our theme.
 
@@ -61,8 +61,8 @@ I have heard of a city missionary who kept a record of two thousand persons who 
 
 And now I have done. You have heard what this babbler hath said once more. What has it been? Something about the Comforter. But let me ask you, before you go, what do you know about the Comforter? Each one of you, before descending the steps of this chapel, let this solemn question thrill through your souls--What do you know of the Comforter? O! poor souls, if ye know not the Comforter, I will tell you what you shall know--You shall know the Judge! If ye know not the Comforter on earth, ye shall know the Condemner in the next world, who shall cry, "Depart, ye cursed, into everlasting fire in hell." Well might Whitefield call out, "O earth, earth, earth, hear the word of the Lord!" If ye were to live here forever, ye might slight the gospel; if ye had a lease of your lives, ye might despise the Comforter. But, sirs, ye must die. Since last we met together, probably some have gone to their long last home; and ere we meet again in this sanctuary, some here will be amongst the glorified above, or amongst the damned below. Which will it be? Let you soul answer. If to-night you fell down dead in your pews, or where you are standing in the gallery, where would you be? in heaven or in hell? Ah! deceive not yourselves; let conscience have its perfect work; and if in the sight of God, you are obliged to say, "I tremble and fear lest my portion should be with unbelievers," listen one moment, and then I have done with thee. "He that believeth and is baptized shall be saved, and he that believeth not shall be damned." Weary sinner, hellish sinner, thou who art the devil's castaway, reprobate, profligate, harlot, robber, thief, adulterer, fornicator, drunkard, swearer, Sabbath-breaker--list! I speak to thee as well as to the rest. I exempt no man. God hath said there is no exemption here. "Whosoever believeth on the name of Jesus Christ shall be saved." Sin is no barrier; thy guilt is no obstacle. Whosoever--though he were as black as Satan, though he were filthy as a fiend--whosoever this night believes, shall have every sin forgiven, shall have every crime effaced; shall have ever iniquity blotted out; shall be saved in the Lord Jesus Christ, and shall stand in heaven safe and secure. That is the glorious gospel. God apply it to your hearts, and give you faith in Jesus!
 
-> "We have listened to the preacher--  
-> Truth by him has now been shown;  
-> But we want a GREATER TEACHER,  
-> From the everlasting throne;  
-> Is the work of God alone."  
+> We have listened to the preacher--    
+> Truth by him has now been shown;    
+> But we want a GREATER TEACHER,    
+> From the everlasting throne;    
+> Is the work of God alone.    

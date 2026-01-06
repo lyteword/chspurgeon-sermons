@@ -2,11 +2,11 @@
 
 Sermon No. 197 - Delivered on Sabbath Morning, June 6, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And they brought up an evil report of the land which they had searched unto the children of Israel, saying, The land, through which we have gone to search it, is a land that eateth up the inhabitants thereof; and all the people that we saw in it are men of a great stature."  
-> Numbers 13:32.  
+> And they brought up an evil report of the land which they had searched unto the children of Israel, saying, The land, through which we have gone to search it, is a land that eateth up the inhabitants thereof; and all the people that we saw in it are men of a great stature.    
+> Numbers 13:32.    
 
-> "And Joshua the son of Nun, and Caleb the son of Jephunneh, which were of them that searched the land, rent their clothes. And they spake unto all the company of the children of Israel, saying, The land which we passed through to search it, is an exceeding good land."  
-> Numbers 14:6-7.  
+> And Joshua the son of Nun, and Caleb the son of Jephunneh, which were of them that searched the land, rent their clothes. And they spake unto all the company of the children of Israel, saying, The land which we passed through to search it, is an exceeding good land."    
+> Numbers 14:6-7.    
 
 THE UNBELIEF OF THE CHILDREN of Israel, prompted them to send spies into Canaan. God had told them that it was a good land, and he had promised to drive out their enemies, they ought therefore to have marched forward with all confidence to possess the promised heritage. Instead of this, they send twelve princes to spy out the land, and "alas, for human nature," ten of these were faithless, and only two true to the Lord. Read over the narrative, and mark the ill effect of the lying message, and the holy boldness of the true spies.
 
@@ -38,14 +38,14 @@ Now, I do not hesitate to say that these men are evil spies. Far be it from us t
 
 Perhaps, however, this poor man that I have just sent off is to be pitied. Not so the next one, for he is a rascal indeed. See him! he comes forward as Mr. Meekface, making a great profession of religion. How he mouths the hymns! When he stands up to pray, with what a spiritual kind of voice he prays. Nothing carnal about his voice! He is among the Christian people a great leader. He can preach sermons by the yard. He can dissect doctrines by the hour. There is not a metaphysical point in all our theology that he does not understand,
 
-> "He can a hair divide,
-> Betwixt the west and north-west side."
+> He can a hair divide,    
+> Betwixt the west and north-west side.    
 
 His understanding is, in his own opinion, infinite; and he makes very boastful pretensions to piety. Everybody says when they see him in his good frames in chapel or elsewhere, "What a dear good man he is!" You follow him to business. He will not swear, but he will lie. He won't out-and-out rob, but he will cheat. He will not curse a man to his face, but he will do worse--he will speak ill of him behind his back. You watch him! He, if he could find a drunkard in the street, would upbraid him, and talk to him so proudly against the sin of intoxication, but he himself very seldom knows his own way upstairs to bed; only that is in a quiet way, therefore nobody sees it, and he is thought to be a very reputable member of society. Don't you know any such people? I hope you do not; but I have met with them. There is a great stock of them still living; men that make grand professions, and their lives are as much opposed to their professions, as hell is opposed to heaven. Now what does the world say of religion when they see these people? They say at once, "Well, if this be religion, we had better have none of it." Says the business man, "I could not do what So-and-so does, it is true, I could not sing out of his hymn book, but I could not keep his cash book." We have known many men say; "I could not make so long a prayer as So-and-so, and could not make out my invoices in the dishonest way he does." We have met with worldly men who are far more honest as tradesman and professional men than persons who make a profession of religion. 
 
 And we have known on the other hand, men who have made the greatest profession, indulging in all kinds of evil. Horrible shall he that man's fate, who thus ruins other men's souls by bringing up a bad report of the land. But, oh! I beseech you, my hearers, if any of you have seen such professors, let the righteous stand out to-day, like Joshua and Caleb of old; let the Church stand before you and rend its garments, while it entreats you not to believe the lying and slanderous reports of such men. For, indeed, religion is holy; as Christ is holy, even so do his people desire to be holy. And the grace of God which bringeth salvation is pure and peaceful; it produces in men things that are holy and of good report, things that magnify God, and that make human nature appear glorious. But scarcely do I need to tell you that, in your own circle while you have met with hypocrites, you have met with men whom you could not doubt. Yes, you have sometimes seen even in your evil company, a man who was like an angel; you have felt as Satan did when Abdiel, the faithful among the faithless, stood forth, and would not turn a rebel to his God.
 
-> "Abashed the devil stood, and felt how awful goodness was"
+> Abashed the devil stood, and felt how awful goodness was    
 
 I beseech you therefore, do not believe the ill report of the hypocrite, and the unholy man.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 217 - Delivered on Sabbath Evening, September 26, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Nevertheless I have somewhat against thee, because thou hast left thy first love."  
-> Revelation 2:4.  
+> Nevertheless I have somewhat against thee, because thou hast left thy first love.    
+> Revelation 2:4.    
 
 IT IS A GREAT THING to have as much said in our commendation as was said concerning the church at Ephesus. Just read what "Jesus Christ, who is the faithful witness," said of them--"I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars: and hast borne, and hast patience, and for my name's sake hast laboured, and hast not fainted." Oh, my dear brothers and sisters, we may feel devoutly thankful if we can humbly, but honestly say, that this commendation applies to us. Happy the man whose works are known and accepted of Christ. He is no idle Christian, he has practical godliness; he seeks by works of piety to obey God's whole law, by works of charity to manifest his love to the brotherhood, and by works of devotion to show his attachment to the cause of his Master. "I know thy works." Alas! some of you cannot get so far as that. Jesus Christ himself can bear no witness to your works, for you have not done any. You are Christians by profession, but you are not Christians as to your practice. 
 
@@ -17,10 +17,10 @@ In the first place, what was our first love? Secondly, how did we lose it? And t
 
 First, WHAT WAS OUR FIRST LOVE? Oh, let us go back--it is not many years with some of us. We are but youngsters in God's ways, and it is not so long with any of you that you will have very great difficulty in reckoning it. Then if you are Christians, those days were so happy that your memory will never forget them, and therefore you can easily return to that first bright spot in your history. Oh, what love was that which I had to my Saviour the first time he forgave my sins. I remember it. You remember each for yourselves, I dare say, that happy hour when the Lord appeared to us, bleeding on his cross, when he seemed to say, and did say in our hearts, "I am thy salvation; I have blotted out like a cloud thine iniquities, and like a thick cloud thy sins." Oh, how I loved him! Passing all loves except his own was that love which I felt for him then. If beside the door of the place in which I met with him there had been a stake of blazing faggots, I would have stood upon them without chains; glad to give my flesh, and blood, and bones, to be ashes that should testify my love to him. Had he asked me then to give all my substance to the poor, I would have given all and thought myself to be amazingly rich in having beggared myself for his name's sake. Had he commanded me then to preach in the midst of all his foes, I could have said:--
 
-> "There's not a lamb amongst thy flock  
-> I would disdain to feed,  
-> There's not a foe before whose face  
-> I'd fear thy cause to plead."  
+> There's not a lamb amongst thy flock    
+> I would disdain to feed,    
+> There's not a foe before whose face    
+> I'd fear thy cause to plead.    
 
 I could realize then the language of Rutherford, when he said, being full of love to Christ, once upon a time, in the dungeon of Aberdeen--"Oh, my Lord, if there were a broad hell betwixt me and thee, if I could not get at thee except by wading through it, I would not think twice but I would plunge through it all, if I might embrace thee and call thee mine."
 
@@ -34,8 +34,8 @@ Again: when we were in our first love, what would we do for Christ; now how litt
 
 Let the sea say, "I have been ebbing and flowing, lo! these many years; I will ebb and flow no more." Let the sun say, "I have been shining, and I have been rising and setting so many days; I have done this enough to earn me a goodly name; I will stand still;" and let the moon wrap herself up in veils of darkness, and say, "I have illuminated many a night, and I have lighted many a weary traveller across the moors; I will shut up my lamp and be dark forever." Brethren, when you and I cease to labour, let us cease to live. God has no intention to let us live a useless life. But mark this; when we leave our first works, there is no question about having lost our first love; that is sure. If there be strength remaining, if there be still power mentally and physically, if we cease from our office, if we abstain from our labours, there is no solution of this question which an honest conscience will accept, except this, "Thou hast lost thy first love, and, therefore, thou hast neglected thy first works." Ah! we were all so very ready to make excuses for ourselves. Many a preacher has retired from the ministry, long before he had any need to do so. He has married a rich wife. Somebody has left him a little money, and he can do without it. He was growing weak in the ways of God, or else he would have said,
 
-> "My body with my charge lay down,  
-> And cease at once to work and live."  
+> My body with my charge lay down,    
+> And cease at once to work and live.    
 
 And let any man here present who was a Sunday-school teacher and who has left it, who was a tract distributor and who has given it up, who was active in the way of God but is now idle, stand to-night before the bar of his conscience, and say whether he be not guilty of this charge which I bring against him, that he has lost his first love.
 
@@ -43,13 +43,13 @@ I need not stop to say also, that this may be detected in the closet as well as 
 
 And some of you that are present were in the habit of retiring for prayer when you went home; your wives have told that story; the messengers have heard it when they have called at your houses, when they have asked the wife--"What is your husband?" "Ah!" she has said, "he is a godly man; he cannot come home to his breakfast but he must slip upstairs alone. I know what he is doing--he is praying. Then when he is at table, he often says--"Mary, I have had a difficulty to-day, we must go and have a word or two of prayer together." And some of you could not take a walk without prayer, you were so fond of it you could not have too much of it. Now where is it? You know more than you did; you have grown older; you have grown richer, perhaps. You have grown wiser in some respects; but you might give up all you have got, to go back to
 
-> "Those peaceful hours you once enjoyed,  
-> How sweet their memory still!"  
+> Those peaceful hours you once enjoyed,    
+> How sweet their memory still!    
 
 Oh, what would you give if you could fill
 
-> "That aching void,  
-> The world can never fill,"  
+> That aching void,    
+> The world can never fill,    
 
 but which only the same love that you had at first, can ever fully satisfy!
 
@@ -63,8 +63,8 @@ Again: do you not think also that perhaps you may have lost your first love by g
 
 But another reason. Do you not think that perhaps you have forgotten how much you owe to Christ? There is one thing, that I feel from experience I am compelled to do very often, viz., to go back to where I first started:--
 
-> "I, the chief of sinners am,  
-> But Jesus died for me."  
+> I, the chief of sinners am,    
+> But Jesus died for me.    
 
 You and I get talking about our being saints; we know our election, we rejoice in our calling, we go on to sanctification; and we forget the hole of the pit whence we were digged. Ah, remember my brother, thou art nothing now but a sinner saved through grace; remember what thou wouldst have been, if the Lord had left thee. And surely, then, by going back continually to first principles, and to the great foundation stone, the cross of Christ, thou wilt be led to go back to thy first love.
 

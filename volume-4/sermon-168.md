@@ -2,8 +2,8 @@
 
 Sermon No. 168 - Delivered on Sabbath Morning, December 20, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Glory to God in the highest, and on earth peace, good will toward men."  
-> Luke 2:14.  
+> Glory to God in the highest, and on earth peace, good will toward men.    
+> Luke 2:14.    
 
 IT IS SUPERSTITIOUS to worship angels; it is but proper to love them. Although it would be a high sin, and an act of misdemeanor against the Sovereign Court of Heaven to pay the slightest adoration to the mightiest angel, yet it would be unkind and unseemly, if we did not give to holy angels a place in our heart's warmest love. In fact, he that contemplates the character of angels, and marks their many deeds of sympathy with men, and kindness towards them, cannot resist the impulse of his nature--the impulse of love towards them. The one incident in angelic history, to which our text refers, is enough to weld our hearts to them for ever. How free from envy the angels were! Christ did not come from heaven to save their compeers when they fell. When Satan, the mighty angel, dragged with him a third part of the stars of heaven, Christ did not stoop from his throne to die for them; but he left them to be reserved in chains and darkness until the last great day. Yet angels did not envy men. Though they remembered that he took not up angels, yet they did not murmur when he took up the seed of Abraham; and though the blessed Master had never condescended to take the angel's form, they did not think it beneath them to express their joy when they found him arrayed in the body of an infant. How free, too, they were from pride! They were not ashamed to come and tell the news to humble shepherds. Methinks they had as much joy in pouring out their songs that night before the shepherds, who were watching with their flocks, as they would have had if they had been commanded by their Master to sing their hymn in the halls of Caesar. 
 
@@ -17,12 +17,12 @@ The angels sang something which men could understand--something which men ought 
 
 First, they said that this salvation gave glory to God. They had been present on many august occasions, and they had joined in many a solemn chorus to the praise of their Almighty Creator. They were present at the creation: "The morning stars sang together, and all the sons of God shouted for joy." They had seen many a planet fashioned between the palms of Jehovah, and wheeled by his eternal hands through the infinitude of space. They had sung solemn songs over many a world which the Great One had created. We doubt not, they had often chanted "Blessing and honour, and glory, and majesty, and power, and dominion, and might, be unto him that sitteth on the throne," manifesting himself in the work of creation. I doubt not, too, that their songs had gathered force through ages. As when first created, their first breath was song, so when they saw God create new worlds then their song received another note; they rose a little higher in the gamut of adoration. But this time, when they saw God stoop from his throne, and become a babe, hanging upon a woman's breast, they lifted their notes higher still; and reaching to the uttermost stretch of angelic music, they gained the highest notes of the divine scale of praise, and they sung, "Glory to God in the highest," for higher in goodness they felt God could not go. Thus their highest praise they gave to him in the highest act of his godhead. If it be true that there is a hierarchy of angels, rising tier upon tier in magnificence and dignity--if the apostle teaches us that there be "angels, and principalities, and powers, and thrones, and dominions," amongst these blest inhabitants of the upper world--I can suppose that when the intelligence was first communicated to those angels that are to be found upon the outskirts of the heavenly world, when they looked down from heaven and saw the newborn babe, they sent the news backward to the place whence the miracle first proceeded, singing
 
-> "Angels, from the realms of glory,  
-> Wing your downward flight to earth,  
-> Ye who sing creation's story,  
-> Now proclaim Messiah's birth;  
-> Come and worship,  
-> Worship Christ, the newborn King."  
+> Angels, from the realms of glory,    
+> Wing your downward flight to earth,    
+> Ye who sing creation's story,    
+> Now proclaim Messiah's birth;    
+> Come and worship,    
+> Worship Christ, the newborn King.    
 
 And as the message ran from rank to rank, at last the presence angels, those four cherubim that perpetually watch around the throne of God--those wheels with eyes--took up the strain, and, gathering up the song of all the inferior grades of angels, surmounted the divine pinnacle of harmony with their own solemn chant of adoration, upon which the entire host shouted, "The highest angels praise thee."--"Glory to God in the highest." Ay, there is no mortal that can ever dream how magnificent was that song. Then, note, if angels shouted before and when the world was made, their hallelujahs were more full, more strong, more magnificent, if not more hearty, when they saw Jesus Christ born of the Virgin Mary to be man's redeemer--"Glory to God in the highest."
 
@@ -44,18 +44,18 @@ I do not pretend to say that I have opened all the instructions contained in the
 
 Next, I have to present to you some EMOTIONAL THOUGHTS. Friends, doth not this verse, this song of angels, stir your heart with happiness? When I read that, and found the angels singing it, I thought to myself, "Then if the angels ushered in the gospel's great head with singing, ought I not to preach with singing? And ought not my hearers to live with singing? Ought not their hearts to be glad and their spirits to rejoice?" Well, thought I, there be some somber religionists who were born in a dark night in December that think a smile upon the face is wicked, and believe that for a Christian to be glad and rejoice is to be inconsistent. Ah! I wish these gentlemen had seen the angels when they sang about Christ; for angels sang about his birth, though it was no concern of theirs, certainly men ought to sing about it as long as they live, sing about it when they die, and sing about it when they live in heaven for ever. I do long to see in the midst of the church more of a singing Christianity. The last few years have been breeding in our midst a groaning and unbelieving Christianity. Now, I doubt not its sincerity, but I do doubt its healthy character. I say it may be true and real enough; God forbid I should say a word against the sincerity of those who practice it; but it is a sickly religion. Watts hit the mark when he said,
 
-> "Religion never was designed  
-> To make our pleasures less."  
+> Religion never was designed    
+> To make our pleasures less.    
 
 It is designed to do away with some of our pleasures, but it gives us many more, to make up for what it takes away; so it does not make them less. O ye that see in Christ nothing but a subject to stimulate your doubts and make the tears run down your cheeks; O ye that always say,
 
-> "Lord, what a wretched land is this,  
-> That yields us no supplies,"  
+> Lord, what a wretched land is this,    
+> That yields us no supplies,    
 
 Come ye hither and see the angels. Do they tell their story with groans, and sobs, and sighs? Ah, no; they shout aloud, "Glory to God in the highest." Now, imitate them, my dear brethren. If you are professors of religion, try always to have a cheerful carriage. Let others mourn; but
 
-> "Why should the children of a king  
-> Go mourning all their days?"  
+> Why should the children of a king    
+> Go mourning all their days?    
 
 Anoint your head and wash your face; appear not unto men to fast. Rejoice in the Lord always, and again I say unto you rejoice. Specially this week be not ashamed to be glad. You need not think it a wicked thing to be happy. Penance and whipping, and misery are no such very virtuous things, after all. The damned are miserable; let the saved be happy. Why should you hold fellowship with the lost by feelings of perpetual mourning? Why not rather anticipate the joys of heaven, and begin to sing on earth that song which you will never need to end? The first emotion then that we ought to cherish in our hearts is the emotion of joy and gladness.
 
@@ -67,17 +67,17 @@ I must now bring before you the third point. There are some PROPHETIC UTTERANCES
 
 Christ the Lord will come again, and when he cometh he shall cast the idols from their thrones; he shall dash down every fashion of heresy and every shape of idolatry; he shall reign from pole to pole with illimitable sway; he shall reign, when like a scroll, yon blue heavens have passed away. No strife shall vex Messiah's reign, no blood shall then be shed; they'll hang the useless helmet high, and study war no more. The hour is approaching when the temple of Janus shall be shut for ever, and when cruel Mars shall be hooted from the earth. The day is coming when the lion shall eat straw like the ox, when the leopard shall lie down with the kid; when the weaned child shall put his hand upon the cockatrice den and play with the asp. The hour approacheth; the first streaks of the sunlight have made glad the age in which we live. Lo, he comes, with trumpets and with clouds of glory; he shall come for whom we look with joyous expectation, whose coming shall be glory to his redeemed, and confusion to his enemies. Ah! brethren, when the angels sang this there was an echo through the long aisles of a glorious future. That echo was--
 
-> "Hallelujah! Christ the Lord  
-> God Omnipotent shall reign."  
+> Hallelujah! Christ the Lord    
+> God Omnipotent shall reign.    
 
 Ay, and doubtless the angels heard by faith the fulness of the song,
 
-> "Hark! the song of jubilee  
-> Loud as mighty thunders' roar,  
-> Or the fulness of the sea,  
-> When it breaks upon the shore."  
+> Hark! the song of jubilee    
+> Loud as mighty thunders' roar,    
+> Or the fulness of the sea,    
+> When it breaks upon the shore.    
 
-> "Christ the Lord Omnipotent reigneth."  
+> Christ the Lord Omnipotent reigneth.    
 
 Now, I have one more lesson for you, and I have done. That lesson is PRECEPTIVE. I wish everybody that keeps Christmas this year, would keep it as the angels kept it. There are many persons who, when they talk about keeping Christmas, mean by that the cutting of the bands of their religion for one day in the year, as if Christ were the Lord of misrule, as if the birth of Christ should be celebrated like the orgies of Bacchus. There are some very religious people, that on Christmas would never forget to go to church in the morning; they believe Christmas to be nearly as holy as Sunday, for they reverence the tradition of the elders. Yet their way of spending the rest of the day is very remarkable; for if they see their way straight up stairs to their bed at night, it must be by accident. They would not consider they had kept Christmas in a proper manner, if they did not verge on gluttony and drunkenness. They are many who think Christmas cannot possibly be kept, except there be a great shout of merriment and mirth in the house, and added to that the boisterousness of sin. Now, my brethren, although we, as successors of the Puritans, will not keep the day in any religious sense whatever, attaching nothing more to it than to any other day: believing that every day may be a Christmas for ought we know, and wishing to make every day Christmas, if we can, yet we must try to set an example to others how to behave on that day; and especially since the angels gave glory to God: let us do the same.
 
@@ -85,22 +85,22 @@ Once more the angels said, "Peace to men:" let us labor if we can to make peace 
 
 Now, brother, you have made a vow that you will never speak to your brother again. Go after him and say, "Oh, my dear fellow, let not this day's sun go down upon our wrath." Fetch him in, and give him your hand. Now, Mr. Tradesman, you have an opponent in trade, and you have said some very hard words about him lately. If you do not make the matter up today, or tomorrow, or as soon as you can, yet do it on that day. That is the way to keep Christmas, peace on earth and glory to God. And oh, if thou hast anything on thy conscience, anything that prevents thy having peace of mind, keep thy Christmas in thy chamber, praying to God to give thee peace; for it is peace on earth, mind, peace in thyself, peace with thyself, peace with thy fellow men, peace with thy God. And do not think thou hast well celebrated that day till thou canst say, "O God,
 
-> 'With the world, myself, and thee  
-> I ere I sleep at peace will be. "  
+> With the world, myself, and thee    
+> I ere I sleep at peace will be.    
 
 And when the Lord Jesus has become your peace, remember, there is another thing, good will towards men. Do not try to keep Christmas without keeping good will towards men. You are a gentleman, and have servants. Well, try and set their chimneys on fire with a large piece of good, substantial beef for them. If you are men of wealth, you have poor in your neighborhood. Find something wherewith to clothe the naked, and feed the hungry, and make glad the mourner. Remember, it is good will towards men. Try, if you can, to show them good will at this special season; and if you will do that, the poor will say with me, that indeed they wish there were six Christmases in the year.
 
 Let each one of us go from this place determined, that if we are angry all the year round, this next week shall be an exception; that if we have snarled at everybody last year, this Christmas time we will strive to be kindly affectionate to others; and if we have lived all this year at enmity with God, I pray that by his Spirit he may this week give us peace with him; and then, indeed, my brother, it will be the merriest Christmas we ever had in all our lives. You are going home to your father and mother, young men; many of you are going from your shops to your homes. You remember what I preached on last Christmas time. Go home to thy friends, and tell them what the Lord hath done for thy soul, and that will make a blessed round of stories at the Christmas fire. If you will each of you tell your parents how the Lord met with you in the house of prayer; how, when you left home, you were a gay, wild blade, but have now come back to love your mother's God, and read your father's Bible. Oh, what a happy Christmas that will make! What more shall I say? May God give you peace with yourselves; may he give you good will towards all your friends, your enemies, and your neighbors; and may he give you grace to give glory to God in the highest. I will say no more, except at the close of this sermon to wish every one of you, when the day shall come, the happiest Christmas you ever had in your lives.
 
-> "Now with angels round the throne,  
-> Cherubim and seraphim,  
-> And the church, which still is one,  
-> Let us swell the solemn hymn;  
-> Glory to the great I AM!  
-> Glory to the Victim Lamb.  
-> Blessing, honour, glory, might,  
-> And dominion infinite,  
-> To the Father of our Lord,  
-> To the Spirit and the Word;  
-> As it was all worlds before,  
-> Is, and shall be evermore."  
+> Now with angels round the throne,    
+> Cherubim and seraphim,    
+> And the church, which still is one,    
+> Let us swell the solemn hymn;    
+> Glory to the great I AM!    
+> Glory to the Victim Lamb.    
+> Blessing, honour, glory, might,    
+> And dominion infinite,    
+> To the Father of our Lord,    
+> To the Spirit and the Word;    
+> As it was all worlds before,    
+> Is, and shall be evermore.    

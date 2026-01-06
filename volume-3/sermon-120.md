@@ -2,17 +2,17 @@
 
 Sermon No. 120 - Delivered on Sabbath Morning, March 8, 1857, by the REV. C.H. SPURGEON at The Music Hall, Royal Surrey Gardens.
 
-> "There is a friend that sticketh closer than a brother."  
-> Proverbs 18:24.  
+> There is a friend that sticketh closer than a brother.    
+> Proverbs 18:24.    
 
 CICERO has well said, "Friendship is the only thing in the world concerning the usefulness of which all mankind are agreed." Friendship seems as necessary an element of a comfortable existence in this world as fire or water, or even air itself. A man may drag along a miserable existence in proud solitary dignity, but his life is scarce life, it is nothing but an existence, the tree of life being stripped of the leaves of hope and the fruits of joy. He who would be happy here must have friends; and he who would be happy hereafter, must, above all things, find a friend in the world to come, in the person of God, the Father of his people.
 
 Friendship, however, though very pleasing and exceedingly blessed, has been the cause of the greatest misery to men when it has been unworthy and unfaithful; for just in proportion as a good friend is sweet, a false friend is full of bitterness. "A faithless friend is sharper than an adder's tooth." It is sweet to repose in some one; but O! how bitter to have that support snapped, and to receive a grievous fall as the effect of your confidence. Fidelity is an absolute necessary in a true friend; we can not rejoice in men unless they will stand faithful to us. Solomon declares that "there is a friend that sticketh closer than a brother." That friend, I suppose, he never found in the pomps and vanities of the world. He had tried them all, but he found them empty; he passed through all their joys, but he found them "vanity of vanities." Poor Savage spoke from sad experience when he said--
 
-> "You'll find the friendship of the world a show!  
-> Mere outward show! Tis like the harlot's tears,  
-> The statesman's promise, or false patriot's zeal,  
-> Full of fair seeming, but delusion all."  
+> You'll find the friendship of the world a show!    
+> Mere outward show! Tis like the harlot's tears,    
+> The statesman's promise, or false patriot's zeal,    
+> Full of fair seeming, but delusion all.    
 
 And so for the most part they are. The world's friendship is ever brittle. Trust to it, and you have trusted a robber; rely upon it, and you have leaned upon a thorn; ay, worse than that, upon a spear which shall pierce you to the soul with agony. Yet Solomon says he had found "a friend that sticketh closer than a brother." Not in the haunts of his unbridled pleasures, nor in the wanderings of his unlimited resources, but in the pavilion of the Most High, the secret dwelling-place of God, in the person of Jesus, the Son of God, the Friend of sinners.
 
@@ -24,23 +24,23 @@ To repeat our assertion, we believe that this friend is the blessed Redeemer, Je
 
 First, then, beloved, we assert that CHRIST IS "A FRIEND THAT STICKETH CLOSER THAN A BROTHER." And in order to prove this from facts, we appeal to such of you as have had him for a friend. Will you not, each of you, at once give your verdict, that this is neither more nor less than an unexaggerated truth? He loved you before all worlds; long ere the day star flung his ray across the darkness, before the wing of angel had flapped the unnavigated ether, before aught of creation had struggled from the womb of nothingness, God, even our God, had set his heart upon all his children. Since that time, has he once swerved, has he once turned aside, once changed? No; ye who have tasted of his love and know his grace, will bear me witness, that he has been a certain friend in uncertain circumstances.
 
-> "He, near your side hath always stood.  
-> His loving-kindness. O! how good."  
+> He, near your side hath always stood.    
+> His loving-kindness. O! how good.    
 
 You fell in Adam; did he cease to love you? No; he became the second Adam to redeem you. You sinned in practice, and brought upon your head the condemnation of God; you deserved his wrath and his utter anger; did he then forsake you? No!
 
-> "He saw you ruined in the fall,  
-> Yet loved you notwithstanding all."  
+> He saw you ruined in the fall,    
+> Yet loved you notwithstanding all.    
 
 He sent his minister after you; you despised him; he preached the gospel in your ears; you laughed at him; you broke God's Sabbath, you despised his Word. Did he then forsake you? No!
 
-> "Determined to save, he watched o'er your path,  
-> Whilst, Satan's blind slave, you sported with death."  
+> Determined to save, he watched o'er your path,    
+> Whilst, Satan's blind slave, you sported with death.    
 
 And at last he arrested you by his grace, he humbled you, he made you penitent, he brought you to his feet, and he forgave you all your sins. Since then, has he left you? You have often left him; has he ever left you? You have had many trials and troubles; has he ever deserted you? Has he ever turned away his heart, and shut up his bowels of compassion? No, children of God, it is your solemn duty to say "No," and bear witness to his faithfulness. You have been in severe afflictions and in dangerous circumstances; did your friend desert you then? Others have been faithless to you; he that eat bread with you has lifted up his heel against you; but has Christ ever forsaken you? Has there ever been a moment when you could go to him, and say, "Master, thou hast betrayed me?" Could you once, in the blackest hour of your grief, dare to impugn his fidelity? Could you dare to say of him, "Lord, thou hast promised what thou didst not perform?" Will you not bear witness now, "Not one good thing hath failed of all that the Lord God hath promised; all hath come to pass?" And do you fear he will yet forsake you? Ask, then, the bright ones before the throne--"Ye glorified spirits! did Christ forsake you? Ye have passed through Jordan's stream; did he leave you there? Ye have been baptized in the black flood of death; did he there forsake you? Ye have stood before the throne of God; did he then deny you?" And they answered, "No; through all the troubles of our life, in all the bitterness of death, in all the agonies of our expiring moments, and in all the terrors of God's judgment, he hath been with us, a friend that sticketh closer than a brother.'" Out of all the millions of God's redeemed, there is not one he hath forsaken. Poor they have been, mean and distressed, but he hath never abhorred their prayer, never turned aside from doing them good. He hath been ever with them.
 
-> "For his mercy shall endure,  
-> Ever faithful, ever sure."  
+> For his mercy shall endure,    
+> Ever faithful, ever sure.    
 
 But I shall not longer stay, since I can not prove this to the ungodly, and to the godly it is already proven, for they know it by experience; therefore it is but little necessary that I should do more than just certify the fact that Christ is a faithful friend--a friend in every hour of need and every time of distress.
 
@@ -50,10 +50,10 @@ There are some things in himself which render it certain that he will stick clos
 
 True friendship can only be made between true men. Hearts are the soul of honor. There can be no lasting friendship between bad men. Bad men may pretend to love each other, but their friendship is a rope of sand, which shall be broken at any convenient season; but if a man have a sincere heart within him, and be true and noble, then we may confide in him. Spenser sings in fine old English verse--
 
-> "No, certes can that friendship long endure,  
-> However gay and goodly be the style,  
-> That doth ill cause or evil end enure,  
-> For Vertue is the band that bindeth Harts most sure."  
+> No, certes can that friendship long endure,    
+> However gay and goodly be the style,    
+> That doth ill cause or evil end enure,    
+> For Vertue is the band that bindeth Harts most sure.    
 
 But who can find a stain in the character of Jesus, or who can tarnish his honor? Has there ever been a spot on his escutcheon? Has his flag ever been trampled in the dust? Does he not stand the true witness in heaven, the faithful and just? Is it not declared of him that he is God who can not lie? Have we not found him so up to this moment; and may we not, knowing that he is "Holy, holy, holy Lord," confide in him, that he will stick closer to us than a brother? His goodness is the guaranty of his fidelity; he can not fail us.
 
@@ -63,10 +63,10 @@ Now, child of God, has Christ every flattered you? Has he not told you of your f
 
 In the next place, there are some things in his friendship which render us sure of not being deceived, when we put our confidence in him. True friendship must not be of hasty growth. As quaint old Master Fuller says: "Let friendship creep gently to a height; if it rush to it, it may soon run itself out of breath." It is even so. I think it was Joanna Baillie said--
 
-> "Friendship is no plant of hasty growth.  
-> Though planted in esteem's deep fixed soil,  
-> The gradual culture of kind intercourse  
-> Must bring it to perfection."  
+> Friendship is no plant of hasty growth.    
+> Though planted in esteem's deep fixed soil,    
+> The gradual culture of kind intercourse    
+> Must bring it to perfection.    
 
 In vain thou trustest the gourd over thy head, O Jonah; it will not be of much use to thee; it came up in a night, it may wither in a night. It is the strong stiff oak, of ages' growth, which shall abide the tempest; which shall alike put out its wings to shield thee from the sun, and shall afterward find thee a hovel in its heart, if necessary, in its gray old age, when its branches tremble in the blast. Friendship is true when it begins; but we must have a man's friendship long before we can say of him, that he will stick closer than a brother. And how long has Christ loved you? That you can not tell. When the ages were not born he loved you; when this world was an infant, wrapped in the swaddling clothes of mist, he loved you; when the old pyramids had not begun to be builded, his heart was set upon you; and ever since you have been born he has had a strong affection for you. He looked on you in your cradle, and he loved you then; he was affianced to you when you were an infant of a span long, and he has loved you ever since. Some of you I see with gray hairs, some with heads all bald with age; he has loved you up till now, and will he now forsake you? O! no, his friendship is so old that it must last; it has been matured by so many tempests, it has been rooted by so many winds of trouble, that it can not but endure; it must stand. Even as the granite peak of the mountain shall not be melted, because, unlike the snow, it has braved the blast, and borne the heat of the burning sun; it has stood out always, catching in its face every blow from the face of nature, and yet been unmoved and uninjured. It shall last, for it has lasted. But when the elements shall melt, and in a stream of dissolving fire shall run away, then shall Christ's friendship still exist, for it is of older growth than they. He must be "a friend that sticketh closer than a brother;" for his friendship is a hoary friendship--hoary as his own head, of which it is said, "His head and his hair are white like snow, as white as wool."
 
@@ -80,8 +80,8 @@ Yet again, friendship and love, to be real, must not lie in words, but in deeds.
 
 Once more, and I shall not weary you, I trust. A purchased friend will never last long. Give to a man nineteen times, and deny him the twentieth, and he shall hate you; for his love sprang only from your gifts. The love which I could buy for gold I would sell for dross; the friendship that I could buy for pearls I would dispense with for pebbles; it were of no value, and therefore the sooner lost the better. But O believer, Christ's love was unpurchased love. Thou broughtest him no present. Jacob said, when his sons went to Egypt, "Take the man a present, a little oil, a little balm, a few nuts and almonds;" but you took Christ no presents. When you came to him you said,
 
-> "Nothing in my hands I bring,  
-> Simply to thy cross I cling."  
+> Nothing in my hands I bring,    
+> Simply to thy cross I cling.    
 
 You did not even promise that you would love him; for you had such a faithless heart, you durst not say so. You asked him to make you love him; that was the most you could do. He loved you for nothing at all--simply because he would love you. Well, that love which so lived on nothing but its own resources, will not starve through the scantiness of your returns; the love which grew in such a rocky heart as this, will not die for want of soil. That love which sprang up in the barren desert, in your unirrigated soul, will never, never die for want of moisture; it must live, it can not expire. Jesus must be "a friend that sticketh closer than a brother."
 
@@ -91,40 +91,40 @@ Shall I stay to urge more reasons? I may but mention one other, namely, this--th
 
 Now, then, AN INFERENCE TO BE DERIVED FROM THIS. Lavater says, "The qualities of your friends will be those of your enemies; cold friends, cold enemies, half friends, half enemies, fervid enemies, warm friends." Knowing this to be a truth, I have often congratulated myself, when my enemies have spoken fiercely against me. Well, I have thought, "My friends love me hard and fast; let my enemies be as hot as they please; it only indicates that the friends are proportionately firm in affection. Then we draw this inference, that if Christ sticks close, and he is our friend, then our enemies will stick close, and never leave us till we die. O, Christian, because Christ sticks close, the devil will stick close too; he will be at you and with you; the dog of hell will never cease his howlings, till you reach the other side of Jordan; no place in this world is out of bow-shot of that great enemy; till you have crossed the stream his arrows can reach you, and they will. If Christ gave himself for you, the devil will do all he can to destroy you; if Christ has been long-suffering to you, Satan will be persevering, in hopes that Christ may forget you; he will strive after you, and strive until he shall see you safely landed in heaven. But be not disappointed: the louder Satan roars, the more proof you shall have of Christ's love. "Give me," said old Rutherford, "give me a roaring devil rather than a sleeping one; for sleeping devils make me slumber, but roaring ones provoke me to run to my Master." O! be glad, then, if the world rant at thee, if thy foes attack thee fiercely. Christ is just as full of love to thee as they are of hatred. Therefore,
 
-> "Be firm and strong;  
-> Be grace thy shield and Christ thy song."  
+> Be firm and strong;    
+> Be grace thy shield and Christ thy song.    
 
 And now I have a question to ask: that question I ask of every man and every woman in this place, and of every child too--Is Jesus Christ your friend? Have you a friend at court--at heaven's court? Is the judge of quick and dead your friend? Can you say that you love him, and has he ever revealed himself in the way of love to you? Dear hearer, do not answer that question for thy neighbor; answer it for thyself. Peer or peasant, rich or poor, learned or illiterate, this question is for each of you; therefore, ask it: Is Christ my friend? Did you ever consider that question? Have you ever asked it? O! to be able to say "Christ is my friend," is one of the sweetest things in the world. A man who had lived much in sin, one day casually entered a place of worship. Before the sermon, this hymn was sung--
 
-> "Jesus, lover of my soul."  
+> Jesus, lover of my soul.    
 
 The next day the man was met by an acquaintance who asked him how he liked the sermon. Said he, "I do not know, but there were two or three words that took such a hold of me that I did not know what to do with myself. The minister read that hymn, Jesus, lover of my soul.' Ah!' said he, though he was by no means a religious man, "to be able to say that, I would give up all I have got! But do you think," he asked "that Jesus ever will be the lover of such a man as I am? Jesus, lover of my soul!' O! could I say it." And then he buried his head in his hands and wept. I have every reason to fear that he went back to his sin, and was the same afterwards as before. But, you see, he had conscience enough to let him know how valuable it was to have Christ for his lover and his friend. Ah! rich man, thou hast many friends. There be some here who have toiled for their country's good, and deserve a meed of honor at their country's hands, who, for one mistake--or what, perhaps, was a mistake--have been neglected by too many who once appeared to be their most trusty adherents. O! put no confidence, ye great men and ye rich, in the adherence of your friends. David said in his hast," All men are liars;" you may one day have to say it at your leisure. And O! ye kind and affectionate hearts, who are not rich in wealth, but who are rich in love--and that is the world's best wealth--put this golden coin among your silver ones, and it will sanctify them all. Get Christ's love shed abroad in your hearts, and your mother's love, your daughter's love, your husband's love, your wife's love, will become more sweet than ever. The love of Christ cast not out the love of relatives, but it sanctifies our loves, and makes them sweeter far. 
 
 Remember, dear hearer, the love of men and women is very sweet; but all must pass away; and what will you do, if you have no wealth but the wealth that fadeth, and no love but the love which dies, when death shall come? O! to have the love of Christ! You can take that across the river of death with you; you can wear it as your bracelet in heaven, and set it up as a seal upon your hand; for his love is "strong as death and mightier than the grave." Good old Bishop Beveridge, I think it was, when dying, did not know his best friends. Said one, "Bishop Beveridge, do you know me?" Said he, "Who are you?" and when the name was mentioned, he said, "No." "But don't you know your wife, Bishop?" "What is her name?" said he. Said she, "I am your wife." "I did not know I had got one," said he. Poor old man! his faculties all failed him. At last one stooped down and whispered, "Do you know the Lord Jesus Christ?" "Yes," said he, making an effort to speak, "I have known him these forty years, and I never can forget him." It is marvelous how memory will hold the place with Jesus, when it will with no one else; and it is equally marvelous, that,
 
-> "When all created things are dry, Christ's fullness is the same."  
+> When all created things are dry, Christ's fullness is the same.    
 
 My dear hearers, do think of this matter. O that you might get Christ for your friend; he will never be your friend while you are self-righteous; he will never be your friend while you live in sin. But do you believe yourselves guilty? Do you desire to leave off sin? Do you want to be saved? Do you desire to be renewed? Then let me tell you, my Master loves you! Poor, weak, and helpless worms, my Master's heart if full of love to you; his eyes at this moment are looking down with pity on you. "O! Jerusalem, Jerusalem, Jerusalem!" He now bids me tell you that he died for all of you who confess yourselves to be sinners, and feel it. He bids me say to you, "Believe on the Lord Jesus Christ, and you shall be saved." He tells me to proclaim salvation full and free; full, needing nothing of yours to help it; free, needing nothing of yours to buy it.
 
-> "Come ye thirsty, come and welcome;  
-> God's free bounty glorify:  
-> True belief and true repentance,  
-> Every grace that brings us nigh--  
-> Without money,  
-> Come to Jesus Christ, and buy."  
+> Come ye thirsty, come and welcome;    
+> God's free bounty glorify:    
+> True belief and true repentance,    
+> Every grace that brings us nigh--    
+> Without money,    
+> Come to Jesus Christ, and buy.    
 
 There is nothing I feel that I fail so much in as addressing sinners. O! I wish I could cry my heart out, and preach my heart out, to you and at you.
 
-> "Dear Saviour, draw reluctant hearts,  
-> To thee let sinners fly,  
-> And take the bliss thy love imparts;  
-> And drink, and never die."  
+> Dear Saviour, draw reluctant hearts,    
+> To thee let sinners fly,    
+> And take the bliss thy love imparts;    
+> And drink, and never die.    
 
 Farewell, with this one thought--we shall never all of us meet together here again. It is a very solemn thought, but according to the course of nature and the number of deaths, if all of you were willing to come here next Sabbath morning, it is not at all likely that all of you would be alive; one out of this congregation will be sure to have gone the way of all flesh. Farewell, thou that are appointed to death; I know not where thou art--yon strong man, or yon tender maiden with the hectic flush of consumption on her cheek. I know not who is appointed to death; but I do now most solemnly take my farewell of such an one. Farewell, poor soul; and is it farewell for ever? Shall we meet in the land of the hereafter, in the home of the blessed; or do I bid you farewell now for ever? I do solemnly bid farewell to you for ever, if you live and die without Christ. But I can not bear that dreary thought; and I therefore say, poor sinner! stop and consider--consider thy ways, and now "turn ye, turn ye, why will ye die?" "Why will ye die?" "Why will ye die?" "Why will ye die?" Ah! ye can not answer that question. May God help you to answer it in a better fashion, by saying, "Here Lord!
 
-> Just as I am, without one plea,  
-> But that thy blood was shed for me,  
-> O Son of God I come to thee.  
-> I trust my soul in thy kind hands."   
+> Just as I am, without one plea,    
+> But that thy blood was shed for me,    
+> O Son of God I come to thee.    
+> I trust my soul in thy kind hands.    
 
 The Lord bless you all for Christ's sake! Amen.

@@ -2,8 +2,8 @@
 
 Sermon No. 218 - Delivered on Sabbath Morning, October 10, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates."  
-> 2 Corinthians 13:5.  
+> Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates.    
+> 2 Corinthians 13:5.    
 
 I HAD INTENDED to address you this morning from the third title given to our blessed Redeemer, in the verse we have considered twice before--"Wonderful, Counsellor, the mighty God;" but owing to excruciating pain and continual sickness, I have been unable to gather my thoughts together, and therefore I feel constrained to address you on a subject which has often been upon my heart and not unfrequently upon my lips, and concerning which, I dare say, I have admonished a very large proportion of this audience before. You will find the text in the thirteenth chapter of the second epistle to the Corinthians, at the fifth verse--"Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates?"--a solemn text, that we cannot preach too impressively, or too frequently meditate.
 
@@ -41,12 +41,12 @@ The second point was to ENFORCE THE TEXT. I have proved it; now I am to enforce 
 
 Again: "Examine yourselves," because if ye make a mistake ye can never rectify it, except in this world. A bankrupt may have lost a fortune once, and yet may make another; but make bankruptcy--spiritual bankruptcy in this life, and you will never have an opportunity to trade again for heaven. A great general may lose one battle, but with skill and courage he may retrieve his honour by winning another; but get defeated in the battle of this life, and you can no more gird on your armour, you are defeated for ever; the day is lost, and there is no hope of your being able to gain it again, or so much as to make the attempt. Now, or never, man! remember that. Thy soul's eternal state hangs on the turn of to-day. Loiter thy time away, waste thine abilities, take thy religion at second hand, of thy priest, of thy minister, or of thy friend, and in the next world thou shalt everlastingly rue the error, but thou shalt have no hope of amending it.
 
-> "Fix'd is their everlasting state,
-> Could man repent, tis then too late.
-> There are no acts of pardon pass'd
-> In the cold grave, to which we haste;
-> But darkness, death, and long despair,
-> Reign in eternal silence there."
+> Fix'd is their everlasting state,    
+> Could man repent, tis then too late.    
+> There are no acts of pardon pass'd    
+> In the cold grave, to which we haste;    
+> But darkness, death, and long despair,    
+> Reign in eternal silence there.    
 
 "Examine yourselves," again, because many have been mistaken. That is a matter which I will undertake to affirm upon my own authority, certain that each one of you can confirm it by your own observation. How many in this world think themselves to be godly when they are not? You have in the circle of your own friends, persons making a profession, of whom you often stand in astonishment, and wonder how they dare to do it. Friend, if others have been mistaken, may not you be? If some here and there fall into an error, may not you also do the same? Are you better than they? No, in nowise. You may be mistaken also. Methinks I see the rocks on which many souls have been lost--the rocks of presumption, and the syren song of self-confidence entices you on to those rocks this morning. Stay, mariner, stay, I beseech thee! Let you bleached bones keep thee back. Many have been lost, many are lost now, and are wailing at this present hour their everlasting ruin, and their loss is to be traced to nothing more than this, that they never examined themselves whether they were in the faith.
 

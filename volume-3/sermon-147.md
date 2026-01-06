@@ -2,8 +2,8 @@
 
 Sermon No. 147 - Delivered on Sabbath Morning, May 31, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "When thou hearest the sound of a going in the tops of the mulberry trees, that then thou shall bestir thyself: for then shall the Lord go out before thee, to smite the host of the Philistines."  
-> 2 Samuel 5:24.  
+> When thou hearest the sound of a going in the tops of the mulberry trees, that then thou shall bestir thyself: for then shall the Lord go out before thee, to smite the host of the Philistines.    
+> 2 Samuel 5:24.    
 
 DAVID HAD just fought the Philistines in this very valley, and gained a signal victory, so that he said, "the Lord hath broken forth upon mine enemies before me as the breach of waters." The Philistines had come up in great hosts, and had brought their gods with them, that like Israel, when the ark of the Lord was brought into their midst, they might feel quite sure of victory. However, by the help of God David easily put them to rout, burned their images in the fire, and obtained a glorious victory over them. Note, however, that when they came a second time against David, David did not go up to fight them, without enquiring of the Lord. Once he had been victorious; he might have said, as many of us have said, in fact, in other cases--"I shall be victorious again; I may rest quite sure that if I have triumphed once I shall triumph yet again. Wherefore should I go and seek at the Lord's hands?" Not so, now David. He had gained one victory by the strength of the Lord; he would not venture upon another, until he had ensured the same. He went and asked the sacred oracle, "Shall I go up against them?" and when he was informed that he was not immediately to march against them, but to encamp so as to surprise them at the mulberry-trees, he did not demur a single moment to the mandate of God; and when he was bidden to wait until he should hear the sound in the tops of the mulberry-trees before he went to fight, he was not in an ill haste to rush to battle at once, but he tarried until the mulberry-trees began to sing at the top by reason of the wind that rushed along the leaves. He would wait until God's sign was given; he said, "I will not lift my spear nor my hand till God hath bidden me do it, lest I should go to war at my own charges, and lose all I have obtained."
 
@@ -43,8 +43,8 @@ Do not, by any harshness of yours, put a rough hand on that tender plant; do not
 
 And lastly, not to detain you longer Christian, in regard to yourself there is a great truth here. There are times, you know, "when thou hearest the sound of a going in the tops of the mulberry trees." You have a peculiar power in prayer; the Spirit of God gives you joy and gladness; the Scripture is open to you; the promises are applied; you walk in the light of God's countenance, and his candle shines about your head; you have peculiar freedom and liberty in devotion; perhaps you have got less to attend to in the world and more closeness of communion with Christ than you used to have. Now is the time; now, when you hear the "sound of a going in the tops of the mulberry trees." Now is the time to bestir yourselves; now is the time to get rid of any evil habit that still remains now is the season in which God the Spirit is with you. But spread your sail; remember what you sometimes sing--
 
-> "I can only spread the sail;  
-> Thou Lord must breathe the auspicious gale."  
+> I can only spread the sail;    
+> Thou Lord must breathe the auspicious gale.    
 
 Be sure you have the sail up. Do not miss the gale, for want of preparation for it. Seek help of God, that you may he more earnest in duty, when made more strong in faith; that you may be more constant in prayer, when you have more liberty at the throne; that you may be more holy in your conversation, whilst you live more closely with Christ.
 

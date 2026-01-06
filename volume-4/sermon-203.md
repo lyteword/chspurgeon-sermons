@@ -2,8 +2,8 @@
 
 Sermon No. 203 - Delivered on Sabbath Morning, July 4, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "There is joy in the: presence of the angels of God over one sinner that repenteth."  
-> Luke15:10.  
+> There is joy in the: presence of the angels of God over one sinner that repenteth.    
+> Luke15:10.    
 
 MAN'S HEART IS NEVER BIG ENOUGH to hold either its joys or its sorrows. You never heard of a man whose heart was exactly full of sorrow; for no sooner is it full, than it overflows. The first prompting of the soul is to tell its sorrow to another. The reason is, that our heart is not large enough to hold our grief; and we need to have another heart to receive a portion thereof It is even so with our joy. When the heart is full of joy, it always allows its joy to escape. It is like the fountain in the marketplace; whenever it is full it runs away in streams, and so soon as it ceases to overflow, you may be quite sure that it has ceased to be full. The only full heart is the overflowing heart. You know this, beloved, you have proved it to be true; for when your soul has been full of joy, you have first called together your own kindred and friends, and you have communicated to them the cause of your gladness; and when those vessels have been full even to the brim, you have been like the woman who borrowed empty vessels of her neighbors, for you have asked each of them to become partakers in your joy, and when the hearts of all your neighbors have been full, you have felt as if they were not large enough, and the whole world has been called upon to join in your praise. You bade the fathomless ocean drink in your joy; you spoke to the trees and bade them clap their hands, while the mountains and hills were invoked by you to break forth into singing; the very stars of heaven seemed to look down upon you, and you bade them sing for you, and all the world was full of music through the music that was in your heart. 
 
@@ -21,31 +21,31 @@ There is a connection between thee and him. Strange that though leagues of dista
 
 Remember, again, O heir of immortality, that thou art not only linked to the Godhead, but there is another one in heaven with whom thou hast a strange, yet near connection. In the center of the throne sits one who is thy brother, allied to thee by blood. The Son of God, eternal, equal with his Father, became in the fullness of time the Son of Mary, an infant of a span long. He was, yea is, bone of thy bone and flesh of thy flesh. Think not that thou art cut off from the celestial world, while he is there; for is he not thy head, and hath he not himself declared that thou art a member of his body, of his flesh and of his bones? Oh, man, thou art not separated from heaven whilst Jesus tells thee--
 
-> "I feel at my heart all thy sighs and thy groans,  
-> For thou art most near me, my flesh and my bones,  
-> In all thy distresses, thy Head feels the pain,  
-> They all are most needful, not one is in vain."  
+> I feel at my heart all thy sighs and thy groans,    
+> For thou art most near me, my flesh and my bones,    
+> In all thy distresses, thy Head feels the pain,    
+> They all are most needful, not one is in vain.    
 
 Oh, poor, disconsolate mourner, Christ remembers thee every hour. Thy sighs are his sighs; thy groans are his groans; thy prayers are his prayers:--
 
-> "He in his measure feels afresh,  
-> What every member bears."  
+> He in his measure feels afresh,    
+> What every member bears.    
 
 Crucified he is when thou art crucified; he dies when thou diest; thou livest in him, and he lives in thee, and because he lives shalt thou live also: thou shalt rise in him, and thou shalt sit together in the heavenly places with him. Oh, never was husband nearer to his wife, and never head nearer to the members, and never soul nearer to the body of this flesh, than Christ is unto thee, and while it is so, think not that heaven and earth are divided. They are but kindred worlds; two ships moored close to one another, and one short plank of death will enable you to step from one into the other: this ship, all black and coaly, having done the coasting trade, the dusty business of to-day, and being full of the blackness of sorrow; and that ship all golden, with its painted pennon flying, and its sail all spread, white as the down of the sea-bird, fair as the angel's wing--I tell thee, man, the ship of heaven is moored side by side with the ship of earth, and rock though this ship may, and careen though she will on stormy winds and tempests, yet the invisible and golden ship of heaven sails by her side never sundered, never divided, always ready, in order that when the hour shall come, thou mayest leap from the black, dark ship, and step upon the golden deck of that thrice happy one in which thou shalt sail for ever.
 
 But, O man of God, there are other golden links besides this which bind the present to the future, and time unto eternity. And what are time and eternity, after all, to the believer, but like the Siamese twins, never to be separated? This earth is heaven below, the next world is but a heaven above; it is the same house--this is the lower room, and that the upper, but the same roof cover both, and the same dew falls upon each. Remember, beloved, that the spirits of the just made perfect are never far from you and me if we are lovers of Jesus. All those who have passed the flood have still communion with us. Do we not sing--
 
-> "The saints on earth, and all the dead,  
-> But one communion make;  
-> All join in Christ, the living Head,  
-> And of his grace partake."  
+> The saints on earth, and all the dead,    
+> But one communion make;    
+> All join in Christ, the living Head,    
+> And of his grace partake.    
 
 We have but one Head for the church triumphant and for the church militant;
 
-> "One army of the living God,  
-> To his command we bow;  
-> Part of the host have cross'd the flood,  
-> And part are crossing now."  
+> One army of the living God,    
+> To his command we bow;    
+> Part of the host have cross'd the flood,    
+> And part are crossing now.    
 
 Doth not the apostle tell us that the saints above are a cloud of witnesses? After he had mentioned Abraham, and Isaac, and Jacob, and Gideon, and Barak, and Jephthah, did he not say, "Wherefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight." Lo, we are running in the plains, and the glorified ones are looking down upon us. Thy mother's eyes follow thee, young man; a father's eyes are looking down upon thee, young woman. The eyes of my godly grandmother, long since glorified, I doubt not, rest on me perpetually. No doubt, in heaven they often talk of us. Methinks they sometimes visit this poor earth--they never go out of heaven, it is true, for heaven is everywhere to them. This world is to them but just one corner of God's heaven, one shady bower of paradise.
 
@@ -57,10 +57,10 @@ Our text tells us that the angels of God rejoice over repenting sinners. How is 
 
 I have thus, I hope, shown you that there is a greater connection between earth and heaven than any of us dreamed. And now let none of us think, when we look upward to the blue sky, that we are far from heaven; it is a very little distance from us. When the day comes we shall go post-haste there, even without horses and chariots of fire. Balaam called it a land that is very far off; we know better--it is a land that is very near. Even now
 
-> "By faith we join our hands  
-> With those that went before.  
-> And greet the blood-besprinkled bands  
-> Upon the eternal shore."  
+> By faith we join our hands    
+> With those that went before.    
+> And greet the blood-besprinkled bands    
+> Upon the eternal shore.    
 
 All hail, bright spirits! I see you now. All hail, angels! All hail, ye brethren redeemed! A few more hours, or days, or months, and we shall join your happy throng; till then your joyous fellowship, your sweet compassion shall ever be our comfort and our consolation--and having weathered all storms of life, we shall at last anchor with you within the port of everlasting peace.
 
@@ -84,7 +84,7 @@ Ah! no. Did men rejoice? Was there a sound of thanksgiving in the midst of the g
 
 It was in another place. A poor neglected little boy in ragged clothing had run about the streets for many a-day. Tutored in crime, he was paving his path to the gallows; but one morning he passed by a humble room, where some men and women were sitting together teaching poor ragged children. He stepped in there a wild Bedouin of the streets; they talked to him, they told him about a soul and about an eternity--things he had never heard before; they spoke of Jesus, and of good tidings of great joy to this poor friendless lad. He went another Sabbath. and another; his wild habits hanging about him, for he could not get rid of them; At last it happened that his teacher said to him one day, "Jesus Christ receiveth sinners." That little boy ran, but not home, for it was but a mockery to call it so--where a drunken father and a lascivious mother kept a hellish riot together. He ran, and under some dry arch, or in some wild unfrequented corner, he bent his little knees, and there he cried, that poor creature in his rags, "Lord save me, or I perish;" and the little Arab was on his knees--the little thief was saved! He said--
 
-> "Jesus, lover of my soul, let me to thy bosom fly;"
+> Jesus, lover of my soul, let me to thy bosom fly;    
 
 And up from that old arch, from that forsaken hovel, there flew a spirit, glad to bear the news to heaven, that another heir of glory was born to God. I might picture many such scenes; but will each of you try to picture your own? You remember the occasion when the Lord met with you. Ah! little did you think what a commotion there was in heaven. If the Queen had ordered out all her soldiers, the angels of heaven would not have stopped to notice them; if all the princes of earth had marched in pageant through the streets, with all their robes, and jewellery, and crowns, and all their regalia, their chariots, and their horsemen--if the pomps of ancient monarchies had risen from the tomb--if all the might of Babylon and Tyre and Greece had been concentrated into one great parade, yet not an angel would have stopped in his course to smile at those poor tawdry things; but over you the vilest of the vile, the poorest of the poor, the most obscure and unknown--over you angelic wings were hovering, and concerning you it was said on earth and sung in heaven, "Hallelujah, for a child is born to God to-day."
 

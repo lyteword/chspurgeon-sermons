@@ -2,8 +2,8 @@
 
 Sermon No. 224 - Delivered on Sabbath Morning, November 21st, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And she said, the Philistines be upon thee, Samson. And he awoke out of his sleep, and said, I will go out as at other times before, and shake myself. And he wist not that the Lord was departed from him. But the Philistines took him, and put out his eyes, and brought him down to Gaza, and bound him with fetters of brass; and he did grind in the prison house."  
-> Judges 16:20-21.  
+> And she said, the Philistines be upon thee, Samson. And he awoke out of his sleep, and said, I will go out as at other times before, and shake myself. And he wist not that the Lord was departed from him. But the Philistines took him, and put out his eyes, and brought him down to Gaza, and bound him with fetters of brass; and he did grind in the prison house.    
+> Judges 16:20-21.    
 
 SAMSON IS, IN MANY RESPECTS, one of the most remarkable men whose history is recorded in the pages of inspiration. He enjoyed a singular privilege only accorded to one other person in the Old Testament. His birth was foretold to his parents by an angel. Isaac was promised to Abraham and Sarah by angels whom they entertained unawares; but save Isaac, Samson was the only one whose birth was foretold by an angelic messenger before the opening of the gospel dispensation. Before his birth he was dedicated to God, and set apart as a Nazarite. Now, a Nazarite was a person who was entirely consecrated to God, and in token of his consecration he drank no wine; and allowed his hair to grow, untouched by the razor. Samson, you may therefore understand, was entirely consecrated to God, and when any saw him, they would say, "That man is God's man, a Nazarite, set apart." God endowed Samson with supernatural strength, a strength which never could have been the result of mere thews and sinews. It was not the fashioning of Samson's body that made him strong; it was not the arm, or the fist with which he smote the Philistines; it was a miracle that dwelt within him, a continued going forth of the omnipotence of God, which made him mightier than thousands of his enemies. Samson appears very early to have discovered in himself this great strength, for "the Spirit of the Lord began to move him at times in the camp of Dan." He judged Israel for thirty years, and gloriously did he deliver them. What a noble being he must have been! See him, when he steps into the vineyard for a moment from his parents. A lion that has been crouching there springs upon him, but he meets him all unarmed, receives him upon his brawny arms and rends him like a kid. See him afterwards, when his countrymen have bound him and taken him down from the top of the rock, and delivered him up to the thousands of the Philistines. 
 
@@ -21,10 +21,10 @@ First, THE STRENGTH OF THE CONSECRATED MAN. Do you know that the strongest man i
 
 They were men consecrated to their country; they were ambitious to make the name of Rome the noblest word in human language; and consequently the Roman became a giant. And to this day let a man get a purpose within him, I care not what his purpose is, and let his whole soul be absorbed by it, and what will he not do? You that are "everything by turns and nothing long," that have nothing to live for, soulless carcases that walk this earth and waste its air, what can you do? Why nothing. But the man who knows what he is at, and has his mark, speeds to it "Like an arrow from a bow shot by an archer strong." Nought can turn him aside from his design. How much more is this true if I limit the description to that which is peculiar to the Christian--consecration to God! Oh! what strength that man has who is dedicated to God! Is there such an one here? I know there is. I know that there be many who have consecrated themselves to the Lord God of Israel in the secret of their chamber; and who can say in their hearts,
 
-> "Tis done; the great transaction's done  
-> I am my Lord's, and he is mine.  
-> He drew me, and I followed on,  
-> Glad to obey the voice divine."  
+> Tis done; the great transaction's done    
+> I am my Lord's, and he is mine.    
+> He drew me, and I followed on,    
+> Glad to obey the voice divine.    
 
 Now, the man that can say that, and is thoroughly consecrated to God; be he who he may or what he may, he is a strong man, and will work marvels.
 
@@ -34,19 +34,19 @@ Have you not heard how men have left their kindred and their friends, and all th
 
 "I fear God, and, therefore, I cannot fear you; if it be right in your sight to obey man rather than God, judge ye; but, as for me, I will serve none but God." You may, perhaps, have seen in your life a consecrated man. Is he a public character? What cannot he do? He preaches the gospel, and at once a thousand enemies assail him; they attack him on every side; some for this thing, and some for that; his very virtues are distorted into vices, and his slightest faults are magnified into the greatest crimes. He has scarce a friend; the very ministers of the gospel shun him; he is reckoned to be so strange that every one must avoid him. What does he do? Within the chamber of his own heart he holds conference with his God, and asks himself this question--am I right? Conscience gives the verdict,--yes, and the Spirit bears witness with his spirit that conscience is impartial. "Then," says he, "come fair, come foul, if I am right,--neither to the right hand nor to the left will I turn." Perhaps he feels in secret what he will not express in public. He feels the pang of desertion, obloquy, and rebuke; he cries--
 
-> "If on my face, for thy dear name,  
-> Shame and reproach shall be,  
-> I'll hail reproach, and welcome shame,  
-> If thou'lt remember me."  
+> If on my face, for thy dear name,    
+> Shame and reproach shall be,    
+> I'll hail reproach, and welcome shame,    
+> If thou'lt remember me.    
 
 As for himself in public, none can tell that he careth for any of these things; for he can say with Paul--"None of these things move me, neither count I my life dear unto me that I may win Christ and finish my course with joy." What cannot a consecrated man do? I do believe if he had the whole world against him, he would prove more than a match for them all. He would say--"Heaps upon heaps, with the jaw-bone of an ass, have I slain my thousand men." I care not how violent may be his foe; nor how great may be the advantage which that foe may get on him: though the lion may have crouched for the spring, and may be leaping upon him, yet will he rend him as a kid, for he is more than a conqueror through him that loved him. He is alone such, who is wholly consecrated unto the Lord Jesus Christ.
 
 "But," says some one, "can we be consecrated to Christ? I thought that was for ministers only." Oh, no, my brethren; all God's children must be consecrated men. What are you? Are you engaged in business? If you are what you profess to be, your business must be consecrated to God. Perhaps you have no family whatever, and you are engaged in trade, and are saving some considerable sum a-year; let me tell you the example of a man thoroughly consecrated to God. There lives in Bristol, (name unknown), a man whose income is large; and what does he do with it? He labours in business continually that this income may come to him, but of it, every farthing every year is expended in the Lord's cause except that which he requires for the necessaries of life. He makes his necessities as few as possible, that he may have the more to give away. He is God's man in his business. I do not exhort you to do the same. You may be in a different position; but a man who has a family, and is in business, should be able to say--"Now, I make so much from my business; my family must be provided for--but I seek not to amass riches. I will make money for God and I will spend it in his cause. Did I not say, when I joined the church--
 
-> "All that I am, and all I have,  
-> Shall be for ever thine;  
-> Whate'er my duty bids me give,  
-> My cheerful hands resign."  
+> All that I am, and all I have,    
+> Shall be for ever thine;    
+> Whate'er my duty bids me give,    
+> My cheerful hands resign.    
 
 And if I said it, I meant it." I do not understand some Christian people who sing that hymn, and then pinch, screw, and nip anything when it comes to God's cause. If I sing that, I mean it. I would not sing it unless I did. If I join the church, I understand that I give myself and all that I have up to that church; I would not make a lying profession; I would not make an avowal of a consecration which I did not mean. If I have said, "I am Christ's;" by his grace I will be Christ's. Brethren, you in business may be as much consecrated to Christ as the minister in his pulpit; you may make your ordinary transactions in life a solemn service of God. Many a man has disgraced a cassock, and many another has consecrated a smockfrock: many a man has defiled his pulpit cushions, and many another has made a cobbler's lapstone holiness unto the Lord. Happy the man who is consecrated unto the Lord; where'er he is, he is a consecrated man, and he shall do wonders.
 

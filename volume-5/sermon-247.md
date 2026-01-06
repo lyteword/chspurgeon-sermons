@@ -2,8 +2,8 @@
 
 Sermon No. 247 - Delivered on Sabbath Morning, April 10th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Peace I leave with you; my peace l give unto you; not as the world giveth, I give unto you."  
-> John 14:27.  
+> Peace I leave with you; my peace l give unto you; not as the world giveth, I give unto you.    
+> John 14:27.    
 
 THE GOSPEL OF JOHN is peculiarly the history of Jesus, the Son of God. Matthew deals with Jesus as the Prince of the house of David; Mark treats of him as the Servant of servants; and Luke views him as the Son of Man; but John, with eagle eye, looks beyond all the clouds of his humanity, and seeing the clear shining of his divinity, writes of him especially as the Son of God, the Word, that in the beginning was with God and was God. It seems but right, then, that since Jesus came from heaven, he should sometimes put both himself and his cause, in contrast with that which is of the earth, earthy. You will find through several chapters wherein our Saviour is addressing his disciples, he continually contrasts himself, his gifts, and his love, with those of the world. He came from heaven that he might fight and wrestle with an evil and a wicked world; that he might rescue his people from it; that he might cleanse the world, and, at last, might present the earth itself to himself, to be the new heaven and the new earth, wherein righteousness should dwell. I say, it seems but right, that in a gospel which particularly views Christ as of heavenly origin, and as very God of very God, that there should frequently be a contrast between Christ and the world, between the kingdom which is from heaven, and the kingdoms of this earth. Now, our text presents us with one contrast between Christ and the world: "Peace I leave with you; my peace I give unto you; not as the world giveth, give I unto you." He gives after a diviner fashion than the world can ever give, even when its hand is most laden with its gifts.
 
@@ -27,10 +27,10 @@ Yet again, I remark once more, that all the peace which the world ever did give 
 
 Here is a picture of your vaunted peace! Your calm is but a prelude of an eternal storm. The sunshine of to-day is but the index of the awful shower of to-morrow, a shower of red rain of vengeance, and of hail mingled with fire. Oh, the peace the world gives is delusive. They that rest there, rest upon a bed of death; but the peace which Christ gives is no delusion. When the Christian can sit down and say "I have nothing to fear. I have nothing to trouble me--nothing to tremble at, neither for this world, nor for the next," he is not saying one word more than he has good ground for saying; nay he is not going so far as he might go. He may say
 
-> "Now let earth's old pillars shake,  
-> And all the wheels of nature break,  
-> My stedfast soul shall fear no more,  
-> Than solid rocks when billows roar."  
+> Now let earth's old pillars shake,    
+> And all the wheels of nature break,    
+> My stedfast soul shall fear no more,    
+> Than solid rocks when billows roar.    
 
 That peace has no pretense in it. It is not bombast; it is a reality, Profound though it be, it is not one whit more profound than it is warranted to be. The believer rests upon a solid rock, and all the waves of trouble can never make that rock give way, or shake the foundation of his peace. "Not as the world giveth, give I unto you."
 

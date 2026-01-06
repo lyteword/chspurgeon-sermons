@@ -2,8 +2,8 @@
 
 Sermon No. 108 - Delivered on Sabbath Evening, August 31, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Will he plead against me with his great power? No; but he would put strength in me."  
-> Job 23:6.  
+> Will he plead against me with his great power? No; but he would put strength in me.    
+> Job 23:6.    
 
 I SHALL not to-night consider the connexion of these words, or what was particularly intended by Job. I shall use them in, perhaps, another sense from that which he intended. No doubt Job meant to say, that if God would allow him to argue his case before him, it was his firm belief that God, so far from taking advantage of his superior strength in the controversy, would even strengthen him, that the controversy might be fair, and that the judgment might be unbiased. "He would not plead against me with his great strength; no, but he would put strength in me." We shall use the text, however, to-night, in another sense.
 
@@ -51,8 +51,8 @@ Still, some say, I have dealt with extraordinary cases. Come then, now we will h
 
 But now the last observation shall be, we shall all want this at the last; and it is a mercy for us that this is written, for never shall we require it, perhaps, more than then. O believer, dost thou think thou wilt be able to swim the Jordan with thine own sinews? Caesar could not swim the Tiber, accoutered as he was; and dost thou hope to swim the Jordan with thy flesh about thee? No, thou wilt sink then, unless Jesus, as Aeneas did Anchises, from the flames of Rome, upon his shoulders, lift thee from Jordan, and carry thee across the stream, thou wilt never be able to walk across the river; thou wilt ne'er be able to face that tyrant and smile in his face, unless thou hast something more than mortal. Thou wilt need then to be belted about with the girdle of divinity, or else thy loins will be loosed, and thy strength will fail thee, when thou needst it most. Many a man has ventured to the Jordan in his own strength; but oh! how he has shrieked and howled, when the first wave has touched his feet! But never weakling went to death with God within him, but he found himself mightier than the grace. Go on, Christian, for this is thy promise. "He will put strength in me."
 
-> "Weak, though I am, yet through his might,  
-> I all things can perform."  
+> Weak, though I am, yet through his might,    
+> I all things can perform.    
 
 Go on; dread not God's power, but rejoice at this, he will put his strength in you; he will not use his power to crush you.
 
@@ -60,11 +60,11 @@ Just one word, and then farewell. There is within reach of my voice, I am thorou
 
 Only try that, I beseech thee, poor soul. "Oh," you say, "but I have not strength enough; I cannot do that." Well, poor soul, crawl to the mercy-seat, and there lie flat, just as you are. You know that misery often speaks when it utters not a word. The poor mendicant squats himself down in the street. He says nothing, There protrudes a ragged knee, and there is a wounded hand. He says nothing; but with his hands folded on his breast he looks at every passer-by; and though not a word is spoken, he winneth more than if he daily drawled out his tale, or sung it along the street. So do thou sit like Bartimeus by the way-side begging; and if thou hearest him pass by, then cry, "Jesus, thou son of David, have mercy upon me." But if thou canst scarce say that, sit there, and exhibit thy poor wounds; tell the Lord thy desperate condition; strip thy loathsome sores, and let the Almighty see the venom. Turn out thy heart, and let the rank corruption be all inspected by the Almighty eye. "And he hath mercies rich and free." Who can tell, poor sinner, who can tell? He may look on thee.
 
-> "Jesus died upon the tree,  
-> And why, poor sinner, not for thee?  
-> His Sovereign grace is rich and free,  
-> And why, poor sinner, not for thee?  
-> "Our Jesus loved and saved me,  
-> Say why, poor sinner, why not thee?"  
+> Jesus died upon the tree,    
+> And why, poor sinner, not for thee?    
+> His Sovereign grace is rich and free,    
+> And why, poor sinner, not for thee?    
+> "Our Jesus loved and saved me,    
+> Say why, poor sinner, why not thee?    
 
 Only do this; and if thou art a sinner, hear this: "This is a faithful saying, and worthy of all acceptance, that Jesus Christ came into the world to save sinners; of whom I am chief." He will not "Plead against you with his great power; no, he will put his strength in you!" The Lord dismiss you with his blessing!

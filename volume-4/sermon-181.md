@@ -2,8 +2,8 @@
 
 Sermon No. 181 - Delivered on Sabbath Morning, February 28, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Even as the Son of man came not to be ministered unto, but to minister, and to give His life a ransom for many."  
-> Matthew 20:28.  
+> Even as the Son of man came not to be ministered unto, but to minister, and to give His life a ransom for many.    
+> Matthew 20:28.    
 
 WHEN first it was my duty to occupy this pulpit, and preach in this hall, my congregation assumed the appearance of an irregular mass of persons collected from all the streets of this city to listen to the Word. Twas then simply an evangelist, preaching to many who had not heard the Gospel before. By the grace of God, the most blessed change has taken place; and now, instead of having an irregular multitude gathered together, my congregation is as fixed as that of any minister in the whole city of London. I can from this pulpit observe the countenance of my friends, who have occupied the same places, as nearly as possible, for these many months; and I have the privilege and the pleasure of knowing that a very large proportion, certainly three-fourths of the persons who meet together here, are not persons who stray hither from curiosity, but are my regular and constant hearers. And observe, that my character also has been changed. From being an evangelist, it is now my business to become your pastor. You were once a motley group assembled to listen to me, but now we are bound together by the ties of love; through association we have grown to love and respect each other, and now you have become the sheep of my pasture, and members of my flock; and I have now the privilege of assuming the position of a pastor in this place, as well as in the chapel where I labour in the evening. I think, then, it will strike the judgment of every person, that as both the congregation and office have now changed, the teaching itself should in some measure suffer a difference. 
 
@@ -43,14 +43,14 @@ He has been confirmed, he has been baptized, he takes the sacrament, he attends 
 
 In the third place, we may measure the greatness of Christ's Redemption by THE PRICE HE PAID. It is impossible for us to know how great were the pangs of our Saviour; but yet some glimpse of them will afford us a little idea of the greatness of the price He paid for us. O Jesus, who shall describe thine agony?
 
-> "Come, all ye springs,  
-> Dwell in my head and eyes; come, clouds and rain!  
-> My grief hath need of all the wat'ry things,  
-> That nature hath produc'd. Let ev'ry vein  
-> Suck up a river to supply mine eyes,  
-> My weary weeping eyes; too dry for me,  
-> Unless they get new conduits, new supplies,  
-> To bear them out, and with my state agree."  
+> Come, all ye springs,    
+> Dwell in my head and eyes; come, clouds and rain!    
+> My grief hath need of all the wat'ry things,    
+> That nature hath produc'd. Let ev'ry vein    
+> Suck up a river to supply mine eyes,    
+> My weary weeping eyes; too dry for me,    
+> Unless they get new conduits, new supplies,    
+> To bear them out, and with my state agree.    
 
 O Jesus! thou wast a sufferer from thy birth, a man of sorrows and grief's acquaintance. Thy sufferings fell on thee in one perpetual shower, until the last dread hour of darkness. Then not in a shower, but in a cloud, a torrent, a cataract of grief, thine agonies did dash upon thee. See Him yonder! It is a night of frost and cold; but He is all abroad. It is night; He sleeps not, but He is in prayer. Hark to His groans! Did ever man wrestle as He wrestles? Go and look in His face! Was ever such suffering depicted upon mortal countenance as you can there behold? Hear His own words: "My soul is exceeding sorrowful, even unto death." He rises: He is seized by traitors and is dragged away. Let us step to the place when just now He was engaged in agony. O God! and what is this we see? What is this that stains the ground? It is blood! Whence came it? Had He some wound which oozed afresh through His dire struggle? Ah! no. "He sweat, as it were, great drops of blood, falling down to the ground." O agonies that surpass the word by which we name you! O sufferings that cannot be compassed in language! What could ye be that thus could work upon the Saviour's blessed frame, and force a bloody sweat to fall from His entire body? This is the beginning; this is the opening of the tragedy. Follow Him mournfully, thou sorrowing church, to witness the consummation of it. He is hurried through the streets; He is dragged first to one bar and then to another; He is cast and condemned before the Sanhedrin; He is mocked by Herod; He is tried by Pilate. 
 
@@ -62,12 +62,12 @@ I shall be very brief upon the next head. The fourth way of measuring the Saviou
 
 Rise up, believer; stand up in thy place, and this day testify to the greatness of what the Lord hath done for thee! Let me tell it for thee. I will tell thy experience and mine in one breath. Once my soul was laden with sin; I had revolted against God, and grievously transgressed. The terrors of the law gat hold upon me; the pangs of conviction seized me. I saw myself guilty. I looked to Heaven, and I saw an angry God sworn to punish me; I looked beneath me and I saw a yawning Hell ready to devour me. I sought by good works to satisfy my conscience; but all in vain, I endeavoured by attending to the ceremonies of religion to appease the pangs that I felt within; but all without effect. My soul was exceeding sorrowful, almost unto death. I could have said with the ancient mourner, "My soul chooseth strangling and death rather than life." This was the great question that always perplexed me: "I have sinned; God must punish me; how can He be just if He does not? Then, since He is just, what is to become of me?" At last mine eyes turned to that sweet word which says, "The blood of Jesus Christ His Son cleanseth from all sin." I took that text to my chamber; I sat there and meditated. I saw one hanging on a cross. It was my Lord Jesus. There was the thorn-crown, and there the emblems of unequalled and peerless misery. I looked upon Him, and my thoughts recalled that word which says, "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." Then said I within myself, "Did this man die for sinners? I am a sinner; then He died for me. Those He died for He will save. He died for sinners; I am a sinner; He died for me; He will save me." My soul relied upon that truth. I looked to Him, and as I "viewed the flowing of His soul-redeeming blood," my spirit rejoiced, for I could say,
 
-> "Nothing in my hands I bring,  
-> Simply to this cross I cling;  
-> Naked look to Him for dress;  
-> Helpless come to Him for grace!  
-> Black, I to this fountain fly;  
-> Wash me, Saviour, or I die!"  
+> Nothing in my hands I bring,    
+> Simply to this cross I cling;    
+> Naked look to Him for dress;    
+> Helpless come to Him for grace!    
+> Black, I to this fountain fly;    
+> Wash me, Saviour, or I die!    
 
 And now, believer, you shall tell the rest. The moment that you believed, your burden rolled from your shoulder, and you became light as air. Instead of darkness you had light; for the garments of heaviness you had the robes of praise. Who shall tell your joy since then? You have sung on earth hymns of Heaven, and in your peaceful soul you have anticipated the eternal Sabbath of the redeemed. Because you have believed you have entered into rest. Yes, tell it the wide world over; they that believe, by Jesus' death are justified from all things from which they could not be freed by the works of the law. Tell it in Heaven, that none can lay anything to the charge of Gods' elect. Tell it upon earth, that God's redeemed are free from sin in Jehovah's sight. Tell it even in Hell, that God's elect can never come there; for Christ hath died for them, and who is he that shall condemn them?
 

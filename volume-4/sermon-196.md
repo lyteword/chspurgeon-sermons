@@ -2,8 +2,8 @@
 
 Sermon No. 196 - Delivered on Sabbath Morning, May 30, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Beloved, now are we the sons of God."  
-> 1 John 3:2.  
+> Beloved, now are we the sons of God.    
+> 1 John 3:2.    
 
 I SHALL not pretend to preach from the whole of my text this morning, short though it be. The word "now" is to me the most prominent word in the text, and I shall make it so this morning. "Beloved, now are we the sons of God."
 
@@ -15,12 +15,12 @@ The religion, then, of the present, is not the worldling's religion. He tolerate
 
 What man is there who having once set his heart on riches, did not find his delight in the thought of being rich increase with the nearness of his approach to the desired object? And are we not all of us accustomed, when we think a good thing is at a distance, to try if we can shorten the time between us and it. We try anything and everything to push on the lagging hours; we chide them, wish that Time had double wings, that he might swiftly fly and bring the expected season. When the Christian talks of heaven, you will always hear him try to shorten the distance between himself and the happy land; he says,--
 
-> "A few more rolling suns at most  
-> Will land me on fair Canaan's coast."  
+> A few more rolling suns at most    
+> Will land me on fair Canaan's coast.    
 
 There may be many years between him and paradise, but still he is prone to say,
 
-> "The way may be rough, but it cannot be long."
+> The way may be rough, but it cannot be long.    
 
 Thus do we all delight to shorten the distance between us and the things for which we hope. Now let us just apply this rule to religion. They who love religion love a present thing. The Christian who really seeks salvation, will never be happy unless he can say, "Now am I a child of God." Because the worldling dislikes it, he puts it from him, because the Christian loves it, therefore its very fairest feature is its present existence, its present enjoyment in his heart. That word "now" which is the sinners warning, and his terror, is to the Christian, his greatest delight and joy. "There is therefore"--and then the sweetest bell of all rings--"there is therefore now no condemnation to them that are in Christ Jesus;" to the sinner that same idea is the blackest of all, "He that believeth not is condemned already, because he hath not believed on the Son of God."
 
@@ -32,10 +32,10 @@ Yet it was there before, for sin is hell, and to rebel against God is but the pr
 
 But again, this life is always said in Scripture to be a preparation for the life to come, "Prepare to meet thy God, O Israel." "They that were ready went in with him to the supper, and the door was shut." There is in this world a getting ready for another world; to use a Biblical figure, we must here put on the wedding dress, which we are to wear for ever. This life is as the vestibule of the king's court, we must put our shoes from off our feet; we must wash our garments and make ourselves ready to enter into the marriage supper of the Lamb. Somehow, in Scripture, the thought comes out as plain as if written with a sunbeam, this world is the beginning of the end,--it is the preparing-place for the future. Supposing you have no religion now, how will you stand when now is turned into eternity? When days and years are gone, how will it fare with you, if all your days have been spent without God and without Christ? Do you hope to hurry on the white garment after death? Alas! you shall be girt with your shroud, but not be able to put on the wedding raiment. Do you trust that you shall wash you and make you clean in the river Jordan? Alas! ye shall breed corruption in your tomb, but ye shall not find holiness there. Do ye trust to be pardoned after you have departed?
 
-> "There are no acts of pardon pass'd  
-> In the cold grave to which we haste;  
-> But darkness, death, and fell despair,  
-> Reign in eternal silence there."  
+> There are no acts of pardon pass'd    
+> In the cold grave to which we haste;    
+> But darkness, death, and fell despair,    
+> Reign in eternal silence there.    
 
 Or, do ye think that when ye near the borders of the grave, then will be the time to prepare? Be not deceived. We read in Scripture one instance of a man saved at the eleventh hour. Remember, there is but one; and we have no reason to believe that there ever was, or ever will be another. There may have been persons saved on their dying beds, but we are not sure there ever were. Such things may have happened, but none of us can tell. Alas! facts are sadly against it; for we have been assured by those who have had the best means of judging--those who have long walked the hospital of humanity--that such as thought they were dying and made vows of repentance, have almost invariably turned back, like "the dog to his own vomit and the sow that was washed to her wallowing in the mire." Oh no; "To-day if ye will hear his voice, harden not your hearts;" for to-day is the preparing time for the dread to-morrow--to-day is the making ready for the eternal future.
 
@@ -43,19 +43,19 @@ Let me urge one other reflection here. How are we saved? All through Scripture w
 
 In the second place, as I have briefly shown the connection between the present and the future, let me use another illustration to show the importance of a present salvation. Salvation is a thing which brings present blessings. When you read Scripture, and alas there are few who care to read it as they ought in these times, they read anything rather than their Bibles--when you read Scripture, you will be struck with the fact that every blessing is spoken of in the present tense. You remember how the apostle in one of his epistles says, "Unto them which are saved, Christ power of God and the wisdom of God." He does not say to them who shall be saved, but to them which are saved. We know too that justification is a present blessing--"there is therefore now no condemnation." Adoption is a present blessing, for it says, "Now are we the sons of God," and we know also that sanctification is a present blessing, for the apostle addresses himself to "the saints who are sanctified in Christ Jesus, and called." All the blessings of the new covenant are spoken of in the present tense, because with the exception of eternal glory in heaven, they are all to be enjoyed here. I know this, that I shall be one day, if I am a believer in Christ, more sanctified than I am to-day--if not in the sense of consecration, yet still in the sense of purification--but at the same time I know this of a surety, that when I stand at God's right hand, midst the lamps of eternal brightness, and when these fingers move with vigor across the golden strings, and when this voice is filled with the immortal songs, I shall not be one whit more a child of God than I am now. And when the white robe is upon me, and the crown upon my head, I shall not be more justified than I am at the present moment, for it is the doctrine of Holy Scripture, that
 
-> "The moment a sinner believes,  
-> And trusts in his crucified God,  
-> His pardon at once he receives  
-> Salvation in full through his blood."  
+> The moment a sinner believes,    
+> And trusts in his crucified God,    
+> His pardon at once he receives    
+> Salvation in full through his blood.    
 
 But the assurance of our possession in these things is a present blessing also. I will illustrate what I mean by a circumstance which happened to myself. A lady called upon me in some distress of mind, and this was her difficulty:--She had, she trusted, been converted to God, enjoyed great peace of mind, and for a little season was very full of joy; because she believed that she had been forgiven, and was accepted in the beloved. Naturally enough, seeking her religious instructor, she went to the clergyman of the parish, who, unfortunately for her was a blind guide, for when she began to tell him concerning her joy, he checked her, by saying, "My good woman, this is all presumption." "Nay, sir," said she "I trust not; my hope is fixed on nothing else than Jesus; I repose alone in him." "That is right enough," said he, "but you have no authority to say you know you are saved; you have no authority to believe that you are already pardoned." And he told her that he did not believe it possible for any Christian to be assured of this except a very few eminent saints, they might hope, that was all; they might trust but they could never be sure. 
 
 Ah! methinks he had gone but a very little way on the road to the kingdom of heaven. He must have been but a very small infant in Christ, if in Christ at all, to have told her so. For those of us who have for a few years put on the Lord Jesus, know of a surety that there is such a thing as infallible assurance, we know that although there is such a thing as presumption, there is a distinction which every Christian can easily mark between the one and the other. Presumption says, "I am a child of God, and I may live as like. I know I am saved, I need not therefore seek to have present communion with Christ." But Assurance says, "I know whom I have believed; I am persuaded that he is able to keep that which I have committed unto him against that day." And then she meekly bows her head, and says, "Hold thou me up and I shall be safe, keep me and I shall be kept; draw me and I will run after thee." Oh! my dear hearers, never believe that falsehood of the day--that a man cannot know himself to be a child of God. For if you tell us that, we can refute you with a thousand testimonies. We have seen the poor, the humble, and the illiterate, confident of their interest in Christ. It is true, we have seen them doubt; we have heard their wailings when they could not see Christ with their heart. Yea we have known the time when the greatest of God's people have had to tremble, and say--
 
-> "Tis a point I long to know,  
-> Oft it causes anxious thought--  
-> 'Do I love the Lord, or no?  
-> Am I his, or am I not?'"  
+> Tis a point I long to know,    
+> Oft it causes anxious thought--    
+> 'Do I love the Lord, or no?    
+> Am I his, or am I not?'    
 
 But still, God's people may be assured; they may know, by the witness of the Spirit within, that they are born of God; for doth not an apostle say, "We know we have passed from death unto life, because we love the brethren?" "The Spirit beareth witness with our spirits that we are born of God." I would that we had more Christians who lived in the enjoyment of full assurance. How precious it is when the milk of faith settles down, and the thick cream of full assurance can be skimmed from the surface as marrow and fatness to the children of God. Religion, then, is a thing of present assurance. A man may know in this life, beyond the shadow of a doubt, that he is accepted in Christ Jesus.
 
@@ -65,8 +65,8 @@ Now, what are the duties of religion? In the first place, here are its active du
 
 The devil says, "Ah, though he rails against the Pope of Rome, I like them both, the one as much as the other." Then how he preaches! he begins preaching justification by faith alone, and he carries his argument a step too far, for he begins railing at good works, calls them legalists, who think it their duty to lead a holy life, and hints with a smirk and a smile, that the excellent conduct of a man is of little importance, so long as he believes the truth and goes to his chapel. "Ah," says the devil, "preach away; I love the two things, Antinomianism and Popery, for they are two of the finest quacks for canting souls." Again, I say, "Be not deceived, God is not mocked; for whatsover a man soweth that shall he also reap." By our works we are not to be justified, but still by our works we shall be judged, and by our works we shall be condemned. So saith the Scriptures, and this we must receive. Religion, therefore, must be a present thing; we need not talk of walking righteously, and soberly, in the world to come--
 
-> "There all is pure, and all is clear,  
-> There all is joy and love."  
+> There all is pure, and all is clear,    
+> There all is joy and love.    
 
 There will be no duty to discharge between the tradesman and the customer, between the debtor and the creditor, between the father and the child, between the husband and the wife, in heaven, for all relationships shall have passed away. Religion must be intended for this life; the duties of it cannot be practiced, unless they are practiced here.
 
@@ -74,7 +74,7 @@ But besides these, there are other duties devolving upon the Christian. Though i
 
 But, coming near to our conclusion, I believe there are many more persons who do not like religion for to-day, but who want to have it at the last, for this reason: they think religion is not a happy thing; they believe it makes men miserable. They have met with persons with long faces, they have seen some who were born in stormy weather, and who seem to have lived all their lives long with a hurricane inside their hearts, never having one flash of sunlight, nor one pleasant rainbow across their brow. Many young people imbibe this idea. They think that surely religion must be a thing that will make men go moping and melancholy all through this world. In fact, they enter the chapel sometimes, and they hear the saints singing--and what a sweet hymn it is--a sorry sweetness in truth!--
 
-> "Lord, what a wretched land is this;"
+> Lord, what a wretched land is this;    
 
 and they go out and say, "No doubt it is, we will have nothing to do with it." Looking upon religion as medicine which is extremely nauseous,--if they must drink it, they will put it off to the last; they will gulp it down with a "Lord, have mercy on me!" and ere its bitterness is fairly in their mouth, they expect to begin to enjoy its sweetness in heaven. What a mistake! Religion has its present enjoyments. I do solemnly affirm to-day, in the face of this congregation, and before Almighty God, if I were certain that I were to die like a dog and when I was buried there would be an end of me, had I my choice of the happiest life a man could lead, I would say, "Let me be a Christian," for if, as some say, it be a delusion, it is one of the most magnificent delusions that ever we. devised. If any man could prove the religion of Christ to be a delusion, the next thing he should do would be to hang himself, because there is nothing worth living for. He might well sit down and weep to think he had made a ruin of so goodly a structure, and dissolved such a pleasant dream.
 

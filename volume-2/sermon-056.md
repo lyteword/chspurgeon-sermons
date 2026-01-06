@@ -2,8 +2,8 @@
 
 Sermon No. 56 - Delivered on Sabbath Morning, December 16th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "As it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit; for the Spirit searcheth all things, yea, the deep things of God."  
-> 1 Corinthians 2:9-10.  
+> As it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit; for the Spirit searcheth all things, yea, the deep things of God.    
+> 1 Corinthians 2:9-10.    
 
 HOW very frequently verses of Scripture are misquoted! Instead of turning to the Bible, to see how it is written, and saying, "How readest thou?" we quote from one another; and thus a passage of Scripture is handed down misquoted, by a king of tradition, from father to son, and passes as current among a great number of Christian persons. How very frequently at our prayer meetings do we hear our brethren describing heaven as a place of which we cannot conceive! They say, "Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him;" and there they stop, not seeing that the very marrow of the whole passage lies in this--"But God hath revealed them unto us by his Spirit." So that the joys of heaven (if this passage alludes to heaven, which, I take it, is not quite so clear as some would suppose), are, after all, not things of which we cannot conceive; for "God hath revealed them unto us by his Spirit."
 
@@ -23,8 +23,8 @@ Now, beloved, I am about to talk of heaven for this reason: you know, I never pr
 
 Heaven--then, what is it? First, what is it not? It is not a heaven of the SENSES--"Eye hath not seen it." What glorious things the eye hath seen! Have we not seen the gaudy pageantry of pomp crowding the gay streets. We have seen the procession of kings and princes; our eyes have been feasted with the display of glittering uniforms, of lavished gold and jewels, of chariots and of horses; and we have perhaps thought that the procession of the saints of God may be dimly shadowed forth thereby. But, oh it was but the thought of our poor infant mind, and far enough from the great reality. We may hear of the magnificence of the old Persian princes, of palaces covered with gold and silver, and floors inlaid with jewels; but we cannot thence gather a thought of heaven, for "eye hath not seen" it. We have thought, however, when we have come to the works of God, and our eye hath rested on them: surely we can get some glimpse of what heaven is here. By night we have turned our eye up to the blue azure, and we have seen the stars--those golden-fleeced sheep of God, feeding on the blue meadow of the sky, and we have said, "See! those are the nails in the floor of heaven up yonder;" and if this earth has such a glorious covering, what must that of the kingdom of heaven be? And when our eye has wandered from star to star, we have thought, "Now I can tell what heaven is by the beauty of its floor." But it is all a mistake. All that we can see can never help us to understand heaven. At another time we have seen some glorious landscape; we have seen the white river winding among the verdant fields like a stream silver, covered on either side with emerald; we have seen the mountain towering to the sky, the mist rising on it, or the golden sunrise covering all the east with glory; or we have seen the west, again, reddened with the light of the sun as it departed; and we have said, "Surely, these grandeurs must be something like heaven; we have clapped our hands, and exclaimed--
 
-> "Sweet fields beyond the swelling flood,  
-> Stand dressed in living green."  
+> Sweet fields beyond the swelling flood,    
+> Stand dressed in living green.    
 
 We have imagined that there really were fields in heaven, and that things of earth were patterns of things in heaven. It was all a mistake:--"Eye hath not seen" it.
 
@@ -32,8 +32,8 @@ Equally does our text assert that "the ear hath not heard" it. Oh! have we not o
 
 Here has been the very ground of that error into which many persons have fallen concerning heaven. They have said that they would like to go to heaven. What for? For this reason: they looked upon it as a place where they should be free from bodily pain. They should not have the head-ache or the tooth-ache there, nor any of those diseases which flesh is heir to, and whenever God laid his hand upon them they began to wish themselves in heaven, because they regarded it as a heaven of the senses--a heaven which the eye hath seen or the ear heard. A great mistake; for although we shall have a body free from pain, yet it is not a heaven where our senses shall indulge themselves. The labourer will have it, that heaven is a place,
 
-> "Where on a green and flowery mount  
-> His weary soul shall sit."  
+> Where on a green and flowery mount    
+> His weary soul shall sit.    
 
 Another will have it that heaven is a place where he shall eat to the full, and his body shall be satisfied. We may use these as figures; but we are so degenerate that we are apt to build a fine Mahometan heaven, and to think, there shall we have all the delights of the flesh; there shall we drink from bowls of nectared wine; there shall we lavishly indulge ourselves, and our body shall enjoy every delight of which it is capable. What a mistake for us to conceive such a thing! Heaven is not a place for the delight of mere sense; we shall be raised not a sensual body, but a spiritual body. We can get no conceptions of heaven through the senses; they must always come through the Spirit. That is our first thought. It is not a heaven to be grasped by the senses.
 
@@ -45,12 +45,12 @@ Now we come to the point--"He hath revealed it unto us by his Spirit." I think t
 
 First of all, we think a Christian gets a gaze of what heaven is, when in the midst of trials and troubles he is able to cast all his care upon the Lord, because he careth for him. When waves of distress, and billows of affliction pass over the Christian, there are times when his faith is so strong that he lies down and sleeps, though the hurricane is thundering in his ears, and though billows are rocking him like a child in its cradle, though the earth is removed, and the mountains are carried into the midst of the sea, he says, "God is our refuge and strength, a very present help in trouble." Famine and desolation come; but he says, "Though the fig tree shall not blossom, neither shall there be fruit on the vine, though the labour of the olive shall fail, and the field shall yield no increase, yet will I trust in the Lord, and stay myself on the God of Jacob." Affliction smites him to the ground; he looks up, and says, "Though he slay me, yet will I trust in him." The blows that are given to him are like the lashing of a whip upon the water, covered up immediately, and he seems to feel nothing. It is not stoicism; it is the peculiar sleep of the beloved. "So he giveth his beloved sleep." Persecution surrounds him; but he is unmoved. Heaven is something like that--a place of holy calm and trust--
 
-> "That holy calm, that sweet repose,  
-> Which none but he who feels it knows.  
-> This heavenly calm within the breast  
-> Is the dear pledge of glorious rest,  
-> Which for the church of God remains,  
-> The end of cares, the end of pains."  
+> That holy calm, that sweet repose,    
+> Which none but he who feels it knows.    
+> This heavenly calm within the breast    
+> Is the dear pledge of glorious rest,    
+> Which for the church of God remains,    
+> The end of cares, the end of pains.    
 
 But there is another season in which the Christian has heaven revealed to him; and that is, the season of quiet contemplation. There are precious hours, blessed be God, when we forget the world--times and seasons when we get quite away from it, when our weary spirit wings its way far, far, from scenes of toil and strife. There are precious moments when the angel of contemplation gives us a vision. He comes and puts his finger on the lip of the noisy world; he bids the wheels that are continually rattling in our ears be still; and we sit down, and there is a solemn silence of the mind. We find our heaven and our God; we engage ourselves in contemplating the glories of Jesus, or mounting upwards towards the bliss of heaven--in going backward to the great secrets of electing love, in considering the immutability of the blessed covenant, in thinking of what wind which "bloweth where it listeth," in remembering our own participation of that life which cometh from God, in thinking of our blood-bought union with the Lamb, of the consummation of our marriage with him in realms of light and bliss, or any such kindred topics. Then it is that we know a little about heaven. Have ye never found, O ye sons and daughters of gaiety, a holy calm come over you at times, in reading the thoughts of your fellowmen? But oh! how blessed to come and read the thoughts of God, and work, and weave them out in contemplation. Then we have a web of contemplation that we wrap around us like an enchanted garment, and we open our eyes and see heaven. 
 
@@ -58,21 +58,21 @@ Christian! when you are enabled by the Spirit to hold a season of sweet contempl
 
 And let not the Christian, who says he has very little of this enjoyment be discouraged. Do not think you cannot have heaven revealed to you by the Spirit; I tell you, you can, if you are one of the Lord's people. And let me tell some of you, that one of the places where you may most of all expect to see heaven is at the Lord's table. There are some of you, my dearly beloved, who absent yourselves from the supper of the Lord on earth; let me tell you in God's name, that you are not only sinning against God, but robbing yourselves of a most inestimable privilege. If there is one season in which the soul gets into closer communion with Christ than another, it is at the Lord's table. How often have we sang there,
 
-> "Can I Gethesemane forget?  
-> Or there thy conflicts see,  
-> Thine agony and bloody sweat,  
-> And not remember thee?  
-> Remember thee and all thy pains,  
-> And all thy love to me,--  
-> Yes, while a pulse, or breath remains,  
-> I will remember thee."  
+> Can I Gethesemane forget?    
+> Or there thy conflicts see,    
+> Thine agony and bloody sweat,    
+> And not remember thee?    
+> Remember thee and all thy pains,    
+> And all thy love to me,--    
+> Yes, while a pulse, or breath remains,    
+> I will remember thee.    
 
 And then you see what an easy transition it is to heaven:--
 
-> "And when these failing lips grow dumb,  
-> And thought and memory flee;  
-> When thou shalt in thy kingdom come,  
-> Jesus, remember me."  
+> And when these failing lips grow dumb,    
+> And thought and memory flee;    
+> When thou shalt in thy kingdom come,    
+> Jesus, remember me.    
 
 O my erring brethren, ye who live on, unbaptized, and who receive not this sacred supper, I tell you not that they will save you--most assuredly they will not, and if you are not saved before you receive them they will be an injury to you;--but if you are the Lord's people, why need you stay away? I tell you, the Lord's table is so high a place that you can see heaven from it very often. You get so near the cross there, you breathe so near the cross, that your sight becomes clearer, and the air brighter, and you see more of heaven there than anywhere else. Christian, do not neglect the supper of thy Lord; for it thou dost, he will hide heaven from thee, in a measure.
 
@@ -80,18 +80,18 @@ Again, how sweetly do we realize heaven, when we assemble in our meetings for pr
 
 Another time when we get sights of heaven is in extraordinary closet seasons. Ordinary closet prayer will only make ordinary Christians of us. It is in extraordinary seasons, when we are led by God to devote, say an hour, to earnest prayer--when we feel an impulse, we scarce know why, to cut off a portion of our time during the day to go alone. Then, beloved, we kneel down, and begin to pray in earnest. It may be that we are attacked by the devil; for when the enemy knows we are going to have a great blessing, he always makes a great noise to drive us away; but if we keep at it, we shall soon get into a quiet frame of mind, and hear him roaring at a distance. Presently you get hold of the angel, and say, "Lord, I will not let thee go, except thou bless me." He asks your name. You begin to tell him what you name was:
 
-> "Once a sinner, near despair,  
-> Sought thy mercy-seat by prayer;  
-> Mercy heard and set him free;  
-> Lord, that mercy came to me."  
+> Once a sinner, near despair,    
+> Sought thy mercy-seat by prayer;    
+> Mercy heard and set him free;    
+> Lord, that mercy came to me.    
 
 You say, "What is thy name, Lord?" He will not tell you. You hold him fast still; at last he deigns to bless you. That is certainly some foretaste of heaven, when you feel alone with Jesus. Let no man know your prayers; they are between God and yourselves; but if you want to know much of heaven, spend some extra time in prayer; for God then reveals it to us by his Spirit.
 
 "Behold, ye despisers, and wonder, and perish." You have been saying in your hearts, "The prophet is a fool, and this spiritual man is mad." Go away and say these things; but be it known unto you, that what ye style madness is to us wisdom and what ye count folly "is the wisdom of God in a mystery, even the hidden wisdom." And if there is a poor penitent here this morning, saying, "Ah! sir, I get visions enough of hell, but I do not get visions of heaven;" poor penitent sinner, thou canst not have any visions of heaven, unless thou lookest through the hands of Christ. The only glass through which a poor sinner can see bliss is that formed by the holes in Jesus' hands. Dost thou not know, that all grace and mercy was put into the hand of Christ, and that it never could have run out to thee unless his hand had been bored through in crucifixion. He cannot hold it from thee, for it will run through; and he cannot hold it in his heart, for he has got a rent in it made by the spear. Go and confess your sin to him, and he will wash you, and make you whiter than snow. If you feel you cannot repent, go to him and tell him so, for he is exalted to give repentance, as well as remission of sins. Oh! that the spirit of God might give you true repentance and true faith; and then saint and sinner shall meet together, and both shall not only know what "eye hath not seen, nor ear heard;" but
 
-> "Then shall we see, and hear, and know  
-> All we desired or wished below,  
-> And every power find sweet employ  
-> In that eternal world of joy."  
+> Then shall we see, and hear, and know    
+> All we desired or wished below,    
+> And every power find sweet employ    
+> In that eternal world of joy.    
 
 Till that time we can only have these things revealed to us by the Spirit; and we will seek more of that, each day we live.

@@ -2,8 +2,8 @@
 
 Sermon No. 9 - Delivered on Sabbath Morning, February 18th, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Where the Spirit of the Lord is, there is liberty."  
-> 2 Corinthians 3:17.  
+> Where the Spirit of the Lord is, there is liberty.    
+> 2 Corinthians 3:17.    
 
 LIBERTY is the birthright of every man. He may be born a pauper; he may be a foundling; his parentage may be altogether unknown; but liberty is his inalienable birthright. Black may be his skin; he may live uneducated and untaught; he may be poor as poverty itself; he may never have a foot of land to call his own; he may scarce have a particle of clothing, save a few rags to cover him; but, poor as he is, nature has fashioned him for freedom--he has a right to be free, and if he has not liberty, it is his birthright, and he ought not to be content until he wins it.
 
@@ -21,17 +21,17 @@ And first, my friends, "Where the Spirit of the Lord is, there is liberty" from 
 
 I speak to those who understand it. You have passed through that gloomy Slough of Despond; you have gone through that dark vale of penitence: you have been made to drink the bitter cup of repentance: and I know you will say, "Amen" when I declare that of all bondage this is the most painful--the bondage of the law, the bondage of corruption. "O wretched man that I am, who shall deliver me" from it? But the Christian is free; he can smile now, though he wept before; he can rejoice now, whereas he lamented. "There is," he says, "no sin upon my conscience now; there is no crime upon my breast; I need not walk through the earth fearful of every shadow, and afraid of every man I meet, for sin is washed away; my spirit is no more guilty; it is pure, it is holy; there no longer resteth the frown of God upon me; but my Father smiles: I see his eyes--they are glancing love: I hear his voice--it is full of sweetness. I am forgiven, I am forgiven, I am forgiven! All hail, thou breaker of fetters! glorious Jesus! Ah! that moment when first the bondage passed away I Methinks I recollect it now. I saw Jesus on his cross before me; I thought on him, and as I mused upon his death and sufferings, methought I saw him cast a look on me; and when he gazed on me, I looked at him, and said,
 
-> "Jesus, lover of my soul,  
-> Let me to thy bosom fly."  
+> Jesus, lover of my soul,    
+> Let me to thy bosom fly.    
 
 He said "come," and I flew to him and clasped him; and when he let me go again, I wondered where my burden was. It was gone! There, in the sepulchre, it lay, and I felt light as air; like a winged sylph, I could fly over mountains of trouble and despair; and oh! what liberty and joy I had! I could leap with ecstasy for I had much forgiven, and now I was freed from sin." Beloved, this is the first liberty of the children of God. "Where the Spirit of the Lord is, there is liberty" from the bondage of sin.
 
 Liberty from the Penalty of Sin.--What is it? Eternal death--torment for ever--that is the sad penalty of sin. It is no sweet thing to fear that if I died now I might be in hell. It is no pleasant thought for me to stand here and believe that if I dropped down I must sink into the arms of Satan and have him for my tormentor. Why, sirs, it is a thought that would plague me; it is a thought that would be the bitterest curse of my existence. I would fain be dead and rotting in the tomb rather than walk the earth with the thought that I might suffer such a penalty as this. There are some of you here who know right well that if you die hell is your portion. You don't attempt to deny it; you believe the Bible, and there you read your doom, "He that believeth not shall be damned." You cannot put yourselves among believers. You are still without Christ. Have any of you been brought into such a condition that you believe yourself so full of sin that God could not be just if he did not punish you? Have you not felt that you have so rebelled against God by secret crimes, ay, I say, by secret crimes, and by open transgression, that if he did not punish you he must cease to be God and lay aside his sceptre? And then you have trembled, and groaned, and cried out under the fear of the penalty of sin. You thought when you dreamed, that you saw that burning lake whose waves are fire, and whose billows are ever blazing brimstone; and each day you walked the earth it was with fear and dread lest the next step should let you into the pit which is without a bottom. But Christian, Christian, you are free from the penalty of sin. Do you know it? Can you recognize the fact? You are free at this moment from the penalty of sin. Not only are you forgiven, but you never can be punished on account of your sins however great and enormous they may have been.
 
-> "The moment a sinner believes,  
-> And trusts in his crucified God;  
-> His pardon at once he receives,  
-> Salvation in full through his blood,"  
+> The moment a sinner believes,    
+> And trusts in his crucified God;    
+> His pardon at once he receives,    
+> Salvation in full through his blood,    
 
 And he never can be punished on account of sin. Talk of the punishment of a believer! there is not such a thing. The afflictions of this mortal life are not punishments for sin to Christians; they are fatherly chastisements, and not the punishments of a judge. For me there is no hell; let it smoke and burn, if I am a believer I shall never have my portion there. For me there are no eternal racks, no torments, for if I am justified, I cannot be condemned. Jesus hath suffered the punishment in my stead, and God would be unjust if he were to punish me again; for Christ has suffered once, and satisfied justice for ever. When conscience tells me I am a sinner, I tell conscience I stand in Christ's place, and Christ stands in mine. True, I am a sinner; but Christ died for sinners. True, I deserve punishment; but if my ransom died, will God ask for the debt twice? Impossible! He has cancelled it. There never was, and never shall be one believer in hell. We are free from punishment, and we never need quake on account of it. However horrible it may be--If it is eternal, as we know it is--it is nothing to us, for we never can suffer it. Heaven shall open its pearly portals to admit us; but hell's iron gates are barred for ever against every believer. Glorious liberty of the children of God!
 
@@ -45,26 +45,26 @@ He needs strength. I grant you, he may produce a hollow reformation; he may eart
 
 Once more: "Where the Spirit of the Lord is, there is liberty" in all holy acts of love--liberty from a slavish fear of law. Many people are honest because they are afraid of the policeman. Many are sober because they are afraid of the eye of the public. Many persons are seemingly religious because of their neighbours. There is much virtue which is like the juice of the grape--it has to be squeezed before you get it; it is not like the generous drop of the honeycomb, distilling willingly and freely. I am bold to say, that if a man be destitute of the grace of God, his works are only works of slavery; he feels forced to do them. I know before I came into the liberty of the children of God, if I went to God's house, I went because I thought I must do it; if I prayed, it was because I feared some misfortune would happen in the day if I did not; if I ever thanked God for a mercy, it was because I thought I should not get another if I were not thankful; if I performed a righteous deed, it was with the hope that very likely God would reward me at last, and I should be winning some crown in heaven. A poor slave, a mere Gibeonite, hewing wood and drawing water. If I could have left off doing it, I should have loved to do so. If I could have had my will, there would have been no chapel-going for me, no religion for me--I would have lived in the world and followed the ways of Satan, if I could have done as I pleased. As for righteousness, it was slavery; sin would have been my liberty. But now, Christian, what is your liberty? What makes you come to the house of God to day?
 
-> "Love made your willing feet  
-> In swift obedience move."  
+> Love made your willing feet    
+> In swift obedience move.    
 
 What makes you bend your knee in prayer? It is because you like to talk with your Father who seeth in secret. What is it that opens your purses, and makes you give liberally? It is because you love the poor children of God, and you feel, so much being given to you, that it is a privilege to give something back to Christ. What is it that constrains you to live honestly, righteously, and soberly ? Is it the rear of the jail? No; you might pull the jail down; you might annihilate the convict settlements; you might hurl all chains into the sea; and we should be just as holy as we are now. Some people say, "Then, sir, you mean to say that Christians may live as they like." I wish they could, sir. If I could live as I liked, I would, always live holily. If a Christian could live as he liked, he would always live as he ought. It is a slavery to him to sin; righteousness is his delight. Oh! if I could but live as I list, I would list to live as I ought. If I could but live as I would I would live as God commands me. The greatest happiness of a Christian is to be holy. It is no slavery to him. Put him where you will, he will not sin, Expose him to any temptation, if it were not for that evil heart still remaining, you would never find him sinning. Holiness is his pleasure; sin is his slavery. Ah! ye poor bondsmen who come to church and chapel because ye must; ah! ye poor slavish moralists that are honest because of the gyves, and sober because of the prison; ah! ye poor slaves! We are not so; we are not under the law, but under grace. Call us Antinomians if you will; we will even glory in the scandalous title; we are freed from the law, but we are freed from it that we may obey it more than ever we did. The true-born child of God serves his Master more than ever he did. As old Erskine says:--
 
-> "Slight now his loving presence if they can;  
-> No, no; his conquering kindness leads the van.  
-> When everlasting love exerts the sway,  
-> They judge themselves most kindly bound to obey;  
-> Bound by redeeming love in stricter sense,  
-> Than ever Adam was in innocence."  
+> Slight now his loving presence if they can;    
+> No, no; his conquering kindness leads the van.    
+> When everlasting love exerts the sway,    
+> They judge themselves most kindly bound to obey;    
+> Bound by redeeming love in stricter sense,    
+> Than ever Adam was in innocence.    
 
 But to conclude. "Where the Spirit of the Lord is, there is liberty" from the Fear of Death. O death! how many a sweet cup hast thou made bitter. O death! how many a revel hast thou broken up. O death! how many a gluttonous banquet hast thou spoiled. O death! how many a sinful pleasure hast thou turned into pain. Take ye, my friends, the telescope this morning, and look through the vista of a few years, and what see you ? Grim death in the distance grasping his scythe. He is coming, coming, coming; and what is behind him? Ay, that depends upon your own character. If ye are the sons of God, there is the palm-branch; if ye are not, ye know what followeth death--Hell follows him. O death! thy spectre hath haunted many a house where sin otherwise would have rioted. O death! thy chilly hand hath touched many a heart that was big with lust, and made it start affrighted from its crime. Oh! how many men are slaves to the fear of death. Half the people in the world are afraid to die. There are some madmen who can march up to the cannon's mouth; there are some fools who rush with bloody hands before their Maker's tribunal; but most men fear to die. Who is the man that does not fear to die? I will tell you. The man that is a believer. Fear to die! Thank God, I do not. The cholera may come again next summer--I pray God it may not; but if it does, it matters not to me: I will toil and visit the sick by night and by day, until I drop; and if it takes me, sudden death is sudden glory. And so with the weakest saint in this hall; the prospect of dissolution does not make you tremble. 
 
 Sometimes you fear, but oftener you rejoice. You sit down calmly and think of dying. What is death ? It is a low porch through which you stoop to enter heaven. What is life ? It is a narrow screen that separates us from glory, and death kindly removes it! I recollect a saying of a good old woman, who said, "Afraid to die, sir! I have dipped my foot in Jordan every morning before break fast for the last fifty years, and do you think I am afraid to die now ?" Die! beloved: why we die hundred of times; we "die daily ;" we die every morning; we die each night when we sleep; by faith we die; and so dying will be old work when we come to it. We shall say, "Ah, death! you and I have been old acquaintances; I have had thee in my bedroom every night; I have talked with thee each day; I have had the skull upon my dressing table; and I have ofttimes thought of thee. Death! thou art come at last, but thou art a welcome guest; thou art an angel of light, and the best friend I have had." Why, then, dread death; since there is no fear of God's leaving you when you come to die! Here I must tell you that anecdote of the good Welch lady, who, when she lay a-dying, was visited by her minister. He said to her, "Sister, are you sinking?" She answered him not a word, but looked at him with an incredulous eye. He repeated the question, "Sister, are you sinking ?" She looked at him again, as if she could not believe that he would ask such a question. At last, rising a little in the bed, she said, "Sinking! Sinking! Did you ever know a sinner sink through a rock? If I had been standing on the sand, I might sink; but, thank God I am on the Rock of Ages, and there is no sinking there." How glorious to die! Oh, angels, come! Oh, cohorts of the Lord of hosts, stretch, stretch your broad wings and lift us up from earth; O, winged seraphs, bear us far above the reach of these inferior things; but till ye come, I'll sing,
 
-> "Since Jesus is mine, I'll not fear undressing--  
-> But gladly put off these garments of clay,  
-> To die in the Lord is a covenant blessing;  
-> Since Jesus to glory, though death lead the way."  
+> Since Jesus is mine, I'll not fear undressing--    
+> But gladly put off these garments of clay,    
+> To die in the Lord is a covenant blessing;    
+> Since Jesus to glory, though death lead the way.    
 
 And now, dear friends, I have shown you as briefly as I can the negative side of this liberty. I have tried to tell you, as well as I could put it in a few words, what we are freed from. But there are two sides to such questions as this. There are some glorious things that we are free to. Not only are we freed from sin in every sense from the law, and from the fear of death; but we are free to do something. I shall not occupy many moments, but shall just run over a few things we are free to; for, my brother Christians, "Where the Spirit of the Lord is, there is liberty;" and that liberty gives us certain rights and privileges.
 
@@ -72,28 +72,28 @@ In the first place, we are free to heaven's charter. There is heaven's charter--
 
 Next, recollect that thou art free to the throne of grace. It is the privilege of Englishmen, that they can always send a petition to Parliament; and it is the privilege of a believer, that he can always send a petition to the throne of God. I am free to God's throne. If I want to talk to God to-morrow morning, I can. If to-night I wish to have conversation with my Master, I can go to him. I have a right to go to his throne. It matters not how much I may have sinned. I go and ask for pardon. It signifies nothing how poor I am--I go and plead his promise that he will provide all things needful. I have a right to go to his throne at all times--in midnight's darkest hour, or in noontide's heat. Where'er I am; if fate command me to the utmost verge of the wide earth, I have still constant admission to his throne. Use that right, beloved--use that right. There is not one of you that lives up to his privilege. Many a gentleman will live beyond his income, spending more than he has coming in; but there is not a Christian that does that--I mean that lives up to his spiritual income. Oh, no! you have an infinite income--an in come of promises--an income of grace; and no Christian ever lived up to his income. Some people say, "If I had more money I should have a larger house, and horses, and carriage, and so on." Very well and good; but I wish the Christian would do the same. I wish they would set up a larger house, and do greater things for God; look more happy, and take those tears away from their eyes.
 
-> "Religion never was designed  
-> To make our pleasures less."  
+> Religion never was designed    
+> To make our pleasures less.    
 
 With such stores in the bank, and so much in hand, that God gives you, you have no right to be poor. Up! rejoice! rejoice! The Christian ought to live up to his income, and not below it. Then, if you have the "Spirit of the Lord," dear friends, you have a right to enter into the city. There are many of the freemen of the City of London here, I dare say, and that is a great privilege, very likely. I am not a freeman of London, but I am a freeman of a better city.
 
-> "Saviour, if of Zion's city,  
-> I, by grace, a member am,  
-> Let the world revile or pity,  
-> I will glory in thy name."  
+> Saviour, if of Zion's city,    
+> I, by grace, a member am,    
+> Let the world revile or pity,    
+> I will glory in thy name.    
 
 You have a right to the freedom of Zion's city, and you do not exercise it. I want to have a word with some of you. You are very good Christian people. but you have never joined the church yet. You know it is quite right, that he that believeth should be baptized; but I suppose you are afraid of being drowned, for you never come. Then the Lord's table is spread once every month, and it is free to all God's children, but you never approach it. Why is that? It is your banquet. I do not think if I were an alderman I should omit the city banquet; and being a Christian, I cannot omit the Christian banquet, it is the banquet of the saints.
 
-> "Ne'er did angels taste above  
-> Redeeming grace and dying love."  
+> Ne'er did angels taste above    
+> Redeeming grace and dying love.    
 
 Some of you never come to the Lord's table; you neglect his ordinances. He says, "This do in remembrance of me." You have obtained the freedom of the city, but you won't take it up. You have a right to enter in through the gates into the city, but you stand outside. Come in brother; I will give you my hand. Don't remain outside the church any longer, for you have a right to come in.
 
 Then, to conclude, you have the freedom of Jerusalem, the mother of us all. That is the best gift. We are free to heaven. When a Christian dies, he knows the open sesame that can open the gates of heaven, he knows the pass-word that can make the gates wide open fly; he has the white stone whereby he shall be known as a ransomed one, and that shall pass him at the barrier; he has the passport that shall let him into the dominions of Jehovah; he has liberty to enter into heaven. Methinks I see you, ye unconverted, in the land of shades, wandering up and down to find your portion. Ye come to the porch of heaven. It is great and lofty. The gate hath written o'er it, "The righteous only are admitted here." As ye stand, ye look for the porter. A tall archangel appeareth from above the gate, and ye say, "Angel, let me in." "Where is thy robe?" Thou searchest, and thou hast none; thou hast only some few rags of thine own spinning, but no wedding garment. "Let me in," sayest thou, "for the fiends are after me to drag me to yonder pit. Oh, let me in." But with a quiet glance the angel lifteth up his finger and saith, "Read up there;" and thou readest, "None but the righteous enter here." Then thou tremblest; thy knees knock together; thy hands shake. Were thy bones of brass they might melt; and were thy ribs of iron they might be dissolved Ah! there thou standest, shivering, quaking, trembling; but not long, for a voice which frights thee from thy feet and lays thee prostrate, cries, "Depart ye cursed into everlasting fire prepared for the devil and his angels." O dear hearers, shall that be your portion? My friends, as I love you,--I do this morning, and hope I ever shall,--shall this be your lot? Will you not have freedom to enter into the city? Will you not seek that Spirit which giveth liberty? Ah! I know ye will not have it if left to yourselves; some of you perhaps never will. O God, grant that that number may be but few, but may the number of the saved be great indeed!
 
-> "Turn, then my soul unto thy rest,  
-> The ransom of thy great High Priest,  
-> Hath set the captive free.  
-> Trust to his efficacious blood,  
-> Nor fear thy banishment from God,  
-> Since Jesus died for thee."  
+> Turn, then my soul unto thy rest,    
+> The ransom of thy great High Priest,    
+> Hath set the captive free.    
+> Trust to his efficacious blood,    
+> Nor fear thy banishment from God,    
+> Since Jesus died for thee.    

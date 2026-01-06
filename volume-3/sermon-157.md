@@ -22,7 +22,7 @@ Christ Jesus cast into the river of God, makes all the streams more sweet; and w
 
 And now we come to the other point. I think this is put in by way of CONFIRMATION. "In the mouth of two or three witnesses surely the whole shall be established."
 
-> "Blind unbelief is sure to err."  
+> Blind unbelief is sure to err.    
 
 It needs many witnesses to make such unbelieving souls as we are, believe the promises. "Now," says God, "I will help thee. Unbelief! wilt thou doubt Jehovah? Can the "I Am that I Am" lie? Can the God of faithfulness and truth deceive thee? O unbelief! infamous traitor! wilt thou dare to doubt him? Yes, and Christ knew it would; and so he comes in and he says, "and thy Redeemer," as a second witness; whilst the Spirit is the third. "Thy Redeemer," volunteers to be the second guarantee, the other security to the faithfulness of this promise. The Father will lose his honor if he breaks his word; and I too do give as the security for the fulfillment of this promise, my troth and honor also. "Thy Redeemer" engages that he will help thee, O thou worm!
 

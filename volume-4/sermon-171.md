@@ -2,8 +2,8 @@
 
 Sermon No. 171 - Delivered on Sabbath Morning, January 10, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And as he reasoned of righteousness, temperance, and judgment to come, Felix trembled, and answered, Go thy way for this time; when I have a convenient season, I will call for thee."  
-> Acts 24:25.  
+> And as he reasoned of righteousness, temperance, and judgment to come, Felix trembled, and answered, Go thy way for this time; when I have a convenient season, I will call for thee.    
+> Acts 24:25.    
 
 THE POWER OF THE GOSPEL appears in marvelous grandeur when we see its hold upon hearts devoted to it, when subjected to trouble, persecution, and sorrow. How mighty must that gospel be, which, when it gained an entrance into the heart of Paul, could never be driven out of it! For it he suffered the loss of all things, and as for them, he counted them but dung, that he might win Christ. To spread the truth, he encountered hardships, shipwrecks, perils on the land, and perils by sea; but none of these things moved him, neither did he count his life dear unto him, that he might win Christ and be found in him. Persecution followed persecution; of the Jews was he beaten with rods; he was dragged from one tribunal to another; scarce in any city did he find anything but bonds and imprisonment awaiting him. Attacked in his own country--he is accused at Jerusalem, and arraigned at Cesarea; he is taken from one tribunal to another to be tried for his life. But mark how he always maintains the prominent passion of his soul. Put him where you may, he seems to be like John Bunyan, who says, "If you let me out of prison to-day, I will preach the gospel again to-morrow, by the grace of God." Nay, more than that, he preached it in prison, before his judges he proclaimed it. Standing up before the Sanhedrim, he cries, "As touching the resurrection of the dead I am called in question." When brought to stand before Agrippa, he tells out his conversion, and so sweetly speaks of the grace of God, that the king himself cries, "Almost thou persuadest me to be a Christian;" and here in our text when he stands before the Roman Procurator, to be tried for life or death, instead of entering into a defence of himself, he reasons "of righteousness, continence, and judgment to come," until his judge trembles, and he that sits upon the throne takes the prisoner's place, while the prisoner judges him, in anticipation of that time when the saints shall judge the angels, as assessors with Christ Jesus. 
 
@@ -51,15 +51,15 @@ But again: how knowest thou, if thou shouldst ever have these feelings again, Go
 
 But again: how do you know that you shall live to be warned again? Said a minister once, when I gently hinted to him that he had not preached the gospel that morning, "No, I did not mean to preach to sinners in the morning; but I will preach to them in the evening." "Ah!" said I, "but what if some of your congregation of the morning should be in hell before the evening." So may I say to you. You have promised to go to a friend's house to-day, you think you can not break that promise; you wish you could. You wish you could go home and fall on your knees and pray; but no, you can not, because your promise binds you. You will have a convenient season one of these days! And so God Almighty is to wait man's convenience! How do you know you will live till that convenience comes? A little too much heat or too much cold within the brain--a little too fast flowing of the blood, or a little too slow circulation thereof--some little turning of the fluids of the body in a wrong direction, and you are dead!
 
-> "Dangers stand thick through all the ground,  
-> To bear you to the tomb,  
-> And fierce diseases wait around,  
-> To hurry mortals home."  
+> Dangers stand thick through all the ground,    
+> To bear you to the tomb,    
+> And fierce diseases wait around,    
+> To hurry mortals home.    
 
 Oh! why will you then dare to procrastinate, and say, "time enough yet?" Will your soul ever be saved by your saying "Time enough yet?" Archbishop Tillotson well says, "A man might say I resolve to eat, but the resolve to eat would never feed his body. A man might say, I am resolved to drink, but the resolve to drink would never slake his thirst." And you may say, "I am resolved by-and-by to seek God;" but your resolve will not save you. It is not the forgetful hearer but the doer of the word that shall be blessed therein. Oh that ye might now say--To-day, my God, to-day I confess my sin; to-day I ask thee to manifest thy grace; to-day receive my guilty soul, and show me a Saviours blood; to-day I renounce my follies, my vices, and my sins, constrained by Sovereign Grace; to-day I cast away my good works as my ground of trust; to-day I cry,
 
-> "Nothing in my hand I bring,  
-> Simply to thy cross I cling!"  
+> Nothing in my hand I bring,    
+> Simply to thy cross I cling!    
 
 Oh! happy minister who shall have such an audience!--happier than Paul, if he should know that his congregation had said this! Come, O Holy Spirit, and draw unwilling hearts, and make them bow before the scepter of sovereign grace.
 

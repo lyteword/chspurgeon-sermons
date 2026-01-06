@@ -2,8 +2,8 @@
 
 Sermon No. 135 - Delivered on Sabbath Morning, June 7, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Keep back thy servant also from presumptuous sins."  
-> Psalm 19:13.  
+> Keep back thy servant also from presumptuous sins.    
+> Psalm 19:13.    
 
 ALL SINS are great sins, but yet some sins are greater than others. Every sin has in it the very venom of rebellion, and is full of the essential marrow of traitorous rejection of God. But there be some sins which have in them a greater development of the essential mischief of rebellion, and which wear upon their faces more of the brazen pride which defies the Most High. It is wrong to suppose that because all sins will condemn us, that therefore one sin is not greater than another. The fact is, that while all transgression is a greatly grievous sinful thing, yet there are some transgressions which have a deeper shade of blackness, and a more double scarlet-dyed hue of criminality than others. Now the presumptuous sins of our text are just the chief of all sins: they rank head and foremost in the list of iniquities. It is remarkable, that though an atonement was provided under the Jewish law for every kind of sin, there was this one exception: "But the soul that sinneth presumptuously shall have no atonement; it shall be out off from the midst of my people." And now, under the Christian dispensation, although in the sacrifice of our blessed Lord there is a great and precious atonement for presumptuous sins, whereby sinners who have sinned in this manner are made clean, yet, without doubt, presumptuous sinners, dying without pardon, must expect to receive a double portion of the wrath of God, and a more wonderful manifestation of the unutterable anguish of the torment of eternal punishment in the pit that is digged for the wicked.
 
@@ -59,31 +59,31 @@ But if this need to be the prayer of the best, how ought it to be the prayer of 
 
 Instead, however, of enlarging upon that point, I shall close my few remarks this morning by just addressing myself most affectionately to such of you as are now under a sense of guilt by reason of presumptuous sins. God's Spirit has found some of you out this morning. I thought when I was describing presumptuous sin that I saw here and there an eye that was suffused with tears; I thought I saw here and there a head that was bowed down, as much as to say, "I am guilty there." I thought there were some hearts that palpitated with confession, when I described the guilt of presumption. I hope it was so. If it was I am glad of it. If I hit your consciences, it was that I meant to do. Not to your ears do I speak, but to your hearts. I would not give the snap of this my finger to gratify you with mere words of oratory, with a mere flow of language. No, God is my witness. I never sought effect yet, except the effect of hitting your consciences. I would use the words that would be most rough and vulgar in all our language, if I could get at your heart better with them than with any other; for I reckon that the chief matter with a minister is to touch the conscience. If any of you feel, then, that you have presumed against God in sinning, let me just bid you look at your sin, and weep over the blackness of it; let me exhort you to go home and bow your heads with sorrow, and confess your guilt, and weep over it with many tears and sighs. You have greatly sinned, and if God should blast you into perdition now, he would be just; if now his fiery thunderbolt of vengeance should pierce you through, if the arrow that is now upon the string of the Almighty should find a target in your heart, he would be just. Go home and confess that, confess it with cries and sighs. And then what next wilt thou do? Why, I bid thee remember that there was a man who was a God. That man suffered for presumptuous sin. I would bid thee this day, sinner, if thou knowest thy need of a Saviour, go up to thy chamber, cast thyself upon thy face, and weep for sin; and when thou hast done that, turn to the Scriptures, and read the story of that man who suffered and died for sin. Think you see him in all his unutterable agonies, and griefs, and woes, and say this--
 
-> "My soul looks back to see  
-> The burdens thou didst bear  
-> When hanging on the accursed tree,  
-> And hopes her guilt was there."  
+> My soul looks back to see    
+> The burdens thou didst bear    
+> When hanging on the accursed tree,    
+> And hopes her guilt was there.    
 
 Lift up your hand, and put it on his head who bled, and say,
 
-> "My faith would lay its hand  
-> On that dear head of thine,  
-> While, like a penitent, I stand,  
-> And there confess my sin."  
+> My faith would lay its hand    
+> On that dear head of thine,    
+> While, like a penitent, I stand,    
+> And there confess my sin.    
 
 Sit down at the foot of his cross, and watch him till your heart is moved, till the tears begin to flow again, until your heart breaks within you; and then you will rise and say--
 
-> "Dissolved by his mercy, I fall to the ground,  
-> And weep to the praise of the mercy I found."  
+> Dissolved by his mercy, I fall to the ground,    
+> And weep to the praise of the mercy I found.    
 
 O sinner, thou canst never perish, if thou wilt cast thyself at the foot of the cross. If thou seekest to save thyself thou shalt die; if thou wilt come, just as thou art, all black, all filthy, all hell-deserving, all ill-deserving, I am my Master's hostage, I will be answerable at the day of judgment for this matter, if he does not save thee, I can preach on this subject now, for I trust I have tried my Master myself. As a youth I sinned, as a child I rebelled, as a young man I wandered into lusts and vanities: my Master made me feel how great a sinner I was and I sought to reform, to mend the matter; but I grew worse. At last I heard it said, "Look unto me, and be ye saved, all the ends of the earth;" and I looked to Jesus. And O! my Saviour, thou hast eased my aching conscience, thou hast given me peace; thou hast enabled me to say
 
-> "Now, freed from sin I walk at large;  
-> My Saviour's blood's a full discharge  
-> At his dear feet my soul I lay,  
-> A sinner saved, and homage pay."  
+> Now, freed from sin I walk at large;    
+> My Saviour's blood's a full discharge    
+> At his dear feet my soul I lay,    
+> A sinner saved, and homage pay.    
 
 And O! my heart pants for you. O that you who never knew him could taste his love now. O that you who have never repented might now receive the Holy Ghost who is able to melt the heart! And O that you who are penitents would look to him now! And I repeat that solemn assertion--I am God's hostage this morning; ye shall feed me on bread and water to my life's end, ay, and I will bear the blame for ever, if any of you seek Christ and Christ rejects you. It must not, it can not be. "Whosoever cometh," he says, "I will in no wise cast out." "He is able to save to the uttermost them that come unto God by him." May God Almighty bless you; and may we meet again in yonder Paradise; and there will we sing more sweetly of redeeming love and dying blood, and of Jesus' power to save
 
-> "When this poor lisping, stammering tongue  
-> Lies silent in the grave."  
+> When this poor lisping, stammering tongue    
+> Lies silent in the grave.    

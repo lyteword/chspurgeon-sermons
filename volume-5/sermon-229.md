@@ -2,8 +2,8 @@
 
 Sermon No. 229 - Delivered on Sabbath Morning, December 19th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "We love him, because he first loved us."  
-> 1 John 4:19.  
+> We love him, because he first loved us.    
+> 1 John 4:19.    
 
 DURING the last two Sabbath days I have been preaching the gospel to the unconverted. I have earnestly exhorted the very chief of sinners to look to Jesus Christ, and have assured them that as a preparation for coming to Christ, they need no good works, or good dispositions, but that they may come, just as they are, to the foot of the cross, and receive the pardoning blood and all-sufficient merits of the Lord Jesus Christ. The thought has since occurred to me, that some who were ignorant of the gospel might, perhaps, put this query:--Is this likely to promote morality? If the gospel be a proclamation of pardon to the very chief of sinners, will not this be a license to sin? In what respects can the gospel be said to be a gospel according to holiness? How will such preaching operate? Will it make men better? Will they be more attentive to the laws which relate to man and man? Will they be more obedient to the statutes which relate to man and God? I thought, therefore, that we would advance a step further, and endeavour to show, this morning, how the proclamation of the gospel of God, though in the commencement it addresses itself to men who are utterly destitute of any good, is, nevertheless, designed to lead these very men to the noblest heights of virtue, yea, to ultimate perfection in holiness. The text tells us, that the effect of the gospel received in the heart is, that it compels and constrains such a heart to love God. "We love him, because he first loved us." When the gospel comes to us it does not find us loving God, it does not expect anything of us, but coming with the divine application of the Holy Ghost, it simply assures us that God loves us, be we never so deeply immersed in sin; and then, the after effect of this proclamation of love is, that "we love him because he first loved us."
 
@@ -19,8 +19,8 @@ In the first place,
 
 THE PARENTAGE OF TRUE LOVE TO GOD
 
-> "What though the spicy breezes blow soft o'er Java's isle;  
-> Where every prospect pleases, and only man is vile."  
+> What though the spicy breezes blow soft o'er Java's isle;    
+> Where every prospect pleases, and only man is vile.    
 
 Where God is most resplendent in his works, and most lavish in his gifts, there man has been the vilest and God is the most forgotten.
 
@@ -44,10 +44,10 @@ Ah! no. Was love born on Tabor, when the Saviour was transfigured, and his garme
 
 And then, when thy love is thus recruited, let me bid thee give thy love full exercise; for it shall grow thereby. You say, "Where shall I exercise the contemplation of my love, to make it grow?" Oh! Sacred Dove of love, stretch thy wings, and play the eagle now. Come! open wide thine eyes, and look full in the Sun's face, and soar upward, upward, upward, far above the heights of this world's creation, upwards, till thou art lost in eternity. Remember, that God loved thee from before the foundation of the world. Does not this strengthen thy love? Ah! what a bracing air is that air of eternity? When I fly into it for a moment, and think of the great doctrine of election--of
 
-> "That vast unmeasured love,  
-> Which from the days of old,  
-> Did all the chosen seed embrace,  
-> like sheep within the fold."  
+> That vast unmeasured love,    
+> Which from the days of old,    
+> Did all the chosen seed embrace,    
+> like sheep within the fold.    
 
 It makes the tears run down one's cheeks to think that we should have an interest in that decree and council of the Almighty Three, when every one that should be blood-bought had its name inscribed in God'a eternal book. Come, soul, I bid thee now exercise thy wings a little, and see if this does not make thee love God. He thought of thee before thou hadst a being. When as yet the sun and the moon were not,--when the sun, the moon, and the stars slept in the mind of God, like unborn forests in an acorn cup, when the old sea was not yet born, long ere this infant world lay in its swaddling bands of mist, then God had inscribed thy name upon the heart and upon the hands of Christ indelibly, to remain for ever. And does not this make thee love God? Is not this sweet exercise for thy love? For here it is my text comes in, giving, as it were, the last charge in this sweet battle of love, a charge that sweeps everything before it. "We love God, because he first loved us," seeing that he loved us before time began, and when in eternity he dwelt alone.
 

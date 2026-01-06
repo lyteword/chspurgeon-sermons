@@ -2,8 +2,8 @@
 
 Sermon No. 26 - Delivered on Sabbath Morning, May 27, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "For we are unto God a sweet savour of Christ, in them that are saved, and in them that perish: To the one we are the savour of death unto death; and to the other the savour of life unto life. And who is sufficient for these things?"  
-> 2 Corinthians 2:15-16.  
+> For we are unto God a sweet savour of Christ, in them that are saved, and in them that perish: To the one we are the savour of death unto death; and to the other the savour of life unto life. And who is sufficient for these things?    
+> 2 Corinthians 2:15-16.    
 
 THESE ARE THE words of Paul, speaking on the behalf of himself and his brethren the Apostles, and they are true concerning all those who by the Spirit are chosen, qualified, and thrust into the vineyard to preach God's gospel. I have often admired the 14th verse of this chapter, especially when I have remembered from whose lips the words fell, "Now thanks be unto God, which always causeth us to triumph in Christ, and maketh manifest the savour of his knowledge by us in every place." Picture Paul, the aged, the man who had been beaten five times with forty stripes save one,' who had been dragged forth for dead, the man of great sufferings, who had passed through whole seas of persecution only think of him saying, at the close of his ministerial career, "Now thanks be unto God, which always causeth us to triumph in Christ!" to triumph when shiprecked, to triumph when scourged, to triumph in the stocks, to triumph under the stones, to triumph amidst the hiss of the world, to triumph when he was driven from the city and shook off the dust from his feet, to triumph at all times in Christ Jesus! Now, if some ministers of modern times should talk thus, we would think little of it, for they enjoy the world's applause They can always go to their place in ease and peace; they have an admiring people, and no open foes; against them not a dog doth move his tongue; everything is safe and pleasant, For them to say, "Now thanks be unto God, which always causeth us to triumph" is a very little thing; but for one like Paul, so trampled on, so tried, so distressed, to say it-then, we say, outspoke a hero; here is a man who had true faith in God and in the divinity of his mission.
 
@@ -21,10 +21,10 @@ But another. It is a fact that the gospel of Jesus Christ will increase some men
 
 First, because men sin against greater light; and the light we have is an excellent measure of our guilt. What a Hottentot might do without a crime, would be the greatest sin to me, because I am taught better; and what some even in London might do with irnpunity--set down, as it might be, as a sin by God, but not so exceeding sinful-would be to me the very height of transgression, because I have from my youth up been tutored to piety. The gospel comes upon men like the light from heaven. What a wanderer must he be who strays in the light! If he who is blind falls into the ditch we can pity him, but if a man, with the light on his eyeballs dashes himself from the precipice and loses his own soul, is not pity out of the question?
 
-> "How they deserve the deepest hell,  
-> That slight the joys above!  
-> What chains of vengeance must they feel,  
-> Who laugh at sov'reign love!"  
+> How they deserve the deepest hell,    
+> That slight the joys above!    
+> What chains of vengeance must they feel,    
+> Who laugh at sov'reign love!    
 
 It will increase your condemnation, I tell you all, unless you find Jesus Christ to he your Saviour; for to have had the light and not to walk by it, shall be the condemnation, the very essence of it, This shall be the virus of the guilt--that the, "light came into the world, and the darkness comprehended it not;" for "men love darkness rather than light, because their deeds are evil."
 
@@ -34,8 +34,8 @@ Yet, once more. I believe the gospel make some men in this world more miserable 
 
 But, blessed be God, the gospel has a second power. Besides being "death unto death," it is "a savour of life unto life." Ah! my brethren, some of us could speak, if we were allowed this meaning, of the gospel as being "a savour of life" to us. We can look back to that hour when we were "dead in trespasses and sin." In vain all Sinai's thunders; in vain the rousing of the watchmen; we slept on in the death-sleep of our transgressions; nor could, an angel have aroused us. But we look back with joy to that hour when first we stepped within the walls of a sanctuary, and savingly heard the voice of mercy. With some of you it is but a few weeks. I know where ye are and who ye are. But a few weeks or months ago ye too were far from God, but now ye are brought to love him. Canst thou look back my brother Christian, to that very moment when the gospel was to thee--when thou didst cast away thy sins, renounce thy lusts, and turning to God's Word, received it with full purpose of heart? Ah! that hour--of all hours the sweetest! Nothing can be compared, therewith. I knew a person who for forty or fifty years had been completely deaf. Sitting one morning at her cottage door as some vehicle was passing, she thought she heard melodious music. It was not music; it was but the sound of the vehicle. Her ear had suddenly opened, and that rough sound seemed to her like the music of heaven, because it was the first she had heard for so many years. Even so, the first time our ears were opened to hear the words of love--the assurance of our pardon--we never heard the word so well as we did then; it never seemed so sweet; and perhaps, even now, we look back and say,
 
-> "What peaceful hours I then enjoyed!  
-> How sweet their memory still!"  
+> What peaceful hours I then enjoyed!    
+> How sweet their memory still!    
 
 When first it was "a savour of life" unto our souls.
 
@@ -43,8 +43,8 @@ Then, beloved, if it ever has been "a savour of life," it will always be "of lif
 
 Go, with your vile gospel; preach it where you please; but my Master said, "I give unto my sheep ETERNAL life." You give to your sheep temporary life, and they lose it; but, says Jesus, "I give unto my sheep ETERNAL life, and they shall never perish, neither shall man pluck them out of my hands." I generally wax warm when I got to this subject, because I think few doctrines more vital than that of the perseverance of the saints; for if ever one child of God did perish, or if I knew it were possible that one could, I should conclude, at once that I must , and suppose each of you would do the same; and then where is the joy and happiness of the gospel? Again I tell you the Arminian gospel is the shell without the kernel; it is the husk without the fruit; and those who love it may take it to themselves. We will not quarrel with them. Let them go and preach it. Let them go and tell poor sinners, that if they believe in Jesus they will be damned after all, that Jesus Christ will forgive them and yet the Father send them to hell. Go and preach your gospel, and who will listen to it? And if they do listen, is it worth their hearing? I say no; for if I am to stand after conversion on the same footing as I did before conversion then it is of no use for me to have been converted at all. But whom he loves he loves to the end.
 
-> "Once in Christ, in Christ for ever;  
-> Nothing from his love can sever."  
+> Once in Christ, in Christ for ever;    
+> Nothing from his love can sever.    
 
 It is "a savour of life unto life." And not only, "life unto life" in this world, but of "life unto life" eternal. Every one who has this life shall receive the next life; for "the Lord will give grace and glory, and no good thing will he withhold from them that walk uprightly."
 
@@ -64,7 +64,7 @@ But you say, "What is there difficult about preaching God's gospel?" Well it mus
 
 Having said thus much, I may draw the inference--to close up--which is: if the gospel is "a savour of life unto life," and if the minister's work be solemn work, how well it becomes all lovers of the truth to plead for all those who preach it, that they may be "sufficient for these things." To lose my Prayer-book, as I have often told you, is the worst thing that can happen to me. To have no one to pray for me would place me in a dreadful condition. "Perhaps," says a good poet, "the day when the world shall perish, will be the day unwhitened by a prayer;" and, perhaps, the day when a minister turned aside from truth, was the day when his people left off to pray for him, and when there was not a single voice supplicating grace on his behalf. I am sure, it must be so with me. Give me the numerous hosts of men whom it has been my pride and glory to see in my place before I came to this hall: give me those praying people, who on the Monday evening met in such a multitude to pray to God for a blessing, and we will overcome hell itself, in spite of all that may oppose us. All our perils are nothing, so long as we have prayer. But increase my congregation; give me the polite and the noble,--give me influence and understanding; and I should fail to do anything without a praying church. My people! shall I ever lose your prayers? Will ye ever cease your supplications? Our toils are nearly ended in this great place, and happy shall we be to return to our much-loved sanctuary. Will ye then ever cease to pray? I fear ye have not uttered so many prayers this morning as ye should have done; I fear there has not been so much earnest devotion as might have been poured forth. For my own part, I have not felt the wondrous power I sometimes experience. I will not lay it at your doors; but never let it be said, "Those people, once so fervent, have become cold!" Let not Laodiceanism get into Southwark; let us leave it here in the West-end, if it is to be anywhere; let us not carry it with us. Let us "strive together for the faith once delivered unto the saints:" and knowing in what a sad position the standard. bearer stands, I beseech you rally round him; for it will be ill with the army,
 
-> "If the standard bearer fall, as fall full well he may.  
-> For never saw I promise yet, of such a deadly fray."  
+> If the standard bearer fall, as fall full well he may.    
+> For never saw I promise yet, of such a deadly fray.    
 
 Stand up my friends; grasp the banner yourselves, and maintain it erect until the day shall come, when standing on the last conquered castle of hell's domains, we shall raise the shout, "Hallelujah! Hallelujah! Hallelujah! The Lord God Omnipotent reigneth!" Till that time, fight on.

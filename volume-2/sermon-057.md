@@ -2,13 +2,13 @@
 
 Sermon No. 57 - Delivered on Sabbath Morning, December 23rd, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "But thou, Beth-lehem Ephratah, though thou be little among the thousands of Judah, yet out of thee shall he come forth unto me that is to be ruler in Israel; whose goings forth have been from of old, from everlasting."  
-> Micah 5:2.  
+> But thou, Beth-lehem Ephratah, though thou be little among the thousands of Judah, yet out of thee shall he come forth unto me that is to be ruler in Israel; whose goings forth have been from of old, from everlasting.    
+> Micah 5:2.    
 
 THIS is the season of the year when, whether we wish it or not, we are compelled to think of the birth of Christ. I hold it to be one of the greatest absurdities under heaven to think that there is any religion in keeping Christmas-day. There are no probabilities whatever that our Saviour Jesus Christ was born on that day, and the observance of it is purely of Popish origin; doubtless those who are Catholics have a right to hallow it, but I do not see how consistent Protestants can account it in the least sacred. However, I wish there were ten or a dozen Christmas-days in the year; for there is work enough in the world, and a little more rest would not hurt labouring people. Christmas-day is really a boon to us; particularly as it enables us to assemble round the family hearth and meet our friends once more. Still, although we do not fall exactly in the track of other people, I see no harm in thinking of the incarnation and birth of the Lord Jesus. We do not wish to be classed with those
 
-> "Who with more care keep holiday  
-> The wrong, than others the right way."  
+> Who with more care keep holiday    
+> The wrong, than others the right way.    
 
 The old Puritans made a parade of work on Christmas-day, just to show that they protested against the observance of it. But we believe they entered that protest so completely, that we are willing, as their descendants, to take the good accidentally conferred by the day, and leave its superstitions to the superstitious.
 
@@ -28,8 +28,8 @@ But again: there is something in the name of the place. "Bethlehem Ephratah." Th
 
 If from the lips of Jesus thou dost never drink sweet honey--if thou art not like the bee, which sippeth sweet luscious liquor from the Rose of Sharon, then out of the selfsame mouth there shall go forth against thee a two-edged sword; and that mouth from which the righteous draw their bread, shall be to thee the mouth of destruction and the cause of thine ill. Jesus of Bethlehem, house of bread and house of war, we trust we know thee as our bread. Oh! that some who are now at war with thee might hear in their hearts, as well as in their ears the song--
 
-> "Peace on earth, and mercy mild.  
-> God and sinners reconciled."  
+> Peace on earth, and mercy mild.    
+> God and sinners reconciled.    
 
 And now for that word Ephratah That was the old name of the place which the Jews retained and loved. The meaning of it is, "fruitfulness," or "abundance." Ah! well was Jesus born in the house of fruitfulness; for whence cometh my fruitfulness and any fruitfulness, my brother, but from Bethlehem? Our poor barren hearts ne'er produced one fruit, or flower, till they were watered with the Saviour blood. It is his incarnation which fattens the soil of our hearts. There had been pricking thorns on all the ground, and mortal poisons, before be came; but our fruitfulness comes from him. "I am like a green fir-tree; from thee is my fruit found." "All my springs are in thee." If we be like trees planted by the rivers of water, bringing forth our fruit in our season, it is not because we were naturally fruitful, but because of the rivers of water by which we were planted. It is Jesus that makes us fruitful. "If a man abide in me," he says, "and my words abide him, he shall bring forth much fruit." Glorious Bethlehem Ephratah! Rightly named! Fruitful house of bread--the house of abundant provision for the people of God!
 
@@ -41,8 +41,8 @@ Man doth as he wills; but God maketh him do as he willeth, too. Nay, not only is
 
 This brings us to the third point: WHAT DID JESUS COME FOR? He came to be "ruler in Israel." A very singular thing is this, that Jesus Christ was said to have been "born the king of the Jews." Very few have ever been "born king." Men are born princes, but they are seldom born kings. I do not think you can find an instance in history where any infant was born king. He was the prince of Wales, perhaps, and he had to wait a number of years, till his father died, and then they manufactured him into a king, by putting a crown on his head; and a sacred chrism, and other silly things; but he was not born a king. I remember no one who was born a king except Jesus; and there is emphatic meaning in that verse that we sing
 
-> "Born thy people to deliver;  
-> Born a child, and yet a king."  
+> Born thy people to deliver;    
+> Born a child, and yet a king.    
 
 The moment that he came on earth he was a king. He did not wait till his majority that he might take his empire; but as soon as his eye greeted the sunshine he was a king; from the moment that his little hands grasped anything, they grasped a sceptre, as soon as his pulse beat, and his blood began to flow, his heart beat royally, and his pulse beat an imperial measure, and his blood flowed in a kingly current. He was born a king. He came "to be ruler in Israel. "Ah!" says one, "then he came in vain, for little did he exercise his rule; he came unto his own, and his own received him not;' he came to Israel and he was not their ruler, but he was despised and rejected of men,' cast off by them all, and forsaken by Israel, unto whom he came." Ay, but "they are not all Israel who are of Israel," neither because they are the seed of Abraham shall they all be called. Ah, no! He is not ruler of Israel after the flesh, but he is the ruler of Israel after the spirit. Many such have obeyed him. Did not the apostles bow before him, and own him as their king? And now, doth not Israel salute him as their ruler? Do not all the seed of Abraham after the spirit, even all the faithful, for he is "the father of the faithful," acknowledge that unto Christ belong the shields of the mighty, for he is the king of the whole earth? Doth he not rule over Israel? Ay, verily he doth; and those who are not ruled over by Christ are not of Israel. He came to be a ruler over Israel. My brother, hast thou submitted to the sway of Jesus? Is he ruler in thine heart, or is he not? We may know Israel by this: Christ is come into their hearts, to be ruler over them. "Oh!" saith one, "I do as I please, I was never in bondage to any man." Ah! then thou hatest the rule of Christ. "Oh!" says another, "I submit myself to my minister, to my clergyman, or to my priest, and I think that what he tells me is enough, for he is my ruler." Dost thou? Ah! poor slave, thou knowest not thy dignity; for nobody is thy lawful ruler but the Lord Jesus Christ. 
 
@@ -54,20 +54,20 @@ First, Christ has had his goings forth in his Godhead. "From everlasting." He ha
 
 Of old he went forth as our covenant head in election, "according as he hath chosen us in Him, before the foundation of the world."
 
-> "Christ be my first elect, he said,  
-> Then chose our souls in Christ our Head."  
+> Christ be my first elect, he said,    
+> Then chose our souls in Christ our Head.    
 
 He had goings forth for his people, as their representative before the throne, even before they were begotten in the world. It was from everlasting that his mighty fingers grasped the pen, the stylus of ages, and wrote his own name, the name of the eternal Son of God; it was from everlasting that he signed the compact with his Father, that he would pay blood for blood, wound for wound, suffering for suffering, agony for agony, and death for death, in the behalf of his people; it was from everlasting that he gave himself up, without a murmuring word, that from the crown of his head to the sole of his foot he might sweat blood, that he might be spit upon, pierced, mocked, rent asunder, suffer the pain of death, and the agonies of the cross. His goings forth as our Surety were from everlasting. Pause, my soul, and wonder! Thou hadst goings forth in the person of Jesus from everlasting. Not only when thou wast born into the world did Christ love thee, but his delights were with the sons of men before there were any sons of men. Often did he think of them; from everlasting to everlasting he had set his affection upon them. What! believer, has he been so long about thy salvation, and will he not accomplish it? Has he from everlasting been going forth to save me, and will he lose me now? What! has he had me in his hand, as his precious jewel, and will he now let me slip between his precious fingers? Did he choose me before the mountains were brought forth, or the channels of the deep scooped out, and will he lose me now? Impossible!
 
-> "My name from the palms of his hands  
-> Eternity cannot erase;  
-> Impress'd on his heart it remains,  
-> In marks of indelible grace."  
+> My name from the palms of his hands    
+> Eternity cannot erase;    
+> Impress'd on his heart it remains,    
+> In marks of indelible grace.    
 
 I am sure he would not love me so long, and then leave off loving me. If he intended to be tired of me, he would have been tired of me long before now. If he had not loved me with a love as deep as hell and as unutterable as the grave, it he had not given his whole heart to me, I am sure he would have turned from me long ago. He knew what I would be, and he has had long time enough to consider of it; but I am his choice, and there is an end of it; and unworthy as I am, it is not mine to grumble, if he is but contented with me. But he is contented with me--he must be contented with me--for he has known me long enough to know my faults. He knew me before I knew myself; yea, he knew me before I was myself. Long before my members were fashioned they were written in his book, "when as yet there were none of them," his eyes of affection were set on them. He knew how badly I would act towards him, and yet he has continued to love me;
 
-> "His love in times past forbids me to think.  
-> He'll leave me at last in trouble to sink."  
+> His love in times past forbids me to think.    
+> He'll leave me at last in trouble to sink.    
 
 No; since "his goings forth were of old from everlasting," they will be "to everlasting."
 
@@ -81,9 +81,9 @@ Observe for a moment here, that each of these four great occurrences happened to
 
 Sweet Lord Jesus! thou whose goings forth were of old, even from everlasting, thou hast not left thy goings forth yet. Oh! that thou wouldst go forth this day, to cheer the faint, to help the weary, to bind up our wounds, to comfort our distresses! Go forth, we beseech thee, to conquer sinners, to subdue hard hearts-to break the iron gates of sinners' lusts, and cut the iron bars of their sirs in pieces! O Jesus! go forth; and when thou goest forth, come thou to me! Am I a hardened sinner? Come thou to me; I want thee:
 
-> "Oh! let thy grace my heart subdue;  
-> I would be led in triumph too;  
-> A willing captive to my Lord,  
-> To sing the honours of thy word."  
+> Oh! let thy grace my heart subdue;    
+> I would be led in triumph too;    
+> A willing captive to my Lord,    
+> To sing the honours of thy word.    
 
 Poor sinner! Christ has not left going forth yet. And when he goes forth, recollect, he goes to Bethlehem. Have you a Bethlehem in your heart? Are you little? will go forth to you yet. Go home and seek him by earnest prayer. If you have been made to weep on account of sin, and think yourself too little to be noticed, go home, little one! Jesus comes to little ones; his goings forth were of old, and he is going forth now. He will come to your poor old house; he will come to your poor wretched heart; he will come, though you are in poverty, and clothed in rags, though you are destitute, tormented, and afflicted; he will come, for his goings forth have been of old from everlasting. Trust him, trust him, trust him; and he will go forth to abide in your heart for ever.

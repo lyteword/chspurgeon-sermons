@@ -2,8 +2,8 @@
 
 Sermon No. 235 - Delivered on Sabbath Morning, January 23rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "O wretched man that I am I who shall deliver me from the body of this death? I thank God, through Jesus Christ our Lord."  
->  Romans 7:24, 25.
+> O wretched man that I am I who shall deliver me from the body of this death? I thank God, through Jesus Christ our Lord.    
+> Romans 7:24, 25.    
 
 IF I chose to occupy your time with controversial matter, I might prove to a demonstration that the apostle Paul is here describing his own experience as a Christian. Some have affirmed that he is merely declaring what he was before conversion, and not what he was when he became the recipient of the grace of God. But such persons are evidently mistaken, and I believe wilfully mistaken; for any ample-hearted, candid mind, reading through this chapter, could not fall into such an error. It is Paul the apostle, who was not less than the very greatest of the apostles--it is Paul, the mighty servant of God, a very prince in Israel, one of the King's mighty men--it is Paul, the saint and the apostle, who here exclaims, "O wretched man that I am!"
 
@@ -41,8 +41,8 @@ Well, what does the new nature do? When it sees all these enemies, it cries unto
 
 I have thus endeavored to describe the conflict; but understand me, it cannot be described. We must say, as Hart does in his hymn, when after singing the emotions of his soul, he says--
 
-> "But, brethren, you can surely guess,  
-> For you perhaps have felt the same."  
+> But, brethren, you can surely guess,    
+> For you perhaps have felt the same.    
 
 If you could see a plain upon which a battle is fought, you would see how the ground is torn up by the wheels of the cannon, by the horse hoofs, and by the trampling of men. What desolation is where once the golden crops of harvest grew. How is the ground sodden with the blood of the slain. How frightful the result of this terrible struggle. But if you could see the believers' heart after a spiritual battle, you would find it just a counterpart of the battle-field--as much cut up as the ground of the battle-field after the direst conflict that men or fiends have ever waged. For, think: we are combating man with himself; nay, more, man with the whole world; nay, more, man with hell; God with man, against man, the world and hell. What a fight is that! It were worth an angel's while to come from the remotest fields of ether to behold such a conflict.
 

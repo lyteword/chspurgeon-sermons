@@ -2,8 +2,8 @@
 
 Sermon No. 14 - Delivered on Sabbath Morning, March 18, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "For whatsoever is born of God overcometh the world; and this is the victory that overcometh the world, even our faith."  
-> 1 John 5:4.  
+> For whatsoever is born of God overcometh the world; and this is the victory that overcometh the world, even our faith.    
+> 1 John 5:4.    
 
 THE epistles of John are perfumed with love. The word is continually occurring. while the Spirit enters into every sentence. Each letter is thoroughly soaked and impregnated with this heavenly honey. If he speaks of God, his name must be love; are the brethren mentioned, he loves them; and even of the world itself, he writes, "God so loved the world, that he gave his only begotten Son." From the opening to the conclusion, love is the manner, love the matter, love the motive, and love the aim. We stand, therefore, not a little astonished, to find such martial words in so peaceful a writing; for I hear a sound of war. It is not the voice of love, surely, that says," He that is born of God overcometh the world." Lo, here are strife and battle. The word "overcometh" seems to have in it something of the sword and warfare; of strife and contention; of agony and wrestling; so unlike the love which is smooth and gentle, which hath no harsh words within its lips; whose mouth is lined with velvet; whose words are softer than butter; whose utterances are more easily flowing than oil. Here we have war--war to the knife; for I read "Whatsoever is born of God overcometh the world;" strife until death; battle throughout life; fighting with a certainty of victory. How is it that the same gospel which always speaks of peace, here proclaims a warfare? How can it be? Simply because there is something in the world which is antagonistic to love; there are principles abroad which cannot bear light, and, therefore, before light can come, it must chase the darkness. Ere summer reigns, you know, it has to do battle with old winter, and to send it howling away in the winds of March, and shedding its tears in April showers. So also, before any great or good thing can have the mastery of this world, it must do battle for it. Satan has seated him self on his blood-stained throne, and who shall get him down, except by main force, and fight and war? Darkness broods o'er the nations; nor can the sun establish his empire of light until he has pierced night with the arrowy sunbeams, and made it flee away. Hence we read in the Bible that Christ did not come to send peace on earth, but a sword; he came to set "the father against the son, and the son against the father; the mother against the daughter, and the daughter against the mother; the mother-in-law against her daughter-in-law, and the daughter-in-law against her mother-in-law;" not intentionally, but as a means to an end; because there must always be a struggle ere truth and righteousness can reign. Alas! for that earth is the battle-field where good must combat with evil Angels look on and hold their breath, burning to mingle in the conflict, but the troops of the Captain of Salvation may be none but the soldiers of the cross; and that slender band must fight alone, and yet shall triumph gloriously. Enough shall they be for conquest, and the motto of their standard is ENOUGH. Enough by the arm of the helping Trinity.
 
@@ -17,15 +17,15 @@ He overcomes the world when it sets up itself as a legislator, wishing to teach 
 
 We rebel against the world's customs. And if we do so, what is the conduct of our enemy? She changes her aspect. "That man is a heretic; that man is a fanatic; he is a cant, he is a hypocrite," says the world directly. She grasps her sword, she putteth frowns upon her brow, she scowleth like a demon, she girdeth tempests round about her, and she saith, "The man dares defy my government; he will not do as others do. Now I will persecute him. Slander! come from the depths of hell and hiss at him. Envy! sharpen up thy tooth and bite him." She fetches up all false things, arid she persecutes the man. If she can, she does it with the hand; if not, by the tongue. She afflicts him wherever he is. She tries to ruin him in business; or, if he standeth forth as the champion of the truth why then she laugheth, arid mocketh, and scorneth. She lets no stone be unturned whereby she may injure him. What is then the behaviour of the Lord's warrior, when he sees the world take up arms against him, and when he sees all earth, like an army, coming to chase him, and utterly destroy him? Does he yield? Does he yield? Does he bend? Does he cringe? Oh, no! Like Luther, he writes "Cedo nulli" on his banner--"I yield to none;" and he goes to war against the world, if the world goes to war against him.
 
-> "Let earth be all in arms abroad,  
-> He dwells in perfect peace."  
+> Let earth be all in arms abroad,    
+> He dwells in perfect peace.    
 
 Ah! some of you, if you had a word spoken against you, would at once give up what religion you have; but the true-born child of God cares little for man's opinion. "Ah," says he, "let my bread fail me, let me be doomed to wander penniless the wide world o'er; yea, let me die: each drop of blood within these veins belongs to Christ, and I am ready to shed it for his name's sake." He counts all things but loss, that he may win Christ--that he may be found in him; and when the world's thunders roars, he smiles at the uproar, while lie hums his pleasant tune:--
 
-> "Jerusalem my happy home,  
-> Name ever dear to me;  
-> When shall my labours have an end,  
-> In joy, and peace, and thee?"  
+> Jerusalem my happy home,    
+> Name ever dear to me;    
+> When shall my labours have an end,    
+> In joy, and peace, and thee?    
 
 When her sword comes out, he looketh at it. "Ah," saith he, "just as the lightning leapeth from its thunder lair, splitteth the clouds, and affrighteth the stars, but is powerless against the rock-covered mountaineer, who smiles at its grandeur, so now the world cannot hurt me, for in the time of trouble my Father hides me in his pavillion, in the secret of his tabernacle doth he hide me, and set me up upon a rock." Thus, again, we conquer the world, by not caring for its frowns.
 
@@ -43,10 +43,10 @@ What is it to be born again, then? Very briefly, to be born again is to undergo 
 
 Let me tell you, moreover, that this change is a supernatural one. It is not one that a man performs upon himself. It is not leaving off drinking and becoming sober; it is not turning from a Roman Catholic to a Protestant; it is not veering round from a Dissenter to a Churchman, or a Churchman to a Dissenter. It is a vast deal more than that. It is a new principle infused which works in the heart, enters the very soul, and moves the entire man. Not a change of my name, but a renewal of my nature, so that I am not the man I used to be, but a new man in Christ Jesus. It is a supernatural change--something which man cannot do, and which only God can effect; which the Bible itself cannot accomplish without the attendant Spirit of God; which no minister's eloquence can bring about--something so mighty and wondrous, that it must be confessed to be the work of God, and God alone. Here is the place to observe that this new birth is an enduring change. Arminians tell us that people are born again, then fall into sin, pick themselves up again, and become Christians again--fall into sin, lose the grace of God, then come back again--fall into sin a hundred times in their lives, and so keep on losing grace and recovering it. Well, I suppose it is a new version of the Scripture where you read of that. But I read in my Bible that if true Christians could fall away, it would be impossible to renew them again unto repentance. I read, moreover, that wherever God has begun a good work he will carry it on even to the end; and that whom he once loves, he loves to the end. If I have simply been reformed, I may be a drunkard yet, or you may see me acting on the stage. But if I am really born again, with that real supernatural change, I shall never fall away, I may fall into a sin, but I shall not fall finally; I shall stand while life shall last, constantly secure; and when I die it shall be said--
 
-> "Servant of God, well done!  
-> Rest from thy blest employ;  
-> The battle's fought, the victory's won;  
-> Enter thy rest of joy."  
+> Servant of God, well done!    
+> Rest from thy blest employ;    
+> The battle's fought, the victory's won;    
+> Enter thy rest of joy.    
 
 Do not deceive yourselves, my beloved. If you imagine that you have been regenerated, and having gone away from God, will be once more born again, you do not know anything about the matter; for "he that is born of God sinneth not." That is, he does not sin so much as to fall away from grace; "for he keepeth himself, that the evil one toucheth him not." Happy is the man who is really and actually regenerate, and passed from death unto life!
 
@@ -60,11 +60,11 @@ In closing my discourse, men and brethren, I am but a child; I have spoken to yo
 
 I am preaching no new doctrine. Turn to the articles of the Church of England, and read it there. Church people come to me sometimes to unite with our church; I show them our doctrines in their prayer book, and they have said they never knew they were there. My dear hearers, why cannot you read your own articles of faith? Why, positively, you do not know what is in your own prayer book, Men, now-a-days, do not read their Bibles, and they have for the most part no religion. They have a religion, which is all outside show, but they do not think of searching to see what its meaning really is. Sirs, it is not the cloak of religion that will do for you; it is a vital godliness you need; it is not a religious Sunday, it is a religious Monday; it is not a pious church, it is a pious closet; it is not a sacred place to kneel in, it is a holy place to stand in all day long. There must be a change of heart, real, radical, vital, entire. And now, what say you? Has your faith overcome the world? Can you live above it? or do you love the world and the things thereof? If so, sirs, ye must go on your way and perish, each one of you, unless ye turn from that, and give your hearts to Christ. Oh! what say you, is Jesus worthy of your love? Are the things of eternity and heaven worth the things of time? Is it so sweet to be a worldling, that for that you can lie down in torment? Is it so good to be a sinner, that for this you can risk your soul's eternal welfare? O, my friends, is it worth your while to run the risk of an eternity of woe for a hour of pleasure? Is a dance worth dancing in hell with howling fiends for ever? Is one dream, with a horrid waking, worth enjoying, when there are the glories of heaven for those who follow God? Oh! if my lips would let me speak to you, my heart would run over at my eyes, and I would weep myself away, until ye had pity on your own poor souls. I know I am, in a measure, accountable for your souls, If the watchmen warn them not, they shall perish, but their blood shall be required at the watchman's hands, "Turn ye, turn ye, why will ye die, O house of Israel?" thus saith the Lord. Besotted, filled with your evil wills, inclined to evil; still the Holy Ghost speaks by me this morning, "If ye turn unto the Lord, with full purpose of heart, he will have mercy upon you, and to our God, he will abundantly pardon." I cannot bring you; I cannot fetch you. My words are powerless, my thoughts are weak! Old Adam is too strong for this young child to draw or drag; but God speak to you, dear hearts; God send the truth home, and then we shall rejoice together, both he that soweth and he that reapeth, because God has given us the increase. God bless you! may you all be born again, and have that faith that overcometh the world!
 
-> "Have I that faith which looks to Christ,  
-> O'ercomes the world and sin--  
-> Receives him Prophet, Priest, and King,  
-> And makes the conscience clean?  
-> "If I this precious grace possess,  
-> All praise is due to thee;  
-> If not, I seek it from thy hands;  
-> Now grant it, Lord, to me."  
+> Have I that faith which looks to Christ,    
+> O'ercomes the world and sin--    
+> Receives him Prophet, Priest, and King,    
+> And makes the conscience clean?    
+> "If I this precious grace possess,    
+> All praise is due to thee;    
+> If not, I seek it from thy hands;    
+> Now grant it, Lord, to me.    

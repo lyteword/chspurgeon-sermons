@@ -2,8 +2,8 @@
 
 Sermon No. 164 - Delivered on Sabbath Morning, November 22, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "As many as I love, I rebuke and chasten: be zealous therefore, and repent."  
-> Revelation 3:19.  
+> As many as I love, I rebuke and chasten: be zealous therefore, and repent.    
+> Revelation 3:19.    
 
 THE DEALINGS OF GOD towards the sons of men have always puzzled the wise men of the earth who have tried to understand them. Apart from the revelation of God the dealings of Jehovah towards his creatures in this world seem to be utterly inexplicable. Who can understand how it is that the wicked flourish and are in great power? The ungodly man flourishes like a green bay tree; behold, he stretcheth out his roots by the river: he knoweth not the year of drought; his leaf withereth not; and his fruit doth not fall in an untimely season. Lo, these are the ungodly that flourish in the world; they are filled with riches; they heap up gold like dust; they leave the rest of their substance to their babes; they add field to field, and acre to acre, and they become the princes of the earth. On the other hand, see how the righteous are cast down. How often is virtue dressed in the rags of poverty! How frequently is the most pious spirit made to suffer from hunger, and thirst, and nakedness! We have sometimes heard the Christian say, when he has contemplated these things, "Surely, I have served God in vain; it is for nothing that I have chastened myself every morning and vexed my soul with fasting; for lo, God hath cast me down, and he lifteth up the sinner. How can this be?" The sages of the heathen could not answer this question, and they therefore adopted the expedient of cutting the gordian knot. "We can not tell how it is," they might have said; therefore they flew at the fact itself, and denied it. "The man that prospers is favored of the gods; the man who is unsuccessful is obnoxious to the Most High." So said the heathen, and they knew no better. 
 
@@ -11,8 +11,8 @@ Those more enlightened easterns, who talked with Job in the days of his afflicti
 
 The fact is, that this world is not the place of punishment. There may now and then be eminent judgments; but as a rule God does not in the present state fully punish any man for sin. He allows the wicked to go on in their wickedness; he throws the reins upon their necks; he lets them go on unbridled in their lusts; some checks of conscience there may be; but these are rather, as monitions than as punishments. And, on the other hand, he casts the Christian down; he gives the most afflictions to the most pious; perhaps he makes more waves of trouble roll over the breast of the most sanctified Christian than over the heart of any other man living. So, then, we must remember that as this world is not the place of punishment, we are to expect punishment and reward in the world to come; and we must believe that the only reason, then, why God afflicts his people must be this:--
 
-> "In love I correct thee, thy gold to refine,  
-> To make thee at length in my likeness to shine."  
+> In love I correct thee, thy gold to refine,    
+> To make thee at length in my likeness to shine.    
 
 I shall try this morning to notice, first, what it is in his children that God corrects; secondly, why God corrects them; and thirdly, what is our comfort, when we are laboring under the rebukes and correctings of our God. Our comfort must be the fact that he loves us even then. "As many as I love, I rebuke and chasten."
 

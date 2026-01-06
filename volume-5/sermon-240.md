@@ -2,19 +2,19 @@
 
 Sermon No. 240 - Delivered on Sabbath Morning, February 27th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "I love the Lord, because he hath heard my voice and my supplication."  
-> Psalm 116:1.  
+> I love the Lord, because he hath heard my voice and my supplication.    
+> Psalm 116:1.    
 
 IN the Christian pilgrimage it is well for the most part to be looking forward. Whether it be for hope, for joy, for consolation, or for the inspiring of our love, the future after all must be the grand object of the eye of faith. Looking into the future we see sin cast out, the body of sin and death destroyed, the soul made perfect and fit to be a partaker of the inheritance of the saints in light. And looking further yet, the believer's soul can see Death's river passed, the gloomy steam forded; he can behold the hills of light on which standeth the celestial city; he seeth himself enter within the pearly gates, hailed as more than a conqueror--crowned by the hand of Christ, embraced in the arms of Jesus, glorified with him, made to sit together with him on his throne, even as he has overcome and has sat down with the Father upon his throne. The sight of the future may well relieve the darkness of the past, the hopes of the world to come may banish all the doubtings of the present. Hush, my fears! this world is but a narrow span, and thou shalt soon have passed it. Hush, hush, my doubts! death is but a narrow stream, and thou shalt soon have forded it. Time, how short--eternity, how long! Death, how brief--immortality, how endless!
 
-> "Oh the transporting, rapturous scene  
-> That rises to my sight!  
-> Sweet fields arrayed in living green,  
-> And rivers of delight.  
-> Filled with delight my raptured soul  
-> Would here no longer stay,  
-> Though Jordan's waves around me roll,  
-> Fearless I'd launch away."  
+> Oh the transporting, rapturous scene    
+> That rises to my sight!    
+> Sweet fields arrayed in living green,    
+> And rivers of delight.    
+> Filled with delight my raptured soul    
+> Would here no longer stay,    
+> Though Jordan's waves around me roll,    
+> Fearless I'd launch away.    
 
 Yet nevertheless the Christian may do well sometimes to look backward; he may look back to the hole of the pit and the miry clay whence he was digged--the retrospect will help him to be humble, it will urge him to be faithful. He may look back with satisfaction to the glorious hour when first he saw the Lord, when spiritual life for the first time quickened his dead soul. Then he may look back through all the changes of his life, to his troubles and his joys, to his Pisgahs and to his Engedis, to the land of the Hermonites and the hill Mizar. He must not keep his eye always backward, for the fairest scene dies beyond, it will not benefit him to be always considering the past, for the future is more glorious far; but nevertheless at times a retrospect may be as useful as a prospect; and memory may be as good a teacher as even faith itself. This morning I bid you stand upon the hill-top of your present experience and look back upon the past, and find therein motives for love to God; and may the Holy Spirit so help me in preaching and you in hearing, that your love may be inflamed, and that you may retire from this hall, declaring in the language of the Psalmist, "I love the Lord, because he hath heard my voice, and my supplication."
 
@@ -60,10 +60,10 @@ The Lord who had delivered him spiritually, now came to his assistance temporall
 
 Oh, with what agony did you pour out your unutterable sighs! You rose up, and you thought God would not have mercy on you. You went to your business; but how wretched you were! You went back again to the chamber. And how the beam out of the wall could speak now, and tell you how you cried and cried, and cried again before his mercy-seat. Do you love him but a little to-day? has your love grown cold? Go home and look again upon the chair against which you kneeled. Look at the very walls, and see if they do not accuse you, saying, "I heard you pray to God for mercy, and he has heard you. How I see your cold-heartedness; I mark your lukewarmness in his cause." Go home to your chamber, fall on your knees, and with tears of gratitude say--
 
-> "O thou, my soul, bless God the Lord;  
-> And all that in me is  
-> Be stirred up, his holy name  
-> To magnify and bless!"  
+> O thou, my soul, bless God the Lord;    
+> And all that in me is    
+> Be stirred up, his holy name    
+> To magnify and bless!    
 
 Some of us can recollect other special seasons of prayer. Members of my church, I remind you of that solemn season, when, like a hurricane of desolation, the judgment of God swept through our midst. Standing in this pulpit this very morning, I recall to myself that evening of sorrow, when I saw my people scattered like sheep, without a shepherd, trodden upon, injured, and many of them killed. Do you recollect how you cried for your minister, that he might be restored to a reason that was then tottering? Can you recollect how ye prayed that out of evil God would bring forth good, that all the curses of the wicked might be rolled back upon themselves, and God would yet fill this place with his glory? And do you remember how long ago that is, and how God has been with us ever since, and how many of those who were injured that night, are now members of our church, and are praising God that they ever entered this house? Oh! shall we not love the Lord? There is not a church in London, that has had such answers to prayer as we have; there has not been a church that has had such cause to pray. We have had special work, special trial, special deliverance, and we ought pre-eminently to be a church, loving God, and spending and being spent in his service. Remember again the varied times of your sickness, when you have been sick, sore, and nigh unto death. Let me picture, my own experience that I may remind you of yours. I remember when I came to this pulpit in agony, and preached you a sermon which seemed to cost me my life's blood at every word I uttered. 
 
@@ -71,18 +71,18 @@ I was taken home to my bed full of grief and agony I remember those weary nights
 
 Having thus delivered these thoughts, I shall want you now for about three minutes to listen to me while I teach you three lessons which ought to spring from this sevenfold retrospect. What shall I say then? God has heard my voice in my prayer. The first lesson, then, is this--He shall hear my voice in my praise. If he heard me pray, he shall hear me sing; if he listened to me when the tear was in mine eye, he shall listen to me when my eye is sparkling with delight. My piety shall not be that of the dungeon and sick bed; it shall be that also of deliverance and of health.
 
-> "I'll praise my Maker with my breath;  
-> And when my voice is lost in death,  
-> Praise shall employ my nobler powers:  
-> My days of praise shall ne'er be past,  
-> While life and thought and being last,  
-> Or immortality endures."  
+> I'll praise my Maker with my breath;    
+> And when my voice is lost in death,    
+> Praise shall employ my nobler powers:    
+> My days of praise shall ne'er be past,    
+> While life and thought and being last,    
+> Or immortality endures.    
 
 Another lesson. Has God heard my voice? Then I will hear his voice. If he heard me I will hear him. Tell me, Lord, what wouldst thou have thy servant do, and I will do it; what wouldst thou have me believe, and I will believe it. If there be a labor which I have never attempted before, tell me to do it, and I will say, "Here am I; Lord, send me." Is there an ordinance to which I never attended? Dost thou say, "Do this in remembrance of me;" is it thy command? However non-essential it seems to be, I will do it, because thou hast told me to do it. If thou hast heard my feeble voice, I will hear thine, even though it be but a still small voice. Oh that you would learn that lesson!
 
 The last lesson is, Lord, hast thou heard my voice? then I will tell others that thou wilt hear their voice too. Didst thou save me? O Lord, if thou savedst me thou canst save anybody. Didst thou hear my prayer?
 
-> "Then will I tell to sinners round,  
-> What a dear Saviour I have found;"  
+> Then will I tell to sinners round,    
+> What a dear Saviour I have found;    
 
 and I will bid them pray too. O you that never pray, I beseech you begin from this hour. May God the Spirit lead you to your chambers, to cry to him! Remember, if you ask through Jesus, you cannot ask in vain. I can prove that in a thousand instances God has heard my supplication. There was nothing more in me than there is in you. Go and plead the promise; plead the blood, and ask for the help of God's Spirit; and there is not one in this assembly who shall not receive the blessing, if God shall lead him to pray. Young man, young woman, go home; plead with God for yourself first; you that love him, plead for others. Let every one of us practice the second verse of this Psalm, "Because he hath inclined his ear unto me, therefore will I call upon him as long as I live."

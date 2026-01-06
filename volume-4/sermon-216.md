@@ -2,8 +2,8 @@
 
 Sermon No. 216 - Delivered on Sabbath Morning, October 3, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "And the publican, standing afar off would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner."  
-> Luke 18:13.  
+> And the publican, standing afar off would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner.    
+> Luke 18:13.    
 
 THE HEROES OF OUR Saviour's stories are most of them selected to illustrate traits of character entirely dissimilar to their general reputation. What would you think of a moral writer of our own day, should he endeavor in a work of fiction, to set before us the gentle virtue of benevolence by the example of a Sepoy? And yet, Jesus Christ has given us one of the finest examples of charity in the case of a Samaritan. To the Jews, a Samaritan was as proverbial for his bitter animosity against their nation, as the Sepoy is among us for his treacherous cruelty, and as much an object of contempt and hatred; but Jesus Christ, nevertheless, chose his hero from the Samaritans, that there should be nothing adventitious to adorn him, but that all the adorning might be given to the grace of charity. Thus, too in the present instance, our Saviour, being desirous of setting before us the necessity of humiliation in prayer, has not selected some distinguished saint who was famed for his humility, but he has chosen a tax-gatherer, probably one of the most extortionate of his class, for the Pharisee seems to hint as much; and I doubt not he cast his eye askance at this publican, when he observed, with selfgratulation, "God, I thank thee, that I am not as other men are, extortioners, unjust, adulterers, or even as this publican." Still, our Lord, in order that we might see that there was nothing to predispose in the person, but that the acceptance of the prayer might stand out, set even in a brighter light by the black foil of the publican's character, has selected this man to be the pattern and model of one who should offer an acceptable prayer unto God. 
 
@@ -33,7 +33,7 @@ Note the next thing. "He would not lift up so much as his eyes unto heaven." Tha
 
 Note what else he did. He smote upon his breast. He was a good theologian he was a real doctor of divinity. What did he smite his breast for? Because he knew where the mischief lay--in his breast. He did not smite upon his brow as some men do when they are perplexed, as if the mistake were in their understanding. Many a man will blame his understanding, while he will not blame his heart, and say, "Well, I have made a mistake. I have certainly been doing wrong, but I am a good-hearted fellow at the bottom." This man knew where the mischief lay, and he smote the right place.
 
-> "Here on my heart the burden lies."
+> Here on my heart the burden lies.    
 
 He smote upon his breast as if he were angry with himself. He seemed to say, "Oh! that I could smite thee, my ungrateful heart, the harder, that thou hast loved sin rather than God."" He did not do penance, and yet it was a kind of penance upon himself when he smote his breast again and again, and cried "Alas! alas! woe is me that I should ever have sinned against my God"--"God be merciful to a sinner." Now, can you come to God like this, my dear friend? Oh, let us all draw near to God in this fashion. Thou hast enough, my brother, to make thee stand alone for there have been sins in which thou and I have stood each of us in solitary guilt. There are iniquities known only to ourselves, which we never told to the partner of our own bosom, not to our own parents or brothers, nor yet to the friend with whom we took sweet counsel. If we have sinned thus alone, let us go to our chambers, and confess alone, the husband apart, and the wife apart, the father apart, and the child apart. 
 
@@ -49,10 +49,10 @@ Having thus briefly described this confession, I come more briefly still to noti
 
 The other had nought of peace revealed to his heart, this poor man had all, and he went to his house justified. It does not say that he went to his house, having eased his mind; that is true, but more: he went to his house "justified." What does that mean? It so happens that the Greek word here used is the one which the apostle Paul always employs to set out the great doctrine of the righteousness of Jesus Christ--even the righteousness which is of God by faith. The fact is, that the moment the man prayed the prayer, every sin he had ever done was blotted out of God's book, so that it did not stand on the record against him; and more, the moment that prayer was heard in heaven, the man was reckoned to be a righteous man. All that Christ did for him was cast about his shoulders to be the robe of his beauty, that moment all the guilt that he had ever committed himself was washed entirely away and lost for ever. When a sinner believes in Christ, his sins positively cease to be, and what is more wonderful they all cease to be, as Kent says in those well known lines--
 
-> "Here's pardon for transgressions past,  
-> It matters not how black their cast,  
-> And, O my soul with wonder view  
-> For sins to come here's pardon too."  
+> Here's pardon for transgressions past,    
+> It matters not how black their cast,    
+> And, O my soul with wonder view    
+> For sins to come here's pardon too.    
 
 They are all swept away in one solitary instant; the crimes of many years; extortions, adulteries, or even murder, wiped away in an instant; for you will notice the absolution was instantaneously given. God did not say to the man--"Now you must go and perform some good works, and then I will give you absolution." He did not say as the Pope does, "Now you must swelter awhile in the fires of Purgatory, and then I will let you out." No, he justified him there and then; the pardon was given as soon as the sin was confessed. "Go, my son, in peace; I have not a charge against thee; thou art a sinner in thine own estimation, but thou art none in mine; I have taken all thy sins away, and cast them into the depth of the sea, and they shall be mentioned against thee no more for ever." Can you tell what a happy man the publican was, when all in a moment he was changed? If you may reverse the figure used by Milton, he seemed himself to have been a loathsome toad, but the touch of the Father's mercy made him rise to angelic brightness and delight; and he went out of that house with his eye upward, no longer afraid. Instead of the groan that was on his heart, he had a song upon his lip. He no longer walked alone, he sought out the godly and he said, "Come and hear, ye that fear God, and I will tell you what he has done for my soul." He did not smite upon his breast, but he went home to get down his harp, and play upon the strings, and praise his God. You would not have known that he was the same man, if you had seen him going out, and all that was done in a minute. 
 
@@ -62,18 +62,18 @@ Oh, what a marvellous thing, it from the thousands of hearts here present, so ma
 
 "But," says one, "I have no redeeming trait in my character at all." I am glad you think so; still you may use the prayer, "God be merciful to me." "But it will be a useless prayer," says one. My brother, I assure thee not in my own name, but in the name of God, my Father and your Father, it shall not be a useless prayer. As sure as God is God, him that cometh unto Christ he will in no wise cast out. Come with me now, I beseech thee; tarry no longer; the bowels of God are yearning over thee. Thou art his child, and he will not give thee up. Thou hast run from him these many years, but he has never forgotten thee; thou hast resisted all his warnings until now, and he is almost weary, but still he has said concerning thee, "How shall I make thee as Admah; how shall I set thee as Zeboim? Mine heart is turned within me, my repentings are kindled together."
 
-> "Come humbled sinner, in whose breast  
-> A thousand thoughts revolve;  
-> Come with thy guilt and fear oppressed,  
-> And make this last resolve:  
-> I'll go to Jesus; though my sin  
-> Hath like a mountain rose,  
-> I know his courts; I'll enter in,  
-> Whatever may oppose.  
-> Prostrate I'll lie before his face,  
-> And there my sins confess;  
-> I'll tell him I'm a wretch undone,  
-> Without his sov'reign grace."  
+> Come humbled sinner, in whose breast    
+> A thousand thoughts revolve;    
+> Come with thy guilt and fear oppressed,    
+> And make this last resolve:    
+> I'll go to Jesus; though my sin    
+> Hath like a mountain rose,    
+> I know his courts; I'll enter in,    
+> Whatever may oppose.    
+> Prostrate I'll lie before his face,    
+> And there my sins confess;    
+> I'll tell him I'm a wretch undone,    
+> Without his sov'reign grace.    
 
 Go home to your houses: let everyone--preacher, deacon, people, ye of the church, and ye of the world, everyone of you, go home, and ere you feast your bodies, pour out your hearts before God, and let this one cry go up from all our lips, "God be merciful to me a sinner."
 
@@ -83,10 +83,10 @@ I must detain you a few moments. Let us use this prayer as our own now. Oh that 
 
 Let us pray,
 
-> "GOD-BE-MERCIFUL-TO-ME-A-SINNER."
+> GOD-BE-MERCIFUL-TO-ME-A-SINNER.    
 
 [And the people did with deep solemnity say] 
 
-> "AMEN."
+> AMEN.    
 
 P.S.--The preacher hopes that he who reads will feel constrained most solemnly to do likewise.

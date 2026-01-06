@@ -2,8 +2,8 @@
 
 Sermon No. 53 - Delivered on Sabbath Morning, November 11, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "He healeth the broken in heart, and bindeth up their wounds."  
-> Psalm 147:3.  
+> He healeth the broken in heart, and bindeth up their wounds.    
+> Psalm 147:3.    
 
 The next verse finely declares the power of God. "He telleth the number of the stars; he calleth them by their names." Perhaps there is nothing which gives us a nobler view of the greatness of God than a contemplation of the starry heavens. When by night we lift up our eyes and behold him who hath created all these things; when we remember that he bringeth out their host by number, calleth them all by their names, and that by the greatness of his power not one falleth, then indeed we adore a mighty God, and our soul naturally falls prostrate in reverential awe before the throne of him who leads the host of heaven, and marshals the stars in their armies. But the Psalmist has here placed another fact side by side with this wondrous act of God; he declares that the same God who leadeth the stars, who telleth the number of them, and calleth them by their names, healeth the broken in heart and bindeth up their wounds. The next time you rise to some idea of God, by viewing the starry floor of his magnificent temple above, strive to compel your contemplation to this thought, that the same mighty hand which rolls the stars along, puts liniments around the wounded heart; that the same being who spoke worlds into existence, and now impels those ponderous globes through their orbits, does in his mercy cheer the wounded, and heal the broken in heart.
 
@@ -45,10 +45,10 @@ Again, when a man has a broken heart, he not only feels sorrow for sin, but he f
 
 Need I give any other description of the character I desire to comfort. I trust you are discovered. Oh! my poor brother, I grieve to see thee in distress, but there is pardon through Jesus--there is forgiveness even for thee. What though your sins lie like a millstone on your shoulder, they shall not sink you down to hell. Arise! He, my gracious Lord, calleth thee. Throw thyself at his feet, and lose thy griefs in his loving and cheering words. Thou art saved if thou canst say,
 
-> "A guilty, weak, and helpless worm,  
-> On Christ's kind arms I fall;  
-> He is my strength and righteousness,  
-> My Jesus, and my all."  
+> A guilty, weak, and helpless worm,    
+> On Christ's kind arms I fall;    
+> He is my strength and righteousness,    
+> My Jesus, and my all.    
 
 We have spoken a long time on the great ill of a broken heart; our second thought will be the GREAT MERCY--"He healeth the broken in heart."
 
@@ -62,7 +62,7 @@ In vain your presumption when God shall come to examine you; you will not pass m
 
 But next, God will do it. That is a sweet thought. "He healeth the broken in heart;" he WILL do it. Nobody else can; nobody else may; but he WILL. Is thy heart broken? He WILL heal it; he is sure to heal it; for it is written--and it can never be altered, for what was true three thousand years ago, is true now--"he healeth the broken in heart." Did Saul of Tarsus rejoice after three days of blindness? Yes, and you shall be delivered also. O, it is a theme for eternal gratitude, that the same God who in his loftiness and omnipotence stooped down in olden times to soothe, cherish, relieve, and bless the mourner, is even now taking his journeys of mercy among the penitent sons of men. O, I beseech him to come where thou art sitting, and put his hand inside thy soul, and if he finds there a broken heart to bind it up. Poor sinner, breathe thy wish to him; let thy sigh come before him, for "he healeth the broken in heart." There thou liest wounded on the plain. "Is there no physician?" thou criest; "is there none?" Around thee lie thy fellow-sufferers, but they are helpless as thyself. Thy mournful cry cometh back without an answer, and space alone hears thy groan. Ah! the battle-field of sin has one kind visitor; it is not abandoned to the vultures of remorse and despair. I hear footsteps approaching; they are the gentle footsteps of Jehovah. In his hands there are no thunders, in his eyes no anger, on his lips no threatening. See how he bows himself over the mangled heart! Hear how he speaks! "Come, now, and let us reason together," saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool." And if the patient dreads to look in the face of the mighty being who addresses him, the same loving mouth whispers, "I, even I, am he that blotteth out thy transgressions, for my names sake." See how he washes every wound with sacred water from the side of Jesus; mark how he spreads the ointment of forgiving grace, and binds around each wound the fair white linen, which is the righteousness of saints. Doth the mourner faint under the operation? he puts a cordial to his lips, exclaiming, "I have loved thee with an everlasting love." Yes, it is true--most true--neither dream nor fiction, 
 
-> "HE HEALETH THE BROKEN IN HEART, AND BINDETH UP THEIR WOUNDS."  
+> HE HEALETH THE BROKEN IN HEART, AND BINDETH UP THEIR WOUNDS.    
 
 How condescending is the Lord of heaven, thus to visit poor forlorn man. The queen has kindly visited the hospitals of our soldiers to cheer, by her royal words, her loyal defenders, by this she has done herself honor, and her soldiers love her for it. But when the God of the whole earth, the infinite Creator, stoops to become a servant to his own creatures, can you conceive the majestic condescension which bows itself in mercy over the miserable heart, and with loving finger closes the gaping wounds of the spirit. Oh, sin-sick sinner! the King of heaven will not despise thee, but thou too shalt find him thy Comforter, who healeth all thy diseases. Mark, moreover, how tenderly he does it. You remember that passage in the Psalms: "Loving kindness and tender mercies." God's mercies are "tender mercies;" when he undertakes to bind up the broken in heart, he always uses the softest liniment. He is not like your army surgeon, who hurries along and says "A leg off here, an arm off there;" but he comes gently and sympathizingly. He does not use roughness with us; but with downy fingers he putteth the wound together, and layeth the plaster on; yea, he doth it in such a soft and winning way, that we are full of wonder to think he could be so kind to such unworthy ones.
 
@@ -72,20 +72,20 @@ And now, my hearers and readers, a parting word with you. Are you careless and u
 
 But I am seeking the distressed one, and I am impatient to be the means of his comfort. It may be my words are now sounding in the ear of my weary wounded fellow-countrymen. You have been long time tossing on the bed of languishing, and the time for thought had been blessed to your soul by God. You are now feeling the guilt of your life, and are lamenting the sins of your conduct. You fear there is no hope of pardon, no prospect of forgiveness, and you tremble lest death should lead your guilty soul unforgiven before its Maker. Hear, then, the word of God. Thy pains for sins are God's work in thy soul. He woundeth thee that thou mayest seek him. He would not have showed thee thy sin if he did not intend to pardon. Thou art now a sinner, and Jesus came to save sinners, therefore he came to save thee; yea, he is saving thee now. These strivings of soul are the work of his mercy; there is love in every blow, and grace in every stripe. Believe, O troubled one, that he is able to save thee unto the uttermost, and thou shalt not believe in vain. Now, in the silence of your agony, look unto him who by his stripes healeth thee. Jesus Christ has suffered the penalty of thy sins, and has endured the wrath of God on thy behalf. See you, yonder crucified Man on Calvary, and mark thee that those drops of blood are falling for thee, those nailed hands are pierced for thee, and that opened side contains a heart within it, full of love to thee.
 
-> "None but Jesus! none but Jesus  
-> Can do helpless sinners good!"  
+> None but Jesus! none but Jesus    
+> Can do helpless sinners good!    
 
 It is simple reliance on him which saves. The negro said, "Massa, I fall flat on de promise;" so if you fall flat on the promise of Jesus, you shall not find him fail you; he will bind up your heart, and make an end to the days of your mourning. We shall meet in heaven one day, to sing hallelujah to the condescending Lord; till then, may the God of all grace be our helper. Amen.
 
-> "The mighty God will not despise  
-> The contrite heart for sacrifice;  
-> The deep-fetched sigh, the secret groan,  
-> Rises accepted to the throne.  
-> He meets, with tokens of his grace,  
-> The trembling lip, the blushing face;  
-> His bowels yearn when sinners pray;  
-> And mercy bears their sins away.  
-> When filled with grief, o'erwhelmed with shame;  
-> He, pitying, heals their broken frame;  
-> He hears their sad complaints, and spies  
-> His image in their weeping eyes."  
+> The mighty God will not despise    
+> The contrite heart for sacrifice;    
+> The deep-fetched sigh, the secret groan,    
+> Rises accepted to the throne.    
+> He meets, with tokens of his grace,    
+> The trembling lip, the blushing face;    
+> His bowels yearn when sinners pray;    
+> And mercy bears their sins away.    
+> When filled with grief, o'erwhelmed with shame;    
+> He, pitying, heals their broken frame;    
+> He hears their sad complaints, and spies    
+> His image in their weeping eyes.    

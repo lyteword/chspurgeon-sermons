@@ -2,8 +2,8 @@
 
 Sermon No. 237 - Delivered on Sabbath Morning, February 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Beware ye of the leaven of the Pharisees, which is hypocrisy."  
-> Luke 12:1.
+> Beware ye of the leaven of the Pharisees, which is hypocrisy.    
+> Luke 12:1.    
 
 This age is full of shams. Pretence never stood in so eminent a position as it does at the present hour. There be few, I fear, who love the naked truth; we can scarce endure it in our houses; you would scarcely trade with a man who absolutely stated it. If you walked through the streets of London, you might imagine that all the shops were built of marble, and that all the doors were made of mahogany and woods of the rarest kinds; and yet you soon discover that there is scarce a piece of any of these precious fabrics to be found anywhere, but that everything is grained, and painted, and varnished. I find no fault with this, except as it is an outward type of an inward evil that exists. As it is in our streets, so is it everywhere; graining, painting, and gilding, are at an enormous premium. Counterfeit has at length attained to such an eminence that it is with the utmost difficulty that you can detect it. The counterfeit so near approacheth to the genuine, that the eye of wisdom itself needs to be enlightened before she can discern the difference. Specially is this the case in religious matters. 
 
@@ -11,8 +11,8 @@ There was once an age of intolerant bigotry, when every man was weighed in the b
 
 I am sure that every true child of God will stand at times in doubt of himself, and his fear will probably take the shape of a suspicion concerning his own state.
 
-> He that never doubted of his state,  
-> He may--perhaps he may--too late.  
+> He that never doubted of his state,    
+> He may--perhaps he may--too late.    
 
 The Christian, however, does not belong to that class. He will at times begin to be terribly alarmed, lest, after all, his godliness should be but seeming, and his profession an empty vanity. He who is true will sometimes suspect himself of falsehood, while he who is false will wrap himself up in a constant confidence of his own sincerity. My dear Christian brethren, if you are at this time in doubt concerning yourselves, the truths to utter will, perhaps, help you in searching your own heart and trying your own reins, and sure I am you will not blame me if I should seem to be severe, but you will rather say, "Sir, I desire to make sure work concerning my own soul, tell me faithfully and tell me honestly what are the signs of a hypocrite, and I will sit down and try to read my own heart, to discover whether these things have a bearing upon me, and happy shall I be if I shall come out of the fire like pure gold."
 

@@ -2,8 +2,8 @@
 
 Sermon No. 132 - Delivered on Sabbath Morning, May 17, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Christ the power of God, and the wisdom of God."  
-> 1 Corinthians 1:24.  
+> Christ the power of God, and the wisdom of God.    
+> 1 Corinthians 1:24.    
 
 UNBELIEF toward the gospel of Christ is the most unreasonable thing in all the world, because the reason which the unbeliever gives for his unbelief is fairly met by the character and constitution of the gospel of Christ. Notice that before this verse we read--"The Jews required a sign, the Greeks seek after wisdom." If you met the Jew who believed not on Christ in the apostle's day, he said, "I can not believe, because I want a sign;" and if you met the Greek, he said, "I can not believe, because I want a philosophic system, one that is full of wisdom." "Now," says the apostle, "both these objections are untenable and unreasonable. If you suppose that the Jew requires a sign, that sign is given him: Christ is the power of God. The miracles that Christ wrought upon earth were signs more than sufficiently abundant; and if the Jewish people had but the will to believe, they would have found abundant signs and reasons for believing in the personal acts of Christ and his apostles." And let the Greeks say, "I can not believe, because I require a wise system: O Greek, Christ is the wisdom of God. If thou wouldst but investigate the subject, thou wouldst find in it profoundness of wisdom--a depth where the most gigantic intellect might be drowned. It is no shallow gospel, but a deep, and a great deep too, a deep which passeth understanding. Thine objection is ill-founded; for Christ is the wisdom of God, and his gospel is the highest of all sciences. If thou wishest to find wisdom, thou must find it in the word of revelation."
 
@@ -15,8 +15,8 @@ But when he came to earth, took upon himself the fashion of a man, tabernacled i
 
 That he is the power of God now, Scripture very positively affirmeth; for it is written, "he sitteth at the right hand of God." He hath the reins of Providence gathered in his hands; the fleet coursers of Time are driven by him who sits in the chariot of the world, and bids its wheels run round; and he shall bid them stay when it shall please him. He is the great umpire of all disputes, the great Sovereign Head of the church, the Lord of heaven, and death, and hell; and by-and-by we shall know that he shall come,
 
-> "On fiery clouds and wings of wind,  
-> Appointed Judge of all mankind;"  
+> On fiery clouds and wings of wind,    
+> Appointed Judge of all mankind;    
 
 and then the quickened dead, the startled myriads, the divided firmaments, the "Depart, ye cursed," and the "Come, ye blessed," shall proclaim him to be the power of God, who hath power over all flesh, to save or to condemn, as it pleaseth him.
 

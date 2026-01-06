@@ -2,8 +2,8 @@
 
 Sermon No. 185 - Delivered on Sabbath Morning, March 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "The Lord hath made bare his holy arm in the eyes of all the nations; and all the ends of the earth shall see the salvation of our God."  
-> Isaiah 52:10.  
+> The Lord hath made bare his holy arm in the eyes of all the nations; and all the ends of the earth shall see the salvation of our God.    
+> Isaiah 52:10.    
 
 WHEN THE HEROES of old prepared for the fight they put on their armour; but when God prepares for battle he makes bare his arm. Man has to look two ways--to his own defence, as well as to the offence of his enemy; God hath but one direction in which to cast his eye--the overthrow of his foeman, and he disregards all measures of defence, and scorns all armour. He makes bare his arm in the sight of all the people. When men would do their work in earnest, too, they sometimes strip themselves, like that warrior of old, who, when he went to battle with the Turks, would never fight them except with the bare arm. "Such things as they," said he, "I need not fear; they have more reason to fear my bare arm than I their scimitar." Men feel that they are prepared for a work when they have cast away their cumbrous garments. And so the prophet represents the Lord as laying aside for awhile the garments of his dignity, and making bare his arm, that he may do his work in earnest, and accomplish his purpose for the establishment of his church.
 
@@ -45,10 +45,10 @@ But, blessed be God, it does not end here. The revival of the church then touche
 
 I thank God, that we, as a people, have had great cause to thank him that we had great measure of revival of this kind, but nothing compared with what we desire. I have heard of revivals, where twenties, and thirties, and forties, and fifties, were gathered in; but, tell it to the honour of our God, there is never a month passes, but our baptismal pool is opened, and never a communion Sabbath, but we receive many into the fold of the Lord. As many as three hundred in one year have we added to the church, and still the cry is, "They come! they come!" and were but our new sanctuary built, I am persuaded, that in six months from its erection, instead of having twelve hundred members, I should be the pastor of at least two thousand. For I believe there are many of you who attend this hall in the morning, who find it quite impossible to crowd into the chapel in the evening, and are only waiting and anxious, that you may tell to me and to the brethren, what God has done for your souls. This I know, the Lord hath been very gracious to us, and to him be the honour of it. But we want more. Our souls are greedy--covetous for God. Oh! that we might be all converted!
 
-> "We long to see the churches full,  
-> That all the chosen race,  
-> May with one voice, and heart, and tongue,  
-> Sing his redeeming grace."  
+> We long to see the churches full,    
+> That all the chosen race,    
+> May with one voice, and heart, and tongue,    
+> Sing his redeeming grace.    
 
 And we have to thank God, too, that it has not ended there; for we had last Sabbath evening, Exeter Hall full, Westminster Abbey full, and this place full too; and though we may not altogether agree in sentiment with all that preach, yet God bless them all! So long as Christ is preached, I rejoice, yea, and will rejoice; and I would to God that every large building in London were crowded too, and that every man who preached the Word were followed by tens of thousands, who would hear the truth. May that day soon come! and there is one heart which will rejoice in such a day more than any of you--a heart that shall always beat the highest when it sees God glorified, though our own honour should decrease.
 
@@ -70,8 +70,8 @@ You are a skid upon the wheels of the church. It cannot move for you. If we woul
 
 Having thus spoken to those who hinder, I want to speak to you who love Jesus with all your hearts, and want to promote it. Dear friends, I beseech you remember that men are dying around you by thousands. Will you let your eye follow them into the world of shades? Myriads of them die without God, without Christ, without hope. My brother, does not their fearful fate awake your sympathy. You believe, from Scriptural warrant, that those who die without faith go to that place where "their worm dieth not and their fire is not quenched." Believing this, is not your soul stirred within you in pity for their fate? Look around you to-day. You see a vast host gathered together, professedly for the service of God. You know also how many there are here who fear him not, but are strangers to themselves and strangers to the cross. What! Do you know yourself what a solemn thing it is to be under the curse, and will you not pray and labour for those around you that are under the curse to-day? Remember your Master's cross. He died for sinners; will not you weep for them?
 
-> "Did Christ o'er sinners weep;  
-> And shall your cheek be dry?"  
+> Did Christ o'er sinners weep;    
+> And shall your cheek be dry?    
 
 Did he give his whole life for them, and will not you stir up your life to wrestle with God, that his purposes may be accomplished on their behalf? You have unconverted children--do you not want them saved? You have brothers, husbands, wives, fathers, that are this day in the gall of bitterness, and in the bonds of iniquity; do you not want a revival, even if it were only for their sakes? Behold, how much of robbery, of murder, of crime, stains this poor land. Do you not want a revival of religion, if it were merely for quenching the flames of crime? See how God's name every day is blasphemed. Mark how, this day, trades are carried on, as if it were man's day, and not God's. Mark how multitudes are going the downward course, merry on their way to destruction. Do you not feel for them? Are your hearts hard and stolid? Has your soul become steeled? Has it become frozen like an iceberg? O sun of righteousness arise, and melt the icy heart, and make us all feel how fearful it is for immortal souls to perish; for men to be hurried into eternity without God, and without hope. Oh, will you not now, from this time forth, begin to pray that God may send forth his Word and save them, that his own name may be glorified?
 

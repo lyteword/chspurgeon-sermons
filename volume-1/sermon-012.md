@@ -2,8 +2,8 @@
 
 Sermon No. 12 - Delivered on Sabbath Morning, March 4, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "For so he giveth his beloved sleep."  
-> Psalm 127:2.  
+> For so he giveth his beloved sleep.    
+> Psalm 127:2.    
 
 The sleep of the body is the gift of God. So said Homer of old, when he described it as descending from the clouds and resting on the tents of the warriors around old Troy. And so sang Virgil, when he spoke of Palinurus falling asleep upon the prow of his ship. Sleep is the gift of God. We think that we lay our heads upon our pillows, and compose our bodies in a peaceful posture, and that, therefore we naturally and necessarily sleep. But it is not so. Sleep is the gift of God; and not a man would close his eyes, did not God put his fingers on his eyelids; did not the Almighty send a soft and balmy influence over his frame which lulled his thoughts into quiescence, making him enter into that blissful state of rest which we call sleep. True, there be some drugs and narcotics whereby men can poison themselves well nigh to death, and then call it sleep; but the sleep of the healthy body is the gift of God. He bestows it; he rocks the cradle for us every night; he draws the curtain of darkness; he bids the sun shut up his burning eyes; and then he comes and says, "Sleep, sleep, my child; I give thee sleep." Have you not known what it is at times to lie upon your bed and strive to slumber? and as it is said of Darius, so might it be said of you: "The king sent for his musicians, but his sleep went from him." You have attempted it, but you could not do it; it is beyond your power to procure a healthy repose. You imagine if you fix your mind upon a certain subject until it shall engross your attention, you will then sleep; but you find yourself unable to do so. Ten thousand things drive through your brain as if the whole earth were agitated before you. You see all things you ever beheld dancing in a wild phantasmagoria before your eyes. You close your eyes, but still you see; and there be things in your ear, and head, and brain, which will not let you sleep. It is God alone, who alike seals up the sea boy's eyes upon the giddy mast, and gives the monarch rest: for with all appliances and means to boot, he could not rest without the aid of God. It is God who steeps the mind in lethe, and bids us slumber, that our bodies may be refreshed, so that for tomorrow's toil we may rise recruited and strengthened. O my friends, how thankful should we be for sleep. Sleep is the best physician that I know of. Sleep hath healed more pains of wearied bones than the most eminent physicians upon earth. It is the best medicine; the choicest thing of all the names which are written in all the lists of pharmacy. There is nothing like to sleep! What a mercy it is that it belongs alike to all! God does not make sleep the boon of the rich man, he does not give it merely to the noble, or the rich, so that they can keep it as a peculiar luxury for themselves; but he bestows it upon all. Yea, if there be a difference, the sleep of the labouring man is sweet, whether he eat little or much. He who toils, sleeps all the sounder for his toil. While luxurious effeminacy cannot rest, tossing itself from side to side upon a bed of eider down, the hard-working labourer, with his strong and powerful limbs, worn out and tired, throws himself upon his hard couch and sleeps: and waking, thanks God that he has been refreshed. Ye know not, my friends, how much ye owe to God, that he gives you rest at night. If ye had sleepless nights, ye would then value the blessing. If for weeks ye lay tossing on your weary bed, ye then would thank God for this favour. But as it is the gift of God, it is a gift most precious, one that cannot be valued until it is taken away; yea, even then we cannot appreciate it as we ought.
 
@@ -21,9 +21,9 @@ But, now-a-days, we do not have such sleeps as these. Many persons dream very wo
 
 He gives his beloved, in the second place, the sleep of a quiet conscience. I think most of you saw that splendid picture, in the Exhibition of the Royal Academy--the Sleep of Argyle--where he lay slumbering on the very morning before his execution. You saw some noblemen standing there, looking at him, almost with compunction; the jailer is there, with his keys rattling; but positively the man sleeps, though tomorrow morning his head shall be severed from his body, and a man shall hold it up, and say, "This was the head of a traitor." He slept because he had a quiet conscience: for he had done no wrong. Then look at Peter. Did you ever notice that remarkable passage, where it is said that Herod intended to bring out Peter on the morrow; but, behold, as Peter was sleeping between two guards, the angel smote him? Sleeping between two guards, when on the morrow he was to be crucified or slain! He cared not, for his heart was clear; he had committed no ill. He could say, "If it be right to serve God or man, judge ye;" and, therefore, he laid him down and slept. O sirs! do ye know what the sleep of a quiet conscience is? Have you ever stood out and been the butt of calumny--pelted by all men; the object of scorn--the laugh, the song of drunkards? And have ye known what it is, after all, to sleep, as if you cared for nothing, because your heart was pure? Ah! ye who are in debt--ah! ye who are dishonest--ah! ye who love not God, and love not Christ--I wonder ye can sleep, for sin doth put pricking thorns in the pillow. Sin puts a dagger in a man's bed, so that whichever way he turns it pricks him. But a quiet conscience is the sweetest music that can lull the soul to sleep. The demon of restlessness does not come to that man's bed who has a quiet conscience--a conscience right with God--who can sing--
 
-> "With the world, myself, and thee,  
-> I, ere I sleep, at peace shall be.  
-> So he giveth his beloved sleep."  
+> With the world, myself, and thee,    
+> I, ere I sleep, at peace shall be.    
+> So he giveth his beloved sleep.    
 
 But let me tell you who have no knowledge of your election in Christ Jesus, no trust in the ransom of a Saviour's blood--you, who have never been called by the Holy Ghost--you, who were never regenerated and born again--let me tell you that you do not know this slumber. You may say your conscience is quiet; you may say, you do no man any wrong, and that you believe at the bar of God you shall have little to account for. But, sirs, you know that the soul that sinneth, if it sins but once, must die. If the picture has a single flaw, it is not a perfect one. If ye have sinned but once, ye shall be damned for it, unless ye have something to take away that one sin. Ye do not know this sleep, but the Christian does, for all his sins were numbered on the "scape-goat's head of old." Christ has died for all his sins however great or enormous; and there is not now a sin written against him in the Book of God. "I, even I," says God, "am he that blotteth out thy transgressions for my name's sake, and I will not remember thy sins." Now thou mayest sleep; for "so he giveth his beloved sleep."
 
@@ -83,45 +83,45 @@ As pleased when shipwrecked, as when safe on shore.
 
 It is a happy condition to attain. "So he giveth his beloved sleep." Ah! if you have a self-will in your hearts, pray to God to uproot it. Have you self-love? Beseech the Holy Spirit to turn it out; for if you will always will to do as God wills, you must be happy. I have heard of some good old woman in a cottage, who had nothing but a piece of bread and a little wafer, and lifting up her hands, she said, as a blessing, "What! all this, and Christ too?" It is "all this," compared with what we deserve. And I have read of some one dying, who was asked if he wished to live or die; and he said, "I have no wish at all about it." "But if you might wish, which would you choose?" "I would not choose at all." "But if God bade you choose?" "I would beg God to choose for me, for I should not know which to take." Happy state! happy state! to be perfectly acquiescent--
 
-> "To lie passive in his hand,  
-> And to know no will but his.  
-> So he giveth his beloved sleep."  
+> To lie passive in his hand,    
+> And to know no will but his.    
+> So he giveth his beloved sleep.    
 
 In the fifth place: there is the sleep of security. Solomon slept with his armed men round his bed, and thus slumbered securely; but Solomon's father slept one night on the bare ground--not in a palace--with no moat round his castle wall,--but he slept quite as safely as his son, for he said, "I laid me down and slept, and I awaked, for the Lord sustained me." Now, some persons never feel secure in this world at all; I query whether one half of my hearers feel themselves so. Suppose I burst out in a moment, and sing this--
 
-> "I to the end shall endure,  
-> As sure as the earnest is given;  
-> More happy, but not more secure,  
-> Are the glorified spirits in heaven."  
+> I to the end shall endure,    
+> As sure as the earnest is given;    
+> More happy, but not more secure,    
+> Are the glorified spirits in heaven.    
 
 You would say, that is too high doctrine; and I would reply, very likely it is for you, but it is the truth of God, and it is sweet doctrine for me. I love to know, that if I am predestinated according to the foreknowledge of God the Father, I must be saved; if I was purchased by the Son's blood, I cannot be lost, for it would be impossible for Jesus Christ to lose one whom he has redeemed, otherwise he would be dissatisfied with his labours. I know that where he has begun the good work he will carry it on. I never fear that I shall fall away, or be lost; my only fear is, lest I should not have been right at first; but, provided I am right, if I be really a child of God, I might believe that the sun would be smitten with madness, and go reeling through the universe like a drunken man--I might believe that the stars would urn form their courses, and instead of marching with their measured tramp, as now they do, whirl on in wild courses like the dance of Bacchanals--I could even conceive that this great universe might all subside in God, "even as a moment's foam subsides again upon the wave that bears it;" but neither reason, heresy, logic, eloquence, nor a conclave of divines, shall make me pay a moment' attention to the vile suggestion that a child of God may ever perish. Hence I tread this earth with confidence. Arguing a little while ago with an Arminian, he said, "Sir, you ought to be a happy man; for if what you say be true, why you are as secure of being in heaven as if you were there." I said, "Yes, I know it." "Then you ought to live above cares and tribulations, and sing happily from morning to night." I said, "So I ought, and so I will, God helping me." This is security. "He giveth his beloved sleep." To know that if I died I should enter heaven--to be as sure as I am of my own existence that God, having loved me with an everlasting love, and he being immutable, will never hate me if he has once loved me--to know that I must enter the kingdom of glory--is not this enough to make all burdens light, and give me the hind's feet wherewith I may stand upon my high places. Happy state of security! "So he giveth his beloved sleep."
 
 And there is a sleep, my dear friends, of security, which is enjoyed on earth even in the midst of the greatest troubles. Do you remember that passage in the book of Ezekiel, where it is said, "They shall dwell securely in the wilderness and sleep in the woods?" A queer place to sleep in! "In the woods." There is a wolf over yonder; there is a tiger in the jungle; and eagle is soaring in the air; a horde of robbers dwell in the dark forest. "Never mind," says the child of God:
 
-> "He that hath made his refuge God,  
-> Shall find a most secure abode;  
-> Shall walk all day beneath his shade,  
-> And there at night shall rest his head."  
+> He that hath made his refuge God,    
+> Shall find a most secure abode;    
+> Shall walk all day beneath his shade,    
+> And there at night shall rest his head.    
 
 I have often admired Martin Luther, and wondered at his composure. When all men spoke so ill of him, what did he say? Turn to that Psalm--"God is our refuge and strength, a very present help in time of trouble; therefore we will not fear, though the earth be removed, and though the mountains be carried into the midst of the sea." In a far inferior manner, I have been called to stand up in the position of Martin Luther, and have been made the butt of slander, a mark for laughter and scorn; but it has not broken my spirit yet; not will it, while I am enabled to enjoy that quiescent state of--"So he giveth his beloved sleep." But thus far I beg to inform all those who choose to slander or speak ill of me, that they are very welcome to do so till they are tired of it. my motto is cedo nulli--I yield to none. I have not courted any man's love; I asked no man to attend my ministry; I preach what I like, and when I like, and as I like. Oh! happy state--to be bold, though downcast, and distressed--to go and bend my knee and tell my Father all, and then to come down from my chamber, and say--
 
-> "If on my face, for thy dear name,  
-> Shame and reproach shall be;  
-> I'll hail reproach, and welcome shame,  
-> For thou'lt remember me."  
+> If on my face, for thy dear name,    
+> Shame and reproach shall be;    
+> I'll hail reproach, and welcome shame,    
+> For thou'lt remember me.    
 
 The last sleep God giveth his beloved is the sleep of a happy dismission. I have stood by the graves of many servants of the Lord. I have buried some of the excellent of the earth; and when I bid farewell to my brother down below there slumbering in his coffin, I usually commence my speech with those words, "So he giveth his beloved sleep." Dear servants of Jesus! There I see them! What can I say of them, but that "so he giveth his beloved sleep?" Oh! happy sleep! This world is a state of tossing to and fro; but in that grave they rest. No sorrows there; no sighs, no groans, to mingle with the songs that warble from immortal tongues. Well may I address the dead thus:--"My brother, oftentimes hast thou fought the battles of this world; thou hast had thy cares, thy trials, and thy troubles; but now thou art gone--not to worlds unknown, but to yonder land of light and glory. Sleep on, brother! Thy soul sleepeth not, for thou art in heaven; but thy body sleepeth. Death hath laid thee in thy last couch; it may be cold, but it is sanctified; it may be damp, but it is safe; and on the resurrection morning, when the archangel shall set his trumpet to his mouth, thou shalt rise. Blessed are they dead that die in the Lord: yea, saith the Spirit, for they rest from their labours, and their works do follow them.' Sleep on in thy grave, my brother, for thou shalt rise to glory." "So he giveth his beloved sleep."
 
 Some of you fear to die, and have good reason to do so, for death for you would be the beginning of sorrows; and on its approach ye might hear the voice of the angel of the Apocalypse: "One woe is past, but behold two woes more are to come." If, sirs, ye were to die unprepared, and unconverted, and unsaved, "There remaineth nothing but a fearful looking for of judgment and fiery indignation." I need not speak like a Boanerges, for it is to you a well known truth, that without God, without Christ, "strangers from the commonwealth of Israel," your portion must be amongst the damned--the fiends--the tortured--the shrieking ghosts--the wandering souls who find no rest--
 
-> "On waves of burning brimstone toss'd,  
-> For ever, O for ever lost!  
-> 'The wrath to come!' 'The wrath to come!' 'The wrath to come!'  
-> But beloved Christian brother, wherefore dost thou fear to die? Come let me take thy hand:  
-> To you and me by grace tis given,  
-> To know the Saviour's precious name;  
-> And shortly we shall meet in heaven,  
-> Our end, our hope, our way the same."  
+> On waves of burning brimstone toss'd,    
+> For ever, O for ever lost!    
+> 'The wrath to come!' 'The wrath to come!' 'The wrath to come!'    
+> But beloved Christian brother, wherefore dost thou fear to die? Come let me take thy hand:    
+> To you and me by grace tis given,    
+> To know the Saviour's precious name;    
+> And shortly we shall meet in heaven,    
+> Our end, our hope, our way the same.    
 
 Do you know that heaven is just across that narrow stream? Are you afraid to plunge in and swim across? Do you fear to be drowned? I feel the bottom--it is good. Dost thou think thou shalt sink? Hear the voice of the Spirit: "Fear not, I am with thee; be not dismayed, I am thy God: when thou passest through the river, I will be with thee, and the floods shall not overflow thee." Death is the gate of endless joys, and dost thou dread to enter there? What! fear to be emancipated from corruption? Oh! say not so! but rather, gladly lay down and sleep in Jesus, and be blessed.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 212 - Delivered on Sabbath Morning, September 5, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "A new heart also will I give you, and a new spirit will I put within you, and I will take away the stony heart out of your flesh, and I will give you an heart of flesh."  
-> Ezekiel 36:26.  
+> A new heart also will I give you, and a new spirit will I put within you, and I will take away the stony heart out of your flesh, and I will give you an heart of flesh.    
+> Ezekiel 36:26.    
 
 BEHOLD A WONDER of divine love. When God maketh his creatures, one creation he regardeth as sufficient, and should they lapse from the condition in which he has created them, he suffers them, as a rule, to endure the penalty of their transgression, and to abide in the place into which they are fallen. But here he makes an exception; man, fallen man, created by his Maker, pure and holy, hath wilfully and wickedly rebelled against the Most High, and lost his first estate, but behold, he is to be the subject of a new creation through the power of God's Holy Spirit. Behold this and wonder! What is man compared with an angel? Is he not little and insignificant? "And the angels which kept not their first estate, but left their own habitation, he hath reserved in everlasting chains under darkness unto the judgment of the great day." God hath no mercy upon them; he made them pure and holy, and they ought to have remained his, but inasmuch as they wilfully rebelled, he cast them down from their shining seats for ever; and without a single promise of mercy, he hath bound them fast in the fetters of destiny, to abide in eternal torment. But wonder, ye heavens, the God who destroyed the angels stoops from his highest throne in glory, and speaks to his creature man, and thus saith unto him, "Now, thou hast fallen from me even as the angels did; thou hast grossly erred, and gone astray from my ways--not for thy sake do I this, but for mine own name's sake--behold I will undo the mischief which thine own hand hath done; I will take away that heart which has rebelled against me. 
 
@@ -19,10 +19,10 @@ Now I shall endeavor to show that God is justified in this, and that there was a
 
 Consider, then, for a moment how bad human nature must be if we think how ill it has treated its God. I remember William Huntingdon says in his autobiography, that one of the sharpest sensations of pain that he felt after he had been quickened by divine grace was this, "He felt such pity for God." I do not know that I ever met with the expression elsewhere, but it is a very expressive one; although I might prefer to say sympathy with God and grief that he should be so evil entreated. Ah, my friends, there are many men that are forgotten, that are despised, and that are trampled on by their fellows; but there never was a man who was so despised as the everlasting God has been. Many a man has been slandered and abused, but never was man abused as God has been. Many have been treated cruelly and ungratefully, but never one was treated as our God has been. Let us look back upon our past 1ives--how ungrateful have we been to him! It was he who gave us beings and the first utterance of our lips should have been in his praise; and so long as we were here, it was our duty to have perpetually sung his glory; but Instead of that, from our birth we spoke that which was false and untrue, and unholy; and since then we have continued to do the same. We have never returned his mercies into his bosom with gratitude and thankfulness; but we have let them lie forgotten without a single hallelujah, from our carelessness concerning the Most High, that he had entirely forgotten us, and that therefore we were trying to forget him. It is so very seldom that we think of him that one would imagine that surely he never gave us occasion to think of him. Addison said,--
 
-> "When all thy mercies, O my God,  
-> My rising soul surveys,  
-> Transported with the view I'm lost  
-> In wonder, love, and praise."  
+> When all thy mercies, O my God,    
+> My rising soul surveys,    
+> Transported with the view I'm lost    
+> In wonder, love, and praise.    
 
 But I think if we look back with the eye of penitence we shall be lost in wonder shame, and grief, for our cry will be, "What! could I treat so good a friend so ill? Have I had so gracious a benefactor, and have I been so unmindful of him; and so devoted a father, and yet have I never embraced him? Have I never given him the kiss of my affectionate gratitude? Have I never studied to do something whereby I might let him know that I was conscious of his kindness, and that I felt a grateful return in my bosom for his love?"
 
@@ -58,10 +58,10 @@ Once, again, this is a gracious change. When God puts a new heart into man, it i
 
 "But," says one, "suppose the man has not a new heart, and were earnestly to seek one, would he have it?" You must not make impossible suppositions; so long as the man's heart is depraved and vile, he never will do such a thing. I cannot, therefore, tell you what might happen, if he did what he never will do. I cannot answer your suppositions; if you suppose yourself into a difficulty you must suppose yourself out of it. But the fact is, that no man ever did, or ever will seek a new heart, or a right spirit, until, first of all, the grace of God begins with him. If there be a Christian here, who began with God, let him publish it to the world; let us hear for once that there was a man who was beforehand with his Maker. But I have never met with such a case; all Christian people declare that God was first with them, and they will all sing,
 
-> "Twas the same love that spread the feast,  
-> That sweetly forced me in  
-> Else I had still refused to taste,  
-> And perished in my sin."
+> Twas the same love that spread the feast,    
+> That sweetly forced me in    
+> Else I had still refused to taste,    
+> And perished in my sin.    
 
 It is a gracious change, freely given without any merit of the creature, without any desire or good-will coming beforehand. God doeth it of his own pleasure, not according to man's will.
 

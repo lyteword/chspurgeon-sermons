@@ -2,8 +2,8 @@
 
 Sermon No. 131 - Delivered on Sabbath Morning, May 10, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Salvation is of the Lord."  
-> Jonah 2:9.  
+> Salvation is of the Lord.    
+> Jonah 2:9.    
 
 JONAH learned this sentence of good theology in a strange college. He learned it in the whale's belly, at the bottom of the mountains, with the weeds wrapped about his head, when he supposed that the earth with her bars was about him for ever. Most of the grand truths of God have to be learned by trouble; they must be burned into us with the hot iron of affliction, otherwise we shall not truly receive them. No man is competent to judge in matters of the kingdom, until first he has been tried; since there are many things to be learned in the depths which we can never know in the heights. We discover many secrets in the caverns of the ocean, which, though we had soared to heaven, we never could have known. He shall best meet the wants of God's people as a preacher who has had those wants himself; he shall best comfort God's Israel who has needed comfort; and he shall best preach salvation who has felt his own need of it. Jonah, when he was delivered from his great danger, when, by the command of God the fish had obediently left its great deeps and delivered its cargo upon dry land, was then capable of judging; and this was the result of his experience under his trouble--"Salvation is of the Lord."
 
@@ -23,15 +23,15 @@ Well then, says one, that will make people sit still and fold their arms. Sir, i
 
 And now on the next point we shall a little disagree again, "Salvation is of the Lord," as to the sustaining of the work in any man's heart. When a man is made a child of God he does not have a stock of grace given to him with which to go on for ever, but be has grace for that day; and he must have grace for the next day, and grace for the next, and grace for the next, until days shall end, or else the beginning shall be of no avail. As a man does not make himself spiritually alive, so neither can he keep himself so. He can feed on spiritual food, and so preserve his spiritual strength; he can walk in the commandments of the Lord, and so enjoy rest and peace, but still the inner life is dependent upon the Spirit as much for its after existence as for its first begetting. I do verily believe that if it should ever be my lot to put my foot upon the golden threshold of Paradise, and put this thumb upon the pearly latch, I should never cross the threshold unless I had grace given me to take that last step whereby I might enter heaven. No man of himself, even when converted, hath any power, except as that power is daily, constantly, and perpetually infused into him by the Spirit. But Christians often set up for independent gentlemen; they get a little stock of grace in hand, and they say, "My mountain standeth firm, I shall never be moved." But ah! it is not long before the manna begins to be putrid. It was only meant to be the manna for the day, and we have kept it for the morrow, and therefore it fails us. We must have fresh grace.
 
-> "For day by day the manna fell;  
-> O to learn that lesson well."  
+> For day by day the manna fell;    
+> O to learn that lesson well.    
 
 So look day by day for fresh grace. Frequently too the Christian wants to have grace enough for a month vouchsafed to him in one moment. "O!" he says, "what a host of troubles I have coming--how shall I meet them all? O! that I had grace enough to bear me through them all! "My dear friends, you will have grace enough for your troubles, as they come one by one. "As thy days, so shall thy strength be;" but thy strength shall never be as thy months, or as thy weeks. Thou shalt have thy strength as thou hast thy bread. "Give us this day our daily bread." Give us this day our daily grace. But why is it you will be troubling yourself about the things of to-morrow? The common people say, "Cross a bridge when you come to it." That is good advice. Do the same. When a trouble comes, attack it, and down with it, and master it ; but do not begin now to forestall your woes. "Ah! but I have so many," says one. Therefore I say, do not look further before thee than thou needest. "Sufficient unto the day is the evil thereof." Do as the brave Grecian did, who, when he defended his country from Persia, did not go into the plains to fight, but stood in the narrow pass of Thermopylae; there, when the myriads came to him, they had to come one by one, and he felled them to the earth. Had he ventured into the plain he would have been soon devoured, and his handfull would have been melted like a drop of dew in the sea. Stand in the narrow pass of to-day, and fight thy troubles one by one; but do not rush into the plains of tomorrow, for there thou wilt be routed and killed. As the evil is sufficient so will the grace be. "Salvation is of the Lord."
 
 But, lastly, upon this point. The ultimate perfection of salvation is of the Lord. Soon, soon, the saints of earth shall be saints in light; their hairs of snowy age shall be crowned with perpetual joy and everlasting youth; their eyes suffused with tears shall be made bright as stars, never to be clouded again by sorrow; their hearts that tremble now are to be made joyous and fast, and set for ever like pillars in the temple of God. Their follies, their burdens, their griefs, their woes, are soon to be over; sin is to be slain, corruption is to be removed, and a heaven of spotless purity and of unmingled peace is to be theirs for ever. But it must still be by grace. As was the foundation such must the top-stone be; that which laid on earth the first beginning must lay in heaven the top-most stone. As they were redeemed from their filthy conversation by grace, so they must be redeemed from death and the grave by grace too, and they must enter heaven singing
 
-> "Salvation of the Lord alone;  
-> Grace is a shoreless sea."  
+> Salvation of the Lord alone;    
+> Grace is a shoreless sea.    
 
 There may be Arminians here, but they will not be Arminians there; they may here say, "It is of the will of the flesh," but in heaven they shall not think so. Here they may ascribe some little to the creature; but there they shall cast their crowns at the Redeemer's feet, and acknowledge that he did it all. Here they may sometimes look a little at themselves, and boast somewhat of their own strength; but there, "Not unto us, not unto us," shall be sung with deeper sincerity and with more profound emphasis than they have even sung it here below. In heaven, when grace shall have done its work, this truth shall stand out in blazing letters of gold, "Salvation is of the Lord."
 
@@ -55,13 +55,13 @@ Your faith and your repentance must all be given you, or else you will neither b
 
 But what influence has it upon the saint? Why, it is the keystone of all divinity. I will defy you to be heterodox if you believe this truth. You must be sound in the faith if you have learned to spell this sentence-- "Salvation is of the Lord;" and if you feel it in your soul you will not be proud; you can not be; you will cast every thing at his feet, confessing that you have done nothing, save what he has helped you to do and therefore the glory must be where the salvation is. If you believe this you will not be distrustful. You will say, "My salvation does not depend on my faith, but on the Lord; my keeping does not depend on myself, but on God who keepeth me; my being brought to heaven rests not now in my own hands, but in the hands of God;" you will, when doubts and fears prevail, fold your arms, look upward and say,
 
-> "And now my eye of faith is dim,  
-> I trust in Jesus, sink or swim."  
+> And now my eye of faith is dim,    
+> I trust in Jesus, sink or swim.    
 
 If you can keep this in your mind you may always be joyful. He can have no cause for trouble who knows and feels that his salvation is of God. Come on, legions of bell; come on demons of the pit!
 
-> "He that has helped me bears me through,  
-> And makes me more than conqueror too."  
+> He that has helped me bears me through,    
+> And makes me more than conqueror too.    
 
 Salvation resteth not on this poor arm, else should I despair, but on the arm of yon Omnipotent--that arm on which the pillars of the heavens do lean. "Whom should I fear ? The Lord is my strength and my life; of whom shall I be afraid?"
 
@@ -73,13 +73,13 @@ My voice fails me again, and my thoughts too, I was weary this morning, when I c
 
 And now in concluding, let me just tell you WHAT IS THE OBSERVE OF THIS TRUTH. Salvation is of God: then damnation is of man. If any of you are damned, you will have no one to blame but yourselves; if any of you perish, the blame will not lie at God's door; if you are lost and cast away, you will have to bear all the blame and all the tortures of conscience yourself; you will lie for ever in perdition, and reflect, "I have destroyed myself; I have made a suicide of my soul; I have been my own destroyer; I can lay no blame to God." Remember, if saved, you must be saved by God alone, though if lost you have lost yourselves. "Turn ye, turn ye, why will ye die, O house of Israel." With my last faltering sentence I bid you stop and think. Ah! my hearers, my hearers! it is an awful thing to preach to such a mass as this. But the other Sunday, as I came down stairs, I was struck with a memorable sentence, uttered by one who stood there. He said, "There are 9000 people this morning without excuse in the day of judgment." I should like to preach so that this always might be said; and if I can not, O may God have mercy on me, for his name's sake! But now remember! Ye have souls; those souls will be damned, or saved. Which will it be ? Damned they must be for ever, unless God shall save you; unless Christ shall have mercy upon you, there is no hope for you. Down on your knees I Cry to God for mercy. Now lift up your heart in prayer to God. May now be the very time when you shall be saved. Or ever the next drop of blood shall run through your veins, may you find peace! Remember, that peace is to be had now. If you feel now your need of it, it is to be had now. And how? For the mere asking for it. ' Ask, and it shall be given you; seek, and ye shall find."
 
-> "But if your ears refuse  
-> The language of his grace,  
-> Your hearts grow hard, like stubborn Jews,  
-> That unbelieving race,  
-> The Lord with vengeance drest,  
-> Shall lift his hand and swear,  
-> You that despised my promised rest  
-> Shall have no portion there."  
+> But if your ears refuse    
+> The language of his grace,    
+> Your hearts grow hard, like stubborn Jews,    
+> That unbelieving race,    
+> The Lord with vengeance drest,    
+> Shall lift his hand and swear,    
+> You that despised my promised rest    
+> Shall have no portion there.    
 
 O! that ye may not be despisers, lest ye "wonder and perish!" May ye now fly to Christ, and be accepted in the beloved. It is my last best prayer. May the Lord hear it. Amen.

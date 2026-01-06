@@ -2,21 +2,21 @@
 
 Sermon No. 87 - Delivered on Sabbath Morning, June 22, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "The voice of the Lord is full of majesty."  
-> Psalm 29:4.  
+> The voice of the Lord is full of majesty.    
+> Psalm 29:4.    
 
 All God's works praise him, whether they be magnificent or minute, they all discover the wisdom, the power, and the benevolence of their Creator. "All thy works praise thee, O God." But there are some of his more majestic works which sing the song of praise louder than others. There are some of his doings, upon which there seems to be graven in larger letters than usual the name of God. Such are the lofty mountains, which worship God with uncovered heads both night and day; such are the rolling seas, too mighty to be managed by man, but held in check by God, and such, especially, are the thunders and the lightnings. The lightnings are the glances of the eyes of God, and the thunders are the utterings of his voice. The thunder has been usually attributed to God more especially, though philosophers assure us that it is to be accounted for by natural causes. We believe them, but we prefer, ourselves, to look to the first great cause, and we are content with that old and universal belief, that the thunder is the voice of God. It is marvellous what effect the thunder has had upon all kinds of men. In reading an ode of Horace the other day, I found him in the first two verses, singing like a true Ithurean, that he despised God, and intended to live merrily; but by-and-bye he hears the thunder, and acknowledging that there is a Jehovah, who lives on high, he trembles before him. The most wicked of men have been obliged to acknowledge that there must be a Creator, when they have heard that marvellous voice of his sounding through the sky. Men of the stoutest nerve and the boldest blasphemy have become the weakest of all creatures, when God has in some degree manifested himself in the mighty whirlwind, or in the storm. "He breaketh the cedars of Lebanon;" he bringeth down the stout hearts; he layeth down the mighty, and he obliges those who never acknowledged him to reverence him when they hear his voice. 
 
 The Christian will acknowledge the thunder to be the voice of God, from the fact, that if he be in the right frame of mind, it always suggest to him holy thoughts. I do not know how it may be with you, but I scarce ever hear the rolling thunder, but I begin to forget earth and look upwards to my God. I am unconscious of any feeling of terror or pain; it is rather a feeling of delight that I experience, for I like to sing that verse--
 
-> "The God that rules on high,  
-> And thunders when he please,  
-> That rides upon the stormy sky  
-> And manages the seas;  
-> This awful God is ours,  
-> Our Father and our love,  
-> He shall send down his heavenly powers  
-> To carry us above."  
+> The God that rules on high,    
+> And thunders when he please,    
+> That rides upon the stormy sky    
+> And manages the seas;    
+> This awful God is ours,    
+> Our Father and our love,    
+> He shall send down his heavenly powers    
+> To carry us above.    
 
 He is our God, and I like to sing that, and think of it: but there is something so terrible in the tone of that voice when God is speaking, something so terrific to other men, and humbling to the Christian, that he is obliged to sink very low in his own estimation; then he looks up to God, and cries, "infinite Jehovah, spare a worm, crush not an unworthy wretch. I know it is thy voice; I reverence thee with solemn awe; I prostrate myself before thy throne; thou art my God, and beside thee there is none else." It might well have occurred to a Jewish mind to have called the thunder the voice of God, when he considered the loudness of it, when all other voices are hushed; even if they be the loudest voices mortals can utter, or the most mighty sounds; yet are they but indistinct whispers, compared with the voice of God in the thunder; and indeed, they are entirely lost when God speaks from his throne, and makes even the deaf hear, and those who are unwilling to acknowledge him hear his voice.
 
@@ -34,8 +34,8 @@ First, then, "THE VOICE OF THE LORD IS FULL OF MAJESTY." Ay, and so it should be
 
 But what do we mean by a voice having majesty? I take it that no man's voice can have majesty in it unless it is true; a lie, if it should be spoken in the noblest language, would never be majestic; a falsehood, if it be uttered by the most eloquent lips, would be a mean and paltry thing, however it might be spoken; and an untruth, wherever uttered, and by whomsoever, is not majestic; it never can be truth, and truth only can ever have majesty about it; and because God's word are pure truth, unalloyed with the least degree of error, therefore does it come to pass that his words are full of majesty. Whatever I hear my Father say in Scripture, whatever he speaks to me by the ministry, or by his Spirit, if he speaks it, there is not the slightest alloy of untruth about it. I may receive it just as it is.
 
-> "My faith may on his promise live,  
-> May on his promise die."  
+> My faith may on his promise live,    
+> May on his promise die.    
 
 I need not reason about it; it is enough for me to take it and believe it, because he has said it. I need not try to prove it to the worldling: if I were to prove it, he would believe it none the better; if the voice of God's majesty doth not convince him, sure the voice of my reasoning never can. I need not stand and cut and divide between the voice of God and the other; I know it must be true, if he has said it; and therefore I will believe all that I believe God has said, believing that his voice is full of majesty.
 
@@ -67,8 +67,8 @@ And then in the 9th verse there is another idea, which I must not pass over, alt
 
 And in the next place, the voice of God is a discovering voice. It "discovereth the forests." The trees were your former hiding-place; but in the forest, however thick it may be, there doth the lightning gleam; and under the mighty trees, however thick their covering, the voice of the Lord is heard. God's voice is a discovering voice. You hypocrites! you get hiding yourselves under the trees of the forest; but God's voice thundereth after you when it speaks. Some of you get hiding under ceremonies, good lives, resolutions, and hopes; but God's voice will discover the forests; and recollect, there will be a day with some of you, when you will hide yourselves, or seek to do it, under rocks and mountains, or in the deepest parts of the forests; but when he sits upon his throne, the voice of the Lord will discover the forests. Ye may stand under the old oak, or creep within its trunk, and feel that there you are hidden; but his eyes like balls of fire, shall see you through and through, and his voice, like a voice of thunder, shall say, "Come forth, culprit; come forth, man; I can see thee;
 
-> 'Mine eye can pierce the shades, and find thy soul as soon  
-> In midnight's darkness as in blazing noon.'  
+> Mine eye can pierce the shades, and find thy soul as soon    
+> In midnight's darkness as in blazing noon.    
 
 Come forth, come forth!" And vain then will be thy disguises, vain thy subterfuges. "The voice of the Lord discovereth the forests." Oh! I would to God that he would speak to some of you this morning, and discover your souls! I wish he would discover to you your lost and hopeless condition; that you are damned without Christ, every one of you! Oh that he would discover to you how horrible is your position, considered apart from the Saviour; discover to you the fallacy of all your legal hope, and of all your experiences, if they are not experiences allied to Christ! I pray that he would discover to you that all your good works will come tumbling on your head at last, if you build them for a house, and that you must stand surrounded by no covering, but unveiled before the God who discovers the forests.
 

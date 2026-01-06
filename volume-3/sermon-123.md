@@ -2,8 +2,8 @@
 
 Sermon No. 123 - Delivered on Sabbath Morning, March 22, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fail: For so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ."  
-> 2 Peter 1:10-11.  
+> Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fail: For so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ.    
+> 2 Peter 1:10-11.    
 
 IT is exceedingly desirable that in the hours of worship and in the house of prayer our minds should be as much as possible divested of every worldly thought. Although the business of the week will very naturally struggle with us to encroach upon the Sabbath, it is our business to guard the Sabbath from the intrusion of our worldly cares, as we would guard an oasis from the overwhelming irruption of the sand. I have felt, however, that to-day we should be surrounded with circumstances of peculiar difficulty in endeavouring to bring our minds to spiritual maters; for that depends upon mental abstraction, election times are the worst. So important in the minds of most men are political matters, that very naturally after the hurry of the week, combined with the engrossing pursuit of elections, we are apt to bring the same thoughts and the same feelings into the house of prayer, and speculate, perhaps, even in the place of worship, whether a conservative or a liberal shall be returned for our borough, or whether for the City of London there shall be returned Lord John Russell, Baron Rothschild, or Mr. Currie. I thought, this morning, Well, it is no use my trying to stop this great train in its progress. People are just now going on at an express rate on these matters; I think I will be wise, and instead of endeavouring to turn them off the line, I will turn the points, so that they may still continue their pursuits with the same swiftness as ever, but in a new direction. It shall be the same line; they shall still be travelling in earnest towards election, but perhaps I may have some skill to turn the points, so that they shall be enabled to consider election in a rather different manner.
 
@@ -41,17 +41,17 @@ And now I shall close up by giving you THE APOSTLE'S REASONS WHY YOU SHOULD MAKE
 
 I put in one of my own to begin with. It is because, as I have said, it will make you so happy. Men who doubt their calling and election cannot be full of joy; but the happiest saints are those who know and believe it. You know our friends say this is a howling wilderness, and you know my reply to it is, that they make all the howling themselves: there would not be much howling, if they were to look up a little more and look down a little less, for by faith they would make it blossom like the rose, and give to it the excellence and glory of Carmel and Sharon. But why they howl so much is because they do not believe. Our happiness and our faith are to a great degree proportionate; they are Siamese twins to the Christian; they must flourish or decay together.
 
-> "When I can say my God is mine,  
-> Then I can all my griefs resign;  
-> Can tread the world beneath my feet,  
-> And all that earth calls good or great."  
+> When I can say my God is mine,    
+> Then I can all my griefs resign;    
+> Can tread the world beneath my feet,    
+> And all that earth calls good or great.    
 
 But ah
 
-> "When gloomy doubts prevail,  
-> I fear to call him mine;  
-> The streams of comfort seem to fail,  
-> And all my hopes decline."  
+> When gloomy doubts prevail,    
+> I fear to call him mine;    
+> The streams of comfort seem to fail,    
+> And all my hopes decline.    
 
 Only faith can make a Christian lead a happy life.
 
@@ -63,10 +63,10 @@ Ask him what his dependence is: he tells you, "I rest in none else but Jesus." B
 
 What a terrible picture is hinted at in these words of the apostle--"Saved so as by fire!" Let me try and present it to you. The man has come to the edge of Jordan; the time has arrived for him to die. He is a believer--just a believer; but his life has not been what he could wish; not all that he now desires that it had been. And now stern death is at him, and he has to take his first step into the Jordan. Judge of his horror, when the flames surround his foot. He treads upon the hot sand of the stream; and the next step he takes, with his hair well nigh on end, with his eye fixed on heaven on the other side of the shore, his face is yet marked with horror. He takes another step, and he is all bathing in fire. Another step, and he is up to his very loins in flames--"saved, so as by fire." A strong hand has grasped him, that drags him onward through the stream. But how dreadful must be the death even of the Christian, when he is saved "so as by fire!" There on the river's brink, astonished he looks back and sees the liquid flames, through which he has been called to walk, as a consequence of his indifference in this life. Saved he is--thanks to God; and his heaven shall be great, and his crown shall be golden, and his harp shall be sweet, and his hymns shall be eternal, and his bliss unfading;--but his dying moment, the last article of death, was blackened by sin; and he was saved "so as by fire!" Mark the other man; he too has to die. He has often feared death. He dips the first foot in Jordan; and his body trembles, his pulse waxes faint, and even his eyes are well nigh closed. His lips can scarcely speak, but still he says, "Jesus, thou art with me, thou art with me, passing through the stream!" He takes another step, and the waters now begin to refresh him. He dips his hand and tastes the stream, and tells those who are watching him in tears, that to die is blessed. "The stream is sweet," he says, "it is not bitter: it is blessed to die." Then he takes another step, and when he is well nigh submerged in the stream, and lost to vision, he says--
 
-> "And when ye hear my eyestrings break,  
-> How sweet my minutes roll!--  
-> A mortal paleness on my cheek,  
-> But glory in my soul!"  
+> And when ye hear my eyestrings break,    
+> How sweet my minutes roll!--    
+> A mortal paleness on my cheek,    
+> But glory in my soul!    
 
 That is the "abundant entrance" of the man who has manfully served his God--who, by divine grace, has had a path unclouded and serene--who, by diligence, has "made his calling and election sure;" and therefore, as a reward, not of debt, but of grace, hath entered heaven with higher honors and with greater ease than others equally saved, but not saved in so splendid a manner.
 
@@ -74,7 +74,7 @@ Just one thought more. It is said that the entrance is to be "ministered to us."
 
 And now, to conclude. There are some of you with whom this text has nothing to do. You cannot "make your calling and election sure;" for you have not been called; and you have no right to believe that you are elected, if you have never been called. To such of you, let me say, do not ask whether you are elected first, but ask whether you are called. And go to God's house, and bend your knee in prayer; and may God, in his infinite mercy, call you! And mark this--If any of you can say--
 
-> "Nothing in my hands I bring,  
-> Simply to thy cross I cling;"  
+> Nothing in my hands I bring,    
+> Simply to thy cross I cling;    
 
 if any of you, abjuring your self-righteousness, can now come to Christ and take him to be your all in all; you are called, you are elect. "Make your calling and election sure," and go on your way rejoicing! May God bless you; and to Father, Son, and Holy Spirit, be glory for evermore! Amen.

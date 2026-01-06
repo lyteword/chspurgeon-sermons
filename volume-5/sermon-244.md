@@ -2,8 +2,8 @@
 
 Sermon No. 244 - Delivered on Sabbath Evening, January 9th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "For the bed is shorter than that a man can stretch himself on it: and the covering narrower than that he can wrap himself in it."  
-> Isaiah 28:20.  
+> For the bed is shorter than that a man can stretch himself on it: and the covering narrower than that he can wrap himself in it.    
+> Isaiah 28:20.    
 
 GOD HAS SO made men, that there are two things essential for their comfort, if not for their very existence, namely, sleep and clothing. Had God so pleased it, he might have made man an everlasting watcher, upon whose eyes the mists of night never should descend, and upon whose eyelids the fingers of sleep never should be placed. Perhaps angelic spirits never sleep. Day without night they circle God's throne rejoicing, and ceaselessly they chant his praise. Perhaps their unflagging wings are always stretched for duty, and their untiring voices are ever occupied with song. But manifestly it is not so with man. We need "kind nature's sweet restorer, balmy sleep." If we could not sleep, should we not even wish for death? Let sleep be long withholder from our eyelids, if we had no other disease our strength must become prostrate, and the fire of life would smoulder into the ashes of death. Sleep, therefore, is essential even to the very existence of our bodies on earth. Clothing also is needful for our comfort, and, at least in some climates, absolutely necessary for our very existence. God has made the animal creation of such a kind, that they grow their clothing upon their own backs. For the horse and for the sheep no loom works, nor cloth the shuttle hasten in its course. Their backs are their own webs, and they fashion their own garments, as if to teach us, that man alone is imperfect, and needs to long beyond himself: Other creatures can readily find their own habitations, and produce for themselves out of themselves; but man feels his nakedness, and must either seek for the fig leaf of his own righteousness, or else the Lord God must make for him a dress with which he may array himself and stand completely covered. Dress, I say, is essential to man--dress and sleep.
 
@@ -27,19 +27,19 @@ There is another bed on which man thinks he could rest. There is a watch, a pain
 
 Solomon once laid in it, and many since his time have sought their rest there. They have said, "Away with your gold and silver: let me spend it, that I may eat, drink, and be merry, for to-morrow I die. Tell me not of fame, I care not for it. I would sooner have the pleasures of life, or the joys of Bacchus, than the laurel of fame. Let me give myself up to the intoxication of this world's delights, let me be drowned in the butt of Burgundy of this world's joys." Have you ever seen such men as that? I have seen many and wept over them, and I know some now, they are stretching themselves on that bed, and trying to make themselves happy. Byron is just a picture of such men, though he outdid others. What a bed was that he stretched for himself. Was ever libertine more free in his vices? was ever sinner more wild in his blasphemy? was ever poet more daring in his flights of thought? was ever man more injurious to his fellows than he? And yet what did Byron say? There is a verse which just tells you what he felt in his heart. The man had all that he wanted of sinful pleasure, but here is his confession--
 
-> "I fly like a bird of the air,  
-> In search of a home and a rest;  
-> A balm for the sickness of care,  
-> A bliss for a bosom unblest."  
+> I fly like a bird of the air,    
+> In search of a home and a rest;    
+> A balm for the sickness of care,    
+> A bliss for a bosom unblest.    
 
 And yet he found it not. He had no rest in God. He tried pleasure till his eyes were red with it; he tried vice till his body was sick; and he descended into his grave a premature old man. If you had asked him, and he had spoken honestly, he would have said, the bed was shorter than that he could stretch himself upon it. No, young man, you may have all the vices, and all the pleasure and mirth of this metropolis, and there is much to be found, of which I make no mention here, and when you have it all, you will find it does not equal your expectation nor satisfy your desires. When the devil is bringing you one cup of spiced wine, you will be asking him next time to spice it higher; and he will flavour it to your fiery taste, but you will be dissatisfied still, until at last, if he were to bring you a cup hot as damnation, it would fall tasteless on your palate. You would say, "Even this is tasteless to me, except in the gall, and bitter wormwood, and fire that it brings." It is so with all worldly pleasure: there is no end to it; it is a perpetual thirst. It is like the opium eater; he eats a little, and he dreams such strange wonders; and he wakes, and where are they? Such dreamers, when awake, look like dead men, with just animation enough to enable them to crawl along. The next time, to get to their elysium, they must take more opium, and the next time more and more, and all the while, they are gradually going down an inclined plane into their graves. That is just the effect of human pleasure, and all worldly sensual delights; they only end in destruction; and even while they last, they are not wide enough for our desire, they are not large enough for our expectations, "for the bed is shorter than that a man can stretch himself on it."
 
 Now think, for a moment, of the Christian, and see the picture reversed. I will suppose the Christian at his very worst state, though there is no reason why I should do so. The Christian is not necessarily poor; he may be rich. Suppose him poor. He has not a foot of land to call his own; he lives by the day, and he lives well, for his Master keeps a good cupboard for him, and furnishes him with all he requires. He has nothing in this world except the promise of God with regard to the future. The wordly man laughs at the promise, and says it is good for nothing. Now look at the Christian; he says,--
 
-> "There's nothing round this spacious globe,  
-> Which suits my large desires;  
-> To nobler joys than nature give,  
-> Thy servant, Lord, aspires."  
+> There's nothing round this spacious globe,    
+> Which suits my large desires;    
+> To nobler joys than nature give,    
+> Thy servant, Lord, aspires.    
 
 What, poor man, are you perfectly content? "Yes," says he, "it is my Father's will that I should live in poverty. I am perfectly content." "Well, but is there nothing else you wish for?" "Nothing," says he, "I have the presence of God; I have delight in communion with Christ; I know that there is laid up for me a crown of life that fadeth not away,' and more I cannot want. I am perfectly content; my soul is at rest." In the Christian religion there is a rest that no one can enjoy elsewhere. Oh! I can say as in the sight of God, my soul is perfectly at rest. "I know that my Redeemer liveth, and that he shall stand at the latter-day upon the earth; and though after my skin worms destroy this body, yet in my flesh shall I see God." I know that my sins are forgiven, that I am accepted in the beloved. I know there is nothing more that I want except what I have already, for Christ is all and more than all. What can my soul desire more? As for temporals I can leave them in my Father's hands; as for spirituals I can leave them also with him. "My soul is even as a wearied child," resting on its mother's breast. Nothing more I can ask. And now let me stretch myself upon this bed. 
 
@@ -67,7 +67,7 @@ Now, let us bring forth that robe, and let us stand in that. What Jesus did, and
 
 What a glorious thing, then it is to be a Christian, to have faith in Christ, to have the Isaac born in our hearts, the new nature put there. Come my soul, take thy rest, the great High Priest has full atonement made. Thou hast much goods laid up, not for many years, but for eternity; take thine case; eat spiritual things; drink wine on the lees and be merry; for it cannot be said of thee, "to-morrow thou shalt die," for thou shalt never die, for "thy life is hid with Christ in God." Thou art no fool to take thy ease and rest, for this is legitimate ease and rest, the rest which the God of Sabaoth hath provided for all his people. And then, O Christian! march boldly to the river of death, march calmly up to the throne of judgment, enter placidly and joyfully into the inheritance of thy Lord, for thou hast about thee an armor that can keep thee from the arrows of death, a wedding garment that makes thee fit to sit down at the banquet of the Lord. Thou hast about thee a royal robe that makes thee a fit companion even for Jesus, the king of kings, when he shall admit thee into his secret chambers, and permit thee to hold holy and close fellowship with him. I cannot resist quoting that verse of the hymn,--
 
-> "With thy Saviour's garment on,  
-> Thou'rt holy as the Holy One."  
+> With thy Saviour's garment on,    
+> Thou'rt holy as the Holy One.    
 
 That is the sum and substance of it all. And on this bed let us take our rest, and during this week let us make Christ's work our only garment, and we shall find it long enough, and broad enough, for us to wrap ourselves up in it.

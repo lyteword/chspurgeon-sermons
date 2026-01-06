@@ -2,8 +2,8 @@
 
 Sermon No. 129 - Delivered on Sabbath Morning, April 26, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Let the whole earth be filled with his glory; Amen, and Amen."  
-> Psalm 72:10.  
+> Let the whole earth be filled with his glory; Amen, and Amen.    
+> Psalm 72:10.    
 
 THERE was a time when this prayer would have been unnecessary; a period, in fact, when it could not have been offered, seeing the thing to be asked for was already in being. A time there was when the word rebellion had not been uttered against the great magistracy of heaven; a day there was, when the slime of sin had never been left by the trail of the serpent, for no serpent then existed, and no evil spirit. There was a hour, never to be forgotten, when the seraph might have flapped his wing for aye, and never have found aught of discord, or aught of rebellion or of anarchy throughout God's universe, when the mighty angels assembled in the halls of the Most High, and without exception did reverence to their liege Lord, and paid him homage due; when the vast creation revolved around its center, the great metropolis, the throne of God, and paid its daily and hourly homage unto him, when the harmonies of creation always came to one spot and found their focus near the throne of God. There was a time when every star was bright; when all space was filled with loveliness, when holiness, purity, and happiness, were like a robe which mantled the entire creation. This world itself was once fair and lovely--so fair and lovely that we who live in these erring times can scarcely guess its beauty. It was the house of song, and the dwelling-place of praise. If it had no pre-eminence among its sister spheres, certainly it was inferior to none of them, surrounded with beauty, girt with gladness, and having in it holy and heavenly inhabitants. It was a house to which the angels themselves loved to resort, where the holy spirits, the morning stars, delighted to sing together over this beautiful and fair earth of ours. But now how changed! how different! Now it is our duty devoutly to bend our knees and pray that the whole earth may yet be filled with his glory.
 
@@ -27,9 +27,9 @@ Well, now, I am going, in the second place, to try to STIR YOU UP, my brethren, 
 
 First, I beseech you, contemplate the majesty of God; or rather, since I am unable to help you to do that just now, let me remind you of seasons when you have in some measure grasped the thought of his divinity. Have you never at night gazed upon the starry orbs, with the thought that God was the Maker of them all until your soul was steeped in reverent adoration, and you bowed your head with wonder and with praise, and said, "Great God! how infinite art thou?" Have you never, in looking upon God's pure earth, when you have seen the mountains, and the clouds, and the rivers, and the floods, said--
 
-> "These are thy glorious works, Parent of good,  
-> Almighty! Thine this universal frame,  
-> Thus wondrous fair: Thyself how wondrous then?"  
+> These are thy glorious works, Parent of good,    
+> Almighty! Thine this universal frame,    
+> Thus wondrous fair: Thyself how wondrous then?    
 
 Oh! methinks you must have had some glowing bursts of devotion, somewhat like that burst of Coleridge in his hymn from the valley of Chamounix or, like that of Thompson, when he leads the Seasons out to sing God's praise, or, like that matchless burst of Milton, when he extolled God, making Adam in the garden praise his Maker. Yes, there have been moments when we could bow before God, when we felt our own nothingness, and knew that he was all-in-all. Ah! if you can get such thoughts as these, my friends, this morning, I know that the next thought akin to this will be--"Let the whole earth be filled with his glory; Amen, and Amen." You cannot bow before God yourself and adore him, without wishing that all the rest of mankind should do the same. Ah! and the thought has gone further; ye have wished that even inanimate objects might praise him. Oh! ye mountains, let the shaggy woods upon your crowns wave in adoration ye that with bald heads lift up yourselves loftier than those minor hills, let the clouds that gird you serve like wings of cherubim to veil your faces. But oh! adore him, adore him, for he is worthy of all adoration; let him ever be extolled. You cannot, I repeat, have great thoughts of God yourselves, without spontaneously rising up and saying, "Let the whole earth be filled with his glory. Amen, and Amen."
 
@@ -37,8 +37,8 @@ But, my brethren, turn your eyes yonder. What see you there? You see the Son of 
 
 But gaze a moment longer. The man that died for sinners sleeps within a grave; a little while he sleeps, until the angel rolls away the stone and gives him liberty. Do you behold him, as he wakes up from his slumber, and radiant with majesty, and glorious with light, affrights his guard, and stands a risen man? Do you see him, as he climbs to heaven, as he ascends to the paradise of God, sitting at the right hand of his Father till his enemies are made his footstool? Do you see him, as principalities and powers bow before him, as cherubim and seraphim cast their crowns at his feet? Do you hear him? Do you hear him intercede, and do you hear also the music of the glorified spirits, ever chanting perpetual lays before his throne? And do you not wish that we might
 
-> "Prepare new honors for his name,  
-> And songs before unknown?"  
+> Prepare new honors for his name,    
+> And songs before unknown?    
 
 Oh! it is impossible to see the glorified Christ with the eye of faith, without exclaiming afterwards, "Let the whole earth be filled with his glory; Amen, and Amen.
 
@@ -46,10 +46,10 @@ But now one other thought. Common humanity urges us to pray this prayer. Did you
 
 Yes, we have seen some such places, and when our hearts have been gladdened by the sight, we have said, "tot the whole earth be filled with his glory; Amen and Amen." It has been our delight sometimes to tabernacle amongst the lowly for a little season. We have had our seat given us in the chimney corner for awhile, and by-and-by as the time to retire drew nigh, the good man of the house has said to the prophet's servant, "Now, sir, will you read for us to-night, as you are here?" And we have noticed the faces of the little group around us, as we have read some portion like this--"Truly God is good to Israel, even to such as are of a clean heart." And then we have said, "No, we will not pray to-night, you must be priest in your own house, and pray yourself." And then the good man has prayed for his children, and when we have seen them rise up and kiss their parent for the night we have thought, "Well, if this is the kind of family that religion makes, let the whole earth be filled with his glory. For the blessedness and for the happiness of man, let God's kingdom come, and let his will be done." Contrast that, my brethren, with the murderous rites of the Hindoo; contrast it with the savagery and barbarism of heathen lands. If I could bring some barbarian to stand before you this morning, he might himself be a better preacher than I can be, as with his almost unintelligible utterances and clicks he would begin to tell you the few ideas he had, which ideas began and ended with himself, and with the miserable prey on which he lived. You would say, "What!-there such a miserable race as this?" Let us at once kneel down and utter this prayer, and then rise up and labor to fulfill it--"Let the whole earth be filled with his glory." I feel that I cannot stir you this morning as I wished. (If I were a Welshman I think I could move your hearts they have such a knack of waking persons up by what they say.) Oh! my soul longs for that day, it sigheth for that blessed period. Would God that all sighed and longed for it too, and were prepared to work and labor, watch and pray, until we should indeed sing with truth,
 
-> "Hallelujah! Christ the Lord  
-> God Omnipotent shall reign;  
-> Hallelujah! Christ in God,  
-> God in Christ is all-in-all."  
+> Hallelujah! Christ the Lord    
+> God Omnipotent shall reign;    
+> Hallelujah! Christ in God,    
+> God in Christ is all-in-all.    
 
 May such a day come, as it certainly will!
 

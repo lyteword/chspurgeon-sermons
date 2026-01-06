@@ -2,8 +2,8 @@
 
 Sermon No. 159 - Delivered on Sabbath Morning, October 18, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "We know that all things work together far good to them that love God, to them who are the called according to his purpose."  
-> Romans 8:28.  
+> We know that all things work together far good to them that love God, to them who are the called according to his purpose.    
+> Romans 8:28.    
 
 WE have here the description of a true Christian, and a declaration of that Christian's blessedness. We have him first very succinctly, but very fully described in these words--"Them that love God, them who are the called according to his purpose." These two expressions are the great distinguishing marks whereby we are able to separate the precious from the vile, by discovering to us who are the children of God.
 
@@ -13,17 +13,17 @@ Dost thou love God, not with lip-language, but with heart-service? Dost thou lov
 
 Note the second phrase, which contains also a description of the Christian--"the called according to his purpose." However much the Arminian may try to fritter away the meaning of this 8th chapter of the Romans we are obliged as long as we use terms and words to say, that the 8th chapter of the Romans and the 9th, are the very pillars of that Gospel which men now call Calvinism. No man after having read these chapters attentively, and having understood them, can deny that the doctrines of sovereign, distinguishing grace, are the sum and substance of the teaching of the Bible. I do not believe that the Bible is to be understood except by receiving these doctrines as true. The apostle says that those who love God are "the called according to his purpose" by which he means to say two things--first, that all who love God love him because he called them to love him. He called them, mark you. All men are called by the ministry, by the Word, by daily providence, to love God, there is a common call always given to men to come to Christ, the great bell of the gospel rings a universal welcome to every living soul that breathes; but alas! though that bell hath the very sound of heaven, and though all men do in a measure hear it, for "their line is gone out into all the earth and their Word unto the end of the world" yet there was never an instance of any man having been brought to God simply by that sound. All these things are insufficient for the salvation of any man; there must be superadded the special call, the call which man cannot resist, the call of efficacious grace, working in us to will and to do of God's good pleasure. Now, all them that love God love him because they have had a special, irresistible, supernatural call. Ask them whether they would have loved God if left to themselves, and to a man, whatever their doctrines, they will confess--
 
-> "Grace taught my soul to pray,  
-> Grace made my eyes o'erflow,  
-> 'Tis grace that kept me to this day  
-> And will not let me go."  
+> Grace taught my soul to pray,    
+> Grace made my eyes o'erflow,    
+> 'Tis grace that kept me to this day    
+> And will not let me go.    
 
 I never heard a Christian yet who said that he came to God of himself, left to his own free-will. Free-will may look very pretty in theory, but I never yet met any one who found it work well in practice. We all confess that if we are brought to the marriage-banquet--
 
-> "Twas the same love that spread the feast  
-> That gently forced us in  
-> Else we had still refused to taste,  
-> And perished in our sin."  
+> Twas the same love that spread the feast    
+> That gently forced us in    
+> Else we had still refused to taste,    
+> And perished in our sin.    
 
 Many men cavil at election; the very word with some is a great bug ear; they no sooner hear it than they turn upon their heel indignantly. But this know, O man, whatever thou sayest of this doctrine, it is a stone upon which, if any man fall, he shall suffer loss, but if it fall upon him it shall grind him to powder. Not all the sophisms of the learned, nor all the legerdemain of the cunning, will ever be able to sweep the doctrine of election out of Holy Scripture. Let any man hear and judge. Hearken ye to this passage in the 9th of Romans! "For the children being not yet born, neither having done any good or evil, that the purpose of God according to election might stand not of works, but of him that calleth; It was said unto her, The elder shall serve the younger. As it is written, Jacob have I loved, but Esau have I hated. What shall we say then? Is there unrighteousness with God? God forbid! For he saith to Moses, I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion. So then it is not of him that willeth, nor of him that runneth, but of God that showeth mercy." "Thou wilt say then unto me, Why doth he yet find fault? for who hath resisted his will? Nay but, O man, who art thou that repliest against God? Shall the thing formed say to him that formed it, Why hast thou made me thus? Hath not the potter power over the clay, of the same lump to make one vessel unto honor, and another unto dishonor! What if God, willing to show his wrath, and to make his power known, endured with much long-suffering the vessels of wrath fitted to destruction: And that he might make known the riches of his glory on the vessels of mercy, which he had afore prepared unto glory. Even us, whom he hath called, not of the Jews only, but also of the Gentiles." These are God's words; if any man doth cavil at them, let him cavil; he rejecteth the testimony of God against himself. If I promulgated the doctrine on my own authority, I could not blame you if you should turn against me, and reject it; but when, on the authority of Holy Scripture, I propound it, God forbid that any man should quarrel therewith.
 
@@ -63,10 +63,10 @@ I am treating the text as you see, verbally. And now I must return to the word "
 
 However troubled, downcast, depressed, and despairing, the Christian may be, all things are working now for his good; and though like Jonah he is brought to the bottom of the mountains, and he thinks the earth with her bars is about him for ever, and the weeds of despair are wrapped about his head, even in the uttermost depths all things are now working for his good. Here, I say again, is the pinch of faith. As an old countryman once said to me, from whom I gained many a pithy saying--"Ah! sir, I could always do wonders when there were no wonders to do. I feel, sir, that I could believe God; but then at the time I feel so there is not much to believe." And he just paraphrased it in his own dialect like this--"My arm is always strong, and my sickle always sharp, when there is no harvest, and I think I could mow many an acre when there is no grass; but when the harvest is on I am weak, and when the grass groweth then my scythe is blunt." Have not you found it so too? You think you can do wondrous things; you say,
 
-> "Should earth against my soul engage,  
-> And hellish darts be hurled,  
-> Now I can smile at Satan's rage,  
-> And face a frowning world."  
+> Should earth against my soul engage,    
+> And hellish darts be hurled,    
+> Now I can smile at Satan's rage,    
+> And face a frowning world.    
 
 And now a little capful of wind blows on you and the tears run down your cheeks, and you say, "Lord, let me die; I am no better than my fathers." You, that were going to thrash mountains, find that molehills cast you down.
 

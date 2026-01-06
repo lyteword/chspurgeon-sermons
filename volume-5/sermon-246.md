@@ -2,8 +2,8 @@
 
 Sermon No. 246 - Delivered on Sabbath Morning, April 3rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "O thou of little faith, wherefore didst thou doubt?"  
-> Matthew 14:31.  
+> O thou of little faith, wherefore didst thou doubt?    
+> Matthew 14:31.    
 
 TT SEEMS AS if doubt were doomed to be the perpetual companion of faith. As dust attends the chariotwheels so do doubts naturally becloud faith. Some men of little faith are perpetually enshrouded with fears; their faith seems only strong enough to enable them to doubt. If they had no faith at all, then they would not doubt, but having that little, and but so little, they are perpetually involved in distressing surmises, suspicions, and fears. Others, who have attained to great strength and stability of faith, are nevertheless, at times, subjects of doubt. He who has a colossal faith will sometimes find that the clouds of fear float over the brow of his confidence. It is not possible, I suppose, so long as man is in this world, that he should be perfect in anything; and surely it seems to be quite impossible that he should be perfect in faith. Sometimes, indeed, the Lord purposely leaves his children, withdraws the divine inflowings of his grace, and permits them to begin to sink, in order that they may understand that faith is not their own work, but is at first the gift of God, and must always be maintained and kept alive in the heart by the fresh influence of the Holy Spirit. 
 
@@ -39,17 +39,17 @@ A minister of Christ, who was always in the habit of visiting those whom he knew
 
 I knew it would soon be gone, and then, then, how could the Lord provide for me. I never had either doubt or fear till I began to think about temporal matters. The time was when I could leave all that with God. If I had not had one hundred pounds, I should have felt quite sure he would provide for me; but I begin to think now that I cannot provide for myself. The moment I think of that, my heart is darkened." The minister then led him away from all trust in an arm of flesh, and told him his dependence for bread and water was not on his one hundred pounds, but on the God who is the possessor of heaven and earth--that as for his bread being given him and his water being sure God would take care of that, for in so doing he would only be fulfilling his promise. The poor man was enabled in the matter of providence to cast himself entirely upon God, and then his doubts and fears subsided, and once more he began to walk the sea of trouble, and did not sink. O believer, if thou takest thy business into thine own hands, thou wilt soon be in trouble. The old Puritan said, "He that carves for himself will soon cut his fingers," and I believe it. There never was a man who began to take his own matters out of God's hand that was not glad enough to take them back again. He that runs before the cloud runs a fool's errand. If we leave all our matters, temporal as well as spiritual, in the hand of God, we shall lack no good thing, and what is better still, we shall have no care, no trouble, no thought; we shall cast all our burden upon him for he careth for us. There is no need for two to care, for God to care and the creature too. If the Creator cares for us, then the creature may sing all day long with joy and gladness:--
 
-> "Mortals cease from toil and sorrow,  
-> God provideth for the morrow."  
+> Mortals cease from toil and sorrow,    
+> God provideth for the morrow.    
 
 But now, in the second part of the discourse, I have to speak of SPIRITIUAL THINGS. To the Christian, these are the causes of more trouble than all his temporal trials. In the matters of the soul and of eternity many doubts will arise. I shall, however, divide them into two sorts--doubts of our present acceptance, and doubts of our final perseverance.
 
 Many there are of God's people who are much vexed and troubled with doubts about their present acceptance. "Oh," say they "there was a time when I knew I was a child of God; I was sure that I was Christ's, my heart would fly up to heaven at a word; I looked to Christ hanging on the cross, I fixed all my trust on him, and a sweet, calm, and blessed repose filled my spirit.
 
-> "What peaceful hours I then enjoyed;  
-> How sweet their memory still!  
-> But they have left an aching void,  
-> The world can never fill.'  
+> What peaceful hours I then enjoyed;    
+> How sweet their memory still!    
+> But they have left an aching void,    
+> The world can never fill.    
 
 And now," saith this doubting one, "now I am afraid I never knew the Lord; I think that I have deceived myself, and that I have been a hypocrite. Oh that I could but know that I am Christ's, I would give all I had in the world, if he would but let me know that he is my beloved, and that I am his." Now, soul, I will deal with thee as I have been just now treating of Peter. Thy doubts arise from looking to second causes, and not to Christ. Let us see if this is not the truth. Why do you doubt? Your answer is, "I doubt, because I feel my sin so much. Oh, what sins have I committed! When first I came to Christ I thought I was the chief of sinners; but now I know I am. Day after day I have added to my guilt; and since my pretended conversion," says this doubting one, "I have been a bigger sinner than ever I was before. I have sinned against light and against knowledge, against grace, and mercy, and favor. O never was there such a sinner under God's heaven out of hell as I am." But, soul, is not this looking to second causes? It is true, thou art the chief of sinners; take that for granted, let us not dispute it. Thy sins are as evil as thou sayest they are, and a great deal more so. Depend on it, thou art worse than thou thinkest thyself to be. Thou thinkest thou art bad enough, but thou art not so bad in thine own estimation as thou really art. Thy sins seem to thee to be like roaring billows, but in God's sight they are like towering mountains without summit. Thou seemest to thyself to be black--black as the tents of Kedar; in God's eyes thou art blacker still. 
 
@@ -69,7 +69,7 @@ Here is one that had eternal life, and this eternal life has died out. It was no
 
 "Yes." says one. "this is not the fear that troubles me; my only doubt is whether I am a child of God or not." I finish, therefore, by going over the old ground. Soul, if thou wouldst know whether thou art a child of God, look not to thyself, but look to Christ. Ye who are here to-day, who desire to be saved, but yet fear you never can be, never look to yourselves for any ground of acceptance before God. Not self, but Jesus; not heart, but Christ; not man, but man's Creator. O sinner! think not that thou art to bring anything to Christ to recommend thee. Come to him just as thou art. Me wants no good works of thine--no good feelings either. Come, just as thou art. All that thou canst want to fit thee for heaven, he has bought for thee, and he will give thee; all these freely thou shalt have for the asking. Only come, and he will not cast thee away. But do you say, "Oh, I cannot believe that Christ is able to save such a sinner as I am. "I reply, "O thou of little faith, wherefore dost thou doubt?" He has already saved sinners as great as thou art; only try him, only try him.
 
-> "Venture on him, venture wholly;  
-> Let no other trust intrude."  
+> Venture on him, venture wholly;    
+> Let no other trust intrude.    
 
 Try him, try him; and if you find him false, then tell it everywhere that Christ was untrue. But that shall never be. Go to him; tell him you are a wretched undone soul, without his sovereign grace; ask him to have mercy on you. Tell him you are determined, it you do perish, that you will perish at the foot of his cross. Go and cling to him, as he hangs bleeding there; look him in the face, and say, "Jesus, I have no other refuge; if thou spurn me, I am lost; but I will never go from thee; I will clasp thee in life, and clasp thee in death, as the only rock of my soul's salvation "Depend upon it, you shall not be sent empty away; you must, you shall be accepted, if you will simply believe. Oh, may God enable you, by the divine influence of his Holy Spirit, to believe; and then, shall we not have to put the question, "O thou of little faith, wherefore didst thou doubt?" I pray God now apply these words to your comfort. They have been very simple, and very homely words; but nevertheless, they will suit simple, homely hearts. If God shall bless them, to him be the glory!

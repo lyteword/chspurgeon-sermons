@@ -2,8 +2,8 @@
 
 Sermon No. 44 - Delivered on Sabbath Morning, September 23, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "Then hath God also to the Gentiles granted repentance unto life."  
-> Acts 11:18.  
+> Then hath God also to the Gentiles granted repentance unto life.    
+> Acts 11:18.    
 
 ONE OF THE GREATEST obstacles which the Christian religion ever overcame, was the inveterate prejudice which possessed the minds of its earliest followers. The Jewish believers, the twelve apostles, and those whom Jesus Christ had called from the dispersed of Israel, were so attached to the idea that salvation was of the Jews, and that none but the disciples of Abraham, or, at any rate, the circumcised ones, could be saved, that they could not bring themselves to the thought that Jesus had come to be the Saviour of all nations, and that in him should all the people of the earth be blessed. It was with difficulty they could allow the supposition; it was so opposite to all their Jewish education, that we find them summoning Peter before a council of Christians, and saving to him, "thou wentest in to men uncircumcised and didst eat with them." Nor could Peter exonerate himself until he had rehearsed the matter fully, and said that God had appeared unto him in a vision, declaring, "What God hath cleansed, that call not thou common," and that the Lord had bidden him preach the gospel to Cornelius and his household, inasmuch as they were believers. After this the power of grace was so mighty that these Jews could no longer withstand it: and in the teeth of all their previous education, they at once assumed the broad principle of Christianity," and glorified God, saying, Then hath God also to the Gentiles granted repentance unto life." Let us bless God that now we are free from the trammels of Judaism, and that we are not under those of a Gentilism which has in its turn excluded the Jew, but that we live so near the blessed time that is coming, when Jew and Gentile, bond and free, shall feel themselves one in Jesus Christ our Head. I am not now, however, about to enlarge upon this, but my subject this morning is "Repentance unto life." May God give me grace so to speak to you that his word may be as a sharp sword, "piercing even to the dividing asunder of soul and spirit, and of the joints and marrow."
 
@@ -37,8 +37,8 @@ Lest, however, I should hurt some of you, and make you feel what I do not intend
 
 There must be in this repentance, I think, not only sorrow, but there must be practice--practical repentance.
 
-> "Tis not enough to say we're sorry, and repent,  
-> And then go on from day to day just as we always went"  
+> Tis not enough to say we're sorry, and repent,    
+> And then go on from day to day just as we always went    
 
 Many people are very sorry and very penitent for their past sins Hear them talk. "Oh!" they say, "I deeply regret that ever I should have been a drunkard; and I sincerely bemoan that I should have fallen into that sin; I deeply lament that I should have done so." Then they go straight home; and when one; o'clock on Sunday comes you will find them at it again. And yet such people say they have repented Do you believe them when they say they are sinners, but do not love sin? They may not love it for the time; but can they be sincerely penitent, and then go and transgress again immediately, in the same way as they did before? How can we believe you if you transgress again and again, and do not forsake your sin? We know a tree by its fruit, and you who are penitent will bring forth works of repentance. I have often thought it was a very beautiful instance, showing the power of penitence which a pious minister once related. He had been preaching on penitence, and had in the course of his sermon spoke of the sin of stealing. On his way home a laborer came alongside of him, and the minister observed that he had something under his smock-frock. He told him he need not accompany him farther; but the man persisted. At last he said, "I have a spade under my arm which I stole up at that farm; I heard you preaching about the sin of stealing, and I must go and put it there again." That was sincere penitence which caused him to go back and replace the stolen article. It was like those South Sea Islanders, of whom we read who stole the missionaries' articles of apparel and furniture, and everything out of their houses; but when they were savingly converted they brought them all back. But many of you say you repent, yet nothing comes of it; it is not worth the snap of the finger. People sincerely repent, they say, that they should have committed a robbery, or that they have kept a gambling-house; but they are very careful that all the proceeds shall be laid out to their hearts' best comfort. True "repentance" will yield works meet for repentance," it will be practical repentance.
 
@@ -50,32 +50,32 @@ Now comes the concluding and third point, and that "THE BLESSED BENEFICENCE OF G
 
 I will say to my servants, go ye out into the highways and hedges, and compel them to come in, that they may partake of the feast I have prepared." Is it not a stupendous act of divine mercy that he actually makes them willing? He does not do it by force, but uses a sweet spiritual suasion. They are first as unwilling to be saved as they can be; "but," says God, "that is nothing, I have power to make you turn to me, and I will." The Holy Ghost then brings home the Word of God to the consciences of his children in so blessed a manner, that they can no longer refuse to love Jesus. Mark you, not by any force against the will, but by a sweet spiritual influence changing the will. O, ye lost and ruined sinners! stand here and admire my Master's mercy. He sets not only a feast of good things before men, but he induces them to come and partake of them, and constrains them to continue feasting until he carries them to the everlasting eternal mansion. And as he bears them up, he says to each one, "I have loved thee with an everlasting love, therefore, by my lovingkindness I have drawn thee. Now, dost thou love me?" "Oh, Lord," they cry, "thy grace in bringing us here proves that thou dost love us, for we were unwilling to go. Thou saidst, you shall go, we said we would not go, but thou hast made us go. And now, Lord, we bless thee, and love thee for that force. It was sweet constraint." I was a struggling captive, but I am now made willing.
 
-> "Oh! sovereign grace, my heart subdue!  
-> I would be led in triumph too;  
-> A willing captive to my Lord  
-> To sing the honors of his Word."  
+> Oh! sovereign grace, my heart subdue!    
+> I would be led in triumph too;    
+> A willing captive to my Lord    
+> To sing the honors of his Word.    
 
 Well now, what say you? Some of you will say, "Sir, I have been trying to repent for a long time. In pains and afflictions I have been praying and trying to believe, and doing all I can." I will tell you another thing: you will try a long time before you will be able to do it. That is not the way to get it. I heard of two gentlemen travelling. One of them said to the other, "I do not know how it is, but you always seem to recollect your wife and family, and all that is doing at home, and you seem as if you connected all things around you with them; but I try to bring mine to my recollection constantly, and yet I never can."; No," said the other, "that is the very reason--because you try. If you could connect them with every little circumstance ye meet, you would easily remember them. I think at such and such a time--now they are rising; at such and such a time--now they are at prayers; at such and such a time--now they are having their breakfast. In this way I have them still before me." I think the same thing happens with regard to "repentance." If a man says, "I want to believe," and tries by some mechanical means to work himself into repentance, it is an absurdity, and he will never accomplish it. But the way for him to repent is by God's grace to believe, to believe and think on Jesus. If he picture to himself the wounded bleeding side the crown of thorns, the tears of anguish--if he takes a vision of all that Christ suffered, I will be bound for it he will turn to him in repentance. I would stake what reputation I may have in spiritual things upon this--that a man cannot, under God's Holy Spirit, contemplate the cross of Christ without a broken heart. If it is not so, my heart is different from any one's else. I have never known a man who has thought upon, and taken a view of the cross, who has not found that it begat "repentance," and begat faith. We look at Jesus Christ if we would be saved, and we then say. "Amazing sacrifice! that Jesus thus died to save sinners." 
 
 If you want faith, remember he gives it, if you want repentance, he gives it! if you want everlasting life, he gives it liberally. He can force you to feel your great sin, and cause you to repent by the sight of Calvary's cross, and the sound of the greatest, deepest death shriek, "Eloi! Eloi! lama sabacthani?" "My God! my God! why hast thou forsaken me?" That will beget "repentance;" it will make you weep and say, "Alas! and did my Saviour bleed; and did my Sovereign die for me?" Then beloved, if you would have "repentance," this is my best advice to you--look to Jesus. And may the blessed Giver of all "repentance unto salvation" guard you from the false repentances which I have described, and give you that "repentance," which existeth unto life.
 
-> "Repent! the voice celestial cries,  
-> Nor longer dare delay;  
-> The wretch that scorns the mandate, dies,  
-> And meets a fiery day.  
-> No more the sovereign eye of GOD  
-> O'erlooks the crimes of men;  
-> His heralds are despatch'd abroad  
-> To warn the world of sin.  
-> The summons reach thro' all the earth  
-> Let earth attend and fear;  
-> Listen, ye men of royal birth,  
-> And let your vassals hear!  
-> Together in his presence bow,  
-> And all your guilt confess  
-> Embrace the blessed Saviour now,  
-> Nor trifle with his grace.  
-> Bow, ere the awful trumpet sound,  
-> And call you to his bar:  
-> For mercy knows the appointed bound.  
-> And turns to vengeance there."  
+> Repent! the voice celestial cries,    
+> Nor longer dare delay;    
+> The wretch that scorns the mandate, dies,    
+> And meets a fiery day.    
+> No more the sovereign eye of GOD    
+> O'erlooks the crimes of men;    
+> His heralds are despatch'd abroad    
+> To warn the world of sin.    
+> The summons reach thro' all the earth    
+> Let earth attend and fear;    
+> Listen, ye men of royal birth,    
+> And let your vassals hear!    
+> Together in his presence bow,    
+> And all your guilt confess    
+> Embrace the blessed Saviour now,    
+> Nor trifle with his grace.    
+> Bow, ere the awful trumpet sound,    
+> And call you to his bar:    
+> For mercy knows the appointed bound.    
+> And turns to vengeance there.    

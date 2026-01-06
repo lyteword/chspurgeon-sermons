@@ -2,11 +2,11 @@
 
 Sermon No. 191 - Delivered on Sabbath Morning, May 2, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "He shall build the temple of the Lord, and he shall bear the glory."  
-> Zechariah 6:13.  
+> He shall build the temple of the Lord, and he shall bear the glory.    
+> Zechariah 6:13.    
 
-> "There's music in all things, if men had ears;  
-> This world is but the echo of the spheres."  
+> There's music in all things, if men had ears;    
+> This world is but the echo of the spheres.    
 
 HEAVEN singeth evermore. Before the throne of God, angels and redeemed saints extol his name. And this world is singing too; sometimes with the loud noise of the rolling thunder, of the boiling sea of the dashing cataract, and of the lowing cattle; and often with that still, solemn harmony, which floweth from the vast creation, when in its silence it praises God. Such is the song which gushes in silence from the mountain lifting its head to the sky, covering its face sometimes with the wings of mist, and at other times unveiling its snow-white brow before its Maker, and reflecting back his sunshine, gratefully thanking him for the light with which it has been made to glisten, and for the gladness of which it is the solitary spectator, as in its grandeur it looks down upon the laughing valleys. The tune to which heaven and earth are set, is the same. In heaven they sing, "The Lord be exalted; let his name be magnified for ever." And the earth singeth the same: "Great art thou in thy works, O Lord! and unto thee be glory." It would seem, therefore, a strange anomaly if the church, the temple of the living God, should be void of song, and we bless God that such an anomaly doth not exist, for "day and night they praise God in his temple." And while it is true the ceaseless circles of the starry heavens are praising him without cessation, it is also true that the stars of earth, the churches of the Lord Jesus Christ, are each of them evermore singing their hymns of praise to him. 
 
@@ -62,8 +62,8 @@ But again: he shall have all the glory; all that can be conceived, all that can 
 
 But to conclude on this point, this glory is continual glory. It says he shall bear all the glory. When shall this dominion become effete? When shall this promise be so fulfilled that it is put away as a worn out garment? Never,
 
-> "While life, and thought, and being last,  
-> Or immortality endures,"  
+> While life, and thought, and being last,    
+> Or immortality endures,    
 
 we shall never leave off praising Christ. We think we can almost guess how we shall feel when we get to heaven, with regard to our Master. Methinks if I should ever be privileged to behold his blessed face with joy, I shall want nothing but to be allowed to approach his throne, and cast what little honor I may have before his feet, and then be there and ever more adore the matchless splendor of his love, the marvels of his might. Suppose some one entering were to say to the redeemed, "Suspend your songs for a moment! Ye have been praising Christ, lo, these six thousand years; many of you have without cessation praised him now these many centuries! Stop your song a moment; pause and give your songs to some one else for an instant." Oh, can you conceive the scorn with which the myriad eyes of the redeemed would smite the tempter? "Stop from praising him! No, never. Time may stop, for it shall be no more; the world may stop, for its revolutions must cease; the universe may stop its cycles and the movings of its world but for us to stop our songs--never, never!"--and it shall be said, "Hallelujah, hallelujah, hallelujah, the Lord God Omnipotent reigneth." He shall have all the glory, and he shall have it for ever; his name shall endure for ever; his name shall continue as long as the sun; men shall be blessed in him, and all generations shall call him blessed; therefore shall they praise him for ever and ever.
 
@@ -73,18 +73,18 @@ Daughters of Jerusalem, rejoice! you are more than women now. Sons of Israel, re
 
 Let me address myself last of all to others of you. Alas! my hearers, I have many here who have no portion in Israel, neither any lot in Jacob. How many of you there are, who are not stones in the spiritual temple, never to be used in the building up of God's Jerusalem. Let me ask you one thing; it may seem a slight thing to-day to be left out of the muster-roll of Christ's church,--will it seem a slight thing to be left out, when Christ shall call for his people? When you are all assembled around his great white throne at last, and the books shall be opened, oh! how dread the suspense, while name after name is read! how dreadful your suspense, when it comes to the last name, and yours has been left out! That verse of our hymn has often impressed me very solemnly:
 
-> "I love to meet among them now,  
-> Before thy gracious feet to bow,  
-> Though vilest of them all;  
-> But can I bear the piercing thought--  
-> What if my name should be left out,  
-> When thou for them shalt call?"  
+> I love to meet among them now,    
+> Before thy gracious feet to bow,    
+> Though vilest of them all;    
+> But can I bear the piercing thought--    
+> What if my name should be left out,    
+> When thou for them shalt call?    
 
 Sinner conceive it! The list is read, and thy name unmentioned. Laugh at religion now! scoff at Christ now! now that the angels are gathering for the judgment; now that the trumpet sounds exceedingly loud and long; now that the heavens are red with fire, that the great furnace of hell o'erleaps its boundary, and is about to encircle thee in its flame; now despise religion! Ah! no. I see thee. Now thy stiff knees are bending, now thy bold forehead for the first time is covered with the hot sweat of trembling, now thine eyes that once were full of scorn are full of tears, thou dost lock on him whom thou didst despise, and thou art weeping for thy sin. sinner, it will be too late then. there is no cutting of the stone after it gets to Jerusalem. Where thou fallest there thou liest. Where judgment ends thee, there eternity shall leave thee. Time shall be no more when judgment comes, and when time is no more, change is impossible! In eternity there can be no change, no deliverance, no signing of acquittal. Once lost, lost for ever; once damned, damned to all eternity. Wilt thou choose this and despise Christ? or wilt thou have Christ and have heaven? I charge you by him that shall judge the quick and the dead, whose I am, and whom I serve, who is the searcher of all hearts, choose ye this day whom ye will serve. 
 
 If sin be best serve sin, and reap its wages. If you can make your bed in hell, if you can endure eternal burnings, be honest with yourself, and look at the wages while you do the work. But if you would have heaven, if you would be amongst the many who shall be glorified with Christ, believe on the Lord Jesus Christ; believe now, to-day "If ye will hear his voice harden not your hearts as in the provocation." "Kiss the Son, lest he be angry and ye perish from the way, when his wrath is kindled but a little." Men, brethren, and fathers, believe and live; cast yourself at Jesus' feet, put your trust in him,
 
-> "Renounce thy works and ways with grief,  
-> And fly to this most sure relief;"  
+> Renounce thy works and ways with grief,    
+> And fly to this most sure relief;    
 
 giving up all you are to come to him, to be saved by him now, and saved eternally. O Lord, bless my weak but earnest appeal, for Christ's sake. Amen.

@@ -2,8 +2,8 @@
 
 Sermon No. 180 - Delivered on Sabbath Evening, February 21, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "The peace of God, which passeth all understanding, shall keep your hearts and minds, through Christ Jesus."  
-> Philippians 4:7.  
+> The peace of God, which passeth all understanding, shall keep your hearts and minds, through Christ Jesus.    
+> Philippians 4:7.    
 
 IT IS REMARKABLE, that when we find an exhortation given to God's people in one part of the Holy Scripture, we almost invariably find the very thing which they are exhorted to do guaranteed to them, and provided for them, in some other part of the same blessed volume. This morning, my text was, "Keep the heart with all diligence, for out of it are the issues of life." Now, this evening we have the promise upon which we must rest, if we desire to fulfill the precept:--"The peace of God, which passeth all understanding, shall keep your hearts and minds, through Christ Jesus."
 
@@ -49,9 +49,9 @@ These, then, are the precepts. May God the Holy Spirit enable us to obey them, a
 
 Now, the third thing, was to show HOW THE PEACE, which I attempted to describe in the first place, KEEPS THE HEART. You will clearly see how this peace will keep the heart full. That man who has continued peace with God, will not have an empty heart. He feels that God has done so much for him that he must love his God. The eternal basis of his peace lays in divine election--the solid pillars of his peace, the incarnation of Christ, his righteousness, his death-- the climax of his peace, the heaven hereafter where his joy and his peace shall be consummated; all these are subjects for grateful reflection, and will, when meditated upon, cause more love. Now, where much love is, there is a large heart and a full one. Keep, then, this peace with God, and thou wilt keep thy heart full to the brim. And, remember, that in proportion to the fullness of thine heart will be the fullness of thy life. Be empty-hearted and thy life will be a meager, skeleton existence. Be full-hearted, and thy life will be full, fleshy, gigantic, strong, a thing that will tell upon the world. Keep, then, thy peace with God firm within thee. Keep thou close to this, that Jesus Christ hath made peace between thee and God. And keep thy conscience still; then shall thy heart be full and thy soul strong to do thy Master's work. Keep thy peace with God. This will keep thy heart pure. Thou wilt say if temptation comes, "What dost thou offer me? Thou offerest me pleasure; lo! I have got it. Thou offerest me gold; lo! I have got it; all things are mine, the gift of God; I have a city that hands have not made, a house not made with hands, eternal in the heavens.' I will not barter this for your poor gold." "I will give you honor," saith Satan. "I have honor enough," says the peaceful heart; "God will honor me in the last great day of his account." "I will give thee everything that thou canst desire," saith Satan. "I have everything that I can desire," says the Christian.
 
-> "I nothing want on earth;  
-> Happy in my Saviour's love,  
-> I am at peace with God."  
+> I nothing want on earth;    
+> Happy in my Saviour's love,    
+> I am at peace with God.    
 
 Avaunt, then, Satan! While I am at peace with God, I am a match for all thy temptations. Thou offerest me silver; I have gold. Thou bringest before me the riches of the earth; I have something more substantial than these. Avaunt, tempter of human kind! Avaunt, thou fiend! Your temptations and blandishments are lost on one who has peace with God. This peace, too, will keep the heart undivided. He who has peace with God will set his whole heart on God. "Oh!" says he, "why should I go to seek anything else on earth, now that I have found my rest in God? As the bird by wandering, so should I be if I went elsewhere. I have found a fountain; why should I go and drink at the broken cistern that will hold no water? I lean on the arm of my beloved; why should I rest on the arm of another? I know that religion is a thing worth my following; why should I leave the pure snows of Lebanon to follow something else? I know and feel that religion is rich when it brings forth to me a hundredfold the fruits of peace; why should I go and sow elsewhere? I will be like the maiden Ruth, I will stop in the fields of Boaz. Here will I ever stay and never wander."
 

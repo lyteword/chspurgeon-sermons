@@ -2,8 +2,8 @@
 
 Sermon No. 22 - Delivered on Sabbath Morning, May 13, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
-> "Let him that thinketh he standeth take heed lest he fall."  
-> 1 Corinthians 10:12.  
+> Let him that thinketh he standeth take heed lest he fall.    
+> 1 Corinthians 10:12.    
 
 IT is a singular fact, but nevertheless most certain, that the vices are the counterfeits of virtues. Whenever God sends from the mint of heaven a precious coin of genuine metal, Satan will imitate the impress, and utter a vile production of no value. God gives love; it is his nature and his essence. Satan also fashioneth a thing which he calls love, but it is lust. God bestows courage; and it is a good thing to be able to look one's fellow in the face, fearless of all men in doing our duty. Satan inspires fool-hardiness, styles it courage, and bids the man rush to the cannon's mouth for "bubble reputation." God creates in man holy fear. Satan gives him unbelief, and we often mistake the one for the other. So with the best of virtues, the saving grace of faith, when it comes to its perfection it ripens into confidence, and there is nothing so comfortable and so desirable to the Christian, as the full assurance of faith. Hence, we find Satan, when he sees this good coin, at once takes the metal of the bottomless pit, imitates the heavenly image and superscription of assurance, and palms upon us the vice of presumption.
 
@@ -19,7 +19,7 @@ Again, light thoughts of sin will engender presumption. When we are first conver
 
 So with sin. First, a little sin doth startle us. Soon we say, "Is it not a little one?" like Lot did of Zoar. Then there comes another, larger, and then another, until by degrees we begin to regard it as but a little ill; and then you know, there comes an unholy presumption, and we think we stand. "We have not fallen," say we, "we only did such a little thing; we have not gone astray. True, we tripped a little, but we stood upright in the main. We might have uttered one unholy word, but as for the most of our conversation, it was consistent." So we palliate sin; we throw a gloss over it, we try to hide it. Christian, beware! when thou thinkest lightly of sin, then thou hast become presumptuous. Take heed, lest thou shouldst fall. Sin-- a little thing! Is it not a poison! Who knows its deadliness? Sin-- a little thing! Do not the little foxes spoil the vines? Sin--a little thing! Doth not the tiny coral insect build a rock that wrecks a navy? Do not little strokes fell lofty oaks? Will not continual droppings wear away stones? Sin--a little thing! It girded his head with thorns that now is crowned with glory. Sin--a little thing! It made him suffer anguish, bitterness, and woe, till he endured
 
-> "All that incarnate God could bear, with strength enough, and none to spare."  
+> All that incarnate God could bear, with strength enough, and none to spare.    
 
 It is not a little thing, sirs. Could you weigh it in the scales of eternity, you would fly from it as from a serpent, and abhor the least appearance of evil. But alas! loose thoughts of sin often beget a presumptuous spirit, and we think we stand.
 
@@ -27,8 +27,8 @@ A third reason often is, low thoughts of the value of religion. We none of us va
 
 But again, this presumption often springs from ignorance of what we are, and where we stand. Many Christians have not yet learned what they are. It is true, the first teaching of God is to shew us our own state, but we do not know that thoroughly till many year s after we have known Jesus Christ. The fountains of the great deep within our hearts are not broken up all at once; the corruption of our soul is not developed in an hour. "Son of man," said the angel of Ezekiel, "I will show thee the abominations of Israel." He then took him in at one door, where he saw abominable things, and stood aghast. "Son of man, I will show thee greater abominations than these;" then he takes him into another chamber, and Ezekiel says, "Surely I have now seen the worst." "No," says the angel, "I will show thee greater things than these." So, all our life long the Holy Spirit reveals to us the horrid abomination of our hearts. I know there are some here who do not think anything about it; they think they are good-hearted creatures. Good hearts, have you? Good hearts! Jeremiah had a better heart than you, yet he said, "The heart is deceitful above all things, and desperately wicked; who can know it?" No; the black lesson cannot be learned in a night. God alone knows the evil of the heart; and Young says, "God spares all eyes but his own that awful sight--the vision of a human heart." If we could but see it, we should stand aghast. Well, it is ignorance of this that makes us presume. We say, "I have a good nature, I have a noble disposition; I have none of those hot and angry passions that some have; I can stand secure; I have not that dry, tindery heart that is on fire in a moment; my passions are weakened; my powers for evil are somewhat taken down, and I may stand safely." Ah! ye little know that it is when ye talk like this, that ye presume. O worm of the dust, thou art not yet free from an evil nature, for sin and corruption remain in the heart even of the regenerate; and it is strangely true, though it appears a paradox, as Ralph Erskine said, that a Christian sometimes thinks himself
 
-> "To good and evil equal bent  
-> And both a devil and a saint."  
+> To good and evil equal bent    
+> And both a devil and a saint.    
 
 There is such corruption in a Christian, that while he is a saint in his life, and justified through Christ, he seems a devil sometimes in imagination, and a demon in the wishes and corruptions of his soul. Take heed, Christian, thou hast need to be upon the watch tower; thou hast a heart of unbelief; therefore watch thou both night and day.
 

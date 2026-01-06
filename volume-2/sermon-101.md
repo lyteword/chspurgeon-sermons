@@ -4,8 +4,8 @@ Sermon No. 101 - Delivered on Sabbath Morning, November 2, 1856, by the REV. C.H
 
 *This sermon was Spurgeon's first message following the disaster at the Music Hall, Royal Surrey Gardens--in which seven people lost their lives when some miscreants purposely started a panic while Mr. Spurgeon was preaching.*
 
-> "Wherefore God also hath highly exalted him, and given him a name which is above every name: That at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth; And that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father."  
-> Philippians 2:9-11.  
+> Wherefore God also hath highly exalted him, and given him a name which is above every name: That at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth; And that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father.    
+> Philippians 2:9-11.    
 
 I ALMOST regret this morning that I have ventured to occupy this pulpit, because I feel utterly unable to preach to you for your profit. I had thought that the quiet and repose of the last fortnight had removed the effects of that terrible catastrophe; but on coming back to the same spot again, and more especially, standing here to address you, I feel somewhat of those same painful emotions which well-nigh prostrated me before. You will therefore excuse me this morning, if I make no allusion to that solemn event, or scarcely any. I could not preach to you upon a subject that should be in the least allied to it. I should be obliged to be silent if I should bring to my remembrance that terrific scene in the midst of which it was my solemn lot to stand. God shall overrule it doubtless. It may not have been so much by the malice of men, as some have asserted; it was perhaps simple wickedness--an intention to disturb a congregation; but certainly with no thought of committing so terrible a crime as that of the murder of those unhappy creatures. God forgive those who were the instigators of that horrid act! They have my forgiveness from the depths of my soul. It shall not stop us, however; we are not in the least degree daunted by it. I shall preach there again yet; ay, and God shall give us souls there, and Satan's empire shall tremble more than ever. "God is with us; who is he that shall be against us?" The text I have selected is one that has comforted me, and in a great measure, enabled me to come here to-day--the single reflection upon it had such a power of comfort on my depressed spirit. It is this:--"Wherefore God also hath highly exalted him, and given him a name which is above every name: That at the name of Jesus every knee should bow, of things in heaven, and things on earth, and things under the earth; And that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father." Philippians 2:9-11.
 
@@ -19,7 +19,7 @@ First, then, IN THE VERY FACT OF CHRIST'S EXALTATION THERE IS TO EVERY TRUE CHRI
 
 But from the fact of kindred, each step was invested with a deep and stirring interest. Now, it is so with this Christian. He feels that Jesus Christ, the glorified "Prince of the kings of the earth." is his brother. While he reverences him as God, he admires him as the man-Christ, bone of his bone, and flesh of his flesh, and he delights, in his calm and placid moments of communion with Jesus, to say to him, "O Lord, thou art my brother." His song is, "My beloved is mine, and I am his." It is his joy to sing--
 
-> "In the blood with sinners one,"  
+> In the blood with sinners one,    
 
 Christ Jesus is; for he is a man, even as we are: and he is no less and no more man than we are, save only sin. Surely, when we feel we are related to Christ, his exaltation is the source of the greatest joy to our spirits; we take a delight in it, seeing it is one of our family that is exalted. It is the Elder Brother of the great one family of God in heaven and earth; it is the Brother to whom all of us are related.
 
@@ -35,8 +35,8 @@ Do ye scorn me? Do ye despise me? Thrice happy am I to bear it. If ye will not s
 
 Now, briefly upon the second point. Here also is the very fountain and well-spring of joy, in THE REASON OF CHRIST'S EXALTATION. "Wherefore God also hath highly exalted him." Why? Because, "he being in the form of God, thought it not robbery to be equal with God: But made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: And being found in fashion as a man, he humbled himself, and because obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him." This of course relates to the manhood of our Lord Jesus Christ. As God, Christ needed no exaltation; he was higher than the highest, "God over all, blessed for ever." But the symbols of his glory having been for a while obscured, having wrapped his Godhead in mortal flesh, his flesh with his Godhead ascended up on high, and the man-God, Christ Jesus, who had stooped to shame, and sorrow, and degradation, was highly exalted, "far above all principalities and powers," that he might reign Prince-regent over all worlds, yea, over heaven itself. Let us consider, for a moment, that depth of degradation to which Christ descended; and then, my beloved, it will give you joy to think, that for that very reason his manhood was highly exalted. Do you see that man--
 
-> "The humble Man before his foes,  
-> The weary Man and full of woes?"  
+> The humble Man before his foes,    
+> The weary Man and full of woes?    
 
 Do you mark him as he speaks? Note the marvellous eloquence which pours from his lips, and see how the crowds attend him? But do you hear, in the distance, the growling of the thunders of calumny and scorn? Listen to the words of his accusers. They say he is "a gluttonous man and a wine-bibber, a friend of publicans and sinners;" "he has a devil, and is mad." All the whole vocabulary of abuse is exhausted by vituperation upon him. He is slandered, abused, persecuted! Stop! Do you think that he is by this cast down, by this degraded? No, for this very reason: "God hath highly exalted him." Mark the shame and spitting that have come upon the cheek of yonder man of sorrows! See his hair plucked with cruel hands; mark ye how they torture him and how they mock him. Do you think that this is all dishonourable to Christ? It is apparently so; but list to this: "He became obedient," and therefore "God hath highly exalted him." Ah! there is a marvellous connection between that shame, and spitting, and the bending of the knee of seraphs; there is a strange yet mystic link which unites the calumny and the slander with the choral sympathies of adoring angels. The one was, as it were, the seed of the other. Strange that it should be, but the black, the bitter seed brought forth a sweet and glorious flower which blooms for ever. He suffered and he reigned; he stopped to conquer, and he conquered for he stooped, and was exalted for he conquered.
 
@@ -48,10 +48,10 @@ And now, in the last place, beloved, here is yet another comfort for you. THE PE
 
 Now, just pause over this thought--that Christ did not crown himself, but that his Father crowned him; that he did not elevate himself to the throne of majesty, but that his Father lifted him there, and placed him on his throne. Why, reflect thus: Man never highly exalted Christ. Put this then in opposition to it--"God also hath highly exalted him." Man hissed him, mocked him, hooted him. Words were not hard enough--they would use stones. "They took up stones again to stone him." And stones failed; nails must be used, and he must be crucified. And then there comes the taunt, the jeer, the mockery, whilst he hangs languishing on the death-cross. Man did not exalt him. Set the black picture there. Now put this, with this glorious, this bright scene, side by side with it, and one shall be a foil to the other. Man dishonoured him; "God also exalted him." Believer, if all men speak ill of thee, lift up thy head, and say, "Man exalted not my Master; I thank him that he exalts not me. The servant should not be above his master, nor the servant above his lord, nor he that is sent greater than he that sent him."
 
-> "If on my face for his dear name,  
-> Shame and reproach shall be;  
-> I'll hail reproach and welcome shame,  
-> For he'll remember me."  
+> If on my face for his dear name,    
+> Shame and reproach shall be;    
+> I'll hail reproach and welcome shame,    
+> For he'll remember me.    
 
 God will remember me, and highly exalt me after all, though man casts me down.
 
@@ -59,27 +59,27 @@ Put it, again, in opposition to the fact, that Christ did not exalt himself. Poo
 
 And now, beloved, I can say little more upon this text, save that I bid you now for a minutes meditate and think upon it. Oh! let your eyes be lifted up; bid heaven's blue veil divide; ask power of God--I mean spiritual power from on high, to look within the veil. I bid you not look to the streets of gold, nor to the walls of jasper, nor to the pearly-gated city. I do not ask you to turn your eyes to the white-robed hosts, who for ever sing loud hallelujahs; but yonder, my friends, turn your eyes,
 
-> "There, like a man, the Saviour sits;  
-> The God, how bright he shines;  
-> And scatters infinite delight  
-> On all the happy minds."  
+> There, like a man, the Saviour sits;    
+> The God, how bright he shines;    
+> And scatters infinite delight    
+> On all the happy minds.    
 
 Do you see him?
 
-> "The head that once was crowned with thorns,  
-> Is crowned with glory now;  
-> A royal diadem adorns  
-> That mighty Victor's brow.  
-> No more the bloody crown,  
-> The cross and nails no more:  
-> For hell itself shakes at his frown,  
-> And all the heavens adore."  
+> The head that once was crowned with thorns,    
+> Is crowned with glory now;    
+> A royal diadem adorns    
+> That mighty Victor's brow.    
+> No more the bloody crown,    
+> The cross and nails no more:    
+> For hell itself shakes at his frown,    
+> And all the heavens adore.    
 
 Look at him! Can your imagination picture him? Behold his transcendent glory! The majesty of kings is swallowed up; the pomp of empires dissolves like the white mist of the morning before the sun; the brightness of assembled armies is eclipsed. He in himself is brighter than the sun, more terrible than armies with banners. See him! See him! O! hide your heads, ye monarchs; put away your gaudy pageantry, ye lords of this poor narrow earth! His kingdom knows no bounds; without a limit his vast empire stretches out itself. Above him all is his; beneath him many a step are angels, and they are his; and they cast their crowns before his feet. With them stand his elect and ransomed, and their crowns too are his. And here upon this lower earth stand his saints, and they are his, and they adore him; and under the earth, among the infernals, where devils growl their malice, even there is trembling and adoration; and where lost spirits, with wailing and gnashing of teeth for ever lament their being, even there, there is the acknowledgment of his Godhead, even though the confession helps to make the fire of their torments. In heaven, in earth, in hell, all knees bend before him, and every tongue confesses that he is God. If not now, yet in the time that is to come this shall be carried out, that ever creature of God's making shall acknowledge his Son to be "God over all, blessed for ever. Amen." Oh! my soul anticipates that blessed day, when this whole earth shall bend its knee before its God willingly! I do believe there is a happy era coming, when there shall not be one knee unbent before my Lord and Master. I look for that time, that latter-day glory, when kings shall bring presents, when queens shall be the nursing mothers of the church, when the gold of Sheba and the ships of Tarshish, and the dromedaries of Arabia shall alike be his, when nations and tribes of every tongue shall
 
-> "Dwell on his name with sweetest song,  
-> And infant voices shall proclaim  
-> Their early blessings on his name."  
+> Dwell on his name with sweetest song,    
+> And infant voices shall proclaim    
+> Their early blessings on his name.    
 
 Sometimes I hope to live to see that all-auspicious era--that halcyon age of this world, so much oppressed with grief and sorrow by the tyranny of its own habitants. I hope to see the time, when it shall be said, "Shout, for the great Shepherd reigns, and his unsuffering kingdom now is come"--when earth shall be one great orchestra of praise, and every man shall sing the glorious hallelujah anthem of the King of kings. But even now, while waiting for that era, my soul rejoices in the fact, that every knee does virtually bow, though not willingly, yet really. Does the scoffer, when he mouths high heaven, think that he insults God? He thinks so, but his insult dies long ere it reaches half-way to the stars. Does he conceive, when in his malice he forges a sword against Christ, that his weapon shall prosper? If he does, I can well conceive the derision of God, when he sees the wildest rebel, the most abandoned despiser, still working out his great decrees, still doing that which God hath eternally ordained, and in the midst of his wild rebellion still running in the very track which in some mysterious way before all eternity had been marked as the track in which that being should certainly move. "The wild steeds of earth have broken their bridles, the reins are out of the hands of the charioteer"--so some say; but they are not, or if they are, the steeds run the same round as they would have done had the Almighty grasped the reins still. The world has not gone to confusion; chance is not God; God is still Master, and let men do what they will, and hate the truth we now prize, they shall after all do what God wills, and their direst rebellion shall prove but a species of obedience, though they know it not.
 

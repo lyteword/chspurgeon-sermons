@@ -2,8 +2,8 @@
 
 Sermon No. 146 - Delivered on Sabbath Morning, August 16, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "For to me to live is Christ, and to die is gain."  
-> Philippians 1:21.  
+> For to me to live is Christ, and to die is gain.    
+> Philippians 1:21.    
 
 HOW OMINOUSLY these words follow each other in the text--"live," "die." There is but a comma between them, and surely as it is in the words so is it in reality. How brief the distance between life and death! In fact there is none. Life is but death's vestibule, and our pilgrimage on earth is but a journey to the grave. The pulse that preserves our being beats our death march, and the blood which circulates our life is floating it onward to the deeps of death. To-day we see our friends in health, to-morrow we hear of their decease. We clasped the hand of the strong man but yesterday, and to-day we close his eyes. We rode in the chariot of comfort but an hour ago, and in a few more hours the last black chariot must convey us to the home of all living. Oh, how closely allied is death to life! The lamb teat sporteth in the field must soon feel the knife. The ox that loweth in the pasture is fattening for the slaughter. Trees do but grow that they may be felled. Yea, and greater things than these feel death. Empires rise and flourish, they flourish but to decay, they rise to fall. How often do we take up the volume of history, and read of the rise and fall of empires. We hear of the coronation and the death of kings. Death is the black servant who rides behind the chariot of life. See life! and death is close behind it. Death reacheth far throughout this world, and hath stamped all terrestrial things with the broad arrow of the grave. Stars die mayhap; it is said that conflagrations have been seen far off in the distant ether, and astronomers have marked the funerals of worlds, the decay of those mighty orbs that we had imagined set for ever in sockets of silver to glisten as the lamps of eternity. But blessed be God, there is one place where death is not life's brother, where life reigns alone; "to live," is not the first syllable which is to be followed by the next, "to die." There is a land where deathknells are never tolled, where winding-sheets are never woven, where graves are never digged. Blest land beyond the skies! To reach it we must die. But if after death we obtain a glorious immortality, our text is indeed true: "To die is gain."
 
@@ -29,9 +29,9 @@ Brethren and sisters, can you say, as professing Christians, that you live up to
 
 There comes the dinner or the ball, and the conclusion of the day; and then Amen, so be it, for ever. Now you don't live for Christ. I know you go to church regularly, or attend at some dissenting chapel; all well and good. I shall not deny your piety, according to the common usage of the term, but I deny that you have got to anything like the place where Paul stood when he said, "For me to live is Christ." I, my brethren, know that with much earnest seeking I have failed to realize the fullness of entire devotion to the Lord Jesus. Every minister must sometimes chasten himself and say, "Am I not sometimes a little warped in my utterances? Did I not in some sermon aim to bring out a grand thought instead of stating a home truth? Have I not kept back some warning that I ought to have uttered, because I feared the face of man?" Have we not all good need to chasten ourselves, because we must say that we have not lived for Christ as we should have done? And yet there are, I trust, a noble few, the elite of God's elect, a few chosen men and women on whose heads there is the crown and diadem of dedication, who can truly say, "I have nothing in this world I cannot give to Christ--I have said it, and mean what I have said--
 
-> 'Take my soul and body's powers,  
-> All my goods and all my hours,  
-> All I have, and all I am.'  
+> Take my soul and body's powers,    
+> All my goods and all my hours,    
+> All I have, and all I am.    
 
 Take me, Lord, and take me for ever." These are the men who make our missionaries; these are the women to make our nurses for the sick, these are they that would dare death for Christ; these are they who would give of their substance to his cause; these are they who would spend and be spent, who would bear ignominy, and scorn, and shame if they could but advance their Master's interest. How many of this sort have I here this morning? Might I not count many of these benches before I could find a score? Many there are who do in a measure carry out this principle; but who among us is there (I am sure he standeth not here in this pulpit) that can dare to say he hath lived wholly for Christ, as the apostle did? And yet, till there be more Pauls, and more men dedicated to Christ, we shall never see God's kingdom come, nor shall we hope to see his will done on earth, even as it is in heaven.
 
@@ -43,8 +43,8 @@ Hear ye the words of the text, by way of consolation, "To die is gain." Not such
 
 My dear friends, when I discoursed upon the former part of the verse, it was all plain. No proof was needed; ye believed it, for you saw it clearly. "To live is Christ," hath no paradox in it. But "To die is gain," is one of the Gospel riddles which only the Christian can truly understand. To die is not gain if I look upon the merely visible, to die is loss, it is not gain. Hath not the dead man lost his wealth? though he had piles of riches, can he take anything with him? Hath it not been said, "Naked came I out of my mother's womb, and naked shall I return thither." "Dust thou art, and unto dust shalt thou return." And which of all thy goods, canst thou take with thee? The man had a fair estate and a goodly mansion; he hath lost that. He can no more tread those painted halls, nor walk those verdant lawns. He had abundance of fame and honor; he hath lost that, so far as his own sense of it is concerned, though still the harp string trembles at his name. He has lost his wealth, and buried though he may be in a costly tomb, yet is he as poor as the beggar who looked upon him in the street in envy. That is not gain, it is loss and he hath lost his friends: he hath left behind him a sorrowing wife and children, fatherless, without his guardian care; he hath lost the friend of his bosom, the companion of his youth. Friends are there to weep over him, but they cannot cross the river with him; they drop a few tears into his tomb, but with him they must not and cannot go. And hath he not lost all his learning, though he hath toiled ever so much to fill his brain with knowledge? What is he now above the servile slave, though he hath acquired all knowledge of earthly things? Is it not said,
 
-> "Their memory and their love are lost  
-> Alike unknowing and unknown?"  
+> Their memory and their love are lost    
+> Alike unknowing and unknown?    
 
 Surely death is loss. Hath he not lost the songs of the sanctuary and the prayers of the righteous? Hath he not lost the solemn assembly, and the great gathering of the people? No more shall the promise enchant his ear, no more shall the glad tidings of the gospel wake his soul to melody. He sleeps in the dust, the Sabbath-bell tolls not for him, the sacramental emblems are spread upon the table, but not for him. He hath gone to his grave, he knoweth not that which shall be after him. There is neither work nor device in the grave, whither we all are hastening. Surely death is loss. When I look upon thee, thou clay-cold corpse, and see thee just preparing to be the palace of corruption and the carnival for worms, I cannot think that thou hast gained. When I see that thine eye hath lost light, and thy lip hath lost its speech, and thine ears have lost hearing, and thy feet have lost motion, and thy heart hath lost its joy, and they that look out of the windows are darkened, the grinders have failed, and no sounds of tabret and of harp wake up thy joys, O clay-cold corpse, than hast lost, lost immeasurably. And yet my text tells me it is not so. It says, "To die is gain." It looks as if it could not be thus, and certainly it is not, so far as I can see. But put to your eye the telescope of faith, take that magic glass which pierces through the veil that parts us from the unseen. Anoint your eyes with eyesalve, and make them so bright that they can pierce the ether and see the unknown worlds. Come, bathe yourself in this sea of light, and live in holy revelation and belief, and then look, and oh how changed the scene! Here is the corpse, but there the spirit; here is the clay, but there the soul, here is the carcase, but there the seraph. He is supremely blest; his death is gain. Come now, what did he lose? I will show that in everything he lost, he gained far more. He lost his friends, did he? His wife, and his children, his brethren in church fellowship, are all lea to weep his loss. 
 
@@ -54,35 +54,35 @@ What else did we say he lost? We said he lost all his estate, all his substance 
 
 And as for the means of grace which we leave behind, what are they when compared with what we shall have hereafter? Oh, might I die at this hour, I think I would say something like this, "Farewell Sabbaths,--I am going to the eternal Sabbath of the redeemed. Farewell minister; I shall need no candle, neither light of the sun, when the Lord God shall give me light, and be my life for ever and ever. Farewell ye songs and sonnets of the blessed; farewell, I shall not need your melodious burst; I shall hear the eternal and unceasing hallelujahs of the beatified. Farewell, ye prayers of God's people; my spirit shall hear for ever the intercessions of my Lord, and join with the noble army of martyrs in crying, O Lord, how long?' Farewell, O Zion! Farewell, house of my love, home of my life! Farewell, ye temples where God's people sing and pray; farewell, ye tents of Jacob, where they daily burn their offering!-I am going to a better Zion than you, to a brighter Jerusalem, to a temple that hath foundations, whose builder and maker is God!" O my dear friends, in the thought of these things, do we not, some of us, feel as if we could die!
 
-> "E'en now by faith we join our hands  
-> With those that went before,  
-> And greet the blood-besprinkled bands  
-> Upon th' eternal shore.  
-> One army of the living God,  
-> At his command we bow,  
-> Part of the host have crossed the flood,  
-> And part are crossing now."  
+> E'en now by faith we join our hands    
+> With those that went before,    
+> And greet the blood-besprinkled bands    
+> Upon th' eternal shore.    
+> One army of the living God,    
+> At his command we bow,    
+> Part of the host have crossed the flood,    
+> And part are crossing now.    
 
 We have not come to the margin yet, but we shall be there soon: we soon expect to die.
 
 And again, one more thought. We said that when men died they lost their knowledge, we correct ourselves. Oh, no, when the righteous die they know infinitely more than they could have known on earth.
 
-> "There shall I see and hear and know  
-> All I desired or wished below;  
-> And every power find sweet employ,  
-> In that eternal world of joy."  
+> There shall I see and hear and know    
+> All I desired or wished below;    
+> And every power find sweet employ,    
+> In that eternal world of joy.    
 
 "Here we see through a glass darkly, but there face to face." There, what "eye hath not seen nor ear heard" shall be fully manifest to us. There, riddles shall be unravelled, mysteries made plain, dark texts enlightened, hard providences made to appear wise. The meanest soul in heaven knows more of God than the greatest saint on earth. The greatest saint on earth may have it said of him, "Nevertheless he that is least in the kingdom of heaven is greater than he." Not our mightiest divines understand so much of theology as the lambs of the flock of glory. Not the greatest master-minds of earth understand the millionth part of the mighty meanings which have been discovered by souls emancipated from clay. Yes, brethren, "To die is gain." Take away, take away that hearse, remove that shroud; come, put white plumes upon the horse's heads and let gilded trappings hang around them. There, take away that fife, that shrill sounding music of the death march. Lend me the trumpet and the drum. O hallelujah, hallelujah, hallelujah; why weep we the saints to heaven; why need we lament? They are not dead, they are gone before. Stop, stop that mourning, refrain thy tears, clap your hands, clap your hands.
 
-> "They are supremely blest,  
-> Have done with care and sin and woe;  
-> And with their Saviour rest."  
+> They are supremely blest,    
+> Have done with care and sin and woe;    
+> And with their Saviour rest.    
 
 What! weep! weep! for heads that are crowned with coronals of heaven? Weep, weep for hands that grasp the harps of gold? What, weep for eyes that see the Redeemer? What, weep for hearts that are washed from sin, and are throbbing with eternal bliss! What, weep for men that are in the Saviour's bosom?-No, weep for yourselves, that you are here. Weep that the mandate has not come which bids you to die. Weep that you must tarry. But weep not for them. I see them turning back on you with loving wonder, and they exclaim, "Why weepest thou?" What, weep for poverty that it is clothed in riches? What, weep for sickness, that it hath inherited eternal health? What, weep for shame, that it is glorified; and weep for sinful mortality, that it hath become immaculate? Oh, weep not, but rejoice. "If ye knew what it was that I have said unto you, and whither I have gone, ye would rejoice with a joy that no man should take from you." "To die is gain." Ah, this makes the Christian long to die--makes him say,
 
-> "Oh, that the word were given!  
-> O Lord of Hosts, the wave divide,  
-> And land us all in heaven!"  
+> Oh, that the word were given!    
+> O Lord of Hosts, the wave divide,    
+> And land us all in heaven!    
 
 And now, friends, does this belong to you all? Can you claim an interest in it? Are you living to Christ? Does Christ live in you? For if not, your death will not be gain. Are you a believer in the Saviour? Has your heart been renewed, and your conscience washed in the blood of Jesus? If not, my bearer, I weep for thee. I will save my tears for lost friends; there, with this handkerchief I'd staunch mine eyes for ever for my best beloved that shall die, if those tears could save you. O, when you die, what a day! If the world were hung in sackcloth, it could not express the grief that you would feel. You die. O death! O death! how hideous art thou to men that are not in Christ! And yet, my hearer, thou shalt soon die. Save me thy bed of shrieks, thy look of gall, thy words of bitterness! Oh that thou couldst be saved the dread hereafter! Oh! the wrath to come! the wrath to come! the wrath to come! who is he that can preach of it? Horrors strike the guilty soul! It quivereth upon the verge of death; no, on the verge of hell. It looketh over, clutching hard to life, and it heareth there the sullen groans, the hollow moans, and shrieks of tortured ghosts, which come up from the pit that is bottomless, and it clutcheth firmly to life, clasps the physician, and bids him hold, lest he should fall into the pit that burneth. And the spirit looketh down and seeth all the fiends of everlasting punishments, and back it recoileth. But die it must. It would barter all it hath to coin an hour; but no, the fiend hath got its grip, and down it must plunge. And who can tell the hideous shriek of a lost soul? It cannot reach heaven; but if it could, it might well be dreamed that it would suspend the melodies of angels, might make even God's redeemed weep, if they could hear the wailings of a damned soul. Ah! you men and women, ye have wept; but if you die unregenerate, there will be no weeping like that, there will be no shriek like that, no wail like that. 
 

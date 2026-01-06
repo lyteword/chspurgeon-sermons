@@ -2,8 +2,8 @@
 
 Sermon No. 158 - Delivered on Sabbath Morning, October 11, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Unstable as water, thou shalt not excel."  
-> Genesis 49:4.  
+> Unstable as water, thou shalt not excel.    
+> Genesis 49:4.    
 
 PERFECT STABILITY has ceased from the world since the day when Adam fell. He was stable enough when in the garden he was obedient to his Master's will, but when he ate of the forbidden fruit he did not only slide himself, but he shook the standing places of all his posterity. Perfect stability belongs alone to God he alone, of all beings, is without variableness or shadow of a turning. He is immutable, he will not change. He is all-wise, he need not change. He is perfect; he cannot change. But men, the best of them are mutable, and therefore to a degree, they are unstable, and do not excel. Yet it is remarkable that, although man has lost perfect stability, he has not lost the admiration of it. Perhaps there is no virtue, or, rather, no compound of virtues, which the world more esteems than stability of mind. You will find that, although men have often misplaced their praise, and have called those great who were not great, morally, but were far below the level of morality, yet they have scarcely ever called a man great who has not been consistent, who has not had strength of mind enough to be stable in his principles. I know not how it is, but so it is, whenever a man is firm and consistent, we always admire him for it. Though we feel certain that he is wrong, yet his consistency in his wrong still excites our admiration. We have known men whom we have thought to be insane, they have conceived a design so ridiculous that we could only laugh at them, and despise their idea; but they have stuck to it, and we have said, "Well, there is nothing like a man standing to a thing," and we have admired even the senseless, brainless idiot, as we have thought him, when we have seen him pertinaciously insisting that his idea would at last triumph, and persevering in futile endeavors to realize his wish. The weathercock man is never admired, as a politician or as anything else he will never succeed; he must be one thing or another, or the world will never respect him.
 
@@ -15,17 +15,17 @@ And how variable have we been in our faith! In the midst of one trouble we have 
 
 And have you not also, at times, my friends, felt variable in your love? Sweet Master, King of heaven, fairest of a thousand fairs! my heart is knit to thee--my soul melteth at the mention of thy name; my heart bubbleth up with a good matter, when I speak of the things which I have made touching the King.
 
-> The strings that bind around my heart,  
-> Tortures and racks may tear them off;  
-> But they can never, never part,  
-> The hold I have of Christ, my love."  
+> The strings that bind around my heart,    
+> Tortures and racks may tear them off;    
+> But they can never, never part,    
+> The hold I have of Christ, my love.    
 
 Sure, I could die for thee, and think it better than to live, if so I might honor thee. This is the sweet manner of our spirit when our love is burning and fervent: but anon we neglect the fire, it becomes dim, and we have to rake among the ashes even for a spark, crying,
 
-> "Tis a point I long to know,  
-> Oft it causes anxious thought,  
-> Do I love the Lord or no?  
-> Am I his, or am I not?"  
+> Tis a point I long to know,    
+> Oft it causes anxious thought,    
+> Do I love the Lord or no?    
+> Am I his, or am I not?    
 
 How unstable we are! At one time we are quite certain we are the Lord's. though an angel from heaven should deny our election, or our adoption, we would reply that we have the witness of the Spirit that we are born of God, but perhaps within two minutes we shall not be able to say that we ever had one spiritual feeling. We shall perhaps think that we never repented aright, never fled to Christ aright, and did never believe to the saving of the soul. Oh! it is no wonder that we do not excel, when we are such unstable creatures. Alas! my brethren I might enlarge on the inconsistencies of the mass of Christians. How unfaithful we have been to our dedication vows! how negligent of close communion! How unlike we have been to holy Enoch! how much more like Peter, when he followed afar off! I might tell how one day, like the mariner, we mounted up to heaven, and how the next moment we have gone to the lowest depths when the waves of God's grace have ceased to lift us up. I wonder at David, at Jacob, and at every instance we have in Scripture of excellent men. Marvel! O ye angels, that God should ever make such bright stars out of such black blots as we are. How can it ever be that man, so fickle, so inconstant, should nevertheless be a pillar in the house of his God, and should be made to stand "steadfast, immovable, always abounding in the work of the Lord!" How is it, O our God, that thou couldst have steered a vessel so safely to its port which was so easily driven by every wind and carried away by every wave! He is a good marksman who an shoot so crooked an arrow straight to its target. Marvel not that we do not excel--marvel that we do excel in anything unstable as we are.
 

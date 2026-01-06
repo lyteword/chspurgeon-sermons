@@ -2,8 +2,8 @@
 
 Sermon No. 95 - Delivered on Sabbath Morning, August 10, 1856, by the REV. C.H. SPURGEON At New Park Street Chapel, Southwark.
 
-> "This shall be an everlasting statute unto you, to make an atonement for the children of Israel for all their sins once a year."  
-> Leviticus 16:34.  
+> This shall be an everlasting statute unto you, to make an atonement for the children of Israel for all their sins once a year.    
+> Leviticus 16:34.    
 
 The Jews had many striking ceremonies which marvellously set forth the death of Jesus Christ as the great expiation of our guilt and the salvation of our souls. One of the chief of these was the day of atonement, which I believe was pre-eminently intended to typify that great day of vengeance of our God, which was also the great day of acceptance of our souls, when Jesus Christ "died, the just for the unjust, to bring us to God." That day of atonement happened only once a year, to teach us that only once should Jesus Christ die; and that though he would come a second time, yet it would be without a sin offering unto salvation. The lambs were perpetually slaughtered; morning and evening they offered sacrifice to God, to remind the people that they always needed a sacrifice; but the day of atonement being the type of the one great propitiation, it was but once a year that the high priest entered within the vail with blood as the atonement for the sins of the people. And this was on a certain set and appointed time; it was not left to the choice of Moses, or to the convenience of Aaron, or to any other circumstance which might affect the date; it was appointed to be on a peculiar set day, as you find at the 29th verse: "In the seventh month, on the tenth day of the month;" and at no other time was the day of atonement to be, to show us that God's great day of atonement was appointed and predestinated by himself. Christ's expiation occurred but once, and then not by any chance; God had settled it from before the foundation of the world; and at that hour when God had predestinated, on that very day that God had decreed that Christ should die, was he led like a lamb to the slaughter, and as a sheep before her shearers he was dumb. It was but once a year, because the sacrifice should be once; it was at an appointed time in the year, because in the fulness of time Jesus Christ should come into the world to die for us.
 
@@ -47,8 +47,8 @@ This scapegoat was not designed to show us the victim or the sacrifice, but simp
 
 I have now an interesting fact to tell you, and I am sure you will think it worth mentioning. Turn to Leviticus 25:9, and you will read: "Then shalt thou cause the trumpet of the jubilee to sound on the tenth day of the seventh month, in the day of atonement shall yet make the trumpet sound throughout all your land." So that one of the effects of the atonement was set forth to us in the fact that when the year of jubilee came, it was not on the first day of the year that it was proclaimed, but "on the tenth day of the seventh month." Ay, methinks, that was the best part of it. The scapegoat is gone, and the sins are gone, and no sooner are they gone than the silver trumpet sounds,
 
-> "The year of jubilee is to come,  
-> Return, ye ransomed sinners, home."  
+> The year of jubilee is to come,    
+> Return, ye ransomed sinners, home.    
 
 On that day sinners go free; on that day our poor mortgaged lands are liberated, and our poor estates which have been forfeited by our spiritual bankruptcy are all returned to us. So when Jesus dies, slaves win their liberty, and lost ones receive spiritual life again; when he dies, heaven, the long lost inheritance is ours. Blessed day! Atonement and jubilee ought to go together. Have you ever had a jubilee, my friends, in your hearts? If you have not, I can tell you it is because you have not had a day of atonement.
 
@@ -56,10 +56,10 @@ One more thought concerning the effects of this great day of atonement, and you 
 
 Now we come to notice, in the fourth place, what is our PROPER BEHAVIOUR WHEN WE CONSIDER THE DAY OF ATONEMENT. You read at the 29th verse, "And this shall be a statute for ever unto you: that in the seventh month, on the tenth day of the month, ye shall afflict your souls." That is one thing that we ought to do when we remember the atonement. Sure, sinner, there is nothing that move thee to repentance like the thought of that great sacrifice of Christ which is necessary to wash away thy guilt. "Law and terrors do but harden." but methinks, the thought that Jesus died is enough to make us melt. It is well, when we hear the name of Calvary, always to shed a tear, for there is nothing that ought to make a sinner weep like the mention of the death of Jesus. On that day "ye shall afflict your souls." And even you, ye Christians, when ye think that your Saviour died, should afflict your souls: ye should say,
 
-> "Alas! and did my Saviour bleed?  
-> And did my Sov'reign die?  
-> Would he devote that sacred head  
-> For such a worm as I?"  
+> Alas! and did my Saviour bleed?    
+> And did my Sov'reign die?    
+> Would he devote that sacred head    
+> For such a worm as I?    
 
 Drops of grief ought to flow, ay, streams of undissembled sympathy with him; to show our grief for what we did to pierce the Saviour. "Afflict your souls," O ye children of Israel, for the day of atonement is come. Weep o'er your Jesus; weep for him that died; weep for him who was murdered by your sins, and "afflict your souls."
 

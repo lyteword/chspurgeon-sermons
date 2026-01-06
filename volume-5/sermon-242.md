@@ -2,8 +2,8 @@
 
 Sermon No. 242 - Delivered on Sabbath Morning, March 13th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Unto you therefore which believe he is precious."  
-> 1 Peter 2:7.  
+> Unto you therefore which believe he is precious.    
+> 1 Peter 2:7.    
 
 THIS TEXT CALLS to my recollection the opening of my ministry. It is about eight years since as a lad of sixteen, I stood up for the first time in my life to preach the gospel in a cottage to a handful of poor people, who had come together for worship. I felt my own inability to preach, but I ventured to take this text, "Unto you therefore which believe he is precious." I do not think I could have said anything upon any other text, but Christ was precious to my soul and I was in the flush of my youthful love, and I could not be silent when a precious Jesus was the subject. I had but just escaped from the bondage of Egypt, I had not forgotten the broken fetter; still did I recollect those flames which seemed to burn about my path, and that devouring gulf which opened its mouth as if ready to devour me. With all these things fresh in my youthful heart, I could speak of his preciousness who had been my Saviour, and had plucked me as a brand from the burning, and set me upon a rock, and put a new song in my mouth, and established my goings. And now, at this time what shall I say? "What hath God wrought?" How hath the little one become a thousand, and the small one a great people? And what shall I say concerning this text, but that if the Lord Jesus was precious then, he is as precious now? And if I could declare then , that Jesus was the object of my soul's desire, that for him I hoped to live, and for him I would be prepared to die, can I not say, God being my witness, that he is more precious to me this day than ever he was? In the recollection of his unparalleled mercy towards the chief of sinners, I must anew devote myself to him, and afresh surrender my heart to him who is Lord and King.
 
@@ -61,8 +61,8 @@ How precious when friends are buried, for he says, "I am the resurrection and th
 
 If he is precious on his cross, how much more precious when he sits on his throne. If I can weep before him, and love him, and live to him, when I see him as the despised man of Nazareth; Oh, how shall my spirit be knit to him, how shall my heart be absorbed with love to him, when I see his face and behold his crown of glory, when I mark the harpings of the never-ceasing harpers who harp his praise. Wait awhile, Christian. If he is precious to the believer now, when faith is turned to sight he will be more precious still. Go out of this hall, and cry, "O Lord Jesus, I must love thee, I must serve thee better, I must live for thee; I must be ready to die for thee--for
 
-> 'Thou art precious to my soul,  
-> My transport and my trust.'"  
+> Thou art precious to my soul,    
+> My transport and my trust.'    
 
 This brings me to conclude--and here I want your solemn and earnest attention while each one for himself shall answer this question--my hearer, is Christ precious to you? My young brother, you of the same age as myself, is Jesus precious to you in your youth? Wherewithal shall a young man cleanse his way? only by taking heed thereto according to Christ's word, and by walking in his footsteps. Ye men and women of middle age, is Christ precious to you? Remember that this world is but a dream, and if you have not something more satisfactory than that, you will be disappointed, even though you succeed beyond your highest wishes. And ye grey headed men, who are going tottering to your graves, whose life is like a candle-snuff, almost expiring, like a lamp whose oil is spent. Is Christ precious to you, ye with the bald head, and with the hoary lock, is Jesus precious to your soul? Remember, on your answer to this question depends your condition. You believe, if he is precious to you, but if he is not precious, then you are not believers, and you are condemned already because you believe not on the Son of God. 
 

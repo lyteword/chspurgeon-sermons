@@ -2,8 +2,8 @@
 
 Sermon No. 252 - Delivered on Sabbath Morning, May 15th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "From the days of John the Baptist until now the kingdom of heaven suffereth violence, and the violent take it by force,"  
-> Matthew 11:12.  
+> From the days of John the Baptist until now the kingdom of heaven suffereth violence, and the violent take it by force,    
+> Matthew 11:12.    
 
 WHEN JOHN THE BAPTIST preached in the wilderness of Judea, the throng of people who pressed around him became extremely violent to get near enough to hear his voice. Often when our Saviour preached did the like scene occur. We find that the multitudes were immense beyond all precedent. He seemed to drain every city, every town, and every village, as he went along preaching the word of the gospel. These people, moreover, not like our common church-and-chapel-goers,--content to hear, if they could, and yet more content to keep without hearing, if it were possible,--were extremely earnest to get near enough to hear anyhow. So intense was their desire to hear the Saviour that they pressed upon him, insomuch that they trod one upon another. The crowd became so violent to approach his person, that some of the weaker ones were cast down and trodden upon. Now, our Saviour, when he witnessed all this struggling round about to get near him, said, "This is just a picture of what is done spiritually by those who will be saved. As you press and throng about me," said Christ, "and thrust one another, with arm and elbow, to get within reach of my voice, even so must it be if ye would be saved, For the kingdom of heaven suffereth violence, and the violent take it by force.'" He pictured to himself a crowd of souls desiring to get to the living Saviour. He saw them press, and crowd, and throng, and thrust, and tread on one another, in their anxious desire to get at him. He warned his hearers, that unless they had this earnestness in their souls, they would never reach him savingly; but if they had it, they should certainly be saved. "From the days of John the Baptist until now the kingdom of heaven suffereth violence, and the violent take it by force."
 
@@ -13,10 +13,10 @@ I shall this morning, first, direct your attention to these violent men. Look at
 
 First then, LET US LOOK AT THESE VIOLENT MEN. Understand that what they are, they have been made by divine grace. They are not so naturally of themselves. But there has been a secret work of grace in them, and then they have become violent men. Look at these violent men, who are violently in earnest to be saved. You will observe them when they come up to the house of God; there is no yawning with them, no listlessness or inattention, no imagination that if they do but sit in the place the hour-and-a-half which is regularly allotted to divine worship, they will have done enough. No; they hear with both their ears, and they look with both their eyes, and all through the service they have an intense desire that they may find Christ. Meet them as they go up to the house of prayer, and ask them why they are going there. They know right well what they are going after. "I am going there to find mercy, and to find peace and rest to my soul; for I am in anguish about sin, and I want to find the Saviour; I am in hopes that being in the way the Lord will meet with me, so I am about to lay myself down by the side of the pool of Bethesda, in the hope that the Holy Spirit will stir the pool and enable me to step in." You do not find these people like the most of modern hearers, critical, or else careless. No; they are all awake to see whether there is not something to be had which may be a balm to their wearied spirits, and a cordial to their troubled breasts. Mark these violent people after they have gone home. They go to their chambers and they begin to pray; not that prayer between sleeping and waking that some of you are used to attend to, not that drowsy supplication which never gets beyond the ceiling of your bedroom; but they fall on their knees and with a holy anxiety they begin to cry, "Lord, save or I perish; O Lord save me; I am ready to perish, Lord; I beseech thee, stretch out thine hand and rescue my poor soul from that destruction which now haunts my spirit." And see them after they have prayed, how they turn over the Word of God. They do not read its chapters as if the mere looking at the letters was enough, but they read just as Watts says in his hymn,
 
-> "Yet save a trembling sinner, Lord,   
-> Whose hope, still hovering round thy word   
-> Would light on some sweet promise there,   
-> Some sure support against despair."   
+> Yet save a trembling sinner, Lord,    
+> Whose hope, still hovering round thy word    
+> Would light on some sweet promise there,    
+> Some sure support against despair.    
 
 And down they are on their knees again. "O Lord speak to my soul through thy word! Lord help me to lay hold on the promise, enable me to grasp it! Oh, let not my soul perish for lack of thy help and thy grace." And then see these violent men whom God has really made in earnest about being saved. You will not find them leaving their devotions in their closets, or in their house of prayer. Wherever they go there is a solemn earnestness upon them, which the world cannot understand. They are seeking after Jesus, and rest they neither will nor can until they find him. Their nights are disturbed with dreams, and their days are made sad with their pantings after the blessing--without which they cannot live, and without which they dare not die.
 
@@ -36,13 +36,13 @@ Once let a man know that hell is beneath his feet, and if that does not make him
 
 Another reason why every man who would be safe must be in earnest, and be violent, is this, there are so many adversaries to oppose us, that if we are not violent we shall never be able to overcome them. Do you remember that beautiful parable in John Bunyan's Pilgrim? "I saw also, that the Interpreter took him by the hand, and led him into a pleasant place, where was built a stately palace, beautiful to behold; at the sight of which Christian was greatly delighted. He saw also upon the top thereof certain persons walking, who were clothed all in gold. Then said Christian, May we go in thither?' Then the Interpreter took him and led him up toward the door of the palace; and behold, at the door stood a great company of men, as desirous to go in, but durst not. There also sat a man at a little distance from the door, at a table-side, with a book and his ink-horn before him, to take the name of him that should enter therein; he saw also that in the doorway stood many men in armour to keep it, being resolved to do to the men that would enter what hurt and mischief they could. Now was Christian somewhat in amaze. At last, when every man started back for fear of the armed men, Christian saw a man of a very stout countenance come up to the man that sat there to write, saying, Set down my name, sir;' the which when he had done, he saw the man draw his sword, and put a helmet upon his head, and rush toward the door upon the armed men, who laid upon him with deadly force; but the man, not at all discouraged, fell to cutting and hacking most fiercely. So after he had received and given many wounds to those that attempted to keep him out, (Matt. xi. 12. Acts xiv. 22.) he cut his way through them all, and pressed forward into the palace; at which there was a pleasant voice heard from those that were within, even of those that walked upon the top of the palace, saying,
 
-> 'Come in, come in,  
-> Eternal glory thou shalt win.'   
+> Come in, come in,    
+> Eternal glory thou shalt win.    
 
 So he went in, and was clothed with such garments as they." And surely the dreamer saw the truth in his dream. It is even so. If we would win eternal glory we must fight.
 
-> "Sure we must fight, if we would reign;   
-> Increase our courage, Lord!"   
+> Sure we must fight, if we would reign;    
+> Increase our courage, Lord!    
 
 Ye have enemies within you, enemies without, enemies beneath, enemies on every side--the world, the flesh, and the devil; and if the Spirit of God has quickened you, he has made a soldier of you, and you can never sheathe your sword till you gain the victory. The man who would be saved must be violent, because of the opposition he has to encounter.
 
@@ -52,28 +52,28 @@ Having thus endeavoured to screen the violent men from harsh criticism, I shall 
 
 And, now I have to close, for I find my voice fails me this morning, when most I need it. I have to close abruptly by endeavouring earnestly TO EXCITE EACH OF YOU TO A VIOLENCE AFTER THE KINGDOM OF HEAVEN. In this great crowd there are surely some of the class I am about to describe. There is one man here who says, "I don't know that I have done much amiss in my life: I am about as regular a man as there is living. Don't I attend a place of worship regularly? I believe that l shall most certainly be saved. But I don't take much trouble about it, it never disquiets me particularly. I don't like"--says this man "--that intrusive kind of religion that always seems to be thrusting itself in everybody's way. I think it is quite right that people should go to their place of worship, but why take any further trouble? I just believe that I shall fare as other people fare: I am a steady unpretending sort of man, and I have no reason to doubt that I shall be saved." Ah, friend, you have never seen the gate of heaven? It is obvious that you have never seen it, or else you would know better; for at the gate of heaven multitudes are struggling, the gates of heaven are thronged, and he that would enter there must press, and elbow, and push, or he may go away certain that he can never enter. No! your easy religion will just bring you in too late. It may carry you nine miles out of ten; but what is the good of that to a man who must perish unless he is carried the whole way? It will go a good way with you when you follow the counsels of a gospel ministry with outward propriety; but at the bar of God it will utterly fail you, when you lack the inward witness of strong crying and supplications. No! an easy religion is the way to hell, for it is not the way to heaven. Let your soul alone, and you need not expect much good fruit to come of it, any more than a farmer who leaves his fields alone, need expect to reap a harvest. Your religion is vain and futile if that is all. "Ah" cries another "but I am in quite a different case. I am a sinner so vile, sir, that I know I never can be saved, therefore, what is the use? I never think about it now, except with blank despair. Have I not long rebelled against God; will he ever pardon me? No, no; don't exhort me to try. I may as well take my full swing of pleasure while I am here, for I feel I never shall enjoy the pleasures of heaven hereafter." Stop friend, "The violent take it by force." If the Lord has taught thee thy utter sinfulness, go and try--say,
 
-> "I can but perish if I go,   
-> I am resolved to try;   
-> For if I stay away, I know   
-> I must for ever die."   
+> I can but perish if I go,    
+> I am resolved to try;    
+> For if I stay away, I know    
+> I must for ever die.    
 
 Go home, go to your closet, fall on your knees, put your trust alone in Christ and, my friend, if the Lord does not have mercy upon you, then he is not the God we have preached to you, and he has not substantiated his faithful promise: you cannot, you shall not seek in vain. But mark, you must not think that your once seeking is enough; continue in it. If God has given you his Spirit you will continue--you will never leave off praying until you get the answer. Oh! my friend, if God hath given thee this day a longing after his love; if he has caused thee to say, "I will never give it up, I will perish at the foot of the cross if I perish at all;" thou canst no more perish than the angels in Paradise. Be of good cheer; use violence again and again, and thou shalt take it by force.
 
 And then, let each one of us as we retire, and if we have tasted that the Lord is precious, determine to love him more earnestly than before. I never leave my pulpit washout feeling ashamed of myself. I do not remember a time when I have been able to go home without being suffused with humiliation and cast down with self-reproach, because I had not been more earnest. I very seldom flog myself for using an ugly word, or anything of that sort; it is for not having been earnest enough about the salvation of men. When I sit down, I begin to think of this vast stream of people being swept along towards the gulf of eternity--bound for heaven or hell; and I wonder how it is that I do not weep all the time I am here--why it is that I do not find red-hot burning words with which to address you. I find fault with others sometimes, but far more with myself in this matter. Oh! how is it that a man can be God's ambassador, and yet have so callous, so insensitive a heart, as many of us have in this work? Oh! how is it that we tell the tale of death and life, of heaven and hell, of Christ crucified and his gospel despised, so quietly as we do? Condemn not the minister for excitement or fanaticism; condemn him because he is not half in earnest, as he ought to be. Oh my God! impress me, I beseech thee, more with the value of souls, and then impress my hearers, also, with the value of their own souls. Are you not going to-day, many of you, post-haste to perdition? Is it not the fact, that your conscience tells you that many of you are enemies to God? You are without Christ, you have never been washed in his blood; never been forgiven. Oh! my hearers, if ye continue as ye are, a few more rising suns, and then your sun must set for ever. Only a few more Sundays have you to waste, a few more sermons have you to hear, and the pit of hell must open wide its jaws, and then where are you? But a few more days, and the heavens shall be rent, and Christ shall come to judge the earth, and sinner where are you? Oh! I beseech you now by the living God, and by his Son Jesus Christ, think of your state; repent of your sins; turn you to God. Oh Spirit of God, turn, I pray thee, turn the hearts of sinners now. Remember, if you now repent, if you now confess your sins, Christ is preached to you. He came into the world to save sinners. Oh! believe on him; throw yourselves before his cross; trust in his blood; rely on his righteousness,--
 
-> "But if your ears refuse   
-> The language of his grace,   
-> And hearts grow hard like stubborn Jews,   
-> That unbelieving race;   
-> The Lord, in vengeance dress'd,   
-> Will lift his hand and swear,   
-> 'You that despise my promised rest,   
-> Shall have no portion there.'"   
+> But if your ears refuse    
+> The language of his grace,    
+> And hearts grow hard like stubborn Jews,    
+> That unbelieving race;    
+> The Lord, in vengeance dress'd,    
+> Will lift his hand and swear,    
+> 'You that despise my promised rest,    
+> Shall have no portion there.'    
 
 Oh! if I had the tongue of Whitfield, or the mouth of an archangel, if I could speak like the cherubim, I would pour out my heart before you, and pray you in Christ's stead, be ye reconciled to God. I must face you soon before God's great bar, and shall your blood be laid to my door? Shall you perish, and must I perish with you for unfaithfulness? May God forbid it! Now may he
 
-> "Let you see your lost estate,   
-> And save you ere it be too late,   
-> Wake you to righteousness."   
+> Let you see your lost estate,    
+> And save you ere it be too late,    
+> Wake you to righteousness.    
 
 Lord have mercy upon you all for Jesus' sake!

@@ -2,8 +2,8 @@
 
 Sermon No. 125 - Delivered on Sabbath Evening, March 22, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And the word of the Lord came unto me, saying, Son of man, What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?"  
-> Ezekiel 15:1-2.  
+> And the word of the Lord came unto me, saying, Son of man, What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?    
+> Ezekiel 15:1-2.    
 
 THE JEWISH nation had arrogant ideas of themselves; when they sinned against God, they supposed that on account of the superior sanctity of their forefathers, or by reason of some special sanctity in themselves, they would be delivered, sin as they pleased. In consequence of the infinite mercy of Jehovah, which he had displayed toward them, in delivering them our of so many distresses, they gradually came to imagine that they were the favorite children of Providence, and that God could by no means ever cast them away. God, therefore, in order to humble their pride, tells them that they in themselves were nothing more than any other nation; and he asks them what there was about them to recommend them? "I have often called you a vine; I have planted you, and nurtured you in a very fruitful hill, but now you bring forth no fruit; what is there in you why I should continue you in my favor? If you imagine there is any thing about you more than about any other nation, you are mightily mistaken." "What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?"
 
@@ -15,8 +15,8 @@ First, here is A LESSON OF HUMILITY for all you who have "tasted that the Lord i
 
 In looking upon all the various trees, we observe that the vine is distinguished among them; so that, in the old parable of Jotham, the trees waited upon the vine-tree, and said unto it, "Come thou and reign over us." But merely looking at the vine, without regard to its fruitfulness, we should not see any kingship in it over other trees. In size, form, beauty, or utility, it has not the slightest advantage. We can do nothing with the wood of the vine. Shall wood be taken thereof to do any work? or will men make a pin of it to hang any vessel thereon?" It is a useless plant apart from its fruitfulness. We sometimes see it in beauty, trained up by the side of our walls, and in the East it might be seen in all its luxuriance, and great care is bestowed in its training; but leave the vine to itself, and consider it apart from its fruitfulness, it is the most insignificant and despicable of all things that bear the name of trees. Now, beloved, this is for the humbling of God's people. They are called God's vine; but what are they by nature more than others? Others are as good as they; yea, some others are even greater and better than they. They, by God's goodness, have become fruitful, have been planted in a good soil; the Lord hath trained them upon the walls of the sanctuary, and they bring forth fruit to his glory. But what are they without their God? What are they without the continual influence of the Spirit, begetting fruitfulness in them? Are they not the least among the sons of men, and the most to be despised of those that have been brought forth of women? Look upon this, believer.
 
-> "What was there in thee to merit esteem,  
-> Or give the Creator delight?"  
+> What was there in thee to merit esteem,    
+> Or give the Creator delight?    
 
 Yea, look upon thyself as thou art now. Doth not thy conscience reproach thee? Do not thy thousand wanderings stand before thee, and tell thee that thou art unworthy to be called his son? Does not the weakness of thy mental power, the frailty of thy moral power, thy continual unbelief, and thy perpetual backsliding from God, tell thee that thou art less than the least of all saints? And if he hath made thee any thing, art thou not thereby taught that it is grace, free, sovereign grace, which hath made thee to differ? Should any here, supposing themselves to be the children of God, imagine that there is some reason in them why they should have been chosen, let them know, that as yet they are in the dark concerning the first principles of grace, and have not yet learned the gospel. If ever they had known the gospel, they would, on the other hand, confess that they were less than the least--the offscouring of all things--unworthy, ill-deserving, undeserving, and hell-deserving, and ascribe it all to distinguishing grace, which has made them to differ; and to discriminating love, which has chosen them out from the rest of the world. Great Christian, thou wouldst have been a great sinner if God had not made thee to differ. O! thou who art valiant for truth, thou wouldst have been as valiant for the devil if grace had not laid hold of thee. A seat in heaven shall one day be thine; but a chain in hell would have been thine if grace had not changed thee. Thou canst now sing his love; but a licentious song might have been on thy lips, if grace had not washed thee in the blood of Jesus. Thou art now sanctified, thou art quickened, thou art justified; but what wouldst thou have been to-day if it had not been for the interposition of the divine hand? There is not a crime thou mightest not have committed; there is not a folly into which thou mightest not have run. Even murder itself thou mightest have committed if grace had not kept thee. 
 
@@ -34,8 +34,8 @@ False professors are to be found in the men that lead the vanguard of God's army
 
 And there are false professors to be found among men that doubt a great deal. They are always afraid they do not love Jesus, and always saying, "Ah, if I did but know I were his!--
 
-> "Tis a point I long to know,  
-> Oft it causes anxious thought."  
+> Tis a point I long to know,    
+> Oft it causes anxious thought.    
 
 Yes, and it ought to cause them anxious thought, too, if they are bringing forth no fruit and giving no "diligence to make their calling and election sure." Fruitless professors are to be found, on the other hand, among the confident men, who say, without a blush, "I know whom I have believed; I know I am a Christian, let who will doubt. I am sure and certain my sins can not destroy me, and my righteousness can not save me. I may do what I like; I know I am one of the Lord's." Ah! fruitless professor again; just as fruitless as the other man, who had all doubts and no faith, and did nothing for his Master.
 
@@ -43,7 +43,7 @@ And then there is the fruitless professor, who, when he is asked to pray at the 
 
 Now, shall I tell you who is a fruitless professor? The man who neglects private prayer, and does not walk with his God in public; that man whose carriage and conversation before God are hypocritical; who cheats in trade and robs in business, yet wraps it up, and comes out with a fair face, like the hypocrite with a widow's house sticking in his throat, and says, "Lord, I thank thee I am not as other men are!" There is a man for you, who brings forth no fruit to perfection. Another one is he who lives right morally and excellently, and depends upon his works, and hopes to be saved by his righteousness; who comes before God, and asks for pardon, with a lie in his right hand, for he has brought his own self-righteousness with him. Such a man is a fruitless professor; he has brought forth no fruit. That man, again, is a fruitless professor who talks big words about high doctrine, and likes sound truth, but he does not like sound living; his pretensions are high, but not his practice. He can bear to hear it said,
 
-> "Once in Christ, in Christ for ever.,"  
+> Once in Christ, in Christ for ever.,    
 
 But as for himself, he never was in Christ at all, for he neither loves nor serves his Master, but lives in sin that grace may abound. There is another fruitless vine for you.
 
@@ -55,8 +55,8 @@ My young friends, I do not want to check any of you in joining a church; but I d
 
 And many there are who will just come and say they are the Lord's, and they think they are, but there is no root in them, and therefore by-and-by their impressions pass away. O we have many fruitless professors in our midst, because they do not look well to their beginnings; they did not take heed at their starting point, they did not watch well the first dawn; they thought the little farthing rushlight of their own hopes was the dawning of the Sun of righteousness; they thought the bleeding of their own conscience was a killing by the hand of God, whereas it was a deeper, and better and surer, and more entire work that they needed, than that which they received. Let us take heed, my brethren, that we do not put too much trust in our experiences, and take too much for granted while it is not yet proved in our beginnings; let us often go back and begin again; let us often go to Christ with the old cry,
 
-> "Nothing in my hands I bring,  
-> Simply to thy cross I cling;"  
+> Nothing in my hands I bring,    
+> Simply to thy cross I cling;    
 
 For remember that these bad beginnings have had a great effect in making a man fruitless.
 
@@ -72,7 +72,7 @@ I think I see honest blasphemers lifting themselves from their chains of fire, a
 
 I confess, I as much dread the excess of their damnation, above the damnation of others, as I dread to be damned at all. It is as if in hell another hell had been made, to damn those that sin above others, to damn them after being damned--for hypocrites, for men who have been with us, and not of us; who professed to be Christ's, and yet have been mean deceivers after all. O! sirs, if ye would not make your chains more heavy, if ye would not stir the fire to a more furious heat, if ye would not make your yells more hideous, quit your professions this night, if ye are not worthy of them. Go out of this place, and send in your resignation to the church; or else, sirs, be honest, and bend your knee before God, and ask him to search you, and try you, and make you sincere and upright before him. Be one thing, or else the other; do not cloak yourself in the robes of sanctity to hide the corruptions that all the while fester beneath. Stand out, bold, brave sinners; and do not be mean, sneaking sinners, that wear the masks of saints. "What is the vine more than any other tree?" Without fruit it is worse than any other. It must perish more dolefully, more horribly than any other, if there be on it no fruit brought to perfection. Does not this shake us? Ah! it will shake you, very likely, that do not want the shaking; but the men that want arousing will keep just as they were. It will go into the hearts of some of you, like the cry, "Howl, Moab, howl, Moab!" but alas! Moab will not howl. You will weep for Kirhareseth but Kirhareseth will not weep for herself. You will weep for your hypocritical friends; but they will rub their eyes, and say, "A strong sermon; but it has nothing to do with me." And they will go out with cool presumption; sin with one hand, and take the sacramental cup with the other; sing the lascivious song one night, and then sing,
 
-> "Jesus, lover of my soul,"  
+> Jesus, lover of my soul,    
 
 the day after. Meet Christ here, and take the devil yonder, and bid him God speed in all his freaks of devilry. Ah! sirs, sirs, sirs, take heed, take heed, I beseech you, of this matter. Let us each search our hearts, lest we should have been deceived. And may God bring us to a right understanding in this matter, that we may be clear before him. "Search me, O God, and know my ways; try me, and know my thoughts, and see if there be any wicked thing in me; and lead me in the way everlasting."
 

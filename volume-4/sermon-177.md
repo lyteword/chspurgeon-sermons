@@ -2,8 +2,8 @@
 
 Sermon No. 177 - Delivered on Sabbath Morning, February 14, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Hell and destruction are before the Lord: how much more then the hearts of the children of men?"  
-> Proverbs 15:11.  
+> Hell and destruction are before the Lord: how much more then the hearts of the children of men?    
+> Proverbs 15:11.    
 
 YOU HAVE OFTEN smiled at the ignorance of heathens who bow themselves before gods of wood and stone. You have quoted the words of Scripture, and you have said, "Eyes have they but they see not; ears have they, but they hear not." You have therefore argued that they could not be gods at all, because they could neither see nor hear, and you have smiled contemptuously at the men who could so debase their understandings as to make such things objects of adoration. May I ask you one question--but one? Your God can both see and hear: would your conduct be in any respect different, if you had a god such as those that the heathen worship? Suppose for one minute, that Jehovah, who is nominally adored in this land, could be (though it is almost blasphemy to suppose it) smitten with such a blindness, that he could not see the works and know the thoughts of man: would you then become more careless concerning him than you are now? I trow not. In nine cases out of ten, and perhaps in a far larger and sadder proportion, the doctrine of Divine Omniscience, although it is received and believed, has no practical effect upon our lives at all. The mass of mankind forget God: whole nations who know his existence and believe that he beholds them, live as if they had no God at all. Merchants, farmers, men in their shops, and in their fields, husbands in their families, and wives in the midst of their households, live as if there were no God; no eye inspecting them; no ear listening to the voice of their lips, and no eternal mind always treasuring up the recollection of their acts. 
 
@@ -25,10 +25,10 @@ That dust by sacrilegious hand was cast in the aisle of the church, or thrown in
 
 And as the body, so the soul when separated from the body, is before the Lord. We look upon the countenance of our dying friend, and on a sudden a mysterious change passes over his frame. "His soul has fled," we say. But have we any idea of what his soul is? Can we form even a conjecture of what the flying of that soul may be, and what the august presence into which it is ushered when it is disentangled from its earthly coil? Is it possible for us to guess what is that state where Spirits without bodies, perpetually blest, behold their God? It is possible for us to compass some imagination of what heaven is to be, when bodies and souls, reunited, shall before God's throne enjoy the highest bliss; but I do think, that so gross are our conceptions, whilst we are in our bodies, that it is almost, if not quite, impossible for any of us to form any idea whatever as to the position of souls, whilst in the disembodied state, between the hour of death and the time of resurrection.
 
-> "This much, and this is all, we know;  
-> They are supremely blest:  
-> Have done with sin, and care, and woe,  
-> And with their Saviour rest."  
+> This much, and this is all, we know;    
+> They are supremely blest:    
+> Have done with sin, and care, and woe,    
+> And with their Saviour rest.    
 
 But the best of the saints can tell us nothing more than this. They are blest, and in paradise they are reigning with their Lord. Brethren, these things are known to God. The separate state of the dead, the heaven of disembodied spirits, is within the gaze of the Most High, and at this hour, if so he pleased, he could reveal to us the condition of every man that is dead--whether he has mounted to Elysian fields, to dwell for ever in the sunlight of his Master's countenance, or has been plunged into hell, dragged down by iron chains, to wait in dreary woe the result of the awful trial, when "Depart ye cursed," must be the re-affirmation of a sentence once pronounced, and already in part endured. God understands the separate doom of every man's spirit before the great tribunal day--before the last sentence shall have been pronounced, death is open before the Lord.
 

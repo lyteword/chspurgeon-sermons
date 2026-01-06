@@ -2,8 +2,8 @@
 
 Sermon No. 89 - Delivered on Sabbath Morning, June 29, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "They hated me without a cause."  
-> John 15:25.  
+> They hated me without a cause.    
+> John 15:25.    
 
 IT IS usually understood, that the quotation our Saviour here refers to is to be found in the 35th Psalm, at the 19th verse, where David says, speaking of himself immediately and of the Saviour prophetically, "Let not them who are mine enemies rejoice over me, neither let them wink with the eye that hate me without a cause." Our Saviour refers to that as being applicable to himself, and thus he really tells us, in effect, that many of the Psalms are Messianic, or refer to the Messiah; and, therefore, Dr. Hawker did not err, when he said he believed the Psalms referred to the Saviour, though he may have carried the truth too far. But it will be a good plan, in reading the Psalms, if we continually look at them as alluding not so much to David, as to the man of whom Dave was the type, Jesus Christ, David's Lord.
 

@@ -2,14 +2,14 @@
 
 Sermon No. 52 - Delivered on Sabbath Morning, December 2, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
-> "And ye will not come to me, that ye might have life."  
-> John 5:40.  
+> And ye will not come to me, that ye might have life.    
+> John 5:40.    
 
 This is one of the great guns of the Arminians, mounted upon the top of their walls, and often discharged with terrible noise against the poor Christians called Calvinists. I intend to spike the gun this morning, or, rather, to turn it on the enemy, for it was never theirs; it was never cast at their foundry at all, but was intended to teach the very opposite doctrine to that which they assert. Usually, when the text is taken, the divisions are: First, that man has a will. Secondly, that he is entirely free. Thirdly, that men must make themselves willing to come to Christ, otherwise they will not be saved. Now, we shall have no such divisions; but we will endeavour to take a more calm look at the text; and not, because there happen to be the words "will," or "will not" in it, run away with the conclusion that it teaches the doctrine of free-will. It has already been proved beyond all controversy that free-will is nonsense. Freedom cannot belong to will any more than ponderability can belong to electricity. They are altogether different things. Free agency we may believe in, but free-will is simply ridiculous. The will is well known by all to be directed by the understanding, to be moved by motives, to be guided by other parts of the soul, and to be a secondary thing. Philosophy and religion both discard at once the very thought of free-will; and I will go as far as Martin Luther, in that strong assertion of his, where he says, "If any man doth ascribe aught of salvation, even the very least, to the free-will of man, he knoweth nothing of grace, and he hath not learnt Jesus Christ aright." It may seem a harsh sentiment; but he who in his soul believes that man does of his own free-will turn to God, cannot have been taught of God, for that is one of the first principles taught us when God begins with us, that we have neither will nor power, but that he gives both; that he is "Alpha and Omega" in the salvation of men.
 
 Our four points, this morning, shall be: First--that every man is dead, because it says: "Ye will not come to me, that ye might have life." Secondly--that there is life in Jesus Christ: "Ye will not come to me, that ye might have life." Thirdly--that there is life in Christ Jesus for every one that comes for it: "Ye will not come to me, that ye might have life;" implying that all who go will have life. And fourthly--the gist of the text lies here, that no man by nature ever will come to Christ, for the text says, "Ye will not come to me, that ye might have life." So far from asserting that men of their own wills ever do such a thing, it boldly and flatly denies it, and says, "Ye WILL NOT."
 
-> "WILL NOT"  
+> WILL NOT    
 
 First, then, our text implies THAT MEN BY NATURE ARE DEAD.
 
@@ -31,18 +31,18 @@ for he says: "Ye will not come to me that ye might have life." There is no life 
 
 First there is legal life in Christ. Just as every man by nature considered in Adam had a sentence of condemnation passed on him in the moment of Adam's sin, and more especially in the moment of his own first transgression, so I, if I be a believer, and you, if you trust in Christ, have had a legal sentence of acquittal passed on us through what Jesus Christ has done. O condemned sinner! Thou mayest be sitting this morning condemned like the prisoner in Newgate; but ere this day has passed away thou mayest be as clear from guilt as the angels above. There is such a thing as legal life in Christ, and, blessed be God! some of us enjoy it. We know our sins are pardoned because Christ suffered punishment for them; we know that we never can be punished ourselves, for Christ suffered in our stead. The Passover is slain for us; the lintel and door-post have been sprinkled, and the destroying angel can never touch us. For us there is no hell, although it blaze with terrible flame. Let Tophet be prepared of old, let its pile be wood and much smoke, we never can come there--Christ died for us, in our stead. What if there be racks of horrid torture? What if there be a sentence producing most horrible reverberations of thundering sounds? Yet neither rack, nor dungeon, nor thunder, are for us! In Christ Jesus we are now delivered. There is therefore,
 
-> "NOW"  
+> NOW    
 
 Sinner! Art thou legally condemned this morning? Dost thou feel that? Then, let me tell thee that faith in Christ will give thee a knowledge of thy legal acquittal. Beloved, it is no fancy that we are condemned for our sins, it is a reality. So, it is no fancy we are acquitted, it is a reality. A man about to be hanged, if he received a full pardon would feel it a great reality. He would say, "I have a full pardon; I cannot be touched now." That is just how I feel.
 
-> "Now freed from sin I walk at large,  
-> The Saviour's blood's my full discharge,  
-> At his dear feet content I lay,  
-> A sinner saved, and homage pay."  
+> Now freed from sin I walk at large,    
+> The Saviour's blood's my full discharge,    
+> At his dear feet content I lay,    
+> A sinner saved, and homage pay.    
 
 Brethren, we have gained legal life in Christ, and such legal life that we cannot lose it. The sentence has gone against us once--now it has gone out for us. It is written, 
 
-> "THERE IS NOW NO CONDEMNATION"  
+> THERE IS NOW NO CONDEMNATION    
 
 Then, secondly, there is spiritual life in Christ Jesus. As the man is spiritually dead, God has spiritual life for him, for there is not a need which is not supplied by Jesus, there is not an emptiness in the heart which Christ cannot fill; there is not a desolation which he cannot people, there is not a desert which he cannot make to blossom as the rose. O ye dead sinners! spiritually dead, there is life in Christ Jesus, for we have seen--yes! these eyes have seen--the dead live again; we have known the man whose soul was utterly corrupt, by the power of God seek after righteousness; we have known the man whose views were carnal, whose lusts were mighty, whose passions were strong, suddenly, by irresistible might from heaven, consecrate himself to Christ, and become a child of Jesus. We know that there is life in Christ Jesus, of a spiritual order; yea, more, we ourselves, in our own persons, have felt that there is spiritual life. Well can we remember when we sat in the house of prayer, as dead as the very seat on which we sat. We had listened for a long, long while to the sound of the gospel, but no effect followed, when suddenly, as if our ears had been opened by the fingers of some mighty angel, a sound entered into our heart. We thought we heard Jesus saying, "He that hath ears to hear, let him hear." An irresistible hand put itself on our heart and crushed a prayer out of it. We never had a prayer before like that. We cried, "O God! have mercy upon me a sinner." Some of us for months felt a hand pressing us as if we had been grasped in a vice, and our souls bled drops of anguish. That misery was a sign of coming life. Persons when they are being drowned do not feel the pain so much as while they are being restored. 
 
@@ -66,15 +66,15 @@ Another had bought a piece of land, and wanted to see it; but I should not think
 
 The Lord Will-be-will was continually doing wrong. Your fallen nature was put out of order; your will, amongst other things, has clean gone astray from God. But I tell you what will be the best proof of that; it is the great fact that you never did meet a Christian in your life who ever said he came to Christ without Christ coming to him. You have heard a great many Arminian sermons, I dare say; but you never heard an Arminian prayer--for the saints in prayer appear as one in word, and deed and mind. An Arminian on his knees would pray desperately like a Calvinist. He cannot pray about free-will: there is no room for it. Fancy him praying, "Lord, I thank thee I am not like those poor presumptuous Calvinists. Lord, I was born with a glorious free-will; I was born with power by which I can turn to thee of myself; I have improved my grace. If everybody had done the same with their grace that I have, they might all have been saved. Lord, I know thou dost not make us willing if we are not willing ourselves. Thou givest grace to everybody; some do not improve it, but I do. There are many that will go to hell as much bought with the blood of Christ as I was; they had as much of the Holy Ghost given to them; they had as good a chance, and were as much blessed as I am. It was not thy grace that made us to differ; I know it did a great deal, still I turned the point; I made use of what was given me, and others did not--that is the difference between me and them." That is a prayer for the devil, for nobody else would offer such a prayer as that. Ah! when they are preaching and talking very slowly, there may be wrong doctrine; but when they come to pray, the true thing slips out; they cannot help it. If a man talks very slowly, he may speak in a fine manner; but when he comes to talk fast, the old brogue of his country, where he was born, slips out. I ask you again, did you ever meet a Christian man who said, "I came to Christ without the power of the Spirit?" If you ever did meet such a man, you need have no hesitation in saying, "My dear sir, I quite believe it--and I believe you went away again without the power of the Spirit, and that you know nothing about the matter, and are in the gall of bitterness and the bond of iniquity." Do I hear one Christian man saying, "I sought Jesus before he sought me; I went to the Spirit, and the Spirit did not come to me"? No, beloved; we are obliged, each one of us, to put our hands to our hearts and say--
 
-> "Grace taught my soul to pray,  
-> And made my eyes to o'erflow;  
-> 'Twas grace that kept me to this day,  
-> And will not let me go."  
+> Grace taught my soul to pray,    
+> And made my eyes to o'erflow;    
+> 'Twas grace that kept me to this day,    
+> And will not let me go.    
 
 Is there one here--a solitary one--man or woman, young or old, who can say, "I sought God before he sought me?" No; even you who are a little Arminian, will sing--
 
-> "O yes! I do love Jesus--  
-> Because he first loved me."  
+> O yes! I do love Jesus--    
+> Because he first loved me.    
 
 Then, one more question. Do we not find, even after we have come to Christ, our soul is not free, but is kept by Christ? Do we not find times, even now, when to will is not present with us? There is a law in our members, warring against the law of our minds. Now, if those who are spiritually alive feel that their will is contrary to God, what shall we say of the man who is "dead in trespasses and sins"? It would be a marvelous absurdity to put the two on a level; and it would be still more absurd to put the dead before the living. No; the text is true, experience has branded it into our hearts. "Ye will not come to me, that ye might have life."
 
@@ -86,4 +86,4 @@ Men do not know his worth, for if they did they would come unto him. Why did not
 
 And oh! my hearers, my last thought is a solemn one. I have preached that ye will not come. But some will say, "it is their sin that they do not come."
 
-> "IT IS SO."  
+> IT IS SO.    

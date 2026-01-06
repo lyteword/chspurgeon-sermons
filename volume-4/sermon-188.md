@@ -2,8 +2,8 @@
 
 Sermon No. 188 - Delivered on Sabbath Morning, April 18th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-> "Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundations of the world."  
-> John 17:24.  
+> Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundations of the world.    
+> John 17:24.    
 
 When the High Priest of old entered into the most holy place, he kindled the incense in his censer, and waving it before him, he perfumed the air with its sweet fragrance, and veiled the mercy seat with the denseness of its smoke. Thus was it written concerning him, "He shall take a censer full of burning coals of fire from off the altar before the Lord, and his hands full of sweet incense beaten small, and bring it within the vail: and he shall put the incense upon the fire before the Lord, that the cloud of the incense may cover the mercy seat that is upon the testimony, that he die not." Even so our Lord Jesus Christ, when he would once for all enter within the vail with his own blood to make an atonement for sin, did first offer strong crying and prayers. In this 17th chapter of John, we have, as it were, the smoking of the Saviour's pontifical center. He prayed for the people for whom he was about to die, and ere he sprinkled them with his blood, he did sanctify them with his supplications. This prayer therefore stands pre-eminent in Holy Writ as the Lord's Prayer--the special and peculiar prayer of our Lord Jesus Christ; and "if," as an old divine hath it, "it be lawful to prefer one Scripture above another, we may say, though all be gold, yet this is a pearl in the gold; though all be like the heavens, this is as the sun and stars." Or if one part of Scripture be more dear to the believer than any other, it must be this which contains his Master's last prayer before he entered through the rent vail of his own crucified body. 
 
@@ -13,8 +13,8 @@ We shall first notice the style of the prayer; secondly, the persons interested 
 
 First, notice THE STYLE OF THE PRAYER--it is singular: it is, "Father, I will". Now, I cannot but conceive that there is something more in the expression, "I will" than a mere wish.It seems to one, that when Jesus said "I will," although perhaps it might not be proper to say that he made a demand, yet we may say that he pleaded with authority, asking for that which he knew to be his own, and uttering an "I will" as potent as any fiat that ever sprang from the lips of the Almighty "Father, I will." It is an unusual thing to find Jesus Christ saying to God, "I will" You know that before the mountains were brought forth, it was said of Christ, "in the volume of the book it is written of me, I delight to do thy will, O God." and we find whilst he was on earth, that he never mentioned his own will, that he expressly declared, "I came not to do my own will, but the will of him that sent me." It is true you do hear him when addressing men, saying "I will," for he saith, "I will, be thou clean;" but in his prayers to his Father he prayed with all humility;
 
-> "With sighs and groans he offered up,  
-> His humble suit below."  
+> With sighs and groans he offered up,    
+> His humble suit below.    
 
 "I will," therefore, seems to be an exception to the rule; but we must remember that Christ was now in an exceptional condition. He had never been before where he was now. He was now come to the end of his work; he could say, "I have finished the work which thou gavest me to do," and therefore, looking forward to the time when the sacrifice would be complete and he should ascend on high, he sees that his work is done, and takes his own will back again and saith, "Father, I will."
 
@@ -24,8 +24,8 @@ Thus much concerning the style of the prayer; and now we NOTICE THE PERSONS FOR 
 
 Let me not be misunderstood. The people whom Christ here prays for, are those whom God the Father out of his own free love and sovereign good pleasure ordained unto eternal life, and who, in order that his design might be accomplished, were given into the hands of Christ the Mediator, by him to be redeemed, sanctified, and perfected, and by him to be glorified everlastingly. These people, and none others, are the object of our Saviour's prayer. It is not for me to defend the doctrine; it is Scriptural, that is my only defense. It is not for me to vindicate God from any profane charge of partiality or injustice. If there be any wicked enough to impute this to him, let them settle the matter with their Maker. Let the thing formed, if it have arrogance enough, say to him that formed it, "Why hast thou made me thus?" I am not God's apologist, he needs no defender. "Who art thou, O man, that repliest against God? Hath he not, like the potter, power over the clay, to make one vessel to honor, and another to dishonor?" Instead of disputing, let us enquire who are these people? Do we belong to them? Oh! let each heart now put the solemn query, "Am I included in that happy throng whom God the Father gave to Christ?" Beloved, I cannot tell you by the mere hearing of your names; but if I know your character, I can tell you decisively--or rather, you will need no telling, for the Holy Spirit will bear witness in your hearts that you are amongst the number. Answer this question--Have you given yourselves to Christ? Have you been brought, by the constraining power of his own free love, to make a voluntary surrender of yourself to him? Have you said, "O Lord other lords have had dominion over me; but now I reject them, and I give myself up to thee.
 
-> 'Other refuge have I none;  
-> Hangs my helpless soul on thee;'  
+> Other refuge have I none;    
+> Hangs my helpless soul on thee;    
 
 and as I have no other refuge, so I have no other Lord. Little am I worth, but such as I am, I give all I have and all I am to thee. It is true, I was never worth thy purchasing, but since thou hast bought me, thou shalt have me. Lord, I make a full surrender of myself to thee." Well, soul, if thou hast done this, if thou hast given thyself to Christ, it is but the result of that ancient grant made by Jehovah to his son long ere the worlds were made. And, once again, canst thou feel to-day that thou art Christ's? If thou canst not remember the time when he sought thee and brought thee to himself, yet canst thou say with the spouse "I am my beloved's?" Can you now from your inmost soul say, Whom have I in heaven but thee, and there is none upon earth that I desire beside thee! If so, trouble not your minds about election, there is nothing troublesome in election to you. He that believes is elected, he who is given to Christ now, was given to Christ from before the foundation of the world. You need not dispute divine decrees, but sit down and draw honey out of this rock, and wine out of this flinty rock. 
 
@@ -43,17 +43,17 @@ But, beloved, while this gives us a foretaste of heaven, we may nevertheless use
 
 Again, even the sweetest visits from Christ, how short they are! Christ comes and goes very much like an angel; his visits are few and far between with the most of us, and oh! so short--alas, too short for bliss. One moment our eyes see him, and we rejoice with joy unspeakable and full of glory, but again a little time and we do not see him, our beloved withdraws himself from us; like a roe or a young hart he leaps over the mountain of division; he is gone back to the land of spices, and feeds no more among the lilies.
 
-> "If to-day he deigns to bless us  
-> With a sense of pardoned sin,  
-> He to-morrow may distress us,  
-> Make us feel the plague within"  
+> If to-day he deigns to bless us    
+> With a sense of pardoned sin,    
+> He to-morrow may distress us,    
+> Make us feel the plague within    
 
 Oh, how sweet the prospect of the time when we shall not see him at a distance, but face to face. There is a sermon in those words, "face to face." And then we shall not see him for a little time, but
 
-> "Millions of years our wondering eyes,  
-> Shall o'er our Saviour's beauties rove;  
-> And myriad ages we'll adore,  
-> The wonders of his love."  
+> Millions of years our wondering eyes,    
+> Shall o'er our Saviour's beauties rove;    
+> And myriad ages we'll adore,    
+> The wonders of his love.    
 
 Oh, if it is sweet to see him now and then, how sweet to gaze on that blessed face for aye, and never have a cloud rolling between, and never have to turn one's eyes away to look on a world of weariness and woe! Blest days! when shall ye come, when our companionship with Christ shall be close and uninterrupted?
 
@@ -67,8 +67,8 @@ We shall be with him where he is. Yes, John; thou laidst thy head upon thy Savio
 
 And now the next prayer is, "that they may behold my glory which thou hast given me." This is heaven's sweetest employment. I doubt not there are many joys in heaven which will amplify the grand joy with which are have just started; I feel confident that the meeting of departed friends, the society of apostles, prophets priests, and martyrs, will amplify the joy of the redeemed. But still the sun that will give them the greatest light to their joy, will be the fact that they are with Jesus Christ and behold his face. And now there may be other employments in heaven, but that mentioned in the text is the chief one, "That they may behold my glory." O for the tongue of angel-O for the lip of Cherubim! for one moment to depict the mighty scenes which the Christian shall behold when he seeth the glory of his Master, Jesus Christ! Let us pass as in a panorama before your eyes the great scenes of glory which you shall behold after death. The moment the soul departs from this body, it will behold the glory of Christ. The glory of his person will he the first thing that will arrest our attention. There will he sit in the midst of the throne, and our eyes will first be caught with the glory of his appearance. Perhaps we shall be struck with astonishment. Is this the visage that was more marred than that of any man? Are these the hands that once rude iron tore? Is that the head that once was crowned with thorns. Oh, how shall our admiration rise, and rise, and rise to the very highest pitch, when we shall see him who was--
 
-> "The weary man, and full of woes  
-> The humble man before his foes,"  
+> The weary man, and full of woes    
+> The humble man before his foes,    
 
 now King of Kings, and Lord of Lords. What! are those fire-darting eyes the very eyes that once wept over Jerusalem? Are those feet shod with sandals of light; the feet that once were torn by the flinty acres of the Holy Land? Is that the man, who scarred and bruised was carried to his tomb? Yes, tis he. And that shall absorb our thoughts--the godhead and the manhood of Christ; the wondrous feet that he is God over all blessed for ever, and yet man, bone of our bone, flesh of our flesh. And when for an instant we have noted this, I doubt not the next glory we shall see will be the glory of his enthronement. Oh, how will the Christian stop at the foot of his Master's throne and look upward, and if there could be tears in heaven, tears of rich delight will roll down his cheeks when he looks and sees the man enthroned. "Oh," saith he "I often used to sing on earth Crown him! crown him! crown him! King of Kings, and Lord of Lords!" And now I see him, up those hills of glorious light, my soul doth not dare to climb. There, there he sits! Dark with unsufferable light his skirts appear. Millions of angels bow themselves around him. The redeemed before his throne prostrate themselves with rapture. Ah! we shall not deliberate many moments but taking our crowns in our hands we shall help to swell that solemn pomp, and casting our crowns at his feet, we shall join the everlasting song, "Unto him that hath loved us, and washed us from our sins in his blood, unto him be glory for ever and ever." 
 
@@ -80,9 +80,9 @@ And then, after that a little pause. A thousand years shall run their golden cyc
 
 And to complete the scene, when the Saviour shall ascend on high for the last time, his victories all completed, and death himself being slain, he, like a mighty conqueror about to ride through heaven's bright streets, shall drag at his chariot wheel hell and death. You and I, attendants at his side, shall shout the victor to his throne, and while the angels clap their bright wings and cry, "the Mediator's work is done," you and I
 
-> "Louder than them all shall sing  
-> While heaven's resounding mansions ring,  
-> With shouts of sovreign grace."  
+> Louder than them all shall sing    
+> While heaven's resounding mansions ring,    
+> With shouts of sovreign grace.    
 
 We shall behold his glory. Picture whatever splendor and magnificence you please if you do but conceive it rightly, you shall behold it.
 
@@ -96,9 +96,9 @@ Oh, you that have not this bright hope, how is it that you can live? You are goi
 
 But as for you who have a hope, I beseech you hold it fast, live on it, rejoice in it--
 
-> "A hope so much divine,  
-> May trials well endure,  
-> May purge your soul from sense and sin,  
-> As Christ the Lord is pure."  
+> A hope so much divine,    
+> May trials well endure,    
+> May purge your soul from sense and sin,    
+> As Christ the Lord is pure.    
 
 Live near your Master now, so shall your evidences be bright; and when you come to cross the flood, you shall see him face to face, and what that is only they can tell who enjoy it every hour.

@@ -62,7 +62,7 @@ When the soldier, and the soldier's widow, and the murdered man of peace rise up
 
 Yes, teacher, when you are lying on your bed, pale and consumptive, you will recollect that there is one up there beside your Saviour who will receive you into eternal habitations--that young spirit who has gone before you, who by your means was emancipated from the wickedness and bondage of a sinful world. Happy is the teacher who has the hope of meeting a whole band of such in heaven. Such a thought often cheers me. Let the world say what it will, I know when I die there is many a spirit that will think of me in after years as the man who preached the gospel to him; many a drunkard brought to Jesus, and many a harlot reclaimed. And to the teacher it must be the same to think that when he claps his wings and mounts from this lower valley of earth to heaven, he will see a bright spirit coming down to meet him, and he will hear the Spirit saying--
 
-> "Sister spirit, come away,"
+> Sister spirit, come away,    
 
 And when he opens his eyes, he will see that the song came from the lips of one to whom he had been blessed as the means of conversion. Happy you who shall be welcomed at the gates of Paradise by your spiritual sons and daughters, and who shall have beside your Master's welcome, the welcome of those whom he hath given you to be jewels in your crown of glory for ever and ever.
 
