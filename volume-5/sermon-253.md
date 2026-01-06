@@ -1,16 +1,9 @@
 # A Psalm of Remembrance
 
-A Sermon
+Sermon No. 253 - Delivered on Sabbath Morning, May 22nd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
-(No. 253)
-
-Delivered on Sabbath Morning, May 22nd, 1859, by the
-
-REV. C.H. SPURGEON
-
-At the Music Hall, Royal Surrey Gardens.
-
-"We have known and believed the love that God hath to us."--1 John 4:16.
+> "We have known and believed the love that God hath to us."  
+> 1 John 4:16.  
 
 IT IS VERY pleasant to read descriptions of the Holy Land from observant travellers, who, in glowing language, have depicted its interesting scenes. I must confess, that all books which speak of the land where Jesus lived and died have an attraction for me; but how much more delightful must it be, to journey there one's-self, to stand on the very spot where Jesus preached and prayed, and to kneel upon that blood-stained garden of Gethsemane, in which he sweat that sacred sweat of blood. I can scarely imagine what must be the sensation of a true Christian, when he stands on Calvary, that spot of all others most dear to the believer's soul. All the descriptions that the traveller can possibly give, can never awaken the emotions which would be felt if we were really there ourselves. Now, this law of nature I would transfer to matters of grace. Let me tell you this day what I may concerning the acts of God's goodness in the souls of his people, my description will be dullness itself compared with the glorious reality. If God should lend me help, so that I could, in glowing pictures, pourtray the amazing love of Christ Jesus to those who believe in him; if I could tell you of their matchless experience, their divine drinkings at the fountain of life and bliss, their heavenly feastings in the banquetting-house, all this would be nothing, compared with what you would feel, if you yourself could taste, and handle, and see, and know, and believe.
 
@@ -48,33 +41,24 @@ Let me enlarge, however, upon this testimony; and in the presence of many who kn
 
 In the first place we have known that God's love to us is undeserved. This we can tell you with the tears in our eyes.
 
-"There was nothing in us that could merit esteem,
-
-Or give the Creator delight.
-
-'Twas even so Father, we ever must sing,
-
-For so it seem'd good in thy sight."
+> "There was nothing in us that could merit esteem,   
+> Or give the Creator delight.   
+> 'Twas even so Father, we ever must sing,   
+> For so it seem'd good in thy sight."   
 
 Our astonishment increases every hour when we think of his love to us, for there was nothing in us that could have caused it. Often have we asked ourselves the question:--
 
-"Why was I made to hear thy voice
-
-And enter while there's room
-
-When thousands make a wretched choice,
-
-And rather starve than come?"
+> "Why was I made to hear thy voice   
+> And enter while there's room   
+> When thousands make a wretched choice,   
+> And rather starve than come?"   
 
 and our only answer is--
 
-"Twas the same love that spread the feast,
-
-That sweetly forced us in;
-
-Else we had still refused to taste
-
-And perish'd in our sin."
+> "'Twas the same love that spread the feast,   
+> That sweetly forced us in;   
+> Else we had still refused to taste   
+> And perish'd in our sin."   
 
 Ye poor sinners, ye think that there must be something in you before God can love you. Our testimony is, that God hath loved us; we are sure of this, and we do not speak half-heartedly, when we declare that we are equally sure that there never was anything in us by nature that he could love. We may doubt a great many doctrines, but we cannot doubt this. This is a matter of fact, that in us, that is, in our flesh there dwelleth no good thing. We have known and have believed that the love of God towards us is free, sovereign, undeserved, and springs entirely from the overflowing love of his own heart, and is not caused by anything in us.
 
@@ -82,51 +66,37 @@ Another thing we can bear testimony to, is this--that the love of God is unconqu
 
 We can yet again bear another testimony to God's love. We can say concerning his love that it has never been diminished by all the sins we have ever committed since we believed. We have been verily guilty, and we blush to say it. We have often revolted, but we have never found him unwilling to forgive. We have gone to him laden with guilt, but we have come away with our burden removed. Oh! if God could ever cast away his people, he would have cast away me. I am sure God never turns his children out of doors, or this had been my lot long ago. I am certain of the doctrine of final perseverance, because I have persevered as long as I have. If God meant to take my name out of the covenant, he has had mighty reasons enough long ere this.
 
-"If ever it should come to pass,
-
-That sheep of Christ should fall away,
-
-My fickle feeble soul, alas!
-
-Would fall a thousand times a day;
-
-Were not thy love as firm as free,
-
-Thou soon would'st take it Lord from me."
+> "If ever it should come to pass,   
+> That sheep of Christ should fall away,   
+> My fickle feeble soul, alas!   
+> Would fall a thousand times a day;   
+> Were not thy love as firm as free,   
+> Thou soon would'st take it Lord from me."   
 
 No, we have known, we have believed the love of God to us is not to be cut asunder by our sins, nor diminished by our unworthiness.
 
 And yet another thing we may say. We have known and we have believed the love of God to us to be perfectly immutable. We have changed, but he has changed never. We have doubted him; but when we believed not he has remained faithful. We have sometimes been in the greatest depths, but never too low for his long arm to reach. We have sometimes, it is true, run so far from him that we could not see him, but he could always see us. We have never found an end to his all-sufficiency, or, a limit to his omnipotence. We have never found a change in his love,
 
-"Immutable his will,
-
-Though dark may be my grave;
-
-His loving heart is still
-
-Unchangably the same.
-
-My soul through many changes goes;
-
-His love no variation knows."
+> "Immutable his will,   
+> Though dark may be my grave;   
+> His loving heart is still   
+> Unchangably the same.   
+> My soul through many changes goes;   
+> His love no variation knows."   
 
 We have known this. We have tasted and handled this. We are not to be argued out of it. We are sure it is true. God is immutable. Because he has been immutable; to us, so far, "we have known and believed the love that God hath to us."
 
 I will make but one other remark here, and that is, we can bear our willing witness that the love of God to us has been an unfailing support in all our trials. I cannot speak as a grey-headed man of the storms and troubles which many of you have endured; but I have had more joys and more sorrows in the last few years than any man in this place, for my life has been compressed as with a Bramah press--a vast mass of emotion into one year. I have gone to the very bottoms of the mountains, as some of you know, in a night that never can be erased from my memory, a night connected with this place. I have had to pass also through severe suffering and trial from the calamny and scorn of man, with abuse hailed pitilessly on my head. And I have had to pass through severe personal bodily pain. But as far as my witness goes, I can say that he is able to save unto the uttermost and in the last extremity, and he has been a good God to me. Unfaithful I have been; he has forgiven that, and will forgive; but unfaithful to me he never has been; and if I had the choosing of the rest of my life I would not choose, but let him map my way to the end as he has done until now, for "surely goodness and mercy shall follow me all the days of my life, and I will dwell in the house of the Lord for ever." As for you grey-headed men now present, what tales you could tell. You remember the many deliverances you have had under your sharp afflictions. You have seen a wife buried, but you have seen your God living. You have seen your children carried one after another to the tomb, but you have been able to say "The Lord gave and the Lord hath taken away, and blessed be his name." You have had your dearest friends sundered from you, but still have said:
 
-"How can I bereaved be
-
-Since I cannot part with thee."
+> "How can I bereaved be   
+> Since I cannot part with thee."   
 
 You have had attacks of Satan, you have had doubts and fears--you have been assailed by men, by earth and by hell, but you can say--
 
-"When trouble like a gloomy cloud
-
-Hath gathered thick and thundered loud;
-
-He near my soul has always stood,
-
-His loving kindness, O how good."
+> "When trouble like a gloomy cloud   
+> Hath gathered thick and thundered loud;   
+> He near my soul has always stood,   
+> His loving kindness, O how good."   
 
 Your testimony is without a flaw. Not one good thing hath failed of all that the Lord God has promised, he has never left you, never forsaken you. But to this day you can say, glory be unto the name of an unchanging God, the same yesterday, to day, and for ever.
 
@@ -136,13 +106,10 @@ Dear brothers and sisters, there are some of you here to day who have been very 
 
 The Lord is always pleased with his children when they can stand up for him when circumstances seem to belie him. Here come the witnesses into court. The devil says, "Soul, God has forgotten thee, I will bring in my witness." First he summons your debts--a long bill of losses. "There," says he, "would God suffer you to fall thus, if he loved you?" Then he brings in your children--either their death, or their disobedience, or something worse, and says, "Would the Lord suffer these things to come upon you, if he loved you?" At last he brings in your poor tottering body, and all your doubts and fears, and the hidings of Jehovah's face. "Ah," says the devil, "do you believe that God loves you now ?" Oh, it is noble, if you are able to stand forth and say to all these witnesses, "I hear what you have to say, let God be true, and every man and everything be a liar; I believe none of you. You all say, God does not love me; but he does, and if the witnesses against his love were multiplied a hundredfold, yet still would I say, "I know whom I have believed."
 
-"I know that safe with him remains,
-
-Protected by his power,
-
-What I've committed to his hands,
-
-'Till the decisive hour;"
+> "I know that safe with him remains,   
+> Protected by his power,   
+> What I've committed to his hands,   
+> 'Till the decisive hour;"   
 
 He will bring me safe to heaven at last, unhurt by the way.
 
