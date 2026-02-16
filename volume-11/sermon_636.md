@@ -2,8 +2,8 @@
 
 Sermon No. 636 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Tell me, O You whom my soul loves, where You feed, where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions?'  
-> Song of Solomon 1:7.  
+> Tell me, O You whom my soul loves, where You feed, where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions?    
+> Song of Solomon 1:7.    
 
 We shall need to lift up our hearts to God and ask to be quickened in Divine Grace or the precious truths in our text will not prove to us "as honey out of the rock," nor the "least of fat things, of wine and marrow, of wine on the lees well refined." We cannot appreciate the spirituality of this book unless God's Spirit shall help us. Many read these words and only see a proof of the imaginative power of an eastern mind. Some read to scoff and blaspheme and others, even good people, neglect to read this book altogether, being unable to drink in its spirit because of their need of that higher life of communion with the Beloved which is here so beautifully laid open to our view.
 

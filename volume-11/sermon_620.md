@@ -2,8 +2,8 @@
 
 Sermon No. 620 - Delivered on Sunday Morning, March 19th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "But exhort one another daily, while it is called 'Today,'lest any of you be hardened through the deceitfulness of sin."  
-> Hebrews 3:13.  
+> But exhort one another daily, while it is called 'Today,'lest any of you be hardened through the deceitfulness of sin.    
+> Hebrews 3:13.    
 
 THE children of Israel, in their coming out of Egypt and in their forty years' sojourn in the wilderness, represented the visible Church of the living God--not the secret and elect body of the redeemed--but the professing company of the outward Church. They were very prone to the great sin of unbelief. They believed in God after a fashion while they saw His wonders, but the moment they were brought into straits or difficulties, they at once began to doubt the power of Jehovah and to cast off all reverence for His authority. Therefore they fell into another sin which at last fastened on them so as to become a part of their nature--they became stiff-necked, obstinate, rebellious, perverse and hard of heart.
 

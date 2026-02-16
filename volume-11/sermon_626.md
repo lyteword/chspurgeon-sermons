@@ -2,8 +2,8 @@
 
 Sermon No. 626 - Delivered on Sunday Morning, April 23rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "He that waters shall be watered also himself."  
-> Proverbs 11:25.  
+> He that waters shall be watered also himself.    
+> Proverbs 11:25.    
 
 THE general principle is that in living for the good of others we shall be profited ourselves. We must not isolate our own interests but feel that we live for others. This teaching is sustained by the analogy of nature, for in nature there is a law that no one thing can be independent of the rest of creation, but there is a mutual action and reaction of all upon all. All the constituent parts of the universe are bound to one another by invisible chains and there is not a single creature in it which springs up, or flourishes, or decays itself alone.
 
@@ -113,8 +113,8 @@ True Protestants, we must take upon ourselves to work for London as if there wer
 
 We must work and toil and labor to scatter in every lane, alley and court of London the pure Gospel of the blessed God. We must let men know that Sacramentarianism is a lie and that there is no salvation but in the uplifted Cross of Christ, and no salvation through ceremonies but only through a simple faith in Him who loved us and gave Himself for us. If you, among others, are come to the kingdom for such a time as this it shall be well with you! But if not, you shall be put away as things abhorred and this place shall be a hissing and a by-word in generations yet to come. And it shall be said of you--"There lived a people who were led by a man, who, with all his faults, was in earnest and was honest and they would not follow him. They proved unworthy of him and they have passed away and their names were written in water.
 
-> They had opportunities which they did not use. Work was allotted them which they were not worthy to take up. God said to them in answer to their request to be excused, 'You shall be excused.' And they went back--   
-> 'To the vile dust from where they sprung, Unwept, unhonored and unsung.'   
+> They had opportunities which they did not use. Work was allotted them which they were not worthy to take up. God said to them in answer to their request to be excused, 'You shall be excused.' And they went back--    
+> 'To the vile dust from where they sprung, Unwept, unhonored and unsung.    
 
 But it shall not be so with you, my Brethren! Though I thus speak, I know your zeal and love and earnestness and that you will continue to water others and then you shall be watered yourselves! We will pray and strive together for the faith once delivered to the saints! We will cleave closer and closer to one another and foot to foot and shoulder to shoulder we will march to battle for God and for His Truth! And come what may, whoever else may prove a coward in these days of charity and compromise--we will be found, in God's name, by the help of God's Spirit--faithful and true.
 

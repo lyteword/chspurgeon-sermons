@@ -2,8 +2,8 @@
 
 Sermon No. 667 - Delivered on Sunday Morning, December 31st, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "At the last."  
-> Proverbs 5:11  
+> At the last.    
+> Proverbs 5:11    
 
 THE wise man saw the young and simple straying into the house of the strange woman. The house seemed so completely different from what he knew it to be that he desired to shed a light upon it, that the young man might not sin in the dark, but might understand the nature of his deeds. The wise man looked abroad and he saw but one lamp suitable to his purpose. It was named, "At the last." So, snatching this, he held it up in the midst of the strange woman's den of infamy and everything was changed from what it had been before--the truth had come to light and the deceptive had vanished.
 

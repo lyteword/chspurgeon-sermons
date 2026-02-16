@@ -2,8 +2,8 @@
 
 Sermon No. 622 - Delivered on Sunday Morning, April 2nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "So he paid the fare."  
-> Jonah 1:3.  
+> So he paid the fare.    
+> Jonah 1:3.    
 
 AS a general rule, wherever we go, whatever we do, we must "pay the fare." Expenditure is connected with every act, work and operation. The sun does not constantly flood this world and all its sister spheres with light and heat without some kind of consumption within itself. Nor does the earth yield her fruits of harvest except at the cost of the matter of which it is composed. By the force of wind and frost, the very "Mountain falling comes to nothing and the rock is removed out of his place" (Job 14:18). The rivers do not reach the sea without wearing away their banks and cutting channels in the earth through which their floods may flow. The raindrops, the generous gifts of Heaven, have first been loaned from the treasury of the great deep. The air itself is constantly in process of consumption, and were it not that a fresh supply is daily being produced, even the atmosphere would become exhausted.
 
@@ -33,9 +33,9 @@ Our gracious God has given no charge to His angels to keep the sinner in all his
 
 The Christian has the Presence of God also to rejoice in. Mungo Park, when lost in the wilderness, observed a tiny piece of moss, and marking how beautifully it was fashioned, he recollected, "God is here! My Father is here!" So does the Christian. He is never out of his Father's House and consequently he is forevermore at home. The lines of Thompson are ours, not as poetry merely, but as matter of fact--
 
-> Should Fate command me to the farthest verge Of the green earth, to distant barbarous climes, Rivers unknown to song, where first the sun Gilds Indian mountains, or his setting beam Flames on the Atlantic isles; 'tis naught to me Since God is ever present, ever felt, In the void waste as in the city full And where He vital breathes, there must be joy. When even at last the solemn hour shall come, And wing my mystic flight to future worlds, I cheerfully wil obey. There with new powers   
-> Will rising wonders sing. Icannotgo   
-> Where UNIVERSAL LOVE not smiles around, Sustaining all yon orbs and all their sons, From seeming evil still educing good. And better there again and better still, In infinite progression.   
+> Should Fate command me to the farthest verge Of the green earth, to distant barbarous climes, Rivers unknown to song, where first the sun Gilds Indian mountains, or his setting beam Flames on the Atlantic isles; 'tis naught to me Since God is ever present, ever felt, In the void waste as in the city full And where He vital breathes, there must be joy. When even at last the solemn hour shall come, And wing my mystic flight to future worlds, I cheerfully wil obey. There with new powers    
+> Will rising wonders sing. Icannotgo    
+> Where UNIVERSAL LOVE not smiles around, Sustaining all yon orbs and all their sons, From seeming evil still educing good. And better there again and better still, In infinite progression.    
 
 It is not so with the sinner? The presence of God is to him dreadful. If there were some valley of confusion where God's power is not known, its congenial desolation would become the sinner's Heaven--the place where God's Presence shall gleam upon him with irresistible force will be his Hell. Moreover, the sinner gives up every promise of God in choosing the road to perdition. There is not a word in this Book of Divine Love which can breathe comfort into the sinner's ear while he chooses his own ways. It is a book of threats and of curses to the impenitent. It woos as a mother would call her wandering child--it has a gentle voice forever broken, and contrite spirit--but it thunders like Sinai's own self against every hardened sinner who will not turn from his wicked way.
 

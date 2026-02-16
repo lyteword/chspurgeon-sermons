@@ -2,8 +2,8 @@
 
 Sermon No. 651 - Delivered on Sunday Morning, September 24th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Can the rush grow up without a marsh? Can the reeds grow without water? While it is yet green and not cut down, it withers before any other plant. So are the paths of all that forget God. And the hypocrite's hope shall perish."  
-> Job 8:11-13.  
+> Can the rush grow up without a marsh? Can the reeds grow without water? While it is yet green and not cut down, it withers before any other plant. So are the paths of all that forget God. And the hypocrite's hope shall perish.    
+> Job 8:11-13.    
 
 ISAAC walked in the fields at eventide to meditate. I commend him for his occupation. Meditation is exceedingly profitable to the mind. If we talked less, read less, and meditated more we should be wiser men. I commend him for the season which he chose for that occupation--at eventide--when the business of the day was over and the general stillness of nature was in harmony with the quiet of his soul. I also commend him for the place which he selected--the wide expanse of nature--the field.
 

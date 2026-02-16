@@ -2,8 +2,8 @@
 
 Sermon No. 613 - Delivered on Sunday Morning, February 5th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "When a strong man armed keeps his palace, his goods are in peace: but when a stronger than he shall come upon him and overcome him, he takes from him all his armor wherein he trusted, and divides his spoils. He that is not with Me is against Me: and he that gathers not with Me scatters. When the unclean spirit is gone out of a man, he walks through dry places, seeking rest. And finding none, he says, I will return unto my house from where I came out. And when he comes, he finds it swept and garnished. Then goes he and takes to him seven other spirits more wicked than himself; and they enter in and dwell there: and the last state of that man is worse than the first."  
-> Luke 11:21-26.  
+> When a strong man armed keeps his palace, his goods are in peace: but when a stronger than he shall come upon him and overcome him, he takes from him all his armor wherein he trusted, and divides his spoils. He that is not with Me is against Me: and he that gathers not with Me scatters. When the unclean spirit is gone out of a man, he walks through dry places, seeking rest. And finding none, he says, I will return unto my house from where I came out. And when he comes, he finds it swept and garnished. Then goes he and takes to him seven other spirits more wicked than himself; and they enter in and dwell there: and the last state of that man is worse than the first.    
+> Luke 11:21-26.    
 
 THE Lord Jesus is ever in direct and open antagonism to Satan. "I will put enmity between you and the woman, between your seed and her seed," has been most emphatically fulfilled. Christ has never tolerated any truce or parley with the Evil One and never will. Whenever Christ strikes a blow at Satan, it is a real blow and not a feint and is meant to destroy, not to amend. He never asks Satan's help to subdue Satan--never fights evil by evil--He uses the weapons which are not carnal, but mighty to the pulling down of strongholds. And He uses them ever with this intention--not to dally with Satan, but to cut up his empire, root and branch. "For this purpose the Son of God was manifested, that He might destroy the works of the devil."
 
@@ -21,9 +21,9 @@ He is a good swordsman. He knows every cut and guard and thrust and parry and he
 
 It is said of this strong man, moreover, that he is armed. Truly the Prince of the power of the air is never without weapons. His principal weapon is the lie. The sword of God's Spirit is the Truth, but the sword of the evil spirit is the lie. It was by falsehood that he overthrew our race at first and despoiled us of perfection. And it is with continued falsehoods, of which the lie is both the forger and the user, that he continues to destroy the souls of men. He will tell the sinner sometimes that he is too young to think of death and of eternal things. And when this weapon fails he will assure him that it is too late, for the day of Grace is over--
 
-> He feeds our hopes with airy dreams. Or kills with slavish fear. And holds us still in wide extremes, Presumption, or despair. Now he persuades, 'Howeasy 'tis   
-> To walk the road to Heaven!' Then he swells our sins and cries, 'They cannot be forgiven!'   
-> Thus he supports his cruel throne By mischief and deceit, And drags the sons of Adam do wn To darkness and the pit.   
+> He feeds our hopes with airy dreams. Or kills with slavish fear. And holds us still in wide extremes, Presumption, or despair. Now he persuades, 'Howeasy 'tis    
+> To walk the road to Heaven!' Then he swells our sins and cries, 'They cannot be forgiven!'    
+> Thus he supports his cruel throne By mischief and deceit, And drags the sons of Adam do wn To darkness and the pit.    
 
 He has a way of making the worse appear the better reason. He can put bitter for sweet and sweet for bitter--make men believe that it is to their own advantage to do that which is causing their everlasting ruin. He can make men carry coals of fire in their bosoms and dream that they shall not be burned. He can make them dance upon the brink of Hell as though they were on the verge of Heaven. Alas, fools that we are, how readily do his lies prevail against us! Then he has the well-feathered arrows of pleasure. The strong man is armed with the lusts of the flesh. Dainty dalliances he offers to some--overflowing cups that sparkle to the eye he presents for others! Glittering wealth he gives to the avaricious and the trump of fame and all the smoke of applause he promises to others.
 

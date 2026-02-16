@@ -2,8 +2,8 @@
 
 Sermon No. 629 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "And the Lord said unto Joshua, See, I ha ve given into your hands Jericho and the king thereof and the mighty men of valor. And you shall compass the city, all you men of war and go round about the city once. Thus shall you do six days."  
-> Joshua 6:2,3.  
+> And the Lord said unto Joshua, See, I ha ve given into your hands Jericho and the king thereof and the mighty men of valor. And you shall compass the city, all you men of war and go round about the city once. Thus shall you do six days.    
+> Joshua 6:2,3.    
 
 I SEE many ministering Brothers here. I think I shall follow the example of Martin Luther who observes that he frequently saw in the church at Wittenberg sundry learned doctors and there usually sat Dr. Justus Jonas and others of whom he said were infinitely greater and more wise than himself. "But," said Martin, "I do not, therefore, alter my style of preaching--I do not preach to them--I preach to those peasants who come in from the country and to the citizens of Wittenberg. For then I am quite certain that if they can understand me, Dr. Justus Jonas and the learned divines can understand me, too, if they like."
 

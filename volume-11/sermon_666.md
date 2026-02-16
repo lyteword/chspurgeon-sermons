@@ -2,8 +2,8 @@
 
 Sermon No. 666 - Delivered on Sunday Morning, December 24th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "And when they had seen it, they made known abroad the saying which was told them concerning this Child. And all they that heard it wondered at those things which were told them by the shepherds. But Mary kept all these things and pondered them in her heart. And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them."  
-> Luke 2:17-20.  
+> And when they had seen it, they made known abroad the saying which was told them concerning this Child. And all they that heard it wondered at those things which were told them by the shepherds. But Mary kept all these things and pondered them in her heart. And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them.    
+> Luke 2:17-20.    
 
 EVERY season has its own proper fruit--apples for autumn, holly berries for Christmas. The earth brings forth according to the period of the year and with man there is a time for every purpose under Heaven. At this season the world is engaged in congratulating itself and in expressing its complimentary wishes for the good of its citizens. Let me suggest extra and more solid work for Christians. As we think, today, of the birth of the Savior, let us aspire after a fresh birth of the Savior in our hearts--that as He is already "formed in us the hope of glory," we may be "renewed in the spirit of our minds"--that we may go again to the Bethlehem of our spiritual nativity and do our first works, enjoy our first loves and feast with Jesus as we did in the holy, happy, heavenly days of our espousals.
 

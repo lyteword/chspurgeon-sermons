@@ -2,8 +2,8 @@
 
 Sermon No. 633 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Come and see. ... Come and dine."  
-> John 1:39 & John 21:12.  
+> Come and see. ... Come and dine.    
+> John 1:39 & John 21:12.    
 
 THE one text is in the beginning and the other at the end of John's Gospel. There is a mystery here. Here is typified a growth which it were well for us to understand. "Come and see," is for babes in Grace--"Come and dine," is for strong men in Christ Jesus. We must notice the order. "Come and see," is the beginning of spiritual life as it is the beginning of this Gospel. "Come and dine," is a high after-privilege of the spiritual life and a blessed result of it. "Come and see," is the Gospel's cry to those outside its pale--it has nothing to conceal, it wears no mask, it has no most holy place into which entrance is forbidden. It has a "sanctum sanctorum," but the way into it is open. Open and above-board in all its doings, the Truth as it is in Jesus bares its bosom secrets and cries to every passerby, "Come and see."
 
@@ -75,8 +75,8 @@ There is more enjoyment, then, in the one than in the other. And there is also m
 
 Read "Rutherford's Letters," and you get glimpse of what it is to dine with Christ. Turn to "Hawker's Morning and Evening Portions," or even, if you will, wander amidst the quaint rhymes and sweet poetry of dear George Herbert-- there you have, "come and dine" carried out in sweetest prose. Oh, to get so close to Christ that you can sing with a modern hymn writer--
 
-> So near, so very near to God, I cannot nearer be; For in the Person of His Son I am as near as He! So dear, so very dear to God, I cannot dearer be;   
-> The love wherewith He loves His Son Such is His love to me!   
+> So near, so very near to God, I cannot nearer be; For in the Person of His Son I am as near as He! So dear, so very dear to God, I cannot dearer be;    
+> The love wherewith He loves His Son Such is His love to me!    
 
 This is a high attainment, but rest not satisfied till you have gained it. Yet, once more, "come and dine," gives us a vision of union with Jesus because the only meat that we can eat when we dine with Christ is Himself. We do not provide the supper. When He dined on that occasion with His disciples, Peter dragged a net full of fishes out of the sea. But when they came on shore they found a fire already kindled and fish laid on it, so that the fish they ate did not come out of the sea--by their net--at any rate. Christ found the fish and lit the fire. And He found the bread and then said, "Come and dine." Ah, and the fire that warms our heart when we have fellowship with Him comes from Himself! And the fish that we eat is His own and the wine that we drink flows from His own heart.
 

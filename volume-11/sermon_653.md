@@ -2,8 +2,8 @@
 
 Sermon No. 653 - Delivered on Sunday Morning, October 8th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "It is the spirit that quickens. The flesh profits nothing: the words that I speak unto you, they are spirit and they are life."  
-> John 6:63.  
+> It is the spirit that quickens. The flesh profits nothing: the words that I speak unto you, they are spirit and they are life.    
+> John 6:63.    
 
 OUR Lord had plainly told His hearers that He was the Bread of Life. And that except they ate His flesh and drank His blood there was no life in them. His hearers understood this in a sensual manner and they very naturally put the question, "How can this Man give us His flesh to eat?" Now the Savior had never intended to be understood in a carnal manner. It was far enough from His design to inculcate the carnal eating of His body and therefore He at once told them that His words were not understood.
 

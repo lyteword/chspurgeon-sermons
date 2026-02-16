@@ -2,8 +2,8 @@
 
 Sermon No. 627 - Delivered on Sunday Morning, April 30th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Whom He justified, them He also glorified."  
-> Romans 8:30.  
+> Whom He justified, them He also glorified.    
+> Romans 8:30.    
 
 WELL said the Apostle in another place, "All things are of God." And here in this passage all works of Divine Grace are evidently so. The pronoun, "He," is repeated yet again and again, as if to set the Lord always before us. "Whom He did foreknow, He also did predestinate to be conformed to the image of His Son." "Moreover, whom He did predestinate, them He also justified and whom He justified, them He also glorified." It is of God all the way through. There is not an inch of ground left to he covered by the creature's foot. The eternal Creator works all things in the Covenant of Grace according to the counsel of His own will. Haldane has an admirable note on this passage which we will quote in full:
 
