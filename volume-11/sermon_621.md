@@ -2,8 +2,8 @@
 
 Sermon No. 621 - Delivered on Sunday Morning, March 26th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "The precious blood of Christ."  
-> 1 Peter 1:19.  
+> The precious blood of Christ.    
+> 1 Peter 1:19.    
 
 IT is frequently my fear I should fall into the habit of preaching about the Gospel rather than directly preaching the Gospel. And then I labor to return to the first principle of our faith and often take a text upon which it would not be possible to say anything new, but which will compel me to recapitulate in your hearing those things which are vital, essential and fundamental to the life of our souls. With such a text as this before me, if I do not preach the Gospel I shall do violence both to the sacred Word and to my own conscience. Surely I may hope that while endeavoring to unfold my text and to proclaim the saving Word, the Holy Spirit will be present to take of the things of Christ and to show them unto us and make them saving to our souls.
 

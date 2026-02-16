@@ -2,8 +2,8 @@
 
 Sermon No. 663 - Delivered on Sunday Morning, December 3rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "But if we walk in the light, as He is in the light, we have fellowship one with another and the blood of Jesus Christ, His Son, cleanses us from all sin."  
-> 1 John 1:7.  
+> But if we walk in the light, as He is in the light, we have fellowship one with another and the blood of Jesus Christ, His Son, cleanses us from all sin.    
+> 1 John 1:7.    
 
 THERE are two great powers in conflict in this world. One is the power of good, of which God is the King and the other is the power of evil, which is represented by the Prince of the power of the air, Satan. The first principle is set forth by John under the figure of light. God himself is essential Light and everything which is good in the world is an emanation from Himself. "Every good gift and every perfect gift is from above and comes down from the Father of Lights, with whom is no variableness, neither shadow of turning."
 

@@ -2,8 +2,8 @@
 
 Sermon No. 617 - Delivered on Sunday Morning, February 26th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "When Christ, who is our life, shall appear, then shall you also appear with Him in glory."  
-> Colossians 3:4.  
+> When Christ, who is our life, shall appear, then shall you also appear with Him in glory.    
+> Colossians 3:4.    
 
 MY discourse on Sunday mornings is very frequently the gathering up of the thoughts and experiences of the week-- a handful of barley which I have gleaned among the sheaves. But I could not thrust upon you, this morning, the poverty-stricken productions of my own insufferable dullness of brain, weariness of heart and sickness of spirit during this week, for this were a sure method of making you partakers of my misery. I have wandered through a wilderness, but I will not scatter handfuls of the hot sand among you. I have traversed the valley of the shadow of death, but I will not repeat the howling of Apollyon.
 

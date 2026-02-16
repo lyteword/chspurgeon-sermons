@@ -2,8 +2,8 @@
 
 Sermon No. 612 - Delivered on Sunday Morning, January 29th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Then He came to Simon Peter: and Peter said unto Him, Lord, do You wash my feet?"  
-> John 13:6.  
+> Then He came to Simon Peter: and Peter said unto Him, Lord, do You wash my feet?    
+> John 13:6.    
 
 OUR Savior had so steadfastly set His face towards the awful sufferings of His passion that when they actually approached He was not in the slightest degree disturbed or disconcerted. If you were perfectly aware that tomorrow morning, after a night of terrible agony, you would be led forth to a cruel and ignominious death you would probably feel like men distracted with terrible apprehensions. At any rate, if through Divine Grace you were able to be calm and peaceful, your mind would scarcely be in a fit state to minister consolation to others, or to conceive new methods of instruction for your friends.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 648 - Delivered on Sunday Morning, September 3rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "For our Gospel came not unto you in word only, but also inpower, and in the Holy Spirit and in much assurance; as you know what manner of men we were among you for your sake."  
-> 1 Thessalonians 1:5.  
+> For our Gospel came not unto you in word only, but also inpower, and in the Holy Spirit and in much assurance; as you know what manner of men we were among you for your sake.    
+> 1 Thessalonians 1:5.    
 
 PAUL here claimed two things which are absolutely necessary to success in the Christian ministry. He could call the Gospel, "our Gospel," and this is a foremost essential in a sent servant of Jesus Christ. Paul, Silas and Timothy, here speaking at once, declare the word which they had preached to be their own in a peculiar sense--every true minister must be able to do the same--we must, ourselves, have been saved before we preach salvation. "I believed, therefore have I spoken," says the Psalmist. "We also believe, and therefore speak," say the whole college of the Apostles. Without faith, the religious teacher is a mere pretender unworthy of respect.
 

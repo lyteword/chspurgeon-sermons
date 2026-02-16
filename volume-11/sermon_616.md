@@ -2,8 +2,8 @@
 
 Sermon No. 616 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "God is faithful, by whom you were called unto the fellowship of His Son Jesus, Christ our Lord."  
-> 1 Corinthians 1:9.  
+> God is faithful, by whom you were called unto the fellowship of His Son Jesus, Christ our Lord.    
+> 1 Corinthians 1:9.    
 
 AS I look round upon this large Church, numbering far above two thousand members, my soul is often cast down within me. Yes, I am brought into the lowest depths of anxiety! Who is sufficient for these things? To order and distribute its sacred offices aright, to govern with discretion, to exercise discipline with prudence, to hide a strong hand and to show at all times a loving heart--such thoughts roll in, wave after wave, till they threaten to overwhelm the mind! And then at last to render unto the Master an account according to my earnest expectation and hope that in nothing I shall be ashamed. To be saluted of my God at His coming as a faithful and wise servant who has given to His household meat in due season. To be approved as a faithful steward of the mysteries of God, not having "shunned to declare the whole counsel of God," as well to those that did forbear as to those that did hear. If such aims do sometimes wind up one's nerves to extraordinary energy, they verily make the heart palpitate at other times with the fear that haunts and the solemnity that awes our soul.
 

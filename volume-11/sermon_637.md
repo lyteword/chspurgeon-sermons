@@ -2,8 +2,8 @@
 
 Sermon No. 637 - Delivered on Sunday Morning, July 2nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "But the dove found no rest for the soles of her feet and she returned unto him into the ark, for the waters were on the face of the whole earth. Then he put forth his hand and took her and pulled her in unto him into the ark."  
-> Genesis 8:9.  
+> But the dove found no rest for the soles of her feet and she returned unto him into the ark, for the waters were on the face of the whole earth. Then he put forth his hand and took her and pulled her in unto him into the ark.    
+> Genesis 8:9.    
 
 THE sending forth of the raven and of the dove have furnished ready materials for numerous allegories with which Divines in different ages have sometimes edified and more frequently amused their hearers. We cannot afford time to mention many of them, but one of the host may serve as a specimen. Certain expositors have fancied that the mission of the raven prefigured the sending forth of the Law, which was black and terrible and which came not back to man bearing any token of comfort, or sign of hope. And that afterwards the Lord sent forth the Gospel, foreshadowed by the dove, which by-and-by came back to sinful man, bearing the olive branch of peace.
 

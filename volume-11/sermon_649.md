@@ -2,8 +2,8 @@
 
 Sermon No. 649 - Delivered on Sunday Morning, September 10th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Sing, O barren, you that did not bear. Break forth into singing, and cry aloud, you that did not travail with child: for more are the children of the desolate than the children of the married wife, says the Lord."  
-> Isaiah 54:1.  
+> Sing, O barren, you that did not bear. Break forth into singing, and cry aloud, you that did not travail with child: for more are the children of the desolate than the children of the married wife, says the Lord.    
+> Isaiah 54:1.    
 
 IT was a great sorrow to an Eastern woman to be childless. In modern times that affliction is endured with cheerful equanimity, but in those days it was regarded as a dreadful curse and the feelings of those afflicted by it were of the most painful kind, as we find in the case of Hannah. Alas, for human nature! Those who were favored with children were often guilty of cruel haughtiness and taunting derision towards those who were not so blessed. We may instance the cases of Peninnah over Hannah and Hagar over her mistress, Sarah. We must therefore endeavor to bring our minds to the Eastern idea and we shall then have before us a case of very great, deep, constant, abiding, bitter sorrow. And yet the person in that case is bid to sing and to rejoice aloud, because the visitation of God's mercy should soon come to make desolation itself glad!
 

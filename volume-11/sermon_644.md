@@ -2,8 +2,8 @@
 
 Sermon No. 644 - Delivered on Sunday Morning, August 13th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "You are My witnesses, says the Lord, and My Servant, whom I have chosen."  
-> Isaiah 43:10.  
+> You are My witnesses, says the Lord, and My Servant, whom I have chosen.    
+> Isaiah 43:10.    
 
 You, most of you, know that I am incessantly engaged every hour in the week either in preaching the Gospel or in endeavoring to discharge the multifarious duties connected with this immense Church. Now I always look upon my Saturdays as being consecrated, as far as possible, to meditation and study, that I may find something to set before you on the Lord's Day. But, unfortunately for me, I was served with a subpoena to attend the courts at Croydon and was compelled to spend the whole of yesterday sitting in a hot and crowded court.
 

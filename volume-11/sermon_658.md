@@ -2,8 +2,8 @@
 
 Sermon No. 658 - Delivered on Sunday Morning, November 5th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "He raises up the poor out of the dust and lifts the needy out of the dunghill, that He may set him with princes, even with the princes of His people."  
-> Psalm 113:7,8.  
+> He raises up the poor out of the dust and lifts the needy out of the dunghill, that He may set him with princes, even with the princes of His people.    
+> Psalm 113:7,8.    
 
 THE greatness and majesty of the Most High God are utterly inconceivable. The most masterly minds, when in the most spiritual state, have felt it impossible for the utmost stretch of their imagination to reach to the grandeur of God. Our loftiest conceptions of the universe probably fall very far short of what it really is--although the researches of astronomy have revealed facts surpassing all the powers of the human mind in the attempt to grasp them. Thought, reason, understanding, and even imagination are bewildered in the vast and illimitable fields of space amidst the marvels of God's handiwork.
 

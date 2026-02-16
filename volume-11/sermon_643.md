@@ -2,8 +2,8 @@
 
 Sermon No. 643 - Delivered on Sunday Morning, August 6th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "And God shall wipe away all tears from their eyes."  
-> Revelation 7:17.  
+> And God shall wipe away all tears from their eyes.    
+> Revelation 7:17.    
 
 IT is an ill thing to be always mourning, sighing and complaining concerning the present. However dark it may be, we may surely recall some fond remembrances of the past. There were days of brightness, there were seasons of refreshing from the Presence of the Lord. Be not slow to confess, O believing Soul, that the Lord has been your help! And though now your burden is very heavy, you will find an addition to your strength in the thought of seasons long since past when the Lord lightened your load and made your heart leap for joy.
 

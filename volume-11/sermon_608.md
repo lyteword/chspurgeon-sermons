@@ -2,8 +2,8 @@
 
 Sermon No. 608 - Delivered on Sunday Morning, January 8th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Behold the voice of the cry of the daughter of My people because of them that dwell in a far country, Is not the Lord in Zion? Is not her King in her? Why have they provoked Me to anger with their graven images and with strange vanities? The harvest is past, the summer is ended and we are not saved."  
-> Jeremiah 8:19,20.  
+> Behold the voice of the cry of the daughter of My people because of them that dwell in a far country, Is not the Lord in Zion? Is not her King in her? Why have they provoked Me to anger with their graven images and with strange vanities? The harvest is past, the summer is ended and we are not saved.    
+> Jeremiah 8:19,20.    
 
 THESE words, as they stand in the book of Jeremiah, were probably meant to set forth the sin of Israel. The Prophet's heart is very full of sadness--he can hear the shrieks and cries of the people in the streets of Jerusalem. They are moaning for sorrow because of the oppression of the Chaldeans--the nation that dwelt afar off. And in the midst of their bitterness and woe they remember the God whom they had forgotten in their prosperity--but this remembrance is not a gracious one. They do not remember Him to humble themselves before Him, but to bring accusations against Him!
 

@@ -2,8 +2,8 @@
 
 Sermon No. 632 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "What king, going to make war against another king, sits not down first and consults whether he is able with ten thousand to meet him that comes against him with twenty thousand? Or else, while the other is yet a great way off, he sends a delegation and desires conditions of peace."  
-> Luke 14:31,32.  
+> What king, going to make war against another king, sits not down first and consults whether he is able with ten thousand to meet him that comes against him with twenty thousand? Or else, while the other is yet a great way off, he sends a delegation and desires conditions of peace.    
+> Luke 14:31,32.    
 
 EVERY sensible man endeavors to adapt his purposes to his strengths. He does not begin to build a house which he will not be able to finish, nor commence a war which he cannot hope to fight through. The religion of Christ is the most reasonable one in the world and Jesus Christ never desires to have any disciples who shall blindly follow Him without counting the cost. We always esteem it to be a happy thing when we can get men to sit down and consider. The most of you are so full of other thoughts and so occupied with the world--ever running here and there about your ordinary business--that we cannot get you to think, or calmly sit down and soberly look at things in the light of eternity and weigh them deliberately as you ought.
 

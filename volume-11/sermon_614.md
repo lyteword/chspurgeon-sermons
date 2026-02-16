@@ -2,8 +2,8 @@
 
 Sermon No. 614 - Delivered on Sunday Morning, February 12th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "For Christ's sake."  
-> Ephesians 4:32.  
+> For Christ's sake.    
+> Ephesians 4:32.    
 
 THIS is the great argument of awakened sinners when they seek mercy at God's hands. Once they could boast of their own righteousness. They could rest upon their feelings, their resolutions, their goodness of heart, or their prayers--but now that God the Holy Spirit has shown them what they are and revealed to them the desperate evil of their hearts, they dare not offer any other plea than this--"For Christ's sake." They look and there is no man to succor. They cast their eyes around and there is no helper and their heart knows neither peace nor hope till they behold the Person and sacrifice of Jesus Christ. Then straightway their mouth is opened with arguments and they can plead with God with prevailing reasons, saying, "For Christ's sake, for Christ's sake, have mercy upon me."
 

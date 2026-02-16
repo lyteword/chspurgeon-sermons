@@ -2,8 +2,8 @@
 
 Sermon No. 630 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "The wind blows where it wishes and you hear the sound of it, but cannot tell from where it comes and where it goes. So is everyone that is born of the Spirit."  
-> John 3:8.  
+> The wind blows where it wishes and you hear the sound of it, but cannot tell from where it comes and where it goes. So is everyone that is born of the Spirit.    
+> John 3:8.    
 
 AT the present moment I am not able to enter fully into the subject of the new birth. I am very weary, both in body and mind and cannot attempt that great and mysterious theme. To everything there is a season and a time for every purpose under Heaven and it is not the time to preach upon regeneration when the head is aching, nor to discourse upon the new nature when the mind is distracted. I selected my text with the intention of fixing upon one great illustration which strikes me just now as being so suggestive, and with Divine assistance I may be able to work it out with profit to you and ease to myself.
 

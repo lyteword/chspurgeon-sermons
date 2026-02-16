@@ -2,8 +2,8 @@
 
 Sermon No. 656 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "When it pleased God, who separated me from my mother's womb and called me by His Grace, to reveal His Son in me."  
-> Galatians 1:15.  
+> When it pleased God, who separated me from my mother's womb and called me by His Grace, to reveal His Son in me.    
+> Galatians 1:15.    
 
 You all know the story of the Apostle Paul. He had been a persecutor and went armed with letters to Damascus to hail men and women and drag them to prison. On the road there he saw a light exceedingly bright--above the brightness of the sun--and a voice spoke out of Heaven to him saying, "Saul, Saul, why do you persecute Me?" By this miraculous interposition he was converted--three days he spent in darkness. But when Ananias came to tell him of the Gospel of Jesus Christ, there fell from his eyes, as it were, scales. He was baptized, became the most mighty of all Christian teachers, and could truly say that he was not a whit behind the very chief of the Apostles.
 

@@ -2,8 +2,8 @@
 
 Sermon No. 625 - Delivered on Sunday Morning, April 16th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Now when Jesus was risen early the first day of the week, He appeared first to Mary Magdalene, out of whom He had cast seven devils.'"  
-> Mark 16:9.  
+> Now when Jesus was risen early the first day of the week, He appeared first to Mary Magdalene, out of whom He had cast seven devils.    
+> Mark 16:9.    
 
 THE doctrine of a risen Savior is exceedingly precious. The Resurrection is the cornerstone of the entire building of Christianity. It is the keystone of the arch of our salvation. It would take us many a discourse to set forth all the streams of living water which flow from this one sacred source--the Resurrection of our dear Lord and Savior Jesus Christ. But to know that He has risen and to have fellowship with Him as such--communing with the risen Savior by possessing a risen life! Seeing Him leave the tomb by leaving the tomb of worldliness ourselves--this is even more precious!
 

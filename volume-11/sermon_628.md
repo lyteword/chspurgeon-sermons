@@ -2,8 +2,8 @@
 
 Sermon No. 628 - Delivered on Sunday Morning, May 7th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Husbands, love your wives, even as Christ also loved the Church, and gave Himself for her, that He might sanctify and cleanse her with the washing of water by the Word, that He might present her to Himself a glorious Church, not having spot, or wrinkle, or any such thing, but that she should be holy and without blemish."  
-> Ephesians 5:25-27.  
+> Husbands, love your wives, even as Christ also loved the Church, and gave Himself for her, that He might sanctify and cleanse her with the washing of water by the Word, that He might present her to Himself a glorious Church, not having spot, or wrinkle, or any such thing, but that she should be holy and without blemish.    
+> Ephesians 5:25-27.    
 
 WHAT a golden example Christ gives to His disciples! There are few masters who could venture to say, "If YOU would practice my teaching, imitate my life." But the life of Jesus is the exact transcript of perfect virtue and therefore He can point to Himself as the paragon of holiness, as well as the teacher of it. The Christian should take nothing short of Christ for his model. Under no circumstances ought we to be content unless we reflect the Grace which was in Christ Jesus. Even as a husband, which is a relationship that the Christian sustains in common with the rest of men, he is to look upon Christ Jesus as being set before him as the picture and he is to paint according to that copy.
 

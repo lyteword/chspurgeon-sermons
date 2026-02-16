@@ -2,8 +2,8 @@
 
 Sermon No. 635 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "How will you do in the swelling of Jordan?"  
-> Jeremiah 12:5.  
+> How will you do in the swelling of Jordan?    
+> Jeremiah 12:5.    
 
 CANAAN may be considered as a type of two states or conditions in the Christian's life. It was the land of rest to the children of Israel after a weary pilgrimage in the wilderness. Now it is written that "we who believe do enter into rest." A true Christian possessed of strong faith will not have a wilderness state on earth so much as a land flowing with milk and honey because his faith will give him the substance of things hoped for and be the evidence of things not seen. Many disciples live a life of depression, wretchedness, and discomfort which would be completely changed if they had faith in God and lived a higher life of devotedness and love.
 
@@ -109,8 +109,8 @@ Oh, that was a grand thing when Joshua said to the twelve men, "Take up twelve s
 
 There shall be twelve stones there that will tell the angels and the principalities of the love which cleft the Jordan and brought us through it as on dry land. This is how we will do in the swelling of Jordan! We are not looking forward to death with any fear, with any dread. When we get home tonight we shall begin to take off our garments one by one. We shall not shed a tear. Nor shall we when we come to die--
 
-> Since Jesus is mine, I will not fear undressing, But gladly put off these garments of clay. To die in the Lord is a comfort and blessing,   
-> Since Jesus to Glory through death led the way.   
+> Since Jesus is mine, I will not fear undressing, But gladly put off these garments of clay. To die in the Lord is a comfort and blessing,    
+> Since Jesus to Glory through death led the way.    
 
 This is how we shall do in the swelling of Jordan--take off our garments to put on the celestial robes. As the bridegroom longs for the marriage day, and as the bride waits until she is joined unto her husband in wedlock, even so our spirits wait for God. As the exile pants to be delivered and the galley slave to be separated from his oar, so we wait to be set free for Glory and immortality! As she that mourns her absent lord pines for his return. As the child longs to reach his father's house and to see his father's face, so do we!--
 

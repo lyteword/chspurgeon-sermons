@@ -2,8 +2,8 @@
 
 Sermon No. 657 - Delivered on Sunday Morning, October 29nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Satan hindered us."  
-> 1 Thessalonians 2:18.  
+> Satan hindered us.    
+> 1 Thessalonians 2:18.    
 
 PAUL, Silas and Timothy were very desirous to visit the Church at Thessalonica, but they were unable to do so for the singular reason announced in the text, namely, "Satan hindered us." It was not from want of will, for they had a very great attachment to the Thessalonian Brethren and they longed to look them in the face again. They said of the Thessalonians, "We give thanks to God always for you all, making mention of you in our prayers: remembering without ceasing your work of faith, and labor of love and patience of hope in our Lord Jesus Christ in the sight of God and our Father."
 

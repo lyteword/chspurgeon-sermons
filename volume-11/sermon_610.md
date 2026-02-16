@@ -2,8 +2,8 @@
 
 Sermon No. 610 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "O that you had hearkened to My commandments! Then your peace would ha ve been like a river and your righteousness as the waves of the sea."  
-> Isaiah 48:18.  
+> O that you had hearkened to My commandments! Then your peace would ha ve been like a river and your righteousness as the waves of the sea.    
+> Isaiah 48:18.    
 
 FROM this verse we may learn that when God smites men on account of sin it gives Him no pleasure. The voice which speaks is not that of the seraphic Prophet, but it is the voice of the Lord God of the prophets Himself. The manner is not merely the majestic formula, "Thus says Jehovah," but it is supplemented with words intended to remind us of His graciousness and His goodwill. "Thus says the Lord, your Redeemer," He who rescued you from perils past, "the Holy One of Israel," the faithful Promiser, who has shown you His counsels and His statutes. Moreover, He challenges attention with more simple, touching mementoes of His kindness when He adds, "I am the Lord your God which teaches you to profit, which leads you by the way that you should go."
 

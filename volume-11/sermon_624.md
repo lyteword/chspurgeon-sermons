@@ -2,8 +2,8 @@
 
 Sermon No. 624 - Delivered on Sunday Evening, March 29th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "The eternal God is your refuge and underneath are the everlasting arms: and He shall thrust out the enemy from before you. And shall say, Destroy them."  
-> Deuteronomy 33:27.  
+> The eternal God is your refuge and underneath are the everlasting arms: and He shall thrust out the enemy from before you. And shall say, Destroy them.    
+> Deuteronomy 33:27.    
 
 THERE is a great satisfaction in having such a text as this, for even if the preacher should not be able to say anything to edification, yet the text itself is rich food for the saints and may fully satisfy their hunger. Let but a child of God really digest such a royal dainty as this and he shall be as well fed as was Elijah when, waking up, found food under the juniper tree, in the strength of which he might go for forty days. This one verse may, by the Holy Spirit, be made sufficiently nourishing to sustain a Believer from that place where he now is, to the gates of Glory. "The eternal God is your refuge and underneath are the everlasting arms."
 

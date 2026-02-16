@@ -2,8 +2,8 @@
 
 Sermon No. 640 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Only let your conversation be as it becomes the Gospel of Christ"  
-> Philippians 1:27.  
+> Only let your conversation be as it becomes the Gospel of Christ    
+> Philippians 1:27.    
 
 THE word "conversation" does not merely mean our talk, one with another, but the whole course of our life and behavior in the world. The Greek word signifies the actions and the privileges of citizenship and we are to let our whole citizenship--our actions as citizens of the new Jerusalem--be such as becomes the Gospel of Christ. Observe, dear Friends, the difference between the exhortations of the legalists and those of the Gospel. He who would have you perfect in the flesh exhorts you to workthat you may be saved, that you may accomplish a meritorious righteousness of your own and so may be accepted before God.
 

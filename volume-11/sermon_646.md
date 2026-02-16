@@ -2,8 +2,8 @@
 
 Sermon No. 646 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Now in whom do you trust?"  
-> Isaiah 36:5.  
+> Now in whom do you trust?    
+> Isaiah 36:5.    
 
 THAT question may not be without importance in matters of ordinary life. We have all to trust our fellows, more or less, and I suppose we have all had to smart in some degree, as the result of it. We may trust the mass of men in trifles without any serious consequences. But when it comes to large sums--when the whole of a man's fortune, for instance-- is staked upon the character and reputation of someone else, then it is not altogether an unimportant question, "On whom do you trust?" Oh, many have rested on some choice friend and found him play the Judas! How often have our dearest counselors turned away from us as Ahithophel did from David? How frequently have we confidently rested upon the integrity, friendship and fidelity of some person whom we thought we knew and could trust, only to find that, "Cursed is he that trusts in man and makes flesh his arm."
 

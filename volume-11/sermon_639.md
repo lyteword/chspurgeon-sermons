@@ -2,8 +2,8 @@
 
 Sermon No. 639 - Delivered on Sunday Morning, July 16th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Simon called the Zealot."  
-> Luke 6:15.  
+> Simon called the Zealot.    
+> Luke 6:15.    
 
 SIMON called the Zealot has apparently two surnames in Scripture but they mean the same thing. He is called Simon the Canaanite in Hebrew--not because he was an inhabitant of Cana or a Canaanite, but that word, when interpreted, means precisely the same as the Greek word, Zelotes. He was called Simon the Zealot. I suppose that he had this name before his conversion. It is thought by some that he was a member of that very fierce and fanatical political sect of the Jews called the Zealots, by whose means the siege of Jerusalem was rendered so much more bloody than it would have been.
 

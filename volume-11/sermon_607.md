@@ -2,8 +2,8 @@
 
 Sermon No. 607 - Delivered on Sunday Morning, January 1st, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
-> "Endeavoring to keep the unity of the Spirit in the bond of peace."  
-> Ephesians 4:3.  
+> Endeavoring to keep the unity of the Spirit in the bond of peace.    
+> Ephesians 4:3.    
 
 YOU will remember that for several years I have received my morning's text for the first Sunday in the year from an esteemed Brother, a clergyman of the Church of England. This year he very kindly sends me this verse, which I hope will be useful to us all, reminding us of our former faults and of our present duty in the matter of "endeavoring to keep the unity of the Spirit in the bond of peace." The Pope has lately been most lustily cursing us all. According to his nature, of course, must be his utterances. We could not expect a blessing where no blessing abides. And if we get a curse we only receive a polluted stream from a polluted fountain. It is an old saying that England never prospers so well as when the Pope curses her. I hope to see a year of great prosperity this year!
 
