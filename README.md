@@ -25,11 +25,11 @@ Charles Haddon Spurgeon (1834–1892) was known as the "Prince of Preachers." Hi
 
 ```
 /spurgeon-sermons/
-  /volume-01/
-    sermon-001.md
-    sermon-002.md
+  /volume-1/
+    sermon-1.md
+    sermon-2.md
     ...
-  /volume-02/
+  /volume-2/
     ...
   ...
   /volume-63/
@@ -38,8 +38,7 @@ Charles Haddon Spurgeon (1834–1892) was known as the "Prince of Preachers." Hi
 
 Each sermon file includes:
 - Title
-- Date and location (when available)
-- Scripture reference(s)
+- Scripture reference
 - Full text of the sermon
 
 ## **Why Markdown?**
