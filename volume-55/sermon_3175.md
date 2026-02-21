@@ -1,0 +1,163 @@
+# "Peace! Perfect Peace!"
+
+(No. 3175)
+
+AN ADDRESS PUBLISHED ON THURSDAY, DECEMBER 16, 1909.
+
+DELIVERED BY C. H. SPURGEON,
+
+IN A SICK-ROOM AT MENTONE.
+
+"You will keep him in perfect peace (Margin: peace, peace), whose mind is stayed on You: because he trusts in You." Isaiah 26:3.
+
+[This Address is an interesting souvenir of an afternoon visit paid by Mr. Spurgeon to an invalid at Mentone, the late Giles Shaw, Esq., of Bewdley--brother-in-law of Miss Frances Ridley Havergal. The Address was delivered without preparation and followed immediately the singing of the hymn upon which it is based.]
+
+[A Sermon by Mr. Spurgeon upon Isaiah 26:3 is #1818, Volume 31--THE SONG OF A CITY AND THE PEARL OF PEACE. Expositions of the whole Chapter are included with Sermons #2430, Volume 41--CHRISTIANS AND THEIR COMMUNION WITH GOD and #2713, Volume 47--WALKING IN THE LIGHT OF THE LORD]
+
+AS WE have met together in this sick-chamber and you all wish me to talk with you, we will thoughtfully run over the hymn which you have just been singing. It is No. 730 in Sacred Songs and Solos, or No. 7 in The Christian Choir. May the Divine Teacher lead us into mines of the Truth of God and show us the deep things of God!--
+
+"Peace! Perfect peace! In this dark world of sin?
+
+The blood of Jesus whispers peace within." Peace, yes, perfect peace! What a Heaven lies within! Peace gleaming with a heavenly light even in the midnight of this world of care. We cannot enjoy true peace as long as sin remains upon the conscience. As well might the ocean be quiet while a tempest is raging, or the sea bird rest on the wave when the storm is mixing earth and sky! The more the conscience is enlightened, the more surely will it forbid peace as long as sin remains, for its honest verdict is that sin deserves God's wrath and must be punished. Every upright understanding assents to the justice of that dispensation by which "every transgression and disobedience received a just recompense of reward." To me, when convinced of sin, it seemed that God could not be God if He did not punish me for my sins. Because of this deep-seated conviction, that great Gospel Truth, "The blood of Jesus Christ His Son cleanses us from all sin," became a heavenly message, sweeter than the music of angels' harps! Then I saw, with glad surprise, that God in Christ Jesus is just and the Justifier of him whom believes." To me, the glorious Doctrine of Substitution was a well in the desert and it is still so. I believe it with my whole soul. An honest man, if he is in debt, will always be in trouble until the liability is removed. But when his debt is paid, he leaps into liberty and gladness! When I learned that my enormous debt of sin had been fully discharged by the Lord Jesus Christ, who did this for all Believers, then was my heart at peace! How much I wish that all of you may join me and Bishop Bickersteth in singing with emphasis--
+
+" Peace perfect peace! In this dark world of sin?
+
+The blood of Jesus whispers peace within!" The second verse goes on to speak of--
+
+"Peace! Perfect peace! By thronging duties pressed?
+
+To do the will of Jesus, this is rest" This peace is a present possession and may be enjoyed in the ordinary circumstances of life. Everyone who keeps house, every busy housewife, every man who is much occupied with his business, needs this verse--
+
+"Peace, perfect peace, by thronging duties pressed." To be closely pressed by a crowd of duties does not tend to peace of spirit. You do not know how to act through all you have to do and there seems so much to be done all at once. If the duties world come in regular order and you could take them as they come, you might be at peace, even though incessantly occupied. But when they come rushing in, helter-skelter--not only one thing, but 20 other things, all claiming to be done at once--then is the anxious soul apt to be dis-
+
+quieted! We are first wearied and then worried. To be perfectly at peace amid the hurry-burly of invading cares is a very blessed condition of soul--and the only way to reach it is described in the next line of the hymn--
+
+"To do the will of Jesus, this is rest." To be sure that what you are doing is what Jesus would have you do is peace! Happy soul that is doing what Jesus would have it do! I put up this little question in the Orphanage, for the children to read--"What would Jesus do?" This, if we have spiritual minds, will be one of the best guides for us when we are in difficulty as to what is the next thing for us to do. We would do good, but too many good things are present with us--which is to be first? To know the will of Jesus, and to do it, is to abide in the peace of God! What we cannot do, we shall leave to Him, being assured that our duty does not lie in the region of the absolutely impossible--
+
+> When obstacles and trials seem   
+> Like prison walls to be,   
+> I do the little I can do,   
+> And leave the rest to Thee.   
+
+God comes in with His Grace where the impossible shuts us out. There are two things we need never worry about--what we can do and what we cannot do. What remains? The next verse is very sweet--
+
+"Peace, perfect peace! With sorrows surging round? On Jesus' bosom nothing but calm is found."
+
+Oh, those sorrows! Sorrows of sickness in ourselves and others. Bereavements, losses and crosses in daily life. Inabilities to succor and depressions of spirit. These last two are at times the worst of all, for then the sorrow gets right into the heart and becomes sorrow, indeed! All the waters in the ocean are as nothing to the vessel so long as they are kept outside--but when they break into the cabin of the heart's assurance and begin to fill the hold of the heart--then are we in peril--
+
+"Peace, perfect peace, with sorrows surging round."
+
+This is the finger of God. It is not according to Nature for a man to be just as happy when he is in adversity as in prosperity. Even when "sorrowful" to be "always rejoicing" is a paradox realized only by one who knows that next line--
+
+"On Jesus' bosom nothing but calm is found." Wonderful position! We cease to marvel at the deep calm which comes of it. I have sometimes noticed very little chicks nestling under their mother's wings, thrusting out their little heads from under her feathers, looking so warm and cozy that they did not seem to know that it was cold in the big world outside! Near their mother's bosom they chirped quite happily and were altogether unaffected by the frosts of the night or the chills of the day. So we read, "He shall cover you with His feathers and under His wings shall you trust--His Truth shall be your shield and buckler." We get to Jesus and we find shelter and safety in Him, even as the little chicks beneath their mother's wings. Is it so with each one of you? A present salvation should yield you present consolation and it will do so if you act up to your position and privilege. Tell your sorrow to Jesus! Leave your sorrow with Jesus! Bear your sorrow for Him. Bear your sorrow with Him and then see what peace, what perfect peace, you will enjoy, even "with sorrows surging round!" The next verse will suit us who are, for a while, a thousand miles from home--
+
+"Peace! Perfect peace! With loved ones far away?
+
+In Jesus' keeping we are safe, and they." Yes, the dear wife is at home. We do not know how things are going there with the children, and the servants, and the workpeople. All sorts of things are left as burdens upon the beloved ones at home. We leave our beloved with our God and commend the household far away to God, who is present everywhere. A wandering son, a wayward daughter-- we leave them all with Jesus. It is ordained by the Providence of God that these loved ones should be far away and, therefore, it is right it should be so. Yes, that which God appoints is right--and must be right Distance ordained of Heaven is better than nearness of our own choosing! How sweet that line--
+
+"In Jesus'keeping we are safe, and they!" They are safe, too! It is all well with them. We cannot see them, but they are under the eyes of Jesus. They are as near to Him as we are and, in His keeping they are as safe as we are. When I was a very little child, I lived so long with my grandfather that he became everything to me. And when I left him, it seemed like going among strangers. And I remember that
+
+Grandfather tried to comfort me by saying, "Ah, Child! You are going away from Stambourne; but the same moon will shine where you are going! It will always be the same moon." Often I looked at the moon and remembered that Grandfather was looking at it, too, and we were not so very far away from one another. It is a sweet comfort to think that there is the same Providence watching over the loved ones far away on the other side of the globe, in Australia, as there is watching over us who are gathered here. The absence of friends must not break our inward peace.
+
+Some are naturally anxious and fretful and this comes out most in their thoughts of those who are away. I was just now talking to a friend who tries to leave her troubles with the Savior, but very soon takes them up again and bears them on her own back. She casts her burdens on the Lord and then bows her own weary shoulders to the load. This, she confessed, she had done many times. I said to her, "Do you keep your money in a bank?" "Yes," she replied. "Then," I said, "it is well for both of us that I am not your banker." "Why?" she asked. "Why," I replied, "if you were to place £100 with me, and then come back in five minutes and ask whether your money was safe, I should have to assure you that it could not be safer. Then you would probably want to see it and I would say, 'There is your money. You can draw it out at once.' I would not be best pleased if the next day you came again and repeated your question, and made a personal inspection. I am afraid I would say to you, 'You had better take your money and look after it yourself, for it is evident that you have little or no confidence in me.'" At any rate, however I might take it, it would be very provoking conduct. We must not talk of confidence in our Lord Jesus and then withdraw at the first sign of trouble or difficulty! "We are safe, and they." Will not an assured conviction of this Truth bathe us in seas of heavenly peace? The Lord make it so with us
+
+all!
+
+Now for verse five--
+
+"Peace! Perfect peace! Our future all unknown? Jesus we know, and He is on the Throne."
+
+That is the end of all doubts about the future, "He is on the throne." His hand is on the helm to steer the ship. He is in the place of sovereign government--nothing can happen but what He ordains or permits. Ah, dear Friends! Some of us have need to remember such a verse as this! We went home one year from this place, two of us, as happy as birds could be; and within a very few days one had lost his wife, and the other one dear friend, and then another. We will not try to peer through that telescope which would unveil the future. It may be that dark scenes will startle us before we reach the eternal light. We do not know, and need not wish to know, what is appointed for us--but this great and comfortable Truth of God meets it all--
+
+"Jesus we know, and He is on the throne."
+
+We can very well leave all things with our crowned Head! I suppose none of us would wish to contradict Hm, nor to have anything arranged otherwise than His loving mind appoints. If He stood by us this afternoon, and said to any one of us, "My Child, I have arranged your way in tender love and wisdom," no one of us would wish it to be otherwise. If He said to us, "I have appointed such-and-such," would we say to Him, as Joseph said to Jacob, "Not so, my Father," and would we wish Him to uncross the hands which He guides so wisely? Would we not ask for the cross-handed blessing? Let the King be a king, and do what seems good to Him! May we not only say that, but stand to it in the trying hour--
+
+"Peace!Perfect peace!Death shadowing us and ours?
+
+Jesus has vanquished death and all its powers." Death is the last enemy, but more--he is "the last enemy that shall be destroyed." He cannot touch a child of God! Only his shadow may fall upon us. How small a thing is this! The shadow of a sword cannot kill, the shadow of a dog cannot bite, the shadow of a lion cannot rend and the shadow of death cannot destroy!--
+
+"Death shadowing us and ours." Well, well, we are not silly babies that can be frightened at a shadow, for--
+
+"Jesus has vanquished death and all its powers." He did it by His own death and Resurrection! That Resurrection transformed death into quite another thing from what it was before. Death used to be as a black cavern in the mountains. Men said that many were the footsteps into it, but that there were none from it. It was an awful, all-devouring cavern, but Jesus has, by passing through it, turned the cavern into a tunnel! He went in at the gloomy side, but He remained not in the heart of the earth--He re-appeared at the other side. So that, death is now all on the way to Heaven and immortality!
+
+I have heard of an aged Christian Sister at Plymouth who had been for many years troubled with the fear of death, but she got over it and was very happy and very cheerful when speaking about her departure. She lived in a room of her own and one night she said to the friends in the house, "I believe I shall see the Lord tomorrow." It was on a Saturday night she spoke thus and, according to her wish, they did not disturb her in the morning. But as they did not hear anything from her as the day passed on, they went to her room about mid-day and, sure enough, she was with her Lord! On a piece of paper which lay on her bed, they found these lines written--
+
+> Since Jesus is mine, I'll not fear undressing,   
+> But gladly put off these garments of clay.   
+> To die in the Lord is a Covenant blessing,   
+> Since Jesus to Glory through death led the way.   
+
+That is the way to look at it!--
+
+"Peace, perfect peace, death shadowing us and ours? Jesus has vanquished death and all its powers."
+
+Then comes the last verse--
+
+"It is enough! Earth's struggles soon shall cease, And Jesus calls us to Heaven's perfect peace."
+
+Dear Friends, it is very essential that we, as Christian people, should not only talk about this peace and believe in it, but that we should enjoy it and exhibit it! I believe that to some of you, the best way in which you can honor God and win others to Christ is by exhibiting a quiet, cheerful frame of mind, especially in sickness. Nothing is so convincing to ungodly men as to see Christians very calm in time of danger, very resigned in the hour of affliction, very patient under provocation and taking things altogether, as Christians should take them, as from the hand of God! They are struck with it, for it is so different from what they feel within themselves! When their earth shakes, when their foundations are removed, when their health is gone, when their earthly comforts are taken away--what have they left? But you and I have just as much left when all these things are gone as we had before! While we have earthly comforts, we have learned to see God in them all. And when they are taken away, we see them all in God. But the ungodly have not that wonderful sense of the full possession of all things which is the peculiar delight of the heirs of salvation!
+
+You and I are like Jacob. The Lord said to Him, "The land whereon you lie, to you will I give it." You have only to lie down upon a promise and you may claim it for yourself--it is yours by the Magna Charta of faith! Go to the Bible and whatever promise you find there addressed to a child of God, stretch yourself upon it and so make it your own--and it will be so! Remember how the Lord spoke to Abraham, "Lift up, now, your eyes, and look from the place where you are, northward, and southward, and eastward, and westward: for all the land which you see, to you will I give it." Let us believe that God has given us all things in giving us His Son--
+
+"This world is ours, and worlds to come, Earth is our lodge, and Heaven our home."
+
+We must get this perfect peace of which we have now been singing and speaking. I admire in certain of the saints their self-command, their great quiet and deep restfulness of spirit. It is not everything, but it is a very great deal. It is all the more necessary just now because the world is in such a hurry. It is necessary to us when we are weak and suffering, and when we are surrounded by cares and sorrows. Yet it is quite as valuable when we are strong and young and comfort would tempt us aside. Oh, that the world may see that we have a peace that cannot be taken away from us by force or fraud! I do not quite like that saying of Addison, "Come here, young man, and see how a Christian can die." It looks too theatrical. But I should like it to be so with us that men might turn aside to see how a Christian can live! O Lord and Giver of peace, grant us Your peace, and Grace to keep it, even to the end!
+
+EXPOSITION BY C. H. SPURGEON: HOSEA 14.
+
+Verse 1. O Israel, return unto the LORD your God, [See Sermon #2192, Volume 37--THE JOYOUS RETURN] Bless His name that He is still your Gil! However much you may have backslid-
+
+den, you have not lost your right to claim Him as your God, for He is yours eternally by a fixed promise. And because He is still your God, let His everlasting kindness entice you to come back to Him."
+
+For you have fallen by your iniquity. "You have lost your comforts, you have become a poor despicable creature. You have fallen by your iniquity--this is the eve of all the mischief--your sin is the seed of all your ruin! Get rid of that and you shall soon have your comforts back again."
+
+Take with you words, and turn to the LORD: say unto Hi . See, He puts the words into your mouth, as if He felt persuaded that you would say, "Lord, I cannot pray an acceptable prayer," He makes one for you, so that you who have backslidden the most and have gone the farthest astray, may have no excuse--"Turn to the Lord: say unto Him."
+
+Take away alliniquity andreceive us graciously: so will we render the calves ofour lips. "Our thankfulness shall give You such hearty praise that it shall not be like the Jew's slender sacrifice, when he offered the turtle-doves or the young pigeons, but we will give You of our praise as hearty a sacrifice as when the devout Israelite brought the young bullock, the very best of his beasts to be offered upon the altar of his God. So we will offer to You the calves of our lips."
+
+Asshur shall not save us. Backslider, have you been putting your trust anywhere but in God, hoping to find comfort in the world and in sin? Then make this confession--"Asshur shall not save us."
+
+We will not ride upon horses. These were the confidence of the Egyptians--and the Israelites vainly tried to imitate their powerful and rich neighbors. So we will not put our confidence in the strength of cavalry.
+
+Neither wiil we say anymore to the work ofour hands, You are our gods. Happy is that man who turns aside from every idol and trusts in God alone! It is a mark of very black backsliding when we begin to make our business, our families, our pleasures and our bodily health the objects of such tender consideration that we virtually say to them, "You are our gods."
+
+3, 4. For in You the fatherless finds mercy. I will heal their backsliding I will love them freely: for My anger is
+
+turned away from him.[See Sermons #501, Volume 9--GRACE ABOUNDING and #920, Volume 16--BACKSLIDING HEALED] Everlastingly turned away through the complete and satisfactory Atonement of Jesus Christ!
+
+I will be as the dew unto Israee. The dew is God's gift and so is Divine Grace! The dew falls silently, yet copiously, and bedews both the leaf and the root sufficiently. "I will be as the dew unto Israel," is a promise to the man of faith, the man of prayer, the man who can endure trial--"I will be as the dew unto Israel."
+
+He shall grow as the lily. It is "the daffodil" in the original, the yellow daffodil in the East springs up after a shower where you could not have perceived anything before. Yet there is the idea of frailness in that simile, so it is balanced by the next one.
+
+And cast forth his roots as Lebano . After you have grown upward, you must grow downward--and growing downward, though it may not be so pleasant--is quite as excellent as growing upward, so the promise to you is, "He shall grow as the lily, and cast forth his roots as Lebanon."
+
+His branches shall spread This is growing sideways. So the Believer spreads his branches by public profession and testimony after having become deeply rooted in the faith and having grown up in love to God! Then He begins to spread his shadow over the sons of men by telling--
+
+"To sinners round,
+
+What a dear Savior he has found." 6. And his beauty shall be as the olive tree. Which largely consists in its fruitfulness. That is always the most beautiful olive which bears the most fruit. So the fruitful Christian shall have the beauty of the olive tree. Besides, the olive is an evergreen and the Christian's beauty is of a kind that shall never fade. There is an old saying, "Beauty soon fades," but that does not mean the Christian's beauty, for that shall neverfade, neither in life, nor in death, nor in eternity!
+
+And His smell as Lebanoi. That is, the holy influence of his life and conversation shall be as fragrant to God and men as are the perfumes exhaled by the sweet flowers upon the side of Mount Lebanon.
+
+They that dwell under his shadow shall return. His children, his servants, his congregation shall be blessed by his gracious influence. As the Upas tree drops with deadly poison, so the tree of Grace in a Christian drops living drops to fall on dead souls!
+
+They shall revive as the corn. Which suddenly springs up in the East after rain falls.
+
+And grow as the vine. The branches shall in their turn become fruitful.
+
+The scent thereof shall be as the wine of Lebanon. Our families and households should be so well-ordered that not only we ourselves, personally, but all in our household should have a heavenly influence, a blessed savor upon all around us.
+
+Ephraim shall say, WVhat have I to do anymore with idols?'[See Sermons #1339, Volume 23--IDOLS ABOLISHED and #2474, Volume 42--THE GREAT CHANGE] Let that question also go round our
+
+ranks, "What have I to do anymore with idols? I, who am bought with the precious blood of Jesus? I, who am named by the name of Jesus? I, who have been baptized into the Sacred Trinity--what have I to do anymore with idols?" You may make an idol of that boy or girl of yours. You may make an idol of that house or garden of yours. You may make an idol of that business or profession of yours. Do not do it, I entreat you, but rather say, "What have I to do anymore with
+
+idols?"
+
+I have heard him, and observed him: I am like a green fir tree. That is what Ephraim says, and this is what God says.
+
+From Me is your fruit found [See Sermon #557, Volume 10--WHERE TO FIND FRUIT] We are never so fruitful as when we get all our fruit from God! We always shine in borrowed light and we are always fruitful in borrowed fruitfulness.
+
+Who is wise, and he shall understand these things? Prudent, and he shall know them? For the ways of the LORD are righ. Did your murmuring spirit say that they were not right? Because you have had some sore trial, did your repining spirit say that they were not right? They are certainly right and you shall see that it is so one day! "The ways of the Lord are right."
+
+And the just shall walk in them: but the transgressors shall fall therein. Even in God's good ways, transgressors cannot stand--they fall even when they try to praise God, or to pray to Him--and this is a sad proof of man's deep depravity, that even when he is engaged in the worship of God, the thing which is, in itself, good, becomes obnoxious to God by reason of the sin which is certain to be mingled with it!

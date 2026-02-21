@@ -1,0 +1,180 @@
+# The Saints' Riches
+
+(No. 3204)
+
+A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1910.
+
+DELIVERED BY C. H. SPURGEON,
+
+AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 2, 1862.
+
+"He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?" Romans 8:32.
+
+MANY of you, dear Friends, are coming to the Lord's Table at the close of this service. Our blessed Redeemer instituted that simple but sublime ordinance so that we might be kept in constant remembrance of Him. The bread is nothing but bread, yet it is the very suggestive emblem of Christ's flesh. And it shall be well with you if, after a spiritual fashion, you shall thus eat the flesh of Christ. The wine is nothing but wine, yet is it the emblem of Christ's blood. And they are thrice blessed who experimentally understand the meaning of Christ's words, "Whoever eats My flesh, and drinks My blood, has eternal life." Christ is yours, Believer! You know that He is more yours than even your own life, for that you may lose. When God gave you your existence, He gave it to you without any covenant as to its prolongation, but He has given Christ to you by an Everlasting Covenant, to be yours forever and ever! Christ is yours, Beloved! Oh, that you knew how to make the best use of this blessed property! Christ is yours to live upon and to spend, yours to have and to hold, to keep and to enjoy, yours not only to look at that you may be saved, and to wear that you may be justified, but yours to eat that you may be refreshed by Him and live upon Him! Christ is yours to the fullest extent possible! There is no reservation--He is your absolute, indefeasible and inalienable property--yours, today, as perfectly as He will be when you are in Heaven! Yours as certainly as you are His. Oh, that you may now, knowing that Christ is thus your property, live upon Him, rejoice in Him and feel that you are, indeed, immeasurably rich!
+
+When we come to this Communion Table, to partake of these emblems of Christ's death, it will be a very happy thing for us if we remember that possessing Christ, we have everything. There is no need that you have which will not be supplied if you really know that Christ is yours. There is no necessity, however great, which may press upon you which shall not be instantaneously supplied if Christ is truly yours. You come to Christ's Table to meet with Christ and you know that when you have Him, you have everything, so you do well to sing--
+
+"You, O Christ, are all I need"-- for in Him you have all that you can possibly need. And, moreover, the gift of Christ is God's solemn pledge that He will keep back from you nothing that you really need. "No good thing will he withhold from them that walk uprightly." "Whatever you shall ask in prayer, believing, you shall receive." Having given you Christ, He must, He will--with Christ--freely give you all things--
+
+"How vast the treasure we possess!
+
+How rich Your bounty, King of Grace!
+
+This world is ours and worlds to come--
+
+Earth is our lodge and Heaven our home.
+
+All things are ours--the gift of God!
+
+The purchase of a Savior's blood
+
+While the good Spirit shows us how
+
+To use and to improve them, too." I am going to make it my business, in a very simple but earnest manner, to try and exhort the children of God to cast aside all thoughts of their being poor and to rejoice, now, in their boundless riches in Christ Jesus!
+
+First, let me remind you, Believer, that, whatever you may really require, God will not deny it to you, for He has
+
+already given you Christ! THINK WHAT THIS GIFT WAS TO THE FATHER--it was His only-begotten and well-
+
+beloved Son!
+
+Perhaps you have a willful, wayward boy--one who costs you much, but brings you little comfort--yet, would you like to lose him? If you saw him in his coffin tomorrow, would you not cry over him as David cried over his son, "O my son, Absalom! My son, my son Absalom! Would God I had died for you, O Absalom, my son, my son"? Vile he may be, and a disgrace to your name, yet he is still your child and you could not bear to give him up. But what shall I say of the child who, from his youth up, has been obedient to you? Who, having grown up to manhood, has become your friend as well as your offspring? Who has been with you in every holy enterprise and has proved himself to be worthy of his father's love and esteem? Could you give him up? Mother, you know how dear is your first-born son to you. Of all griefs that tear a mother's heart, perhaps the greatest is to lose her first-born. Even if he is only in his infancy, it is a wound from which the mother's tender heart does not soon recover. But to lose that son in manhood. To see the hale strong man suddenly cut down--this is no small sorrow--and many, under such trying circumstances, have found it no easy task to say, "The Lord gave, and the Lord has taken away; blessed be the name of the Lord."
+
+To lose one's child even for some object which is nearest and dearest to our heart, is pain and grief, indeed. Then what must it have cost God to give up His Son to die for His people? What must God's love to His only-begotten Son be? We can only speak of God after the manner of men, for we know not how otherwise to speak of Him and, inasmuch, as God is infinitely greater than we are, His love is infinitely greater than ours! We can only love to the finite degree of which humanity is capable, but God loves beyond all degree. The heart of God is filled with fathomless oceans of eternal affection--and this affection has always been fixed upon His Son! Christ is infinitely more dear to God than your son can ever be to you because of the greatness of the heart of the Father who loves His Son who has always been with Him, and ever His delight, who has never offended Him, who takes His share in all the Father's plans and who said of old, and says it always, "I delight to do Your will, O My God."
+
+Besides, Christ is One with His Father in essence. What that mysterious Unity is, we cannot tell. And how Christ is the Son of God, we do not know. We know that His Sonship does not imply any inferiority in the Son, nor that the Father existed before the Son. He was not the Father till the Son was His Son and the names, "Father," and, "Son," are not to be understood as they are used among us, although the marvelous, indescribable relationship which we cannot fully understand cannot be better expressed than by the terms used, "the Father" and, "the Son." Again I ask--what must it have cost such a Father's heart to give up such a Son--a Son so near and so dear to Him? Yet the Father gave up His Son to die for you and for me, Beloved! Theologians lay it down as an axiom that God cannot suffer, but I am not sure that they are right. I cannot understand God's love to me. I cannot rejoice as I should in His goodness to me unless I believe that the gift of His Son cost His heart awful pangs. I know that I am treading upon delicate ground and that I am standing where thick darkness gathers, but I am not certain that what theologians take for granted is necessarily true. That God can do everything, I do believe. And I also believe that if He wills to suffer He can do so. I cannot think of God as an insensible Being when He gave His Son to die for sinners. I cannot imagine Him giving His only-begotten Son and feeling no more than a heathen idol of stone could have done. I think that the Father, in giving up that Son who had always given Him such intense joy, must have suffered in His Son's death.
+
+Well then, as God has thus given up His only-begotten and well-beloved Son, how can He deny anything to you who believe in Him? Do you feel anxious about the bread that perishes? Is that worthy to be compared with God's only-begotten Son? Are you concerned about how you are to get food and clothing? How can God deny you such trifles as these when He has given you His Son? Perseverance in Grace--is that what you ask? Even that is but a crumb under the Master's table compared with His Son! You need certain virtues, you need help in trouble, you need sustenance under stern difficulties--I know not what you need, but this I know--all the needs of all of us put together could only make one little drop in comparison with the tremendous ocean of benevolence which flowed out of God's heart when He spared not His own Son but delivered Him up for us all! As we look at Christ, whom God has given to us, we must believe that, with Him, He will give us whatever we need!
+
+I shall try to knock a second time at the door of your hearts to comfort you by reminding you how PRECIOUS
+
+CHRIST WAS INTRINSICALLY IN HIMSELF.
+
+The wonder is not only that God gave His Son, but that His Son was what He was. Paul says He is "over all, God blessed forever." Jesus Himself said, "Before Abraham was, I Am"--claiming the very name of the eternal Jehovah. In due time, Christ became Man and, as Man, He was very dear to His Father. Even His earthly mother could not look upon her Child with half the affection that His Father had for Him. He was a perfect Man and, therefore, lovely in His Father's sight. He was, indeed, Himself God and, therefore, One with the Father even while He was Man. The loftiest angel could not adequately preach to you upon this point--unto what, then, shall I liken the preciousness of this gift? Similes fail me, metaphors I have none, "no mention shall be made of coral, or of pearls, for the price of Jesus is above rubies." He shall not be given for gold, no, not for much fine gold. As for topaz, and onyx, and sapphire, and all other precious stones, these must not be mentioned in comparison with Him. Paul's expression is the only appropriate one, "Thanks be unto God for His unspeakable gift." Eternity alone can reveal the value of Christ! By the miseries of the Hell from which He saves us, let us measure Him! By the bliss of the Heaven to which He lifts us, let us estimate His worth! By the depths of ignominy and shame into which He dived, let us conceive of Him! By the glories He relinquished and by the agonies He bore, let us attempt to form some faint idea of His value! But this Pearl of Great Price is so precious that I am bold to say that if Heaven, and earth, and all the starry orbs could be sold, their united price could not buy such another pearl as this one which God has given to us in Christ Jesus!
+
+So, Beloved, as God has already given you this priceless pearl, will He not also give you all else that you need? If a man gave you ten thousand pounds, would you doubt his willingness to give you a farthing? If he should give you a munificent income to last throughout all your life, would you doubt his willingness to give you a penny if you were ever in need of one? I think I need not attempt to draw the inference--you can draw it for yourselves. See, then, the wondrous treasure you possess if you are a Believer in Jesus--God is yours, the perfect Man is yours, Christ's life, His death, His blood, His righteousness, His intercession, His Incarnation, His Second Advent are all yours--and all else that you need. Do but ask boldly, receive gratefully, wait patiently, hope trustfully and walk rejoicingly, for as God has given you His Son, shall He not, with Him, also freely give you all things? Sing with good old John Ryland--
+
+> He that has made my Heaven secure,   
+> Will here all good provide!   
+> While Christ is rich, can I be poor?   
+> What can I need beside?   
+
+But now, as a third blow at your unbelief, I want you to remember, Beloved, THE MANNER IN WHICH THIS
+
+GIFT WAS GIVEN.
+
+The text says, "He that spared not His own Son." A mother may give up her tall strong son to fight in the army of her country and he may perish by an enemy's hand. But I cannot conceive of a mother slaughtering her own son for her country's good! We have wondered as we have read of Brutus, who, when his sons had entered into a conspiracy against the Republic, could say, "Lictors, do your duty." The father saw the corpses of his sons with the pangs of a father, but with the stern serenity of a judge they had offended--so they must die. Strong must be a man's sense of justice to be able to overcome his love so as to give up his own son to die. But our gracious God not only gave up His Son to die for us, but He was Himself, (if I may use such an expression), the executioner of Christ. Isaiah tells us in his wonderful 53rd Chapter, that "The Lord has laid on Him the iniquity of us all...It pleased the Lord to bruise Him. He has put Him to grief...you shall make His soul an offering for sin...We did esteem Him stricken, smitten of God, and afflicted." This, indeed, was the very sting of Christ's death, for He cried out in His worst agony, "My God, My God, why have You forsaken Me?" Oh, what love God must have had to you and to me, for it overcame His love to His only-begotten Son! So we read in Zechariah 13:7, "Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord of Hosts: smite the Shepherd, and the sheep shall be scattered." My tongue cannot tell the story of this marvelous Grace of God to you and to me, but I again remind you that although God knew that His plan of salvation involved His smiting His own Son and deserting Him in His hour of deepest need so that you and I should not perish--the Father smites, and wounds, and slays His own Son! And there upon the accursed tree, in intense pangs, unutterable, unknown, the Son of God dies, "the Just for the unjust, that He might bring us to God."
+
+Well, then, Beloved, as God has given you His Son, will He not also give you all else that you need? You are about to ask for fellowship with Christ, but that will not cost the Father the smiting of His Son, again, so He will surely give it to
+
+you! You are going to ask God for holiness, but it will give Him pleasure, and nothing but pleasure to make you holy! It will certainly not involve His lifting up His hand against His only-begotten Son anymore, so it shall be God's delight to give you your heart's desire! Having given you His Son, will He not, with Him, give you whatever you believingly ask of Him? He still says, "Open your mouth wide and I will fill it." Tell Him what your present need is and you shall have all that you need. Cast all your cares upon Him, for He cares for you and He will take all your cares away. Shame on you, Christian, if you shall give way to sadness--surely you will not let unbelief vex you, now! You know that God has given Christ for you--then can you fear that He will deny you anything, or leave you, at last, in trouble to sink? That is impossible! God forbid that you should slander Him by thinking that He can so act! What were you saying, poor aged Christian? "I shall want for bread." How can it be? How can it be? The God who out of His amazing love to you has smitten His only-begotten Son will certainly give to you whatever your soul or body may need--
+
+> Seek first His Kingdom's Grace to share.   
+> Its righteousness pursue,   
+> And all that needs your earthly care   
+> Will be bestowed on you!   
+> Why then despond in life's dark vale?   
+> Why sink to fears a prey?   
+> The Almighty Power can never fail,   
+> His love can never decay.   
+
+Now, as a fourth stroke of the axe at the root of unbelief, let me remind you of THE SPIRIT IN WHICH CHRIST WAS GIVEN.
+
+The Father gave His Son, but who asked Him to do so? Not you, certainly, for even after the Father had given Christ, you despised the wondrous gift! Who asked Him? No one of the whole human race! The thought never crossed any created mind. Angels did not throw themselves down between justice and the sinner and intercede for him. I have never read of any burning seraph crying to God, "Spare the guilty, Lord, spare the guilty! Give up Your only-begotten Son to die and let the guilty live!" I cannot conceive of anyone proposing to the Most High to make so tremendous a sacrifice. The Father did it according to His own Sovereign Will, unswayed by anything outside Himself. That self-sustained, almighty Being deigned to give this matchless manifestation of His inflexible Justice and His infinite Love to the sons of men--it was His own conception freely welling up from the deeps of His own loving heart! Well, Beloved, if He gave His Son unsolicited, will He not give you all you need, now that you have learned to ask of Him, now that you understand the art of the widow woman who came to the unjust judge and can plead with the Lord in holy importunity? Now that you have been taught to knock and knock again at God's door--as the man knocked at his friend's door until, at last, he arose at midnight to give him the loaves he needed--surely He will not deny you what you ask! As He gave you Christ unasked, unsought--when you were dead in sin, when you were His enemy, when you hated Him--how much more, now that you are His son, adopted into His family and taught by His Spirit to pray and to plead the promises He has given you--how much more will He give you all things that you need! If you have not, surely it must be because you ask not, or because you ask amiss. Ask now! Ask in faith! Ask in the name of Jesus and all your need shall be given to you!
+
+A fifth time let me try to smite down that old giant, Incredulity, by bidding you remember THE PERSONS TO WHOM THIS GIFT WAS GIVEN--"delivered Him up for us all.
+
+Not one child of God is left without that gift. Little Benjamin has as great a share in Christ as Reuben or Judah has. Mr. Ready-to-Halt has as true an interest in the blood of Jesus as Mr. Greatheart, himself, has. The ancient Jews, on the day they were numbered, had to each pay half a shekel as a ransom for their souls. The Lord said to Moses, "The rich shall not give more and the poor shall not give less." The redemption money was the same for all--and Christ has paid the redemption money equally for all who believe in Him! Not one of those whom He bought with His blood is left out! Not one of His chosen, not one whom He calls, not one whom He justifies--all are redeemed by the precious blood of Christ. I know you are apt to say, "No doubt the Lord will give much to So-and-So, for he is an eminent saint, but not to me." Yet, as He gave Christ to you, why should He not give you all else that you need? "Oh, but I am so obscure, no one will take notice of me." Did not the Lord take notice of you when He gave you Christ? Then why should He not, with Him, freely give you all things?
+
+"Ah," says another, "but I have been such a backslider. Not only my faith, but all my other graces are so feeble, I do not feel fit to be numbered with the Lord's people." Ah, poor Heart, that may be true, yet as God has given you Christ, why should He deny you anything that you need? I wish I could put this Truth of God in words that would never be forgotten! I would like to help every heir of Heaven to carry this Truth with him even to his tomb! It is certain that as you believe in Christ, He is yours--then it must be equally certain, be you who you may be, that "all things are yours." Go, you lonely ones, up from the hour of your mourning! Take down your harps from the willows and make every string in them praise the name of the Lord! Come, you afflicted ones, wherever you wander! Come, you who think yourselves poverty-stricken, and find yourselves infinitely rich in Christ Jesus! It always delights me to know how many poor people there are, and some very poor ones, too, who say that this House of Prayer is the happiest place to which they ever go. Dearly do they love the Truth of God and the preacher, too, for the Truth's sake. And he often thinks with gratitude, when other things have failed to cheer him, that there are poor and needy ones who will come up to the sanctuary, seeking comfort and finding it, while critics, who come only to judge, will go away thinking there is nothing notable here. And the wise men of the world and the disputers will quibble at this, and carp at that, and get no good out of it at all. But these afflicted and poor people of God know the joyful sound of His Truth and they walk in the Light of His Countenance and find it sweet, indeed, to know that Christ is theirs and that all good is theirs in Christ!
+
+Now let us turn to another argument from THE VALUE OF CHRIST TO US.
+
+What is the value of Christ to us? Christ is to us--I pause, for what shall I say? I cannot tell all that Christ is to us, for what is He not to us? He is the Sun of our day! He is the Star of our night! He is our Life! He is our life's Life! He is our Heaven on earth and He shall be our Heaven in Heaven! How sweetly does Madame Guyon sing of Christ and of His exceeding preciousness to her soul! I was reading only yesterday, an account that she gives of herself and of the persecutions she endured for Christ's sake. Yet she says that it seemed to her to be just the same whether she was a prisoner in the Bastille or in the gay society of Paris, as long as she was in communion with Christ, for Christ was everything to her! And the Grace-taught Christian will tell you that he has had his happiest times on a bed of sickness, or when losses and crosses have come quickly, one upon another! Fellowship with Christ transforms a desert into a garden, a wilderness into a paradise! It makes the beggar a prince and sets the prince above the angels. Give a man, Christ--and this is no dream I speak of, no vision of a heated imagination, but in sober solemn earnest do I say it--and he has everything that a Believer can desire! Yes, there is more in Christ than a Christian can hold and, like good John Welsh, the old Covenanter, he is ready to cry, at times, when Christ's love is very sweet to him, "Hold, Lord, hold! For I can bear no more! The joy of Your love is too great for me!" Beloved of God--not beloved of kings, though men grow great if they have a king's affection--not beloved of angels, yet it were no trifle to have a seraph's affection, but Beloved of Jesus, the eternal Son of God! To have our names written on His heart and engraved on His hands, oh, how exceedingly precious is Christ to us!--
+
+"Precious in His death victorious,
+
+He the host of Hell overthrows!
+
+In His Resurrection glorious,
+
+Victor crowned over all His foes!
+
+Precious, Lord! Beyond expressing,
+
+Are Your beauties all Divine!
+
+Glory, honor, power and blessing
+
+Be henceforth forever Thine." Well then, I hope you never set your food and raiment in comparison with Christ. He who gave you His unspeakable gift will give you such trifles as those! I hope you never put your worldly estate, nor even your spiritual comforts, in comparison with your blessed Lord Jesus, for as God has given you Him, what can He deny you? Pluck up your heart, poor fainting one! Be of good courage and face the foe again! You have no armor for your back, so show your breastplate to your adversary and never even dream of defeat. He who has brought you thus far and enriched you with such a priceless Gift can deny you nothing that you really need!
+
+And, lastly, remember THE PURPOSE FOR WHICH GOD GAVE HIS SON, JESUS CHRIST, FOR US.
+
+His purpose was our salvation and it is inconsistent with all right ideas of Deity to believe that the purposes of God can be frustrated. We know that our God made the heavens and the earth and that the Word of our God shall stand forever. Our God is not a lackey to the will of men and His purposes are not like footballs to be kicked about as men may please. What God says, is done! What He commands, stands fast forever! And what His heart devises, that His hands do. "God is not a man that He should lie; neither the son of man, that He should change." And if He wills to save, none can damn. He has proved the honesty and sincerity of His purpose to save us by giving us Christ. And if my faith has laid hold of Christ, and Christ is mine, then I know that it is God's purpose to save me! And I also know that all things that are necessary to my being saved must surely be bestowed upon me. I have never yet been able to put my mind into such a condition as to understand that God would give Christ to die with the intention of saving a man--and yet that man would not be saved!
+
+I know that you and I, in ordinary business transactions, are accustomed to expect, if we pay the price for anything, that we should have what we buy. I am sure that I could not speculate with another man's blood--and especially I know that I could make no speculation with the blood of my own son! I must know beforehand what so great a sacrifice would effect. In like manner, we believe that God well knew what Christ's blood would buy, and what Christ's death would ef-fect--and we cannot think that Calvary was a venture, that the Cross was a speculation--and that the death of Christ was a lottery. God forbid! Be of good courage, then, you who are redeemed--not with corruptible things such as silver and gold, but with the precious blood of Christ--all things must be yours! How can He who has already given Christ to be the Way to Heaven, leave you without shoes for your feet, or without armor for the fight, or without anything else that you will need? He who has given the greater must and will give the less! Lay your many needs before Him. Your plea is a plea that must prevail, a knock that shall make Heaven's gates ring till the porter shall open them--and the favor that you need shall be given with open hands!
+
+The only question I have to ask before I have done is this--Is Christ yours Is Christ yours, my Hearer? Answer "Yes," or "No," tonight! He is yours, or He is not yours, there is no third answer! Is Christ yours? Do you say "No"? Alas, poor wretch, how miserable is your state now!--"condemned already." How wretched shall your state be hereafter, when, "Depart, you cursed," shall be your sentence! "I know not," says one, "whether Christ is mine or not." Do you trust Him? This is the deciding question. If you fully and implicitly trust yourself with Christ, He is yours! If you rest in any degree upon your own works, feelings, doings, or willings, He is not yours! But if you take Him now to be your All-in-All, trusting Him and Him, alone, He is yours and He shall be yours forever and ever! Let there be no aching heart at this Communion Table tonight! Let everyone of us come to this feast of love with joy and gladness because when we can say that Christ is ours we--
+
+"Can smile at Satan's rage, And face a frowning world."
+
+May the Lord give Christ to each one of us and unto Him shall be the glory world without end! Amen.
+
+EXPOSITION BY C. H. SPURGEON: ROMANS8:26-39.
+
+Verse 26. Likewise the Spirit also helps our infirmities. Oh, how many these are! Lack of memory, lack of faith, lack of earnestness, ignorance, pride, deadness, coldness of heart--these are some of our infirmities. But thank God we have the Omnipotent Spirit of God to help us!
+
+For we know not what we should pray for as we ought: but the Spirit itself makes intercession for us with groans which cannot be uttered. These groans are too deep, too full of meaning to be expressed in words. There are some things the Christian needs for which he cannot ask. Perhaps he does not even know what it is that he needs. There is a vacuum in his heart, but he does not know what would fill it. There is a hunger in his spirit, but he knows not what the bread is, nor where the bread is that can satisfy his needs. But the Holy Spirit can articulate these unuttered groans and the deepest needs of our soul can thus be brought before God by His own Spirit. You, then, who find it difficult to pray, do not give up praying! The devil tells you that such poor prayers as yours are can never reach the ear of God. Do not believe him! The Spirit helps your infirmities--and when He helps you, you shall, you mustprevail!
+
+And He that searches the hearts knows what is the mind of the Spirit, because He makes intercession for the
+
+saints according to the will of God. [See Sermon #1532, Volume 26--THE HOLY SPIRIT'S INTERCESSION.] It cannot be supposed that the Father does not know what is the mind of the Spirit, since they are one God, and, moreover, inasmuch as the Spirit of God never intercedes for anything which is not according to God's will, we are sure that our heavenly Father will grant every Spirit-indited prayer!
+
+And we know that all things work together for good to them that love God, to them who are the called according to His purpose." [See Sermon #159, Volume 3--THE TRUE CHRISTIAN'S BLESSEDNESS.] Almost everything in this world looks to us to be in confusion, but to God's eyes, all is in order. One wave dashes this way and another that, but they are all working together, and they are all working with one great purpose, too. Say not, Christian, "All these things are against me." Ah, poor Soul! This is the verdict of your unbelief, but you will know better than that one of these days! All things are working for you, and not one of them is working against you--therefore, be not dismayed. They are all working together for good to those who love God, to those who are the called according to His purpose.
+
+For whom He did foreknow, He also did predestinate to be conformed to the image of His Son, that He might be
+
+the first-born among many brethren. [See Sermons #355, Volume 7--PORTRAITS OF CHRIST and #1043, Volume 18--GLORIOUS PREDESTINATION.] That was the very end and object of their predestination that they might become like Christ, their great perfect elder Brother--
+
+> 'Christ, be My first Elect,' He said,   
+> Then chose our souls in Christ our Head   
+> Before He gave the mountains birth   
+> Or laid foundations for the earth!   
+
+Moreover whom He did predestinate, them He also called [See Sermon #241, Volume 5--predestination and calling.] My Soul, have you been called of God? Has the Spirit of God
+
+ever called you? If so, rejoice in your predestination! Have no doubts and fears concerning that matter, for He would never have called you if He had not intended to save you from before the foundation of the world!
+
+And whom He called, them He also justified: and whom He justified, them He also glorified. My Soul, do you believe in Jesus?
+
+Have you trusted in His precious blood? Then you are justified! Never give way, then, to any fears concerning your eternal salvation, for as surely as there is a Heaven, you shall be a partaker of its glories--for never was there a soul justified who was not afterwards glorified!
+
+What shall we then say to these things? If God is for us, who can be against uss'[See Sermon #580, Volume 10--god is with
+
+US.] Have you the world against you, Christian? What is the
+
+opposition of the world when God is on your side? Is your own heart against you? What then? God is greater than your heart! Is the devil against you? Ah, he is mighty, but God is Almighty and He shall bruise Satan under your feet shortly. Paul was no fanatic--he was a man of great experience and of sound sense--yet he makes nothing of all our foes when God is on our side!
+
+He that spared not His own Son, but delivered Him up for us all, how shall He not, with Him, also freely give us all things?When God gave us Christ, He gave us everything, for all the blessings of this life and of the life that is to come lie hidden in Christ as the kernel is within the shell of the nut! What encouragement we have here for believing prayer! Christian, Christ is the golden key of God's treasuries! You have but to use Him aright, and whatever you need shall be yours!
+
+Who shall lay anything to the charge of God's elect?Here is true boldness! Paul, who called himself the very chief of sinners dares to challenge anyone to lay anything to the charge of God's elect! Surely God can do so. "No," says
+
+Paul--
+
+It is God that justifies. He is both Just and the Justifier of all who believe in Jesus, and they are "God's elect."
+
+Who is He that condemns [See Sermons #256, Volume 5--THE BELIEVER'S CHALLENGE and #2240, Volume 38--A CHALLENGE AND A
+
+SHIELD.] "Why," says one, "Christ, the great Judge, will condemn." No, that He will not, for--
+
+It is Christ that died, yes, rather, that is risen again, who is even at the right hand of God, who also makes intercession for us. Christian, as Christ makes intercession for you, He will never condemn you! Did He shed His blood for you and yet will He cast you into Hell? Did He rise from the dead for you, and yet will He leave you among the dead and the lost? Think not so strangely of the Christ of God who is the same yesterday, and today, and forever--and who will never condemn those who trust in Him!
+
+Who shall separate us from the love of Christ? Shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? They have been tried again and again.
+
+It is written, For Your sake we are killed all day long; we are accounted as sheep for the slaughter. What was the effect of this persecution? Were the saints turned away from Christ by it?
+
+37-39. No, in all these things, we are more than conquerors through Him that loved us. For I am persuaded that
+
+neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height nor
+
+depth, nor any other creature shall be able to separate us from the love of God, which is in Christ Jesus our Lord [See Sermon #2492, Volume 45--PAUL'S PERSUASION.]
