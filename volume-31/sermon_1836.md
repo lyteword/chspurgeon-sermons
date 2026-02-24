@@ -1,4 +1,4 @@
-# First Healing and then Service
+# Sermon 1836 | First Healing and then Service
 
 (No. 1836)
 

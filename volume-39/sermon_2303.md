@@ -1,4 +1,4 @@
-# Three Arrows--or Six?
+# Sermon 2303 | Three Arrows--or Six?
 
 (No. 2303)
 

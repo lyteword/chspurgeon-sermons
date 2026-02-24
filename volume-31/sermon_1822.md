@@ -1,4 +1,4 @@
-# Certain Curious Calculations About Loaves and Fishes
+# Sermon 1822 | Certain Curious Calculations About Loaves and Fishes
 
 (No. 1822)
 

@@ -1,4 +1,4 @@
-# The Blood of Sprinkling and the Children
+# Sermon 1988 | The Blood of Sprinkling and the Children
 
 Sermon No. 1988 - Delivered on Sunday Morning, October 23, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

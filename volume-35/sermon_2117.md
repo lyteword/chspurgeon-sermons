@@ -1,4 +1,4 @@
-# The Father's Love to His Dying Son
+# Sermon 2117 | The Father's Love to His Dying Son
 
 Sermon No. 2117 - Delivered on Sunday Morning, December 8th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

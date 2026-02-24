@@ -1,4 +1,4 @@
-# The Charge of the Angel
+# Sermon 2032 | The Charge of the Angel
 
 Sermon No. 2032 - Delivered on Sunday Morning, July 8th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

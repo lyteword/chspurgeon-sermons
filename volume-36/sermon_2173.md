@@ -1,4 +1,4 @@
-# Little Faith and Great Faith
+# Sermon 2173 | Little Faith and Great Faith
 
 Sermon No. 2173 - Delivered on Sunday Morning, November 16th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Paul, the Ready
+# Sermon 2285 | Paul, the Ready
 
 (No. 2285)
 

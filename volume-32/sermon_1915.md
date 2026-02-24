@@ -1,4 +1,4 @@
-# The Ever-Living Priest
+# Sermon 1915 | The Ever-Living Priest
 
 (No. 1915)
 

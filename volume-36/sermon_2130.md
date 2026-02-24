@@ -1,4 +1,4 @@
-# The Deceitfulness of Sin
+# Sermon 2130 | The Deceitfulness of Sin
 
 Sermon No. 2130 - Delivered on Sunday Morning, February 16th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

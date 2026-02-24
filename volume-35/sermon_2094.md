@@ -1,4 +1,4 @@
-# Foundation Work
+# Sermon 2094 | Foundation Work
 
 Sermon No. 2094 - Delivered on Sunday, July 7, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

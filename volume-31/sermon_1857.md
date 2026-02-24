@@ -1,4 +1,4 @@
-# The Necessity of Growing Faith
+# Sermon 1857 | The Necessity of Growing Faith
 
 (No. 1857)
 

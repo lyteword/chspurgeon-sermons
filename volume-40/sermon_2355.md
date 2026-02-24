@@ -1,4 +1,4 @@
-# Christ's Negative and Positive Prayer
+# Sermon 2355 | Christ's Negative and Positive Prayer
 
 (No. 2355)
 

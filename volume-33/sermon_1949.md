@@ -1,4 +1,4 @@
-# A Sermon for the Worst Man on Earth
+# Sermon 1949 | A Sermon for the Worst Man on Earth
 
 Sermon No. 1949 - Delivered on Sunday Morning, February 20th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

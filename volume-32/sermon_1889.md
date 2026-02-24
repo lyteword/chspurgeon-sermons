@@ -1,4 +1,4 @@
-# The Blood of Sprinkling (Second Sermon.)
+# Sermon 1889 | The Blood of Sprinkling (Second Sermon.)
 
 Sermon No. 1889 - Delivered on Lord's-day Evening, February 28th, 1886 the REV. C.H. SPURGEON at [2]the Metropolitan Tabernacle, Newington.
 

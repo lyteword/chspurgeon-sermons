@@ -1,4 +1,4 @@
-# The First Appearance of the Risen Lord to the Eleven
+# Sermon 1958 | The First Appearance of the Risen Lord to the Eleven
 
 Sermon No. 1958 - Delivered on Sunday Morning, April 10th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

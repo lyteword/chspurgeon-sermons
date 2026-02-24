@@ -1,4 +1,4 @@
-# The Happy Duty of Daily Praise
+# Sermon 1902 | The Happy Duty of Daily Praise
 
 (No. 1902)
 

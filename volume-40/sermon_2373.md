@@ -1,4 +1,4 @@
-# The Weary Dove's Return
+# Sermon 2373 | The Weary Dove's Return
 
 (No. 2373)
 

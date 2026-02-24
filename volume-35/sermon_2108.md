@@ -1,4 +1,4 @@
-# Perseverance in Holiness
+# Sermon 2108 | Perseverance in Holiness
 
 Sermon No. 2108 - Delivered on Lord's-day Morning, October 6th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

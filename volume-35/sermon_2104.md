@@ -1,4 +1,4 @@
-# The Inner Side of Conversion
+# Sermon 2104 | The Inner Side of Conversion
 
 Sermon No. 2104 - Delivered on Sunday, September 15, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

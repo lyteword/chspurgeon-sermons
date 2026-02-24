@@ -1,4 +1,4 @@
-# The Friend of God
+# Sermon 1962 | The Friend of God
 
 Sermon No. 1962 - Delivered on Sunday Morning, May 8th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

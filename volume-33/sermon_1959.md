@@ -1,4 +1,4 @@
-# The Watchword For Today--"Stand Fast"
+# Sermon 1959 | The Watchword For Today--"Stand Fast"
 
 Sermon No. 1959 - Delivered on Sunday Morning, April 17th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

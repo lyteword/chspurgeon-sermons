@@ -1,4 +1,4 @@
-# The Nobleman's Faith
+# Sermon 1865 | The Nobleman's Faith
 
 (No. 1865)
 

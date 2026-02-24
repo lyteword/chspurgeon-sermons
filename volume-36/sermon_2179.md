@@ -1,4 +1,4 @@
-# God Fighting Sin
+# Sermon 2179 | God Fighting Sin
 
 Sermon No. 2179 - Delivered on Sunday Morning, December 28th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

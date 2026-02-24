@@ -1,4 +1,4 @@
-# Christ's Curate In Decapolis
+# Sermon 2262 | Christ's Curate In Decapolis
 
 (No. 2262)
 

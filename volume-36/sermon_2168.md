@@ -1,4 +1,4 @@
-# The Test of Taste
+# Sermon 2168 | The Test of Taste
 
 Sermon No. 2168 - Delivered on Sunday Morning, October 12th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

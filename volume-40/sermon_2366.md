@@ -1,4 +1,4 @@
-# "The Sure Mercies of David"
+# Sermon 2366 | "The Sure Mercies of David"
 
 (No. 2366)
 

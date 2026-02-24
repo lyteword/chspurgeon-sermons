@@ -1,4 +1,4 @@
-# Three Blessings of the Heavenly Charter
+# Sermon 2314 | Three Blessings of the Heavenly Charter
 
 (No. 2314)
 

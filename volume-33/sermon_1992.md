@@ -1,4 +1,4 @@
-# Song for the Free--Hope for the Bound
+# Sermon 1992 | Song for the Free--Hope for the Bound
 
 Sermon No. 1992 - Delivered on Sunday Morning, Novsmber 20th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

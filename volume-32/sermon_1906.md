@@ -1,4 +1,4 @@
-# How To Become Fishers of Men
+# Sermon 1906 | How To Become Fishers of Men
 
 Sermon No. 1906 - Delivered on Delivered the REV. C.H. SPURGEON at [7]the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Concerning Prayer
+# Sermon 2053 | Concerning Prayer
 
 Sermon No. 2053 - Delivered on Sunday Morning, November 25th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

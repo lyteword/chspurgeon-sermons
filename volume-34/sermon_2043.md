@@ -1,4 +1,4 @@
-# The Blood of the Lamb, the Conquering Weapon
+# Sermon 2043 | The Blood of the Lamb, the Conquering Weapon
 
 Sermon No. 2043 - Delivered on Sunday Morning, September 9th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

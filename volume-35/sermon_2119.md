@@ -1,4 +1,4 @@
-# Magdalene at the Sepulcher--an Instructive Scene
+# Sermon 2119 | Magdalene at the Sepulcher--an Instructive Scene
 
 Sermon No. 2119 - Delivered on Sunday Morning, December 22nd, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

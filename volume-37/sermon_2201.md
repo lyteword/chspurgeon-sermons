@@ -1,4 +1,4 @@
-# The Sword of the Spirit
+# Sermon 2201 | The Sword of the Spirit
 
 (No. 2201)
 

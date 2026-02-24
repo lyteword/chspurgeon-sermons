@@ -1,4 +1,4 @@
-# The Living Care of the Dying Christ
+# Sermon 2368 | The Living Care of the Dying Christ
 
 (No. 2368)
 

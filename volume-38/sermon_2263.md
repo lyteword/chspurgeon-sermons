@@ -1,4 +1,4 @@
-# Christ's Plea for Ignorant Sinners
+# Sermon 2263 | Christ's Plea for Ignorant Sinners
 
 (No. 2263)
 

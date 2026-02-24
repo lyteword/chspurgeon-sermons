@@ -1,4 +1,4 @@
-# The Lad's Loaves in the Lord's Hands
+# Sermon 2216 | The Lad's Loaves in the Lord's Hands
 
 (No. 2216)
 

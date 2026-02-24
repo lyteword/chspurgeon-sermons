@@ -1,4 +1,4 @@
-# Twelve Covenant Mercies
+# Sermon 2316 | Twelve Covenant Mercies
 
 (No. 2316)
 

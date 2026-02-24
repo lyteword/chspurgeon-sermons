@@ -1,4 +1,4 @@
-# The Eye and the Light
+# Sermon 2109 | The Eye and the Light
 
 Sermon No. 2109 - Delivered on Sunday, October 13, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

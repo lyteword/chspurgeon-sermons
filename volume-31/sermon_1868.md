@@ -1,4 +1,4 @@
-# Death and Life--the Wage and the Gift
+# Sermon 1868 | Death and Life--the Wage and the Gift
 
 (No. 1868)
 

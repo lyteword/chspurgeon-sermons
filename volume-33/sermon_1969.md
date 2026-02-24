@@ -1,4 +1,4 @@
-# Pleading Prayer
+# Sermon 1969 | Pleading Prayer
 
 Sermon No. 1969 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

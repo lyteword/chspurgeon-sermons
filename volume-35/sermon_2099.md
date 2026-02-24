@@ -1,4 +1,4 @@
-# Concerning the Consolations Of God
+# Sermon 2099 | Concerning the Consolations Of God
 
 Sermon No. 2099 - Delivered on Sunday, August 11, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

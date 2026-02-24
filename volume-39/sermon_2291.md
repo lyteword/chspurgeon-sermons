@@ -1,4 +1,4 @@
-# "Dare To Be a Daniel"
+# Sermon 2291 | "Dare To Be a Daniel"
 
 (No. 2291)
 

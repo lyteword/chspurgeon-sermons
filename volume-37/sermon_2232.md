@@ -1,4 +1,4 @@
-# Christ's Motive and Ours
+# Sermon 2232 | Christ's Motive and Ours
 
 (No. 2232)
 

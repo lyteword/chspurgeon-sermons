@@ -1,4 +1,4 @@
-# A Mediator
+# Sermon 2180 | A Mediator
 
 Sermon No. 2180 - Delivered on Sunday Evening, February 23rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

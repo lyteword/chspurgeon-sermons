@@ -1,4 +1,4 @@
-# On His Breast
+# Sermon 2052 | On His Breast
 
 Sermon No. 2052 - Delivered on Sunday Morning, November 18th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# "Behold the Lamb of God"
+# Sermon 1987 | "Behold the Lamb of God"
 
 Sermon No. 1987 - Delivered on Sunday Morning, October 16th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Jesus Known by Personal Revelation
+# Sermon 2041 | Jesus Known by Personal Revelation
 
 Sermon No. 2041 - Delivered on Sunday Morning, August 26th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

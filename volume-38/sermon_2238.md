@@ -1,4 +1,4 @@
-# "You Are Now the Blessed of the Lord"
+# Sermon 2238 | "You Are Now the Blessed of the Lord"
 
 (No. 2238)
 

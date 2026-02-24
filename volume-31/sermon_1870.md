@@ -1,4 +1,4 @@
-# But a Step
+# Sermon 1870 | But a Step
 
 (No. 1870)
 

@@ -1,4 +1,4 @@
-# Pricked in Their Heart
+# Sermon 2102 | Pricked in Their Heart
 
 Sermon No. 2102 - Delivered on Lord's-day Morning, September 1st, 1889 the REV. C.H. SPURGEON at [6]the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Another Lesson From Manasseh's Life
+# Sermon 2385 | Another Lesson From Manasseh's Life
 
 (No. 2385)
 

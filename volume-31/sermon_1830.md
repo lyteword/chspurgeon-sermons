@@ -1,4 +1,4 @@
-# All Or None--or, Compromises Refused-- a Sermon With Five Texts
+# Sermon 1830 | All Or None--or, Compromises Refused-- a Sermon With Five Texts
 
 (No. 1830)
 

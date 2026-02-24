@@ -1,4 +1,4 @@
-# "I Will," Yet, "Not As I Will"
+# Sermon 2376 | "I Will," Yet, "Not As I Will"
 
 (No. 2376)
 

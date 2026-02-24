@@ -1,4 +1,4 @@
-# The Whole Gospel In A Single Verse
+# Sermon 2300 | The Whole Gospel In A Single Verse
 
 (No. 2300)
 

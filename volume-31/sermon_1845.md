@@ -1,4 +1,4 @@
-# The Pity of the Lord--the Comfort of the Afflicted
+# Sermon 1845 | The Pity of the Lord--the Comfort of the Afflicted
 
 (No. 1845)
 

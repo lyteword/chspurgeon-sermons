@@ -1,4 +1,4 @@
-# "Lo, I Come"--Application
+# Sermon 2203 | "Lo, I Come"--Application
 
 (No. 2203)
 

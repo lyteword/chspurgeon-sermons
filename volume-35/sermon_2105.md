@@ -1,4 +1,4 @@
-# Preparation for the Coming of the Lord
+# Sermon 2105 | Preparation for the Coming of the Lord
 
 Sermon No. 2105 - Delivered on Sunday, September 22, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

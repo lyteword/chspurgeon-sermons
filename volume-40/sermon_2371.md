@@ -1,4 +1,4 @@
-# Freedom At Once and Forever
+# Sermon 2371 | Freedom At Once and Forever
 
 (No. 2371)
 

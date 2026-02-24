@@ -1,4 +1,4 @@
-# The Child Of Light Walking In Darkness
+# Sermon 1985 | The Child Of Light Walking In Darkness
 
 Sermon No. 1985 - Delivered on Sunday Morning, September 25th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Grace For Communion
+# Sermon 1941 | Grace For Communion
 
 Sermon No. 1941 - Delivered on Sunday Afternoon, January 2nd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

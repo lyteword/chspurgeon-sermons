@@ -1,4 +1,4 @@
-# The Miracles of Our Lord's Death
+# Sermon 2059 | The Miracles of Our Lord's Death
 
 Sermon No. 2059 - Delivered on Sunday Morning, December 30th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

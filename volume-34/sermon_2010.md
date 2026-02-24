@@ -1,4 +1,4 @@
-# The Word a Sword
+# Sermon 2010 | The Word a Sword
 
 Sermon No. 2010 - Delivered on Thursday Evening, May 17th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Blessing of the High Priest
+# Sermon 2170 | The Blessing of the High Priest
 
 Sermon No. 2170 - Delivered on Sunday Morning, October 26th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

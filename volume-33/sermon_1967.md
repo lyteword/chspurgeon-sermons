@@ -1,4 +1,4 @@
-# Plain Gospel For Plain People
+# Sermon 1967 | Plain Gospel For Plain People
 
 Sermon No. 1967 - Delivered on Sunday Morning, June 12th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

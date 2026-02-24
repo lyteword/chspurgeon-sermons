@@ -1,4 +1,4 @@
-# Plain Directions To Those Who Would Be Saved From Sin
+# Sermon 2033 | Plain Directions To Those Who Would Be Saved From Sin
 
 Sermon No. 2033 - Delivered on Sunday Morning, July 15th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

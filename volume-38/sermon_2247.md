@@ -1,4 +1,4 @@
-# Praise for the Gift of Gifts
+# Sermon 2247 | Praise for the Gift of Gifts
 
 (No. 2247)
 

@@ -1,4 +1,4 @@
-# Guidance To Grace and Glory
+# Sermon 2389 | Guidance To Grace and Glory
 
 (No. 2389)
 

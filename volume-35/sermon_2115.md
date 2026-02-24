@@ -1,4 +1,4 @@
-# The Drought of Nature, the Rain of Grace and the Lesson Therefrom
+# Sermon 2115 | The Drought of Nature, the Rain of Grace and the Lesson Therefrom
 
 Sermon No. 2115 - Delivered on Sunday Morning, November 24th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

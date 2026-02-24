@@ -1,4 +1,4 @@
-# Knowing the Lord Through Pardoned Sin
+# Sermon 2006 | Knowing the Lord Through Pardoned Sin
 
 Sermon No. 2006 - Delivered on Sunday Morning, January 29th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

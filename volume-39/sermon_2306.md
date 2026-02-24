@@ -1,4 +1,4 @@
-# Servitude Or Service--Which?
+# Sermon 2306 | Servitude Or Service--Which?
 
 (No. 2306)
 

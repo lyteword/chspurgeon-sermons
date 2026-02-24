@@ -1,4 +1,4 @@
-# Man, Whose Breath Is In His Nostrils
+# Sermon 1984 | Man, Whose Breath Is In His Nostrils
 
 Sermon No. 1984 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

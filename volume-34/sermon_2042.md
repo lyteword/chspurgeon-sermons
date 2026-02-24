@@ -1,4 +1,4 @@
-# The Maintenance of Good Works
+# Sermon 2042 | The Maintenance of Good Works
 
 Sermon No. 2042 - Delivered on Sunday Morning, September 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

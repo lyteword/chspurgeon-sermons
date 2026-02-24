@@ -1,4 +1,4 @@
-# "Goodness, as a Morning Cloud"
+# Sermon 2365 | "Goodness, as a Morning Cloud"
 
 (No. 2365)
 

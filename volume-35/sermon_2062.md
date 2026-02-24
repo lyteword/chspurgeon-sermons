@@ -1,4 +1,4 @@
-# Shoes of Iron, and Strength Sufficient: A New Year's Promise
+# Sermon 2062 | Shoes of Iron, and Strength Sufficient: A New Year's Promise
 
 Sermon No. 2062 - Delivered on Thursday Evening, March 29th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Blood of Sprinkling
+# Sermon 1888 | The Blood of Sprinkling
 
 Sermon No. 1888 - Delivered on Lord's-day Morning, February 28th, 1886 the REV. C.H. SPURGEON at [1]the Metropolitan Tabernacle, Newington.
 

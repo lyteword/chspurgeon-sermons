@@ -1,4 +1,4 @@
-# A Little Sanctuary
+# Sermon 2001 | A Little Sanctuary
 
 Sermon No. 2001 - Delivered on Sunday Morning, January 8th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

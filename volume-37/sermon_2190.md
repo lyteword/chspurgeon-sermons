@@ -1,4 +1,4 @@
-# Bit and Bridle--How To Escape Them
+# Sermon 2190 | Bit and Bridle--How To Escape Them
 
 (No. 2190)
 

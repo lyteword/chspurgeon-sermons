@@ -1,4 +1,4 @@
-# Fever and Its Cure
+# Sermon 2174 | Fever and Its Cure
 
 Sermon No. 2174 - Delivered on Sunday Morning, November 23th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

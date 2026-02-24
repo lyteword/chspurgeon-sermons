@@ -1,4 +1,4 @@
-# A Testimony To Free and Sovereign Grace
+# Sermon 1953 | A Testimony To Free and Sovereign Grace
 
 Sermon No. 1953 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

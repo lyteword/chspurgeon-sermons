@@ -1,4 +1,4 @@
-# Two Essential Things
+# Sermon 2073 | Two Essential Things
 
 Sermon No. 2073 - Delivered on Lord's-day Morning, March 3rd the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Death of Moses
+# Sermon 1966 | The Death of Moses
 
 Sermon No. 1966 - Delivered on Sunday Morning, June 5th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

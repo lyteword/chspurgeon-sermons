@@ -1,4 +1,4 @@
-# No Fixity Without Faith
+# Sermon 2305 | No Fixity Without Faith
 
 (No. 2305)
 

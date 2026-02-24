@@ -1,4 +1,4 @@
-# David Dancing Before the Ark Because of His Election
+# Sermon 2031 | David Dancing Before the Ark Because of His Election
 
 Sermon No. 2031 - Delivered on Sunday Morning, July 1st, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

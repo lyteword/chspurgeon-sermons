@@ -1,4 +1,4 @@
-# The Curse and the Curse for Us
+# Sermon 2093 | The Curse and the Curse for Us
 
 Sermon No. 2093 - Delivered on Sunday, May 26, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

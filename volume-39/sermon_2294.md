@@ -1,4 +1,4 @@
-# The Memory Of Christ's Love
+# Sermon 2294 | The Memory Of Christ's Love
 
 (No. 2294)
 

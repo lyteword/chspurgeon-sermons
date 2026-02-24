@@ -1,4 +1,4 @@
-# Words To Rest On
+# Sermon 2250 | Words To Rest On
 
 (No. 2250)
 

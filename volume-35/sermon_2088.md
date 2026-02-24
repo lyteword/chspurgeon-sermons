@@ -1,4 +1,4 @@
-# The Form of Godliness Without the Power
+# Sermon 2088 | The Form of Godliness Without the Power
 
 Sermon No. 2088 - Delivered on Sunday, June 2, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Iniquity of Our Holy Things
+# Sermon 2153 | The Iniquity of Our Holy Things
 
 Sermon No. 2153 - Delivered on Sunday Morning, July 6th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

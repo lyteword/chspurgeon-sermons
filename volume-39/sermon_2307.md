@@ -1,4 +1,4 @@
-# The Greatest Exhibition of the Age
+# Sermon 2307 | The Greatest Exhibition of the Age
 
 (No. 2307)
 

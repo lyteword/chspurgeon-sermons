@@ -1,4 +1,4 @@
-# Christ Put On
+# Sermon 2132 | Christ Put On
 
 Sermon No. 2132 - Delivered on Sunday Morning, February 23rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

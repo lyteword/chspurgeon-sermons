@@ -1,4 +1,4 @@
-# Our Sympathizing High Priest
+# Sermon 1927 | Our Sympathizing High Priest
 
 (No. 1927)
 

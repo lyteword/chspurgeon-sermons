@@ -1,4 +1,4 @@
-# The Bond of the Covenant
+# Sermon 1840 | The Bond of the Covenant
 
 (No. 1840)
 

@@ -1,4 +1,4 @@
-# Life From the Dead
+# Sermon 2267 | Life From the Dead
 
 (No. 2267)
 

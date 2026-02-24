@@ -1,4 +1,4 @@
-# The Joyous Return
+# Sermon 2192 | The Joyous Return
 
 (No. 2192)
 

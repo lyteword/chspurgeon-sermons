@@ -1,4 +1,4 @@
-# The Underlying Gospel for the Dying Year
+# Sermon 2341 | The Underlying Gospel for the Dying Year
 
 (No. 2341)
 

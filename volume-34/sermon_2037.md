@@ -1,4 +1,4 @@
-# The Rule of the Race
+# Sermon 2037 | The Rule of the Race
 
 Sermon No. 2037 - Delivered on Sunday Morning, August 5th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

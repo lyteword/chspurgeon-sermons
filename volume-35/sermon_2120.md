@@ -1,4 +1,4 @@
-# The Security Of Believers--Or, Sheep Who Shall Never Perish
+# Sermon 2120 | The Security Of Believers--Or, Sheep Who Shall Never Perish
 
 Sermon No. 2120 - Delivered on Sunday Morning, December 29th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Help for Your Sickness
+# Sermon 2124 | Help for Your Sickness
 
 Sermon No. 2124 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

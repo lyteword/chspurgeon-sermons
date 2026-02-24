@@ -1,4 +1,4 @@
-# The Foundation and Its Seal--a Sermon for the Times
+# Sermon 1854 | The Foundation and Its Seal--a Sermon for the Times
 
 (No. 1854)
 

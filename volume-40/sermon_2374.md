@@ -1,4 +1,4 @@
-# Blessed Discipline
+# Sermon 2374 | Blessed Discipline
 
 (No. 2374)
 

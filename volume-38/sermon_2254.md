@@ -1,4 +1,4 @@
-# The Two Guards Praying and Watching
+# Sermon 2254 | The Two Guards Praying and Watching
 
 (No. 2254)
 

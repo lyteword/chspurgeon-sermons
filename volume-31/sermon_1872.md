@@ -1,4 +1,4 @@
-# My Comfort In Affliction
+# Sermon 1872 | My Comfort In Affliction
 
 (No. 1872)
 

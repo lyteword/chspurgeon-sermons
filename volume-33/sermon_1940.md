@@ -1,4 +1,4 @@
-# The Best Bread
+# Sermon 1940 | The Best Bread
 
 Sermon No. 1940 - Delivered on Thursday Evening, October 28th, 1886 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

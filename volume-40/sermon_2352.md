@@ -1,4 +1,4 @@
-# Great Joy In the City
+# Sermon 2352 | Great Joy In the City
 
 (No. 2352)
 

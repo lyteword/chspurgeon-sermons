@@ -1,4 +1,4 @@
-# The Abiding of the Spirit the Glory of the Church
+# Sermon 1918 | The Abiding of the Spirit the Glory of the Church
 
 Sermon No. 1918 - Delivered on Lord's-day Morning, September 5th, 1886 the REV. C.H. SPURGEON at the [11]Metropolitan Tabernacle, Newington.
 

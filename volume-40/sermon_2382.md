@@ -1,4 +1,4 @@
-# The Holy Spirit's Chief Office
+# Sermon 2382 | The Holy Spirit's Chief Office
 
 (No. 2382)
 

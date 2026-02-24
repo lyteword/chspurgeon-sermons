@@ -1,4 +1,4 @@
-# Once Dead, Now Alive
+# Sermon 2388 | Once Dead, Now Alive
 
 (No. 2388)
 

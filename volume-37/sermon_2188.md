@@ -1,4 +1,4 @@
-# Entangled in the Land
+# Sermon 2188 | Entangled in the Land
 
 (No. 2188)
 

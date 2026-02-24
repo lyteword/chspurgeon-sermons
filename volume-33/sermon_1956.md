@@ -1,4 +1,4 @@
-# On the Cross After Death
+# Sermon 1956 | On the Cross After Death
 
 Sermon No. 1956 - Delivered on Sunday Morning, April 3rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

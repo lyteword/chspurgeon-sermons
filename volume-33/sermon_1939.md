@@ -1,4 +1,4 @@
-# Shaved and Shorn, But Not Beyond Hope
+# Sermon 1939 | Shaved and Shorn, But Not Beyond Hope
 
 Sermon No. 1939 - Delivered on Sunday Evening, September 26th, 1886 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

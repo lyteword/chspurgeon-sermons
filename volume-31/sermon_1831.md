@@ -1,4 +1,4 @@
-# Smoking Flax
+# Sermon 1831 | Smoking Flax
 
 (No. 1831)
 

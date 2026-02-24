@@ -1,4 +1,4 @@
-# The Three Hours of Darkness
+# Sermon 1896 | The Three Hours of Darkness
 
 (No. 1896)
 

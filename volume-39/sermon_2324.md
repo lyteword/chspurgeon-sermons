@@ -1,4 +1,4 @@
-# The Followers of the Lamb
+# Sermon 2324 | The Followers of the Lamb
 
 (No. 2324)
 

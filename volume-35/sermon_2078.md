@@ -1,4 +1,4 @@
-# The Believing Thief
+# Sermon 2078 | The Believing Thief
 
 Sermon No. 2078 - Delivered on Lord's-day Morning, April 7th the REV. C.H. SPURGEON at [3]the Metropolitan Tabernacle, Newington.
 

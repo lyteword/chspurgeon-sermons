@@ -1,4 +1,4 @@
-# The Wedding Was Furnished with Guests
+# Sermon 2022 | The Wedding Was Furnished with Guests
 
 Sermon No. 2022 - Delivered on Sunday Morning, May 6th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

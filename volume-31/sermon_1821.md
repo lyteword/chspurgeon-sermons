@@ -1,4 +1,4 @@
-# Cords and Cart-Ropes
+# Sermon 1821 | Cords and Cart-Ropes
 
 Sermon No. 1821 - Delivered on Delivered the REV. C.H. SPURGEON at the [6]Metropolitan Tabernacle, Newington.
 (No. 1821)

@@ -1,4 +1,4 @@
-# A Plain Man's Sermon
+# Sermon 1879 | A Plain Man's Sermon
 
 (No. 1879)
 

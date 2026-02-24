@@ -1,4 +1,4 @@
-# A Sermon for the Time Present
+# Sermon 1990 | A Sermon for the Time Present
 
 Sermon No. 1990 - Delivered on Sunday Morning, October 30th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

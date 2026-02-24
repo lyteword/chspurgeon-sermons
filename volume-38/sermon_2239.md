@@ -1,4 +1,4 @@
-# "Is God In the Camp?"
+# Sermon 2239 | "Is God In the Camp?"
 
 (No. 2239)
 

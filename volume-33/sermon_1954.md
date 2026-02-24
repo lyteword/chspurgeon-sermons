@@ -1,4 +1,4 @@
-# The Breaker and the Flock
+# Sermon 1954 | The Breaker and the Flock
 
 Sermon No. 1954 - Delivered on Sunday Morning, March 20th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

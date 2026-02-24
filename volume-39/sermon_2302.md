@@ -1,4 +1,4 @@
-# Watching For Christ's Coming
+# Sermon 2302 | Watching For Christ's Coming
 
 (No. 2302)
 

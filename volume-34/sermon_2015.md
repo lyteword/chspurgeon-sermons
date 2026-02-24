@@ -1,4 +1,4 @@
-# The Rent Veil
+# Sermon 2015 | The Rent Veil
 
 Sermon No. 2015 - Delivered on Lord's-day Morning, March 25th, 1888 the REV. C.H. SPURGEON at [3]the Metropolitan Tabernacle, Newington.
 

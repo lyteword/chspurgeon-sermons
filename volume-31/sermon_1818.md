@@ -1,4 +1,4 @@
-# The Song of a City, and the Pearl of Peace
+# Sermon 1818 | The Song of a City, and the Pearl of Peace
 
 Sermon No. 1818 - Delivered on Lord's Day Morning, January 4th, 1885 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 

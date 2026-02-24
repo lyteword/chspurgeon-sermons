@@ -1,4 +1,4 @@
-# Retrospect--"The Lord Has Blessed"
+# Sermon 1882 | Retrospect--"The Lord Has Blessed"
 
 (No. 1882)
 

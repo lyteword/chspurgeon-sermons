@@ -1,4 +1,4 @@
-# The Whole Machinery of Salvation
+# Sermon 2327 | The Whole Machinery of Salvation
 
 (No. 2327)
 

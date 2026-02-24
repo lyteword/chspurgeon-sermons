@@ -1,4 +1,4 @@
-# The Heart--a Gift for God
+# Sermon 1995 | The Heart--a Gift for God
 
 Sermon No. 1995 - Delivered on Sunday Morning, December 11th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

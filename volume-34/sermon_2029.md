@@ -1,4 +1,4 @@
-# Let Him Deliver Him Now
+# Sermon 2029 | Let Him Deliver Him Now
 
 Sermon No. 2029 - Delivered on Sunday Morning, June 17th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

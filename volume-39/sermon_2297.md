@@ -1,4 +1,4 @@
-# Sealed and Open Evidences
+# Sermon 2297 | Sealed and Open Evidences
 
 (No. 2297)
 

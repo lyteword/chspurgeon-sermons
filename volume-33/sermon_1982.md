@@ -1,4 +1,4 @@
-# Love at Its Utmost
+# Sermon 1982 | Love at Its Utmost
 
 Sermon No. 1982 - Delivered on Sunday Morning, September 11th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

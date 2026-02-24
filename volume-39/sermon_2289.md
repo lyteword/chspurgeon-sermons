@@ -1,4 +1,4 @@
-# The Right Keynote for the New Year
+# Sermon 2289 | The Right Keynote for the New Year
 
 (No. 2289)
 

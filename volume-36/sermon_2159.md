@@ -1,4 +1,4 @@
-# The Holdfasts of Faith
+# Sermon 2159 | The Holdfasts of Faith
 
 Sermon No. 2159 - Delivered on Sunday Morning, August 10th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

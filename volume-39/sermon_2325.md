@@ -1,4 +1,4 @@
-# The Far-off, Near--the Near, Far Off
+# Sermon 2325 | The Far-off, Near--the Near, Far Off
 
 (No. 2325)
 

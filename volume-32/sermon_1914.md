@@ -1,4 +1,4 @@
-# Secret Drawings Graciously Explained
+# Sermon 1914 | Secret Drawings Graciously Explained
 
 (No. 1914)
 

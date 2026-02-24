@@ -1,4 +1,4 @@
-# The Marriage of the Lamb
+# Sermon 2096 | The Marriage of the Lamb
 
 Sermon No. 2096 - Delivered on Sunday, July 21, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

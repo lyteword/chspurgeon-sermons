@@ -1,4 +1,4 @@
-# Both Sides of the Shield
+# Sermon 2233 | Both Sides of the Shield
 
 (No. 2233)
 

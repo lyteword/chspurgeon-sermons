@@ -1,4 +1,4 @@
-# Profitable Mixture
+# Sermon 2089 | Profitable Mixture
 
 Sermon No. 2089 - Delivered on Sunday, June 9, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

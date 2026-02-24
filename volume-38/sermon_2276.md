@@ -1,4 +1,4 @@
-# Forgiveness, Freedom, Favor
+# Sermon 2276 | Forgiveness, Freedom, Favor
 
 (No. 2276)
 

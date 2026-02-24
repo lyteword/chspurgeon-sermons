@@ -1,4 +1,4 @@
-# Obedience Rewarded
+# Sermon 2323 | Obedience Rewarded
 
 (No. 2323)
 

@@ -1,4 +1,4 @@
-# Peace--How Gained, How Broken
+# Sermon 2112 | Peace--How Gained, How Broken
 
 Sermon No. 2112 - Delivered on Sunday Morning, October 27th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

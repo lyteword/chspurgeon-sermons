@@ -1,4 +1,4 @@
-# Good Advice For Troublous Times
+# Sermon 2387 | Good Advice For Troublous Times
 
 (No. 2387)
 

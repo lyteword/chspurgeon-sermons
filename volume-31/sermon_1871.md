@@ -1,4 +1,4 @@
-# Love's Transformations--a Communion Meditation
+# Sermon 1871 | Love's Transformations--a Communion Meditation
 
 (No. 1871)
 

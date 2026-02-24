@@ -1,4 +1,4 @@
-# Holy Longings
+# Sermon 2151 | Holy Longings
 
 Sermon No. 2151 - Delivered on Sunday Morning, June 29th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

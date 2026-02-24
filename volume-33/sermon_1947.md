@@ -1,4 +1,4 @@
-# Who Is This?
+# Sermon 1947 | Who Is This?
 
 Sermon No. 1947 - Delivered on Sunday Morning, February 13th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

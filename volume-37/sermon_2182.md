@@ -1,4 +1,4 @@
-# Jehovah-shammah--a Glorious Name for the New Year
+# Sermon 2182 | Jehovah-shammah--a Glorious Name for the New Year
 
 (No. 2182)
 

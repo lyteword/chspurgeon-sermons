@@ -1,4 +1,4 @@
-# Abraham, A Pattern To Believers
+# Sermon 2292 | Abraham, A Pattern To Believers
 
 (No. 2292)
 

@@ -1,4 +1,4 @@
-# The Purging of the Conscience
+# Sermon 1846 | The Purging of the Conscience
 
 (No. 1846)
 

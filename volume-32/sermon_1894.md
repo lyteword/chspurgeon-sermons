@@ -1,4 +1,4 @@
-# The Two Appearings and the Discipline of Grace
+# Sermon 1894 | The Two Appearings and the Discipline of Grace
 
 (No. 1894)
 

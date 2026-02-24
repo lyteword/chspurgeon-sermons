@@ -1,4 +1,4 @@
-# Number Two-thousand--Healing by the Stripes of Jesus
+# Sermon 2000 | Number Two-thousand--Healing by the Stripes of Jesus
 
 Sermon No. 2000 - Delivered on Sunday Morning, January 1st, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

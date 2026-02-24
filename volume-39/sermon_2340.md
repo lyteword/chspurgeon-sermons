@@ -1,4 +1,4 @@
-# The Best Christmas Fare
+# Sermon 2340 | The Best Christmas Fare
 
 (No. 2340)
 

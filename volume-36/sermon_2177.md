@@ -1,4 +1,4 @@
-# Camp Law and Camp Life
+# Sermon 2177 | Camp Law and Camp Life
 
 Sermon No. 2177 - Delivered on Sunday Morning, December 14th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

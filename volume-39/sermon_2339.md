@@ -1,4 +1,4 @@
-# Baptism Essential To Obedience
+# Sermon 2339 | Baptism Essential To Obedience
 
 (No. 2339)
 

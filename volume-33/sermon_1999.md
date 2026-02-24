@@ -1,4 +1,4 @@
-# Small Rain for Tender Herbs
+# Sermon 1999 | Small Rain for Tender Herbs
 
 Sermon No. 1999 - Delivered on Sunday Morning, December 25th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Driving the Vultures Away from the Sacrifice
+# Sermon 1993 | Driving the Vultures Away from the Sacrifice
 
 Sermon No. 1993 - Delivered on Sunday Morning, Novsmber 27th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

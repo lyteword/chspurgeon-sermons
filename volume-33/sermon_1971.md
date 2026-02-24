@@ -1,4 +1,4 @@
-# The Blood Shed For Many
+# Sermon 1971 | The Blood Shed For Many
 
 Sermon No. 1971 - Delivered on Sunday Morning, July 3rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

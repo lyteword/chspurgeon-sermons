@@ -1,4 +1,4 @@
-# Our Compassionate High Priest
+# Sermon 2251 | Our Compassionate High Priest
 
 (No. 2251)
 

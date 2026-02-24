@@ -1,4 +1,4 @@
-# Satan Departing, Angels Ministering
+# Sermon 2326 | Satan Departing, Angels Ministering
 
 (No. 2326)
 

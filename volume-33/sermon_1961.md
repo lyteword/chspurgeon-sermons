@@ -1,4 +1,4 @@
-# S. S.--or, the Sinner Saved
+# Sermon 1961 | S. S.--or, the Sinner Saved
 
 Sermon No. 1961 - Delivered on Sunday Morning, May 1st, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

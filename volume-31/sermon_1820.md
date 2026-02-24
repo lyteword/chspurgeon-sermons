@@ -1,4 +1,4 @@
-# Fallen Angels a Lesson To Fallen Men
+# Sermon 1820 | Fallen Angels a Lesson To Fallen Men
 
 Sermon No. 1820 - Delivered on Delivered the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington.
 (No. 1820)

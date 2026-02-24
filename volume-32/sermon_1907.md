@@ -1,4 +1,4 @@
-# "The Tender Mercy of Our God"
+# Sermon 1907 | "The Tender Mercy of Our God"
 
 Sermon No. 1907 - Delivered on Lord's-day Morning, June 27th, 1886 the REV. C.H. SPURGEON at [8]the Metropolitan Tabernacle, Newington.
 

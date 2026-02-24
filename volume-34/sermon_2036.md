@@ -1,4 +1,4 @@
-# The Whole-Heartedness of God in Blessing His People
+# Sermon 2036 | The Whole-Heartedness of God in Blessing His People
 
 Sermon No. 2036 - Delivered on Sunday Morning, July 29th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Members Of Christ
+# Sermon 2244 | Members Of Christ
 
 (No. 2244)
 

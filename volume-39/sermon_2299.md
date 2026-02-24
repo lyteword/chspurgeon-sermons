@@ -1,4 +1,4 @@
-# Thorns and Thistles
+# Sermon 2299 | Thorns and Thistles
 
 (No. 2299)
 

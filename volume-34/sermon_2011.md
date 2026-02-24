@@ -1,4 +1,4 @@
-# Abram's Call--or, Half-Way--and All the Way
+# Sermon 2011 | Abram's Call--or, Half-Way--and All the Way
 
 Sermon No. 2011 - Delivered on Sunday Morning, February 26th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

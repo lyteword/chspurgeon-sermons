@@ -1,4 +1,4 @@
-# Our Manifesto
+# Sermon 2185 | Our Manifesto
 
 (No. 2185)
 

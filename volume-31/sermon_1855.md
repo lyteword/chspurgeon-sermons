@@ -1,4 +1,4 @@
-# What is the Verdict?
+# Sermon 1855 | What is the Verdict?
 
 (No. 1855)
 

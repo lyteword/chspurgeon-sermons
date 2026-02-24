@@ -1,4 +1,4 @@
-# How "The Unspeakable" is Spoken of
+# Sermon 1828 | How "The Unspeakable" is Spoken of
 
 (No. 1828)
 

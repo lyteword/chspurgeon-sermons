@@ -1,4 +1,4 @@
-# "Christ First, Me Last--Nothing Between But Love"
+# Sermon 2370 | "Christ First, Me Last--Nothing Between But Love"
 
 (No. 2370)
 

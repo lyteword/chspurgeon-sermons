@@ -1,4 +1,4 @@
-# "Living, Loving, Lasting Union"
+# Sermon 2245 | "Living, Loving, Lasting Union"
 
 (No. 2245)
 

@@ -1,4 +1,4 @@
-# The Planter of the Ear Must Hear
+# Sermon 2118 | The Planter of the Ear Must Hear
 
 Sermon No. 2118 - Delivered on Sunday Morning, December 15th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Between the Two Appearings
+# Sermon 2194 | Between the Two Appearings
 
 (No. 2194)
 

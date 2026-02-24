@@ -1,4 +1,4 @@
-# Noah's Faith, Fear, Obedience, and Salvation
+# Sermon 2147 | Noah's Faith, Fear, Obedience, and Salvation
 
 Sermon No. 2147 - Delivered on Sunday Morning, June 1st the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

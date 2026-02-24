@@ -1,4 +1,4 @@
-# Life and Pardon
+# Sermon 2101 | Life and Pardon
 
 Sermon No. 2101 - Delivered on Sunday, August 25, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

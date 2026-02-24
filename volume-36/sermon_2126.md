@@ -1,4 +1,4 @@
-# Something Done for Jesus
+# Sermon 2126 | Something Done for Jesus
 
 Sermon No. 2126 - Delivered on Sunday Morning, January 26th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

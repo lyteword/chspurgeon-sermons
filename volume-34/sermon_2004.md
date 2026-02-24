@@ -1,4 +1,4 @@
-# The Lover of God's Law Filled With Peace
+# Sermon 2004 | The Lover of God's Law Filled With Peace
 
 Sermon No. 2004 - Delivered on Sunday Morning, January 22nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

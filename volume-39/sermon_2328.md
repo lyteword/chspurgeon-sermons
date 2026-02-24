@@ -1,4 +1,4 @@
-# Micah's Message for Today
+# Sermon 2328 | Micah's Message for Today
 
 (No. 2328)
 

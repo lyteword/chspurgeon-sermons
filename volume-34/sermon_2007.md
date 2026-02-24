@@ -1,4 +1,4 @@
-# Holding Fast the Faith
+# Sermon 2007 | Holding Fast the Faith
 
 Sermon No. 2007 - Delivered on Sunday Morning, February 5th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

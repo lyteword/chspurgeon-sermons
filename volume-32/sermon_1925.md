@@ -1,4 +1,4 @@
-# Jesus and the Children
+# Sermon 1925 | Jesus and the Children
 
 (No. 1925)
 

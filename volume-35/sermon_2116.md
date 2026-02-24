@@ -1,4 +1,4 @@
-# The Unchanging God Cheering Jacob in His Change of Dwelling Place
+# Sermon 2116 | The Unchanging God Cheering Jacob in His Change of Dwelling Place
 
 Sermon No. 2116 - Delivered on Sunday Morning, December 1st, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

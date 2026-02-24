@@ -1,4 +1,4 @@
-# Exceeding Gladness
+# Sermon 1827 | Exceeding Gladness
 
 (No. 1827)
 

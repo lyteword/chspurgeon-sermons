@@ -1,4 +1,4 @@
-# "Lo, I Come"--Exposition
+# Sermon 2202 | "Lo, I Come"--Exposition
 
 (No. 2202)
 

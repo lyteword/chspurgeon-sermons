@@ -1,4 +1,4 @@
-# "Where Are The Nine?"--or, Praise Neglected
+# Sermon 1935 | "Where Are The Nine?"--or, Praise Neglected
 
 (No. 1935)
 

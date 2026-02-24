@@ -1,4 +1,4 @@
-# The Shining of the Face of Moses
+# Sermon 2143 | The Shining of the Face of Moses
 
 Sermon No. 2143 - Delivered on Sunday Morning, May 18th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

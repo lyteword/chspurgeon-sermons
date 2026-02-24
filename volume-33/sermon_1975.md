@@ -1,4 +1,4 @@
-# The Covenanter
+# Sermon 1975 | The Covenanter
 
 Sermon No. 1975 - Delivered on Sunday Morning, July 31st, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

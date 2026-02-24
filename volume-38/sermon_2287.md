@@ -1,4 +1,4 @@
-# "If There Is No Resurrection"
+# Sermon 2287 | "If There Is No Resurrection"
 
 (No. 2287)
 

@@ -1,4 +1,4 @@
-# The True Tabernacle, and Its Glory of Grace and Peace
+# Sermon 1862 | The True Tabernacle, and Its Glory of Grace and Peace
 
 Sermon No. 1862 - Delivered on Lord's-day Morning, September 27th, 1885 the REV. C.H. SPURGEON at [16]the Metropolitan Tabernacle, Newington.
 

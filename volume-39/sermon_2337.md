@@ -1,4 +1,4 @@
-# The Physician Pardons His Palsied Patient
+# Sermon 2337 | The Physician Pardons His Palsied Patient
 
 (No. 2337)
 

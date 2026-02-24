@@ -1,4 +1,4 @@
-# Sermon for New Year's-Day
+# Sermon 1816 | Sermon for New Year's-Day
 
 Sermon No. 1816 - Delivered on Thursday Evening, January 1st, 1885 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1816)

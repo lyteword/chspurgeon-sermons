@@ -1,4 +1,4 @@
-# Delight in the Almighty
+# Sermon 1839 | Delight in the Almighty
 
 (No. 1839)
 

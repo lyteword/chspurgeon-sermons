@@ -1,4 +1,4 @@
-# A Poor Man's Cry--and What Came Of It
+# Sermon 2193 | A Poor Man's Cry--and What Came Of It
 
 (No. 2193)
 

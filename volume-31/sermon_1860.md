@@ -1,4 +1,4 @@
-# "Behold, He Prays"
+# Sermon 1860 | "Behold, He Prays"
 
 (No. 1860)
 

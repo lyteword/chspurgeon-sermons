@@ -1,4 +1,4 @@
-# Breakfast With Jesus
+# Sermon 2072 | Breakfast With Jesus
 
 Sermon No. 2072 - Delivered on Sunday, February 24th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

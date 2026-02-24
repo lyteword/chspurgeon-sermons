@@ -1,4 +1,4 @@
-# Our Lord's Entrance Within the Veil
+# Sermon 2075 | Our Lord's Entrance Within the Veil
 
 Sermon No. 2075 - Delivered on Sunday, March 17th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

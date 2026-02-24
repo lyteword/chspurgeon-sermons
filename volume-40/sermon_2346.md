@@ -1,4 +1,4 @@
-# Earth's Vanities and Heaven's Verities
+# Sermon 2346 | Earth's Vanities and Heaven's Verities
 
 (No. 2346)
 

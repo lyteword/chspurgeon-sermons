@@ -1,4 +1,4 @@
-# Belief, Baptism, Blessing
+# Sermon 2275 | Belief, Baptism, Blessing
 
 (No. 2275)
 

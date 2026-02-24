@@ -1,4 +1,4 @@
-# Peter's Blunder--a Lesson for Ourselves
+# Sermon 1823 | Peter's Blunder--a Lesson for Ourselves
 
 (No. 1823)
 

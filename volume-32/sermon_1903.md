@@ -1,4 +1,4 @@
-# Who Found It Out?
+# Sermon 1903 | Who Found It Out?
 
 (No. 1903)
 

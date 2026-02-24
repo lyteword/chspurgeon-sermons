@@ -1,4 +1,4 @@
-# Believers Sent by Christ, As Christ Is Sent By the Father
+# Sermon 2144 | Believers Sent by Christ, As Christ Is Sent By the Father
 
 Sermon No. 2144 - Delivered on Sunday Morning, May 11th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

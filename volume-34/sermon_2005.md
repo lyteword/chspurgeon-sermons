@@ -1,4 +1,4 @@
-# The Hairs of Your Head Numbered
+# Sermon 2005 | The Hairs of Your Head Numbered
 
 Sermon No. 2005 - Delivered on 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

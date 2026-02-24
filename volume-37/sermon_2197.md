@@ -1,4 +1,4 @@
-# Christ's Resurrection and Our Newness Of Life
+# Sermon 2197 | Christ's Resurrection and Our Newness Of Life
 
 (No. 2197)
 

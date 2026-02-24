@@ -1,4 +1,4 @@
-# Harvest Joy
+# Sermon 2265 | Harvest Joy
 
 (No. 2265)
 

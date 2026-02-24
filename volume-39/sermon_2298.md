@@ -1,4 +1,4 @@
-# The Christ-Given Rest
+# Sermon 2298 | The Christ-Given Rest
 
 (No. 2298)
 

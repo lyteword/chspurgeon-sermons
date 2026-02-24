@@ -1,4 +1,4 @@
-# The Blind Beggar of the Temple and His Wonderful Cure
+# Sermon 1977 | The Blind Beggar of the Temple and His Wonderful Cure
 
 Sermon No. 1977 - Delivered on Sunday Morning, August 14th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

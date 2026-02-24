@@ -1,4 +1,4 @@
-# Eternal Life Within Present Grasp
+# Sermon 1946 | Eternal Life Within Present Grasp
 
 Sermon No. 1946 - Delivered on Sunday Morning, February 6th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

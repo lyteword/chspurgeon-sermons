@@ -1,4 +1,4 @@
-# Healing and Pardon
+# Sermon 1905 | Healing and Pardon
 
 (No. 1905)
 

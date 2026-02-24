@@ -1,4 +1,4 @@
-# Our Great Shepherd Finding the Sheep
+# Sermon 2065 | Our Great Shepherd Finding the Sheep
 
 Sermon No. 2065 - Delivered on Sunday, January 27th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

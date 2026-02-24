@@ -1,4 +1,4 @@
-# The Mediator'The Interpreter
+# Sermon 2097 | The Mediator'The Interpreter
 
 Sermon No. 2097 - Delivered on Lord's-day Morning, July 28th, 1889 the REV. C.H. SPURGEON at [5]the Metropolitan Tabernacle, Newington.
 

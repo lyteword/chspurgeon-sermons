@@ -1,4 +1,4 @@
-# Blinded By Satan
+# Sermon 2304 | Blinded By Satan
 
 (No. 2304)
 

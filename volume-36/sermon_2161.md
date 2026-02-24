@@ -1,4 +1,4 @@
-# Self Low, But Christ High
+# Sermon 2161 | Self Low, But Christ High
 
 Sermon No. 2161 - Delivered on Sunday Morning, August 31 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

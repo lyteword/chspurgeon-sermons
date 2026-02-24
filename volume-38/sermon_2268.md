@@ -1,4 +1,4 @@
-# A Question for Communicants
+# Sermon 2268 | A Question for Communicants
 
 (No. 2268)
 

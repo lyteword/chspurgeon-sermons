@@ -1,4 +1,4 @@
-# Idols Found Wanting, But Jehovah Found Faithful
+# Sermon 2056 | Idols Found Wanting, But Jehovah Found Faithful
 
 Sermon No. 2056 - Delivered on Thursday Evening, September 27th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

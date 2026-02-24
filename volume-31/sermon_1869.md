@@ -1,4 +1,4 @@
-# Hagar at the Fountain
+# Sermon 1869 | Hagar at the Fountain
 
 (No. 1869)
 

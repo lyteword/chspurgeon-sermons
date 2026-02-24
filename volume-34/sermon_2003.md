@@ -1,4 +1,4 @@
-# Young Man, Is This For You?
+# Sermon 2003 | Young Man, Is This For You?
 
 Sermon No. 2003 - Delivered on Sunday Morning, January 15th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

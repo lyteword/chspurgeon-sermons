@@ -1,4 +1,4 @@
-# Why Is Faith So Feeble?
+# Sermon 1964 | Why Is Faith So Feeble?
 
 Sermon No. 1964 - Delivered on Sunday Morning, May 22nd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

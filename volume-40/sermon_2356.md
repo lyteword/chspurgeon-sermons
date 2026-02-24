@@ -1,4 +1,4 @@
-# The Truth Of God's Salvation
+# Sermon 2356 | The Truth Of God's Salvation
 
 (No. 2356)
 

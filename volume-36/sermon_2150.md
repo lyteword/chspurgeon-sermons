@@ -1,4 +1,4 @@
-# "All the Day Long"
+# Sermon 2150 | "All the Day Long"
 
 Sermon No. 2150 - Delivered on Sunday Morning, June 22nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

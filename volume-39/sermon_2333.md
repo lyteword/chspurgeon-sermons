@@ -1,4 +1,4 @@
-# The Whole Band Against Christ
+# Sermon 2333 | The Whole Band Against Christ
 
 (No. 2333)
 

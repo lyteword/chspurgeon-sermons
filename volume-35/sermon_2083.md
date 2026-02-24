@@ -1,4 +1,4 @@
-# One Lost Sheep
+# Sermon 2083 | One Lost Sheep
 
 Sermon No. 2083 - Delivered on Sunday, April 28th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

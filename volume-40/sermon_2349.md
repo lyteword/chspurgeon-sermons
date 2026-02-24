@@ -1,4 +1,4 @@
-# All Comers To Christ Welcomed
+# Sermon 2349 | All Comers To Christ Welcomed
 
 (No. 2349)
 

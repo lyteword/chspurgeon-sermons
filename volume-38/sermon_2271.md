@@ -1,4 +1,4 @@
-# Alone, Yet Not Alone
+# Sermon 2271 | Alone, Yet Not Alone
 
 (No. 2271)
 

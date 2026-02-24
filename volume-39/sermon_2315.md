@@ -1,4 +1,4 @@
-# Paul Apprehended and Apprehending
+# Sermon 2315 | Paul Apprehended and Apprehending
 
 (No. 2315)
 

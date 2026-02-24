@@ -1,4 +1,4 @@
-# A Proclamation from the King of Kings
+# Sermon 1833 | A Proclamation from the King of Kings
 
 (No. 1833)
 

@@ -1,4 +1,4 @@
-# "Your Rowers Have Brought You Into Great Waters"
+# Sermon 1933 | "Your Rowers Have Brought You Into Great Waters"
 
 (No. 1933)
 

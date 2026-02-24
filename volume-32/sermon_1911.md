@@ -1,4 +1,4 @@
-# Hideous Discovery
+# Sermon 1911 | Hideous Discovery
 
 (No. 1911)
 

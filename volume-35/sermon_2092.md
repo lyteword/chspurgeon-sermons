@@ -1,4 +1,4 @@
-# God's Own Gospel Call
+# Sermon 2092 | God's Own Gospel Call
 
 Sermon No. 2092 - Delivered on Sunday, June 30, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

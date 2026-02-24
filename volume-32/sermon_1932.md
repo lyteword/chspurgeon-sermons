@@ -1,4 +1,4 @@
-# Love's Law and Life
+# Sermon 1932 | Love's Law and Life
 
 (No. 1932)
 

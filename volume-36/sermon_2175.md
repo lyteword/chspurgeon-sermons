@@ -1,4 +1,4 @@
-# "So It Is"
+# Sermon 2175 | "So It Is"
 
 Sermon No. 2175 - Delivered on Sunday Morning, November 30th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

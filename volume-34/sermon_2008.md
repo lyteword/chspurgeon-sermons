@@ -1,4 +1,4 @@
-# The Lord And The Leper
+# Sermon 2008 | The Lord And The Leper
 
 Sermon No. 2008 - Delivered on Lord's-day Morning, February 12th, 1888 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 

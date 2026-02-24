@@ -1,4 +1,4 @@
-# The Man Christ Jesus
+# Sermon 1835 | The Man Christ Jesus
 
 Sermon No. 1835 - Delivered on Lord's Day Morning, April 12th, 1885 the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Christ's One Sacrifice for Sin
+# Sermon 2283 | Christ's One Sacrifice for Sin
 
 (No. 2283)
 

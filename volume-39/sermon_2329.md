@@ -1,4 +1,4 @@
-# The Lamb Of God In Scripture
+# Sermon 2329 | The Lamb Of God In Scripture
 
 (No. 2329)
 

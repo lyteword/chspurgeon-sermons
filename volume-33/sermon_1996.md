@@ -1,4 +1,4 @@
-# Public Testimony--a Debt To God and Man
+# Sermon 1996 | Public Testimony--a Debt To God and Man
 
 Sermon No. 1996 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Dream of the Barley Cake
+# Sermon 1873 | The Dream of the Barley Cake
 
 (No. 1873)
 

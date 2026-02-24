@@ -1,4 +1,4 @@
-# Grace Abounding Over Abounding Sin
+# Sermon 2012 | Grace Abounding Over Abounding Sin
 
 Sermon No. 2012 - Delivered on Sunday Morning, March 4th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

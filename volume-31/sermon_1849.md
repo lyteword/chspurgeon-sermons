@@ -1,4 +1,4 @@
-# Coming Judgment of the Secrets of Men
+# Sermon 1849 | Coming Judgment of the Secrets of Men
 
 Sermon No. 1849 - Delivered on Lord's Day Morning, July 12th, 1885 the REV. C.H. SPURGEON at the [13]Metropolitan Tabernacle, Newington.
 

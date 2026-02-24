@@ -1,4 +1,4 @@
-# The Obedience of Faith
+# Sermon 2195 | The Obedience of Faith
 
 (No. 2195)
 

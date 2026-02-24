@@ -1,4 +1,4 @@
-# The Singular Origin of a Christian
+# Sermon 1829 | The Singular Origin of a Christian
 
 (No. 1829)
 

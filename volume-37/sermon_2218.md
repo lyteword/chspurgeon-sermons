@@ -1,4 +1,4 @@
-# "Is the Spirit of the Lord Straitened?"
+# Sermon 2218 | "Is the Spirit of the Lord Straitened?"
 
 (No. 2218)
 

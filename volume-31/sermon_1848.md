@@ -1,4 +1,4 @@
-# The Looking Glass
+# Sermon 1848 | The Looking Glass
 
 (No. 1848)
 

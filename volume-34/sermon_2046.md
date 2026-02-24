@@ -1,4 +1,4 @@
-# Consolation From Resurrection
+# Sermon 2046 | Consolation From Resurrection
 
 Sermon No. 2046 - Delivered on Sunday Morning, September 30th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

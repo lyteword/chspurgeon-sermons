@@ -1,4 +1,4 @@
-# The Sunday School and the Scriptures
+# Sermon 1866 | The Sunday School and the Scriptures
 
 (No. 1866)
 

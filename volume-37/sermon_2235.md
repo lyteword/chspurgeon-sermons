@@ -1,4 +1,4 @@
-# A Warrant for Your Apprehension
+# Sermon 2235 | A Warrant for Your Apprehension
 
 (No. 2235)
 

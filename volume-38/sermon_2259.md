@@ -1,4 +1,4 @@
-# The Simplicity and Sublimity of Salvation
+# Sermon 2259 | The Simplicity and Sublimity of Salvation
 
 (No. 2259)
 

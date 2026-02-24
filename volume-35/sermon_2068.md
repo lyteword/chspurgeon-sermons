@@ -1,4 +1,4 @@
-# Nathanael--the Man Needed for the Day
+# Sermon 2068 | Nathanael--the Man Needed for the Day
 
 Sermon No. 2068 - Delivered on 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

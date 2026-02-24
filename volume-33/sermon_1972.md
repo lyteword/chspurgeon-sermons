@@ -1,4 +1,4 @@
-# A Bit of History for Old and Young
+# Sermon 1972 | A Bit of History for Old and Young
 
 Sermon No. 1972 - Delivered on Sunday Morning, July 10th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

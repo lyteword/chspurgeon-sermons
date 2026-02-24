@@ -1,4 +1,4 @@
-# The Lord No More Angry with His People
+# Sermon 2176 | The Lord No More Angry with His People
 
 Sermon No. 2176 - Delivered on Sunday Morning, December 7th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

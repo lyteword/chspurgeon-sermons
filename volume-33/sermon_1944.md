@@ -1,4 +1,4 @@
-# Might Have Been, or May Be
+# Sermon 1944 | Might Have Been, or May Be
 
 Sermon No. 1944 - Delivered on Sunday Afternoon, January 30th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

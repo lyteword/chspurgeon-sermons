@@ -1,4 +1,4 @@
-# Simeon's Swan Song
+# Sermon 2293 | Simeon's Swan Song
 
 (No. 2293)
 

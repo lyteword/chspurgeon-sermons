@@ -1,4 +1,4 @@
-# Our Lord's Triumphant Ascension
+# Sermon 2142 | Our Lord's Triumphant Ascension
 
 Sermon No. 2142 - Delivered on Sunday Morning, May 11th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

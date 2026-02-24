@@ -1,4 +1,4 @@
-# Two "I Wills" In Isaiah 41
+# Sermon 2270 | Two "I Wills" In Isaiah 41
 
 (No. 2270)
 

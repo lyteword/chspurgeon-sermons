@@ -1,4 +1,4 @@
-# The Lord's Own Salvation
+# Sermon 2057 | The Lord's Own Salvation
 
 Sermon No. 2057 - Delivered on Thursday Evening, August 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# A Gracious Dismissal
+# Sermon 2183 | A Gracious Dismissal
 
 (No. 2183)
 

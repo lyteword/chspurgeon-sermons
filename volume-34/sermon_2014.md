@@ -1,4 +1,4 @@
-# As We Have Heard, So Have We Seen
+# Sermon 2014 | As We Have Heard, So Have We Seen
 
 Sermon No. 2014 - Delivered on Sunday Morning, March 18th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

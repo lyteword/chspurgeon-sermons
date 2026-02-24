@@ -1,4 +1,4 @@
-# God Rejoicing in the New Creation
+# Sermon 2211 | God Rejoicing in the New Creation
 
 (No. 2211)
 

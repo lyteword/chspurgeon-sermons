@@ -1,4 +1,4 @@
-# The Preacher's Last Sermon for the Season
+# Sermon 1875 | The Preacher's Last Sermon for the Season
 
 (No. 1875)
 

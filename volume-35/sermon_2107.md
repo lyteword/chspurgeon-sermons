@@ -1,4 +1,4 @@
-# The Withered Fig Tree
+# Sermon 2107 | The Withered Fig Tree
 
 Sermon No. 2107 - Delivered on Lord's-day Morning, September 29th, 1889 the REV. C.H. SPURGEON at the [7]Metropolitan Tabernacle, Newington.
 

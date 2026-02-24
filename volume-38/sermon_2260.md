@@ -1,4 +1,4 @@
-# Christ's Hospital
+# Sermon 2260 | Christ's Hospital
 
 (No. 2260)
 

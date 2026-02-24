@@ -1,4 +1,4 @@
-# Divine Forgiveness Admired and Imitated
+# Sermon 1841 | Divine Forgiveness Admired and Imitated
 
 (No. 1841)
 

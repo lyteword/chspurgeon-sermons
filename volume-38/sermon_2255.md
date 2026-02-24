@@ -1,4 +1,4 @@
-# God Justified, Though Man Believes Not
+# Sermon 2255 | God Justified, Though Man Believes Not
 
 (No. 2255)
 

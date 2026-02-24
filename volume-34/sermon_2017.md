@@ -1,4 +1,4 @@
-# David's Spoil
+# Sermon 2017 | David's Spoil
 
 Sermon No. 2017 - Delivered on Sunday Morning, April 15th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

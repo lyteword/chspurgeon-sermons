@@ -1,4 +1,4 @@
-# The History of Sundry Fools
+# Sermon 1824 | The History of Sundry Fools
 
 Sermon No. 1824 - Delivered on Delivered the REV. C.H. SPURGEON at the [7]Metropolitan Tabernacle, Newington.
 (No. 1824)

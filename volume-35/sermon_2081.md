@@ -1,4 +1,4 @@
-# Truth Stranger Than Fiction
+# Sermon 2081 | Truth Stranger Than Fiction
 
 Sermon No. 2081 - Delivered on Sunday, May 30th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Lord's Chosen Ministers
+# Sermon 2319 | The Lord's Chosen Ministers
 
 (No. 2319)
 

@@ -1,4 +1,4 @@
-# The Pastor's Joy and Confidence
+# Sermon 2154 | The Pastor's Joy and Confidence
 
 Sermon No. 2154 - Delivered on Sunday Morning, July 13th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

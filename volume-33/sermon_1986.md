@@ -1,4 +1,4 @@
-# The Child Of Light Walking In Light
+# Sermon 1986 | The Child Of Light Walking In Light
 
 Sermon No. 1986 - Delivered on Sunday Morning, October 2nd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

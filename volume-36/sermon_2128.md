@@ -1,4 +1,4 @@
-# Heaven Above and Heaven Below
+# Sermon 2128 | Heaven Above and Heaven Below
 
 Sermon No. 2128 - Delivered on Sunday Morning, February 2nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

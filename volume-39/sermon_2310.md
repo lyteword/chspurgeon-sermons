@@ -1,4 +1,4 @@
-# Howling Changed To Singing
+# Sermon 2310 | Howling Changed To Singing
 
 (No. 2310)
 

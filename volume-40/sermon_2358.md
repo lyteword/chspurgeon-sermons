@@ -1,4 +1,4 @@
-# The Unchangeable Christ
+# Sermon 2358 | The Unchangeable Christ
 
 (No. 2358)
 

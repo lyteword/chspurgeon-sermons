@@ -1,4 +1,4 @@
-# Immanuel--The Light of Life
+# Sermon 2163 | Immanuel--The Light of Life
 
 Sermon No. 2163 - Delivered on Sunday Morning, September 14th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

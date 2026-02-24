@@ -1,4 +1,4 @@
-# Come From the Four Winds, O Breath!
+# Sermon 2246 | Come From the Four Winds, O Breath!
 
 (No. 2246)
 

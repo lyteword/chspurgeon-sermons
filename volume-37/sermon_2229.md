@@ -1,4 +1,4 @@
-# God's Glorious and Everlasting Name
+# Sermon 2229 | God's Glorious and Everlasting Name
 
 (No. 2229)
 

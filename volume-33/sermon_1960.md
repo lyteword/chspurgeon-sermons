@@ -1,4 +1,4 @@
-# The Servants and the Pounds
+# Sermon 1960 | The Servants and the Pounds
 
 Sermon No. 1960 - Delivered on Sunday Morning, April 24th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

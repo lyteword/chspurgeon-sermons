@@ -1,4 +1,4 @@
-# Untitled Sermon
+# Sermon 1867 | Untitled Sermon
 
 (No. 1867)
 

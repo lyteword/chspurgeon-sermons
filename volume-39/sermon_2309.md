@@ -1,4 +1,4 @@
-# God's Works Made Manifest
+# Sermon 2309 | God's Works Made Manifest
 
 (No. 2309)
 

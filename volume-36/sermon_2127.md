@@ -1,4 +1,4 @@
-# Love's Competition
+# Sermon 2127 | Love's Competition
 
 Sermon No. 2127 - Delivered on Sunday Evening, February 2nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

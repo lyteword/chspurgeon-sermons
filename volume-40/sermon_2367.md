@@ -1,4 +1,4 @@
-# God's Hidden Ones
+# Sermon 2367 | God's Hidden Ones
 
 (No. 2367)
 

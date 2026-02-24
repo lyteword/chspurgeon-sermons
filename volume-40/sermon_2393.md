@@ -1,4 +1,4 @@
-# A Comforting Message for the Closing Year
+# Sermon 2393 | A Comforting Message for the Closing Year
 
 (No. 2393)
 

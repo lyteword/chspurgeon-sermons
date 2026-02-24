@@ -1,4 +1,4 @@
-# Departed Saints Yet Living
+# Sermon 1863 | Departed Saints Yet Living
 
 (No. 1863)
 

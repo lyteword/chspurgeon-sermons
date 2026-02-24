@@ -1,4 +1,4 @@
-# The Good Ananias--a Lesson for Believers
+# Sermon 1838 | The Good Ananias--a Lesson for Believers
 
 (No. 1838)
 

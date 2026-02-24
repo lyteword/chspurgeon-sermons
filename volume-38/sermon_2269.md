@@ -1,4 +1,4 @@
-# Impotence and Omnipotence
+# Sermon 2269 | Impotence and Omnipotence
 
 (No. 2269)
 

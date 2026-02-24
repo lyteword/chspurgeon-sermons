@@ -1,4 +1,4 @@
-# The Rough Hewer
+# Sermon 2134 | The Rough Hewer
 
 Sermon No. 2134 - Delivered on Sunday Morning, March 9th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

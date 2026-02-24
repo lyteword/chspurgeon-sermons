@@ -1,4 +1,4 @@
-# The Problem of the Age
+# Sermon 1885 | The Problem of the Age
 
 (No. 1885)
 

@@ -1,4 +1,4 @@
-# Loved and Washed
+# Sermon 2230 | Loved and Washed
 
 (No. 2230)
 

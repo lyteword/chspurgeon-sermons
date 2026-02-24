@@ -1,4 +1,4 @@
-# The Bible Tried and Proved
+# Sermon 2084 | The Bible Tried and Proved
 
 Sermon No. 2084 - Delivered on Sunday, May 5th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

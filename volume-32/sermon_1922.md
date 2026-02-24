@@ -1,4 +1,4 @@
-# Concerning Death
+# Sermon 1922 | Concerning Death
 
 (No. 1922)
 

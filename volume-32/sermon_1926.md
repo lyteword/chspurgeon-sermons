@@ -1,4 +1,4 @@
-# Love's Complaining
+# Sermon 1926 | Love's Complaining
 
 Sermon No. 1926 - Delivered on Lord's-day Morning, October 24th, 1886 the REV. C.H. SPURGEON at the [12]Metropolitan Tabernacle, Newington.
 

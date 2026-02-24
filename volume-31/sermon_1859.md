@@ -1,4 +1,4 @@
-# The Cross Our Glory
+# Sermon 1859 | The Cross Our Glory
 
 (No. 1859)
 

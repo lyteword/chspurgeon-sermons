@@ -1,4 +1,4 @@
-# The Trial of Your Faith
+# Sermon 2055 | The Trial of Your Faith
 
 Sermon No. 2055 - Delivered on Sunday Morning, December 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

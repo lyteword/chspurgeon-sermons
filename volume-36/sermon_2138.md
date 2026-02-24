@@ -1,4 +1,4 @@
-# The Shank-bone Sermon--Or, True Believers and Their Helpers
+# Sermon 2138 | The Shank-bone Sermon--Or, True Believers and Their Helpers
 
 Sermon No. 2138 - Delivered on Sunday Morning, April 13th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Empty Place--a Christmas Day Sermon
+# Sermon 2288 | The Empty Place--a Christmas Day Sermon
 
 (No. 2288)
 

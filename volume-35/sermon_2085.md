@@ -1,4 +1,4 @@
-# A Dirge for the Down-grade and a Song For Faith
+# Sermon 2085 | A Dirge for the Down-grade and a Song For Faith
 
 Sermon No. 2085 - Delivered on Sunday, April 18th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

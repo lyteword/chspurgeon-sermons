@@ -1,4 +1,4 @@
-# Taking Possession Of Our Inheritance
+# Sermon 2086 | Taking Possession Of Our Inheritance
 
 Sermon No. 2086 - Delivered on Sunday, May 12th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

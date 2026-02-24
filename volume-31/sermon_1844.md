@@ -1,4 +1,4 @@
-# Israel And Britain. A Note of Warning
+# Sermon 1844 | Israel And Britain. A Note of Warning
 
 Sermon No. 1844 - Delivered on Lord's Day Morning, June 7th, 1885 the REV. C.H. SPURGEON at the [12]Metropolitan Tabernacle, Newington.
 

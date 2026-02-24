@@ -1,4 +1,4 @@
-# A Discourse to the Despairing
+# Sermon 2379 | A Discourse to the Despairing
 
 (No. 2379)
 

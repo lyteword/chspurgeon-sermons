@@ -1,4 +1,4 @@
-# "He Comes With Clouds"
+# Sermon 1989 | "He Comes With Clouds"
 
 Sermon No. 1989 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

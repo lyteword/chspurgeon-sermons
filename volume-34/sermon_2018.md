@@ -1,4 +1,4 @@
-# Cured At Last!
+# Sermon 2018 | Cured At Last!
 
 Sermon No. 2018 - Delivered on Sunday Morning, April 8th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

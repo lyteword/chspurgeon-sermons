@@ -1,4 +1,4 @@
-# Joy Hindering Faith
+# Sermon 2279 | Joy Hindering Faith
 
 (No. 2279)
 

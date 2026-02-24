@@ -1,4 +1,4 @@
-# An Ancient Question Modernized
+# Sermon 2286 | An Ancient Question Modernized
 
 (No. 2286)
 

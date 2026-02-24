@@ -1,4 +1,4 @@
-# Obeying Christ's Orders
+# Sermon 2317 | Obeying Christ's Orders
 
 (No. 2317)
 

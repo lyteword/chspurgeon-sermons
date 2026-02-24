@@ -1,4 +1,4 @@
-# To Lovers of Jesus--an Example
+# Sermon 1834 | To Lovers of Jesus--an Example
 
 (No. 1834)
 

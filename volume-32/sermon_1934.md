@@ -1,4 +1,4 @@
-# "And We Are"--a Jewel from the Revised Version
+# Sermon 1934 | "And We Are"--a Jewel from the Revised Version
 
 (No. 1934)
 

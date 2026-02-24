@@ -1,4 +1,4 @@
-# The Census of Israel
+# Sermon 2198 | The Census of Israel
 
 (No. 2198)
 

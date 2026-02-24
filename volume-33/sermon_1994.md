@@ -1,4 +1,4 @@
-# Sweet Peace For Tried Believers
+# Sermon 1994 | Sweet Peace For Tried Believers
 
 Sermon No. 1994 - Delivered on Sunday Morning, December 4th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

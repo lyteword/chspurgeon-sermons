@@ -1,4 +1,4 @@
-# Mouth and Heart
+# Sermon 1898 | Mouth and Heart
 
 (No. 1898)
 

@@ -1,4 +1,4 @@
-# Believers as Blessed as the Blessed Virgin
+# Sermon 1920 | Believers as Blessed as the Blessed Virgin
 
 (No. 1920)
 

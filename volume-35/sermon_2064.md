@@ -1,4 +1,4 @@
-# Essential Points In Prayer
+# Sermon 2064 | Essential Points In Prayer
 
 Sermon No. 2064 - Delivered on Sunday, January 20th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

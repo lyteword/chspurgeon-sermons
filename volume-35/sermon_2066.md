@@ -1,4 +1,4 @@
-# Our Place--at Jesus' Feet
+# Sermon 2066 | Our Place--at Jesus' Feet
 
 Sermon No. 2066 - Delivered on Sunday Evening, June 8th, 1879 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

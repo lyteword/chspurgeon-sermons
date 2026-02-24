@@ -1,4 +1,4 @@
-# Our Ascended Lord
+# Sermon 1928 | Our Ascended Lord
 
 (No. 1928)
 

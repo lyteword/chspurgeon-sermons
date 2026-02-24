@@ -1,4 +1,4 @@
-# Three Important Precepts
+# Sermon 2152 | Three Important Precepts
 
 Sermon No. 2152 - Delivered on Sunday Evening, June 22nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

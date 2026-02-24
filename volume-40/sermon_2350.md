@@ -1,4 +1,4 @@
-# "Take, Eat"
+# Sermon 2350 | "Take, Eat"
 
 (No. 2350)
 

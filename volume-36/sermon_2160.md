@@ -1,4 +1,4 @@
-# Not Sufficient and Yet Sufficient
+# Sermon 2160 | Not Sufficient and Yet Sufficient
 
 Sermon No. 2160 - Delivered on Sunday Morning, August 24th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

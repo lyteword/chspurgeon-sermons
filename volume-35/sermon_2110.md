@@ -1,4 +1,4 @@
-# The Mustard Seed: A Sermon for the Sabbath-School Teacher
+# Sermon 2110 | The Mustard Seed: A Sermon for the Sabbath-School Teacher
 
 Sermon No. 2110 - Delivered on Lord's-day Morning, October 20th, 1889 the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
 

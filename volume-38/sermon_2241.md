@@ -1,4 +1,4 @@
-# A Stanza of Deliverance
+# Sermon 2241 | A Stanza of Deliverance
 
 (No. 2241)
 

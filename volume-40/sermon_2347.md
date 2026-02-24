@@ -1,4 +1,4 @@
-# The Lord's Famous Titles
+# Sermon 2347 | The Lord's Famous Titles
 
 (No. 2347)
 

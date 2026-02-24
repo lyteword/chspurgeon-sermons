@@ -1,4 +1,4 @@
-# "Lay Hold on Eternal Life!"
+# Sermon 2226 | "Lay Hold on Eternal Life!"
 
 (No. 2226)
 

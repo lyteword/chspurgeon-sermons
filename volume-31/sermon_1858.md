@@ -1,4 +1,4 @@
-# God Our Continual Resort
+# Sermon 1858 | God Our Continual Resort
 
 (No. 1858)
 

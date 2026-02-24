@@ -1,4 +1,4 @@
-# A Lesson and a Fortune for Christian Men of Business
+# Sermon 1880 | A Lesson and a Fortune for Christian Men of Business
 
 (No. 1880)
 

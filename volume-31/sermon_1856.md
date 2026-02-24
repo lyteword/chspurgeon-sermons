@@ -1,4 +1,4 @@
-# The History of Little-Faith
+# Sermon 1856 | The History of Little-Faith
 
 (No. 1856)
 

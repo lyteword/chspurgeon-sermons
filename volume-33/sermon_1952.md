@@ -1,4 +1,4 @@
-# The Holy Spirit--the Need of the Age
+# Sermon 1952 | The Holy Spirit--the Need of the Age
 
 Sermon No. 1952 - Delivered on Sunday Morning, March 13th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# A Life-Long Occupation
+# Sermon 2048 | A Life-Long Occupation
 
 Sermon No. 2048 - Delivered on Sunday Morning, October 14th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

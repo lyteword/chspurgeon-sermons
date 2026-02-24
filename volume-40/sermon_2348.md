@@ -1,4 +1,4 @@
-# The Lord Leading--David Following
+# Sermon 2348 | The Lord Leading--David Following
 
 (No. 2348)
 

@@ -1,4 +1,4 @@
-# Faint--but Not Faint-Hearted
+# Sermon 2343 | Faint--but Not Faint-Hearted
 
 (No. 2343)
 

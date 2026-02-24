@@ -1,4 +1,4 @@
-# The Sermon of the Seasons
+# Sermon 1891 | The Sermon of the Seasons
 
 Sermon No. 1891 - Delivered on Lord's-day Morning, March 14th, 1886 the REV. C.H. SPURGEON at [4]the Metropolitan Tabernacle, Newington.
 

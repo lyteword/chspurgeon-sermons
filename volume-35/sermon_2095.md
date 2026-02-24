@@ -1,4 +1,4 @@
-# The Lamb In Glory
+# Sermon 2095 | The Lamb In Glory
 
 Sermon No. 2095 - Delivered on Sunday, July 14, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

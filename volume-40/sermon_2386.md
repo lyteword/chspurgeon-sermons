@@ -1,4 +1,4 @@
-# The Drawings Of Divine Love
+# Sermon 2386 | The Drawings Of Divine Love
 
 (No. 2386)
 

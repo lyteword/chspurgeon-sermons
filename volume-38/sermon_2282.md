@@ -1,4 +1,4 @@
-# David's Prayer in the Cave
+# Sermon 2282 | David's Prayer in the Cave
 
 (No. 2282)
 

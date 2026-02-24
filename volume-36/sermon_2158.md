@@ -1,4 +1,4 @@
-# Christ's Testimony Received
+# Sermon 2158 | Christ's Testimony Received
 
 Sermon No. 2158 - Delivered on Sunday Morning, August 10th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

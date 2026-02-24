@@ -1,4 +1,4 @@
-# The Sluggard's Farm
+# Sermon 2027 | The Sluggard's Farm
 
 Sermon No. 2027 - Delivered on Sunday Morning, June 3rd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

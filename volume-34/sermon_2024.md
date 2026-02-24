@@ -1,4 +1,4 @@
-# What Is the Wedding Garment?
+# Sermon 2024 | What Is the Wedding Garment?
 
 Sermon No. 2024 - Delivered on Sunday Morning, May 20th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

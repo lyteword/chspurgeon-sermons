@@ -1,4 +1,4 @@
-# Crossing the Jordan
+# Sermon 2039 | Crossing the Jordan
 
 Sermon No. 2039 - Delivered on Sunday Morning, August 12th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

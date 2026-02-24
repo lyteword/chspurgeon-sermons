@@ -1,4 +1,4 @@
-# The Prince of Life
+# Sermon 2139 | The Prince of Life
 
 Sermon No. 2139 - Delivered on Sunday Morning, April 20th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

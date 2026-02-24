@@ -1,4 +1,4 @@
-# Saints Guarded From Stumbling
+# Sermon 2296 | Saints Guarded From Stumbling
 
 (No. 2296)
 

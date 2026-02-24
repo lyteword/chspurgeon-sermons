@@ -1,4 +1,4 @@
-# To Those Who Feel Unfit for Communion
+# Sermon 2131 | To Those Who Feel Unfit for Communion
 
 Sermon No. 2131 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

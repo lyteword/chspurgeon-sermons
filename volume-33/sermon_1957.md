@@ -1,4 +1,4 @@
-# The Lord's Own View of His Church and People
+# Sermon 1957 | The Lord's Own View of His Church and People
 
 Sermon No. 1957 - Delivered on Sunday Morning, April 3rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

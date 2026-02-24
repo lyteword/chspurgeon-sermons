@@ -1,4 +1,4 @@
-# Trembling at the Word of the Lord
+# Sermon 2071 | Trembling at the Word of the Lord
 
 Sermon No. 2071 - Delivered on 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

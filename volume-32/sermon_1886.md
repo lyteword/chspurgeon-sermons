@@ -1,4 +1,4 @@
-# God's Remembrance of His Covenant
+# Sermon 1886 | God's Remembrance of His Covenant
 
 (No. 1886)
 

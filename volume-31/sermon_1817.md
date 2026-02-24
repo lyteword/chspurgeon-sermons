@@ -1,4 +1,4 @@
-# The Ascension and the Second Advent Practically Considered
+# Sermon 1817 | The Ascension and the Second Advent Practically Considered
 
 Sermon No. 1817 - Delivered on Lord's Day Morning, December 28th, 1884 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 (No. 1817)

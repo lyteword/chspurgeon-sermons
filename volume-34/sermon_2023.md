@@ -1,4 +1,4 @@
-# The Blessing of Full Assurance
+# Sermon 2023 | The Blessing of Full Assurance
 
 Sermon No. 2023 - Delivered on Lord's-day Morning, May 13th, 1888 the REV. C.H. SPURGEON at [4]the Metropolitan Tabernacle, Newington.
 

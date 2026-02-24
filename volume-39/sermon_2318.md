@@ -1,4 +1,4 @@
-# God's Pupil, God's Preacher--an Autobiography
+# Sermon 2318 | God's Pupil, God's Preacher--an Autobiography
 
 (No. 2318)
 

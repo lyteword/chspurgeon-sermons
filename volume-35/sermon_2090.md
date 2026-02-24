@@ -1,4 +1,4 @@
-# A Delicious Experience
+# Sermon 2090 | A Delicious Experience
 
 Sermon No. 2090 - Delivered on Sunday, June 16, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

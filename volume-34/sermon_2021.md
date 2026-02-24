@@ -1,4 +1,4 @@
-# Nathanael--Or, the Ready Believer and His Reward
+# Sermon 2021 | Nathanael--Or, the Ready Believer and His Reward
 
 Sermon No. 2021 - Delivered on 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

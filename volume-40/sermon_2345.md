@@ -1,4 +1,4 @@
-# Moses' Dying Charge to Israel
+# Sermon 2345 | Moses' Dying Charge to Israel
 
 (No. 2345)
 

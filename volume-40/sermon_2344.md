@@ -1,4 +1,4 @@
-# Christ's Dying Word for His Church
+# Sermon 2344 | Christ's Dying Word for His Church
 
 (No. 2344)
 

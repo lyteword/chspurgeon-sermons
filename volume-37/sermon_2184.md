@@ -1,4 +1,4 @@
-# A Private Enquiry
+# Sermon 2184 | A Private Enquiry
 
 (No. 2184)
 

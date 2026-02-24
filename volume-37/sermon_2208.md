@@ -1,4 +1,4 @@
-# The Statute of David for the Sharing of the Spoil
+# Sermon 2208 | The Statute of David for the Sharing of the Spoil
 
 (No. 2208)
 

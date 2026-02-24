@@ -1,4 +1,4 @@
-# Possessing Possessions
+# Sermon 2136 | Possessing Possessions
 
 Sermon No. 2136 - Delivered on Sunday Morning, March 23rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

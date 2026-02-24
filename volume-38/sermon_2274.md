@@ -1,4 +1,4 @@
-# God's People Melted and Tried
+# Sermon 2274 | God's People Melted and Tried
 
 (No. 2274)
 

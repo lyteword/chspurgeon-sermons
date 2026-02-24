@@ -1,4 +1,4 @@
-# Everlasting Love Revealed
+# Sermon 2149 | Everlasting Love Revealed
 
 Sermon No. 2149 - Delivered on Sunday Morning, June 15th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

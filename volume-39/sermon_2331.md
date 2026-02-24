@@ -1,4 +1,4 @@
-# Christ's Pastoral Prayer for His People
+# Sermon 2331 | Christ's Pastoral Prayer for His People
 
 (No. 2331)
 

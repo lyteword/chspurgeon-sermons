@@ -1,4 +1,4 @@
-# Joy, Joy Forever
+# Sermon 2146 | Joy, Joy Forever
 
 Sermon No. 2146 - Delivered on Sunday Morning, May 25th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

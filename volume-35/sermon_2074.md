@@ -1,4 +1,4 @@
-# Intimate Knowledge of the Holy Spirit
+# Sermon 2074 | Intimate Knowledge of the Holy Spirit
 
 Sermon No. 2074 - Delivered on Sunday, March 10th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

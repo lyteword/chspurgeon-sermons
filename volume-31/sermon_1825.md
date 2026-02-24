@@ -1,4 +1,4 @@
-# An Inscription for the Mausoleum of the Saints
+# Sermon 1825 | An Inscription for the Mausoleum of the Saints
 
 (No. 1825)
 

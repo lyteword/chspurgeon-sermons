@@ -1,4 +1,4 @@
-# Love Stronger Than Death
+# Sermon 2377 | Love Stronger Than Death
 
 (No. 2377)
 

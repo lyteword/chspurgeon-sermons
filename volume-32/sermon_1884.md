@@ -1,4 +1,4 @@
-# Exhortation--"Set Your Heart"
+# Sermon 1884 | Exhortation--"Set Your Heart"
 
 (No. 1884)
 

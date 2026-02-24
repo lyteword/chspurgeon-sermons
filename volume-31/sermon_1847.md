@@ -1,4 +1,4 @@
-# Before Sermon, At Sermon and After Sermon
+# Sermon 1847 | Before Sermon, At Sermon and After Sermon
 
 (No. 1847)
 

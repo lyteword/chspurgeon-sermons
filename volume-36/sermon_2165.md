@@ -1,4 +1,4 @@
-# The Serpent's Sentence
+# Sermon 2165 | The Serpent's Sentence
 
 Sermon No. 2165 - Delivered on Sunday Morning, September 21st the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

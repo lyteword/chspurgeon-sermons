@@ -1,4 +1,4 @@
-# Blessing for Blessing
+# Sermon 2266 | Blessing for Blessing
 
 (No. 2266)
 

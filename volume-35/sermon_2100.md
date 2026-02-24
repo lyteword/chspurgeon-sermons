@@ -1,4 +1,4 @@
-# Faith Essential to Pleasing God
+# Sermon 2100 | Faith Essential to Pleasing God
 
 Sermon No. 2100 - Delivered on Sunday, August 18, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

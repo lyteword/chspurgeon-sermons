@@ -1,4 +1,4 @@
-# Jubilee Joy--or, Believers Joyful In Their King
+# Sermon 1968 | Jubilee Joy--or, Believers Joyful In Their King
 
 Sermon No. 1968 - Delivered on Sunday Morning, June 19th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

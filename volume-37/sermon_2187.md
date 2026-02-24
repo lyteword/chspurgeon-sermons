@@ -1,4 +1,4 @@
-# Jesus--"All Blessing and All Blessed"
+# Sermon 2187 | Jesus--"All Blessing and All Blessed"
 
 (No. 2187)
 

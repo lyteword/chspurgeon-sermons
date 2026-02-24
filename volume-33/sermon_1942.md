@@ -1,4 +1,4 @@
-# Salt For Sacrifice
+# Sermon 1942 | Salt For Sacrifice
 
 Sermon No. 1942 - Delivered on Sunday Morning, January 23rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

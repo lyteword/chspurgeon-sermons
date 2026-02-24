@@ -1,4 +1,4 @@
-# The Gospel of the Glory of Christ
+# Sermon 2077 | The Gospel of the Glory of Christ
 
 Sermon No. 2077 - Delivered on Sunday, March 31st, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

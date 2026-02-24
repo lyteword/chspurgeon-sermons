@@ -1,4 +1,4 @@
-# No Compromise
+# Sermon 2047 | No Compromise
 
 Sermon No. 2047 - Delivered on Lord's-day Morning, October 7th, 1888 the REV. C.H. SPURGEON at the [8]Metropolitan Tabernacle, Newington.
 

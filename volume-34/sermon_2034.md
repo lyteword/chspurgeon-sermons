@@ -1,4 +1,4 @@
-# Peter's Restoration
+# Sermon 2034 | Peter's Restoration
 
 Sermon No. 2034 - Delivered on Sunday Morning, July 22nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

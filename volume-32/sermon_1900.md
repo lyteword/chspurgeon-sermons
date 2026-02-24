@@ -1,4 +1,4 @@
-# Rejoice Evermore
+# Sermon 1900 | Rejoice Evermore
 
 (No. 1900)
 

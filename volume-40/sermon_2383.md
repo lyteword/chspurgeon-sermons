@@ -1,4 +1,4 @@
-# Seeing and Testifying
+# Sermon 2383 | Seeing and Testifying
 
 (No. 2383)
 

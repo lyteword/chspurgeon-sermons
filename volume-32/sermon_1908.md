@@ -1,4 +1,4 @@
-# Washed to Greater Foulness
+# Sermon 1908 | Washed to Greater Foulness
 
 Sermon No. 1908 - Delivered on Delivered the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
 

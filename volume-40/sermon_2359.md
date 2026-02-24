@@ -1,4 +1,4 @@
-# Personal and Effectual Calling
+# Sermon 2359 | Personal and Effectual Calling
 
 (No. 2359)
 

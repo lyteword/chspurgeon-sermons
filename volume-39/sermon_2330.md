@@ -1,4 +1,4 @@
-# Witnessing Better Than Knowing the Future
+# Sermon 2330 | Witnessing Better Than Knowing the Future
 
 (No. 2330)
 

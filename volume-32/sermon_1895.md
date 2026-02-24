@@ -1,4 +1,4 @@
-# Love Abounding, Love Complaining, Love Abiding
+# Sermon 1895 | Love Abounding, Love Complaining, Love Abiding
 
 (No. 1895)
 

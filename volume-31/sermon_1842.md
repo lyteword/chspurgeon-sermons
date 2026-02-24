@@ -1,4 +1,4 @@
-# The Private Tutor
+# Sermon 1842 | The Private Tutor
 
 (No. 1842)
 

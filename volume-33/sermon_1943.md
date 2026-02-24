@@ -1,4 +1,4 @@
-# Love Joying In Love
+# Sermon 1943 | Love Joying In Love
 
 Sermon No. 1943 - Delivered on Sunday Afternoon, January 9th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

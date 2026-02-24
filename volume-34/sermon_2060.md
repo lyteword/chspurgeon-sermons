@@ -1,4 +1,4 @@
-# The Messages of Our Lord's Love
+# Sermon 2060 | The Messages of Our Lord's Love
 
 Sermon No. 2060 - Delivered on Sunday Evening, August 5th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

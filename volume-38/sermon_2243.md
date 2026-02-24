@@ -1,4 +1,4 @@
-# His Own Funeral Sermon*
+# Sermon 2243 | His Own Funeral Sermon*
 
 (No. 2243)
 

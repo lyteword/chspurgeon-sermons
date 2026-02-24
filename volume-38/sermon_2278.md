@@ -1,4 +1,4 @@
-# Feeding on the Word
+# Sermon 2278 | Feeding on the Word
 
 (No. 2278)
 

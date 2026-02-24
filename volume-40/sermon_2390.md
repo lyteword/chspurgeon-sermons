@@ -1,4 +1,4 @@
-# A Royal Funeral
+# Sermon 2390 | A Royal Funeral
 
 (No. 2390)
 

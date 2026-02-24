@@ -1,4 +1,4 @@
-# Israel's Hope--Or, The Center of the Target
+# Sermon 2199 | Israel's Hope--Or, The Center of the Target
 
 (No. 2199)
 

@@ -1,4 +1,4 @@
-# Elijah's Plea
+# Sermon 1832 | Elijah's Plea
 
 (No. 1832)
 

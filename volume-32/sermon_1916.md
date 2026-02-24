@@ -1,4 +1,4 @@
-# The Great Sin Of Doing Nothing
+# Sermon 1916 | The Great Sin Of Doing Nothing
 
 (No. 1916)
 

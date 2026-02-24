@@ -1,4 +1,4 @@
-# Moses: His Faith and Decision
+# Sermon 2030 | Moses: His Faith and Decision
 
 Sermon No. 2030 - Delivered on Sunday Morning, June 24th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

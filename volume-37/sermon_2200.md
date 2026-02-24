@@ -1,4 +1,4 @@
-# The Covenant Promise of the Spirit
+# Sermon 2200 | The Covenant Promise of the Spirit
 
 (No. 2200)
 

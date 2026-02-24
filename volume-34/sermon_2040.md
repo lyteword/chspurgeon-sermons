@@ -1,4 +1,4 @@
-# Sown Among Thorns
+# Sermon 2040 | Sown Among Thorns
 
 Sermon No. 2040 - Delivered on Lord's-day Morning, August 19th, 1888 the REV. C.H. SPURGEON at [7]the Metropolitan Tabernacle, Newington.
 

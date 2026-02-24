@@ -1,4 +1,4 @@
-# Gratitude for Deliverance from the Grave
+# Sermon 2237 | Gratitude for Deliverance from the Grave
 
 (No. 2237)
 

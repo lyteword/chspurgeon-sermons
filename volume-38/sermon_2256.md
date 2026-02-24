@@ -1,4 +1,4 @@
-# Daniel's Band
+# Sermon 2256 | Daniel's Band
 
 (No. 2256)
 

@@ -1,4 +1,4 @@
-# The Personal Pentecost and the Glorious Hope
+# Sermon 1904 | The Personal Pentecost and the Glorious Hope
 
 (No. 1904)
 

@@ -1,4 +1,4 @@
-# Blood Even on the Golden Altar
+# Sermon 2369 | Blood Even on the Golden Altar
 
 (No. 2369)
 

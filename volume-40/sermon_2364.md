@@ -1,4 +1,4 @@
-# Poverty and Riches
+# Sermon 2364 | Poverty and Riches
 
 (No. 2364)
 

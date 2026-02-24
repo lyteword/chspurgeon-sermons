@@ -1,4 +1,4 @@
-# Christ's Connection With Sinners the Source of His Glory
+# Sermon 2070 | Christ's Connection With Sinners the Source of His Glory
 
 Sermon No. 2070 - Delivered on Sunday, February 17th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

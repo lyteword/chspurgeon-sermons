@@ -1,4 +1,4 @@
-# Pleading For Prayer
+# Sermon 1887 | Pleading For Prayer
 
 (No. 1887)
 

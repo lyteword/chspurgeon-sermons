@@ -1,4 +1,4 @@
-# One Worker Preparing For Another
+# Sermon 2261 | One Worker Preparing For Another
 
 (No. 2261)
 

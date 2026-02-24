@@ -1,4 +1,4 @@
-# Lessons From the Manna
+# Sermon 2332 | Lessons From the Manna
 
 (No. 2332)
 

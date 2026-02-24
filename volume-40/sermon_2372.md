@@ -1,4 +1,4 @@
-# A Page From a Royal Diary
+# Sermon 2372 | A Page From a Royal Diary
 
 (No. 2372)
 

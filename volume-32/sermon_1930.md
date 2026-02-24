@@ -1,4 +1,4 @@
-# Is It True?
+# Sermon 1930 | Is It True?
 
 (No. 1930)
 

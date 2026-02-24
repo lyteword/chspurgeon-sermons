@@ -1,4 +1,4 @@
-# Zealous, But Wrong
+# Sermon 1899 | Zealous, But Wrong
 
 (No. 1899)
 

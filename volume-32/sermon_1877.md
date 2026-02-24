@@ -1,4 +1,4 @@
-# Our Own Dear Shepherd
+# Sermon 1877 | Our Own Dear Shepherd
 
 (No. 1877)
 

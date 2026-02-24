@@ -1,4 +1,4 @@
-# A Sweet Silver Bell Ringing in Each Believer's Heart
+# Sermon 1819 | A Sweet Silver Bell Ringing in Each Believer's Heart
 
 Sermon No. 1819 - Delivered on Delivered the REV. C.H. SPURGEON at the [4]Metropolitan Tabernacle, Newington.
 (No. 1819)

@@ -1,4 +1,4 @@
-# Comfort and Constancy
+# Sermon 2363 | Comfort and Constancy
 
 (No. 2363)
 

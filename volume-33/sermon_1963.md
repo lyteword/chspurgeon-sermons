@@ -1,4 +1,4 @@
-# The Search For Faith
+# Sermon 1963 | The Search For Faith
 
 Sermon No. 1963 - Delivered on Sunday Morning, May 15th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

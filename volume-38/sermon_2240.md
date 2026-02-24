@@ -1,4 +1,4 @@
-# A Challenge and a Shield
+# Sermon 2240 | A Challenge and a Shield
 
 (No. 2240)
 

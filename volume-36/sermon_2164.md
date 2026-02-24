@@ -1,4 +1,4 @@
-# Faith's Firm Resolve
+# Sermon 2164 | Faith's Firm Resolve
 
 Sermon No. 2164 - Delivered on Thursday Evening, July 18 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Zedekiah--or, the Man Who Cannot Say, "No"
+# Sermon 2178 | Zedekiah--or, the Man Who Cannot Say, "No"
 
 Sermon No. 2178 - Delivered on Sunday Morning, December 21st the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

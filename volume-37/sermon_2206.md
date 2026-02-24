@@ -1,4 +1,4 @@
-# "Am I A Sea, Or A Whale?"
+# Sermon 2206 | "Am I A Sea, Or A Whale?"
 
 (No. 2206)
 

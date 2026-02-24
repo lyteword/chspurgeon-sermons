@@ -1,4 +1,4 @@
-# Scriptural Salvation
+# Sermon 2145 | Scriptural Salvation
 
 Sermon No. 2145 - Delivered on Sunday Morning, May 18th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

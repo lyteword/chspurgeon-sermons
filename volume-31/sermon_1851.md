@@ -1,4 +1,4 @@
-# Ruth's Reward--or, Cheer for Converts
+# Sermon 1851 | Ruth's Reward--or, Cheer for Converts
 
 (No. 1851)
 

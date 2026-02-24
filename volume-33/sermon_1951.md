@@ -1,4 +1,4 @@
-# The Pleading of the Last Messenger
+# Sermon 1951 | The Pleading of the Last Messenger
 
 Sermon No. 1951 - Delivered on Sunday Morning, March 6th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

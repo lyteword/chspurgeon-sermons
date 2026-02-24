@@ -1,4 +1,4 @@
-# Three Sights Worth Seeing
+# Sermon 1979 | Three Sights Worth Seeing
 
 Sermon No. 1979 - Delivered on Thursday Evening, March 24th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

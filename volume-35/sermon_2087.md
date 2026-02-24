@@ -1,4 +1,4 @@
-# Grace For Grace
+# Sermon 2087 | Grace For Grace
 
 Sermon No. 2087 - Delivered on Sunday, May 19th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

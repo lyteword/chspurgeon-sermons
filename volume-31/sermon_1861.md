@@ -1,4 +1,4 @@
-# The Lowly King
+# Sermon 1861 | The Lowly King
 
 Sermon No. 1861 - Delivered on Thursday Evening, June 25th, 1885 the REV. C.H. SPURGEON at the [15]Metropolitan Tabernacle, Newington.
 (No. 1861)

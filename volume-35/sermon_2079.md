@@ -1,4 +1,4 @@
-# Man Unknown To Man
+# Sermon 2079 | Man Unknown To Man
 
 Sermon No. 2079 - Delivered on Sunday, April 14th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

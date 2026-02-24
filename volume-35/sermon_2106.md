@@ -1,4 +1,4 @@
-# In the Garden With Him
+# Sermon 2106 | In the Garden With Him
 
 Sermon No. 2106 - Delivered on Thursday, August 8, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

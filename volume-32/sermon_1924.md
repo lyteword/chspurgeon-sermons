@@ -1,4 +1,4 @@
-# A Cheering Incident at Bethabara
+# Sermon 1924 | A Cheering Incident at Bethabara
 
 (No. 1924)
 

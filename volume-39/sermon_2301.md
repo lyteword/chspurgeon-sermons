@@ -1,4 +1,4 @@
-# Marah Better Than Elim
+# Sermon 2301 | Marah Better Than Elim
 
 (No. 2301)
 

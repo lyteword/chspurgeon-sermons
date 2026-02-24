@@ -1,4 +1,4 @@
-# Three Texts, But One Subject-- Faith
+# Sermon 2335 | Three Texts, But One Subject-- Faith
 
 (No. 2335)
 

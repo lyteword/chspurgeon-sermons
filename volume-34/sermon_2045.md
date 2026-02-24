@@ -1,4 +1,4 @@
-# Further Afield
+# Sermon 2045 | Further Afield
 
 Sermon No. 2045 - Delivered on Sunday Morning, September 23rd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

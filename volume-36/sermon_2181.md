@@ -1,4 +1,4 @@
-# God Forgiving Sin
+# Sermon 2181 | God Forgiving Sin
 
 Sermon No. 2181 - Delivered on Thursday Evening, February 6th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

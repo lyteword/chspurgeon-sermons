@@ -1,4 +1,4 @@
-# Abraham's Trial--a Lesson for Believers
+# Sermon 2223 | Abraham's Trial--a Lesson for Believers
 
 (No. 2223)
 

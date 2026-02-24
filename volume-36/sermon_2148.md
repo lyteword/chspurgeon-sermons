@@ -1,4 +1,4 @@
-# The Tenderness of Jesus
+# Sermon 2148 | The Tenderness of Jesus
 
 Sermon No. 2148 - Delivered on Sunday Morning, June 8th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

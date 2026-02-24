@@ -1,4 +1,4 @@
-# Holding Fast Our Profession
+# Sermon 1897 | Holding Fast Our Profession
 
 (No. 1897)
 

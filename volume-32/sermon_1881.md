@@ -1,4 +1,4 @@
-# The Dying Thief in a New Light
+# Sermon 1881 | The Dying Thief in a New Light
 
 (No. 1881)
 

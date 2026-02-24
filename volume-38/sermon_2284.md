@@ -1,4 +1,4 @@
-# "Clear Shining After Rain"
+# Sermon 2284 | "Clear Shining After Rain"
 
 (No. 2284)
 

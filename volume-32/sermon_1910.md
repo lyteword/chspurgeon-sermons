@@ -1,4 +1,4 @@
-# The Heart of The Gospel
+# Sermon 1910 | The Heart of The Gospel
 
 Sermon No. 1910 - Delivered on Lord's-day Morning, July 18th, 1886 the REV. C.H. SPURGEON at the [10]Metropolitan Tabernacle, Newington.
 

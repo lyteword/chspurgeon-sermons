@@ -1,4 +1,4 @@
-# Pleading, Not Contradicting
+# Sermon 2129 | Pleading, Not Contradicting
 
 Sermon No. 2129 - Delivered on Sunday Morning, February 9th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

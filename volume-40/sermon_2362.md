@@ -1,4 +1,4 @@
-# The King and His Court
+# Sermon 2362 | The King and His Court
 
 (No. 2362)
 

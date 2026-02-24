@@ -1,4 +1,4 @@
-# God's Will About the Future
+# Sermon 2242 | God's Will About the Future
 
 (No. 2242)
 
