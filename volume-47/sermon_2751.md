@@ -1,4 +1,4 @@
-# "A Prepared Place for a Prepared People"
+# Sermon 2751 | "A Prepared Place for a Prepared People"
 
 (No. 2751)
 

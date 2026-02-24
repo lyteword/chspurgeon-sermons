@@ -1,4 +1,4 @@
-# Joy, a Duty
+# Sermon 2405 | Joy, a Duty
 
 (No. 2405)
 

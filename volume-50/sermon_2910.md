@@ -1,4 +1,4 @@
-# The Harvest and the Vintage
+# Sermon 2910 | The Harvest and the Vintage
 
 (No. 2910)
 

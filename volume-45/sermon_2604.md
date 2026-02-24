@@ -1,4 +1,4 @@
-# Open Praise and Public Confession
+# Sermon 2604 | Open Praise and Public Confession
 
 (No. 2604)
 

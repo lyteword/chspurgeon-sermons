@@ -1,4 +1,4 @@
-# Death and Its Sentence Abolished
+# Sermon 2605 | Death and Its Sentence Abolished
 
 (No. 2605)
 

@@ -1,4 +1,4 @@
-# Hearing With Heed
+# Sermon 2512 | Hearing With Heed
 
 (No. 2512)
 

@@ -1,4 +1,4 @@
-# The Way of Wisdom
+# Sermon 2862 | The Way of Wisdom
 
 (No. 2862)
 

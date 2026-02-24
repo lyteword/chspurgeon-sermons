@@ -1,4 +1,4 @@
-# All and All in All
+# Sermon 2501 | All and All in All
 
 (No. 2501)
 

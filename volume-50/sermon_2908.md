@@ -1,4 +1,4 @@
-# The Saint's Heritage and Watchword
+# Sermon 2908 | The Saint's Heritage and Watchword
 
 (No. 2908)
 

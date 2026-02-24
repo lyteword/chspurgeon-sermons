@@ -1,4 +1,4 @@
-# Christ the Cause of Division
+# Sermon 2710 | Christ the Cause of Division
 
 (No. 2710)
 

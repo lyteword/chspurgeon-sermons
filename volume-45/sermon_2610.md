@@ -1,4 +1,4 @@
-# A Witness and a Partaker
+# Sermon 2610 | A Witness and a Partaker
 
 (No. 2610)
 

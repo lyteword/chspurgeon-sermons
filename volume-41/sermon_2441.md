@@ -1,4 +1,4 @@
-# The Lord's Knowledge, Our Safeguard
+# Sermon 2441 | The Lord's Knowledge, Our Safeguard
 
 (No. 2441)
 

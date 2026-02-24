@@ -1,4 +1,4 @@
-# A Message to the Glad and the Sad
+# Sermon 2546 | A Message to the Glad and the Sad
 
 (No. 2546)
 

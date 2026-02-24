@@ -1,4 +1,4 @@
-# "This Thing Is From Me"
+# Sermon 2476 | "This Thing Is From Me"
 
 (No. 2476)
 

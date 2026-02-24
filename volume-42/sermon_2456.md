@@ -1,4 +1,4 @@
-# The Lamb Our Leader
+# Sermon 2456 | The Lamb Our Leader
 
 (No. 2456)
 

@@ -1,4 +1,4 @@
-# A Man of God Alone With God
+# Sermon 2796 | A Man of God Alone With God
 
 (No. 2796)
 

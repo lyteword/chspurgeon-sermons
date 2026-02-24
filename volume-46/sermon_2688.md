@@ -1,4 +1,4 @@
-# "Good Judgment"
+# Sermon 2688 | "Good Judgment"
 
 (No. 2688)
 

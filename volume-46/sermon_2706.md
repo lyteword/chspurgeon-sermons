@@ -1,4 +1,4 @@
-# Feeding on the Bread of Life
+# Sermon 2706 | Feeding on the Bread of Life
 
 (No. 2706)
 

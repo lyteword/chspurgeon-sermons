@@ -1,4 +1,4 @@
-# Mediation of Moses
+# Sermon 2398 | Mediation of Moses
 
 (No. 2398)
 

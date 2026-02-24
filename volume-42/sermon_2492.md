@@ -1,4 +1,4 @@
-# Paul's Persuasion
+# Sermon 2492 | Paul's Persuasion
 
 (No. 2492)
 

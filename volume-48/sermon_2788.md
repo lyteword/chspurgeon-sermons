@@ -1,4 +1,4 @@
-# Prayer for the Church
+# Sermon 2788 | Prayer for the Church
 
 (No. 2788)
 

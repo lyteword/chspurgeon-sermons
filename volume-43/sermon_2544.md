@@ -1,4 +1,4 @@
-# The One and the Many
+# Sermon 2544 | The One and the Many
 
 (No. 2544)
 

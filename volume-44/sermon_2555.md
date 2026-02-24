@@ -1,4 +1,4 @@
-# The Stronghold
+# Sermon 2555 | The Stronghold
 
 (No. 2555)
 

@@ -1,4 +1,4 @@
-# The Power of Christ's Name
+# Sermon 2592 | The Power of Christ's Name
 
 (No. 2592)
 

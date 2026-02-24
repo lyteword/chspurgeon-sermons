@@ -1,4 +1,4 @@
-# Christian Resignation
+# Sermon 2715 | Christian Resignation
 
 (No. 2715)
 

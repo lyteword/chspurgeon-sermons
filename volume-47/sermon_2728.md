@@ -1,4 +1,4 @@
-# The High Rock
+# Sermon 2728 | The High Rock
 
 (No. 2728)
 

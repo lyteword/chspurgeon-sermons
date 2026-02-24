@@ -1,4 +1,4 @@
-# God's Fire and Hammer
+# Sermon 2460 | God's Fire and Hammer
 
 (No. 2460)
 

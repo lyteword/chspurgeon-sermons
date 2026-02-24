@@ -1,4 +1,4 @@
-# He Ran, and He Ran
+# Sermon 2507 | He Ran, and He Ran
 
 (No. 2507)
 

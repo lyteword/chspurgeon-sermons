@@ -1,4 +1,4 @@
-# The Greatest Folly in the World
+# Sermon 2545 | The Greatest Folly in the World
 
 (No. 2545)
 

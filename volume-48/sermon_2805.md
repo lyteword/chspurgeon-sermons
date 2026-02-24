@@ -1,4 +1,4 @@
-# "Life for a Look"
+# Sermon 2805 | "Life for a Look"
 
 (No. 2805)
 

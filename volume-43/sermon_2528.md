@@ -1,4 +1,4 @@
-# Eating the Sacrifice
+# Sermon 2528 | Eating the Sacrifice
 
 (No. 2528)
 

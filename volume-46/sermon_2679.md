@@ -1,4 +1,4 @@
-# Christ's Indwelling Word
+# Sermon 2679 | Christ's Indwelling Word
 
 (No. 2679)
 

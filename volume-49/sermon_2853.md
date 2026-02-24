@@ -1,4 +1,4 @@
-# Observing the King's Word
+# Sermon 2853 | Observing the King's Word
 
 (No. 2853)
 

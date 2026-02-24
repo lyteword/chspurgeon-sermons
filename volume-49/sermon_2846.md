@@ -1,4 +1,4 @@
-# "No Root in Themselves"
+# Sermon 2846 | "No Root in Themselves"
 
 (No. 2846)
 

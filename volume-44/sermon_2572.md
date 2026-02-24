@@ -1,4 +1,4 @@
-# Fellowship With Christ
+# Sermon 2572 | Fellowship With Christ
 
 (No. 2572)
 

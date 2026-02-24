@@ -1,4 +1,4 @@
-# Saying Versus Doing
+# Sermon 2747 | Saying Versus Doing
 
 (No. 2747)
 

@@ -1,4 +1,4 @@
-# Feeble Faith Appealing to a Strong Savior
+# Sermon 2881 | Feeble Faith Appealing to a Strong Savior
 
 (No. 2881)
 

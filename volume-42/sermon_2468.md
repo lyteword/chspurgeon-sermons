@@ -1,4 +1,4 @@
-# Solitude, Silence, Submission
+# Sermon 2468 | Solitude, Silence, Submission
 
 (No. 2468)
 

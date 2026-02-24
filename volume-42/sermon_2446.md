@@ -1,4 +1,4 @@
-# Carte Blanche
+# Sermon 2446 | Carte Blanche
 
 (No. 2446)
 

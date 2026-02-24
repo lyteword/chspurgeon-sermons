@@ -1,4 +1,4 @@
-# The Plumb Line
+# Sermon 2904 | The Plumb Line
 
 (No. 2904)
 

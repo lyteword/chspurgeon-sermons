@@ -1,4 +1,4 @@
-# Wakeful and Watchful Eyes
+# Sermon 2654 | Wakeful and Watchful Eyes
 
 (No. 2654)
 

@@ -1,4 +1,4 @@
-# A Sermon of Personal Testimony
+# Sermon 2575 | A Sermon of Personal Testimony
 
 (No. 2575)
 

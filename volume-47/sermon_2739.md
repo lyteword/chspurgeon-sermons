@@ -1,4 +1,4 @@
-# "I Have Enough"
+# Sermon 2739 | "I Have Enough"
 
 (No. 2739)
 

@@ -1,4 +1,4 @@
-# A Dire Disease Strangely Cured
+# Sermon 2887 | A Dire Disease Strangely Cured
 
 (No. 2887)
 

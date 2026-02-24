@@ -1,4 +1,4 @@
-# Conceit Rebuked
+# Sermon 2834 | Conceit Rebuked
 
 (No. 2834)
 

@@ -1,4 +1,4 @@
-# God's Love Shamefully Questioned
+# Sermon 2532 | God's Love Shamefully Questioned
 
 (No. 2532)
 

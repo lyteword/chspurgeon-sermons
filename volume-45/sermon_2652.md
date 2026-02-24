@@ -1,4 +1,4 @@
-# Seeing Christ's Day
+# Sermon 2652 | Seeing Christ's Day
 
 (No. 2652)
 

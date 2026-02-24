@@ -1,4 +1,4 @@
-# Life Proved by Love
+# Sermon 2556 | Life Proved by Love
 
 (No. 2556)
 

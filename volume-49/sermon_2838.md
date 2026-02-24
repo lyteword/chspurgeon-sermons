@@ -1,4 +1,4 @@
-# God's Glory in Hiding Sin
+# Sermon 2838 | God's Glory in Hiding Sin
 
 (No. 2838)
 

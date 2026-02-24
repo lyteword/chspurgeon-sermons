@@ -1,4 +1,4 @@
-# "A Peculiar People"
+# Sermon 2530 | "A Peculiar People"
 
 (No. 2530)
 

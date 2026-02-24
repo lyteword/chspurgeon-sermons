@@ -1,4 +1,4 @@
-# Fourfold Satisfaction
+# Sermon 2726 | Fourfold Satisfaction
 
 (No. 2726)
 

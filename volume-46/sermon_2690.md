@@ -1,4 +1,4 @@
-# Meditation on God
+# Sermon 2690 | Meditation on God
 
 (No. 2690)
 

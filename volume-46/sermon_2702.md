@@ -1,4 +1,4 @@
-# "Marvelous Loving Kindness"
+# Sermon 2702 | "Marvelous Loving Kindness"
 
 (No. 2702)
 

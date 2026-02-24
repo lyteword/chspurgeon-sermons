@@ -1,4 +1,4 @@
-# The Soul's Best Food
+# Sermon 2786 | The Soul's Best Food
 
 (No. 2786)
 

@@ -1,4 +1,4 @@
-# The Glory of Grace
+# Sermon 2763 | The Glory of Grace
 
 (No. 2763)
 

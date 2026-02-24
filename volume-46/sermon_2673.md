@@ -1,4 +1,4 @@
-# Christ Crucified
+# Sermon 2673 | Christ Crucified
 
 (No. 2673)
 

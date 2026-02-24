@@ -1,4 +1,4 @@
-# The Redeemer Described by Himself
+# Sermon 2827 | The Redeemer Described by Himself
 
 (No. 2827)
 

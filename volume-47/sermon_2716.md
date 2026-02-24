@@ -1,4 +1,4 @@
-# Christ's Poverty, Our Riches
+# Sermon 2716 | Christ's Poverty, Our Riches
 
 (No. 2716)
 

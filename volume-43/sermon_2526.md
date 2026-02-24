@@ -1,4 +1,4 @@
-# "Speak, Lord!"
+# Sermon 2526 | "Speak, Lord!"
 
 (No. 2526)
 

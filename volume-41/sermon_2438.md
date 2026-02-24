@@ -1,4 +1,4 @@
-# "Two Immutable Things"
+# Sermon 2438 | "Two Immutable Things"
 
 (No. 2438)
 

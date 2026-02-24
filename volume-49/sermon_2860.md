@@ -1,4 +1,4 @@
-# Owl or Eagle?
+# Sermon 2860 | Owl or Eagle?
 
 (No. 2860)
 

@@ -1,4 +1,4 @@
-# A Hard Case
+# Sermon 2453 | A Hard Case
 
 (No. 2453)
 

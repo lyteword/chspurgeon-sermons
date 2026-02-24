@@ -1,4 +1,4 @@
-# Life, and the Path to It
+# Sermon 2813 | Life, and the Path to It
 
 (No. 2813)
 

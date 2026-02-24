@@ -1,4 +1,4 @@
-# Honor for Honor
+# Sermon 2906 | Honor for Honor
 
 (No. 2906)
 

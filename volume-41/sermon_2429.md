@@ -1,4 +1,4 @@
-# Converts, and Their Confession of Faith
+# Sermon 2429 | Converts, and Their Confession of Faith
 
 (No. 2429)
 

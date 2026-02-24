@@ -1,4 +1,4 @@
-# Grace and Glory
+# Sermon 2502 | Grace and Glory
 
 (No. 2502)
 

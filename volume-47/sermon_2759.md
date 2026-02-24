@@ -1,4 +1,4 @@
-# The Pleasures of Piety
+# Sermon 2759 | The Pleasures of Piety
 
 (No. 2759)
 

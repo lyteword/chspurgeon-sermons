@@ -1,4 +1,4 @@
-# Apart
+# Sermon 2510 | Apart
 
 (No. 2510)
 

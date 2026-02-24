@@ -1,4 +1,4 @@
-# Why Men Reject Christ
+# Sermon 2463 | Why Men Reject Christ
 
 (No. 2463)
 

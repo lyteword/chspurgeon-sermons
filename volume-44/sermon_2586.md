@@ -1,4 +1,4 @@
-# A Far-reaching Promise
+# Sermon 2586 | A Far-reaching Promise
 
 (No. 2586)
 

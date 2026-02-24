@@ -1,4 +1,4 @@
-# The Determination of Christ to Suffer for His People
+# Sermon 2443 | The Determination of Christ to Suffer for His People
 
 (No. 2443)
 

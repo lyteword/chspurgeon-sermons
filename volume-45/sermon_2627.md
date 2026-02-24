@@ -1,4 +1,4 @@
-# The Best Friend
+# Sermon 2627 | The Best Friend
 
 (No. 2627)
 

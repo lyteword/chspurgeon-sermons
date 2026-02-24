@@ -1,4 +1,4 @@
-# David's Five-stringed Harp
+# Sermon 2527 | David's Five-stringed Harp
 
 (No. 2527)
 

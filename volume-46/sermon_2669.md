@@ -1,4 +1,4 @@
-# Comfort From Christ's Omniscience
+# Sermon 2669 | Comfort From Christ's Omniscience
 
 (No. 2669)
 

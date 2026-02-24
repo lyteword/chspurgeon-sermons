@@ -1,4 +1,4 @@
-# The Rule and Reward of Serving Christ
+# Sermon 2449 | The Rule and Reward of Serving Christ
 
 (No. 2449)
 

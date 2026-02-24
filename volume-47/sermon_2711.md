@@ -1,4 +1,4 @@
-# The Sight of Iniquity
+# Sermon 2711 | The Sight of Iniquity
 
 (No. 2711)
 

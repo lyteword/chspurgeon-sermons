@@ -1,4 +1,4 @@
-# The Life-look
+# Sermon 2867 | The Life-look
 
 (No. 2867)
 

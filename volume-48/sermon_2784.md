@@ -1,4 +1,4 @@
-# "Non Nobis, Domine!"
+# Sermon 2784 | "Non Nobis, Domine!"
 
 (No. 2784)
 

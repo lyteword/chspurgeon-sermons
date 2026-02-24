@@ -1,4 +1,4 @@
-# Brought Out to Be Brought In
+# Sermon 2511 | Brought Out to Be Brought In
 
 (No. 2511)
 

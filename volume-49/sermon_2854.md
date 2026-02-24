@@ -1,4 +1,4 @@
-# Lame Sheep
+# Sermon 2854 | Lame Sheep
 
 (No. 2854)
 

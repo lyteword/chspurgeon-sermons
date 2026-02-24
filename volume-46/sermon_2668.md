@@ -1,4 +1,4 @@
-# Communion With Christ--a Baptizing Sermon
+# Sermon 2668 | Communion With Christ--a Baptizing Sermon
 
 (No. 2668)
 

@@ -1,4 +1,4 @@
-# Alto and Bass
+# Sermon 2582 | Alto and Bass
 
 (No. 2582)
 

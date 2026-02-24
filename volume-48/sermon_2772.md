@@ -1,4 +1,4 @@
-# The Minister's Trumpet Blast and Church Member's Warning
+# Sermon 2772 | The Minister's Trumpet Blast and Church Member's Warning
 
 (No. 2772)
 

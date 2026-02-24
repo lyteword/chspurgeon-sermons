@@ -1,4 +1,4 @@
-# The Christian's Glorious Inventory
+# Sermon 2589 | The Christian's Glorious Inventory
 
 (No. 2589)
 

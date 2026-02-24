@@ -1,4 +1,4 @@
-# "A Man Under Authority"
+# Sermon 2434 | "A Man Under Authority"
 
 (No. 2434)
 

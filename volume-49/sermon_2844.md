@@ -1,4 +1,4 @@
-# The Seed Upon a Rock
+# Sermon 2844 | The Seed Upon a Rock
 
 (No. 2844)
 

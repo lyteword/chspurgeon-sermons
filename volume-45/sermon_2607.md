@@ -1,4 +1,4 @@
-# Foretastes of the Heavenly Life
+# Sermon 2607 | Foretastes of the Heavenly Life
 
 (No. 2607)
 

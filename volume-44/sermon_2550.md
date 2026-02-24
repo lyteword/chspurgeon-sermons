@@ -1,4 +1,4 @@
-# Joy in God
+# Sermon 2550 | Joy in God
 
 (No. 2550)
 

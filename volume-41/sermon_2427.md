@@ -1,4 +1,4 @@
-# "The Ark of His Covenant"
+# Sermon 2427 | "The Ark of His Covenant"
 
 (No. 2427)
 

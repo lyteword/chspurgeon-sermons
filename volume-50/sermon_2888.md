@@ -1,4 +1,4 @@
-# "Christ Is All"
+# Sermon 2888 | "Christ Is All"
 
 (No. 2888)
 

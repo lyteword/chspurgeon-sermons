@@ -1,4 +1,4 @@
-# Christ's Love for His Vineyard
+# Sermon 2785 | Christ's Love for His Vineyard
 
 (No. 2785)
 

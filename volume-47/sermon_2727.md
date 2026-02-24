@@ -1,4 +1,4 @@
-# Bitter Herbs
+# Sermon 2727 | Bitter Herbs
 
 (No. 2727)
 

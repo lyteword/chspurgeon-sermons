@@ -1,4 +1,4 @@
-# The Redeemer's Face Set Like a Flint
+# Sermon 2738 | The Redeemer's Face Set Like a Flint
 
 (No. 2738)
 

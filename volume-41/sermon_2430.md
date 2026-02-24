@@ -1,4 +1,4 @@
-# Christians, and Their Communion With God
+# Sermon 2430 | Christians, and Their Communion With God
 
 (No. 2430)
 

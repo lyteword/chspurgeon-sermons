@@ -1,4 +1,4 @@
-# The Last Sermon for the Year
+# Sermon 2445 | The Last Sermon for the Year
 
 (No. 2445)
 

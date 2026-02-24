@@ -1,4 +1,4 @@
-# Christ's Perfection and Precedence
+# Sermon 2478 | Christ's Perfection and Precedence
 
 (No. 2478)
 

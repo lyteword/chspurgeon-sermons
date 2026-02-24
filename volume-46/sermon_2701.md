@@ -1,4 +1,4 @@
-# Jesus Joyfully Received
+# Sermon 2701 | Jesus Joyfully Received
 
 (No. 2701)
 

@@ -1,4 +1,4 @@
-# Good Reasons for a Good Resolution
+# Sermon 2543 | Good Reasons for a Good Resolution
 
 (No. 2543)
 

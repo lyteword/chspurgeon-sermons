@@ -1,4 +1,4 @@
-# Strange Dispensations and Matchless Consolations
+# Sermon 2754 | Strange Dispensations and Matchless Consolations
 
 (No. 2754)
 

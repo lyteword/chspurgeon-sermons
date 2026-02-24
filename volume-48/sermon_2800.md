@@ -1,4 +1,4 @@
-# "Pray, Always Pray"
+# Sermon 2800 | "Pray, Always Pray"
 
 (No. 2800)
 

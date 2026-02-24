@@ -1,4 +1,4 @@
-# A Song and a Solace
+# Sermon 2682 | A Song and a Solace
 
 (No. 2682)
 

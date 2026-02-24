@@ -1,4 +1,4 @@
-# Christ in Bonds
+# Sermon 2822 | Christ in Bonds
 
 (No. 2822)
 

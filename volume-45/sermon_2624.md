@@ -1,4 +1,4 @@
-# Secondhand
+# Sermon 2624 | Secondhand
 
 (No. 2624)
 

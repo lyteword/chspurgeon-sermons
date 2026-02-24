@@ -1,4 +1,4 @@
-# Lessons on Divine Grace
+# Sermon 2833 | Lessons on Divine Grace
 
 (No. 2833)
 

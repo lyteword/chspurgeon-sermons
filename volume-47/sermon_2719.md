@@ -1,4 +1,4 @@
-# True Learning
+# Sermon 2719 | True Learning
 
 (No. 2719)
 

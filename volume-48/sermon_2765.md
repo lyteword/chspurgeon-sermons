@@ -1,4 +1,4 @@
-# Marvelous Light
+# Sermon 2765 | Marvelous Light
 
 (No. 2765)
 

@@ -1,4 +1,4 @@
-# Cries From the Cross
+# Sermon 2562 | Cries From the Cross
 
 (No. 2562)
 

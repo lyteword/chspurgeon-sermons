@@ -1,4 +1,4 @@
-# A Sabbath Miracle
+# Sermon 2891 | A Sabbath Miracle
 
 (No. 2891)
 

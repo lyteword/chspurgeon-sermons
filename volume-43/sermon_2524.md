@@ -1,4 +1,4 @@
-# Fearing and Hoping
+# Sermon 2524 | Fearing and Hoping
 
 (No. 2524)
 

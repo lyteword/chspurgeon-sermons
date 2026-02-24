@@ -1,4 +1,4 @@
-# Partnership With Christ
+# Sermon 2580 | Partnership With Christ
 
 (No. 2580)
 

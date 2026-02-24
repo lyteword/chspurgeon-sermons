@@ -1,4 +1,4 @@
-# A Singular Plea in Prayer
+# Sermon 2535 | A Singular Plea in Prayer
 
 (No. 2535)
 

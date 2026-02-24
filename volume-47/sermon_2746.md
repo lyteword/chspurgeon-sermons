@@ -1,4 +1,4 @@
-# The Nature and Design of Divine Chastening
+# Sermon 2746 | The Nature and Design of Divine Chastening
 
 (No. 2746)
 

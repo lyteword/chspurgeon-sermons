@@ -1,4 +1,4 @@
-# The New Song On Earth
+# Sermon 2424 | The New Song On Earth
 
 (No. 2424)
 

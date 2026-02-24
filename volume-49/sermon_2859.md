@@ -1,4 +1,4 @@
-# The Lions' Den
+# Sermon 2859 | The Lions' Den
 
 (No. 2859)
 

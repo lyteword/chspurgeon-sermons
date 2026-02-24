@@ -1,4 +1,4 @@
-# Our Hiding Place
+# Sermon 2856 | Our Hiding Place
 
 (No. 2856)
 

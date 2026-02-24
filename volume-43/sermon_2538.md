@@ -1,4 +1,4 @@
-# An Epistle Illustrated by a Psalm
+# Sermon 2538 | An Epistle Illustrated by a Psalm
 
 (No. 2538)
 

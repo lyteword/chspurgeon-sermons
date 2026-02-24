@@ -1,4 +1,4 @@
-# "Much More"
+# Sermon 2587 | "Much More"
 
 (No. 2587)
 

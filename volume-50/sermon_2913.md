@@ -1,4 +1,4 @@
-# David's First Victory
+# Sermon 2913 | David's First Victory
 
 (No. 2913)
 

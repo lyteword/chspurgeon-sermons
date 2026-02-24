@@ -1,4 +1,4 @@
-# The Backslider's Door of Hope
+# Sermon 2569 | The Backslider's Door of Hope
 
 (No. 2569)
 

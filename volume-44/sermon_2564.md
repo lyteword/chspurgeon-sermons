@@ -1,4 +1,4 @@
-# Strange Ways of Love
+# Sermon 2564 | Strange Ways of Love
 
 (No. 2564)
 

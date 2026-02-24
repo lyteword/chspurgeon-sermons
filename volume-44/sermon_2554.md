@@ -1,4 +1,4 @@
-# The Spiritual Resurrection
+# Sermon 2554 | The Spiritual Resurrection
 
 (No. 2554)
 

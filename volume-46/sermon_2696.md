@@ -1,4 +1,4 @@
-# Wordless Prayers Heard in Heaven
+# Sermon 2696 | Wordless Prayers Heard in Heaven
 
 (No. 2696)
 

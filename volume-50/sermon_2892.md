@@ -1,4 +1,4 @@
-# The Free-agency of Christ
+# Sermon 2892 | The Free-agency of Christ
 
 (No. 2892)
 

@@ -1,4 +1,4 @@
-# "Jesus Only" --a Communion Meditation
+# Sermon 2634 | "Jesus Only" --a Communion Meditation
 
 (No. 2634)
 

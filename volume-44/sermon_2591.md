@@ -1,4 +1,4 @@
-# Pride the Destroyer
+# Sermon 2591 | Pride the Destroyer
 
 (No. 2591)
 

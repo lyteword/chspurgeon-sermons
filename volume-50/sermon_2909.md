@@ -1,4 +1,4 @@
-# Job's Sure Knowledge
+# Sermon 2909 | Job's Sure Knowledge
 
 (No. 2909)
 

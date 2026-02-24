@@ -1,4 +1,4 @@
-# The Great Miracle Worker
+# Sermon 2736 | The Great Miracle Worker
 
 (No. 2736)
 

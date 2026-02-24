@@ -1,4 +1,4 @@
-# The Joy of Holy Households
+# Sermon 2539 | The Joy of Holy Households
 
 (No. 2539)
 

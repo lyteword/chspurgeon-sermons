@@ -1,4 +1,4 @@
-# Love's Vigilance Rewarded
+# Sermon 2485 | Love's Vigilance Rewarded
 
 (No. 2485)
 

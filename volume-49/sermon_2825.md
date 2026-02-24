@@ -1,4 +1,4 @@
-# Majesty in Misery
+# Sermon 2825 | Majesty in Misery
 
 (No. 2825)
 

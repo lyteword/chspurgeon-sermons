@@ -1,4 +1,4 @@
-# "The Offense of the Cross"
+# Sermon 2594 | "The Offense of the Cross"
 
 (No. 2594)
 

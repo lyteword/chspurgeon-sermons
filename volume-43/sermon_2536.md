@@ -1,4 +1,4 @@
-# The Ethiopian
+# Sermon 2536 | The Ethiopian
 
 (No. 2536)
 

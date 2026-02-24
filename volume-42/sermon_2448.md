@@ -1,4 +1,4 @@
-# "Herein Is Love"
+# Sermon 2448 | "Herein Is Love"
 
 (No. 2448)
 

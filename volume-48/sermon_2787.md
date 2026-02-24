@@ -1,4 +1,4 @@
-# Christ's Triple Character
+# Sermon 2787 | Christ's Triple Character
 
 (No. 2787)
 

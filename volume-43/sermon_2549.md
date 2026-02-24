@@ -1,4 +1,4 @@
-# Luminous Words
+# Sermon 2549 | Luminous Words
 
 (No. 2549)
 

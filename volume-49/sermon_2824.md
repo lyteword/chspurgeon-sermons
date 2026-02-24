@@ -1,4 +1,4 @@
-# Mocked of the Soldiers
+# Sermon 2824 | Mocked of the Soldiers
 
 (No. 2824)
 

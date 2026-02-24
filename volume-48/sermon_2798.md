@@ -1,4 +1,4 @@
-# Sweet Stimulants for the Fainting Soul
+# Sermon 2798 | Sweet Stimulants for the Fainting Soul
 
 (No. 2798)
 

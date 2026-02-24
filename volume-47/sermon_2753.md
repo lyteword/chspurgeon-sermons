@@ -1,4 +1,4 @@
-# Patience, Comfort and Hope From the Scriptures
+# Sermon 2753 | Patience, Comfort and Hope From the Scriptures
 
 (No. 2753)
 

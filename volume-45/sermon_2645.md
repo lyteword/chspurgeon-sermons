@@ -1,4 +1,4 @@
-# "The Time of Jacob's Trouble"
+# Sermon 2645 | "The Time of Jacob's Trouble"
 
 (No. 2645)
 

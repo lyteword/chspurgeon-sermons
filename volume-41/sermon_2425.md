@@ -1,4 +1,4 @@
-# Self-destroyed, Yet Saved
+# Sermon 2425 | Self-destroyed, Yet Saved
 
 (No. 2425)
 

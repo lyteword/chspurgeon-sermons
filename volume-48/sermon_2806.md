@@ -1,4 +1,4 @@
-# "Jesus Our Lord"
+# Sermon 2806 | "Jesus Our Lord"
 
 (No. 2806)
 

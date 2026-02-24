@@ -1,4 +1,4 @@
-# A Lost Christ Found
+# Sermon 2611 | A Lost Christ Found
 
 (No. 2611)
 

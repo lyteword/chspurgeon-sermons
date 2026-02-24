@@ -1,4 +1,4 @@
-# The Model Soul-winner
+# Sermon 2423 | The Model Soul-winner
 
 (No. 2423)
 

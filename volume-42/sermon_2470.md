@@ -1,4 +1,4 @@
-# Jacob and Doubting Souls a Parallel
+# Sermon 2470 | Jacob and Doubting Souls a Parallel
 
 (No. 2470)
 

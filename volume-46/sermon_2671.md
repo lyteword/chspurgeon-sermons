@@ -1,4 +1,4 @@
-# A Sincere Summary--and a Searching Scrutiny
+# Sermon 2671 | A Sincere Summary--and a Searching Scrutiny
 
 (No. 2671)
 

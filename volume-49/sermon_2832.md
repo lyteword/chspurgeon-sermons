@@ -1,4 +1,4 @@
-# Christ's Yoke and Burden
+# Sermon 2832 | Christ's Yoke and Burden
 
 (No. 2832)
 

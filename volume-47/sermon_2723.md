@@ -1,4 +1,4 @@
-# God's Dealings With Egypt and Israel
+# Sermon 2723 | God's Dealings With Egypt and Israel
 
 (No. 2723)
 

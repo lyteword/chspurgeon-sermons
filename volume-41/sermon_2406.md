@@ -1,4 +1,4 @@
-# An Appeal to Children of Godly Parents
+# Sermon 2406 | An Appeal to Children of Godly Parents
 
 (No. 2406)
 

@@ -1,4 +1,4 @@
-# The Secret of Love to God
+# Sermon 2730 | The Secret of Love to God
 
 (No. 2730)
 

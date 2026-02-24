@@ -1,4 +1,4 @@
-# Good News
+# Sermon 2866 | Good News
 
 (No. 2866)
 

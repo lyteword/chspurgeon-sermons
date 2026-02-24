@@ -1,4 +1,4 @@
-# Man's Extremity, God's Opportunity
+# Sermon 2717 | Man's Extremity, God's Opportunity
 
 (No. 2717)
 

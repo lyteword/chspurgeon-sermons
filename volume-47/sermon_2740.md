@@ -1,4 +1,4 @@
-# What Is Essential in Coming to God?
+# Sermon 2740 | What Is Essential in Coming to God?
 
 (No. 2740)
 

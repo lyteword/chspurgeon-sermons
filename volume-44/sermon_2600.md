@@ -1,4 +1,4 @@
-# A Strange Yet Gracious Choice
+# Sermon 2600 | A Strange Yet Gracious Choice
 
 (No. 2600)
 

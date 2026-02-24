@@ -1,4 +1,4 @@
-# Precepts and Promises
+# Sermon 2874 | Precepts and Promises
 
 (No. 2874)
 

@@ -1,4 +1,4 @@
-# The Lesson of the Almond Tree
+# Sermon 2678 | The Lesson of the Almond Tree
 
 (No. 2678)
 

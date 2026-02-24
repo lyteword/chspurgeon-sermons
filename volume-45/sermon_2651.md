@@ -1,4 +1,4 @@
-# The Christian's Service and Honor
+# Sermon 2651 | The Christian's Service and Honor
 
 (No. 2651)
 

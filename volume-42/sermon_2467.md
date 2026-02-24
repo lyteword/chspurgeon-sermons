@@ -1,4 +1,4 @@
-# Christ and His Co-workers
+# Sermon 2467 | Christ and His Co-workers
 
 (No. 2467)
 

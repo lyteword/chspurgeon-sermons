@@ -1,4 +1,4 @@
-# A Blessed Gospel Chain
+# Sermon 2895 | A Blessed Gospel Chain
 
 (No. 2895)
 

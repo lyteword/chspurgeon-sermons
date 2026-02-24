@@ -1,4 +1,4 @@
-# Growth in Grace
+# Sermon 2700 | Growth in Grace
 
 (No. 2700)
 

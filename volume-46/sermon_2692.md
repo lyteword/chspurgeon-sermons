@@ -1,4 +1,4 @@
-# Church Increase
+# Sermon 2692 | Church Increase
 
 (No. 2692)
 

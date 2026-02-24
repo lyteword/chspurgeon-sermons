@@ -1,4 +1,4 @@
-# The Lesson of Uzza
+# Sermon 2855 | The Lesson of Uzza
 
 (No. 2855)
 

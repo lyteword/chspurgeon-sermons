@@ -1,4 +1,4 @@
-# Compassion on the Ignorant
+# Sermon 2529 | Compassion on the Ignorant
 
 (No. 2529)
 

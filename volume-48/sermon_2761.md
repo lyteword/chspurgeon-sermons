@@ -1,4 +1,4 @@
-# The Free Agency of Christ
+# Sermon 2761 | The Free Agency of Christ
 
 (No. 2761)
 

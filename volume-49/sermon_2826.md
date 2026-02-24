@@ -1,4 +1,4 @@
-# The King in Pilate's Hall
+# Sermon 2826 | The King in Pilate's Hall
 
 (No. 2826)
 

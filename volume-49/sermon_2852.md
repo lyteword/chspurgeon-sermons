@@ -1,4 +1,4 @@
-# Comfort for the Fearful
+# Sermon 2852 | Comfort for the Fearful
 
 (No. 2852)
 

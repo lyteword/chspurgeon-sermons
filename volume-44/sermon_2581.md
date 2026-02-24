@@ -1,4 +1,4 @@
-# Perfection in Christ
+# Sermon 2581 | Perfection in Christ
 
 (No. 2581)
 

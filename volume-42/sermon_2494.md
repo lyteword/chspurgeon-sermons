@@ -1,4 +1,4 @@
-# The Cause and Cure of a Wounded Spirit
+# Sermon 2494 | The Cause and Cure of a Wounded Spirit
 
 (No. 2494)
 

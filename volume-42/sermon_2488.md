@@ -1,4 +1,4 @@
-# Christ's Love to His Spouse
+# Sermon 2488 | Christ's Love to His Spouse
 
 (No. 2488)
 

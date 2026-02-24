@@ -1,4 +1,4 @@
-# Perfect Justification and Perfect Pardon
+# Sermon 2789 | Perfect Justification and Perfect Pardon
 
 (No. 2789)
 

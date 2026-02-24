@@ -1,4 +1,4 @@
-# "Peace in Believing"
+# Sermon 2626 | "Peace in Believing"
 
 (No. 2626)
 

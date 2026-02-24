@@ -1,4 +1,4 @@
-# Our Lord's Substitution
+# Sermon 2790 | Our Lord's Substitution
 
 (No. 2790)
 

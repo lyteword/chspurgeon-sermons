@@ -1,4 +1,4 @@
-# A King Sent in Love
+# Sermon 2760 | A King Sent in Love
 
 (No. 2760)
 

@@ -1,4 +1,4 @@
-# Joy in Place of Sorrow
+# Sermon 2525 | Joy in Place of Sorrow
 
 (No. 2525)
 

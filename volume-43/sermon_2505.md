@@ -1,4 +1,4 @@
-# Deliverance From the Pit
+# Sermon 2505 | Deliverance From the Pit
 
 (No. 2505)
 

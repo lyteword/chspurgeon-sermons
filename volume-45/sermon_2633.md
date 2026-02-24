@@ -1,4 +1,4 @@
-# The Two Pivots
+# Sermon 2633 | The Two Pivots
 
 (No. 2633)
 

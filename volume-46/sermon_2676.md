@@ -1,4 +1,4 @@
-# Comfort From the Future
+# Sermon 2676 | Comfort From the Future
 
 (No. 2676)
 

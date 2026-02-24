@@ -1,4 +1,4 @@
-# Perfect Restoration
+# Sermon 2588 | Perfect Restoration
 
 (No. 2588)
 

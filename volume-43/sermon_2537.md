@@ -1,4 +1,4 @@
-# A Warning to Waverers
+# Sermon 2537 | A Warning to Waverers
 
 (No. 2537)
 

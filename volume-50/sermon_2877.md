@@ -1,4 +1,4 @@
-# Trials Expected and Conquered
+# Sermon 2877 | Trials Expected and Conquered
 
 (No. 2877)
 

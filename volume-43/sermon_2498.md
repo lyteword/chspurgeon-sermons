@@ -1,4 +1,4 @@
-# A Portrait No Artist Can Paint
+# Sermon 2498 | A Portrait No Artist Can Paint
 
 (No. 2498)
 

@@ -1,4 +1,4 @@
-# Comforted and Comforting
+# Sermon 2640 | Comforted and Comforting
 
 (No. 2640)
 

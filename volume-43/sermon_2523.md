@@ -1,4 +1,4 @@
-# Abraham's Double Blessing
+# Sermon 2523 | Abraham's Double Blessing
 
 (No. 2523)
 

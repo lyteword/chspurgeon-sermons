@@ -1,4 +1,4 @@
-# Under Arrest
+# Sermon 2402 | Under Arrest
 
 (No. 2402)
 

@@ -1,4 +1,4 @@
-# Shining Christians
+# Sermon 2617 | Shining Christians
 
 (No. 2617)
 

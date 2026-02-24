@@ -1,4 +1,4 @@
-# Where Is the God of Elijah?
+# Sermon 2596 | Where Is the God of Elijah?
 
 (No. 2596)
 

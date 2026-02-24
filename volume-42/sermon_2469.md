@@ -1,4 +1,4 @@
-# The Incomparable Bridegroom and His Bride
+# Sermon 2469 | The Incomparable Bridegroom and His Bride
 
 (No. 2469)
 

@@ -1,4 +1,4 @@
-# Preparation Necessary for the Communion
+# Sermon 2647 | Preparation Necessary for the Communion
 
 (No. 2647)
 

@@ -1,4 +1,4 @@
-# A Worthy Theme for Thought
+# Sermon 2783 | A Worthy Theme for Thought
 
 (No. 2783)
 

@@ -1,4 +1,4 @@
-# Jesus in Gethsemane
+# Sermon 2767 | Jesus in Gethsemane
 
 (No. 2767)
 

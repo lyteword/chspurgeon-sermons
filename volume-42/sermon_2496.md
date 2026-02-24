@@ -1,4 +1,4 @@
-# Joyful Anticipation of the Second Advent
+# Sermon 2496 | Joyful Anticipation of the Second Advent
 
 (No. 2496)
 

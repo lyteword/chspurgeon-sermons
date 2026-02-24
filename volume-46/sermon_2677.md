@@ -1,4 +1,4 @@
-# Spiritual Religion
+# Sermon 2677 | Spiritual Religion
 
 (No. 2677)
 

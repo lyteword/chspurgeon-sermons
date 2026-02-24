@@ -1,4 +1,4 @@
-# How God Comes to Man
+# Sermon 2900 | How God Comes to Man
 
 (No. 2900)
 

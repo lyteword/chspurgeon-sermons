@@ -1,4 +1,4 @@
-# Patients for the Great Physician
+# Sermon 2835 | Patients for the Great Physician
 
 (No. 2835)
 

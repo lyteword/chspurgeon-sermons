@@ -1,4 +1,4 @@
-# The Sluggard's Reproof
+# Sermon 2766 | The Sluggard's Reproof
 
 (No. 2766)
 

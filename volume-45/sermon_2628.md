@@ -1,4 +1,4 @@
-# "All Hail!"
+# Sermon 2628 | "All Hail!"
 
 (No. 2628)
 

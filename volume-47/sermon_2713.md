@@ -1,4 +1,4 @@
-# Walking in the Light of the Lord
+# Sermon 2713 | Walking in the Light of the Lord
 
 (No. 2713)
 

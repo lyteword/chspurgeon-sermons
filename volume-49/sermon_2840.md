@@ -1,4 +1,4 @@
-# Laying the Hand on the Sacrifice
+# Sermon 2840 | Laying the Hand on the Sacrifice
 
 (No. 2840)
 

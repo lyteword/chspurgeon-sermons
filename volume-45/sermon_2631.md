@@ -1,4 +1,4 @@
-# Israel's Cry and God's Answer
+# Sermon 2631 | Israel's Cry and God's Answer
 
 (No. 2631)
 

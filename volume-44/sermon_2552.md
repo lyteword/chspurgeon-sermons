@@ -1,4 +1,4 @@
-# "Take Heed, Brethren"
+# Sermon 2552 | "Take Heed, Brethren"
 
 (No. 2552)
 

@@ -1,4 +1,4 @@
-# The Objective of Christ's Death
+# Sermon 2483 | The Objective of Christ's Death
 
 (No. 2483)
 

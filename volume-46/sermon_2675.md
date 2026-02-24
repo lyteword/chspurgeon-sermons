@@ -1,4 +1,4 @@
-# Jehovah's Challenge
+# Sermon 2675 | Jehovah's Challenge
 
 (No. 2675)
 

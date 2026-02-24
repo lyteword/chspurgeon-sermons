@@ -1,4 +1,4 @@
-# Christ the Cure for Troubled Hearts
+# Sermon 2408 | Christ the Cure for Troubled Hearts
 
 (No. 2408)
 

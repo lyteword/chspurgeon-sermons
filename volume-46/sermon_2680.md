@@ -1,4 +1,4 @@
-# Ruth Deciding for God
+# Sermon 2680 | Ruth Deciding for God
 
 (No. 2680)
 

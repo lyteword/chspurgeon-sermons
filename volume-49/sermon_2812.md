@@ -1,4 +1,4 @@
-# Causes and Cure of Fainting
+# Sermon 2812 | Causes and Cure of Fainting
 
 (No. 2812)
 

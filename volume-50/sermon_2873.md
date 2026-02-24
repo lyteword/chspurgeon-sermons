@@ -1,4 +1,4 @@
-# Who Loves Christ More?
+# Sermon 2873 | Who Loves Christ More?
 
 (No. 2873)
 

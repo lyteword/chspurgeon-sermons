@@ -1,4 +1,4 @@
-# Declaring the Works of the Lord
+# Sermon 2540 | Declaring the Works of the Lord
 
 (No. 2540)
 

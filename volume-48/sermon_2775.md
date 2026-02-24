@@ -1,4 +1,4 @@
-# David Warned and Rewarded
+# Sermon 2775 | David Warned and Rewarded
 
 (No. 2775)
 

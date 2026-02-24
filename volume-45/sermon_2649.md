@@ -1,4 +1,4 @@
-# Girded for the Work
+# Sermon 2649 | Girded for the Work
 
 (No. 2649)
 

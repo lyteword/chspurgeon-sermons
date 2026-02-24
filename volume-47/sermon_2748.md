@@ -1,4 +1,4 @@
-# Rest As a Test
+# Sermon 2748 | Rest As a Test
 
 (No. 2748)
 

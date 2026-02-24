@@ -1,4 +1,4 @@
-# Sabbath-work
+# Sermon 2568 | Sabbath-work
 
 (No. 2568)
 

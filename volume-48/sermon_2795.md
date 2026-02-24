@@ -1,4 +1,4 @@
-# The Double Drawing Near
+# Sermon 2795 | The Double Drawing Near
 
 (No. 2795)
 

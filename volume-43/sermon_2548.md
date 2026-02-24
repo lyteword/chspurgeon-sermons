@@ -1,4 +1,4 @@
-# Four Contrasts
+# Sermon 2548 | Four Contrasts
 
 (No. 2548)
 

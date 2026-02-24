@@ -1,4 +1,4 @@
-# Number 2500--or, "entrance and Exclusion"
+# Sermon 2500 | Number 2500--or, "entrance and Exclusion"
 
 (No. 2500)
 

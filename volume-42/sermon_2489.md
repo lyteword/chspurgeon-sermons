@@ -1,4 +1,4 @@
-# Singing Saints
+# Sermon 2489 | Singing Saints
 
 (No. 2489)
 

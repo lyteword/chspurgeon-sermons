@@ -1,4 +1,4 @@
-# Characteristics of Christ's Disciples
+# Sermon 2650 | Characteristics of Christ's Disciples
 
 (No. 2650)
 

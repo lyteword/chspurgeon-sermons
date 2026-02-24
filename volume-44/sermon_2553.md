@@ -1,4 +1,4 @@
-# The Enemies of the Cross of Christ
+# Sermon 2553 | The Enemies of the Cross of Christ
 
 (No. 2553)
 

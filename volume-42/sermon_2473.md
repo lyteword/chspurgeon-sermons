@@ -1,4 +1,4 @@
-# An Awful Contrast
+# Sermon 2473 | An Awful Contrast
 
 (No. 2473)
 

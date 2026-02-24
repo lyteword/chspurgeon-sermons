@@ -1,4 +1,4 @@
-# God Has Spoken!-- Rejoice!
+# Sermon 2864 | God Has Spoken!-- Rejoice!
 
 (No. 2864)
 

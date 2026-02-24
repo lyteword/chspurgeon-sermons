@@ -1,4 +1,4 @@
-# Christopathy
+# Sermon 2499 | Christopathy
 
 (No. 2499)
 

@@ -1,4 +1,4 @@
-# Why Some Sinners Are Not Pardoned
+# Sermon 2705 | Why Some Sinners Are Not Pardoned
 
 (No. 2705)
 

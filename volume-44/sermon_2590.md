@@ -1,4 +1,4 @@
-# Hearing, Seeking, Finding
+# Sermon 2590 | Hearing, Seeking, Finding
 
 (No. 2590)
 

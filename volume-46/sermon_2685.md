@@ -1,4 +1,4 @@
-# The Oft-Repeated Invitation
+# Sermon 2685 | The Oft-Repeated Invitation
 
 (No. 2685)
 

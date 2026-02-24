@@ -1,4 +1,4 @@
-# One Trophy for Two Exploits
+# Sermon 2823 | One Trophy for Two Exploits
 
 (No. 2823)
 

@@ -1,4 +1,4 @@
-# The Search Warrant
+# Sermon 2898 | The Search Warrant
 
 (No. 2898)
 

@@ -1,4 +1,4 @@
-# Small Things Not to Be Despised
+# Sermon 2601 | Small Things Not to Be Despised
 
 (No. 2601)
 

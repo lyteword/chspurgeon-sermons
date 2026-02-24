@@ -1,4 +1,4 @@
-# Barriers Obliterated
+# Sermon 2847 | Barriers Obliterated
 
 (No. 2847)
 

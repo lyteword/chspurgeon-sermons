@@ -1,4 +1,4 @@
-# Comfort for Tried Believers
+# Sermon 2912 | Comfort for Tried Believers
 
 (No. 2912)
 

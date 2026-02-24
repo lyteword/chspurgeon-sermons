@@ -1,4 +1,4 @@
-# The Marriage Supper of the Lamb
+# Sermon 2428 | The Marriage Supper of the Lamb
 
 (No. 2428)
 

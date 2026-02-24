@@ -1,4 +1,4 @@
-# Ordered Steps
+# Sermon 2487 | Ordered Steps
 
 (No. 2487)
 

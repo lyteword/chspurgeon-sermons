@@ -1,4 +1,4 @@
-# Learning in Private What to Teach in Public
+# Sermon 2674 | Learning in Private What to Teach in Public
 
 (No. 2674)
 

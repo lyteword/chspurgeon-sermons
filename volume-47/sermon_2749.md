@@ -1,4 +1,4 @@
-# Rehoboam the Unready
+# Sermon 2749 | Rehoboam the Unready
 
 (No. 2749)
 

@@ -1,4 +1,4 @@
-# The Sojourn in Mesech
+# Sermon 2780 | The Sojourn in Mesech
 
 (No. 2780)
 

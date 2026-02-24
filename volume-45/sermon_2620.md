@@ -1,4 +1,4 @@
-# Christ's Prayer for Peter
+# Sermon 2620 | Christ's Prayer for Peter
 
 (No. 2620)
 

@@ -1,4 +1,4 @@
-# Elijah Fainting
+# Sermon 2725 | Elijah Fainting
 
 (No. 2725)
 

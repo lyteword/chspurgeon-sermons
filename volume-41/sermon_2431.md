@@ -1,4 +1,4 @@
-# The Double Cleansing
+# Sermon 2431 | The Double Cleansing
 
 (No. 2431)
 

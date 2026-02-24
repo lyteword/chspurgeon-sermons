@@ -1,4 +1,4 @@
-# The Ever-present Crisis
+# Sermon 2533 | The Ever-present Crisis
 
 (No. 2533)
 

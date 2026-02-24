@@ -1,4 +1,4 @@
-# The Dumb Singing
+# Sermon 2625 | The Dumb Singing
 
 (No. 2625)
 

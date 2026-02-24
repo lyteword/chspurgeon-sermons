@@ -1,4 +1,4 @@
-# The Cloud of Doves
+# Sermon 2764 | The Cloud of Doves
 
 (No. 2764)
 

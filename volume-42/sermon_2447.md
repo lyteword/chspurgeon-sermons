@@ -1,4 +1,4 @@
-# "God, and Not Man"--What Does It Mean?
+# Sermon 2447 | "God, and Not Man"--What Does It Mean?
 
 (No. 2447)
 

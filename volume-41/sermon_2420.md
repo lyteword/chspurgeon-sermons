@@ -1,4 +1,4 @@
-# "The King Can Do No Wrong"
+# Sermon 2420 | "The King Can Do No Wrong"
 
 (No. 2420)
 

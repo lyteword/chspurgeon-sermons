@@ -1,4 +1,4 @@
-# The Ever-Living Christ
+# Sermon 2689 | The Ever-Living Christ
 
 (No. 2689)
 

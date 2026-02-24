@@ -1,4 +1,4 @@
-# Believers Tested by Trials
+# Sermon 2732 | Believers Tested by Trials
 
 (No. 2732)
 

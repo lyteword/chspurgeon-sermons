@@ -1,4 +1,4 @@
-# The Climax of God's Love No. 2571
+# Sermon 2571 | The Climax of God's Love No. 2571
 
 (No. 2571)
 

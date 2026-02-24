@@ -1,4 +1,4 @@
-# The Bitterness of the Cross
+# Sermon 2683 | The Bitterness of the Cross
 
 (No. 2683)
 

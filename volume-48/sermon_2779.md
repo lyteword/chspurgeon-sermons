@@ -1,4 +1,4 @@
-# Heart-communing
+# Sermon 2779 | Heart-communing
 
 (No. 2779)
 

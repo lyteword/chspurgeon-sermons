@@ -1,4 +1,4 @@
-# The Danger of Carnal Security
+# Sermon 2490 | The Danger of Carnal Security
 
 (No. 2490)
 

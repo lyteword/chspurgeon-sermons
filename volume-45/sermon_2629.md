@@ -1,4 +1,4 @@
-# God's Work in Man
+# Sermon 2629 | God's Work in Man
 
 (No. 2629)
 

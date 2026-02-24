@@ -1,4 +1,4 @@
-# The Education of Sons of God
+# Sermon 2722 | The Education of Sons of God
 
 (No. 2722)
 

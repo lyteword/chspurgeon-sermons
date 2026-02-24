@@ -1,4 +1,4 @@
-# "Blessed in Him"
+# Sermon 2451 | "Blessed in Him"
 
 (No. 2451)
 

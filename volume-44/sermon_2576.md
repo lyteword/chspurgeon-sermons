@@ -1,4 +1,4 @@
-# Zion's Prosperity
+# Sermon 2576 | Zion's Prosperity
 
 (No. 2576)
 

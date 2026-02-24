@@ -1,4 +1,4 @@
-# Waiting, Hoping, Watching
+# Sermon 2579 | Waiting, Hoping, Watching
 
 (No. 2579)
 

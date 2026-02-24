@@ -1,4 +1,4 @@
-# The Deceived Heart
+# Sermon 2686 | The Deceived Heart
 
 (No. 2686)
 

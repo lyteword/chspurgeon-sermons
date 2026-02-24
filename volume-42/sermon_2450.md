@@ -1,4 +1,4 @@
-# The Joy of Redemption
+# Sermon 2450 | The Joy of Redemption
 
 (No. 2450)
 

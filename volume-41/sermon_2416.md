@@ -1,4 +1,4 @@
-# Adorning the Gospel
+# Sermon 2416 | Adorning the Gospel
 
 (No. 2416)
 

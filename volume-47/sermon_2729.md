@@ -1,4 +1,4 @@
-# Christ's Transfigured Face
+# Sermon 2729 | Christ's Transfigured Face
 
 (No. 2729)
 

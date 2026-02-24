@@ -1,4 +1,4 @@
-# A Good Man in An Evil Case
+# Sermon 2830 | A Good Man in An Evil Case
 
 (No. 2830)
 

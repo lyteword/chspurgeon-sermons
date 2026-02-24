@@ -1,4 +1,4 @@
-# The Holy Spirit Glorifying Christ
+# Sermon 2907 | The Holy Spirit Glorifying Christ
 
 (No. 2907)
 

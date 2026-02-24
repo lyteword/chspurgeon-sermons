@@ -1,4 +1,4 @@
-# The Savior Resting in His Love
+# Sermon 2720 | The Savior Resting in His Love
 
 (No. 2720)
 

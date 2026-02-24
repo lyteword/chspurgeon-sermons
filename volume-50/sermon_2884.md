@@ -1,4 +1,4 @@
-# "Who Is on the Lord's Side?"
+# Sermon 2884 | "Who Is on the Lord's Side?"
 
 (No. 2884)
 

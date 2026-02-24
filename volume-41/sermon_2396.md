@@ -1,4 +1,4 @@
-# Eternal Life!
+# Sermon 2396 | Eternal Life!
 
 (No. 2396)
 

@@ -1,4 +1,4 @@
-# Rejoicing and Remembering
+# Sermon 2461 | Rejoicing and Remembering
 
 (No. 2461)
 

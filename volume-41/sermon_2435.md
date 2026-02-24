@@ -1,4 +1,4 @@
-# The Everlasting Arms
+# Sermon 2435 | The Everlasting Arms
 
 (No. 2435)
 

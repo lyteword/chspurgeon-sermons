@@ -1,4 +1,4 @@
-# Christ's Crowning Glory
+# Sermon 2876 | Christ's Crowning Glory
 
 (No. 2876)
 

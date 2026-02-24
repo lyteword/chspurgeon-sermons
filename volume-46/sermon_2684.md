@@ -1,4 +1,4 @@
-# Two Arguments Against Sin
+# Sermon 2684 | Two Arguments Against Sin
 
 (No. 2684)
 

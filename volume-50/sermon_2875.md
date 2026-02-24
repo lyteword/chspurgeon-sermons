@@ -1,4 +1,4 @@
-# Confirming the Witness of Christ
+# Sermon 2875 | Confirming the Witness of Christ
 
 (No. 2875)
 

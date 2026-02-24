@@ -1,4 +1,4 @@
-# Suffering Outside the Camp
+# Sermon 2660 | Suffering Outside the Camp
 
 (No. 2660)
 

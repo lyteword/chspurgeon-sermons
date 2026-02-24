@@ -1,4 +1,4 @@
-# The Head and the Body
+# Sermon 2653 | The Head and the Body
 
 (No. 2653)
 

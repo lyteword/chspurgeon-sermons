@@ -1,4 +1,4 @@
-# Spiritual Glean1ng
+# Sermon 2585 | Spiritual Glean1ng
 
 (No. 2585)
 

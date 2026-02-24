@@ -1,4 +1,4 @@
-# The Best of All--god Is With Us
+# Sermon 2471 | The Best of All--god Is With Us
 
 (No. 2471)
 

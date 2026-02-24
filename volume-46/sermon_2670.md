@@ -1,4 +1,4 @@
-# Pride Catechized
+# Sermon 2670 | Pride Catechized
 
 (No. 2670)
 

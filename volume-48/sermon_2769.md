@@ -1,4 +1,4 @@
-# The Weakened Christ Strengthened
+# Sermon 2769 | The Weakened Christ Strengthened
 
 (No. 2769)
 

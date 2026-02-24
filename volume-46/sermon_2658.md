@@ -1,4 +1,4 @@
-# Waking to See Christ's Glory
+# Sermon 2658 | Waking to See Christ's Glory
 
 (No. 2658)
 

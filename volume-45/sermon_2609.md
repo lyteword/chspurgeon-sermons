@@ -1,4 +1,4 @@
-# Our Thoughts About God's Thoughts
+# Sermon 2609 | Our Thoughts About God's Thoughts
 
 (No. 2609)
 

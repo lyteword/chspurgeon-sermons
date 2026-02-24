@@ -1,4 +1,4 @@
-# An Unparalleled Cure
+# Sermon 2482 | An Unparalleled Cure
 
 (No. 2482)
 

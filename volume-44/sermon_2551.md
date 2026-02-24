@@ -1,4 +1,4 @@
-# God's Knowledge of Sin
+# Sermon 2551 | God's Knowledge of Sin
 
 (No. 2551)
 

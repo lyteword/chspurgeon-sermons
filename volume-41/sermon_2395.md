@@ -1,4 +1,4 @@
-# The Blessings of Public Worship
+# Sermon 2395 | The Blessings of Public Worship
 
 (No. 2395)
 

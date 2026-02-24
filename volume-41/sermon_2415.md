@@ -1,4 +1,4 @@
-# The Believer's Heritage of Joy
+# Sermon 2415 | The Believer's Heritage of Joy
 
 (No. 2415)
 

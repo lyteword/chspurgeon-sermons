@@ -1,4 +1,4 @@
-# "Out of Darkness Into Light"
+# Sermon 2397 | "Out of Darkness Into Light"
 
 (No. 2397)
 

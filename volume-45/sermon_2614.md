@@ -1,4 +1,4 @@
-# Strange Things
+# Sermon 2614 | Strange Things
 
 (No. 2614)
 

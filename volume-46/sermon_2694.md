@@ -1,4 +1,4 @@
-# Grace Preferred to Gifts
+# Sermon 2694 | Grace Preferred to Gifts
 
 (No. 2694)
 

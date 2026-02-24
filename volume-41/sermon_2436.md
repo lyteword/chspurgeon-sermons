@@ -1,4 +1,4 @@
-# "How Good to Those Who Seek!"
+# Sermon 2436 | "How Good to Those Who Seek!"
 
 (No. 2436)
 

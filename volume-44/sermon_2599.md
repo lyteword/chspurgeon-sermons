@@ -1,4 +1,4 @@
-# A Visit From the Lord
+# Sermon 2599 | A Visit From the Lord
 
 (No. 2599)
 

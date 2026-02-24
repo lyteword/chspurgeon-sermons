@@ -1,4 +1,4 @@
-# Examination Before Communion
+# Sermon 2699 | Examination Before Communion
 
 (No. 2699)
 

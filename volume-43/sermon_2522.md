@@ -1,4 +1,4 @@
-# "After Two Days Is the Passover"
+# Sermon 2522 | "After Two Days Is the Passover"
 
 (No. 2522)
 

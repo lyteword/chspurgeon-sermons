@@ -1,4 +1,4 @@
-# Revelation and Conversion
+# Sermon 2870 | Revelation and Conversion
 
 (No. 2870)
 

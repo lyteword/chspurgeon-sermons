@@ -1,4 +1,4 @@
-# "All of One"
+# Sermon 2418 | "All of One"
 
 (No. 2418)
 

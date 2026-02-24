@@ -1,4 +1,4 @@
-# Taking Hold of God's Covenant
+# Sermon 2762 | Taking Hold of God's Covenant
 
 (No. 2762)
 

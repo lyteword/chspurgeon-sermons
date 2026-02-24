@@ -1,4 +1,4 @@
-# Comfort for the Tempted
+# Sermon 2603 | Comfort for the Tempted
 
 (No. 2603)
 

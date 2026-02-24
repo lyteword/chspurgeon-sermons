@@ -1,4 +1,4 @@
-# Christ Receiving Sinners
+# Sermon 2889 | Christ Receiving Sinners
 
 (No. 2889)
 

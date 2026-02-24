@@ -1,4 +1,4 @@
-# Christ's Sympathy With His People
+# Sermon 2885 | Christ's Sympathy With His People
 
 (No. 2885)
 

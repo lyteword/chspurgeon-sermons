@@ -1,4 +1,4 @@
-# A Pressed Man Yielding to Christ
+# Sermon 2667 | A Pressed Man Yielding to Christ
 
 (No. 2667)
 

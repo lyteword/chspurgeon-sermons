@@ -1,4 +1,4 @@
-# Place for the Word
+# Sermon 2584 | Place for the Word
 
 (No. 2584)
 

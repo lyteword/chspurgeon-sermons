@@ -1,4 +1,4 @@
-# The Seed by the Wayside
+# Sermon 2843 | The Seed by the Wayside
 
 (No. 2843)
 

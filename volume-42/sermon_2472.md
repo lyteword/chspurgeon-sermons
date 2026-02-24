@@ -1,4 +1,4 @@
-# The Best of the Best
+# Sermon 2472 | The Best of the Best
 
 (No. 2472)
 

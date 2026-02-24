@@ -1,4 +1,4 @@
-# Overcoming Christ
+# Sermon 2486 | Overcoming Christ
 
 (No. 2486)
 

@@ -1,4 +1,4 @@
-# Five Divine Declarations
+# Sermon 2793 | Five Divine Declarations
 
 (No. 2793)
 

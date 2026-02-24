@@ -1,4 +1,4 @@
-# Shame Leading to Salvation
+# Sermon 2491 | Shame Leading to Salvation
 
 (No. 2491)
 

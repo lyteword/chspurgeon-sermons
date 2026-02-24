@@ -1,4 +1,4 @@
-# "My Garden"--"His Garden"
+# Sermon 2475 | "My Garden"--"His Garden"
 
 (No. 2475)
 

@@ -1,4 +1,4 @@
-# Consulting With Jesus
+# Sermon 2778 | Consulting With Jesus
 
 (No. 2778)
 

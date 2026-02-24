@@ -1,4 +1,4 @@
-# The Church Encouraged and Exhorted
+# Sermon 2799 | The Church Encouraged and Exhorted
 
 (No. 2799)
 

@@ -1,4 +1,4 @@
-# Love Pledging Fidelity
+# Sermon 2774 | Love Pledging Fidelity
 
 (No. 2774)
 

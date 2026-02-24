@@ -1,4 +1,4 @@
-# Choice Teaching for the Chosen
+# Sermon 2606 | Choice Teaching for the Chosen
 
 (No. 2606)
 

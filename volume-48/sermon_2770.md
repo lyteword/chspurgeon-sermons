@@ -1,4 +1,4 @@
-# "Go in Peace"
+# Sermon 2770 | "Go in Peace"
 
 (No. 2770)
 

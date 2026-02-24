@@ -1,4 +1,4 @@
-# An Instructive Truth
+# Sermon 2893 | An Instructive Truth
 
 (No. 2893)
 

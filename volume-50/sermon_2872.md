@@ -1,4 +1,4 @@
-# The Lord's Supper
+# Sermon 2872 | The Lord's Supper
 
 (No. 2872)
 

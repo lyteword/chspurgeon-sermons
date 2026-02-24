@@ -1,4 +1,4 @@
-# Spared!
+# Sermon 2807 | Spared!
 
 (No. 2807)
 

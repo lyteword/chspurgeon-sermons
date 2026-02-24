@@ -1,4 +1,4 @@
-# Faithful Stewardship
+# Sermon 2440 | Faithful Stewardship
 
 (No. 2440)
 

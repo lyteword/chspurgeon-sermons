@@ -1,4 +1,4 @@
-# Living on the Word
+# Sermon 2577 | Living on the Word
 
 (No. 2577)
 

@@ -1,4 +1,4 @@
-# Feeding On a Whole Christ
+# Sermon 2407 | Feeding On a Whole Christ
 
 (No. 2407)
 

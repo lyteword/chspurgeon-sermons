@@ -1,4 +1,4 @@
-# Angelic Interest in the Gospel
+# Sermon 2697 | Angelic Interest in the Gospel
 
 (No. 2697)
 

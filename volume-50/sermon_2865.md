@@ -1,4 +1,4 @@
-# Fencing the Table
+# Sermon 2865 | Fencing the Table
 
 (No. 2865)
 

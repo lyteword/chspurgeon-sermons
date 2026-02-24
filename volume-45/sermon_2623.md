@@ -1,4 +1,4 @@
-# How Faith Comes
+# Sermon 2623 | How Faith Comes
 
 (No. 2623)
 

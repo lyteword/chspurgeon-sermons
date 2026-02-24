@@ -1,4 +1,4 @@
-# The Tender Grapes
+# Sermon 2480 | The Tender Grapes
 
 (No. 2480)
 

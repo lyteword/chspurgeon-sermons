@@ -1,4 +1,4 @@
-# "A People Prepared for the Lord"
+# Sermon 2404 | "A People Prepared for the Lord"
 
 (No. 2404)
 

@@ -1,4 +1,4 @@
-# Five Links in a Golden Chain
+# Sermon 2439 | Five Links in a Golden Chain
 
 (No. 2439)
 

@@ -1,4 +1,4 @@
-# "Ready, Yes, Ready!"
+# Sermon 2868 | "Ready, Yes, Ready!"
 
 (No. 2868)
 

@@ -1,4 +1,4 @@
-# Prayer, the Proof of Godliness
+# Sermon 2437 | Prayer, the Proof of Godliness
 
 (No. 2437)
 

@@ -1,4 +1,4 @@
-# Kept From Iniquity
+# Sermon 2432 | Kept From Iniquity
 
 (No. 2432)
 

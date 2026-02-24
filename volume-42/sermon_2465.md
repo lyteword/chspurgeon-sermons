@@ -1,4 +1,4 @@
-# Our Omnipotent Leader
+# Sermon 2465 | Our Omnipotent Leader
 
 (No. 2465)
 

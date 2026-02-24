@@ -1,4 +1,4 @@
-# Theocracy
+# Sermon 2848 | Theocracy
 
 (No. 2848)
 

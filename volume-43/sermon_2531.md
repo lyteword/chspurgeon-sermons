@@ -1,4 +1,4 @@
-# A Boundless Benediction
+# Sermon 2531 | A Boundless Benediction
 
 (No. 2531)
 

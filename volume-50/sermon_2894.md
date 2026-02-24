@@ -1,4 +1,4 @@
-# The Sinner's Only Alternative
+# Sermon 2894 | The Sinner's Only Alternative
 
 (No. 2894)
 

@@ -1,4 +1,4 @@
-# Refusing to Be Comforted
+# Sermon 2578 | Refusing to Be Comforted
 
 (No. 2578)
 

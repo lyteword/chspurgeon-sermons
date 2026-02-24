@@ -1,4 +1,4 @@
-# Burden-bearing
+# Sermon 2831 | Burden-bearing
 
 (No. 2831)
 

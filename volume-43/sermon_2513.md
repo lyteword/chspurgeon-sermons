@@ -1,4 +1,4 @@
-# How to Please God
+# Sermon 2513 | How to Please God
 
 (No. 2513)
 

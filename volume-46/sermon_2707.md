@@ -1,4 +1,4 @@
-# An Antidote to Satan's Devices
+# Sermon 2707 | An Antidote to Satan's Devices
 
 (No. 2707)
 

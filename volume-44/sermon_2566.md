@@ -1,4 +1,4 @@
-# A Test for True Seekers
+# Sermon 2566 | A Test for True Seekers
 
 (No. 2566)
 

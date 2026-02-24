@@ -1,4 +1,4 @@
-# Prayer Found in the Heart
+# Sermon 2869 | Prayer Found in the Heart
 
 (No. 2869)
 

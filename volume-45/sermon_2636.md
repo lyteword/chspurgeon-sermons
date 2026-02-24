@@ -1,4 +1,4 @@
-# The Perpetuity of the Gospel
+# Sermon 2636 | The Perpetuity of the Gospel
 
 (No. 2636)
 

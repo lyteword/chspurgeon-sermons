@@ -1,4 +1,4 @@
-# The Single-handed Conquest
+# Sermon 2567 | The Single-handed Conquest
 
 (No. 2567)
 

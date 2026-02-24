@@ -1,4 +1,4 @@
-# Christ's Rest and Ours
+# Sermon 2542 | Christ's Rest and Ours
 
 (No. 2542)
 

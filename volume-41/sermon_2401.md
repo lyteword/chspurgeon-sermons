@@ -1,4 +1,4 @@
-# The Child of Light and the Works of Darkness
+# Sermon 2401 | The Child of Light and the Works of Darkness
 
 (No. 2401)
 

@@ -1,4 +1,4 @@
-# A Special Benediction
+# Sermon 2412 | A Special Benediction
 
 (No. 2412)
 

@@ -1,4 +1,4 @@
-# Despised Light Withdrawn
+# Sermon 2413 | Despised Light Withdrawn
 
 (No. 2413)
 

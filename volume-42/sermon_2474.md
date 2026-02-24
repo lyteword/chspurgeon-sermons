@@ -1,4 +1,4 @@
-# The Great Change
+# Sermon 2474 | The Great Change
 
 (No. 2474)
 

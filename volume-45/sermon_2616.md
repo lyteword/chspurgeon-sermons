@@ -1,4 +1,4 @@
-# Christ's Care of His Disciples
+# Sermon 2616 | Christ's Care of His Disciples
 
 (No. 2616)
 
