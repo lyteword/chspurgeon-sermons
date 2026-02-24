@@ -1,4 +1,4 @@
-# God Or Self--Which?
+# Sermon 438 | God Or Self--Which?
 
 Sermon No. 438 - Delivered on Sunday Morning, March 9th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

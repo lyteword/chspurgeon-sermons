@@ -1,4 +1,4 @@
-# The First Resurrection
+# Sermon 391 | The First Resurrection
 
 Sermon No. 391 - Delivered on Sunday Morning, May 5th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

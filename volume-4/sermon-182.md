@@ -1,4 +1,4 @@
-# Human Inability
+# Sermon 182 | Human Inability
 
 Sermon No. 182 - Delivered on Sabbath Morning, March 7, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

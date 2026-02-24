@@ -1,4 +1,4 @@
-# The Chaff Driven Away
+# Sermon 280 | The Chaff Driven Away
 
 Sermon No. 280 - Delivered on Sabbath Morning, October 23rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

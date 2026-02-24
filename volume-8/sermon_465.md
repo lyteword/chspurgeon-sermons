@@ -1,4 +1,4 @@
-# The Holy Spirit Glorifying Christ
+# Sermon 465 | The Holy Spirit Glorifying Christ
 
 Sermon No. 465 - Delivered on Sunday Morning, August 17th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

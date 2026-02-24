@@ -1,4 +1,4 @@
-# The Procession of Sorrow
+# Sermon 497 | The Procession of Sorrow
 
 Sermon No. 497 - Delivered on Sunday Morning, March 1st, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

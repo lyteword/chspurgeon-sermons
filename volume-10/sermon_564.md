@@ -1,4 +1,4 @@
-# A Promise For Us And For Our Children
+# Sermon 564 | A Promise For Us And For Our Children
 
 Sermon No. 564 - Delivered on Sunday Morning, April 10th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

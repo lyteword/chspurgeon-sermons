@@ -1,4 +1,4 @@
-# Death and Life in Christ
+# Sermon 503 | Death and Life in Christ
 
 Sermon No. 503 - Delivered on Sunday Morning, April 5th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

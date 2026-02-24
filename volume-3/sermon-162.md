@@ -1,4 +1,4 @@
-# The First and Great Commandment
+# Sermon 162 | The First and Great Commandment
 
 Sermon No. 162 - Delivered on Sabbath Morning, November 8, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

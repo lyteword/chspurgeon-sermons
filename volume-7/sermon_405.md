@@ -1,4 +1,4 @@
-# The Triumphal Entry Into Jerusalem
+# Sermon 405 | The Triumphal Entry Into Jerusalem
 
 Sermon No. 405 - Delivered on Sunday Morning, August the 18th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

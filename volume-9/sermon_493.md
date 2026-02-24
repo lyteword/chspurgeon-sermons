@@ -1,4 +1,4 @@
-# Gethsemane
+# Sermon 493 | Gethsemane
 
 Sermon No. 493 - Delivered on Sunday Morning, February 8th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Men Chosen&mdash;Fallen Angels Rejected
+# Sermon 90 | Men Chosen&mdash;Fallen Angels Rejected
 
 Sermon No. 90 - Delivered on Sabbath Evening, June 29, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

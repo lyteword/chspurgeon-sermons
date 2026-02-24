@@ -1,4 +1,4 @@
-# The Royal Pair in Their Glorious Chariot
+# Sermon 482 | The Royal Pair in Their Glorious Chariot
 
 Sermon No. 482 - Delivered on Sunday Morning, November 30th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

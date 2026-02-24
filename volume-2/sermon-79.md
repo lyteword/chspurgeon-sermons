@@ -1,4 +1,4 @@
-# The Form of Sound Words
+# Sermon 79 | The Form of Sound Words
 
 Sermon No. 79 - Delivered on Sabbath Morning, May 11, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

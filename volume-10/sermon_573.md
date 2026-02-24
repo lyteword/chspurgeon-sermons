@@ -1,4 +1,4 @@
-# Baptismal Regeneration
+# Sermon 573 | Baptismal Regeneration
 
 Sermon No. 573 - Delivered on Sunday Morning, June 5th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

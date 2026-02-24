@@ -1,4 +1,4 @@
-# The Betrayal
+# Sermon 494 | The Betrayal
 
 Sermon No. 494 - Delivered on Sunday Morning, February 15th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

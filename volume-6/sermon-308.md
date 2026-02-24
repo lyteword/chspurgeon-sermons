@@ -1,4 +1,4 @@
-# The Parable Of The Sower
+# Sermon 308 | The Parable Of The Sower
 
 Sermon No. 308 - Delivered on Sabbath Morning, April 15th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

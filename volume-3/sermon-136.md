@@ -1,4 +1,4 @@
-# Israel in Egypt
+# Sermon 136 | Israel in Egypt
 
 Sermon No. 136 - Delivered on Sabbath Morning, June 14, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

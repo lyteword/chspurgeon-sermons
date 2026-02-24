@@ -1,4 +1,4 @@
-# The Queen Of The South, Or The Earnest Enquirer
+# Sermon 533 | The Queen Of The South, Or The Earnest Enquirer
 
 Sermon No. 533 - Delivered on Sunday Morning, October 4th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

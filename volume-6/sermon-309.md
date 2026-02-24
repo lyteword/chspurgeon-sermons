@@ -1,4 +1,4 @@
-# Full Redemption
+# Sermon 309 | Full Redemption
 
 Sermon No. 309 - Delivered on Sabbath Morning, April 22nd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

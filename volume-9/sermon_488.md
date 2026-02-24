@@ -1,4 +1,4 @@
-# The Voice From Heaven
+# Sermon 488 | The Voice From Heaven
 
 Sermon No. 488 - Delivered on Sunday Evening, November 23rd, 1862, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

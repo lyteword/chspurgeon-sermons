@@ -1,4 +1,4 @@
-# No Room for Christ in the Inn
+# Sermon 485 | No Room for Christ in the Inn
 
 Sermon No. 485 - Delivered on Sunday Morning, December 21st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

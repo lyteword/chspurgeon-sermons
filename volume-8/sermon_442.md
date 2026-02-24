@@ -1,4 +1,4 @@
-# God's Will and Man's Will
+# Sermon 442 | God's Will and Man's Will
 
 Sermon No. 442 - Delivered on Sunday Morning, March 30th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

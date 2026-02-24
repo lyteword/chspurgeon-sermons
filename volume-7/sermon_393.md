@@ -1,4 +1,4 @@
-# The Church--Conservative And Aggressive
+# Sermon 393 | The Church--Conservative And Aggressive
 
 Sermon No. 393 - Delivered on Sunday Morning, May 19th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

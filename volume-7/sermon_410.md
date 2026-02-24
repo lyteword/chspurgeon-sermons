@@ -1,4 +1,4 @@
-# Not Now, But Hereafter!
+# Sermon 410 | Not Now, But Hereafter!
 
 Sermon No. 410 - Delivered on Sunday Morning, September the 22nd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

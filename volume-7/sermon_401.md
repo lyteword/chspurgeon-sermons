@@ -1,4 +1,4 @@
-# Jacob's Waking Exclamation
+# Sermon 401 | Jacob's Waking Exclamation
 
 Sermon No. 401 - Delivered on Sunday Morning, July the 21st, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

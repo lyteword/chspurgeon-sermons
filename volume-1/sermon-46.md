@@ -1,4 +1,4 @@
-# The Glorious Habitation
+# Sermon 46 | The Glorious Habitation
 
 Sermon No. 46 - Delivered on Sabbath Morning, October 14, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

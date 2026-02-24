@@ -1,4 +1,4 @@
-# Election no Discouragement to Seeking Souls
+# Sermon 553 | Election no Discouragement to Seeking Souls
 
 Sermon No. 553 - Delivered on Sunday Morning, February 7th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

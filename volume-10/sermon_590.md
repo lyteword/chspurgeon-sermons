@@ -1,4 +1,4 @@
-# The Backslider's Way Hedged Up
+# Sermon 590 | The Backslider's Way Hedged Up
 
 Sermon No. 590 - Delivered on Sunday Morning, September 18th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

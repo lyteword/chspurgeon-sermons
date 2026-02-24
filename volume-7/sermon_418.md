@@ -1,4 +1,4 @@
-# Bread For The Hungry
+# Sermon 418 | Bread For The Hungry
 
 Sermon No. 418 - Delivered on Sunday Morning, November 10th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

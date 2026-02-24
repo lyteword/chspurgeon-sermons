@@ -1,4 +1,4 @@
-# Struggles of Conscience
+# Sermon 336 | Struggles of Conscience
 
 Sermon No. 336 - Delivered on Sabbath Morning, September 22nd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

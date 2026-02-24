@@ -1,4 +1,4 @@
-# How To Keep the Heart
+# Sermon 180 | How To Keep the Heart
 
 Sermon No. 180 - Delivered on Sabbath Evening, February 21, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

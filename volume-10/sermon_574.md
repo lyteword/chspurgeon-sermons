@@ -1,4 +1,4 @@
-# The Superlative Excellence Of The Holy Spirit
+# Sermon 574 | The Superlative Excellence Of The Holy Spirit
 
 Sermon No. 574 - Delivered on Sunday Morning, June 12th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

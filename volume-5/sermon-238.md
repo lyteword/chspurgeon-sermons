@@ -1,4 +1,4 @@
-# Reform
+# Sermon 238 | Reform
 
 Sermon No. 238 - Delivered on Sabbath Morning, February 13th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

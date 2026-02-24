@@ -1,4 +1,4 @@
-# Religion--a Reality
+# Sermon 457 | Religion--a Reality
 
 Sermon No. 457 - Delivered on Sunday Morning, June 22nd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

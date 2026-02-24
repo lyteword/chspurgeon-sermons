@@ -1,4 +1,4 @@
-# Humility
+# Sermon 365 | Humility
 
 Sermon No. 365 - Delivered on Sabbath Morning, March 17th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

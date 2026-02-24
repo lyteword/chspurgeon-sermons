@@ -1,4 +1,4 @@
-# Christ Precious to Believers
+# Sermon 242 | Christ Precious to Believers
 
 Sermon No. 242 - Delivered on Sabbath Morning, March 13th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

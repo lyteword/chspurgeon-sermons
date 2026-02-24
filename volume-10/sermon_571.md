@@ -1,4 +1,4 @@
-# Unbelievers Stumbling--Believers Rejoicing
+# Sermon 571 | Unbelievers Stumbling--Believers Rejoicing
 
 Sermon No. 571 - Delivered on Sunday Morning, May 22nd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

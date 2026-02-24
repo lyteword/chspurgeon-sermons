@@ -1,4 +1,4 @@
-# A Home Mission Sermon
+# Sermon 259 | A Home Mission Sermon
 
 Sermon No. 259 - Delivered on Sabbath Morning, June 26th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

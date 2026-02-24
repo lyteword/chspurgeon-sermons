@@ -1,4 +1,4 @@
-# The High Priest Standing Between the Dead and the Living
+# Sermon 341 | The High Priest Standing Between the Dead and the Living
 
 Sermon No. 341 - Delivered on Sabbath Morning, October 21st, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

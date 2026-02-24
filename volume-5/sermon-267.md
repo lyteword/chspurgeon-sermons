@@ -1,4 +1,4 @@
-# The Tabernacle of the Most High
+# Sermon 267 | The Tabernacle of the Most High
 
 Sermon No. 267 - Delivered on Sabbath Morning, August 14th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

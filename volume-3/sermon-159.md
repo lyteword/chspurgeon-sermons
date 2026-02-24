@@ -1,4 +1,4 @@
-# The True Christian's Blessedness
+# Sermon 159 | The True Christian's Blessedness
 
 Sermon No. 159 - Delivered on Sabbath Morning, October 18, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

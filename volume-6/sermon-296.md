@@ -1,4 +1,4 @@
-# A Revival Sermon
+# Sermon 296 | A Revival Sermon
 
 Sermon No. 296 - Delivered on Sabbath Morning, January 26th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

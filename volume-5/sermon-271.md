@@ -1,4 +1,4 @@
-# Faith Illustrated
+# Sermon 271 | Faith Illustrated
 
 Sermon No. 271 - Delivered on Sabbath Morning, August 21st, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

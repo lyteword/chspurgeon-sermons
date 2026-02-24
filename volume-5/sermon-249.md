@@ -1,4 +1,4 @@
-# A Vision of the Latter-Day Glories
+# Sermon 249 | A Vision of the Latter-Day Glories
 
 Sermon No. 249 - Delivered on Sabbath Morning, April 24th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# All-Sufficiency Magnified
+# Sermon 346 | All-Sufficiency Magnified
 
 Sermon No. 346 - Delivered on Sabbath Morning, November 18th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

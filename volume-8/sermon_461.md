@@ -1,4 +1,4 @@
-# Am I Clear Of His Blood?
+# Sermon 461 | Am I Clear Of His Blood?
 
 Sermon No. 461 - Delivered on Sunday Morning, July 20th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

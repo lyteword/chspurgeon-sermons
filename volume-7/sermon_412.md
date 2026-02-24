@@ -1,4 +1,4 @@
-# God's First Words To The First Sinner
+# Sermon 412 | God's First Words To The First Sinner
 
 Sermon No. 412 - Delivered on Sunday Morning, October 6th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

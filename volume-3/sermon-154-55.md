@@ -1,4 +1,4 @@
-# Fast-Day Service
+# Sermon 154 & 55 | Fast-Day Service
 
 Sermon No. 154 & 55 - Held at the CRYSTAL PALACE, SYDENHAM, on Wednesday, October 7th, 1857, by the REV. C.H. SPURGEON, being the Day appointed by Proclamation for a Solemn Fast, Humiliation, and Prayer before Almighty God: in order to obtain Pardon of our Sins, and for imploring His Blessing and Assistance on our Arms for the Restoration of Tranquillity in India.
 

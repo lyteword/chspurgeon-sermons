@@ -1,4 +1,4 @@
-# Obtaining Promises
+# Sermon 435 | Obtaining Promises
 
 Sermon No. 435 - Delivered on Sunday Morning, February 16th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

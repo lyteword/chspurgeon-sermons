@@ -1,4 +1,4 @@
-# Believers--Lights In The World
+# Sermon 472 | Believers--Lights In The World
 
 Sermon No. 472 - Delivered on Sunday Morning, September 28th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

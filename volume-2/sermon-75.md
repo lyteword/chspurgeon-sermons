@@ -1,4 +1,4 @@
-# Final Perseverance
+# Sermon 75 | Final Perseverance
 
 Sermon No. 75 - Delivered on Sabbath Morning, March 23, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

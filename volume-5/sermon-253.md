@@ -1,4 +1,4 @@
-# A Psalm of Remembrance
+# Sermon 253 | A Psalm of Remembrance
 
 Sermon No. 253 - Delivered on Sabbath Morning, May 22nd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

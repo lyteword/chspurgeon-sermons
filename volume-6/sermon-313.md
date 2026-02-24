@@ -1,4 +1,4 @@
-# Terrible Convictions and Gentle Drawings
+# Sermon 313 | Terrible Convictions and Gentle Drawings
 
 Sermon No. 313 - Delivered on Sabbath Morning, May 6th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

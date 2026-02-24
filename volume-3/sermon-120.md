@@ -1,4 +1,4 @@
-# A Faithful Friend
+# Sermon 120 | A Faithful Friend
 
 Sermon No. 120 - Delivered on Sabbath Morning, March 8, 1857, by the REV. C.H. SPURGEON at The Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# God, the All-Seeing One
+# Sermon 177 | God, the All-Seeing One
 
 Sermon No. 177 - Delivered on Sabbath Morning, February 14, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

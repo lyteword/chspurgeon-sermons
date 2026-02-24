@@ -1,4 +1,4 @@
-# Samson Conquered
+# Sermon 224 | Samson Conquered
 
 Sermon No. 224 - Delivered on Sabbath Morning, November 21st, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

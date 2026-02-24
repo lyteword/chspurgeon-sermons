@@ -1,4 +1,4 @@
-# A Single Eye And Simple Faith
+# Sermon 335 | A Single Eye And Simple Faith
 
 Sermon No. 335 - Delivered on Sabbath Morning, September 16th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

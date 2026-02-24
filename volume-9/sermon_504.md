@@ -1,4 +1,4 @@
-# I Know That My Redeemer Liveth
+# Sermon 504 | I Know That My Redeemer Liveth
 
 Sermon No. 504 - Delivered on Sunday Morning, April 12th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

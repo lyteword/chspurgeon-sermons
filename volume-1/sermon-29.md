@@ -1,4 +1,4 @@
-# Christ Manifesting Himself to His People
+# Sermon 29 | Christ Manifesting Himself to His People
 
 Sermon No. 29 - Delivered on Sabbath Morning, June 10, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

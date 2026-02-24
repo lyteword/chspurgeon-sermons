@@ -1,4 +1,4 @@
-# Jehovah Tsidkenu: The Lord Our Righteousness
+# Sermon 395 | Jehovah Tsidkenu: The Lord Our Righteousness
 
 Sermon No. 395 - Delivered on Sunday Morning, June 2nd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

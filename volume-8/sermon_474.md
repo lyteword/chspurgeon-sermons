@@ -1,4 +1,4 @@
-# Faith Omnipotent
+# Sermon 474 | Faith Omnipotent
 
 Sermon No. 474 - Delivered on Sunday Morning, October 12th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

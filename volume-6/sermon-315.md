@@ -1,4 +1,4 @@
-# The Teaching of the Holy Ghost
+# Sermon 315 | The Teaching of the Holy Ghost
 
 Sermon No. 315 - Delivered on Sabbath Morning, May 13th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

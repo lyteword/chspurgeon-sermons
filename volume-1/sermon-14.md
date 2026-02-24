@@ -1,4 +1,4 @@
-# The Victory of Faith
+# Sermon 14 | The Victory of Faith
 
 Sermon No. 14 - Delivered on Sabbath Morning, March 18, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

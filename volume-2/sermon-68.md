@@ -1,4 +1,4 @@
-# A Solemn Warning for All Churches
+# Sermon 68 | A Solemn Warning for All Churches
 
 Sermon No. 68 - Delivered on Sabbath Morning, February 24, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

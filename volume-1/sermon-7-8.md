@@ -1,4 +1,4 @@
-# Christ Crucified
+# Sermon 7 & 8 | Christ Crucified
 
 Sermon No. 7 & 8 - Delivered on Sabbath Morning, February 11, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

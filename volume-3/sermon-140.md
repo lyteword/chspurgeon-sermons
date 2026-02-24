@@ -1,4 +1,4 @@
-# A Simple Sermon for Seeking Souls
+# Sermon 140 | A Simple Sermon for Seeking Souls
 
 Sermon No. 140 - Delivered on Sabbath Morning, July 12, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

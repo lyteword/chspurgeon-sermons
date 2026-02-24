@@ -1,4 +1,4 @@
-# The Fainting Warrior
+# Sermon 235 | The Fainting Warrior
 
 Sermon No. 235 - Delivered on Sabbath Morning, January 23rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

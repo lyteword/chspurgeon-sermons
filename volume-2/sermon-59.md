@@ -1,4 +1,4 @@
-# Watch-Night Service
+# Sermon 59 | Watch-Night Service
 
 Sermon No. 59 - Delivered on Tuesday Night, December 31, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

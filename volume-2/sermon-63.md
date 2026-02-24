@@ -1,4 +1,4 @@
-# Marvellous Increase of the Church
+# Sermon 63 | Marvellous Increase of the Church
 
 Sermon No. 63 - Delivered on Sabbath Morning, January 27, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

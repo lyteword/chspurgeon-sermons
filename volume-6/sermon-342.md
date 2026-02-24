@@ -1,4 +1,4 @@
-# Grace Reviving Israel
+# Sermon 342 | Grace Reviving Israel
 
 A Sermon
 

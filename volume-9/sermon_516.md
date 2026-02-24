@@ -1,4 +1,4 @@
-# The Minister's Stock-Taking
+# Sermon 516 | The Minister's Stock-Taking
 
 Sermon No. 516 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

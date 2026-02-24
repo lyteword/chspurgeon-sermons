@@ -1,4 +1,4 @@
-# The Blind Beggar
+# Sermon 266 | The Blind Beggar
 
 Sermon No. 266 - Delivered on Sabbath Morning, August 7th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

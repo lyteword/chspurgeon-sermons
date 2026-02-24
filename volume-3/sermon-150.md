@@ -1,4 +1,4 @@
-# India's Ills and England's Sorrows
+# Sermon 150 | India's Ills and England's Sorrows
 
 Sermon No. 150 - Delivered on Sabbath Morning, September 6, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

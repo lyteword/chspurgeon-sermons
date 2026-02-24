@@ -1,4 +1,4 @@
-# The Immutability of God
+# Sermon 1 | The Immutability of God
 
 Sermon No. 1 - Delivered on Sabbath Morning, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

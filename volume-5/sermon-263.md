@@ -1,4 +1,4 @@
-# The Story of God's Mighty Acts
+# Sermon 263 | The Story of God's Mighty Acts
 
 Sermon No. 263 - Delivered on Sabbath Morning, July 17th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

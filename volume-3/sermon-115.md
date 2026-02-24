@@ -1,4 +1,4 @@
-# Why Are Men Saved?
+# Sermon 115 | Why Are Men Saved?
 
 Sermon No. 115 - Delivered on Sabbath Morning, February 1, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

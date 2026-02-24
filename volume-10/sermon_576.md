@@ -1,4 +1,4 @@
-# Quiet Musing!
+# Sermon 576 | Quiet Musing!
 
 Sermon No. 576 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

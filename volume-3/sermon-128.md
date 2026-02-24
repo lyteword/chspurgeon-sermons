@@ -1,4 +1,4 @@
-# The Uses of the Law
+# Sermon 128 | The Uses of the Law
 
 Sermon No. 128 - Delivered on Sabbath Morning, April 19, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# A Sermon For Men Of Taste
+# Sermon 459 | A Sermon For Men Of Taste
 
 Sermon No. 459 - Delivered on Sunday Morning, July 6th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

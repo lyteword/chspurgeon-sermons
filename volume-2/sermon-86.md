@@ -1,4 +1,4 @@
-# Unimpeachable Justice
+# Sermon 86 | Unimpeachable Justice
 
 Sermon No. 86 - Delivered on Sabbath Morning, June 15, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

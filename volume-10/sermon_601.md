@@ -1,4 +1,4 @@
-# A Solemn Enquiry Concerning Our Families
+# Sermon 601 | A Solemn Enquiry Concerning Our Families
 
 Sermon No. 601 - Delivered on Sunday Morning, November 20th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

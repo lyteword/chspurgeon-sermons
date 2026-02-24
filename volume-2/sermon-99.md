@@ -1,4 +1,4 @@
-# The Duty of Remembering the Poor
+# Sermon 99 | The Duty of Remembering the Poor
 
 Sermon No. 99 - Delivered on Thursday Evening, September 25th, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark. Preached on behalf of the Aged Pilgrims' Friend Society.
 

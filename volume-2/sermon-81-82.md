@@ -1,4 +1,4 @@
-# The God of the Aged
+# Sermon 81 & 82 | The God of the Aged
 
 Sermon No. 81 & 82 - Delivered on Sabbath Morning, May 25, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark. The substance of which was also delivered at Stambourne, Essex, on the commemoration of the Jubilee of his Grandfather, the REV. JAMES SPURGEON, Tuesday 27th May. 1856.
 

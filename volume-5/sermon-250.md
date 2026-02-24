@@ -1,4 +1,4 @@
-# War! War! War!
+# Sermon 250 | War! War! War!
 
 Sermon No. 250 - Delivered on Sabbath Morning, May 1st, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

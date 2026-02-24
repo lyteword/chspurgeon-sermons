@@ -1,4 +1,4 @@
-# The Mysteries of the Brazen Serpent
+# Sermon 153 | The Mysteries of the Brazen Serpent
 
 Sermon No. 153 - Delivered on Sabbath Morning, September 27, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

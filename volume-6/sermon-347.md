@@ -1,4 +1,4 @@
-# Preaching! Man's Privilege and God's Power
+# Sermon 347 | Preaching! Man's Privilege and God's Power
 
 Sermon No. 347 - Delivered on Sabbath Morning, November 25th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

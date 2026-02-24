@@ -1,4 +1,4 @@
-# A Blast of the Trumpet Against False Peace
+# Sermon 301 | A Blast of the Trumpet Against False Peace
 
 Sermon No. 301 - Delivered on Sabbath Morning, February 26th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

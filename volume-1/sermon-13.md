@@ -1,4 +1,4 @@
-# Consolation Proportionate to Spiritual Sufferings
+# Sermon 13 | Consolation Proportionate to Spiritual Sufferings
 
 Sermon No. 13 - Delivered on Sabbath Morning, March 11, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

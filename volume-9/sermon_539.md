@@ -1,4 +1,4 @@
-# Heavenly Lovesickness!
+# Sermon 539 | Heavenly Lovesickness!
 
 Sermon No. 539 - Delivered on Sunday Morning, November 8th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

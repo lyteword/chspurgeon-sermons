@@ -1,4 +1,4 @@
-# A Cure For Care
+# Sermon 428 | A Cure For Care
 
 Sermon No. 428 - Delivered on Sunday Morning, January 12th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

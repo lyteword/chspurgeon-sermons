@@ -1,4 +1,4 @@
-# Two Visions
+# Sermon 598 | Two Visions
 
 Sermon No. 598 - Delivered on Sunday Morning, November 6th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

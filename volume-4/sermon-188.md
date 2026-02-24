@@ -1,4 +1,4 @@
-# The Redeemer's Prayer
+# Sermon 188 | The Redeemer's Prayer
 
 Sermon No. 188 - Delivered on Sabbath Morning, April 18th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

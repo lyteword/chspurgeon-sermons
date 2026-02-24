@@ -1,4 +1,4 @@
-# A Sermon For Gleaners
+# Sermon 464 | A Sermon For Gleaners
 
 Sermon No. 464 - Delivered on Sunday Morning, August 10th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

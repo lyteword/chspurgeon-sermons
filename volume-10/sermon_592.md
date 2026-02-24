@@ -1,4 +1,4 @@
-# The True Position Of Assurance
+# Sermon 592 | The True Position Of Assurance
 
 Sermon No. 592 - Delivered on Sunday Morning, October 2nd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

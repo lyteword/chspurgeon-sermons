@@ -1,4 +1,4 @@
-# The Bible
+# Sermon 15 | The Bible
 
 Sermon No. 15 - Delivered on Sabbath Evening, March 18, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

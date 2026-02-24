@@ -1,4 +1,4 @@
-# "Magnificat"
+# Sermon 340 | "Magnificat"
 
 Sermon No. 340 - Delivered on Sabbath Morning, October 14th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

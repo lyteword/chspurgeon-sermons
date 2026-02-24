@@ -1,4 +1,4 @@
-# The Christian's Heaviness and Rejoicing
+# Sermon 222 | The Christian's Heaviness and Rejoicing
 
 Sermon No. 222 - Delivered on Sabbath Morning, November 7th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

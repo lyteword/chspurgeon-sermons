@@ -1,4 +1,4 @@
-# A Bottle in the Smoke
+# Sermon 71 | A Bottle in the Smoke
 
 Sermon No. 71 - Delivered on Sabbath Morning, March 23, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

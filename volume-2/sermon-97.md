@@ -1,4 +1,4 @@
-# Pride and Humility
+# Sermon 97 | Pride and Humility
 
 Sermon No. 97 - Delivered on Sabbath Morning, August 17, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

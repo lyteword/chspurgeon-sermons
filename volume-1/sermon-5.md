@@ -1,4 +1,4 @@
-# The Comforter
+# Sermon 5 | The Comforter
 
 Sermon No. 5 - Delivered on Sabbath Evening, January 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

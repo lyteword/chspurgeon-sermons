@@ -1,4 +1,4 @@
-# Flesh And Spirit--A Riddle
+# Sermon 467 | Flesh And Spirit--A Riddle
 
 Sermon No. 467 - Delivered on Sunday Morning, August 31st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

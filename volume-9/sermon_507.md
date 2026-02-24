@@ -1,4 +1,4 @@
-# The Power Of Prayer And The Pleasure Of Praise
+# Sermon 507 | The Power Of Prayer And The Pleasure Of Praise
 
 Sermon No. 507 - Delivered on Sunday Morning, May 3rd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Human Responsibility
+# Sermon 194 | Human Responsibility
 
 Sermon No. 194 - Delivered on Sabbath Morning, May 16, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

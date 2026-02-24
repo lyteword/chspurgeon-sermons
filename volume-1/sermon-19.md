@@ -1,4 +1,4 @@
-# David's Dying Song
+# Sermon 19 | David's Dying Song
 
 Sermon No. 19 - Delivered on Sabbath Morning, April 15, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

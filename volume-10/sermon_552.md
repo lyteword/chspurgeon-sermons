@@ -1,4 +1,4 @@
-# Do You Know Him?
+# Sermon 552 | Do You Know Him?
 
 Sermon No. 552 - Delivered on Sunday Morning, January 31st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

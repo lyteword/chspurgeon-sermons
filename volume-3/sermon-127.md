@@ -1,4 +1,4 @@
-# Spiritual Resurrection
+# Sermon 127 | Spiritual Resurrection
 
 Sermon No. 127 - Delivered on Sabbath Morning, April 12, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

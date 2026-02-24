@@ -1,4 +1,4 @@
-# Indwelling Sin
+# Sermon 83 | Indwelling Sin
 
 Sermon No. 83 - Delivered on Sabbath Morning, June 1, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

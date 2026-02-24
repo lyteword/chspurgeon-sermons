@@ -1,4 +1,4 @@
-# His Name&mdash;The Counsellor
+# Sermon 215 | His Name&mdash;The Counsellor
 
 Sermon No. 215 - Delivered on Sabbath Morning, September 26, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# The Loved Ones Chastened
+# Sermon 164 | The Loved Ones Chastened
 
 Sermon No. 164 - Delivered on Sabbath Morning, November 22, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

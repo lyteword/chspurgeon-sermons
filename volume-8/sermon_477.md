@@ -1,4 +1,4 @@
-# Never! Never! Never! Never! Never!
+# Sermon 477 | Never! Never! Never! Never! Never!
 
 Sermon No. 477 - Delivered on Sunday Morning, October 26th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Child Samuel's Prayer
+# Sermon 586 | The Child Samuel's Prayer
 
 Sermon No. 586 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

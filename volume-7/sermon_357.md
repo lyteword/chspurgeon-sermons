@@ -1,4 +1,4 @@
-# The Christ of Patmos
+# Sermon 357 | The Christ of Patmos
 
 Sermon No. 357 - Delivered on Sabbath Morning, January 27th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

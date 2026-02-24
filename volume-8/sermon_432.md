@@ -1,4 +1,4 @@
-# A Voice from the Hartley Colliery
+# Sermon 432 | A Voice from the Hartley Colliery
 
 Sermon No. 432 - Delivered on Thursday Evening, January 30th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

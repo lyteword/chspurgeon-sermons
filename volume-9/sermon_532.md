@@ -1,4 +1,4 @@
-# Thanksgiving And Prayer
+# Sermon 532 | Thanksgiving And Prayer
 
 Sermon No. 532 - Delivered on Sunday Morning, September 27th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Righteous Hatred
+# Sermon 208 | Righteous Hatred
 
 Sermon No. 208 - Delivered on Sabbath Morning, August 8, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

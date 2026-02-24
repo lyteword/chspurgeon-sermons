@@ -1,4 +1,4 @@
-# Corn in Egypt
+# Sermon 234 | Corn in Egypt
 
 Sermon No. 234 - Delivered on Sabbath Morning, January 16th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

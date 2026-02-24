@@ -1,4 +1,4 @@
-# Preach the Gospel
+# Sermon 34 | Preach the Gospel
 
 Sermon No. 34 - Delivered on Sabbath Morning, August 5, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

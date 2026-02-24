@@ -1,4 +1,4 @@
-# A Woman's Memorial
+# Sermon 286 | A Woman's Memorial
 
 Sermon No. 286 - Delivered on Sabbath Morning, November 27th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

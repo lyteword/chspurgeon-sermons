@@ -1,4 +1,4 @@
-# Importance of Small Things in Religion
+# Sermon 307 | Importance of Small Things in Religion
 
 Sermon No. 307 - Delivered on Sabbath Morning, April 8th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

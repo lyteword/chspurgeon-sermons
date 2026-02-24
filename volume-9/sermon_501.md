@@ -1,4 +1,4 @@
-# Grace Abounding
+# Sermon 501 | Grace Abounding
 
 Sermon No. 501 - Delivered on Sunday Morning, March 22nd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

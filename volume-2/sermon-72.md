@@ -1,4 +1,4 @@
-# Israel at the Red Sea
+# Sermon 72 | Israel at the Red Sea
 
 Sermon No. 72 - Delivered on Sabbath Morning, March 30, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

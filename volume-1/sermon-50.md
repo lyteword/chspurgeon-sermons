@@ -1,4 +1,4 @@
-# The Holy Ghost&mdash;The Great Teacher
+# Sermon 50 | The Holy Ghost&mdash;The Great Teacher
 
 Sermon No. 50 - Delivered on Sabbath Morning, November 18, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

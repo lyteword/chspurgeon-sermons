@@ -1,4 +1,4 @@
-# The Inexhaustible Barrel
+# Sermon 290 | The Inexhaustible Barrel
 
 Sermon No. 290 - Delivered on Sabbath Morning, December 18th, 1859, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

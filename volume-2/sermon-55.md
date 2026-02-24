@@ -1,4 +1,4 @@
-# The Exodus
+# Sermon 55 | The Exodus
 
 Sermon No. 55 - Delivered on Sabbath Morning, December 9, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

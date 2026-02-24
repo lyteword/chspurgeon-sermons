@@ -1,4 +1,4 @@
-# Confession and Absolution
+# Sermon 216 | Confession and Absolution
 
 Sermon No. 216 - Delivered on Sabbath Morning, October 3, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

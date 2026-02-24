@@ -1,4 +1,4 @@
-# A Preacher from the Dead
+# Sermon 143 | A Preacher from the Dead
 
 Sermon No. 143 - Delivered on Sabbath Morning, July 26, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

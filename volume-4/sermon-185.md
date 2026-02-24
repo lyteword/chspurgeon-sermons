@@ -1,4 +1,4 @@
-# The Great Revival
+# Sermon 185 | The Great Revival
 
 Sermon No. 185 - Delivered on Sabbath Morning, March 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

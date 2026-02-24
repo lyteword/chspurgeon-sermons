@@ -1,4 +1,4 @@
-# The Power of the Holy Ghost
+# Sermon 30 | The Power of the Holy Ghost
 
 Sermon No. 30 - Delivered on Sabbath Morning, June 17, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

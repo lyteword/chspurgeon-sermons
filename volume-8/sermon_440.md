@@ -1,4 +1,4 @@
-# Cheer For The Faint-Hearted
+# Sermon 440 | Cheer For The Faint-Hearted
 
 Sermon No. 440 - Delivered on Sunday Evening January 26th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

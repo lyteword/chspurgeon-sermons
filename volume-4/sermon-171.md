@@ -1,4 +1,4 @@
-# Paul's Sermon Before Felix
+# Sermon 171 | Paul's Sermon Before Felix
 
 Sermon No. 171 - Delivered on Sabbath Morning, January 10, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

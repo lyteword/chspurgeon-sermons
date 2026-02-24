@@ -1,4 +1,4 @@
-# Caleb--The Man For The Times
+# Sermon 538 | Caleb--The Man For The Times
 
 Sermon No. 538 - Delivered on Sunday Morning, November 1st, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

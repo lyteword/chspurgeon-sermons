@@ -1,4 +1,4 @@
-# A Mystery! Saints Sorrowing and Jesus Glad!
+# Sermon 585 | A Mystery! Saints Sorrowing and Jesus Glad!
 
 Sermon No. 585 - Delivered on Sunday Morning, August 7th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

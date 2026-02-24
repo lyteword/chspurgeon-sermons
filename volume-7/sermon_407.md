@@ -1,4 +1,4 @@
-# Natural or Spiritual?
+# Sermon 407 | Natural or Spiritual?
 
 Sermon No. 407 - Delivered on Sunday Morning, September the 1st, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

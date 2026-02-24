@@ -1,4 +1,4 @@
-# Christ's Servant--His Duty And Reward
+# Sermon 463 | Christ's Servant--His Duty And Reward
 
 Sermon No. 463 - Delivered on Sunday Morning, August 3rd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

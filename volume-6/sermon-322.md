@@ -1,4 +1,4 @@
-# A Divine Challenge!
+# Sermon 322 | A Divine Challenge!
 
 Sermon No. 322 - Delivered on Sabbath Evening, April 22nd, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

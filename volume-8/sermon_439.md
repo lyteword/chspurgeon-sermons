@@ -1,4 +1,4 @@
-# The Danger Of Doubting
+# Sermon 439 | The Danger Of Doubting
 
 Sermon No. 439 - Delivered on Sunday Morning, March 16th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

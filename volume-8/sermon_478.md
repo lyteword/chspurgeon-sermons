@@ -1,4 +1,4 @@
-# Christ--Perfect Through Sufferings
+# Sermon 478 | Christ--Perfect Through Sufferings
 
 Sermon No. 478 - Delivered on Sunday Morning, November 2nd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Cripple at Lystra
+# Sermon 559 | The Cripple at Lystra
 
 A Sermon
 

@@ -1,4 +1,4 @@
-# Trust In God--True Wisdom
+# Sermon 392 | Trust In God--True Wisdom
 
 Sermon No. 392 - Delivered on Sunday Morning, May 12th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The War of Truth
+# Sermon 112 | The War of Truth
 
 Sermon No. 112 - Delivered on Sabbath Morning, January 11, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

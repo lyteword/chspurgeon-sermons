@@ -1,4 +1,4 @@
-# Two Advents Of Christ
+# Sermon 430 | Two Advents Of Christ
 
 Sermon No. 430 - Delivered on Sunday Evening, December 22, 1861 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

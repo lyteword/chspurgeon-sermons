@@ -1,4 +1,4 @@
-# The Form and Spirit of Religion
+# Sermon 186 | The Form and Spirit of Religion
 
 Sermon No. 186 - Delivered on Sabbath Morning, April 4, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

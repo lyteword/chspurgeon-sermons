@@ -1,4 +1,4 @@
-# Fellowship With God
+# Sermon 409 | Fellowship With God
 
 Sermon No. 409 - Delivered on Sunday Morning, September the 15th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

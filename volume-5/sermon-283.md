@@ -1,4 +1,4 @@
-# The Sweet Uses of Adversity
+# Sermon 283 | The Sweet Uses of Adversity
 
 Sermon No. 283 - Delivered on Sabbath Morning, November 13th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

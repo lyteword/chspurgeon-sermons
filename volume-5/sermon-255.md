@@ -1,4 +1,4 @@
-# Justice Satisfied
+# Sermon 255 | Justice Satisfied
 
 Sermon No. 255 - Delivered on Sabbath Morning, May 29th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

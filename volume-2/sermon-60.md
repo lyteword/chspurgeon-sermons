@@ -1,4 +1,4 @@
-# Sovereignty and Salvation
+# Sermon 60 | Sovereignty and Salvation
 
 Sermon No. 60 - Delivered on Sabbath Morning, January 6, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

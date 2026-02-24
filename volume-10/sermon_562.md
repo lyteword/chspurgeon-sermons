@@ -1,4 +1,4 @@
-# "Alas For Us, If Thou Wert All, and Nought Beyond, O Earth"
+# Sermon 562 | "Alas For Us, If Thou Wert All, and Nought Beyond, O Earth"
 
 Sermon No. 562 - Delivered on Sunday Morning, March 27th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

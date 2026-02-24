@@ -1,4 +1,4 @@
-# Christ Lifted Up
+# Sermon 139 | Christ Lifted Up
 
 Sermon No. 139 - Delivered on Sabbath Morning, July 5, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

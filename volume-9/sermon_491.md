@@ -1,4 +1,4 @@
-# Our Stronghold
+# Sermon 491 | Our Stronghold
 
 Sermon No. 491 - Delivered on Sunday Morning, October 26th, 1862, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

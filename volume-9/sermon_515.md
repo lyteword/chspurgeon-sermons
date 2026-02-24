@@ -1,4 +1,4 @@
-# The Sinner's Advocate
+# Sermon 515 | The Sinner's Advocate
 
 Sermon No. 515 - Delivered on Sunday Morning, June 21st, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

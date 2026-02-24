@@ -1,4 +1,4 @@
-# Storming the Battlements
+# Sermon 38 | Storming the Battlements
 
 Sermon No. 38 - Delivered on Sabbath Morning, September 16, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

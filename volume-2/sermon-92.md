@@ -1,4 +1,4 @@
-# Profit and Loss
+# Sermon 92 | Profit and Loss
 
 Sermon No. 92 - Delivered on Sunday Evening, July 6th, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

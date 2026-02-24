@@ -1,4 +1,4 @@
-# Awake! Awake!
+# Sermon 163 | Awake! Awake!
 
 Sermon No. 163 - Delivered on Sabbath Morning, November 15, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

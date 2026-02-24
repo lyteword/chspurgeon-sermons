@@ -1,4 +1,4 @@
-# The Carnal Mind Enmity Against God
+# Sermon 20 | The Carnal Mind Enmity Against God
 
 Sermon No. 20 - Delivered on Sabbath Morning, April 22, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

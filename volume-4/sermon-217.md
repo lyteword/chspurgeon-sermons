@@ -1,4 +1,4 @@
-# Declension from First Love
+# Sermon 217 | Declension from First Love
 
 Sermon No. 217 - Delivered on Sabbath Evening, September 26, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

@@ -1,4 +1,4 @@
-# Hypocrisy
+# Sermon 237 | Hypocrisy
 
 Sermon No. 237 - Delivered on Sabbath Morning, February 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

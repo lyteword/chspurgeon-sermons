@@ -1,4 +1,4 @@
-# The Enchanted Ground
+# Sermon 64 | The Enchanted Ground
 
 Sermon No. 64 - Delivered on Sabbath Morning, February 3, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

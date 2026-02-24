@@ -1,4 +1,4 @@
-# The Sinner's End
+# Sermon 486 | The Sinner's End
 
 Sermon No. 486 - Delivered on Sunday Morning, December 28th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

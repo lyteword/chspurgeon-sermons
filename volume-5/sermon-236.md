@@ -1,4 +1,4 @@
-# The Shameful Sufferer
+# Sermon 236 | The Shameful Sufferer
 
 Sermon No. 236 - Delivered on Sabbath Morning, January 30th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

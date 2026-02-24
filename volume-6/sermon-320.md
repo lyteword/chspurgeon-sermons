@@ -1,4 +1,4 @@
-# Contentment
+# Sermon 320 | Contentment
 
 Sermon No. 320 - Delivered on Sabbath Evening, March 25th, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

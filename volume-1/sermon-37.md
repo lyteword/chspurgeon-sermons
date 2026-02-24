@@ -1,4 +1,4 @@
-# Law and Grace
+# Sermon 37 | Law and Grace
 
 Sermon No. 37 - Delivered on Sabbath Morning, August 26, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

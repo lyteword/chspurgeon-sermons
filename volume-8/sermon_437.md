@@ -1,4 +1,4 @@
-# A Sight Of Self
+# Sermon 437 | A Sight Of Self
 
 Sermon No. 437 - Delivered on Sunday Morning, March 2nd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

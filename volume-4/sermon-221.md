@@ -1,4 +1,4 @@
-# Comfort Proclaimed
+# Sermon 221 | Comfort Proclaimed
 
 This sermon was originally printed together with a pastoral letter from C. H. S.
 

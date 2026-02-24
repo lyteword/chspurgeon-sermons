@@ -1,4 +1,4 @@
-# The Blood of the Everlasting Covenant
+# Sermon 277 | The Blood of the Everlasting Covenant
 
 Sermon No. 277 - Delivered on Sabbath Morning, September 4th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

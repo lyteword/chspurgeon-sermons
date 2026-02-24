@@ -1,4 +1,4 @@
-# Everywhere And Yet Forgotten
+# Sermon 326 | Everywhere And Yet Forgotten
 
 Sermon No. 326 - Delivered on Sabbath Evening, July 29th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

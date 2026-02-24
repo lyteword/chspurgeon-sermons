@@ -1,4 +1,4 @@
-# The Warrant of Faith
+# Sermon 531 | The Warrant of Faith
 
 Sermon No. 531 - Delivered on Sunday Morning, September 20th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

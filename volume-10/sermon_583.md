@@ -1,4 +1,4 @@
-# The Lamb--The Light
+# Sermon 583 | The Lamb--The Light
 
 Sermon No. 583 - Delivered on Sunday Morning, July 31st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

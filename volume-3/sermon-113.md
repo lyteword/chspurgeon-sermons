@@ -1,4 +1,4 @@
-# Confession of Sin&mdash;A Sermon With Seven Texts
+# Sermon 113 | Confession of Sin&mdash;A Sermon With Seven Texts
 
 Sermon No. 113 - Delivered on Sabbath Morning, January 18, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# The Bridgeless Gulf
+# Sermon 518 | The Bridgeless Gulf
 
 Sermon No. 518 - Delivered on Sunday Morning, July 5th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

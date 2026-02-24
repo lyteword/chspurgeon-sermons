@@ -1,4 +1,4 @@
-# The Centurion--Or An Exhortation To The Virtuous
+# Sermon 600 | The Centurion--Or An Exhortation To The Virtuous
 
 Sermon No. 600 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Treasure of Grace
+# Sermon 295 | The Treasure of Grace
 
 Sermon No. 295 - Delivered on Sabbath Morning, January 22nd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

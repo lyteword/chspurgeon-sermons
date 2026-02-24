@@ -1,4 +1,4 @@
-# Effectual Calling
+# Sermon 73 | Effectual Calling
 
 Sermon No. 73 - Delivered on Sabbath Morning, March 30, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

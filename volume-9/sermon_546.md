@@ -1,4 +1,4 @@
-# Alpha And Omega
+# Sermon 546 | Alpha And Omega
 
 Sermon No. 546 - Delivered on Sunday Morning, December 27th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Cry Of The Heathen
+# Sermon 189 | The Cry Of The Heathen
 
 Sermon No. 189 - Delivered on Sabbath Morning, April 25th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

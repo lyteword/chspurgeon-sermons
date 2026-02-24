@@ -1,4 +1,4 @@
-# Election
+# Sermon 41 & 42 | Election
 
 Sermon No. 41 & 42 - Delivered on Sabbath Morning, September 2, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

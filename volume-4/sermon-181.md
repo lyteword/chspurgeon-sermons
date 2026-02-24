@@ -1,4 +1,4 @@
-# Particular Redemption
+# Sermon 181 | Particular Redemption
 
 Sermon No. 181 - Delivered on Sabbath Morning, February 28, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

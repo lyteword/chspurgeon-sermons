@@ -1,4 +1,4 @@
-# The Wounds of Jesus
+# Sermon 254 | The Wounds of Jesus
 
 Sermon No. 254 - Delivered on Sabbath Evening, January 30th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

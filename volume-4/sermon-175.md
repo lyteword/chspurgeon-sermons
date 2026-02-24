@@ -1,4 +1,4 @@
-# The Two Talents
+# Sermon 175 | The Two Talents
 
 Sermon No. 175 - Delivered on Sabbath Morning, January 31, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

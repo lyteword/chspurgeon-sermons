@@ -1,4 +1,4 @@
-# Heaven and Hell
+# Sermon 39 & 40 | Heaven and Hell
 
 Sermon No. 39 & 40 - Delivered on Tuesday Evening, September 4, 1855, by the REV. C.H. SPURGEON in a field, King Edward's Road, Hackney.
 

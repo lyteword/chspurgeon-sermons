@@ -1,4 +1,4 @@
-# A New Year's Benediction
+# Sermon 292 | A New Year's Benediction
 
 Sermon No. 292 - Delivered on Sabbath Morning, January 1st, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

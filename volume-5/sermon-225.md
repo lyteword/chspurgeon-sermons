@@ -1,4 +1,4 @@
-# Satan's Banquet
+# Sermon 225 | Satan's Banquet
 
 Sermon No. 225 - Delivered on Sabbath Morning, November 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

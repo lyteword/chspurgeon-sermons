@@ -1,4 +1,4 @@
-# Fear Not
+# Sermon 156 | Fear Not
 
 Sermon No. 156 - Delivered on Sabbath Morning, October 4, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

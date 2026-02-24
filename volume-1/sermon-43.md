@@ -1,4 +1,4 @@
-# The Death of the Christian
+# Sermon 43 | The Death of the Christian
 
 Sermon No. 43 - Delivered on Sabbath Morning, September 9, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

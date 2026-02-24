@@ -1,4 +1,4 @@
-# Choice Portions
+# Sermon 451 | Choice Portions
 
 Sermon No. 451 - Delivered on Sunday Morning, May 25th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

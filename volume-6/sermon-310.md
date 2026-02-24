@@ -1,4 +1,4 @@
-# Christ&mdash;Our Substitute
+# Sermon 310 | Christ&mdash;Our Substitute
 
 Sermon No. 310 - Delivered on Sabbath Evening, April 15th, 1860, by the REV. C.H. SPURGEON at New Park Street, Southwark.
 

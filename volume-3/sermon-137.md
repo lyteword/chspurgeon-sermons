@@ -1,4 +1,4 @@
-# Mercy, Omnipotence, and Justice
+# Sermon 137 | Mercy, Omnipotence, and Justice
 
 Sermon No. 137 - Delivered on Sabbath Morning, June 21, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

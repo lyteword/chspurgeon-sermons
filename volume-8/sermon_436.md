@@ -1,4 +1,4 @@
-# A Sermon For Spring
+# Sermon 436 | A Sermon For Spring
 
 Sermon No. 436 - Delivered on Sunday Morning, February 23rd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

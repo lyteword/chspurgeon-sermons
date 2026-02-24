@@ -1,4 +1,4 @@
-# Temple Glories
+# Sermon 375 | Temple Glories
 
 Sermon No. 375 - Delivered on Sunday Evening, March 31st, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

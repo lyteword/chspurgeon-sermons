@@ -1,4 +1,4 @@
-# Spiritual Peace
+# Sermon 300 | Spiritual Peace
 
 Sermon No. 300 - Delivered on Sabbath Morning, February 19th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

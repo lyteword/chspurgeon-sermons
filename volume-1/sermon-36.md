@@ -1,4 +1,4 @@
-# What Are the Clouds?
+# Sermon 36 | What Are the Clouds?
 
 Sermon No. 36 - Delivered on Sabbath Morning, August 19, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

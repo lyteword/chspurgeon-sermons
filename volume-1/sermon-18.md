@@ -1,4 +1,4 @@
-# The Tomb of Jesus
+# Sermon 18 | The Tomb of Jesus
 
 Sermon No. 18 - Delivered on Sabbath Morning, April 8, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

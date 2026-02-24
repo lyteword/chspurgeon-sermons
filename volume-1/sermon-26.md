@@ -1,4 +1,4 @@
-# The Two Effects of the Gospel
+# Sermon 26 | The Two Effects of the Gospel
 
 Sermon No. 26 - Delivered on Sabbath Morning, May 27, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

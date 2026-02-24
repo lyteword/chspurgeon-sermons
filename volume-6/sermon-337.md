@@ -1,4 +1,4 @@
-# Sin Slain
+# Sermon 337 | Sin Slain
 
 Sermon No. 337 - Delivered on Sabbath Evening, July 29th, 1860, by the REV. C.H. SPURGEON at New Park Street, Southwark.
 

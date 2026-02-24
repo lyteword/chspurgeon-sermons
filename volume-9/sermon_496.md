@@ -1,4 +1,4 @@
-# The New Song
+# Sermon 496 | The New Song
 
 Sermon No. 496 - Delivered on Sunday Evening, December 28th, 1862, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

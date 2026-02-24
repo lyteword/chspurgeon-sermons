@@ -1,4 +1,4 @@
-# Heavenly Worship
+# Sermon 110 | Heavenly Worship
 
 Sermon No. 110 - Delivered on Sabbath Morning, December 28th, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

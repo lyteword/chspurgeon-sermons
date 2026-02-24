@@ -1,4 +1,4 @@
-# The Prodigal's Return
+# Sermon 176 | The Prodigal's Return
 
 Sermon No. 176 - Delivered on Sabbath Morning, February 7, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

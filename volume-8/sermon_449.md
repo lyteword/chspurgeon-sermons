@@ -1,4 +1,4 @@
-# Joseph And His Brothers
+# Sermon 449 | Joseph And His Brothers
 
 Sermon No. 449 - Delivered on Sunday Morning, May 11th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

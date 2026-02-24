@@ -1,4 +1,4 @@
-# His Name&mdash;the Mighty God
+# Sermon 258 | His Name&mdash;the Mighty God
 
 Sermon No. 258 - Delivered on Sabbath Morning, June 19th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# The Sound in the Mulberry Trees
+# Sermon 147 | The Sound in the Mulberry Trees
 
 Sermon No. 147 - Delivered on Sabbath Morning, May 31, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

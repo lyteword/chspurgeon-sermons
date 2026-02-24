@@ -1,4 +1,4 @@
-# The Shulamite's Choice Prayer
+# Sermon 364 | The Shulamite's Choice Prayer
 
 Sermon No. 364 - Delivered on Sabbath Evening, February 24th, 1861, by the REV. C.H. SPURGEON at New Park Street, Southwark.
 

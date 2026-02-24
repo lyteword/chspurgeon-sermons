@@ -1,4 +1,4 @@
-# General And Yet Particular
+# Sermon 566 | General And Yet Particular
 
 Sermon No. 566 - Delivered on Sunday Morning, April 24th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

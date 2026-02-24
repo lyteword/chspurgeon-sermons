@@ -1,4 +1,4 @@
-# Public Meeting Of Our London Baptist Brethren
+# Sermon 376 | Public Meeting Of Our London Baptist Brethren
 
 Sermon No. 376 - Delivered on Tuesday, April 2nd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

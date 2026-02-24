@@ -1,4 +1,4 @@
-# Opening Services
+# Sermon 371 | Opening Services
 
 Sermon No. 371 - Delivered on Tuesday Evening, March 26, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

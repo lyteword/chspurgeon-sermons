@@ -1,4 +1,4 @@
-# Three Homilies From One Text
+# Sermon 333 | Three Homilies From One Text
 
 Sermon No. 333 - Delivered on Sabbath Morning, September 2nd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

@@ -1,4 +1,4 @@
-# Once A Curse But Now A Blessing
+# Sermon 543 | Once A Curse But Now A Blessing
 
 Sermon No. 543 - Delivered on Sunday Morning, December 9th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

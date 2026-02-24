@@ -1,4 +1,4 @@
-# A Lecture for Little-Faith
+# Sermon 205 | A Lecture for Little-Faith
 
 Sermon No. 205 - Delivered on Sabbath Morning, July 18, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

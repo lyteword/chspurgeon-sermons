@@ -1,4 +1,4 @@
-# Independence of Christianity
+# Sermon 149 | Independence of Christianity
 
 Sermon No. 149 - Delivered on Sabbath Morning, August 31, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

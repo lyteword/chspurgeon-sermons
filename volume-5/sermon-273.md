@@ -1,4 +1,4 @@
-# Christ Triumphant
+# Sermon 273 | Christ Triumphant
 
 Sermon No. 273 - Delivered on Sabbath Morning, September 4th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

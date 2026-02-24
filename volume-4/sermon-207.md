@@ -1,4 +1,4 @@
-# Sovereign Grace and Man's Responsibility
+# Sermon 207 | Sovereign Grace and Man's Responsibility
 
 Sermon No. 207 - Delivered on Sabbath Morning, August 1, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

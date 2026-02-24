@@ -1,4 +1,4 @@
-# A Message from God for Thee
+# Sermon 480 | A Message from God for Thee
 
 Sermon No. 480 - Delivered on Sunday Morning, November 16th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

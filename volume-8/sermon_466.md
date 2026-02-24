@@ -1,4 +1,4 @@
-# The Loaded Wagon
+# Sermon 466 | The Loaded Wagon
 
 Sermon No. 466 - Delivered on Sunday Morning, August 24th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

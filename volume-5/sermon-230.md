@@ -1,4 +1,4 @@
-# The Vanguard and Rereward of the Church
+# Sermon 230 | The Vanguard and Rereward of the Church
 
 Sermon No. 230 - Delivered on Sabbath Morning, December 26th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

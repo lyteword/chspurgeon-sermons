@@ -1,4 +1,4 @@
-# An Exhortation
+# Sermon 450 | An Exhortation
 
 Sermon No. 450 - Delivered on Sunday Morning, May 18th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

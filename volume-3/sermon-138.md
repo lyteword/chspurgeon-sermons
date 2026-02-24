@@ -1,4 +1,4 @@
-# Prayer&mdash;the Forerunner of Mercy
+# Sermon 138 | Prayer&mdash;the Forerunner of Mercy
 
 Sermon No. 138 - Delivered on Sabbath Morning, June 28, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

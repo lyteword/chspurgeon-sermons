@@ -1,4 +1,4 @@
-# The Silver Trumpet
+# Sermon 366 | The Silver Trumpet
 
 Sermon No. 366 - Delivered on Sabbath Morning, March 24th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

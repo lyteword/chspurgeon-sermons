@@ -1,4 +1,4 @@
-# Children Brought to Christ, and Not to the Font
+# Sermon 581 | Children Brought to Christ, and Not to the Font
 
 Sermon No. 581 - Delivered on Sunday Morning, July 24th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

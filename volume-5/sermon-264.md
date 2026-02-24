@@ -1,4 +1,4 @@
-# How Saints May Help the Devil
+# Sermon 264 | How Saints May Help the Devil
 
 Sermon No. 264 - Delivered on Sabbath Morning, July 24th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

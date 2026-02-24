@@ -1,4 +1,4 @@
-# Instability
+# Sermon 158 | Instability
 
 Sermon No. 158 - Delivered on Sabbath Morning, October 11, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

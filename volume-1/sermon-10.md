@@ -1,4 +1,4 @@
-# The Kingly Priesthood of the Saints
+# Sermon 10 | The Kingly Priesthood of the Saints
 
 Sermon No. 10 - Delivered on Sabbath Morning, January 28th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

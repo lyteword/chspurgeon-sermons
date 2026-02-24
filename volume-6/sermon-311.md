@@ -1,4 +1,4 @@
-# The Beginning, Increase, and End of the Divine Life
+# Sermon 311 | The Beginning, Increase, and End of the Divine Life
 
 Sermon No. 311 - Delivered on Sabbath Morning, April 29th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

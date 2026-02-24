@@ -1,4 +1,4 @@
-# Particular Election
+# Sermon 123 | Particular Election
 
 Sermon No. 123 - Delivered on Sabbath Morning, March 22, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

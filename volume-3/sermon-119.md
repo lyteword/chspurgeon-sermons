@@ -1,4 +1,4 @@
-# Rahab's Faith
+# Sermon 119 | Rahab's Faith
 
 Sermon No. 119 - Delivered on Sabbath Morning, March 1, 1857, by the REV. C.H. SPURGEON at The Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# One Antidote for Many Ills
+# Sermon 284 | One Antidote for Many Ills
 
 Sermon No. 284 - Delivered on Sabbath Morning, November 9th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

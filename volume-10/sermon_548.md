@@ -1,4 +1,4 @@
-# Forward! Forward! Forward!
+# Sermon 548 | Forward! Forward! Forward!
 
 Sermon No. 548 - Delivered on Sunday Evening, October 18th 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

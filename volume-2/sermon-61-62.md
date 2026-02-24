@@ -1,4 +1,4 @@
-# The Beatific Vision
+# Sermon 61 & 62 | The Beatific Vision
 
 Sermon No. 61 & 62 - Delivered on Sabbath Morning, January 20, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

@@ -1,4 +1,4 @@
-# Labor In Vain
+# Sermon 567 | Labor In Vain
 
 Sermon No. 567 - Delivered on Sunday Morning, May 1st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

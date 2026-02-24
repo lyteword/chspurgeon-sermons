@@ -1,4 +1,4 @@
-# Christ's Estimate of His People
+# Sermon 282 | Christ's Estimate of His People
 
 Sermon No. 282 - Delivered on Sabbath Evening, January 23rd, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

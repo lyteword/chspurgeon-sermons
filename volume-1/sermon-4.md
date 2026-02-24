@@ -1,4 +1,4 @@
-# The Personality of the Holy Ghost
+# Sermon 4 | The Personality of the Holy Ghost
 
 Sermon No. 4 - Delivered on Sabbath Morning, January 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

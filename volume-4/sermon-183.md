@@ -1,4 +1,4 @@
-# The Solar Eclipse
+# Sermon 183 | The Solar Eclipse
 
 Sermon No. 183 - Delivered on Sabbath Morning, March 14th, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

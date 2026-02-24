@@ -1,4 +1,4 @@
-# "Let Us Pray"
+# Sermon 288 | "Let Us Pray"
 
 Sermon No. 288 - Delivered on Sabbath Morning, November 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

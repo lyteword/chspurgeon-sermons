@@ -1,4 +1,4 @@
-# The Certainty And Freeness Of Divine Grace
+# Sermon 599 | The Certainty And Freeness Of Divine Grace
 
 Sermon No. 599 - Delivered on Sunday Morning, November 13th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

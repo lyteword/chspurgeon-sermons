@@ -1,4 +1,4 @@
-# The Jeer Of Sarcasm, And The Retort Of Piety
+# Sermon 321 | The Jeer Of Sarcasm, And The Retort Of Piety
 
 Sermon No. 321 - Delivered on Sabbath Evening, April 8th, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

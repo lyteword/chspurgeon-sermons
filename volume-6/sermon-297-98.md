@@ -1,4 +1,4 @@
-# Mr. Evil-Questioning Tried and Executed
+# Sermon 297-98 | Mr. Evil-Questioning Tried and Executed
 
 Sermon No. 297-98 - Delivered on Sabbath Morning, February 5th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

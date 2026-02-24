@@ -1,4 +1,4 @@
-# The Condescension of Christ
+# Sermon 151 | The Condescension of Christ
 
 Sermon No. 151 - Delivered on Sabbath Morning, September 13, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# Free Grace
+# Sermon 233 | Free Grace
 
 Sermon No. 233 - Delivered on Sabbath Morning, January 9th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

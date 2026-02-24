@@ -1,4 +1,4 @@
-# Climbing the Mountain
+# Sermon 396 | Climbing the Mountain
 
 Sermon No. 396 - Delivered on Sunday Morning, June the 16th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

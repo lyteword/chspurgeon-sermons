@@ -1,4 +1,4 @@
-# Comfort for the Desponding
+# Sermon 51 | Comfort for the Desponding
 
 Sermon No. 51 - Delivered on Sabbath Morning, November 25, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

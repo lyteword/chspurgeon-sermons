@@ -1,4 +1,4 @@
-# The Fatherhood of God
+# Sermon 213 | The Fatherhood of God
 
 Sermon No. 213 - Delivered on Sabbath Morning, September 12, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

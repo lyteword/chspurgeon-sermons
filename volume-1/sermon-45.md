@@ -1,4 +1,4 @@
-# Conversion
+# Sermon 45 | Conversion
 
 Sermon No. 45 - Delivered on Sabbath Morning, October 7, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

@@ -1,4 +1,4 @@
-# Sweet Comfort for Feeble Saints
+# Sermon 6 | Sweet Comfort for Feeble Saints
 
 Sermon No. 6 - Delivered on Sabbath Morning, February 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

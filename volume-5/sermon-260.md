@@ -1,4 +1,4 @@
-# An Earnest Invitation
+# Sermon 260 | An Earnest Invitation
 
 Sermon No. 260 - Delivered on Sabbath Morning, July 3rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

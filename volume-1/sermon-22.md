@@ -1,4 +1,4 @@
-# A Caution to the Presumptuous
+# Sermon 22 | A Caution to the Presumptuous
 
 Sermon No. 22 - Delivered on Sabbath Morning, May 13, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

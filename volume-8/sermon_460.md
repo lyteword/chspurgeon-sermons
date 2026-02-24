@@ -1,4 +1,4 @@
-# Faith and Repentance Inseparable
+# Sermon 460 | Faith and Repentance Inseparable
 
 Sermon No. 460 - Delivered on Sunday Morning, July 13th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

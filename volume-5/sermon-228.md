@@ -1,4 +1,4 @@
-# The Blood
+# Sermon 228 | The Blood
 
 Sermon No. 228 - Delivered on Sabbath Morning, December 12th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

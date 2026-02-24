@@ -1,4 +1,4 @@
-# A Divided Heart
+# Sermon 276 | A Divided Heart
 
 Sermon No. 276 - Delivered on Sabbath Morning, September 25th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

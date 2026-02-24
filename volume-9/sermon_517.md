@@ -1,4 +1,4 @@
-# The Rainbow
+# Sermon 517 | The Rainbow
 
 Sermon No. 517 - Delivered on Sunday Morning, June 28th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

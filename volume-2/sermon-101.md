@@ -1,4 +1,4 @@
-# The Exaltation of Christ
+# Sermon 101 | The Exaltation of Christ
 
 Sermon No. 101 - Delivered on Sabbath Morning, November 2, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

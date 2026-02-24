@@ -1,4 +1,4 @@
-# The Church of Christ
+# Sermon 28 | The Church of Christ
 
 Sermon No. 28 - Delivered on Sabbath Morning, June 3, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

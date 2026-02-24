@@ -1,4 +1,4 @@
-# An Awful Premonition
+# Sermon 594 | An Awful Premonition
 
 Sermon No. 594 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

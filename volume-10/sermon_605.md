@@ -1,4 +1,4 @@
-# Good Works In Good Company
+# Sermon 605 | Good Works In Good Company
 
 Sermon No. 605 - Delivered on Sunday Morning, December 18th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

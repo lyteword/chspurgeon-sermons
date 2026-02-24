@@ -1,4 +1,4 @@
-# Making Light of Christ
+# Sermon 98 | Making Light of Christ
 
 Sermon No. 98 - Delivered on Sabbath Evening, August 17, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

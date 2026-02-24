@@ -1,4 +1,4 @@
-# Consolation in Christ
+# Sermon 348 | Consolation in Christ
 
 Sermon No. 348 - Delivered on Sabbath Morning, December 2nd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

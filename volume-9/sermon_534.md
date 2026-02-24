@@ -1,4 +1,4 @@
-# The Mighty Power Which Creates And Sustains Faith
+# Sermon 534 | The Mighty Power Which Creates And Sustains Faith
 
 Sermon No. 534 - Delivered on Sunday Morning, October 11th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

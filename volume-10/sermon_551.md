@@ -1,4 +1,4 @@
-# Faith and Life
+# Sermon 551 | Faith and Life
 
 Sermon No. 551 - Delivered on Sunday Morning, January 24th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

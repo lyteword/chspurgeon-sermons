@@ -1,4 +1,4 @@
-# A Desperate Case--How to Meet It
+# Sermon 549 | A Desperate Case--How to Meet It
 
 Sermon No. 549 - Delivered on Sunday Morning, January 10th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

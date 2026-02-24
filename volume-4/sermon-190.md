@@ -1,4 +1,4 @@
-# The Desolations of the Lord, the Consolation of His Saints
+# Sermon 190 | The Desolations of the Lord, the Consolation of His Saints
 
 Sermon No. 190 - Delivered on Wednesday Morning, April 28, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

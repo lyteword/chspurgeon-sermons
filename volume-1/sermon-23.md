@@ -1,4 +1,4 @@
-# Thoughts on the Last Battle
+# Sermon 23 | Thoughts on the Last Battle
 
 Sermon No. 23 - Delivered on Sabbath Evening, May 13, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

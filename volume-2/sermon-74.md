@@ -1,4 +1,4 @@
-# A Willing People and an Immutable Leader
+# Sermon 74 | A Willing People and an Immutable Leader
 
 Sermon No. 74 - Delivered on Sabbath Morning, April 13, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

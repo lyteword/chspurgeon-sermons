@@ -1,4 +1,4 @@
-# Prayer Answered, Love Nourished
+# Sermon 240 | Prayer Answered, Love Nourished
 
 Sermon No. 240 - Delivered on Sabbath Morning, February 27th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

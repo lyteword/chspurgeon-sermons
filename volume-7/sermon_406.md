@@ -1,4 +1,4 @@
-# The Infallibility of God's Purpose
+# Sermon 406 | The Infallibility of God's Purpose
 
 Sermon No. 406 - Delivered on Sunday Morning, August the 25th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

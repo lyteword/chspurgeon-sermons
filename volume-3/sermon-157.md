@@ -1,4 +1,4 @@
-# Thy Redeemer
+# Sermon 157 | Thy Redeemer
 
 Sermon No. 157 - Delivered on Sabbath Evening, October 4, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

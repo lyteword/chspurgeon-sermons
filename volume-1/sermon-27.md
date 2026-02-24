@@ -1,4 +1,4 @@
-# The Eternal Name
+# Sermon 27 | The Eternal Name
 
 Sermon No. 27 - Delivered on Sabbath Evening, May 27, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

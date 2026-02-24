@@ -1,4 +1,4 @@
-# Come and Welcome
+# Sermon 279 | Come and Welcome
 
 Sermon No. 279 - Delivered on Sabbath Morning, October 16th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

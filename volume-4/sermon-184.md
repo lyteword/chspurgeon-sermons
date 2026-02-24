@@ -1,4 +1,4 @@
-# The Glorious Gospel
+# Sermon 184 | The Glorious Gospel
 
 Sermon No. 184 - Delivered on Sabbath Morning, March 21, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

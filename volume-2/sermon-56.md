@@ -1,4 +1,4 @@
-# Heaven
+# Sermon 56 | Heaven
 
 Sermon No. 56 - Delivered on Sabbath Morning, December 16th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

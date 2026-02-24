@@ -1,4 +1,4 @@
-# The Way of Salvation
+# Sermon 209 | The Way of Salvation
 
 Sermon No. 209 - Delivered on Sabbath Morning, August 15, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

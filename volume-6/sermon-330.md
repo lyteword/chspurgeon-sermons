@@ -1,4 +1,4 @@
-# Reigning Grace
+# Sermon 330 | Reigning Grace
 
 Sermon No. 330 - Delivered on Sabbath Morning, August 26th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

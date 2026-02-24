@@ -1,4 +1,4 @@
-# Broad Rivers And Streams
+# Sermon 489 | Broad Rivers And Streams
 
 Sermon No. 489 - Delivered on Sunday Morning, January 18th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

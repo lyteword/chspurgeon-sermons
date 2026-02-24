@@ -1,4 +1,4 @@
-# The First Five Disciples
+# Sermon 570 | The First Five Disciples
 
 Sermon No. 570 - Delivered on Sunday Morning, May 15th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

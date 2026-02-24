@@ -1,4 +1,4 @@
-# Tell It All
+# Sermon 514 | Tell It All
 
 Sermon No. 514 - Delivered on Sunday Morning, June 14th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

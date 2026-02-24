@@ -1,4 +1,4 @@
-# Lovest Thou Me?
+# Sermon 117 | Lovest Thou Me?
 
 Sermon No. 117 - Delivered on Sabbath Morning, September 7th, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

@@ -1,4 +1,4 @@
-# "Thus Saith The Lord:" Or, The Book of Common Prayer Weighed in the Balances of the Sanctuary
+# Sermon 591 | "Thus Saith The Lord:" Or, The Book of Common Prayer Weighed in the Balances of the Sanctuary
 
 Sermon No. 591 - Delivered on Sunday Morning, September 25th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

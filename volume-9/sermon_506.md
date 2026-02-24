@@ -1,4 +1,4 @@
-# Strong Meat
+# Sermon 506 | Strong Meat
 
 Sermon No. 506 - Delivered on Sunday Evening, April 19th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

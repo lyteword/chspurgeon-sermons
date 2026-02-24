@@ -1,4 +1,4 @@
-# The Great Reservoir
+# Sermon 179 | The Great Reservoir
 
 Sermon No. 179 - Delivered on Sabbath Morning, February 21, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

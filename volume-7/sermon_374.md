@@ -1,4 +1,4 @@
-# The Interest Of Christ And His People In Each Other
+# Sermon 374 | The Interest Of Christ And His People In Each Other
 
 Sermon No. 374 - Delivered on Good Friday Evening, March 29th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

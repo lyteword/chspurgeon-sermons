@@ -1,4 +1,4 @@
-# The Believer's Challenge
+# Sermon 256 | The Believer's Challenge
 
 Sermon No. 256 - Delivered on Sabbath Morning, June 5th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

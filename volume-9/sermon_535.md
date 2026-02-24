@@ -1,4 +1,4 @@
-# Ben-Hadad's Escape--An Encouragement For Sinners
+# Sermon 535 | Ben-Hadad's Escape--An Encouragement For Sinners
 
 Sermon No. 535 - Delivered on Sunday Evening, October 11th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Day of Atonement
+# Sermon 95 | The Day of Atonement
 
 Sermon No. 95 - Delivered on Sabbath Morning, August 10, 1856, by the REV. C.H. SPURGEON At New Park Street Chapel, Southwark.
 

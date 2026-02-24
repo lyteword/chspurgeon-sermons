@@ -1,4 +1,4 @@
-# A Secret And Yet No Secret
+# Sermon 431 | A Secret And Yet No Secret
 
 Sermon No. 431 - Delivered on Sunday Morning, January 26th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

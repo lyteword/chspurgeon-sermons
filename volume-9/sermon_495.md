@@ -1,4 +1,4 @@
-# The Greatest Trial on Record
+# Sermon 495 | The Greatest Trial on Record
 
 Sermon No. 495 - Delivered on Sunday Morning, February 22nd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

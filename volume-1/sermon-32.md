@@ -1,4 +1,4 @@
-# The Necessity of Increased Faith
+# Sermon 32 | The Necessity of Increased Faith
 
 Sermon No. 32 - Delivered on Sabbath Morning, July 1, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

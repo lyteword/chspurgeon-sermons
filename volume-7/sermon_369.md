@@ -1,4 +1,4 @@
-# The First Sermon in the Tabernacle
+# Sermon 369 | The First Sermon in the Tabernacle
 
 Sermon No. 369 - Delivered on Monday Afternoon, March 25th, 1861 by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

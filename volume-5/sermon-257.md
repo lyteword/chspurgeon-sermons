@@ -1,4 +1,4 @@
-# The Scales of Judgment
+# Sermon 257 | The Scales of Judgment
 
 Sermon No. 257 - Delivered on Sabbath Morning, June 12th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

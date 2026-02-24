@@ -1,4 +1,4 @@
-# Mealtime In The Corn Fields
+# Sermon 522 | Mealtime In The Corn Fields
 
 Sermon No. 522 - Delivered on Sunday Morning, August 2nd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

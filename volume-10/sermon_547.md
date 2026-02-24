@@ -1,4 +1,4 @@
-# Suffering And Reigning With Jesus
+# Sermon 547 | Suffering And Reigning With Jesus
 
 Sermon No. 547 - Delivered on Sunday Morning, January 3rd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# God in the Covenant
+# Sermon 93 | God in the Covenant
 
 Sermon No. 93 - Delivered on Sabbath Morning, August 3rd, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

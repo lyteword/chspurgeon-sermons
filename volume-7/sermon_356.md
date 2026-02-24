@@ -1,4 +1,4 @@
-# Words Of Expostulation
+# Sermon 356 | Words Of Expostulation
 
 Sermon No. 356 - Delivered on Sabbath Morning, January 20th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

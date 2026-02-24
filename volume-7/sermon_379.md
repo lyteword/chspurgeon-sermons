@@ -1,4 +1,4 @@
-# Perfect Cleansing
+# Sermon 379 | Perfect Cleansing
 
 Sermon No. 379 - Delivered on Sunday Morning, April 7th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

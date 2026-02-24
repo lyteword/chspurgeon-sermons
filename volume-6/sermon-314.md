@@ -1,4 +1,4 @@
-# Peace at Home, and Prosperity Abroad
+# Sermon 314 | Peace at Home, and Prosperity Abroad
 
 Sermon No. 314 - Delivered on Wednesday Evening, May 9th, 1860, by the REV. C.H. SPURGEON at The Tabernacle, Moorfields,.
 

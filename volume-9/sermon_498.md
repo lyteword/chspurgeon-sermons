@@ -1,4 +1,4 @@
-# The Gladness of the Man of Sorrows
+# Sermon 498 | The Gladness of the Man of Sorrows
 
 Sermon No. 498 - Delivered on Sunday Morning, March 8th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Smoke Of Their Torments
+# Sermon 602 | The Smoke Of Their Torments
 
 Sermon No. 602 - Delivered on Sunday Evening, November 20th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

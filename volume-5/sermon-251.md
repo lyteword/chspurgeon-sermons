@@ -1,4 +1,4 @@
-# The Necessity of the Spirit's Work
+# Sermon 251 | The Necessity of the Spirit's Work
 
 Sermon No. 251 - Delivered on Sabbath Morning, May 8th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

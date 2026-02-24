@@ -1,4 +1,4 @@
-# The Peculiar Sleep of the Beloved
+# Sermon 12 | The Peculiar Sleep of the Beloved
 
 Sermon No. 12 - Delivered on Sabbath Morning, March 4, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

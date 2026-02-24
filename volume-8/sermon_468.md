@@ -1,4 +1,4 @@
-# Ezekiel's Deserted Infant
+# Sermon 468 | Ezekiel's Deserted Infant
 
 Sermon No. 468 - Delivered on Sunday Morning, September 7th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

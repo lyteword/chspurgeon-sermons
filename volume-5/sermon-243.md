@@ -1,4 +1,4 @@
-# Weak Hands and Feeble Knees
+# Sermon 243 | Weak Hands and Feeble Knees
 
 Sermon No. 243 - Delivered on Sabbath Morning, March 20th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

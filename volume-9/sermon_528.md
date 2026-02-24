@@ -1,4 +1,4 @@
-# Chastisement--Now And Afterward
+# Sermon 528 | Chastisement--Now And Afterward
 
 Sermon No. 528 - Delivered on Sunday Morning, September 6th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

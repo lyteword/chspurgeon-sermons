@@ -1,4 +1,4 @@
-# The Feast of the Lord
+# Sermon 226 | The Feast of the Lord
 
 Sermon No. 226 - Delivered on Sabbath Evening, November 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# The Tabernacle &mdash; Outside The Camp
+# Sermon 359 | The Tabernacle &mdash; Outside The Camp
 
 Sermon No. 359 - Delivered on Sabbath Morning, February 10th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

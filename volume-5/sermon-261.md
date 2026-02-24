@@ -1,4 +1,4 @@
-# The Call of Abraham
+# Sermon 261 | The Call of Abraham
 
 Sermon No. 261 - Delivered on Sabbath Morning, July 10th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

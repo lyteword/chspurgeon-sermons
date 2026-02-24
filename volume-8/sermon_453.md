@@ -1,4 +1,4 @@
-# Compassion For The Multitude
+# Sermon 453 | Compassion For The Multitude
 
 Sermon No. 453 - Delivered on Sunday Morning, June 1st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

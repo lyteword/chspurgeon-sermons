@@ -1,4 +1,4 @@
-# Self-Delusion
+# Sermon 475 | Self-Delusion
 
 Sermon No. 475 - Delivered on Sunday Morning, October 19th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

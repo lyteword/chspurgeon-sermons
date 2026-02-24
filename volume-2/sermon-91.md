@@ -1,4 +1,4 @@
-# Christ Exalted
+# Sermon 91 | Christ Exalted
 
 Sermon No. 91 - Delivered on Sabbath Morning, July 6th, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

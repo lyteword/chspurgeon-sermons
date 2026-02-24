@@ -1,4 +1,4 @@
-# A Christmas Question
+# Sermon 291 | A Christmas Question
 
 Sermon No. 291 - Delivered on Sabbath Morning, December 25th, 1859, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

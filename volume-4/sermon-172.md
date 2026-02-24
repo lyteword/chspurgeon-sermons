@@ -1,4 +1,4 @@
-# Search the Scriptures
+# Sermon 172 | Search the Scriptures
 
 Sermon No. 172 - Delivered on Sabbath Morning, January 17, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

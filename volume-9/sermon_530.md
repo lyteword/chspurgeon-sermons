@@ -1,4 +1,4 @@
-# The Chief Of Sinners
+# Sermon 530 | The Chief Of Sinners
 
 Sermon No. 530 - Delivered on 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

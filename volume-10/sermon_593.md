@@ -1,4 +1,4 @@
-# Inward Conflicts
+# Sermon 593 | Inward Conflicts
 
 Sermon No. 593 - Delivered on Sunday Morning, October 9th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Citizenship In Heaven
+# Sermon 476 | Citizenship In Heaven
 
 Sermon No. 476 - Delivered on Sunday Evening, October 12th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

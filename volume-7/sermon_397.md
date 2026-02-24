@@ -1,4 +1,4 @@
-# Fire! Fire! Fire!
+# Sermon 397 | Fire! Fire! Fire!
 
 Sermon No. 397 - Delivered on Sunday Morning, June 23rd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

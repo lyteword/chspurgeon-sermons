@@ -1,4 +1,4 @@
-# Spiritual Liberty
+# Sermon 9 | Spiritual Liberty
 
 Sermon No. 9 - Delivered on Sabbath Morning, February 18th, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

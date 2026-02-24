@@ -1,4 +1,4 @@
-# Joseph Attacked by the Archers
+# Sermon 17 | Joseph Attacked by the Archers
 
 Sermon No. 17 - Delivered on Sunday Morning, April 1, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand
 

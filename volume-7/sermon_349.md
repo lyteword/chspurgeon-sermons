@@ -1,4 +1,4 @@
-# The Wailing of Risca
+# Sermon 349 | The Wailing of Risca
 
 Sermon No. 349 - Delivered on Sabbath Morning, December 9th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

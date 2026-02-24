@@ -1,4 +1,4 @@
-# Life And Walk Of Faith
+# Sermon 483 | Life And Walk Of Faith
 
 Sermon No. 483 - Delivered on Sunday Morning, December 7th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

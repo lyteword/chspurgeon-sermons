@@ -1,4 +1,4 @@
-# Lead Us Not Into Temptation
+# Sermon 509 | Lead Us Not Into Temptation
 
 Sermon No. 509 - Delivered on Sunday Morning, May 17th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

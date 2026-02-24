@@ -1,4 +1,4 @@
-# Canaan on Earth
+# Sermon 58 | Canaan on Earth
 
 Sermon No. 58 - Delivered on Sabbath Morning, December 30, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

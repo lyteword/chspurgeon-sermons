@@ -1,4 +1,4 @@
-# Faith in Perfection
+# Sermon 231 | Faith in Perfection
 
 Sermon No. 231 - Delivered on Sabbath Morning, January 2nd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

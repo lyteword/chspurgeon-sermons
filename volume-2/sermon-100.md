@@ -1,4 +1,4 @@
-# The Comer's Conflict with Satan
+# Sermon 100 | The Comer's Conflict with Satan
 
 Sermon No. 100 Delivered on Sabbath Morning, August 24, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

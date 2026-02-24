@@ -1,4 +1,4 @@
-# Elijah's Appeal to the Undecided
+# Sermon 134 | Elijah's Appeal to the Undecided
 
 Sermon No. 134 - Delivered on Sabbath Morning, May 31, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

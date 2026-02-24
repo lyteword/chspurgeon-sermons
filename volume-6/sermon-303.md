@@ -1,4 +1,4 @@
-# Election and Holiness
+# Sermon 303 | Election and Holiness
 
 Sermon No. 303 - Delivered on Sabbath Morning, March 11th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

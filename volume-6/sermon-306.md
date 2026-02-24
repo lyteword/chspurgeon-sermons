@@ -1,4 +1,4 @@
-# Resurgam
+# Sermon 306 | Resurgam
 
 Sermon No. 306 - Delivered on Sabbath Morning, April 1st, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

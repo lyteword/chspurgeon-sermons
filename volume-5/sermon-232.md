@@ -1,4 +1,4 @@
-# Perfection in Faith
+# Sermon 232 | Perfection in Faith
 
 Sermon No. 232 - Delivered on Sabbath Evening, January 2nd, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

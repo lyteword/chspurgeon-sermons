@@ -1,4 +1,4 @@
-# Gospel Missions
+# Sermon 76 | Gospel Missions
 
 Sermon No. 76 - Delivered on Sabbath Morning, April 27, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

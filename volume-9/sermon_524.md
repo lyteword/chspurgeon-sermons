@@ -1,4 +1,4 @@
-# The Saint's Horror At The Sinner's Hell
+# Sermon 524 | The Saint's Horror At The Sinner's Hell
 
 Sermon No. 524 - Delivered on Sunday Morning, August 16th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

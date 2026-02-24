@@ -1,4 +1,4 @@
-# Sin Immeasurable
+# Sermon 299 | Sin Immeasurable
 
 Sermon No. 299 - Delivered on Sabbath Morning, February 12th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

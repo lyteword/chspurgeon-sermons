@@ -1,4 +1,4 @@
-# Separating the Precious From the Vile
+# Sermon 305 | Separating the Precious From the Vile
 
 Sermon No. 305 - Delivered on Sabbath Morning, March 25th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

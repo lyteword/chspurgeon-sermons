@@ -1,4 +1,4 @@
-# The Sons of God
+# Sermon 339 | The Sons of God
 
 Sermon No. 339 - Delivered on Sabbath Morning, October 7th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

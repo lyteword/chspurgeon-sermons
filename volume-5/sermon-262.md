@@ -1,4 +1,4 @@
-# Distinguishing Grace
+# Sermon 262 | Distinguishing Grace
 
 Sermon No. 262 - Delivered on Sabbath Evening, February 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

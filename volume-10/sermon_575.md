@@ -1,4 +1,4 @@
-# The Pierced One Pierces The Heart
+# Sermon 575 | The Pierced One Pierces The Heart
 
 Sermon No. 575 - Delivered on Sunday Morning, June 19th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

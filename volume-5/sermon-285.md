@@ -1,4 +1,4 @@
-# Man's Ruin and God's Remedy
+# Sermon 285 | Man's Ruin and God's Remedy
 
 Sermon No. 285 - Delivered on Sabbath Morning, November 20th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

@@ -1,4 +1,4 @@
-# The Warning Neglected
+# Sermon 165 | The Warning Neglected
 
 Sermon No. 165 - Delivered on Sabbath Morning, November 29, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

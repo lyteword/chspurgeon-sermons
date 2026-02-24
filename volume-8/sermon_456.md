@@ -1,4 +1,4 @@
-# The Stony Heart Removed
+# Sermon 456 | The Stony Heart Removed
 
 Sermon No. 456 - Delivered on Sunday Evening, May 25th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

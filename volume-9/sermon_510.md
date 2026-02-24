@@ -1,4 +1,4 @@
-# Peace By Believing
+# Sermon 510 | Peace By Believing
 
 Sermon No. 510 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Jesus About His Father's Business
+# Sermon 302 | Jesus About His Father's Business
 
 Sermon No. 302 - Delivered on Sabbath Morning, March 4th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

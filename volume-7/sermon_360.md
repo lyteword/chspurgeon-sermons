@@ -1,4 +1,4 @@
-# Adoption
+# Sermon 360 | Adoption
 
 Sermon No. 360 - Delivered on Sabbath Evening, February 10th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

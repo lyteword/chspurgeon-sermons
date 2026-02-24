@@ -1,4 +1,4 @@
-# Grace Exalted--Boasting Excluded
+# Sermon 429 | Grace Exalted--Boasting Excluded
 
 Sermon No. 429 - Delivered on Sunday Morning, January 19th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

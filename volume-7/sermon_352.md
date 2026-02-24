@@ -1,4 +1,4 @@
-# A Merry Christmas
+# Sermon 352 | A Merry Christmas
 
 Sermon No. 352 - Delivered on Sabbath Morning, December 23rd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

@@ -1,4 +1,4 @@
-# Tender Words Of Terrible Apprehension!
+# Sermon 344 | Tender Words Of Terrible Apprehension!
 
 Sermon No. 344 - Delivered on Sabbath Morning, November 4th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

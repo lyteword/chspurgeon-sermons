@@ -1,4 +1,4 @@
-# A Sense of Pardoned Sin
+# Sermon 316 | A Sense of Pardoned Sin
 
 Sermon No. 316 - Delivered on Sabbath Morning, May 20th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

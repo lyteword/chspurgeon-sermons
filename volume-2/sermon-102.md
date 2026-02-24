@@ -1,4 +1,4 @@
-# False Professors Solemnly Warned
+# Sermon 102 | False Professors Solemnly Warned
 
 Sermon No. 102 - Delivered on Sabbath Evening, August 24, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

@@ -1,4 +1,4 @@
-# "The Love Of Jesus--What It Is--None But His Loved Ones Know"
+# Sermon 455 | "The Love Of Jesus--What It Is--None But His Loved Ones Know"
 
 Sermon No. 455 - Delivered on Wednesday Evening, June 18th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

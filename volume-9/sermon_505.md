@@ -1,4 +1,4 @@
-# The Root Of The Matter
+# Sermon 505 | The Root Of The Matter
 
 Sermon No. 505 - Delivered on Sunday Evening, April 12th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

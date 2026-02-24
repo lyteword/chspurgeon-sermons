@@ -1,4 +1,4 @@
-# The Man With The Measuring Line
+# Sermon 604 | The Man With The Measuring Line
 
 Sermon No. 604 - Delivered on Sunday Morning, December 11th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

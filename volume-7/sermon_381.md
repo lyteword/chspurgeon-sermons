@@ -1,4 +1,4 @@
-# Christian Baptism
+# Sermon 381 | Christian Baptism
 
 Sermon No. 381 - Delivered on Tuesday Evening, April 9th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

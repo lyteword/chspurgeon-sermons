@@ -1,4 +1,4 @@
-# The Glorious Right Hand Of The Lord
+# Sermon 363 | The Glorious Right Hand Of The Lord
 
 Sermon No. 363 - Delivered on Sabbath Morning, February 24th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

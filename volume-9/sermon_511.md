@@ -1,4 +1,4 @@
-# Pentecost
+# Sermon 511 | Pentecost
 
 Sermon No. 511 - Delivered on Sunday Morning, May 24th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

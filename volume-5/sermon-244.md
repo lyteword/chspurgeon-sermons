@@ -1,4 +1,4 @@
-# The Bed and Its Covering
+# Sermon 244 | The Bed and Its Covering
 
 Sermon No. 244 - Delivered on Sabbath Evening, January 9th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

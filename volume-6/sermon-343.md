@@ -1,4 +1,4 @@
-# A Basket of Summer Fruit
+# Sermon 343 | A Basket of Summer Fruit
 
 Sermon No. 343 - Delivered on Sabbath Morning, October 28th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

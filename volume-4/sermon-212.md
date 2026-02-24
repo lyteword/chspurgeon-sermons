@@ -1,4 +1,4 @@
-# The New Heart
+# Sermon 212 | The New Heart
 
 Sermon No. 212 - Delivered on Sabbath Morning, September 5, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

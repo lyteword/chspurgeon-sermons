@@ -1,4 +1,4 @@
-# Portraits Of Christ
+# Sermon 355 | Portraits Of Christ
 
 Sermon No. 355 - Delivered on Sabbath Morning, January 13th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

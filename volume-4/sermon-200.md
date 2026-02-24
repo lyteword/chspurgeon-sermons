@@ -1,4 +1,4 @@
-# The Wicked Man's Life, Funeral, and Epitaph
+# Sermon 200 | The Wicked Man's Life, Funeral, and Epitaph
 
 Sermon No. 200 - Delivered on Sabbath Morning, June 13, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

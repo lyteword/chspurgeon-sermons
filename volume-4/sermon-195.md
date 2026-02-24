@@ -1,4 +1,4 @@
-# Looking Unto Jesus
+# Sermon 195 | Looking Unto Jesus
 
 Sermon No. 195 - Delivered on Sabbath Morning, May 23, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

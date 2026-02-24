@@ -1,4 +1,4 @@
-# The King's Highway Opened and Cleared
+# Sermon 293 | The King's Highway Opened and Cleared
 
 Sermon No. 293 - Delivered on Sabbath Morning, January 8th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

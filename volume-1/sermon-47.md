@@ -1,4 +1,4 @@
-# Christ's Prayer for His People
+# Sermon 47 | Christ's Prayer for His People
 
 Sermon No. 47 - Delivered on Sabbath Morning, October 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

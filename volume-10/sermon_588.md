@@ -1,4 +1,4 @@
-# The Prodigal's Reception
+# Sermon 588 | The Prodigal's Reception
 
 Sermon No. 588 - Delivered on Sunday Morning, September 4th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

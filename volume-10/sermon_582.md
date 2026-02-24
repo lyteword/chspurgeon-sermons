@@ -1,4 +1,4 @@
-# The Restoration And Conversion Of The Jews
+# Sermon 582 | The Restoration And Conversion Of The Jews
 
 Sermon No. 582 - Delivered on Sunday Morning, July 16th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

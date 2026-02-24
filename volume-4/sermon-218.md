@@ -1,4 +1,4 @@
-# Self-Examination
+# Sermon 218 | Self-Examination
 
 Sermon No. 218 - Delivered on Sabbath Morning, October 10, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

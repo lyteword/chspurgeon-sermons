@@ -1,4 +1,4 @@
-# Christ About His Father's Business
+# Sermon 122 | Christ About His Father's Business
 
 Sermon No. 122 - Delivered on Sabbath Morning, March 15, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

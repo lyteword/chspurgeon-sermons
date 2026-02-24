@@ -1,4 +1,4 @@
-# Effects Of Sound Doctrine
+# Sermon 324 | Effects Of Sound Doctrine
 
 Sermon No. 324 - Delivered on Sabbath Evening, April 22nd, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

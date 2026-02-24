@@ -1,4 +1,4 @@
-# The Sin of Unbelief
+# Sermon 3 | The Sin of Unbelief
 
 Sermon No. 3 - Delivered on Sabbath Morning, January 14, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

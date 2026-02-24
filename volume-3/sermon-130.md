@@ -1,4 +1,4 @@
-# Regeneration
+# Sermon 130 | Regeneration
 
 Sermon No. 130 - Delivered on Sabbath Morning, May 3, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

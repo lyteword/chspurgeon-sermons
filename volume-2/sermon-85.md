@@ -1,4 +1,4 @@
-# Omniscience
+# Sermon 85 | Omniscience
 
 Sermon No. 85 - Delivered on Sabbath Evening, June 15, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

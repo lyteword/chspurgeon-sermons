@@ -1,4 +1,4 @@
-# The Christian, A Debtor
+# Sermon 96 | The Christian, A Debtor
 
 Sermon No. 96 - Delivered on Sabbath Evening, August 10, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

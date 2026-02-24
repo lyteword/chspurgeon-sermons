@@ -1,4 +1,4 @@
-# God's Barriers Against Man's Sin
+# Sermon 220 | God's Barriers Against Man's Sin
 
 Sermon No. 220 - Delivered on Sabbath Morning, November 16th, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

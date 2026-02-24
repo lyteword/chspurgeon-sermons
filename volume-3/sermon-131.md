@@ -1,4 +1,4 @@
-# Salvation of the Lord
+# Sermon 131 | Salvation of the Lord
 
 Sermon No. 131 - Delivered on Sabbath Morning, May 10, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

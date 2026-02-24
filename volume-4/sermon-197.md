@@ -1,4 +1,4 @@
-# The Spies
+# Sermon 197 | The Spies
 
 Sermon No. 197 - Delivered on Sabbath Morning, June 6, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

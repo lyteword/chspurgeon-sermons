@@ -1,4 +1,4 @@
-# Paul's First Prayer
+# Sermon 16 | Paul's First Prayer
 
 Sermon - No. 16 Delivered on Sabbath Morning, March 25th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 

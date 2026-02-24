@@ -1,4 +1,4 @@
-# The Plea of Faith
+# Sermon 88 | The Plea of Faith
 
 Sermon No. 88 - Delivered on Sabbath Evening, June 22, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

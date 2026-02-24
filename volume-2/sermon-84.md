@@ -1,4 +1,4 @@
-# Salvation to the Uttermost
+# Sermon 84 | Salvation to the Uttermost
 
 Sermon No. 84 - Delivered on Sabbath Evening, June, 8, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

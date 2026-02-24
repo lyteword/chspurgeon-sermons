@@ -1,4 +1,4 @@
-# The Elders Before The Throne
+# Sermon 441 | The Elders Before The Throne
 
 Sermon No. 441 - Delivered on Sunday Morning, March 23rd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Christ's People&mdash;Imitators of Him
+# Sermon 21 | Christ's People&mdash;Imitators of Him
 
 Sermon No. 21 - Delivered on Sabbath Morning, April 29, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

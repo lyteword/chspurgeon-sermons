@@ -1,4 +1,4 @@
-# Praying And Waiting
+# Sermon 596 | Praying And Waiting
 
 Sermon No. 596 - Delivered on Sunday Morning, October 23rd 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

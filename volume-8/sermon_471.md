@@ -1,4 +1,4 @@
-# Accepted In The Beloved
+# Sermon 471 | Accepted In The Beloved
 
 Sermon No. 471 - Delivered on Sunday Morning, September 21st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

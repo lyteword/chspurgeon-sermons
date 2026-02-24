@@ -1,4 +1,4 @@
-# Man's Weakness&mdash;God's Anointing
+# Sermon 334 | Man's Weakness&mdash;God's Anointing
 
 Sermon No. 334 - Delivered on Sabbath Morning, September 9th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 

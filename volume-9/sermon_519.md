@@ -1,4 +1,4 @@
-# Believing With The Heart
+# Sermon 519 | Believing With The Heart
 
 Sermon No. 519 - Delivered on Sunday Morning, July 12th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

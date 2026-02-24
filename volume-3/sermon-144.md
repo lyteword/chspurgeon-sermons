@@ -1,4 +1,4 @@
-# Waiting Only Upon God
+# Sermon 144 | Waiting Only Upon God
 
 Sermon No. 144 - Delivered on Sabbath Morning, August 2, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 

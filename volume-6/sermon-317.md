@@ -1,4 +1,4 @@
-# Characteristics of Faith
+# Sermon 317 | Characteristics of Faith
 
 Sermon No. 317 - Delivered on Sabbath Morning, May 27th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
