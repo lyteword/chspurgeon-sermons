@@ -1,4 +1,4 @@
-# Helps
+# Sermon 777 | Helps
 
 Sermon No. 777 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

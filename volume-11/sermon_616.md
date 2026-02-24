@@ -1,4 +1,4 @@
-# The Special Call And The Unfailing Result
+# Sermon 616 | The Special Call And The Unfailing Result
 
 Sermon No. 616 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

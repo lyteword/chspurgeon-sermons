@@ -1,4 +1,4 @@
-# Think Well And Do Well
+# Sermon 956 | Think Well And Do Well
 
 (No. 956)
 

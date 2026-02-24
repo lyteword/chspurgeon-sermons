@@ -1,4 +1,4 @@
-# Unsound Spiritual Trading
+# Sermon 849 | Unsound Spiritual Trading
 
 Sermon No. 849 - Delivered on Lord's-Day, January 10th, 1869 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 849)

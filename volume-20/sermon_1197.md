@@ -1,4 +1,4 @@
-# The Claims of God
+# Sermon 1197 | The Claims of God
 
 (No. 1197)
 

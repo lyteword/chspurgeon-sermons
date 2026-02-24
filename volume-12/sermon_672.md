@@ -1,4 +1,4 @@
-# The Ravens' Cry
+# Sermon 672 | The Ravens' Cry
 
 Sermon No. 672 - Delivered on Sunday Morning, January 14th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

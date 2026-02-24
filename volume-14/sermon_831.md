@@ -1,4 +1,4 @@
-# The Alter
+# Sermon 831 | The Alter
 
 A Sermon (No. 831)
 

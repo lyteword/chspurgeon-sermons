@@ -1,4 +1,4 @@
-# The Bellows Burned
+# Sermon 890 | The Bellows Burned
 
 Sermon No. 890 - Delivered on Sunday Morning, SEPTEMBER 12, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

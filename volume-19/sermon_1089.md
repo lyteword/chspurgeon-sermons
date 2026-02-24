@@ -1,4 +1,4 @@
-# The Man Greatly Beloved
+# Sermon 1089 | The Man Greatly Beloved
 
 (No. 1089)
 

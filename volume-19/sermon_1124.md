@@ -1,4 +1,4 @@
-# God Beseeching Sinners by His Ministers
+# Sermon 1124 | God Beseeching Sinners by His Ministers
 
 (No. 1124)
 

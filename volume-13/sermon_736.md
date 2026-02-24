@@ -1,4 +1,4 @@
-# A Happy Christian
+# Sermon 736 | A Happy Christian
 
 Sermon No. 736 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# Heart-Knowledge of God
+# Sermon 1206 | Heart-Knowledge of God
 
 (No. 1206)
 

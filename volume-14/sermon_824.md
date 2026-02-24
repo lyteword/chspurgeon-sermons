@@ -1,4 +1,4 @@
-# The Heavan of Heavan
+# Sermon 824 | The Heavan of Heavan
 
 A Sermon (No. 824)
 

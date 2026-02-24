@@ -1,4 +1,4 @@
-# The Pilgrim's Grateful Recollections
+# Sermon 939 | The Pilgrim's Grateful Recollections
 
 (No. 939)
 

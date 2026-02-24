@@ -1,4 +1,4 @@
-# Infallibility--Where To Find It and How To Use It
+# Sermon 1208 | Infallibility--Where To Find It and How To Use It
 
 (No. 1208)
 

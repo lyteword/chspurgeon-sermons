@@ -1,4 +1,4 @@
-# Have You Forgotten Him?
+# Sermon 680 | Have You Forgotten Him?
 
 Sermon No. 680 - Delivered on Sunday Morning, March 11th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

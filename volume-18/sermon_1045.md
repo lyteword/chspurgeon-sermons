@@ -1,4 +1,4 @@
-# Joy in a Reconciled God
+# Sermon 1045 | Joy in a Reconciled God
 
 (No. 1045)
 

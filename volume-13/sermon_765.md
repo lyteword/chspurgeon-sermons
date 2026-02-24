@@ -1,4 +1,4 @@
-# Grace--the One Way of Salvation
+# Sermon 765 | Grace--the One Way of Salvation
 
 Sermon No. 765 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

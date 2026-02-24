@@ -1,4 +1,4 @@
-# The Essence of Simplicity
+# Sermon 1088 | The Essence of Simplicity
 
 (No. 1088)
 

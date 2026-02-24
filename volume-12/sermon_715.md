@@ -1,4 +1,4 @@
-# Children's Bread Given To Dogs
+# Sermon 715 | Children's Bread Given To Dogs
 
 Sermon No. 715 - Delivered on Sunday Evening, October 14th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

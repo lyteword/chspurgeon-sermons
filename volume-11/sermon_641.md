@@ -1,4 +1,4 @@
-# Confession Of Sin Illustrated by the Cases of Dr. Pritchard and Constance Kent
+# Sermon 641 | Confession Of Sin Illustrated by the Cases of Dr. Pritchard and Constance Kent
 
 Sermon No. 641 - Delivered on Sunday Morning, July 23rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

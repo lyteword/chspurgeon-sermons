@@ -1,4 +1,4 @@
-# God's Foreknowledge of Man's Sin
+# Sermon 779 | God's Foreknowledge of Man's Sin
 
 Sermon No. 779 - Delivered on Lord's-day Morning, NOVEMBER 3, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

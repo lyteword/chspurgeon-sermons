@@ -1,4 +1,4 @@
-# Effectual Calling--Illustrated by the Call of Abram
+# Sermon 843 | Effectual Calling--Illustrated by the Call of Abram
 
 A Sermon (No. 843)
 

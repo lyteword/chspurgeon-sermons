@@ -1,4 +1,4 @@
-# The Sphere Of Instrumentality
+# Sermon 1052 | The Sphere Of Instrumentality
 
 (No. 1052)
 

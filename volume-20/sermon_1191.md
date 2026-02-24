@@ -1,4 +1,4 @@
-# For Whom Did Christ Die?
+# Sermon 1191 | For Whom Did Christ Die?
 
 Sermon No. 1191 - Delivered on Lord's-Day Morning, September 6th, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

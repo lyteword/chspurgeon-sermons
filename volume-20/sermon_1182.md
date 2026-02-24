@@ -1,4 +1,4 @@
-# A Singular Title and a Special Favor
+# Sermon 1182 | A Singular Title and a Special Favor
 
 (No. 1182)
 

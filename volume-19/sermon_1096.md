@@ -1,4 +1,4 @@
-# Divine Love and Its Gifts
+# Sermon 1096 | Divine Love and Its Gifts
 
 (No. 1096)
 

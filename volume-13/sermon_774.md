@@ -1,4 +1,4 @@
-# A Sharp Knife for the Vine Branches
+# Sermon 774 | A Sharp Knife for the Vine Branches
 
 Sermon No. 774 - Delivered on Lord's-day Morning, OCTOBER 6, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

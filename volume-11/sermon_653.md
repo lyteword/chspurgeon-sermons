@@ -1,4 +1,4 @@
-# A Blow For Puseyism
+# Sermon 653 | A Blow For Puseyism
 
 Sermon No. 653 - Delivered on Sunday Morning, October 8th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

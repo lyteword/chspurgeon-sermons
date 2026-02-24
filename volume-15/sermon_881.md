@@ -1,4 +1,4 @@
-# The Believer A New Creature
+# Sermon 881 | The Believer A New Creature
 
 Sermon No. 881 - Delivered on Sunday Morning, July 18th, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

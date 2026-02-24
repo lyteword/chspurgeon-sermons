@@ -1,4 +1,4 @@
-# Right Replies To Right Requests
+# Sermon 959 | Right Replies To Right Requests
 
 (No. 959)
 

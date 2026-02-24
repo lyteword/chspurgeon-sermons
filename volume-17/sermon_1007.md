@@ -1,4 +1,4 @@
-# North and South
+# Sermon 1007 | North and South
 
 Sermon No. 1007 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

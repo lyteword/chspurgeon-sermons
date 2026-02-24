@@ -1,4 +1,4 @@
-# Soul-winning
+# Sermon 850 | Soul-winning
 
 Sermon No. 850 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

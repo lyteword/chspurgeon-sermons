@@ -1,4 +1,4 @@
-# Who Are The Elect?
+# Sermon 638 | Who Are The Elect?
 
 Sermon No. 638 - Delivered on Sunday Morning, July 9th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

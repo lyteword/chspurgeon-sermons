@@ -1,4 +1,4 @@
-# The Pilgrim's Longings
+# Sermon 1030 | The Pilgrim's Longings
 
 Sermon No. 1030 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

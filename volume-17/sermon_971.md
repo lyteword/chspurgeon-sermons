@@ -1,4 +1,4 @@
-# The Open Fountain
+# Sermon 971 | The Open Fountain
 
 Sermon No. 971 - Delivered on Lord's-day Morning, January 22nd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

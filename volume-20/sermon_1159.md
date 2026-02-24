@@ -1,4 +1,4 @@
-# Counting the Cost
+# Sermon 1159 | Counting the Cost
 
 (No. 1159)
 

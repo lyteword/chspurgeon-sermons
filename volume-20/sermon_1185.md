@@ -1,4 +1,4 @@
-# An Earnest Warning about Lukewarmness
+# Sermon 1185 | An Earnest Warning about Lukewarmness
 
 Sermon No. 1185 - Delivered on Lord's-Day Morning, July 26th, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

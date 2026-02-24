@@ -1,4 +1,4 @@
-# Early And Late
+# Sermon 664 | Early And Late
 
 Sermon No. 664 - Delivered on Sunday Morning, December 10th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

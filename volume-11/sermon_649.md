@@ -1,4 +1,4 @@
-# Songs For Desolate Hearts
+# Sermon 649 | Songs For Desolate Hearts
 
 Sermon No. 649 - Delivered on Sunday Morning, September 10th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

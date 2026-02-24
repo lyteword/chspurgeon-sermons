@@ -1,4 +1,4 @@
-# The Tender Pity of the Lord
+# Sermon 941 | The Tender Pity of the Lord
 
 (No. 941)
 

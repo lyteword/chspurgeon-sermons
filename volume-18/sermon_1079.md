@@ -1,4 +1,4 @@
-# The Secret Food And The Public Name
+# Sermon 1079 | The Secret Food And The Public Name
 
 (No. 1079)
 

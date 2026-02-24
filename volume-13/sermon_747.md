@@ -1,4 +1,4 @@
-# "Make This Valley Full of Ditches"
+# Sermon 747 | "Make This Valley Full of Ditches"
 
 Sermon No. 747 - Delivered on Lord's-day Morning, APRIL 28, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

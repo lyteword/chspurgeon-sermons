@@ -1,4 +1,4 @@
-# Kicking Against The Pricks
+# Sermon 709 | Kicking Against The Pricks
 
 Sermon No. 709 - Delivered on Sunday Evening, September 9th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

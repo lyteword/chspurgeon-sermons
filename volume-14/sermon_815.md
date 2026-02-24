@@ -1,4 +1,4 @@
-# Daniel's Undaunted Courage
+# Sermon 815 | Daniel's Undaunted Courage
 
 A Sermon (No. 815)
 

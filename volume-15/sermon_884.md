@@ -1,4 +1,4 @@
-# Help for Seekers of the Light
+# Sermon 884 | Help for Seekers of the Light
 
 Sermon No. 884 - Delivered on Sunday Morning, AUGUST 8, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

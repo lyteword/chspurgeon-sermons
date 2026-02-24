@@ -1,4 +1,4 @@
-# Clearing the Road to Heaven
+# Sermon 1131 | Clearing the Road to Heaven
 
 (No. 1131)
 

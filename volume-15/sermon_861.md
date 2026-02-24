@@ -1,4 +1,4 @@
-# Broken Bones
+# Sermon 861 | Broken Bones
 
 Sermon No. 861 - Delivered on Lord's-day Morning, MARCH 21, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# The Ascension of Christ
+# Sermon 982 | The Ascension of Christ
 
 Sermon No. 982 - Delivered on Lord's-day Morning, March 26th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

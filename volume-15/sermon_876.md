@@ -1,4 +1,4 @@
-# The Unwearied Runner
+# Sermon 876 | The Unwearied Runner
 
 Sermon No. 876 - Delivered on Thursday Evening, APRIL 15, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

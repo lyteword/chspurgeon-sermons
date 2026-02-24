@@ -1,4 +1,4 @@
-# A Sermon From A Rush
+# Sermon 651 | A Sermon From A Rush
 
 Sermon No. 651 - Delivered on Sunday Morning, September 24th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

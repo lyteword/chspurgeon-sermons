@@ -1,4 +1,4 @@
-# Motives for Steadfastness
+# Sermon 1111 | Motives for Steadfastness
 
 Sermon No. 1111 - Delivered on Lord's Day Morning, May 11, 1873 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 

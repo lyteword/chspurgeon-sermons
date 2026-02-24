@@ -1,4 +1,4 @@
-# Faith's Dawn and Its Clouds
+# Sermon 1033 | Faith's Dawn and Its Clouds
 
 Sermon No. 1033 - Delivered on Lord's Day Morning, January 28th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

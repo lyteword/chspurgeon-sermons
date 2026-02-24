@@ -1,4 +1,4 @@
-# 'Pray Without Ceasing'
+# Sermon 1039 | 'Pray Without Ceasing'
 
 Sermon No. 1039 - Delivered on Lord's Day Morning, March 10th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

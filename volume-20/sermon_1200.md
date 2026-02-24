@@ -1,4 +1,4 @@
-# The Power of the Risen Savior
+# Sermon 1200 | The Power of the Risen Savior
 
 (No. 1200)
 

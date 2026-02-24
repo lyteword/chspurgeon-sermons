@@ -1,4 +1,4 @@
-# The Saint and the Spirit
+# Sermon 754 | The Saint and the Spirit
 
 Sermon No. 754 - Delivered on Lord's-day Morning, JUNE 9, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

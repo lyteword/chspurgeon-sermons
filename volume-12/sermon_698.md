@@ -1,4 +1,4 @@
-# Seeing Is Not Believing, But Believing Is Seeing
+# Sermon 698 | Seeing Is Not Believing, But Believing Is Seeing
 
 Sermon No. 698 - Delivered on Sunday Morning, July 1st, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

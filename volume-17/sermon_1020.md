@@ -1,4 +1,4 @@
-# "The Sun of Righteousness"
+# Sermon 1020 | "The Sun of Righteousness"
 
 Sermon No. 1020 - Delivered on Lord's-day Morning, November 12th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

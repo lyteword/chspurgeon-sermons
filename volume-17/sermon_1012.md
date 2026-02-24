@@ -1,4 +1,4 @@
-# The Unbeliever's Unhappy Condition
+# Sermon 1012 | The Unbeliever's Unhappy Condition
 
 Sermon No. 1012 - Delivered on Lord's-day Morning, September 24th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

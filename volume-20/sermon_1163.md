@@ -1,4 +1,4 @@
-# Redemption and Its Claims
+# Sermon 1163 | Redemption and Its Claims
 
 (No. 1163)
 

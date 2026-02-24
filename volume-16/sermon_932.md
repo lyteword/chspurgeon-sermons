@@ -1,4 +1,4 @@
-# How God Condemned Sin
+# Sermon 932 | How God Condemned Sin
 
 (No. 932)
 

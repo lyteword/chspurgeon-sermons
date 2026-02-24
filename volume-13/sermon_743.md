@@ -1,4 +1,4 @@
-# Ephraim Bemoaning Himself
+# Sermon 743 | Ephraim Bemoaning Himself
 
 Sermon No. 743 - Delivered on Lord's-day Morning, MARCH 31, 1867 the REV. C.H. SPURGEON at the Agricultural Hall, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# The Old Way of the Wicked
+# Sermon 859 | The Old Way of the Wicked
 
 Sermon No. 859 - Delivered on Lord's-day Morning, MARCH 7, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

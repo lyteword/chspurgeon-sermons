@@ -1,4 +1,4 @@
-# The Centurion's Faith and Humility
+# Sermon 800 | The Centurion's Faith and Humility
 
 A Sermon
 

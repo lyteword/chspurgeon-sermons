@@ -1,4 +1,4 @@
-# Jesus The Shepherd
+# Sermon 652 | Jesus The Shepherd
 
 Sermon No. 652 - Delivered on Sunday Morning, October 1st, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

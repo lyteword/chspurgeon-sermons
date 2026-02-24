@@ -1,4 +1,4 @@
-# The Triumph Of Christianity
+# Sermon 1047 | The Triumph Of Christianity
 
 (No. 1047)
 

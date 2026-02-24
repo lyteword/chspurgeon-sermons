@@ -1,4 +1,4 @@
-# Things Present
+# Sermon 870 | Things Present
 
 Sermon No. 870 - Delivered on Sunday Morning, MAY 9, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

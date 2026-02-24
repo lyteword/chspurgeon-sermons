@@ -1,4 +1,4 @@
-# The Monster Dragged to Light
+# Sermon 1095 | The Monster Dragged to Light
 
 (No. 1095)
 

@@ -1,4 +1,4 @@
-# Serving The Lord
+# Sermon 885 | Serving The Lord
 
 Sermon No. 885 - Delivered on Sunday Morning, AUGUST 15, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

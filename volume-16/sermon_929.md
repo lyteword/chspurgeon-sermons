@@ -1,4 +1,4 @@
-# The Model Home Mission and the Model Home Missionary
+# Sermon 929 | The Model Home Mission and the Model Home Missionary
 
 (No. 929)
 

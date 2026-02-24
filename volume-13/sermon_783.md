@@ -1,4 +1,4 @@
-# Sermons From Saintly Deathbeds No. 783
+# Sermon 783 | Sermons From Saintly Deathbeds No. 783
 
 Sermon No. 783 - Delivered on Lord's-day Morning, DECEMBER 1, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

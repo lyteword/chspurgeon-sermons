@@ -1,4 +1,4 @@
-# Thinking and Turning
+# Sermon 1181 | Thinking and Turning
 
 (No. 1181)
 

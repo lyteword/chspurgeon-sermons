@@ -1,4 +1,4 @@
-# Consecration to God--Illustrated by Abraham's Circumcision
+# Sermon 845 | Consecration to God--Illustrated by Abraham's Circumcision
 
 Sermon No. 845 - Delivered on Lord's-Day Morning, December 13th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle,.
 

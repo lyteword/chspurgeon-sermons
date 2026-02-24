@@ -1,4 +1,4 @@
-# Jesus At Bethesda--or, Waiting Changed for Believing
+# Sermon 744 | Jesus At Bethesda--or, Waiting Changed for Believing
 
 Sermon No. 744 - Delivered on Lord's-day Morning, APRIL 7, 1867 the REV. C.H. SPURGEON at the Agricultural Hall, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# King's Gardens
+# Sermon 790 | King's Gardens
 
 Sermon No. 790 - Delivered on Lord's-Day Evening, December 29 , 1867 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 

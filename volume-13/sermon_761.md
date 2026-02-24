@@ -1,4 +1,4 @@
-# The Shrill Trumpet of Admonition
+# Sermon 761 | The Shrill Trumpet of Admonition
 
 Sermon No. 761 - Delivered on Lord's-day Morning, JULY 21, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# The Poor Man's Friend
+# Sermon 1037 | The Poor Man's Friend
 
 Sermon No. 1037 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

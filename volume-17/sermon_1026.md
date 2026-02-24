@@ -1,4 +1,4 @@
-# Joy Born at Bethlehem
+# Sermon 1026 | Joy Born at Bethlehem
 
 Sermon No. 1026 - Delivered on Lord's-Day Morning, December 24th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Purging Out the Leaven
+# Sermon 965 | Purging Out the Leaven
 
 (No. 965)
 

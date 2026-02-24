@@ -1,4 +1,4 @@
-# A Feast For Faith
+# Sermon 711 | A Feast For Faith
 
 Sermon No. 711 - Delivered on Sunday Evening, September 16th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

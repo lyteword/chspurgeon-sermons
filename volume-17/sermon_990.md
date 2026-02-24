@@ -1,4 +1,4 @@
-# Self-Humbling and Self-Searching
+# Sermon 990 | Self-Humbling and Self-Searching
 
 Sermon No. 990 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

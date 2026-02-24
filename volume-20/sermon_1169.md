@@ -1,4 +1,4 @@
-# The Fullness of Christ the Treasury of the Saints
+# Sermon 1169 | The Fullness of Christ the Treasury of the Saints
 
 (No. 1169)
 

@@ -1,4 +1,4 @@
-# The Unrivalled Eloquence Of Jesus
+# Sermon 951 | The Unrivalled Eloquence Of Jesus
 
 (No. 951)
 

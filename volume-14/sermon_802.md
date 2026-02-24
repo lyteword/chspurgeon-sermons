@@ -1,4 +1,4 @@
-# Good Earnests of Great Success
+# Sermon 802 | Good Earnests of Great Success
 
 Sermon No. 802 - Delivered on Lord's-Day Evening, January 12th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle,.
 

@@ -1,4 +1,4 @@
-# The Blind Man's Earnest Cries
+# Sermon 645 | The Blind Man's Earnest Cries
 
 Sermon No. 645 - Delivered on Sunday Morning, August 20th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

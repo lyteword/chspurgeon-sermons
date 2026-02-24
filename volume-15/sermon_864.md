@@ -1,4 +1,4 @@
-# Life's Ever-Springing Well
+# Sermon 864 | Life's Ever-Springing Well
 
 Sermon No. 864 - Delivered on Lord's-day Morning, APRIL 4, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

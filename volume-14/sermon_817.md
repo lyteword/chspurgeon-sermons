@@ -1,4 +1,4 @@
-# The Widow of Sarepta
+# Sermon 817 | The Widow of Sarepta
 
 A Sermon. (No. 817)
 

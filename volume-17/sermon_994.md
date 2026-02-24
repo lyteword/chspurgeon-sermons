@@ -1,4 +1,4 @@
-# The Prayer of Jabez
+# Sermon 994 | The Prayer of Jabez
 
 Sermon No. 994 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

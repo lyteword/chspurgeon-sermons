@@ -1,4 +1,4 @@
-# Fresh Grace Confidently Expected
+# Sermon 1122 | Fresh Grace Confidently Expected
 
 (No. 1122)
 

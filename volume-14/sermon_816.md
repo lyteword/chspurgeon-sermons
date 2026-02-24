@@ -1,4 +1,4 @@
-# The Wall Daubed with Untempered Mortar
+# Sermon 816 | The Wall Daubed with Untempered Mortar
 
 A Sermon (No. 816)
 

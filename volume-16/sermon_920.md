@@ -1,4 +1,4 @@
-# Backsliding Healed
+# Sermon 920 | Backsliding Healed
 
 (No. 920)
 

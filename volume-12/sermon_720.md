@@ -1,4 +1,4 @@
-# The Gospel's Healing Power
+# Sermon 720 | The Gospel's Healing Power
 
 Sermon No. 720 - Delivered on Sunday Morning, November 11th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

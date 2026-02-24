@@ -1,4 +1,4 @@
-# Unity In Christ
+# Sermon 668 | Unity In Christ
 
 Sermon No. 668 - Delivered on Sunday Morning, January 7th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

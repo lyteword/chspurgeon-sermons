@@ -1,4 +1,4 @@
-# Means for Restoring the Banished
+# Sermon 950 | Means for Restoring the Banished
 
 (No. 950)
 

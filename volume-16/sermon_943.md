@@ -1,4 +1,4 @@
-# The Spur
+# Sermon 943 | The Spur
 
 (No. 943)
 

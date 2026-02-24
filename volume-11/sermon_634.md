@@ -1,4 +1,4 @@
-# Christians Kept In Time And Glorified In Eternity
+# Sermon 634 | Christians Kept In Time And Glorified In Eternity
 
 Sermon No. 634 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

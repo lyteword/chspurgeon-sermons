@@ -1,4 +1,4 @@
-# "Bought with a Price"
+# Sermon 1004 | "Bought with a Price"
 
 Sermon No. 1004 - Delivered on Lord's-day Morning, August 6th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# A Glorious Church
+# Sermon 628 | A Glorious Church
 
 Sermon No. 628 - Delivered on Sunday Morning, May 7th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

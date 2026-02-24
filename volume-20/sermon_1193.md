@@ -1,4 +1,4 @@
-# Girding on the Harness
+# Sermon 1193 | Girding on the Harness
 
 (No. 1193)
 

@@ -1,4 +1,4 @@
-# A Good Soldier Of Jesus Christ
+# Sermon 938 | A Good Soldier Of Jesus Christ
 
 (No. 938)
 

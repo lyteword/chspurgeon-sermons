@@ -1,4 +1,4 @@
-# Job's Regret and Our Own
+# Sermon 1011 | Job's Regret and Our Own
 
 Sermon No. 1011 - Delivered on Lord's-day Morning, September 17th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

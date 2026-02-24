@@ -1,4 +1,4 @@
-# Precious Deaths
+# Sermon 1036 | Precious Deaths
 
 Sermon No. 1036 - Delivered on Lord's Day Morning, February 18th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Glorious Predestination
+# Sermon 1043 | Glorious Predestination
 
 Sermon No. 1043 - Delivered on Lord's Day Morning, March 24th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Our Life, Our Work, Our Change
+# Sermon 764 | Our Life, Our Work, Our Change
 
 Sermon No. 764 - Delivered on Lord's-day Morning, AUGUST 4, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

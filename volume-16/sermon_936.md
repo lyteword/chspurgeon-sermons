@@ -1,4 +1,4 @@
-# A Blessed Wonder
+# Sermon 936 | A Blessed Wonder
 
 (No. 936)
 

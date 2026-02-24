@@ -1,4 +1,4 @@
-# The Fourfold Treasure
+# Sermon 991 | The Fourfold Treasure
 
 Sermon No. 991 - Delivered on Thursday Evening, April 27th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

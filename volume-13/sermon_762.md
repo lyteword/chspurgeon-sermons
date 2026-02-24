@@ -1,4 +1,4 @@
-# The Relationship of Marriage
+# Sermon 762 | The Relationship of Marriage
 
 Sermon No. 762 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# Nathanael And The Fig Tree
+# Sermon 921 | Nathanael And The Fig Tree
 
 (No. 921)
 

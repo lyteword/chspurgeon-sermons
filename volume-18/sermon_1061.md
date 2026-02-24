@@ -1,4 +1,4 @@
-# Rahab
+# Sermon 1061 | Rahab
 
 (No. 1061)
 

@@ -1,4 +1,4 @@
-# A Bright Light in Deep Shades
+# Sermon 1050 | A Bright Light in Deep Shades
 
 (No. 1050)
 

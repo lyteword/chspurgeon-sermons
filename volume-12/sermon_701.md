@@ -1,4 +1,4 @@
-# Seeing And Not Seeing--Or, Men As Trees Walking
+# Sermon 701 | Seeing And Not Seeing--Or, Men As Trees Walking
 
 Sermon No. 701 - Delivered on Sunday Morning, July 22nd, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

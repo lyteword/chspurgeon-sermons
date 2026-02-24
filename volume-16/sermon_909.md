@@ -1,4 +1,4 @@
-# Voices from the Excellent Glory
+# Sermon 909 | Voices from the Excellent Glory
 
 (No. 909)
 

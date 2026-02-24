@@ -1,4 +1,4 @@
-# Dei Gratia
+# Sermon 958 | Dei Gratia
 
 (No. 958)
 

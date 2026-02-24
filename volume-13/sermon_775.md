@@ -1,4 +1,4 @@
-# The Great Attraction
+# Sermon 775 | The Great Attraction
 
 Sermon No. 775 - Delivered on Lord's-day Morning, OCTOBER 13, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

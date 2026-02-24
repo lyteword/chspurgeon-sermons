@@ -1,4 +1,4 @@
-# Praises and Vows Accepted in Zion
+# Sermon 1023 | Praises and Vows Accepted in Zion
 
 Sermon No. 1023 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

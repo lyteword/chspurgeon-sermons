@@ -1,4 +1,4 @@
-# The Great White Throne
+# Sermon 710 | The Great White Throne
 
 Sermon No. 710 - Delivered on Sunday Evening, August 12th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

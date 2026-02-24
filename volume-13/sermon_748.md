@@ -1,4 +1,4 @@
-# Self-Humbling
+# Sermon 748 | Self-Humbling
 
 Sermon No. 748 - Delivered on Lord's-day Morning, MAY 5, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

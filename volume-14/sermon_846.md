@@ -1,4 +1,4 @@
-# Good Cheer for Christians
+# Sermon 846 | Good Cheer for Christians
 
 A Sermon (No. 846)
 

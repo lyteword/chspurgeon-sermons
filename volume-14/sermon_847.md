@@ -1,4 +1,4 @@
-# Joyful Transformations
+# Sermon 847 | Joyful Transformations
 
 A Sermon (No. 847)
 

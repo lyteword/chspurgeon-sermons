@@ -1,4 +1,4 @@
-# Compassion for Souls
+# Sermon 974 | Compassion for Souls
 
 Sermon No. 974 - Delivered on Lord's-day Morning, February 5th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

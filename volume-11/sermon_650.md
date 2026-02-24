@@ -1,4 +1,4 @@
-# Judgment Threatening But Mercy Sparing
+# Sermon 650 | Judgment Threatening But Mercy Sparing
 
 Sermon No. 650 - Delivered on Sunday Morning, September 17th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

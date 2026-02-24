@@ -1,4 +1,4 @@
-# Tearful Sowing and Joyful Reaping
+# Sermon 867 | Tearful Sowing and Joyful Reaping
 
 Sermon No. 867 - Delivered on Lord's-day Morning, APRIL 25, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

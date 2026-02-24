@@ -1,4 +1,4 @@
-# The Three Witnesses
+# Sermon 1187 | The Three Witnesses
 
 Sermon No. 1187 - Delivered on Lord's-Day Morning, August 9th, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The First Cry from the Cross
+# Sermon 897 | The First Cry from the Cross
 
 Sermon No. 897 - Delivered on Sunday Morning, October 24th, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

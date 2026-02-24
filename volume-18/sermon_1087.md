@@ -1,4 +1,4 @@
-# The Hexapla Of Mystery
+# Sermon 1087 | The Hexapla Of Mystery
 
 (No. 1087)
 

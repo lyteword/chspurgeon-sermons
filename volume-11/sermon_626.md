@@ -1,4 +1,4 @@
-# The Waterer Watered
+# Sermon 626 | The Waterer Watered
 
 Sermon No. 626 - Delivered on Sunday Morning, April 23rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Degrees Of Power Attending The Gospel
+# Sermon 648 | Degrees Of Power Attending The Gospel
 
 Sermon No. 648 - Delivered on Sunday Morning, September 3rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

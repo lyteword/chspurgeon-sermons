@@ -1,4 +1,4 @@
-# The Silken Fetter
+# Sermon 888 | The Silken Fetter
 
 Sermon No. 888 - Delivered on Sunday Morning, AUGUST 29, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

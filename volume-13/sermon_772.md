@@ -1,4 +1,4 @@
-# Delay Is Dangerous
+# Sermon 772 | Delay Is Dangerous
 
 Sermon No. 772 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

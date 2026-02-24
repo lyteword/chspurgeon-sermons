@@ -1,4 +1,4 @@
-# Believing To See No.
+# Sermon 766 | Believing To See No.
 
 Sermon No. 766 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

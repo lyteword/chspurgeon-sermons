@@ -1,4 +1,4 @@
-# Bands Of Love
+# Sermon 934 | Bands Of Love
 
 (No. 934)
 

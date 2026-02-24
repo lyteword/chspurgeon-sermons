@@ -1,4 +1,4 @@
-# The Healing of One Born Blind
+# Sermon 1065 | The Healing of One Born Blind
 
 (No. 1065)
 

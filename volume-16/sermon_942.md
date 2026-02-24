@@ -1,4 +1,4 @@
-# The Way
+# Sermon 942 | The Way
 
 (No. 942)
 

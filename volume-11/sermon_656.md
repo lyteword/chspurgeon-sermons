@@ -1,4 +1,4 @@
-# Prevenient Grace
+# Sermon 656 | Prevenient Grace
 
 Sermon No. 656 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

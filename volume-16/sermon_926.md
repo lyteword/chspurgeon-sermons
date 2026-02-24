@@ -1,4 +1,4 @@
-# The Sine Qua Non
+# Sermon 926 | The Sine Qua Non
 
 (No. 926)
 

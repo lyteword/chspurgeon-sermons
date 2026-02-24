@@ -1,4 +1,4 @@
-# "The Lord Is Risen, Indeed"
+# Sermon 1106 | "The Lord Is Risen, Indeed"
 
 (No. 1106)
 

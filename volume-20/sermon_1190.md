@@ -1,4 +1,4 @@
-# A Song Among the Lilies
+# Sermon 1190 | A Song Among the Lilies
 
 Sermon No. 1190 - Delivered on Lord's-Day Morning, August 30th, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

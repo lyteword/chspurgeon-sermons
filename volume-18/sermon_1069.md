@@ -1,4 +1,4 @@
-# Laboring And Not Fainting
+# Sermon 1069 | Laboring And Not Fainting
 
 (No. 1069)
 

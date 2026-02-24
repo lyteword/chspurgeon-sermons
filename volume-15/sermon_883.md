@@ -1,4 +1,4 @@
-# Multitudinous Thoughts And Sacred Comforts
+# Sermon 883 | Multitudinous Thoughts And Sacred Comforts
 
 Sermon No. 883 - Delivered on Sunday Morning, AUGUST 1, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

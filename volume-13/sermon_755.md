@@ -1,4 +1,4 @@
-# Alive or Dead--Which?
+# Sermon 755 | Alive or Dead--Which?
 
 Sermon No. 755 - Delivered on Lord's-Day Morning, June 16th, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

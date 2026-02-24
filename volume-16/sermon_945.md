@@ -1,4 +1,4 @@
-# Ripe Fruit
+# Sermon 945 | Ripe Fruit
 
 (No. 945)
 

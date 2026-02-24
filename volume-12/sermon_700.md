@@ -1,4 +1,4 @@
-# Order and Argument in Prayer
+# Sermon 700 | Order and Argument in Prayer
 
 Sermon No. 700 - Delivered on Sunday Morning, July 15th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Cheering Words and Solemn Warnings
+# Sermon 729 | Cheering Words and Solemn Warnings
 
 Sermon No. 729 - Delivered on Lord's-day Morning, JANUARY 13, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

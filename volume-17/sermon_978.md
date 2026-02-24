@@ -1,4 +1,4 @@
-# All Fulness in Christ
+# Sermon 978 | All Fulness in Christ
 
 Sermon No. 978 - Delivered on Lord's-day Morning, February 26th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Mercy's Master Motive
+# Sermon 1041 | Mercy's Master Motive
 
 Sermon No. 1041 - Delivered on Lord's Day Morning, March 17th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

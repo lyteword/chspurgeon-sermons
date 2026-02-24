@@ -1,4 +1,4 @@
-# Prosperity Under Persecution
+# Sermon 997 | Prosperity Under Persecution
 
 Sermon No. 997 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Dying Daily
+# Sermon 828 | Dying Daily
 
 A Sermon (No. 828)
 

@@ -1,4 +1,4 @@
-# To Those Who Are "Almost Persuaded"
+# Sermon 871 | To Those Who Are "Almost Persuaded"
 
 Sermon No. 871 - Delivered on Lord's-day Morning, MAY 16, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

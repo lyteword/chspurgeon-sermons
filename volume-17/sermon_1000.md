@@ -1,4 +1,4 @@
-# Number One Thousand; Or, "Bread Enough and To Spare"
+# Sermon 1000 | Number One Thousand; Or, "Bread Enough and To Spare"
 
 Sermon No. 1000 - Delivered on Lord's-day Morning, July 16th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

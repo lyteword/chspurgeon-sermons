@@ -1,4 +1,4 @@
-# The Wedding Garment
+# Sermon 976 | The Wedding Garment
 
 Sermon No. 976 - Delivered on Lord's-day Morning, February 19th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

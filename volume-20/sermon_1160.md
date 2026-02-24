@@ -1,4 +1,4 @@
-# The Entreaty of the Holy Spirit
+# Sermon 1160 | The Entreaty of the Holy Spirit
 
 (No. 1160)
 

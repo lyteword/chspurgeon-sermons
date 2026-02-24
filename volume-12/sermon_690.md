@@ -1,4 +1,4 @@
-# A Lesson From The Great Panic
+# Sermon 690 | A Lesson From The Great Panic
 
 Sermon No. 690 - Delivered on Sunday Morning, May 13th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# A Simple Remedy
+# Sermon 1068 | A Simple Remedy
 
 (No. 1068)
 

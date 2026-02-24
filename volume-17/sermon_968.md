@@ -1,4 +1,4 @@
-# Life In Christ
+# Sermon 968 | Life In Christ
 
 Sermon No. 968 - Delivered on Lord's-day Morning, January 1st, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

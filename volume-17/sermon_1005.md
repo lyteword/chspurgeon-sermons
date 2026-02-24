@@ -1,4 +1,4 @@
-# Lessons From Nature
+# Sermon 1005 | Lessons From Nature
 
 Sermon No. 1005 - Delivered on Lord's-day Morning, August 13th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

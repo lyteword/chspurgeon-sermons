@@ -1,4 +1,4 @@
-# Hope in Hopeless Cases
+# Sermon 821 | Hope in Hopeless Cases
 
 A Sermon (No. 821)
 

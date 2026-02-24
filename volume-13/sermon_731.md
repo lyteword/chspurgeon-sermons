@@ -1,4 +1,4 @@
-# A Word in Season
+# Sermon 731 | A Word in Season
 
 Sermon No. 731 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

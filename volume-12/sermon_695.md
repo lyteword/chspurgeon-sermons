@@ -1,4 +1,4 @@
-# The Axe at the Root--A Testimony Against Puseyite Idolatry
+# Sermon 695 | The Axe at the Root--A Testimony Against Puseyite Idolatry
 
 Sermon No. 695 - Delivered on Sunday Morning, June 17th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

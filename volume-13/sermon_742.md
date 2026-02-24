@@ -1,4 +1,4 @@
-# A Sermon to Open Neglecters and Nominal Followers of Religion
+# Sermon 742 | A Sermon to Open Neglecters and Nominal Followers of Religion
 
 Sermon No. 742 - Delivered on Lord's-day Morning, March 24th, 1866 the REV. C.H. SPURGEON at the Agricultural Hall, Islington.
 

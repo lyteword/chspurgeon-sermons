@@ -1,4 +1,4 @@
-# Constancy And Inconstancy--a Contrast
+# Sermon 852 | Constancy And Inconstancy--a Contrast
 
 Sermon No. 852 - Delivered on Lord's-day Morning, JANUARY 24, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# Obedience Better Than Sacrifice
+# Sermon 686 | Obedience Better Than Sacrifice
 
 Sermon No. 686 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

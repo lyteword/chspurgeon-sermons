@@ -1,4 +1,4 @@
-# Covenant Blessings
+# Sermon 1046 | Covenant Blessings
 
 (No. 1046)
 

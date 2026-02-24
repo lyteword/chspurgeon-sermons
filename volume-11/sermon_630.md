@@ -1,4 +1,4 @@
-# The Holy Spirit Compared To The Wind
+# Sermon 630 | The Holy Spirit Compared To The Wind
 
 Sermon No. 630 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

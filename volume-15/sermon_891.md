@@ -1,4 +1,4 @@
-# The Vital Force
+# Sermon 891 | The Vital Force
 
 Sermon No. 891 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

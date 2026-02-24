@@ -1,4 +1,4 @@
-# Fields White For Harvest
+# Sermon 706 | Fields White For Harvest
 
 Sermon No. 706 - Delivered on Sunday Evening, July 29th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

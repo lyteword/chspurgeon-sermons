@@ -1,4 +1,4 @@
-# A Song at the Wellhead
+# Sermon 776 | A Song at the Wellhead
 
 Sermon No. 776 - Delivered on Thursday Evening, OCTOBER 10, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

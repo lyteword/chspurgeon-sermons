@@ -1,4 +1,4 @@
-# Israel's God and God's Israel
+# Sermon 803 | Israel's God and God's Israel
 
 A Sermon
 

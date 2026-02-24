@@ -1,4 +1,4 @@
-# Open Heart For The Great Savior
+# Sermon 669 | Open Heart For The Great Savior
 
 Sermon No. 669 - Delivered on Sunday Evening, December 17th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

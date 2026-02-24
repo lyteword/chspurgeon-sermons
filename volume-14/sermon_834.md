@@ -1,4 +1,4 @@
-# The Universal Remedy
+# Sermon 834 | The Universal Remedy
 
 A Sermon (No. 834)
 

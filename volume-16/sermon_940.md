@@ -1,4 +1,4 @@
-# The Winnowing Fan
+# Sermon 940 | The Winnowing Fan
 
 (No. 940)
 

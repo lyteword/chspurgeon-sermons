@@ -1,4 +1,4 @@
-# A Personal Application
+# Sermon 962 | A Personal Application
 
 (No. 962)
 

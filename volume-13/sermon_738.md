@@ -1,4 +1,4 @@
-# Grieve Not the Holy Spirit
+# Sermon 738 | Grieve Not the Holy Spirit
 
 Sermon No. 738 - Delivered on Lord's-day Morning, MARCH 3, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

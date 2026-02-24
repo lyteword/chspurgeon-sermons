@@ -1,4 +1,4 @@
-# The King In His Beauty
+# Sermon 752 | The King In His Beauty
 
 Sermon No. 752 - Delivered on Lord's-day Morning, MAY 26, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

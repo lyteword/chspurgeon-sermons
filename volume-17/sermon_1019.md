@@ -1,4 +1,4 @@
-# Household Salvation
+# Sermon 1019 | Household Salvation
 
 Sermon No. 1019 - Delivered on Lord's-day Morning, November 5th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

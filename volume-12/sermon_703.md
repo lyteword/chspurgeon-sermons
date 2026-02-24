@@ -1,4 +1,4 @@
-# Salvation Altogether By Grace
+# Sermon 703 | Salvation Altogether By Grace
 
 Sermon No. 703 - Delivered on Sunday Morning, July 29th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

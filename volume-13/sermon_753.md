@@ -1,4 +1,4 @@
-# Nazareth--or Jesus, Rejected by His Friends
+# Sermon 753 | Nazareth--or Jesus, Rejected by His Friends
 
 Sermon No. 753 - Delivered on Lord's-day Morning, JUNE 2, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

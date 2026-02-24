@@ -1,4 +1,4 @@
-# The Light of the World
+# Sermon 1109 | The Light of the World
 
 (No. 1109)
 

@@ -1,4 +1,4 @@
-# Strong Consolation
+# Sermon 893 | Strong Consolation
 
 Sermon No. 893 - Delivered on Lord's-day Morning, SEPTEMBER 26 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

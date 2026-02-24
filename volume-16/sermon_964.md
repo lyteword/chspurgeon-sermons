@@ -1,4 +1,4 @@
-# The Essence Of The Gospel
+# Sermon 964 | The Essence Of The Gospel
 
 (No. 964)
 

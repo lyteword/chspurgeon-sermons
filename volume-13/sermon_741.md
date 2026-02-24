@@ -1,4 +1,4 @@
-# A Troubled Prayer
+# Sermon 741 | A Troubled Prayer
 
 Sermon No. 741 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

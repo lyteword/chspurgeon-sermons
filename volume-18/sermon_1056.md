@@ -1,4 +1,4 @@
-# Perseverance Without Presumption
+# Sermon 1056 | Perseverance Without Presumption
 
 (No. 1056)
 

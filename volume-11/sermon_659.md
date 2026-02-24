@@ -1,4 +1,4 @@
-# Simeon
+# Sermon 659 | Simeon
 
 Sermon No. 659 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

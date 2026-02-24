@@ -1,4 +1,4 @@
-# Another Royal Procession
+# Sermon 1038 | Another Royal Procession
 
 Sermon No. 1038 - Delivered on Lord's Day Morning, 3rd, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

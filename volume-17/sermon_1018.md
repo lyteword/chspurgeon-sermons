@@ -1,4 +1,4 @@
-# Pleading
+# Sermon 1018 | Pleading
 
 Sermon No. 1018 - Delivered on Lord's-day Morning, October 29th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

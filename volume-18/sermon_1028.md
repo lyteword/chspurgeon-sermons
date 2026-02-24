@@ -1,4 +1,4 @@
-# The Glorious Master and the Swooning Disciple
+# Sermon 1028 | The Glorious Master and the Swooning Disciple
 
 Sermon No. 1028 - Delivered on Lord's Day Morning, January 7th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

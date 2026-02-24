@@ -1,4 +1,4 @@
-# The Christian's Motto
+# Sermon 1165 | The Christian's Motto
 
 (No. 1165)
 

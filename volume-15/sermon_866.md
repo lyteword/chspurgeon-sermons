@@ -1,4 +1,4 @@
-# Rest
+# Sermon 866 | Rest
 
 Sermon No. 866 - Delivered on Lord's-day Morning, APRIL 18, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

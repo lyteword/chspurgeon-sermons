@@ -1,4 +1,4 @@
-# The Resurrection Credible
+# Sermon 1067 | The Resurrection Credible
 
 (No. 1067)
 

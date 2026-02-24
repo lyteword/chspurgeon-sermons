@@ -1,4 +1,4 @@
-# The Way To Honor
+# Sermon 1118 | The Way To Honor
 
 (No. 1118)
 

@@ -1,4 +1,4 @@
-# Frost And Thaw
+# Sermon 670 | Frost And Thaw
 
 Sermon No. 670 - Delivered on Sunday Evening, December 24th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

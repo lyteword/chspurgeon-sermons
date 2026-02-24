@@ -1,4 +1,4 @@
-# The Lord's Name and Memorial
+# Sermon 833 | The Lord's Name and Memorial
 
 A Sermon (No. 833)
 

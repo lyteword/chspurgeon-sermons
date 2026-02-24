@@ -1,4 +1,4 @@
-# Serving the Lord With Gladness
+# Sermon 769 | Serving the Lord With Gladness
 
 Sermon No. 769 - Delivered on Lord's-day Morning, SEPTEMBER 8, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# The Conditions Of Power In Prayer
+# Sermon 1103 | The Conditions Of Power In Prayer
 
 (No. 1103)
 

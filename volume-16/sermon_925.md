@@ -1,4 +1,4 @@
-# Individual Sin Laid On Jesus
+# Sermon 925 | Individual Sin Laid On Jesus
 
 (No. 925)
 

@@ -1,4 +1,4 @@
-# A Cheerful Giver is Beloved of God
+# Sermon 835 | A Cheerful Giver is Beloved of God
 
 A Sermon (No. 835)
 

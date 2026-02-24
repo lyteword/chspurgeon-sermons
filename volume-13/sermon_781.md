@@ -1,4 +1,4 @@
-# Christus Et Ego
+# Sermon 781 | Christus Et Ego
 
 Sermon No. 781 - Delivered on Lord's-day Morning, NOVEMBER 17, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

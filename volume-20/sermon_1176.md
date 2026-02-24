@@ -1,4 +1,4 @@
-# The Eternal Day
+# Sermon 1176 | The Eternal Day
 
 (No. 1176)
 

@@ -1,4 +1,4 @@
-# Hope, Yet No Hope--No Hope, Yet Hope
+# Sermon 684 | Hope, Yet No Hope--No Hope, Yet Hope
 
 Sermon No. 684 - Delivered on Sunday Morning, April 8th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

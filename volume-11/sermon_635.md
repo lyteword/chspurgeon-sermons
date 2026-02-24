@@ -1,4 +1,4 @@
-# Are You Prepared To Die?
+# Sermon 635 | Are You Prepared To Die?
 
 Sermon No. 635 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

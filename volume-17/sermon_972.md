@@ -1,4 +1,4 @@
-# New Uses for Old Trophies
+# Sermon 972 | New Uses for Old Trophies
 
 Sermon No. 972 - Delivered on Lord's-day Evening, November 20th, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

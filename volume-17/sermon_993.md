@@ -1,4 +1,4 @@
-# The Northern Iron and the Steel
+# Sermon 993 | The Northern Iron and the Steel
 
 Sermon No. 993 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

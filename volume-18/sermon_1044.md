@@ -1,4 +1,4 @@
-# Loosening The Sandal Strap
+# Sermon 1044 | Loosening The Sandal Strap
 
 (No. 1044)
 

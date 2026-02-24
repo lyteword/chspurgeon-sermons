@@ -1,4 +1,4 @@
-# Angelic Studies
+# Sermon 933 | Angelic Studies
 
 (No. 933)
 

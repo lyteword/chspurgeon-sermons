@@ -1,4 +1,4 @@
-# Consider Before You Fight
+# Sermon 632 | Consider Before You Fight
 
 Sermon No. 632 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

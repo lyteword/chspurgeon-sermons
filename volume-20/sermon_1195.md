@@ -1,4 +1,4 @@
-# Abundant Pardon
+# Sermon 1195 | Abundant Pardon
 
 (No. 1195)
 

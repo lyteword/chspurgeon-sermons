@@ -1,4 +1,4 @@
-# The Thorn in the Flesh
+# Sermon 1084 | The Thorn in the Flesh
 
 (No. 1084)
 

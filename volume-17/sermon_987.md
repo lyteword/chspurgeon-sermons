@@ -1,4 +1,4 @@
-# Marah; or, The Bitter Waters Sweetened
+# Sermon 987 | Marah; or, The Bitter Waters Sweetened
 
 Sermon No. 987 - Delivered on Lord's-day Morning, April 23rd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

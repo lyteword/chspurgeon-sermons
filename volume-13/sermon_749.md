@@ -1,4 +1,4 @@
-# The Righteous Holding On His Way
+# Sermon 749 | The Righteous Holding On His Way
 
 Sermon No. 749 - Delivered on Lord's-day Morning, MAY 12, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

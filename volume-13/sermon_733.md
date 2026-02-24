@@ -1,4 +1,4 @@
-# Unstaggering Faith
+# Sermon 733 | Unstaggering Faith
 
 Sermon No. 733 - Delivered on Lord's-day Morning, FEBRUARY 3 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

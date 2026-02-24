@@ -1,4 +1,4 @@
-# Mourning at the Sight of the Crucified
+# Sermon 860 | Mourning at the Sight of the Crucified
 
 Sermon No. 860 - Delivered on Lord's-day Morning, MARCH 14, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

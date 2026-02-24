@@ -1,4 +1,4 @@
-# Victor Emmanuel, Emancipator
+# Sermon 986 | Victor Emmanuel, Emancipator
 
 Sermon No. 986 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

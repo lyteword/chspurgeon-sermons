@@ -1,4 +1,4 @@
-# The Stern Teacher
+# Sermon 1196 | The Stern Teacher
 
 (No. 1196)
 

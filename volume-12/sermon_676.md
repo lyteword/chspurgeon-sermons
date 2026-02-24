@@ -1,4 +1,4 @@
-# Man's Thoughts And God's Thoughts
+# Sermon 676 | Man's Thoughts And God's Thoughts
 
 Sermon No. 676 - Delivered on Sunday Morning, February 18th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

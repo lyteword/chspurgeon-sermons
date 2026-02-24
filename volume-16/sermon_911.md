@@ -1,4 +1,4 @@
-# The Putting Away Of Sin
+# Sermon 911 | The Putting Away Of Sin
 
 (No. 911)
 

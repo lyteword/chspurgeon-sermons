@@ -1,4 +1,4 @@
-# Sins of Omission
+# Sermon 838 | Sins of Omission
 
 A Sermon (No. 838)
 

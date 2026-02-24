@@ -1,4 +1,4 @@
-# Assured Security In Christ
+# Sermon 908 | Assured Security In Christ
 
 (No. 908)
 

@@ -1,4 +1,4 @@
-# The Consecration of Priests
+# Sermon 1203 | The Consecration of Priests
 
 (No. 1203)
 

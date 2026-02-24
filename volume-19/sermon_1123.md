@@ -1,4 +1,4 @@
-# A Welcome Discovery
+# Sermon 1123 | A Welcome Discovery
 
 (No. 1123)
 

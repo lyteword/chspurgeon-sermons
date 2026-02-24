@@ -1,4 +1,4 @@
-# The Unsearchable Riches Of christ
+# Sermon 745 | The Unsearchable Riches Of christ
 
 Sermon No. 745 - Delivered on Lord's-day Morning, APRIL 14, 1867 the REV. C.H. SPURGEON at the Agricultural Hall, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# A Well-ordered Life
+# Sermon 878 | A Well-ordered Life
 
 Sermon No. 878 - Delivered on Sunday Morning, JUNE 27, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

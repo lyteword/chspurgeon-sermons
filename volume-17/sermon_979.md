@@ -1,4 +1,4 @@
-# Faith and Regeneration
+# Sermon 979 | Faith and Regeneration
 
 Sermon No. 979 - Delivered on Lord's-day Morning, March 5th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Wrecked, But Not reckless
+# Sermon 1070 | Wrecked, But Not reckless
 
 (No. 1070)
 

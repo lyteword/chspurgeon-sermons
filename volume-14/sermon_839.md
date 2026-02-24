@@ -1,4 +1,4 @@
-# The Head of the Church
+# Sermon 839 | The Head of the Church
 
 A Sermon (No. 839)
 

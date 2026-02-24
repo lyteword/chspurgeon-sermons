@@ -1,4 +1,4 @@
-# The Lord Chiding His People
+# Sermon 1171 | The Lord Chiding His People
 
 (No. 1171)
 

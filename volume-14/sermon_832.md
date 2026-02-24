@@ -1,4 +1,4 @@
-# The Best Cloak
+# Sermon 832 | The Best Cloak
 
 A Sermon (No. 832)
 

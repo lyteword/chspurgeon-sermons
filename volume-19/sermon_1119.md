@@ -1,4 +1,4 @@
-# The Spur
+# Sermon 1119 | The Spur
 
 (No. 1119)
 

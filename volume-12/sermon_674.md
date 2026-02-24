@@ -1,4 +1,4 @@
-# The Mighty Arm
+# Sermon 674 | The Mighty Arm
 
 Sermon No. 674 - Delivered on Sunday Morning, February 4th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

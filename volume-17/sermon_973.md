@@ -1,4 +1,4 @@
-# The Power of Christ Illustrated by the Resurrection
+# Sermon 973 | The Power of Christ Illustrated by the Resurrection
 
 Sermon No. 973 - Delivered on Lord's-day Morning, January 19th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

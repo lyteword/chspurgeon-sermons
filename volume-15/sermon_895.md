@@ -1,4 +1,4 @@
-# A Summons To Battle
+# Sermon 895 | A Summons To Battle
 
 Sermon No. 895 - Delivered on Lord's-day Morning, OCTOBER 10, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

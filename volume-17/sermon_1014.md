@@ -1,4 +1,4 @@
-# "Nunc Dimittis"
+# Sermon 1014 | "Nunc Dimittis"
 
 Sermon No. 1014 - Delivered on Lord's-day Morning, October 8th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

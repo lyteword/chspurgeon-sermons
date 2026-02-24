@@ -1,4 +1,4 @@
-# Present Privilege And Future Favor
+# Sermon 624 | Present Privilege And Future Favor
 
 Sermon No. 624 - Delivered on Sunday Evening, March 29th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

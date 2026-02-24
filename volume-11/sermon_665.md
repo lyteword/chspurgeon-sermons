@@ -1,4 +1,4 @@
-# Open House For All Comers
+# Sermon 665 | Open House For All Comers
 
 Sermon No. 665 - Delivered on Sunday Morning, December 17th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

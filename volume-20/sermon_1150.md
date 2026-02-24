@@ -1,4 +1,4 @@
-# Life More Abundant
+# Sermon 1150 | Life More Abundant
 
 (No. 1150)
 

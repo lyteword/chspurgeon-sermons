@@ -1,4 +1,4 @@
-# The Soul's Crisis
+# Sermon 906 | The Soul's Crisis
 
 Sermon No. 906 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

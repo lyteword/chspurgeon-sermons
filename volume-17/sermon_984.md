@@ -1,4 +1,4 @@
-# The Church As She Should Be
+# Sermon 984 | The Church As She Should Be
 
 Sermon No. 984 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

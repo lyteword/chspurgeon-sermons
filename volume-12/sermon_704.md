@@ -1,4 +1,4 @@
-# Hezekiah And The Ambassadors--Or, Vainglory Rebuked
+# Sermon 704 | Hezekiah And The Ambassadors--Or, Vainglory Rebuked
 
 Sermon No. 704 - Delivered on Sunday Morning, August 5th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

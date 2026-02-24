@@ -1,4 +1,4 @@
-# Wonders
+# Sermon 1098 | Wonders
 
 (No. 1098)
 

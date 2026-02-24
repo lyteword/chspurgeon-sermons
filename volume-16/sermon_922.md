@@ -1,4 +1,4 @@
-# Sincerity And Duplicity
+# Sermon 922 | Sincerity And Duplicity
 
 (No. 922)
 

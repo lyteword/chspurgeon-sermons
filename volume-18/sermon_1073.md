@@ -1,4 +1,4 @@
-# A Honeycomb
+# Sermon 1073 | A Honeycomb
 
 (No. 1073)
 

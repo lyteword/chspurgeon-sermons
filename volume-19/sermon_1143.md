@@ -1,4 +1,4 @@
-# Death for Sin and Death to Sin
+# Sermon 1143 | Death for Sin and Death to Sin
 
 (No. 1143)
 

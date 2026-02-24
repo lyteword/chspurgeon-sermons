@@ -1,4 +1,4 @@
-# Moses' Decision
+# Sermon 1063 | Moses' Decision
 
 (No. 1063)
 

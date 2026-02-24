@@ -1,4 +1,4 @@
-# A Generous Proposal
+# Sermon 916 | A Generous Proposal
 
 (No. 916)
 

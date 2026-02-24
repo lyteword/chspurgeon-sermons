@@ -1,4 +1,4 @@
-# Love's Logic
+# Sermon 1008 | Love's Logic
 
 Sermon No. 1008 - Delivered on Lord's-day Morning, August 27th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

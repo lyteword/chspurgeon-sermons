@@ -1,4 +1,4 @@
-# The Reward Of The Righteous
+# Sermon 671 | The Reward Of The Righteous
 
 Sermon No. 671 - Delivered on Sunday Morning, January 21st, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

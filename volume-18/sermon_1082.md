@@ -1,4 +1,4 @@
-# The Life, Walk and Triumph of Faith
+# Sermon 1082 | The Life, Walk and Triumph of Faith
 
 (No. 1082)
 

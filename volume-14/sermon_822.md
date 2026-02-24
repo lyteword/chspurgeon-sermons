@@ -1,4 +1,4 @@
-# The Panting Deer
+# Sermon 822 | The Panting Deer
 
 A Sermon (No. 822)
 

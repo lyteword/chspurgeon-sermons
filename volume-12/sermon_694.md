@@ -1,4 +1,4 @@
-# Sin Laid on Jesus
+# Sermon 694 | Sin Laid on Jesus
 
 Sermon No. 694 - Delivered on Sunday Morning, June 10th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Jesus Only
+# Sermon 924 | Jesus Only
 
 Sermon No. 924 - Delivered on Lord's-Day Morning, April 3rd, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Minstrelsy of Hope
+# Sermon 819 | The Minstrelsy of Hope
 
 A Sermon (No. 819)
 

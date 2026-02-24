@@ -1,4 +1,4 @@
-# Love's Crowning Deed
+# Sermon 1128 | Love's Crowning Deed
 
 (No. 1128)
 

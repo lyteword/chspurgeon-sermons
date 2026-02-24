@@ -1,4 +1,4 @@
-# The Reception of Sinners
+# Sermon 1204 | The Reception of Sinners
 
 (No. 1204)
 

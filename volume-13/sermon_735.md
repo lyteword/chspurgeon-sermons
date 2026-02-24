@@ -1,4 +1,4 @@
-# Loving Advice for Anxious Seekers
+# Sermon 735 | Loving Advice for Anxious Seekers
 
 Sermon No. 735 - Delivered on Lord's-day Morning, February 17th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

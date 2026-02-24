@@ -1,4 +1,4 @@
-# "I Thought"
+# Sermon 1173 | "I Thought"
 
 (No. 1173)
 

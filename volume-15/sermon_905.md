@@ -1,4 +1,4 @@
-# Footsteps Of Mercy
+# Sermon 905 | Footsteps Of Mercy
 
 Sermon No. 905 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

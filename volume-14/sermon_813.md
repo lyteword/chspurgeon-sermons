@@ -1,4 +1,4 @@
-# The Privileged Man
+# Sermon 813 | The Privileged Man
 
 A Sermon (No. 813)
 

@@ -1,4 +1,4 @@
-# Heart's Ease
+# Sermon 647 | Heart's Ease
 
 Sermon No. 647 - Delivered on Sunday Morning, August 27th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

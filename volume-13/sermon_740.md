@@ -1,4 +1,4 @@
-# Stephen's Martyrdom
+# Sermon 740 | Stephen's Martyrdom
 
 Sermon No. 740 - Delivered on Lord's-day Morning, MARCH 17, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

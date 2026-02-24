@@ -1,4 +1,4 @@
-# Light for Those Who Sit in Darkness
+# Sermon 1010 | Light for Those Who Sit in Darkness
 
 Sermon No. 1010 - Delivered on Lord's-day Morning, September 10, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

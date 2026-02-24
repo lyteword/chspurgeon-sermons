@@ -1,4 +1,4 @@
-# Hindrances to Prayer
+# Sermon 1192 | Hindrances to Prayer
 
 (No. 1192)
 

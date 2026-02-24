@@ -1,4 +1,4 @@
-# The Two Yokes
+# Sermon 1032 | The Two Yokes
 
 Sermon No. 1032 - Delivered on Lord's Day Evening, January 14th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

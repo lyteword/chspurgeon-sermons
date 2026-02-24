@@ -1,4 +1,4 @@
-# The Talking Book
+# Sermon 1017 | The Talking Book
 
 Sermon No. 1017 - Delivered on Lord's-day Morning, October 22nd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

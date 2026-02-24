@@ -1,4 +1,4 @@
-# The Sheep and Their Shepherd
+# Sermon 995 | The Sheep and Their Shepherd
 
 Sermon No. 995 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

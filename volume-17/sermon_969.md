@@ -1,4 +1,4 @@
-# Rest, Rest
+# Sermon 969 | Rest, Rest
 
 Sermon No. 969 - Delivered on Lord's-day Morning, January 8th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Eyes Opened
+# Sermon 681 | Eyes Opened
 
 Sermon No. 681 - Delivered on Sunday Morning, March 18th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

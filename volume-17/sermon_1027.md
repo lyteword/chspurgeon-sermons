@@ -1,4 +1,4 @@
-# The Joy of the Lord, the Strength of His People
+# Sermon 1027 | The Joy of the Lord, the Strength of His People
 
 Sermon No. 1027 - Delivered on Lord's Day Morning, December 31st, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

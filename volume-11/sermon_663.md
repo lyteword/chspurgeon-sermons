@@ -1,4 +1,4 @@
-# Walking In The Light And Washed In The Blood
+# Sermon 663 | Walking In The Light And Washed In The Blood
 
 Sermon No. 663 - Delivered on Sunday Morning, December 3rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

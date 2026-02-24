@@ -1,4 +1,4 @@
-# Creation's Groans and the Saints' Sighs
+# Sermon 788 | Creation's Groans and the Saints' Sighs
 
 Sermon No. 788 - Delivered on Lord's-Day Morning, January 5TH, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, .
 

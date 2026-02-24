@@ -1,4 +1,4 @@
-# The Minister's Plea
+# Sermon 1139 | The Minister's Plea
 
 (No. 1139)
 

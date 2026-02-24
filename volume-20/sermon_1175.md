@@ -1,4 +1,4 @@
-# Stephen's Death
+# Sermon 1175 | Stephen's Death
 
 (No. 1175)
 

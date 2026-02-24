@@ -1,4 +1,4 @@
-# Light--Natural And Spiritual
+# Sermon 660 | Light--Natural And Spiritual
 
 Sermon No. 660 - Delivered on Sunday Morning, November 12th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

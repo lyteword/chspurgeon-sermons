@@ -1,4 +1,4 @@
-# Behold The Lamb!
+# Sermon 1060 | Behold The Lamb!
 
 (No. 1060)
 

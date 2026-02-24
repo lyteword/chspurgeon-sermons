@@ -1,4 +1,4 @@
-# The Crown of Thorns
+# Sermon 1168 | The Crown of Thorns
 
 (No. 1168)
 

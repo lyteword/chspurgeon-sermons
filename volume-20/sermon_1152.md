@@ -1,4 +1,4 @@
-# A Lesson from the Life of King Asa
+# Sermon 1152 | A Lesson from the Life of King Asa
 
 (No. 1152)
 

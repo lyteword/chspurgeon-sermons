@@ -1,4 +1,4 @@
-# God--All in All
+# Sermon 737 | God--All in All
 
 Sermon No. 737 - Delivered on Lord's-day Morning, FEBRUARY 24, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

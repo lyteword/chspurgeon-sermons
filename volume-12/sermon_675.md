@@ -1,4 +1,4 @@
-# Spring In The Heart
+# Sermon 675 | Spring In The Heart
 
 Sermon No. 675 - Delivered on Sunday Morning, February 11th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

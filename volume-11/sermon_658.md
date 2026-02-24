@@ -1,4 +1,4 @@
-# From The Dunghill To The Throne
+# Sermon 658 | From The Dunghill To The Throne
 
 Sermon No. 658 - Delivered on Sunday Morning, November 5th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

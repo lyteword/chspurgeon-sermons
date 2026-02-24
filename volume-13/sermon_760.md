@@ -1,4 +1,4 @@
-# The Sweet Harp of Consolation
+# Sermon 760 | The Sweet Harp of Consolation
 
 Sermon No. 760 - Delivered on Lord's-day Morning, JULY 14, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

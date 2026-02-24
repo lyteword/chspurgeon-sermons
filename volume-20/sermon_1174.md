@@ -1,4 +1,4 @@
-# The Ear Bored With An Awl
+# Sermon 1174 | The Ear Bored With An Awl
 
 (No. 1174)
 

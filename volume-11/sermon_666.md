@@ -1,4 +1,4 @@
-# Holy Work For Christmas
+# Sermon 666 | Holy Work For Christmas
 
 Sermon No. 666 - Delivered on Sunday Morning, December 24th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

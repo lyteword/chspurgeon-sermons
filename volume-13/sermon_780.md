@@ -1,4 +1,4 @@
-# The Secret Spot
+# Sermon 780 | The Secret Spot
 
 Sermon No. 780 - Delivered on Lord's-day Morning, NOVEMBER 10, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

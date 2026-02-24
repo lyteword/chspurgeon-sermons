@@ -1,4 +1,4 @@
-# Knowledge Commended
+# Sermon 609 | Knowledge Commended
 
 Sermon No. 609 - Delivered on Sunday Morning, January 15th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

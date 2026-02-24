@@ -1,4 +1,4 @@
-# The Great Mystery of Godliness
+# Sermon 786 | The Great Mystery of Godliness
 
 Sermon No. 786 - Delivered on Lord's-day Morning, DECEMBER 22, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

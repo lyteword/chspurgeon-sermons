@@ -1,4 +1,4 @@
-# Christ--the Fall and Rise of Many
+# Sermon 907 | Christ--the Fall and Rise of Many
 
 Sermon No. 907 - Delivered on Lord's-day Morning, DECEMBER 26, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

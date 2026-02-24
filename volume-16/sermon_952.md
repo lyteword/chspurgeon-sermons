@@ -1,4 +1,4 @@
-# Negotiations For Peace
+# Sermon 952 | Negotiations For Peace
 
 (No. 952)
 

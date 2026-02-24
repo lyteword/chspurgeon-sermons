@@ -1,4 +1,4 @@
-# A Message From God To His Church And People
+# Sermon 725 | A Message From God To His Church And People
 
 Sermon No. 725 - Delivered on Sunday Morning, December 16th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

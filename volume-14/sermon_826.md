@@ -1,4 +1,4 @@
-# Christ, the Glory of His People
+# Sermon 826 | Christ, the Glory of His People
 
 A Sermon (No. 826)
 

@@ -1,4 +1,4 @@
-# Sinners Bound with the Cords of Sin
+# Sermon 915 | Sinners Bound with the Cords of Sin
 
 Sermon No. 915 - Delivered on Lord's-Day Morning, February 13th, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

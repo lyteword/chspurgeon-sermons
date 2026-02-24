@@ -1,4 +1,4 @@
-# Christ Made a Curse for Us
+# Sermon 873 | Christ Made a Curse for Us
 
 Sermon No. 873 - Delivered on Sunday Morning, MAY 30, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

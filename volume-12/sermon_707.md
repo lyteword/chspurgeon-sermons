@@ -1,4 +1,4 @@
-# Heavenly Geometry
+# Sermon 707 | Heavenly Geometry
 
 Sermon No. 707 - Delivered on Sunday Evening, August 19th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Sages, The Star, and The Savior
+# Sermon 967 | The Sages, The Star, and The Savior
 
 (No. 967)
 

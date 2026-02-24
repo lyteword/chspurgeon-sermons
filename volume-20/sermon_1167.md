@@ -1,4 +1,4 @@
-# Additions to the Church
+# Sermon 1167 | Additions to the Church
 
 (No. 1167)
 

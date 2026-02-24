@@ -1,4 +1,4 @@
-# Joseph's Bones
+# Sermon 966 | Joseph's Bones
 
 (No. 966)
 

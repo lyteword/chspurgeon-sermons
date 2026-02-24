@@ -1,4 +1,4 @@
-# Golden Bowls Full Of Incense
+# Sermon 1051 | Golden Bowls Full Of Incense
 
 (No. 1051)
 

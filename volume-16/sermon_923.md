@@ -1,4 +1,4 @@
-# Prepare To Meet Your God
+# Sermon 923 | Prepare To Meet Your God
 
 (No. 923)
 

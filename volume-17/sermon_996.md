@@ -1,4 +1,4 @@
-# The Alarum
+# Sermon 996 | The Alarum
 
 Sermon No. 996 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Timely Reflections
+# Sermon 857 | Timely Reflections
 
 Sermon No. 857 - Delivered on Lord's-day Evening, DECEMBER 27, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

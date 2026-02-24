@@ -1,4 +1,4 @@
-# The Lost Silver Piece
+# Sermon 970 | The Lost Silver Piece
 
 Sermon No. 970 - Delivered on Lord's-day Morning, January 15th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

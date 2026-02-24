@@ -1,4 +1,4 @@
-# Temptations On The Pinnacle
+# Sermon 689 | Temptations On The Pinnacle
 
 Sermon No. 689 - Delivered on Sunday Morning, May 6th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

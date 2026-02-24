@@ -1,4 +1,4 @@
-# More and More
+# Sermon 998 | More and More
 
 Sermon No. 998 - Delivered on Lord's-day Morning, July 2nd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

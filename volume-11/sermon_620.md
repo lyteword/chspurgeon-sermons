@@ -1,4 +1,4 @@
-# A Warning Against Hardness Of Heart
+# Sermon 620 | A Warning Against Hardness Of Heart
 
 Sermon No. 620 - Delivered on Sunday Morning, March 19th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

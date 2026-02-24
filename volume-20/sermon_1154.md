@@ -1,4 +1,4 @@
-# Daniel Facing the Lions' Den
+# Sermon 1154 | Daniel Facing the Lions' Den
 
 Sermon No. 1154 - Delivered on Delivered the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1154)

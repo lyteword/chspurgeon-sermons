@@ -1,4 +1,4 @@
-# Sin Condemned And Executed By Christ Jesus
+# Sermon 699 | Sin Condemned And Executed By Christ Jesus
 
 Sermon No. 699 - Delivered on Sunday Morning, July 8th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

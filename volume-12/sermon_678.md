@@ -1,4 +1,4 @@
-# Praise Your God, O Zion!
+# Sermon 678 | Praise Your God, O Zion!
 
 Sermon No. 678 - Delivered on Sunday Morning, February 25th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

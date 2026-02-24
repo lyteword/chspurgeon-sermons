@@ -1,4 +1,4 @@
-# The Echo
+# Sermon 767 | The Echo
 
 Sermon No. 767 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

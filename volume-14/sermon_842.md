@@ -1,4 +1,4 @@
-# The Angelic Life
+# Sermon 842 | The Angelic Life
 
 A Sermon (No. 842)
 

@@ -1,4 +1,4 @@
-# The Perseverance of the Saints
+# Sermon 872 | The Perseverance of the Saints
 
 Sermon No. 872 - Delivered on Sunday Morning, MAY 23, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

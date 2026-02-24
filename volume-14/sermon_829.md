@@ -1,4 +1,4 @@
-# The Perfuming of the Heart
+# Sermon 829 | The Perfuming of the Heart
 
 A Sermon (No. 829)
 

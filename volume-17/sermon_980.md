@@ -1,4 +1,4 @@
-# Hidden Manna
+# Sermon 980 | Hidden Manna
 
 Sermon No. 980 - Delivered on Lord's-Day Morning, March 12th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

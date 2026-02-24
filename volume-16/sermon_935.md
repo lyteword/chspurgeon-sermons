@@ -1,4 +1,4 @@
-# The Sad Wonder
+# Sermon 935 | The Sad Wonder
 
 (No. 935)
 

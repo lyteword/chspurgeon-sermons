@@ -1,4 +1,4 @@
-# The Real Presence, the Great Want of the Church
+# Sermon 1035 | The Real Presence, the Great Want of the Church
 
 Sermon No. 1035 - Delivered on Lord's Day Morning, February 11th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

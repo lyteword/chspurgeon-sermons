@@ -1,4 +1,4 @@
-# "All These Things"--A Sermon with Three Texts
+# Sermon 837 | "All These Things"--A Sermon with Three Texts
 
 A Sermon (No. 837)
 

@@ -1,4 +1,4 @@
-# The Water of Life
+# Sermon 770 | The Water of Life
 
 Sermon No. 770 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

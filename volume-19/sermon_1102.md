@@ -1,4 +1,4 @@
-# Royal Homage
+# Sermon 1102 | Royal Homage
 
 (No. 1102)
 

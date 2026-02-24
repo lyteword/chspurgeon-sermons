@@ -1,4 +1,4 @@
-# A Word with those who Wait for Signs and Wonders
+# Sermon 898 | A Word with those who Wait for Signs and Wonders
 
 Sermon No. 898 - Delivered on Lord's-day Morning, OCTOBER 31, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# The Pleiades and Orion
+# Sermon 818 | The Pleiades and Orion
 
 A Sermon (No. 818)
 

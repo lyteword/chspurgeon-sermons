@@ -1,4 +1,4 @@
-# Soul Murder--Who Is Guilty?
+# Sermon 713 | Soul Murder--Who Is Guilty?
 
 Sermon No. 713 - Delivered on Sunday Evening, September 30th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

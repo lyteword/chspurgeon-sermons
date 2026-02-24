@@ -1,4 +1,4 @@
-# A Song Concerning Loving Kindnesses
+# Sermon 1126 | A Song Concerning Loving Kindnesses
 
 (No. 1126)
 

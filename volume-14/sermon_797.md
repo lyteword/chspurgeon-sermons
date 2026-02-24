@@ -1,4 +1,4 @@
-# Spots in Our Feats of Charity
+# Sermon 797 | Spots in Our Feats of Charity
 
 A Sermon
 

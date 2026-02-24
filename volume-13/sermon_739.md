@@ -1,4 +1,4 @@
-# The Sin Offering
+# Sermon 739 | The Sin Offering
 
 Sermon No. 739 - Delivered on Lord's-day Morning, MARCH 10, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

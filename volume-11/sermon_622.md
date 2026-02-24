@@ -1,4 +1,4 @@
-# Traveling Expenses On The Two Great Roads
+# Sermon 622 | Traveling Expenses On The Two Great Roads
 
 Sermon No. 622 - Delivered on Sunday Morning, April 2nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Master
+# Sermon 1198 | The Master
 
 (No. 1198)
 

@@ -1,4 +1,4 @@
-# Seeking For Jesus
+# Sermon 947 | Seeking For Jesus
 
 (No. 947)
 

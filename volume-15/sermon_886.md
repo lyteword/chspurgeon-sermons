@@ -1,4 +1,4 @@
-# A Safe Prospective
+# Sermon 886 | A Safe Prospective
 
 Sermon No. 886 - Delivered on Lord's-day Evening, JULY 8, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

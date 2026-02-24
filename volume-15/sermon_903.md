@@ -1,4 +1,4 @@
-# The Way Everlasting
+# Sermon 903 | The Way Everlasting
 
 Sermon No. 903 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

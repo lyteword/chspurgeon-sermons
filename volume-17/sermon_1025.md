@@ -1,4 +1,4 @@
-# A Visit to the Harvest Field
+# Sermon 1025 | A Visit to the Harvest Field
 
 Sermon No. 1025 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

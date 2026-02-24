@@ -1,4 +1,4 @@
-# The Heart--a Den of Evil
+# Sermon 732 | The Heart--a Den of Evil
 
 Sermon No. 732 - Delivered on Lord's-day Morning, JANUARY 27, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# Now, and Then
+# Sermon 1002 | Now, and Then
 
 Sermon No. 1002 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

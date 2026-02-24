@@ -1,4 +1,4 @@
-# Songs of Deliverance
+# Sermon 763 | Songs of Deliverance
 
 Sermon No. 763 - Delivered on Lord's-Day Morning, July 28TH, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

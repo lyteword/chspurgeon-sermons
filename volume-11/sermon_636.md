@@ -1,4 +1,4 @@
-# The Church's Love To Her Loving Lord
+# Sermon 636 | The Church's Love To Her Loving Lord
 
 Sermon No. 636 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

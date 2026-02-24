@@ -1,4 +1,4 @@
-# The Parable of the Wedding Feast
+# Sermon 975 | The Parable of the Wedding Feast
 
 Sermon No. 975 - Delivered on Lord's-day Morning, February 12th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Lord Blessing His Saints
+# Sermon 1077 | The Lord Blessing His Saints
 
 (No. 1077)
 

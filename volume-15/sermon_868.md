@@ -1,4 +1,4 @@
-# Mature Faith--Illustrated By Abraham's Offering Up Isaac
+# Sermon 868 | Mature Faith--Illustrated By Abraham's Offering Up Isaac
 
 Sermon No. 868 - Delivered on Lord's-day Morning, MAY 2, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

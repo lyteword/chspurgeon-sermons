@@ -1,4 +1,4 @@
-# Jericho Captured
+# Sermon 629 | Jericho Captured
 
 Sermon No. 629 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

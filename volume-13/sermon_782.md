@@ -1,4 +1,4 @@
-# Saving Knowledge
+# Sermon 782 | Saving Knowledge
 
 Sermon No. 782 - Delivered on Lord's-day Morning, NOVEMBER 24, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

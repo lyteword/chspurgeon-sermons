@@ -1,4 +1,4 @@
-# Justification And Glory
+# Sermon 627 | Justification And Glory
 
 Sermon No. 627 - Delivered on Sunday Morning, April 30th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Sin-Offering for the Common People
+# Sermon 1048 | The Sin-Offering for the Common People
 
 (No. 1048)
 

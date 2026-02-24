@@ -1,4 +1,4 @@
-# The Voice Of Cholera
+# Sermon 705 | The Voice Of Cholera
 
 Sermon No. 705 - Delivered on Sunday Morning, August 12th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

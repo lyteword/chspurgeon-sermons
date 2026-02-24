@@ -1,4 +1,4 @@
-# Good Cheer for the New Year
+# Sermon 728 | Good Cheer for the New Year
 
 Sermon No. 728 - Delivered on Lord's-day Morning, JANUARY 6, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

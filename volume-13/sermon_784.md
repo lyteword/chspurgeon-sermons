@@ -1,4 +1,4 @@
-# The Rose and the Lily
+# Sermon 784 | The Rose and the Lily
 
 Sermon No. 784 - Delivered on Lord's-day Morning, DECEMBER 8, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

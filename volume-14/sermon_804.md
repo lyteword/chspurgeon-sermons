@@ -1,4 +1,4 @@
-# Apostolic Exhortation
+# Sermon 804 | Apostolic Exhortation
 
 Sermon No. 804 - Delivered on Lord's-Day Morning, April 5th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, .
 

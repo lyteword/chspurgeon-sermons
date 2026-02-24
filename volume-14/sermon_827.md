@@ -1,4 +1,4 @@
-# The Faculty Baffled, The Great Physician Successful
+# Sermon 827 | The Faculty Baffled, The Great Physician Successful
 
 A Sermon (No. 827)
 

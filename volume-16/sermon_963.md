@@ -1,4 +1,4 @@
-# Our King, Our Joy
+# Sermon 963 | Our King, Our Joy
 
 (No. 963)
 

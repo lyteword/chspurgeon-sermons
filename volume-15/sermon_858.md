@@ -1,4 +1,4 @@
-# The Fullness of Jesus the Treasury of Saints
+# Sermon 858 | The Fullness of Jesus the Treasury of Saints
 
 Sermon No. 858 - Delivered on Lord's-day Evening, FEBRUARY 28, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

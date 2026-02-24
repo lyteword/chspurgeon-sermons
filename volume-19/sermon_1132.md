@@ -1,4 +1,4 @@
-# The Seed Upon Stony Ground
+# Sermon 1132 | The Seed Upon Stony Ground
 
 (No. 1132)
 

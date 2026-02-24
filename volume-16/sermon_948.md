@@ -1,4 +1,4 @@
-# A String Of Pearls
+# Sermon 948 | A String Of Pearls
 
 (No. 948)
 

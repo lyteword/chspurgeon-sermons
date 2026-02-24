@@ -1,4 +1,4 @@
-# Consolation For The Despairing
+# Sermon 1146 | Consolation For The Despairing
 
 (No. 1146)
 

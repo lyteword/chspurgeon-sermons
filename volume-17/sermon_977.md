@@ -1,4 +1,4 @@
-# The Master's Profession--The Disciple's Pursuit
+# Sermon 977 | The Master's Profession--The Disciple's Pursuit
 
 Sermon No. 977 - Delivered on Thursday Evening, April 21st, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

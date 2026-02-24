@@ -1,4 +1,4 @@
-# Dwell Deep, O Dedan!
+# Sermon 1085 | Dwell Deep, O Dedan!
 
 (No. 1085)
 

@@ -1,4 +1,4 @@
-# A Serious Reprimand
+# Sermon 892 | A Serious Reprimand
 
 Sermon No. 892 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

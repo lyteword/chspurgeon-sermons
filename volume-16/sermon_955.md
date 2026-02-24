@@ -1,4 +1,4 @@
-# A Singular But Needful Question
+# Sermon 955 | A Singular But Needful Question
 
 (No. 955)
 

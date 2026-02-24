@@ -1,4 +1,4 @@
-# A New Order of Priests and Levites
+# Sermon 992 | A New Order of Priests and Levites
 
 Sermon No. 992 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

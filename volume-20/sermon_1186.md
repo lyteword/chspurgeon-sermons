@@ -1,4 +1,4 @@
-# The Blood of the Covenant
+# Sermon 1186 | The Blood of the Covenant
 
 Sermon No. 1186 - Delivered on Lord's-Day Morning, August 2nd, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

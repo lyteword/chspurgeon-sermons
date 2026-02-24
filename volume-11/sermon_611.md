@@ -1,4 +1,4 @@
-# Zechariah's Vision Of Joshua The High Priest
+# Sermon 611 | Zechariah's Vision Of Joshua The High Priest
 
 Sermon No. 611 - Delivered on Sunday Morning, January 22nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

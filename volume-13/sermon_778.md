@@ -1,4 +1,4 @@
-# Plain Words With the Careless
+# Sermon 778 | Plain Words With the Careless
 
 Sermon No. 778 - Delivered on Lord's-day Evening, OCTOBER 13, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

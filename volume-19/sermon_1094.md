@@ -1,4 +1,4 @@
-# Always and for All Things
+# Sermon 1094 | Always and for All Things
 
 (No. 1094)
 

@@ -1,4 +1,4 @@
-# War With Amalek
+# Sermon 712 | War With Amalek
 
 Sermon No. 712 - Delivered on Sunday Evening, September 23rd, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

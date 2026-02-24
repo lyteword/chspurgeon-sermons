@@ -1,4 +1,4 @@
-# Altogether Lovely
+# Sermon 1001 | Altogether Lovely
 
 Sermon No. 1001 - Delivered on Lord's-day Morning, July 23rd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

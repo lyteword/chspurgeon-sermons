@@ -1,4 +1,4 @@
-# Method and Music, Or the Art of Holy and Happy Living
+# Sermon 913 | Method and Music, Or the Art of Holy and Happy Living
 
 (No. 913)
 

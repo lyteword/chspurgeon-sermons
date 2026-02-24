@@ -1,4 +1,4 @@
-# The Garden Of The Soul
+# Sermon 693 | The Garden Of The Soul
 
 Sermon No. 693 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

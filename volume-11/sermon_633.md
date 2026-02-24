@@ -1,4 +1,4 @@
-# Two Loving Invitations
+# Sermon 633 | Two Loving Invitations
 
 Sermon No. 633 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# Jesus, The King of Truth
+# Sermon 1086 | Jesus, The King of Truth
 
 (No. 1086)
 

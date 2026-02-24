@@ -1,4 +1,4 @@
-# Wanted, A Guest Chamber!
+# Sermon 785 | Wanted, A Guest Chamber!
 
 Sermon No. 785 - Delivered on Lord's-day Morning, DECEMBER 15, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

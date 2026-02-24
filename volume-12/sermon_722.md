@@ -1,4 +1,4 @@
-# The Captive Savior Freeing His People
+# Sermon 722 | The Captive Savior Freeing His People
 
 Sermon No. 722 - Delivered on Sunday Morning, November 25th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

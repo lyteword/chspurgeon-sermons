@@ -1,4 +1,4 @@
-# Sweet Savor
+# Sermon 688 | Sweet Savor
 
 Sermon No. 688 - Delivered on Sunday Morning, April 29th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

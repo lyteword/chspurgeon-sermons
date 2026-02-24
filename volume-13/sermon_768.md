@@ -1,4 +1,4 @@
-# A Prayer for the Church Militant
+# Sermon 768 | A Prayer for the Church Militant
 
 Sermon No. 768 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

@@ -1,4 +1,4 @@
-# Glorying in the Lord
+# Sermon 1178 | Glorying in the Lord
 
 (No. 1178)
 

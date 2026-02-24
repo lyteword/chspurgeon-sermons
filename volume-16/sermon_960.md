@@ -1,4 +1,4 @@
-# Iconoclast
+# Sermon 960 | Iconoclast
 
 (No. 960)
 

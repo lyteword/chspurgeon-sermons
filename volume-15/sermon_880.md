@@ -1,4 +1,4 @@
-# The Former and the Latter Rain
+# Sermon 880 | The Former and the Latter Rain
 
 Sermon No. 880 - Delivered on Sunday Morning, JULY 11, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

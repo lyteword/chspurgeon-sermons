@@ -1,4 +1,4 @@
-# The Great Physician And His Patients
+# Sermon 618 | The Great Physician And His Patients
 
 Sermon No. 618 - Delivered on Sunday Morning, March 5th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

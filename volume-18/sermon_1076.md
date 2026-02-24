@@ -1,4 +1,4 @@
-# The Great Assize
+# Sermon 1076 | The Great Assize
 
 Sermon No. 1076 - Delivered on Lord's Day Evening, August 25th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

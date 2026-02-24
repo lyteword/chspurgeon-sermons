@@ -1,4 +1,4 @@
-# The Glorious Hereafter and Ourselves
+# Sermon 912 | The Glorious Hereafter and Ourselves
 
 (No. 912)
 

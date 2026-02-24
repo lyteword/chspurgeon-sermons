@@ -1,4 +1,4 @@
-# Plenary Absolution
+# Sermon 1108 | Plenary Absolution
 
 (No. 1108)
 

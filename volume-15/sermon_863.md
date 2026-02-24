@@ -1,4 +1,4 @@
-# The Stone Rolled Away
+# Sermon 863 | The Stone Rolled Away
 
 Sermon No. 863 - Delivered on Lord's-day Morning, MARCH 28, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

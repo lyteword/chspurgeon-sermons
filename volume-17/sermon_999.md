@@ -1,4 +1,4 @@
-# The Withering Work of the Spirit
+# Sermon 999 | The Withering Work of the Spirit
 
 Sermon No. 999 - Delivered on Lord's-day Morning, July 9th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

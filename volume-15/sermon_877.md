@@ -1,4 +1,4 @@
-# Leaning On Our Beloved
+# Sermon 877 | Leaning On Our Beloved
 
 Sermon No. 877 - Delivered on Sunday Morning, JUNE 20, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon

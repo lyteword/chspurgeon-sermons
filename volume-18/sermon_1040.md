@@ -1,4 +1,4 @@
-# What and Whence Are These?
+# Sermon 1040 | What and Whence Are These?
 
 Sermon No. 1040 - Delivered on Lord's Day Morning, February 25th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Only Atoning Priest
+# Sermon 1034 | The Only Atoning Priest
 
 Sermon No. 1034 - Delivered on Lord's Day Morning, February 4th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

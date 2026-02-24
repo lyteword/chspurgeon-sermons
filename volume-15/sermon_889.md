@@ -1,4 +1,4 @@
-# Real Grace for Real Need
+# Sermon 889 | Real Grace for Real Need
 
 Sermon No. 889 - Delivered on Sunday Morning, SEPTEMBER 5, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
