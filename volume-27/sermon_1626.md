@@ -1,4 +1,4 @@
-# The Principal Wheat
+# Sermon 1626 | The Principal Wheat
 
 (No. 1626)
 

@@ -1,4 +1,4 @@
-# Jehovah Has Spoken--will You Not Hear?
+# Sermon 1748 | Jehovah Has Spoken--will You Not Hear?
 
 (No. 1748)
 

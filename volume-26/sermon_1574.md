@@ -1,4 +1,4 @@
-# I Was Before
+# Sermon 1574 | I Was Before
 
 (No. 1574)
 

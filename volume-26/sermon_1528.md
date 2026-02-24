@@ -1,4 +1,4 @@
-# "They Were Tempted"
+# Sermon 1528 | "They Were Tempted"
 
 (No. 1528)
 

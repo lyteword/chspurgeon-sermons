@@ -1,4 +1,4 @@
-# Self-righteousness--a Smoldering Heap of Rubbish
+# Sermon 1497 | Self-righteousness--a Smoldering Heap of Rubbish
 
 (No. 1497)
 

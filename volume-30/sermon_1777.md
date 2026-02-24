@@ -1,4 +1,4 @@
-# Esther's Exaltation--or, Who Knows?
+# Sermon 1777 | Esther's Exaltation--or, Who Knows?
 
 (No. 1777)
 

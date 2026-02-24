@@ -1,4 +1,4 @@
-# Free Grace a Motive for Free Giving
+# Sermon 1542 | Free Grace a Motive for Free Giving
 
 (No. 1542)
 

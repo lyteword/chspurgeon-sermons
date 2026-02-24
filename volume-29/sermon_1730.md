@@ -1,4 +1,4 @@
-# A Cure For Unsavory Meats--or, Salt for the White of an Egg
+# Sermon 1730 | A Cure For Unsavory Meats--or, Salt for the White of an Egg
 
 (No. 1730)
 

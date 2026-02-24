@@ -1,4 +1,4 @@
-# Truthfulness
+# Sermon 1585 | Truthfulness
 
 (No. 1585)
 

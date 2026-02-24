@@ -1,4 +1,4 @@
-# The Oil of Gladness
+# Sermon 1273 | The Oil of Gladness
 
 Sermon No. 1273 - Delivered on Lord's-Day Morning, January 16th, 1876 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 (No. 1273)

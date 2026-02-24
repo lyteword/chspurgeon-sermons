@@ -1,4 +1,4 @@
-# "Rest in the Lord"
+# Sermon 1333 | "Rest in the Lord"
 
 (No. 1333)
 

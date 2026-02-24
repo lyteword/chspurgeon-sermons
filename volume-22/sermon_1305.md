@@ -1,4 +1,4 @@
-# The Secret of a Happy Life
+# Sermon 1305 | The Secret of a Happy Life
 
 (No. 1305)
 

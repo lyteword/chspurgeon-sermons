@@ -1,4 +1,4 @@
-# "Jehovah-Rophi"
+# Sermon 1664 | "Jehovah-Rophi"
 
 (No. 1664)
 

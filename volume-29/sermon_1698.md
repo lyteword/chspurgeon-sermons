@@ -1,4 +1,4 @@
-# The Star and the Wise Men
+# Sermon 1698 | The Star and the Wise Men
 
 Sermon No. 1698 - Delivered on Lord's-Day Morning, December 24th, 1882 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1698)

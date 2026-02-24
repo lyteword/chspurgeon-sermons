@@ -1,4 +1,4 @@
-# Manoah's Wife and Her Excellent Argument
+# Sermon 1340 | Manoah's Wife and Her Excellent Argument
 
 (No. 1340)
 

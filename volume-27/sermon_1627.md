@@ -1,4 +1,4 @@
-# Baptism--A Burial
+# Sermon 1627 | Baptism--A Burial
 
 Sermon No. 1627 - Delivered on Lord's-Day Morning, October 30th, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

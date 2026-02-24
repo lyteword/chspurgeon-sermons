@@ -1,4 +1,4 @@
-# The Common Salvation
+# Sermon 1592 | The Common Salvation
 
 (No. 1592)
 

@@ -1,4 +1,4 @@
-# Decision--Illustrated by the Case of Joshua
+# Sermon 1229 | Decision--Illustrated by the Case of Joshua
 
 (No. 1229)
 

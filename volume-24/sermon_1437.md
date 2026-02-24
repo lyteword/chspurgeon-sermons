@@ -1,4 +1,4 @@
-# Others To Be Gathered In
+# Sermon 1437 | Others To Be Gathered In
 
 (No. 1437)
 

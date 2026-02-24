@@ -1,4 +1,4 @@
-# The Sheep Before The Shearers
+# Sermon 1543 | The Sheep Before The Shearers
 
 (No. 1543)
 

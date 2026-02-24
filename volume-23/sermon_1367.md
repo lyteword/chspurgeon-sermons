@@ -1,4 +1,4 @@
-# Strong Faith
+# Sermon 1367 | Strong Faith
 
 (No. 1367)
 

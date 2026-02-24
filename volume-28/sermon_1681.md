@@ -1,4 +1,4 @@
-# Shutting, Sealing and Covering--or, Messiah's Glorious Work
+# Sermon 1681 | Shutting, Sealing and Covering--or, Messiah's Glorious Work
 
 (No. 1681)
 

@@ -1,4 +1,4 @@
-# Healed or Deluded? Which?
+# Sermon 1658 | Healed or Deluded? Which?
 
 (No. 1658)
 

@@ -1,4 +1,4 @@
-# The Sure Triumph Of The Crucified One
+# Sermon 1231 | The Sure Triumph Of The Crucified One
 
 (No. 1231)
 

@@ -1,4 +1,4 @@
-# Christ in You
+# Sermon 1720 | Christ in You
 
 (No. 1720)
 

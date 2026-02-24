@@ -1,4 +1,4 @@
-# God's Work Upon Minister and Convert
+# Sermon 1774 | God's Work Upon Minister and Convert
 
 (No. 1774)
 

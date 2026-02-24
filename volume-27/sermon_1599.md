@@ -1,4 +1,4 @@
-# Everyday Religion
+# Sermon 1599 | Everyday Religion
 
 (No. 1599)
 

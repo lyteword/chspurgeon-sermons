@@ -1,4 +1,4 @@
-# A Gospel Worth Dying For
+# Sermon 1734 | A Gospel Worth Dying For
 
 (No. 1734)
 

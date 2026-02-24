@@ -1,4 +1,4 @@
-# Bankrupt Debtors Discharged
+# Sermon 1739 | Bankrupt Debtors Discharged
 
 (No. 1739)
 

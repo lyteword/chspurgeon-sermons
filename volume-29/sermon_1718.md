@@ -1,4 +1,4 @@
-# Certain Singular Subjects
+# Sermon 1718 | Certain Singular Subjects
 
 (No. 1718)
 

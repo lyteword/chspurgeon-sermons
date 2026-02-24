@@ -1,4 +1,4 @@
-# Divine Surprises
+# Sermon 1538 | Divine Surprises
 
 (No. 1538)
 

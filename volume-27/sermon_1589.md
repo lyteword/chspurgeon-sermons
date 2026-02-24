@@ -1,4 +1,4 @@
-# A Hasty Expression Penitently Retracted
+# Sermon 1589 | A Hasty Expression Penitently Retracted
 
 (No. 1589)
 

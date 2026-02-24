@@ -1,4 +1,4 @@
-# The Ark of the Covenant
+# Sermon 1621 | The Ark of the Covenant
 
 (No. 1621)
 

@@ -1,4 +1,4 @@
-# Sight For Those Who See Not
+# Sermon 1798 | Sight For Those Who See Not
 
 (No. 1798)
 

@@ -1,4 +1,4 @@
-# The Shame and Spitting
+# Sermon 1486 | The Shame and Spitting
 
 Sermon No. 1486 - Delivered on Lord's-Day Morning, July 27th, 1879 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

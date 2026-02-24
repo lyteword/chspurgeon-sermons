@@ -1,4 +1,4 @@
-# The Resurrection of Our Lord Jesus
+# Sermon 1653 | The Resurrection of Our Lord Jesus
 
 (No. 1653)
 

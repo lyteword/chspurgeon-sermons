@@ -1,4 +1,4 @@
-# "Lead Us Not Into Temptation"
+# Sermon 1402 | "Lead Us Not Into Temptation"
 
 (No. 1402)
 

@@ -1,4 +1,4 @@
-# Faith and Its Attendant Privileges
+# Sermon 1212 | Faith and Its Attendant Privileges
 
 (No. 1212)
 

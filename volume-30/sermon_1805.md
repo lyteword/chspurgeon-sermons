@@ -1,4 +1,4 @@
-# Strength And Recovery
+# Sermon 1805 | Strength And Recovery
 
 (No. 1805)
 

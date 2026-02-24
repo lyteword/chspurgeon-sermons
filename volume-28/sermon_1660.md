@@ -1,4 +1,4 @@
-# The Perpetuity of the Law of God
+# Sermon 1660 | The Perpetuity of the Law of God
 
 (No. 1660)
 

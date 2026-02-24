@@ -1,4 +1,4 @@
-# Two Good Things
+# Sermon 1629 | Two Good Things
 
 (No. 1629)
 

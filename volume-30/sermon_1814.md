@@ -1,4 +1,4 @@
-# Commendation for the Steadfast
+# Sermon 1814 | Commendation for the Steadfast
 
 Sermon No. 1814 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

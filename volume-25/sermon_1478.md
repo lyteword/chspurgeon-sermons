@@ -1,4 +1,4 @@
-# Greater Things Yet Who Shall See Them?
+# Sermon 1478 | Greater Things Yet Who Shall See Them?
 
 (No. 1478)
 

@@ -1,4 +1,4 @@
-# Loved and Loving
+# Sermon 1634B | Loved and Loving
 
 (No. 1634B)
 

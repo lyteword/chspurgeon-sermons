@@ -1,4 +1,4 @@
-# Concerning Saints
+# Sermon 1796 | Concerning Saints
 
 (No. 1796)
 

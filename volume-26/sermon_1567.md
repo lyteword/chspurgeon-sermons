@@ -1,4 +1,4 @@
-# The Blood of the Covenant
+# Sermon 1567 | The Blood of the Covenant
 
 (No. 1567)
 

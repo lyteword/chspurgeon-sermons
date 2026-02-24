@@ -1,4 +1,4 @@
-# A Sermon to the Lord's Little Children
+# Sermon 1711 | A Sermon to the Lord's Little Children
 
 (No. 1711)
 

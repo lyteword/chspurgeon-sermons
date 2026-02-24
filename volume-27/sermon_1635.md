@@ -1,4 +1,4 @@
-# Only Trust Him! Only Trust Him!
+# Sermon 1635 | Only Trust Him! Only Trust Him!
 
 (No. 1635)
 

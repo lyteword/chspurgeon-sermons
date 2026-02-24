@@ -1,4 +1,4 @@
-# The Story of a Runaway Slave
+# Sermon 1268 | The Story of a Runaway Slave
 
 (No. 1268)
 

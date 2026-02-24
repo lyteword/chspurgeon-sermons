@@ -1,4 +1,4 @@
-# Divine Interpositions
+# Sermon 1432 | Divine Interpositions
 
 Sermon No. 1432 - Delivered on Lord's-Day Morning, September 8th, 1878 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1432)

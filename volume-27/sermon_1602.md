@@ -1,4 +1,4 @@
-# Farm Laborers
+# Sermon 1602 | Farm Laborers
 
 (No. 1602)
 

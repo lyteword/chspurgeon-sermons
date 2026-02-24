@@ -1,4 +1,4 @@
-# Great Spoil
+# Sermon 1641 | Great Spoil
 
 (No. 1641)
 

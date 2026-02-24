@@ -1,4 +1,4 @@
-# The Heroic In Christianity
+# Sermon 1584 | The Heroic In Christianity
 
 (No. 1584)
 

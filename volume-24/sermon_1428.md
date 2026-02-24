@@ -1,4 +1,4 @@
-# The True Position of the Witness Within
+# Sermon 1428 | The True Position of the Witness Within
 
 (No. 1428)
 

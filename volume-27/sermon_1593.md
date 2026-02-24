@@ -1,4 +1,4 @@
-# Rejecters Of The Gospel Admonished
+# Sermon 1593 | Rejecters Of The Gospel Admonished
 
 (No. 1593)
 

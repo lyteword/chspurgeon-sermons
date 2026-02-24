@@ -1,4 +1,4 @@
-# The Hope Laid Up In Heaven
+# Sermon 1438 | The Hope Laid Up In Heaven
 
 (No. 1438)
 

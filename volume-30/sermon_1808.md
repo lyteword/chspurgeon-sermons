@@ -1,4 +1,4 @@
-# The Threshing Floor of Ornan
+# Sermon 1808 | The Threshing Floor of Ornan
 
 (No. 1808)
 

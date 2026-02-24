@@ -1,4 +1,4 @@
-# Thought-Reading Extraordinary
+# Sermon 1802 | Thought-Reading Extraordinary
 
 (No. 1802)
 

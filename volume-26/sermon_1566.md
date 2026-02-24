@@ -1,4 +1,4 @@
-# Cheer for the Worker and Hope for London
+# Sermon 1566 | Cheer for the Worker and Hope for London
 
 (No. 1566)
 

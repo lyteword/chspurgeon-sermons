@@ -1,4 +1,4 @@
-# The Lifting Up of the Bowed Down
+# Sermon 1426 | The Lifting Up of the Bowed Down
 
 (No. 1426)
 

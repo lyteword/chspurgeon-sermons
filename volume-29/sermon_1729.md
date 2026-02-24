@@ -1,4 +1,4 @@
-# Beginning at Jerusalem
+# Sermon 1729 | Beginning at Jerusalem
 
 Sermon No. 1729 - Delivered on Thursday Evening, June 14th, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

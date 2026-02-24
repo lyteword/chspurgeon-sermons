@@ -1,4 +1,4 @@
-# The Faithful Saying
+# Sermon 1416 | The Faithful Saying
 
 (No. 1416)
 

@@ -1,4 +1,4 @@
-# Supposing Him to Have Been in the Company
+# Sermon 1724 | Supposing Him to Have Been in the Company
 
 (No. 1724)
 

@@ -1,4 +1,4 @@
-# Understandest Thou What Thou Readest?
+# Sermon 1792 | Understandest Thou What Thou Readest?
 
 Sermon No. 1792 - Delivered on Lord's-Day Evening, May 11th, 1884 the REV. C.H. SPURGEON at Exeter-Hall.
 (No. 1792)

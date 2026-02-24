@@ -1,4 +1,4 @@
-# Rivers Of Water In A Dry Place
+# Sermon 1243 | Rivers Of Water In A Dry Place
 
 (No. 1243)
 

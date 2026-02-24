@@ -1,4 +1,4 @@
-# A Wonder Explained By Greater Wonders
+# Sermon 1812 | A Wonder Explained By Greater Wonders
 
 (No. 1812)
 

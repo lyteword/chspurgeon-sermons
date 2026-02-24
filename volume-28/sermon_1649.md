@@ -1,4 +1,4 @@
-# Freshness
+# Sermon 1649 | Freshness
 
 (No. 1649)
 

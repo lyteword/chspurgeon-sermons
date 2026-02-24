@@ -1,4 +1,4 @@
-# A Round of Delights
+# Sermon 1384 | A Round of Delights
 
 (No. 1384)
 

@@ -1,4 +1,4 @@
-# The Top of the Ladder
+# Sermon 1755 | The Top of the Ladder
 
 (No. 1755)
 

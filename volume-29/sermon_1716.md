@@ -1,4 +1,4 @@
-# The Bridegroom's Parting Words
+# Sermon 1716 | The Bridegroom's Parting Words
 
 (No. 1716)
 

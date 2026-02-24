@@ -1,4 +1,4 @@
-# With the Disciples on the Lake of Galilee
+# Sermon 1686 | With the Disciples on the Lake of Galilee
 
 (No. 1686)
 

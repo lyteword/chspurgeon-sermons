@@ -1,4 +1,4 @@
-# The Law Written in the Heart
+# Sermon 1687 | The Law Written in the Heart
 
 (No. 1687)
 

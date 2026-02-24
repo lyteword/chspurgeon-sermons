@@ -1,4 +1,4 @@
-# Teaching for the Outer and Inner Circles
+# Sermon 1669 | Teaching for the Outer and Inner Circles
 
 (No. 1669)
 

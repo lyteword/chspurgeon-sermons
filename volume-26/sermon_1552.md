@@ -1,4 +1,4 @@
-# The Friends Of Jesus
+# Sermon 1552 | The Friends Of Jesus
 
 (No. 1552)
 

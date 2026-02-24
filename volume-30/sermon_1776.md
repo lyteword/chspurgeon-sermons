@@ -1,4 +1,4 @@
-# Unbinding Lazarus
+# Sermon 1776 | Unbinding Lazarus
 
 (No. 1776)
 

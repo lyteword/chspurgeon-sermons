@@ -1,4 +1,4 @@
-# The Rising Sun
+# Sermon 1463B | The Rising Sun
 
 (No. 1463B)
 

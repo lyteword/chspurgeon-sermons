@@ -1,4 +1,4 @@
-# The Word of a King
+# Sermon 1697 | The Word of a King
 
 (No. 1697)
 

@@ -1,4 +1,4 @@
-# Samuel--an Example of Intercession
+# Sermon 1537 | Samuel--an Example of Intercession
 
 (No. 1537)
 

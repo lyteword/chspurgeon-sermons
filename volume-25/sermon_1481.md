@@ -1,4 +1,4 @@
-# The Red Heifer
+# Sermon 1481 | The Red Heifer
 
 (No. 1481)
 

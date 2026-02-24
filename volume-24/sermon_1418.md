@@ -1,4 +1,4 @@
-# The Holdfast
+# Sermon 1418 | The Holdfast
 
 (No. 1418)
 

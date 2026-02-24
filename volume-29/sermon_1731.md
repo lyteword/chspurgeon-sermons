@@ -1,4 +1,4 @@
-# Accepted of the Great Father
+# Sermon 1731 | Accepted of the Great Father
 
 (No. 1731)
 

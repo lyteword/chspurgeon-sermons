@@ -1,4 +1,4 @@
-# How to Read the Bible
+# Sermon 1503 | How to Read the Bible
 
 Sermon No. 1503 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

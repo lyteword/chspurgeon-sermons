@@ -1,4 +1,4 @@
-# God's Thoughts and Ways Far Above Ours
+# Sermon 1387 | God's Thoughts and Ways Far Above Ours
 
 (No. 1387)
 

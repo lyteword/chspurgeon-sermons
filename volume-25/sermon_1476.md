@@ -1,4 +1,4 @@
-# Jesus, the Judge
+# Sermon 1476 | Jesus, the Judge
 
 (No. 1476)
 

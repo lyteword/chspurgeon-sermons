@@ -1,4 +1,4 @@
-# The Plague of the Heart
+# Sermon 1489 | The Plague of the Heart
 
 (No. 1489)
 

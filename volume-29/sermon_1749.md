@@ -1,4 +1,4 @@
-# A Luther Sermon at the Tabernacle
+# Sermon 1749 | A Luther Sermon at the Tabernacle
 
 (No. 1749)
 

@@ -1,4 +1,4 @@
-# The Lord with Two or Three
+# Sermon 1761 | The Lord with Two or Three
 
 (No. 1761)
 

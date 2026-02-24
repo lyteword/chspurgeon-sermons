@@ -1,4 +1,4 @@
-# God's Advocates Breaking Silence
+# Sermon 1403 | God's Advocates Breaking Silence
 
 (No. 1403)
 

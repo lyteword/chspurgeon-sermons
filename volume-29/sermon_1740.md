@@ -1,4 +1,4 @@
-# The Exeter-Hall Sermon to Young Men
+# Sermon 1740 | The Exeter-Hall Sermon to Young Men
 
 (No. 1740)
 

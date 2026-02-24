@@ -1,4 +1,4 @@
-# Forgiveness Made Easy
+# Sermon 1448 | Forgiveness Made Easy
 
 Sermon No. 1448 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

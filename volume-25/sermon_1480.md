@@ -1,4 +1,4 @@
-# Constant, Instant, Expectant
+# Sermon 1480 | Constant, Instant, Expectant
 
 Sermon No. 1480 - Delivered on Lord's-Day Morning, June 22nd, 1879 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

@@ -1,4 +1,4 @@
-# The Dream of Pilate's Wife
+# Sermon 1647 | The Dream of Pilate's Wife
 
 (No. 1647)
 

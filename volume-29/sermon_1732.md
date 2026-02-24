@@ -1,4 +1,4 @@
-# In Him: Like Him
+# Sermon 1732 | In Him: Like Him
 
 Sermon No. 1732 - Delivered on Thursday Evening, May 17th, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

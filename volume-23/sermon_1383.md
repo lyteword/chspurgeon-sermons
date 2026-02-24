@@ -1,4 +1,4 @@
-# The Cause And Cure Of Weariness In Sunday School Teachers
+# Sermon 1383 | The Cause And Cure Of Weariness In Sunday School Teachers
 
 (No. 1383)
 

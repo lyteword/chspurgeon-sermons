@@ -1,4 +1,4 @@
-# The Glory in the Rear
+# Sermon 1793 | The Glory in the Rear
 
 Sermon No. 1793 - Delivered on Lord's-Day Morning, August 3rd, 1884 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1793)

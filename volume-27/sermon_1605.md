@@ -1,4 +1,4 @@
-# Jesus Knew What He Would Do
+# Sermon 1605 | Jesus Knew What He Would Do
 
 (No. 1605)
 

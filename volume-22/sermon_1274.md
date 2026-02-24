@@ -1,4 +1,4 @@
-# For the Sick and Afflicted
+# Sermon 1274 | For the Sick and Afflicted
 
 Sermon No. 1274 - Delivered on Delivered the REV. C.H. SPURGEON at the [4]Metropolitan Tabernacle, Newington.
 (No. 1274)

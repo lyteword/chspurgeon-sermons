@@ -1,4 +1,4 @@
-# The Singing Pilgrim
+# Sermon 1652 | The Singing Pilgrim
 
 (No. 1652)
 

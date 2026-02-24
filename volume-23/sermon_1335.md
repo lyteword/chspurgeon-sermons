@@ -1,4 +1,4 @@
-# A Cheery Word in Troublous Times
+# Sermon 1335 | A Cheery Word in Troublous Times
 
 (No. 1335)
 

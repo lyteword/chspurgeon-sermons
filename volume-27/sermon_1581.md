@@ -1,4 +1,4 @@
-# Silver Sockets--Redemption the Foundation!
+# Sermon 1581 | Silver Sockets--Redemption the Foundation!
 
 (No. 1581)
 

@@ -1,4 +1,4 @@
-# Compassion on the Ignorant
+# Sermon 1407 | Compassion on the Ignorant
 
 (No. 1407)
 

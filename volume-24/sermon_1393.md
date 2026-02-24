@@ -1,4 +1,4 @@
-# Speak For Yourself--a Challenge!
+# Sermon 1393 | Speak For Yourself--a Challenge!
 
 (No. 1393)
 

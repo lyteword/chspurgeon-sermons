@@ -1,4 +1,4 @@
-# The Lessons of the Foot-washing
+# Sermon 1499 | The Lessons of the Foot-washing
 
 (No. 1499)
 

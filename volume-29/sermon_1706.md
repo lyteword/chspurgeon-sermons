@@ -1,4 +1,4 @@
-# The Cast-Off Sash
+# Sermon 1706 | The Cast-Off Sash
 
 (No. 1706)
 

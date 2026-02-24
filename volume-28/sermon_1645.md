@@ -1,4 +1,4 @@
-# Our Lord before Herod
+# Sermon 1645 | Our Lord before Herod
 
 (No. 1645)
 

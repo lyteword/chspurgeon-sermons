@@ -1,4 +1,4 @@
-# Loyal to the Core
+# Sermon 1512 | Loyal to the Core
 
 Sermon No. 1512 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

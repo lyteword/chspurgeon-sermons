@@ -1,4 +1,4 @@
-# Spiritual Knowledge and Its Practical Results
+# Sermon 1742 | Spiritual Knowledge and Its Practical Results
 
 (No. 1742)
 

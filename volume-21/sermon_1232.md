@@ -1,4 +1,4 @@
-# Solomon's Plea
+# Sermon 1232 | Solomon's Plea
 
 (No. 1232)
 

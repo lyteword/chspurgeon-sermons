@@ -1,4 +1,4 @@
-# Gone, Gone Forever
+# Sermon 1296 | Gone, Gone Forever
 
 (No. 1296)
 

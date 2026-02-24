@@ -1,4 +1,4 @@
-# The Blind Befriended
+# Sermon 1310 | The Blind Befriended
 
 (No. 1310)
 

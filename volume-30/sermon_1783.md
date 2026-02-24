@@ -1,4 +1,4 @@
-# Pentecost
+# Sermon 1783 | Pentecost
 
 (No. 1783)
 

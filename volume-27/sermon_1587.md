@@ -1,4 +1,4 @@
-# Jesus At A Standstill
+# Sermon 1587 | Jesus At A Standstill
 
 (No. 1587)
 

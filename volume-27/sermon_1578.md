@@ -1,4 +1,4 @@
-# Taught That We May Teach
+# Sermon 1578 | Taught That We May Teach
 
 (No. 1578)
 

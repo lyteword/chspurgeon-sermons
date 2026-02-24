@@ -1,4 +1,4 @@
-# Maschil Of Ethan, A Majestic Song
+# Sermon 1565 | Maschil Of Ethan, A Majestic Song
 
 (No. 1565)
 

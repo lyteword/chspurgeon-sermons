@@ -1,4 +1,4 @@
-# The Lily Among Thorns
+# Sermon 1525 | The Lily Among Thorns
 
 (No. 1525)
 

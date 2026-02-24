@@ -1,4 +1,4 @@
-# Expected Proof of Professed Love
+# Sermon 1522 | Expected Proof of Professed Love
 
 (No. 1522)
 

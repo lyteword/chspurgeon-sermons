@@ -1,4 +1,4 @@
-# Pilate and Ourselves Guilty of the Savior's Death
+# Sermon 1648 | Pilate and Ourselves Guilty of the Savior's Death
 
 (No. 1648)
 

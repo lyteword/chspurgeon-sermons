@@ -1,4 +1,4 @@
-# A Monument for the Dead, and a Voice to the Living
+# Sermon 1700 | A Monument for the Dead, and a Voice to the Living
 
 Sermon No. 1700 - Delivered on Lord's-Day Morning, January 7th, 1883 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 (No. 1700)

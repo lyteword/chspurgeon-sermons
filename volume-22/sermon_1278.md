@@ -1,4 +1,4 @@
-# Reasons For Parting With Sin
+# Sermon 1278 | Reasons For Parting With Sin
 
 (No. 1278)
 

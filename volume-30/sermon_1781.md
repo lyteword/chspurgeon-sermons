@@ -1,4 +1,4 @@
-# Two Pauls and a Blinded Sorcerer
+# Sermon 1781 | Two Pauls and a Blinded Sorcerer
 
 (No. 1781)
 

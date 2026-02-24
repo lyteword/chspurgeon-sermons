@@ -1,4 +1,4 @@
-# The Great House and the Vessels In It
+# Sermon 1348 | The Great House and the Vessels In It
 
 (No. 1348)
 

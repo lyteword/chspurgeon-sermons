@@ -1,4 +1,4 @@
-# The Message from the Lord's Mouth
+# Sermon 1431 | The Message from the Lord's Mouth
 
 (No. 1431)
 

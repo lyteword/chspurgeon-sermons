@@ -1,4 +1,4 @@
-# The True Gospel Is No Hidden Gospel
+# Sermon 1663 | The True Gospel Is No Hidden Gospel
 
 (No. 1663)
 

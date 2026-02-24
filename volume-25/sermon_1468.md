@@ -1,4 +1,4 @@
-# The Philosophy and Propriety of Abundant Praise
+# Sermon 1468 | The Philosophy and Propriety of Abundant Praise
 
 (No. 1468)
 

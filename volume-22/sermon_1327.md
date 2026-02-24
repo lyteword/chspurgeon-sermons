@@ -1,4 +1,4 @@
-# Christ the Overcomer of the World
+# Sermon 1327 | Christ the Overcomer of the World
 
 (No. 1327)
 

@@ -1,4 +1,4 @@
-# "The Disciple Whom Jesus Loved"
+# Sermon 1539 | "The Disciple Whom Jesus Loved"
 
 (No. 1539)
 

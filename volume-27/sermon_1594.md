@@ -1,4 +1,4 @@
-# The Candle
+# Sermon 1594 | The Candle
 
 (No. 1594)
 

@@ -1,4 +1,4 @@
-# The Luther Sermon at Exeter Hall
+# Sermon 1750 | The Luther Sermon at Exeter Hall
 
 (No. 1750)
 

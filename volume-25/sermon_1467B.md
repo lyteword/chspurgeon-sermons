@@ -1,4 +1,4 @@
-# Two Sorts Of Hearers
+# Sermon 1467B | Two Sorts Of Hearers
 
 (No. 1467B)
 

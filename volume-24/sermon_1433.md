@@ -1,4 +1,4 @@
-# An Anxious Enquiry for a Beloved Son
+# Sermon 1433 | An Anxious Enquiry for a Beloved Son
 
 Sermon No. 1433 - Delivered on Thursday Evening, September 5th, 1878 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 (No. 1433)

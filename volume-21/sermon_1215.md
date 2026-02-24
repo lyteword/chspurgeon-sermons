@@ -1,4 +1,4 @@
-# Solemn Pleadings for Revival
+# Sermon 1215 | Solemn Pleadings for Revival
 
 (No. 1215)
 

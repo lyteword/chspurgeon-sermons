@@ -1,4 +1,4 @@
-# The Sealing of the Spirit
+# Sermon 1284 | The Sealing of the Spirit
 
 (No. 1284)
 

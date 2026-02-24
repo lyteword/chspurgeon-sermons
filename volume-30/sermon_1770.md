@@ -1,4 +1,4 @@
-# Recruits for King Jesus
+# Sermon 1770 | Recruits for King Jesus
 
 (No. 1770)
 

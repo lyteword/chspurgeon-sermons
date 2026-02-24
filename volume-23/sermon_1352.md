@@ -1,4 +1,4 @@
-# Strong Consolation for the Lord's Refugees
+# Sermon 1352 | Strong Consolation for the Lord's Refugees
 
 (No. 1352)
 

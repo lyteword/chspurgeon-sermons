@@ -1,4 +1,4 @@
-# One War Over and Another Begun
+# Sermon 1679 | One War Over and Another Begun
 
 (No. 1679)
 

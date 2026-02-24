@@ -1,4 +1,4 @@
-# Mongrel Religion
+# Sermon 1622 | Mongrel Religion
 
 Sermon No. 1622 - Delivered on Lord's-Day Morning, October 2nd, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

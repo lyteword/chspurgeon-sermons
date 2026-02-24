@@ -1,4 +1,4 @@
-# The King's Weighings
+# Sermon 1736 | The King's Weighings
 
 (No. 1736)
 

@@ -1,4 +1,4 @@
-# Brought Up from the Horrible Pit
+# Sermon 1674 | Brought Up from the Horrible Pit
 
 Sermon No. 1674 - Delivered on Lord's-Day Morning, August 13th, 1882 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

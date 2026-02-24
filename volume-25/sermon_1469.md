@@ -1,4 +1,4 @@
-# Prayer Perfumed with Praise
+# Sermon 1469 | Prayer Perfumed with Praise
 
 Sermon No. 1469 - Delivered on Lord's-Day Morning, April 20th, 1879 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

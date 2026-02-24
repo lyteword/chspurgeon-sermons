@@ -1,4 +1,4 @@
-# The Believer Catechized
+# Sermon 1568 | The Believer Catechized
 
 (No. 1568)
 

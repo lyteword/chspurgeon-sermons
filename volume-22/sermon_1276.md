@@ -1,4 +1,4 @@
-# Unconditional Surrender
+# Sermon 1276 | Unconditional Surrender
 
 Sermon No. 1276 - Delivered on Lord's-Day Morning, January 30th, 1876 the REV. C.H. SPURGEON at the [6]Metropolitan Tabernacle, Newington.
 (No. 1276)

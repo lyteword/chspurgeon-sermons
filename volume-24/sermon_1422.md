@@ -1,4 +1,4 @@
-# The Chief Physician and the Centurion's Servant
+# Sermon 1422 | The Chief Physician and the Centurion's Servant
 
 (No. 1422)
 

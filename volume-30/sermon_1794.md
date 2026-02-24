@@ -1,4 +1,4 @@
-# "Return, Return, O Shulamite; Return, Return!"
+# Sermon 1794 | "Return, Return, O Shulamite; Return, Return!"
 
 Sermon No. 1794 - Delivered on Lord's-Day Morning, August 10th, 1884 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 (No. 1794)

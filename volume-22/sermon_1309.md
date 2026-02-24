@@ -1,4 +1,4 @@
-# The Little Dogs
+# Sermon 1309 | The Little Dogs
 
 (No. 1309)
 

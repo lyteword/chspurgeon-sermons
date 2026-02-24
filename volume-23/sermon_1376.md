@@ -1,4 +1,4 @@
-# The True Priesthood, Temple and Sacrifice
+# Sermon 1376 | The True Priesthood, Temple and Sacrifice
 
 (No. 1376)
 

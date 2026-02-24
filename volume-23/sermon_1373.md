@@ -1,4 +1,4 @@
-# Our Last Journey
+# Sermon 1373 | Our Last Journey
 
 (No. 1373)
 

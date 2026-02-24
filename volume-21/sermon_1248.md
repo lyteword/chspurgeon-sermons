@@ -1,4 +1,4 @@
-# The Choice Of A Leader
+# Sermon 1248 | The Choice Of A Leader
 
 (No. 1248)
 

@@ -1,4 +1,4 @@
-# The Lion-slayer--the Giant-killer
+# Sermon 1253 | The Lion-slayer--the Giant-killer
 
 (No. 1253)
 

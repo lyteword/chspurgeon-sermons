@@ -1,4 +1,4 @@
-# The Devil's Last Throw
+# Sermon 1746 | The Devil's Last Throw
 
 Sermon No. 1746 - Delivered on Lord's-day Evening, June 10th, 1883 the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington,.
 (No. 1746)

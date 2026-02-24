@@ -1,4 +1,4 @@
-# A Sacred Solo
+# Sermon 1423 | A Sacred Solo
 
 (No. 1423)
 

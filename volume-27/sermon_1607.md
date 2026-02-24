@@ -1,4 +1,4 @@
-# The Swiftly Running Word
+# Sermon 1607 | The Swiftly Running Word
 
 (No. 1607)
 

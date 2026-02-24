@@ -1,4 +1,4 @@
-# Cheer Up, My Comrades!
+# Sermon 1513 | Cheer Up, My Comrades!
 
 Sermon No. 1513 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

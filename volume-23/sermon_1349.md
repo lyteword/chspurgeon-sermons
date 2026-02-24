@@ -1,4 +1,4 @@
-# Faith Purifying the Heart
+# Sermon 1349 | Faith Purifying the Heart
 
 (No. 1349)
 

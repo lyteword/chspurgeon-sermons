@@ -1,4 +1,4 @@
-# Four Choice Sentences
+# Sermon 1630 | Four Choice Sentences
 
 (No. 1630)
 

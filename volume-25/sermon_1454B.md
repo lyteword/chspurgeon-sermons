@@ -1,4 +1,4 @@
-# The Poor Man's Prayer
+# Sermon 1454B | The Poor Man's Prayer
 
 (No. 1454B)
 

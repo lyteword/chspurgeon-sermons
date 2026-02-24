@@ -1,4 +1,4 @@
-# Stand Fast
+# Sermon 1688 | Stand Fast
 
 (No. 1688)
 

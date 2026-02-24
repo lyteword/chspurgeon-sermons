@@ -1,4 +1,4 @@
-# Mourners, Inquirers, Covenanters
+# Sermon 1752 | Mourners, Inquirers, Covenanters
 
 (No. 1752)
 

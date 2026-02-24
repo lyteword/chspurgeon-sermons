@@ -1,4 +1,4 @@
-# The Barrier
+# Sermon 1590 | The Barrier
 
 (No. 1590)
 

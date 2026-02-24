@@ -1,4 +1,4 @@
-# "Without Carefulness"
+# Sermon 1692 | "Without Carefulness"
 
 (No. 1692)
 

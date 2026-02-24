@@ -1,4 +1,4 @@
-# Guile Forsaken When Guilt Is Forgiven
+# Sermon 1346 | Guile Forsaken When Guilt Is Forgiven
 
 (No. 1346)
 

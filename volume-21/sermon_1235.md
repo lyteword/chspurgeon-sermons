@@ -1,4 +1,4 @@
-# How A Man's Conduct Comes Home To Him
+# Sermon 1235 | How A Man's Conduct Comes Home To Him
 
 (No. 1235)
 

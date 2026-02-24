@@ -1,4 +1,4 @@
-# The First Setting Up of the Bronze Serpent
+# Sermon 1722 | The First Setting Up of the Bronze Serpent
 
 (No. 1722)
 

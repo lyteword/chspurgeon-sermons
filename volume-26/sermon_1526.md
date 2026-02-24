@@ -1,4 +1,4 @@
-# The Fair Portrait of a Saint
+# Sermon 1526 | The Fair Portrait of a Saint
 
 (No. 1526)
 

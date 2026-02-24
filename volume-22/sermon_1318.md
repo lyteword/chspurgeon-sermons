@@ -1,4 +1,4 @@
-# Increased Faith the Strength of Peace Principles
+# Sermon 1318 | Increased Faith the Strength of Peace Principles
 
 (No. 1318)
 

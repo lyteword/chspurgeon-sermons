@@ -1,4 +1,4 @@
-# The Fruit of the Spirit--Joy
+# Sermon 1582 | The Fruit of the Spirit--Joy
 
 (No. 1582)
 

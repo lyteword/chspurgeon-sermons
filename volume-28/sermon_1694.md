@@ -1,4 +1,4 @@
-# The Use of the Bow
+# Sermon 1694 | The Use of the Bow
 
 (No. 1694)
 

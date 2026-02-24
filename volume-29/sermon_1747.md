@@ -1,4 +1,4 @@
-# Marvelous! Marvelous!
+# Sermon 1747 | Marvelous! Marvelous!
 
 (No. 1747)
 

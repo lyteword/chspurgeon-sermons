@@ -1,4 +1,4 @@
-# Our Lord's Trial before the Sanhedrin
+# Sermon 1643 | Our Lord's Trial before the Sanhedrin
 
 (No. 1643)
 

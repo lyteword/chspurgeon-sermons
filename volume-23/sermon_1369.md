@@ -1,4 +1,4 @@
-# Proclamation of Acceptance and Vengeance
+# Sermon 1369 | Proclamation of Acceptance and Vengeance
 
 (No. 1369)
 

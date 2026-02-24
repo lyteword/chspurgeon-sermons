@@ -1,4 +1,4 @@
-# What the Farm Laborers Can Do and What They Cannot Do
+# Sermon 1603 | What the Farm Laborers Can Do and What They Cannot Do
 
 (No. 1603)
 

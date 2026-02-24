@@ -1,4 +1,4 @@
-# On Laying Foundations
+# Sermon 1702 | On Laying Foundations
 
 (No. 1702)
 

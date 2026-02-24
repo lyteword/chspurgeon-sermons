@@ -1,4 +1,4 @@
-# Refuges of Lies and What Will Become of Them
+# Sermon 1501 | Refuges of Lies and What Will Become of Them
 
 (No. 1501)
 

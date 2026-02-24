@@ -1,4 +1,4 @@
-# The Indwelling and Outflowing of the Holy Spirit
+# Sermon 1662 | The Indwelling and Outflowing of the Holy Spirit
 
 (No. 1662)
 

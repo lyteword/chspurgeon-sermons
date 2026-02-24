@@ -1,4 +1,4 @@
-# A Home Question and a Right Answer
+# Sermon 1646 | A Home Question and a Right Answer
 
 (No. 1646)
 

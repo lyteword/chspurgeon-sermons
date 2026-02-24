@@ -1,4 +1,4 @@
-# Adoption--The Spirit and the Cry
+# Sermon 1435 | Adoption--The Spirit and the Cry
 
 Sermon No. 1435 - Delivered on Lord's-Day Morning, April 14th, 1878 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

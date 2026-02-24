@@ -1,4 +1,4 @@
-# A Loving Entreaty
+# Sermon 1743 | A Loving Entreaty
 
 (No. 1743)
 

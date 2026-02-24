@@ -1,4 +1,4 @@
-# Encouragement to Trust and Pray
+# Sermon 1419 | Encouragement to Trust and Pray
 
 (No. 1419)
 

@@ -1,4 +1,4 @@
-# The Anchor
+# Sermon 1294 | The Anchor
 
 (No. 1294)
 

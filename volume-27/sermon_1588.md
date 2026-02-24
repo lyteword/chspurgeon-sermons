@@ -1,4 +1,4 @@
-# The Believer's Death Day Better Than His Birthday
+# Sermon 1588 | The Believer's Death Day Better Than His Birthday
 
 (No. 1588)
 

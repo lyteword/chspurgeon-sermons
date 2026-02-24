@@ -1,4 +1,4 @@
-# The Song of Songs
+# Sermon 1240 | The Song of Songs
 
 Sermon No. 1240 - Delivered on Lord's-Day Morning, June 13th, 1875 the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington.
 (No. 1240)

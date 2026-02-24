@@ -1,4 +1,4 @@
-# The Touch
+# Sermon 1382 | The Touch
 
 (No. 1382)
 

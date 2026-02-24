@@ -1,4 +1,4 @@
-# The Swift Camels
+# Sermon 1504 | The Swift Camels
 
 (No. 1504)
 

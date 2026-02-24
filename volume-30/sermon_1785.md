@@ -1,4 +1,4 @@
-# The Children and Their Hosannas
+# Sermon 1785 | The Children and Their Hosannas
 
 (No. 1785)
 

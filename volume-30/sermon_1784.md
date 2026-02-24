@@ -1,4 +1,4 @@
-# Unbelief Condemned and Faith Commended
+# Sermon 1784 | Unbelief Condemned and Faith Commended
 
 (No. 1784)
 

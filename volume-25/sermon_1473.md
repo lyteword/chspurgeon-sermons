@@ -1,4 +1,4 @@
-# Forts Demolished and Prisoners Taken
+# Sermon 1473 | Forts Demolished and Prisoners Taken
 
 (No. 1473)
 

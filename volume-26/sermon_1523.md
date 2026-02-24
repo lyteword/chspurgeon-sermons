@@ -1,4 +1,4 @@
-# The Royal Prerogative
+# Sermon 1523 | The Royal Prerogative
 
 (No. 1523)
 

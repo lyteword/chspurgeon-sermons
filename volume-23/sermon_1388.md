@@ -1,4 +1,4 @@
-# Jesus Christ Himself
+# Sermon 1388 | Jesus Christ Himself
 
 (No. 1388)
 

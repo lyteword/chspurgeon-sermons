@@ -1,4 +1,4 @@
-# Christ the Maker of All Things New
+# Sermon 1328 | Christ the Maker of All Things New
 
 (No. 1328)
 

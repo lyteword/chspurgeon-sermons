@@ -1,4 +1,4 @@
-# Brave Waiting
+# Sermon 1371 | Brave Waiting
 
 (No. 1371)
 

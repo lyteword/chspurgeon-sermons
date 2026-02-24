@@ -1,4 +1,4 @@
-# Sheep Among Wolves
+# Sermon 1370 | Sheep Among Wolves
 
 (No. 1370)
 

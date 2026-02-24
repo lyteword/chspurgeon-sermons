@@ -1,4 +1,4 @@
-# Honest Dealing with God
+# Sermon 1241 | Honest Dealing with God
 
 Sermon No. 1241 - Delivered on Lord's-Day Morning, June 20th, 1875 the REV. C.H. SPURGEON at the [6]Metropolitan Tabernacle, Newington.
 (No. 1241)

@@ -1,4 +1,4 @@
-# Men Bewitched
+# Sermon 1546 | Men Bewitched
 
 (No. 1546)
 

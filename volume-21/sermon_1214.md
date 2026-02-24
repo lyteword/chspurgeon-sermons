@@ -1,4 +1,4 @@
-# Strengthening Medicine For God's Servants
+# Sermon 1214 | Strengthening Medicine For God's Servants
 
 (No. 1214)
 

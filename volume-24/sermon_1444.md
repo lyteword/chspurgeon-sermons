@@ -1,4 +1,4 @@
-# The Moral of a Miracle
+# Sermon 1444 | The Moral of a Miracle
 
 (No. 1444)
 

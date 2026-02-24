@@ -1,4 +1,4 @@
-# A Waiting God and a Waiting People
+# Sermon 1766 | A Waiting God and a Waiting People
 
 (No. 1766)
 

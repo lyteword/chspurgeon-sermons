@@ -1,4 +1,4 @@
-# Obadiah; or, Early Piety Eminent Piety
+# Sermon 1804 | Obadiah; or, Early Piety Eminent Piety
 
 Sermon No. 1804 - Delivered on Lord's-Day Morning, October 19th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

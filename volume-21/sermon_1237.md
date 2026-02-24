@@ -1,4 +1,4 @@
-# How They Conquered the Dragon
+# Sermon 1237 | How They Conquered the Dragon
 
 Sermon No. 1237 - Delivered on Lord's-Day Morning, May 30th, 1875 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 (No. 1237)

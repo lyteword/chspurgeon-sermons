@@ -1,4 +1,4 @@
-# Our Sanctuary
+# Sermon 1786 | Our Sanctuary
 
 (No. 1786)
 

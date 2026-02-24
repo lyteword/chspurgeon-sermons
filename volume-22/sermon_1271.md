@@ -1,4 +1,4 @@
-# Pride Catechized and Condemned
+# Sermon 1271 | Pride Catechized and Condemned
 
 Sermon No. 1271 - Delivered on Lord's-Day Morning, January 2nd, 1876 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1271)

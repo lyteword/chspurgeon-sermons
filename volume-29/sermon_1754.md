@@ -1,4 +1,4 @@
-# The Blind Man's Eyes Opened--or, Practical Christianity
+# Sermon 1754 | The Blind Man's Eyes Opened--or, Practical Christianity
 
 (No. 1754)
 

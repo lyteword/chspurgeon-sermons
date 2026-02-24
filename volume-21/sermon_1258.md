@@ -1,4 +1,4 @@
-# The Hand of God in the History of a Man
+# Sermon 1258 | The Hand of God in the History of a Man
 
 (No. 1258)
 

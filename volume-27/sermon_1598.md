@@ -1,4 +1,4 @@
-# The Substance Of True Religion
+# Sermon 1598 | The Substance Of True Religion
 
 (No. 1598)
 

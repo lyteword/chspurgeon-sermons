@@ -1,4 +1,4 @@
-# Men Without Heart, Sight, or Hearing
+# Sermon 1638 | Men Without Heart, Sight, or Hearing
 
 (No. 1638)
 

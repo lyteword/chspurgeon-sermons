@@ -1,4 +1,4 @@
-# Taking Hold of God
+# Sermon 1377 | Taking Hold of God
 
 (No. 1377)
 

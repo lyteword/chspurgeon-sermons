@@ -1,4 +1,4 @@
-# Strengthening Words from the Savior's Lips
+# Sermon 1287 | Strengthening Words from the Savior's Lips
 
 (No. 1287)
 

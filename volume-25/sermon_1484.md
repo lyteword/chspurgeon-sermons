@@ -1,4 +1,4 @@
-# Our Motto
+# Sermon 1484 | Our Motto
 
 (No. 1484)
 

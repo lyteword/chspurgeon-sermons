@@ -1,4 +1,4 @@
-# The Voice from the Cloud and the Voice of the Beloved
+# Sermon 1727 | The Voice from the Cloud and the Voice of the Beloved
 
 (No. 1727)
 

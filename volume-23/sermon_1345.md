@@ -1,4 +1,4 @@
-# For Whom Is The Gospel Meant?
+# Sermon 1345 | For Whom Is The Gospel Meant?
 
 (No. 1345)
 

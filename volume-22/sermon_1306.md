@@ -1,4 +1,4 @@
-# Fat Things, Full of Marrow
+# Sermon 1306 | Fat Things, Full of Marrow
 
 (No. 1306)
 

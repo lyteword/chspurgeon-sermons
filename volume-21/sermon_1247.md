@@ -1,4 +1,4 @@
-# The Special Prayer Meeting
+# Sermon 1247 | The Special Prayer Meeting
 
 (No. 1247)
 

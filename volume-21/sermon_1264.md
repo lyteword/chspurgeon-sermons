@@ -1,4 +1,4 @@
-# The Man of One Subject
+# Sermon 1264 | The Man of One Subject
 
 (No. 1264)
 

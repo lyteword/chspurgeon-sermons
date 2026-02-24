@@ -1,4 +1,4 @@
-# Jesus, The Stumbling Stone Of Unbelievers
+# Sermon 1224 | Jesus, The Stumbling Stone Of Unbelievers
 
 (No. 1224)
 

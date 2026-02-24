@@ -1,4 +1,4 @@
-# Knowledge. Worship. Gratitude.
+# Sermon 1763 | Knowledge. Worship. Gratitude.
 
 Sermon No. 1763 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

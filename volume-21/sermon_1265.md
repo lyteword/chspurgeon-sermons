@@ -1,4 +1,4 @@
-# The Eternal Truth of God
+# Sermon 1265 | The Eternal Truth of God
 
 (No. 1265)
 

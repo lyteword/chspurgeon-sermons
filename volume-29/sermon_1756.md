@@ -1,4 +1,4 @@
-# Renewing Strength
+# Sermon 1756 | Renewing Strength
 
 (No. 1756)
 

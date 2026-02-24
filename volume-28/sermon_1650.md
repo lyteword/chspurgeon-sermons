@@ -1,4 +1,4 @@
-# God's Fatherly Pity
+# Sermon 1650 | God's Fatherly Pity
 
 (No. 1650)
 

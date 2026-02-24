@@ -1,4 +1,4 @@
-# Your Personal Salvation
+# Sermon 1524 | Your Personal Salvation
 
 (No. 1524)
 

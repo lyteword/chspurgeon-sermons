@@ -1,4 +1,4 @@
-# Believers Free from the Dominion of Sin
+# Sermon 1410 | Believers Free from the Dominion of Sin
 
 (No. 1410)
 

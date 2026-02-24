@@ -1,4 +1,4 @@
-# Salvation by Faith and the Work of the Spirit
+# Sermon 1228 | Salvation by Faith and the Work of the Spirit
 
 (No. 1228)
 

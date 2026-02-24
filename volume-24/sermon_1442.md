@@ -1,4 +1,4 @@
-# Sorrow at the Cross Turned into Joy
+# Sermon 1442 | Sorrow at the Cross Turned into Joy
 
 (No. 1442)
 

@@ -1,4 +1,4 @@
-# Jesus, The Delight of Heaven
+# Sermon 1225 | Jesus, The Delight of Heaven
 
 (No. 1225)
 

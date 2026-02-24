@@ -1,4 +1,4 @@
-# Though He Were Dead
+# Sermon 1799 | Though He Were Dead
 
 Sermon No. 1799 - Delivered on Lord's-Day Morning, September 14th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

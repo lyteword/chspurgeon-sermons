@@ -1,4 +1,4 @@
-# Faith's Sure Foundation
+# Sermon 1429 | Faith's Sure Foundation
 
 (No. 1429)
 

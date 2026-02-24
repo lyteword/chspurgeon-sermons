@@ -1,4 +1,4 @@
-# Perfect Sanctification
+# Sermon 1527 | Perfect Sanctification
 
 (No. 1527)
 

@@ -1,4 +1,4 @@
-# The Sitting of the Refiner
+# Sermon 1575 | The Sitting of the Refiner
 
 (No. 1575)
 

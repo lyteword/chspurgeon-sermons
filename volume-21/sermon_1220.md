@@ -1,4 +1,4 @@
-# The Leading of the Spirit, The Secret Token of the Sons of God
+# Sermon 1220 | The Leading of the Spirit, The Secret Token of the Sons of God
 
 (No. 1220)
 

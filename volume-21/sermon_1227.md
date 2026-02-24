@@ -1,4 +1,4 @@
-# Spiritual Appetite
+# Sermon 1227 | Spiritual Appetite
 
 (No. 1227)
 

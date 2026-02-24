@@ -1,4 +1,4 @@
-# A Weighty Charge
+# Sermon 1286 | A Weighty Charge
 
 (No. 1286)
 

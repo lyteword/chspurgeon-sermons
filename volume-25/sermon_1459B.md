@@ -1,4 +1,4 @@
-# The Dual Nature and the Duel Within
+# Sermon 1459B | The Dual Nature and the Duel Within
 
 (No. 1459B)
 

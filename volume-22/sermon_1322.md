@@ -1,4 +1,4 @@
-# Rest For The Laboring
+# Sermon 1322 | Rest For The Laboring
 
 (No. 1322)
 

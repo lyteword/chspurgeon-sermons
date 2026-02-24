@@ -1,4 +1,4 @@
-# A Catechism for the Proud
+# Sermon 1392 | A Catechism for the Proud
 
 (No. 1392)
 

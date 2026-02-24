@@ -1,4 +1,4 @@
-# Mahanaim--or, Hosts Of Angels
+# Sermon 1544 | Mahanaim--or, Hosts Of Angels
 
 (No. 1544)
 

@@ -1,4 +1,4 @@
-# A Description of Young Men in Christ
+# Sermon 1715 | A Description of Young Men in Christ
 
 (No. 1715)
 

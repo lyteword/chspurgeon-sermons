@@ -1,4 +1,4 @@
-# Why Men Cannot Believe in Christ
+# Sermon 1245 | Why Men Cannot Believe in Christ
 
 (No. 1245)
 

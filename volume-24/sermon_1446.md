@@ -1,4 +1,4 @@
-# The Best Beloved
+# Sermon 1446 | The Best Beloved
 
 Sermon No. 1446 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

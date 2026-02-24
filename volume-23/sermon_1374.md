@@ -1,4 +1,4 @@
-# "Forever With The Lord"
+# Sermon 1374 | "Forever With The Lord"
 
 (No. 1374)
 

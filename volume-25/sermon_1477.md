@@ -1,4 +1,4 @@
-# Jesus Admired In Them That Believe
+# Sermon 1477 | Jesus Admired In Them That Believe
 
 (No. 1477)
 

@@ -1,4 +1,4 @@
-# Imitators of God
+# Sermon 1725 | Imitators of God
 
 (No. 1725)
 

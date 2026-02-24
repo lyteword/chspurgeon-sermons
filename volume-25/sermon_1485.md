@@ -1,4 +1,4 @@
-# The Withered Hand
+# Sermon 1485 | The Withered Hand
 
 (No. 1485)
 

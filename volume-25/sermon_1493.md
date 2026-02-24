@@ -1,4 +1,4 @@
-# The Glory of God in the Face of Jesus Christ
+# Sermon 1493 | The Glory of God in the Face of Jesus Christ
 
 (No. 1493)
 

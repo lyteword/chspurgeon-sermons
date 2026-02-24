@@ -1,4 +1,4 @@
-# The Waterpots at Cana
+# Sermon 1556 | The Waterpots at Cana
 
 Sermon No. 1556 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

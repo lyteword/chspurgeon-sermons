@@ -1,4 +1,4 @@
-# The Day of Salvation
+# Sermon 1394 | The Day of Salvation
 
 (No. 1394)
 

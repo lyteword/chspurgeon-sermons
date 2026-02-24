@@ -1,4 +1,4 @@
-# The New Fashion
+# Sermon 1269 | The New Fashion
 
 (No. 1269)
 

@@ -1,4 +1,4 @@
-# Wholehearted Religion
+# Sermon 1623 | Wholehearted Religion
 
 (No. 1623)
 

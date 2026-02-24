@@ -1,4 +1,4 @@
-# "Let Not Your Heart Be Troubled"
+# Sermon 1741 | "Let Not Your Heart Be Troubled"
 
 (No. 1741)
 

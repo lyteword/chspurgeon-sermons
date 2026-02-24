@@ -1,4 +1,4 @@
-# How To Meet the Doctrine of Election
+# Sermon 1797 | How To Meet the Doctrine of Election
 
 (No. 1797)
 

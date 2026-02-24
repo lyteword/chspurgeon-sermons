@@ -1,4 +1,4 @@
-# An Astounding Miracle
+# Sermon 1765 | An Astounding Miracle
 
 (No. 1765)
 

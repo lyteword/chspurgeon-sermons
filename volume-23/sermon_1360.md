@@ -1,4 +1,4 @@
-# The Good Samaritan
+# Sermon 1360 | The Good Samaritan
 
 (No. 1360)
 

@@ -1,4 +1,4 @@
-# The Priest Ordained by the Oath of God
+# Sermon 1597 | The Priest Ordained by the Oath of God
 
 (No. 1597)
 

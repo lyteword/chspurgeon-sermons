@@ -1,4 +1,4 @@
-# Redemption By Price
+# Sermon 1554 | Redemption By Price
 
 (No. 1554)
 

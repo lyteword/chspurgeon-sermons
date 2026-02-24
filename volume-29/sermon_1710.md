@@ -1,4 +1,4 @@
-# Incense and Light
+# Sermon 1710 | Incense and Light
 
 (No. 1710)
 

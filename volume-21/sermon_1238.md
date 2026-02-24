@@ -1,4 +1,4 @@
-# Beware of Unbelief
+# Sermon 1238 | Beware of Unbelief
 
 Sermon No. 1238 - Delivered on Lord's-Day Morning, June 6th, 1875 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 (No. 1238)

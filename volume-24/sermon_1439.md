@@ -1,4 +1,4 @@
-# Receiving the Kingdom of God as a Little Child
+# Sermon 1439 | Receiving the Kingdom of God as a Little Child
 
 (No. 1439)
 

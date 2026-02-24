@@ -1,4 +1,4 @@
-# Salvation By Works, A Criminal Doctrine
+# Sermon 1534 | Salvation By Works, A Criminal Doctrine
 
 (No. 1534)
 

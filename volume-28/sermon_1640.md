@@ -1,4 +1,4 @@
-# The Touch
+# Sermon 1640 | The Touch
 
 (No. 1640)
 

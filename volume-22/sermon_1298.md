@@ -1,4 +1,4 @@
-# Gathering to the Center
+# Sermon 1298 | Gathering to the Center
 
 (No. 1298)
 

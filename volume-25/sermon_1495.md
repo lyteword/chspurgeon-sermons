@@ -1,4 +1,4 @@
-# The King-Priest
+# Sermon 1495 | The King-Priest
 
 (No. 1495)
 

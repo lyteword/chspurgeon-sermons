@@ -1,4 +1,4 @@
-# "Herein Is Love"
+# Sermon 1707 | "Herein Is Love"
 
 (No. 1707)
 

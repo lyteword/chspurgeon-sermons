@@ -1,4 +1,4 @@
-# Our Lord's Question to the Blind Men
+# Sermon 1355 | Our Lord's Question to the Blind Men
 
 (No. 1355)
 

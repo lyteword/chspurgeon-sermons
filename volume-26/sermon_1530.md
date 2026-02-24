@@ -1,4 +1,4 @@
-# Following the Risen Christ
+# Sermon 1530 | Following the Risen Christ
 
 (No. 1530)
 

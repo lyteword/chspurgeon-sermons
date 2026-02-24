@@ -1,4 +1,4 @@
-# How Is Salvation Received?
+# Sermon 1347 | How Is Salvation Received?
 
 (No. 1347)
 

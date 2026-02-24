@@ -1,4 +1,4 @@
-# Truly Eating the Flesh of Jesus
+# Sermon 1288 | Truly Eating the Flesh of Jesus
 
 (No. 1288)
 

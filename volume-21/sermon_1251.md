@@ -1,4 +1,4 @@
-# The Sacred Love-Token
+# Sermon 1251 | The Sacred Love-Token
 
 (No. 1251)
 

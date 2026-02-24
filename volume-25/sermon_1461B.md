@@ -1,4 +1,4 @@
-# Eyes Opened
+# Sermon 1461B | Eyes Opened
 
 (No. 1461B)
 

@@ -1,4 +1,4 @@
-# Sihon and Og, or Mercies in Detail
+# Sermon 1285 | Sihon and Og, or Mercies in Detail
 
 (No. 1285)
 

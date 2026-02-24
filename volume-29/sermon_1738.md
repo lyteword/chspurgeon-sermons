@@ -1,4 +1,4 @@
-# "Glory Be Unto the Father"
+# Sermon 1738 | "Glory Be Unto the Father"
 
 (No. 1738)
 

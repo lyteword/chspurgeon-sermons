@@ -1,4 +1,4 @@
-# The Empty Seat
+# Sermon 1454A | The Empty Seat
 
 (No. 1454A)
 

@@ -1,4 +1,4 @@
-# For the Candid and Thoughtful
+# Sermon 1517 | For the Candid and Thoughtful
 
 Sermon No. 1517 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

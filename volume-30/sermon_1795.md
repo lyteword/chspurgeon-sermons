@@ -1,4 +1,4 @@
-# Pleading and Encouragement
+# Sermon 1795 | Pleading and Encouragement
 
 Sermon No. 1795 - Delivered on Lord's-Day Morning, August 17th, 1884 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 (No. 1795)

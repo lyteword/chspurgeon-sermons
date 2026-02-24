@@ -1,4 +1,4 @@
-# Receiving the Holy Spirit
+# Sermon 1790 | Receiving the Holy Spirit
 
 (No. 1790)
 

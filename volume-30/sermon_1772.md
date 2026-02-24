@@ -1,4 +1,4 @@
-# Slaying the Sacrifice
+# Sermon 1772 | Slaying the Sacrifice
 
 (No. 1772)
 

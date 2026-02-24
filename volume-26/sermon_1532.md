@@ -1,4 +1,4 @@
-# The Holy Spirit's Intercession
+# Sermon 1532 | The Holy Spirit's Intercession
 
 Sermon No. 1532 - Delivered on Lord's-Day Morning, April 11th, 1880 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

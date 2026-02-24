@@ -1,4 +1,4 @@
-# First, King of Righteousness, and after That, King of Peace
+# Sermon 1768 | First, King of Righteousness, and after That, King of Peace
 
 (No. 1768)
 

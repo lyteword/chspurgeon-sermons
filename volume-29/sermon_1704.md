@@ -1,4 +1,4 @@
-# All Joy in All Trials
+# Sermon 1704 | All Joy in All Trials
 
 Sermon No. 1704 - Delivered on Lord's Day Morning, February 4th, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

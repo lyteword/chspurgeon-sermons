@@ -1,4 +1,4 @@
-# Mistrust of God Deplored and Denounced
+# Sermon 1498 | Mistrust of God Deplored and Denounced
 
 (No. 1498)
 

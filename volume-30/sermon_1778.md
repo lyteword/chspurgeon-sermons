@@ -1,4 +1,4 @@
-# 6:10
+# Sermon 1778 | 6:10
 
 A Heavenly Pattern for Our Earthly Life
 

@@ -1,4 +1,4 @@
-# Contention Ended and Grace Reigning
+# Sermon 1490 | Contention Ended and Grace Reigning
 
 (No. 1490)
 

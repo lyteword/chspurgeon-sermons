@@ -1,4 +1,4 @@
-# Grappling Irons
+# Sermon 1779 | Grappling Irons
 
 (No. 1779)
 

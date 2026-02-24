@@ -1,4 +1,4 @@
-# The Immovability of the Believer
+# Sermon 1450 | The Immovability of the Believer
 
 (No. 1450)
 

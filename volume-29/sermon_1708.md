@@ -1,4 +1,4 @@
-# The Holy Spirit's Threefold Conviction of Men
+# Sermon 1708 | The Holy Spirit's Threefold Conviction of Men
 
 (No. 1708)
 

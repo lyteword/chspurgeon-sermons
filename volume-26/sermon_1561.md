@@ -1,4 +1,4 @@
-# Asleep and Yet Awake--a Riddle
+# Sermon 1561 | Asleep and Yet Awake--a Riddle
 
 (No. 1561)
 

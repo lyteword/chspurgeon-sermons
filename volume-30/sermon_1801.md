@@ -1,4 +1,4 @@
-# The Parable of the Lost Sheep
+# Sermon 1801 | The Parable of the Lost Sheep
 
 Sermon No. 1801 - Delivered on Lord's-Day Morning, September 28th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

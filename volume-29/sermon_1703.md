@@ -1,4 +1,4 @@
-# Hands Full of Honey
+# Sermon 1703 | Hands Full of Honey
 
 (No. 1703)
 

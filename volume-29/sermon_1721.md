@@ -1,4 +1,4 @@
-# Glory!
+# Sermon 1721 | Glory!
 
 (No. 1721)
 

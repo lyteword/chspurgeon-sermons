@@ -1,4 +1,4 @@
-# Paul's Doxology
+# Sermon 1266 | Paul's Doxology
 
 (No. 1266)
 

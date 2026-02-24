@@ -1,4 +1,4 @@
-# Our Lord's Humanity a Sweet Source of Comfort
+# Sermon 1295 | Our Lord's Humanity a Sweet Source of Comfort
 
 (No. 1295)
 

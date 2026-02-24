@@ -1,4 +1,4 @@
-# The Prophet Like Unto Moses
+# Sermon 1487 | The Prophet Like Unto Moses
 
 (No. 1487)
 

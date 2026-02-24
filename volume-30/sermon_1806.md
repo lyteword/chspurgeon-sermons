@@ -1,4 +1,4 @@
-# A Summary of Experience and a Body of Divinity
+# Sermon 1806 | A Summary of Experience and a Body of Divinity
 
 Sermon No. 1806 - Delivered on Lord's-Day Morning, October 26th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

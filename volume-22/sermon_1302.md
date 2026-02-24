@@ -1,4 +1,4 @@
-# Good Cheer For Outcasts
+# Sermon 1302 | Good Cheer For Outcasts
 
 (No. 1302)
 

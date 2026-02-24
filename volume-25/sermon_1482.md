@@ -1,4 +1,4 @@
-# Our Change of Masters
+# Sermon 1482 | Our Change of Masters
 
 (No. 1482)
 

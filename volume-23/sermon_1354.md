@@ -1,4 +1,4 @@
-# All Things Are Ready, Come
+# Sermon 1354 | All Things Are Ready, Come
 
 (No. 1354)
 

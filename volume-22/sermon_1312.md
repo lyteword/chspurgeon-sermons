@@ -1,4 +1,4 @@
-# Good News for Seekers
+# Sermon 1312 | Good News for Seekers
 
 (No. 1312)
 

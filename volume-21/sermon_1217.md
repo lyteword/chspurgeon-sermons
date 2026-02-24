@@ -1,4 +1,4 @@
-# Rightly Dividing the Word of Truth
+# Sermon 1217 | Rightly Dividing the Word of Truth
 
 (No. 1217)
 

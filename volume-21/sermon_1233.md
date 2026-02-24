@@ -1,4 +1,4 @@
-# Healing Leaves
+# Sermon 1233 | Healing Leaves
 
 (No. 1233)
 

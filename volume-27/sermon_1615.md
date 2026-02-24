@@ -1,4 +1,4 @@
-# Singing in the Ways of the Lord
+# Sermon 1615 | Singing in the Ways of the Lord
 
 (No. 1615)
 

@@ -1,4 +1,4 @@
-# The Covenant Pleaded
+# Sermon 1451B | The Covenant Pleaded
 
 (No. 1451B)
 

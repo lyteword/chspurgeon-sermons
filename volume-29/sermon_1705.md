@@ -1,4 +1,4 @@
-# The Hearing of Faith
+# Sermon 1705 | The Hearing of Faith
 
 (No. 1705)
 

@@ -1,4 +1,4 @@
-# Earnest Expostulation
+# Sermon 1714 | Earnest Expostulation
 
 Sermon No. 1714 - Delivered on Lord's-Day Morning, April 1st, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

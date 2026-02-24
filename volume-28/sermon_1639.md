@@ -1,4 +1,4 @@
-# Acceptable Service
+# Sermon 1639 | Acceptable Service
 
 (No. 1639)
 

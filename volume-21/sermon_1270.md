@@ -1,4 +1,4 @@
-# "God With Us"
+# Sermon 1270 | "God With Us"
 
 (No. 1270)
 

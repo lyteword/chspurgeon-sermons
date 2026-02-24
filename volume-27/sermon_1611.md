@@ -1,4 +1,4 @@
-# The Word of the Cross
+# Sermon 1611 | The Word of the Cross
 
 (No. 1611)
 

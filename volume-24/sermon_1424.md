@@ -1,4 +1,4 @@
-# A Great Bargain
+# Sermon 1424 | A Great Bargain
 
 (No. 1424)
 

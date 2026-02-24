@@ -1,4 +1,4 @@
-# The Tent Dissolved and the Mansion Entered
+# Sermon 1719 | The Tent Dissolved and the Mansion Entered
 
 (No. 1719)
 

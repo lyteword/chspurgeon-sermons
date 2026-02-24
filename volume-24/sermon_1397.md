@@ -1,4 +1,4 @@
-# The Peace of God
+# Sermon 1397 | The Peace of God
 
 (No. 1397)
 

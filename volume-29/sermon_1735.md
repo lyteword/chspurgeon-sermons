@@ -1,4 +1,4 @@
-# The Doctrines of Grace Do Not Lead to Sin
+# Sermon 1735 | The Doctrines of Grace Do Not Lead to Sin
 
 Sermon No. 1735 - Delivered on Lord's Day Morning, August 19th, 1883 the REV. C.H. SPURGEON at Exeter-Hall.
 

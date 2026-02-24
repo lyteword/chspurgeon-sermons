@@ -1,4 +1,4 @@
-# Beloved, and yet Afflicted
+# Sermon 1518 | Beloved, and yet Afflicted
 
 Notes of a Sermon
 

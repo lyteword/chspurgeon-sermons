@@ -1,4 +1,4 @@
-# Helps to Full Assurance
+# Sermon 1791 | Helps to Full Assurance
 
 (No. 1791)
 

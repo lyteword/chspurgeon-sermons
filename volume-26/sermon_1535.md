@@ -1,4 +1,4 @@
-# Christ's Universal Kingdom and How It Comes
+# Sermon 1535 | Christ's Universal Kingdom and How It Comes
 
 (No. 1535)
 

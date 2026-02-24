@@ -1,4 +1,4 @@
-# Shut In Or Shut Out
+# Sermon 1613 | Shut In Or Shut Out
 
 (No. 1613)
 

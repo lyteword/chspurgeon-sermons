@@ -1,4 +1,4 @@
-# The Works of the Devil Destroyed
+# Sermon 1728 | The Works of the Devil Destroyed
 
 (No. 1728)
 

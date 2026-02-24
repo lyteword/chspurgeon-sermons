@@ -1,4 +1,4 @@
-# The Best House-visitation
+# Sermon 1236 | The Best House-visitation
 
 Sermon No. 1236 - Delivered on Lord's-Day Morning, May 23rd, 1875 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 (No. 1236)

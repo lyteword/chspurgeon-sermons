@@ -1,4 +1,4 @@
-# Ecce Rex
+# Sermon 1353 | Ecce Rex
 
 (No. 1353)
 

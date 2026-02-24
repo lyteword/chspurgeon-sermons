@@ -1,4 +1,4 @@
-# The Middle Passage
+# Sermon 1474 | The Middle Passage
 
 (No. 1474)
 

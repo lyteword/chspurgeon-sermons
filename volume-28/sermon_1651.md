@@ -1,4 +1,4 @@
-# A Delusion Dispelled
+# Sermon 1651 | A Delusion Dispelled
 
 (No. 1651)
 

@@ -1,4 +1,4 @@
-# Before Daybreak with Christ
+# Sermon 1769 | Before Daybreak with Christ
 
 (No. 1769)
 

@@ -1,4 +1,4 @@
-# Prayer to God in Trouble an Acceptable Sacrifice
+# Sermon 1505 | Prayer to God in Trouble an Acceptable Sacrifice
 
 (No. 1505)
 

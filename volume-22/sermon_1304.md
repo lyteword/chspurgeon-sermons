@@ -1,4 +1,4 @@
-# Enquire of the Lord
+# Sermon 1304 | Enquire of the Lord
 
 (No. 1304)
 

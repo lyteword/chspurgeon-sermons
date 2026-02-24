@@ -1,4 +1,4 @@
-# Crowning Blessings Ascribed to God
+# Sermon 1475 | Crowning Blessings Ascribed to God
 
 (No. 1475)
 

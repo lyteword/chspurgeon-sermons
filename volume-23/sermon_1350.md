@@ -1,4 +1,4 @@
-# Enlivening and Invigorating
+# Sermon 1350 | Enlivening and Invigorating
 
 (No. 1350)
 

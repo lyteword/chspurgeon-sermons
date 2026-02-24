@@ -1,4 +1,4 @@
-# Where The "If" Lies
+# Sermon 1744 | Where The "If" Lies
 
 Sermon No. 1744 - Delivered on Lord's-Day Morning, October 14th, 1883 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 (No. 1744)

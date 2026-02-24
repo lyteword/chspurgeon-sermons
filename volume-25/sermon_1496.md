@@ -1,4 +1,4 @@
-# Among Lions
+# Sermon 1496 | Among Lions
 
 (No. 1496)
 

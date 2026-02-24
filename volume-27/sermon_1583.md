@@ -1,4 +1,4 @@
-# Choice Food for Pilgrims to Canaan
+# Sermon 1583 | Choice Food for Pilgrims to Canaan
 
 (No. 1583)
 

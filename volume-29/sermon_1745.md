@@ -1,4 +1,4 @@
-# Abijah, or Some Good Thing Towards the Lord
+# Sermon 1745 | Abijah, or Some Good Thing Towards the Lord
 
 Sermon No. 1745 - Delivered on Lord's-Day Morning, October 21st, 1883 the REV. C.H. SPURGEON at the [4]Metropolitan Tabernacle, Newington.
 (No. 1745)

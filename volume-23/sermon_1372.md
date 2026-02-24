@@ -1,4 +1,4 @@
-# God Our Portion and His Word Our Treasure
+# Sermon 1372 | God Our Portion and His Word Our Treasure
 
 (No. 1372)
 

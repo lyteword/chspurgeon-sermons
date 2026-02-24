@@ -1,4 +1,4 @@
-# The Still Small Voice
+# Sermon 1668 | The Still Small Voice
 
 (No. 1668)
 

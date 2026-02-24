@@ -1,4 +1,4 @@
-# Jesus In Our Midst
+# Sermon 1254 | Jesus In Our Midst
 
 (No. 1254)
 

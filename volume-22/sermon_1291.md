@@ -1,4 +1,4 @@
-# The Best Burden for Young Shoulders
+# Sermon 1291 | The Best Burden for Young Shoulders
 
 (No. 1291)
 

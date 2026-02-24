@@ -1,4 +1,4 @@
-# What The Church Should Be
+# Sermon 1436 | What The Church Should Be
 
 (No. 1436)
 

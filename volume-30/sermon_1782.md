@@ -1,4 +1,4 @@
-# The First Fruit of the Spirit
+# Sermon 1782 | The First Fruit of the Spirit
 
 (No. 1782)
 

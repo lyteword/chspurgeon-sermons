@@ -1,4 +1,4 @@
-# Ask and Have
+# Sermon 1682 | Ask and Have
 
 (No. 1682)
 

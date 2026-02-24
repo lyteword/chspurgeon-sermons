@@ -1,4 +1,4 @@
-# Choice Comfort for a Young Believer
+# Sermon 1506 | Choice Comfort for a Young Believer
 
 (No. 1506)
 

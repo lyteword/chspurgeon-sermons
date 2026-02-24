@@ -1,4 +1,4 @@
-# The Mighty Arm
+# Sermon 1314 | The Mighty Arm
 
 (No. 1314)
 

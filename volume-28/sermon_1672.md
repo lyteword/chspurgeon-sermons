@@ -1,4 +1,4 @@
-# The Voice Behind Thee
+# Sermon 1672 | The Voice Behind Thee
 
 Sermon No. 1672 - Delivered on Lord's-Day Morning, July 23rd, 1882 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

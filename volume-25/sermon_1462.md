@@ -1,4 +1,4 @@
-# The Yoke Removed and the Lord Revealed
+# Sermon 1462 | The Yoke Removed and the Lord Revealed
 
 (No. 1462)
 

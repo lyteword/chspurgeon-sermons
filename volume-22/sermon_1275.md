@@ -1,4 +1,4 @@
-# One Greater Than the Temple
+# Sermon 1275 | One Greater Than the Temple
 
 Sermon No. 1275 - Delivered on Lord's-Day Morning, January 23rd, 1876 the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington.
 (No. 1275)

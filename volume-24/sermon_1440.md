@@ -1,4 +1,4 @@
-# The Great Emancipator
+# Sermon 1440 | The Great Emancipator
 
 (No. 1440)
 

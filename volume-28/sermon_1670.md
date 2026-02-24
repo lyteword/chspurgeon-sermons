@@ -1,4 +1,4 @@
-# One Lion, Two Lions, No Lion at All!
+# Sermon 1670 | One Lion, Two Lions, No Lion at All!
 
 (No. 1670)
 

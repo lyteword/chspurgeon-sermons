@@ -1,4 +1,4 @@
-# The Blessings Of Following On
+# Sermon 1246 | The Blessings Of Following On
 
 (No. 1246)
 

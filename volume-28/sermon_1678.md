@@ -1,4 +1,4 @@
-# The Samaritan Woman and Her Mission
+# Sermon 1678 | The Samaritan Woman and Her Mission
 
 (No. 1678)
 

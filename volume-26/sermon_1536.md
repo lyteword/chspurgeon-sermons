@@ -1,4 +1,4 @@
-# Sentence Of Death, The Death Of Self-trust
+# Sermon 1536 | Sentence Of Death, The Death Of Self-trust
 
 (No. 1536)
 

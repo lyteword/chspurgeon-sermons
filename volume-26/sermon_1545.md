@@ -1,4 +1,4 @@
-# God Glorified By Children's Mouths
+# Sermon 1545 | God Glorified By Children's Mouths
 
 (No. 1545)
 

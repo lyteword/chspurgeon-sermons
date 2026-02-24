@@ -1,4 +1,4 @@
-# "Verily, Verily"
+# Sermon 1642 | "Verily, Verily"
 
 (No. 1642)
 

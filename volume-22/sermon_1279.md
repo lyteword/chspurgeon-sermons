@@ -1,4 +1,4 @@
-# Amazing Grace
+# Sermon 1279 | Amazing Grace
 
 (No. 1279)
 

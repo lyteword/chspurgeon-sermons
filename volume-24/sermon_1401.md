@@ -1,4 +1,4 @@
-# Jacob Worshipping on His Staff
+# Sermon 1401 | Jacob Worshipping on His Staff
 
 (No. 1401)
 

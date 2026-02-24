@@ -1,4 +1,4 @@
-# Other Sheep and One Flock
+# Sermon 1713 | Other Sheep and One Flock
 
 (No. 1713)
 

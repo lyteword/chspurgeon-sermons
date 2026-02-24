@@ -1,4 +1,4 @@
-# Faith's Ultimatum
+# Sermon 1244 | Faith's Ultimatum
 
 (No. 1244)
 

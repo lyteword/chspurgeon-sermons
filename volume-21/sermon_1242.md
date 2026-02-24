@@ -1,4 +1,4 @@
-# Abraham's Prompt Obedience to the Call of God
+# Sermon 1242 | Abraham's Prompt Obedience to the Call of God
 
 Sermon No. 1242 - Delivered on Lord's-Day Morning, June 27th, 1875 the REV. C.H. SPURGEON at the [7]Metropolitan Tabernacle, Newington.
 (No. 1242)

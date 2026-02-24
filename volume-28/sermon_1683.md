@@ -1,4 +1,4 @@
-# The Great Cross-bearer and His Followers
+# Sermon 1683 | The Great Cross-bearer and His Followers
 
 (No. 1683)
 

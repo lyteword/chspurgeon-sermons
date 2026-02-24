@@ -1,4 +1,4 @@
-# Buying Without Money
+# Sermon 1726 | Buying Without Money
 
 (No. 1726)
 

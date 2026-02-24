@@ -1,4 +1,4 @@
-# Trial by the Word
+# Sermon 1277 | Trial by the Word
 
 Sermon No. 1277 - Delivered on Lord's-Day Morning, February 6th, 1876 the REV. C.H. SPURGEON at the [7]Metropolitan Tabernacle, Newington.
 (No. 1277)

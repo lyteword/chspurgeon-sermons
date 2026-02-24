@@ -1,4 +1,4 @@
-# The Glory, Unity and Triumph of the Church
+# Sermon 1472 | The Glory, Unity and Triumph of the Church
 
 (No. 1472)
 

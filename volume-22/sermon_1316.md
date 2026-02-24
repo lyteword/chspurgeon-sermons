@@ -1,4 +1,4 @@
-# Why the Heavenly Robes are White
+# Sermon 1316 | Why the Heavenly Robes are White
 
 (No. 1316)
 

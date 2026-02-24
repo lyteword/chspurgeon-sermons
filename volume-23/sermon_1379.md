@@ -1,4 +1,4 @@
-# The Magnanimity of God
+# Sermon 1379 | The Magnanimity of God
 
 (No. 1379)
 

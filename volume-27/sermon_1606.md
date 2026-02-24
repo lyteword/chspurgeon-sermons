@@ -1,4 +1,4 @@
-# Ziklag--or David Encouraging Himself In God
+# Sermon 1606 | Ziklag--or David Encouraging Himself In God
 
 (No. 1606)
 

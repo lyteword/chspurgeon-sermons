@@ -1,4 +1,4 @@
-# The Proof of Our Ministry
+# Sermon 1788 | The Proof of Our Ministry
 
 (No. 1788)
 

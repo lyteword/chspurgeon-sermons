@@ -1,4 +1,4 @@
-# Happiness--the Privilege and Duty of Christians
+# Sermon 1359 | Happiness--the Privilege and Duty of Christians
 
 (No. 1359)
 

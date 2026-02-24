@@ -1,4 +1,4 @@
-# The Lion and the Bear--Trophies Hung Up
+# Sermon 1810 | The Lion and the Bear--Trophies Hung Up
 
 (No. 1810)
 

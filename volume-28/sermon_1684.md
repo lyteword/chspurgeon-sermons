@@ -1,4 +1,4 @@
-# "Feed My Lambs"--a Sunday School Sermon
+# Sermon 1684 | "Feed My Lambs"--a Sunday School Sermon
 
 (No. 1684)
 

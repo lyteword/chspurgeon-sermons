@@ -1,4 +1,4 @@
-# John's First Doxology
+# Sermon 1737 | John's First Doxology
 
 (No. 1737)
 

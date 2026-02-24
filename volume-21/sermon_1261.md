@@ -1,4 +1,4 @@
-# Sow To Yourselves
+# Sermon 1261 | Sow To Yourselves
 
 (No. 1261)
 

@@ -1,4 +1,4 @@
-# The Rocky Fortress and Its Inhabitant
+# Sermon 1764 | The Rocky Fortress and Its Inhabitant
 
 (No. 1764)
 

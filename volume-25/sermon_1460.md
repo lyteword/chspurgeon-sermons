@@ -1,4 +1,4 @@
-# The Meat and Drink of the New Nature
+# Sermon 1460 | The Meat and Drink of the New Nature
 
 (No. 1460)
 

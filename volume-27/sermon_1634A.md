@@ -1,4 +1,4 @@
-# The Bride and Her Ornaments--the Sin of Forgetting God
+# Sermon 1634A | The Bride and Her Ornaments--the Sin of Forgetting God
 
 (No. 1634A)
 

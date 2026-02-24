@@ -1,4 +1,4 @@
-# The Sprinkling of the Blood of the Sacrifice
+# Sermon 1780 | The Sprinkling of the Blood of the Sacrifice
 
 (No. 1780)
 

@@ -1,4 +1,4 @@
-# Joseph of Arimathaea
+# Sermon 1789 | Joseph of Arimathaea
 
 (No. 1789)
 

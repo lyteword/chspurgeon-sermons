@@ -1,4 +1,4 @@
-# Vanities and Verities
+# Sermon 1380 | Vanities and Verities
 
 (No. 1380)
 

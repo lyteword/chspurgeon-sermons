@@ -1,4 +1,4 @@
-# The Work of Grace the Warrant for Obedience
+# Sermon 1479 | The Work of Grace the Warrant for Obedience
 
 (No. 1479)
 

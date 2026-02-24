@@ -1,4 +1,4 @@
-# The Plain Man's Pathway To Peace
+# Sermon 1560 | The Plain Man's Pathway To Peace
 
 (No. 1560)
 

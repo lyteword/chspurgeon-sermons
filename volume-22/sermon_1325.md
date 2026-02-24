@@ -1,4 +1,4 @@
-# Christ the End of the Law
+# Sermon 1325 | Christ the End of the Law
 
 Sermon No. 1325 - Delivered on Lord's-Day Morning, November 19th, 1876 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 

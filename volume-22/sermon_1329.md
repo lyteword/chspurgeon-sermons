@@ -1,4 +1,4 @@
-# Christ the Destroyer of Death
+# Sermon 1329 | Christ the Destroyer of Death
 
 (No. 1329)
 

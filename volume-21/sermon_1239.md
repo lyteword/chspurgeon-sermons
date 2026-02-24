@@ -1,4 +1,4 @@
-# Messrs. Moody and Sankey Defended; or, A Vindication of the Doctrine of Justification by Faith
+# Sermon 1239 | Messrs. Moody and Sankey Defended; or, A Vindication of the Doctrine of Justification by Faith
 
 Sermon No. 1239 - Delivered on Delivered the REV. C.H. SPURGEON at the [4]Metropolitan Tabernacle, Newington.
 (No. 1239)

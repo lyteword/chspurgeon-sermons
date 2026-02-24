@@ -1,4 +1,4 @@
-# The General Convocation Around Mount Zion
+# Sermon 1689 | The General Convocation Around Mount Zion
 
 (No. 1689)
 

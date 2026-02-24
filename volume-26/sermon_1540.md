@@ -1,4 +1,4 @@
-# The Mediator--Judge And Savior
+# Sermon 1540 | The Mediator--Judge And Savior
 
 (No. 1540)
 

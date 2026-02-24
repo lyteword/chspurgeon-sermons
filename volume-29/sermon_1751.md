@@ -1,4 +1,4 @@
-# Fathers In Christ
+# Sermon 1751 | Fathers In Christ
 
 (No. 1751)
 

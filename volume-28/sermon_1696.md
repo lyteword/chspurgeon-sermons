@@ -1,4 +1,4 @@
-# The Bird Escaped from the Snare
+# Sermon 1696 | The Bird Escaped from the Snare
 
 (No. 1696)
 

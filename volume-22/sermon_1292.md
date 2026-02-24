@@ -1,4 +1,4 @@
-# The Soul-Winner
+# Sermon 1292 | The Soul-Winner
 
 (No. 1292)
 

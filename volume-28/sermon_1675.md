@@ -1,4 +1,4 @@
-# Out Of Egypt
+# Sermon 1675 | Out Of Egypt
 
 (No. 1675)
 

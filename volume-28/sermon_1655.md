@@ -1,4 +1,4 @@
-# The Blessed Guest Detained
+# Sermon 1655 | The Blessed Guest Detained
 
 (No. 1655)
 

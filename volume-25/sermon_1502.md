@@ -1,4 +1,4 @@
-# Satan in a Rage
+# Sermon 1502 | Satan in a Rage
 
 (No. 1502)
 

@@ -1,4 +1,4 @@
-# Number 1500, Or Lifting Up the Bronze Serpent
+# Sermon 1500 | Number 1500, Or Lifting Up the Bronze Serpent
 
 (No. 1500)
 

@@ -1,4 +1,4 @@
-# Every Man's Necessity
+# Sermon 1455 | Every Man's Necessity
 
 (No. 1455)
 

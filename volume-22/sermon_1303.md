@@ -1,4 +1,4 @@
-# The Believer in the Body and Out of the Body
+# Sermon 1303 | The Believer in the Body and Out of the Body
 
 (No. 1303)
 

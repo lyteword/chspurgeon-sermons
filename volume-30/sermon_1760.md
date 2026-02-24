@@ -1,4 +1,4 @@
-# "He Shall Be Great"
+# Sermon 1760 | "He Shall Be Great"
 
 (No. 1760)
 

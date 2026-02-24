@@ -1,4 +1,4 @@
-# The Best War Cry
+# Sermon 1709 | The Best War Cry
 
 (No. 1709)
 

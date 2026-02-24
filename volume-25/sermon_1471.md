@@ -1,4 +1,4 @@
-# Concealing the Words of God
+# Sermon 1471 | Concealing the Words of God
 
 (No. 1471)
 

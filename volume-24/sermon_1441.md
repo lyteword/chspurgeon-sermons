@@ -1,4 +1,4 @@
-# The Prosperous Man's Reminder
+# Sermon 1441 | The Prosperous Man's Reminder
 
 (No. 1441)
 

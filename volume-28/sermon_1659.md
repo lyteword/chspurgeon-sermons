@@ -1,4 +1,4 @@
-# A Feast for the Upright
+# Sermon 1659 | A Feast for the Upright
 
 (No. 1659)
 

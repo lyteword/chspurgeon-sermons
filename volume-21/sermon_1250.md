@@ -1,4 +1,4 @@
-# The Priest Dispensed With
+# Sermon 1250 | The Priest Dispensed With
 
 (No. 1250)
 

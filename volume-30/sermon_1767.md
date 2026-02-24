@@ -1,4 +1,4 @@
-# Faith Among Mockers
+# Sermon 1767 | Faith Among Mockers
 
 (No. 1767)
 

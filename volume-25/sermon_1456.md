@@ -1,4 +1,4 @@
-# Peace--a Fact and a Feeling
+# Sermon 1456 | Peace--a Fact and a Feeling
 
 (No. 1456)
 

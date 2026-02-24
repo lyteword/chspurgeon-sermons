@@ -1,4 +1,4 @@
-# Humility, the Friend of Prayer
+# Sermon 1787 | Humility, the Friend of Prayer
 
 (No. 1787)
 

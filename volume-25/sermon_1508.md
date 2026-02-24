@@ -1,4 +1,4 @@
-# The Philosophy of Promise
+# Sermon 1508 | The Philosophy of Promise
 
 (No. 1508)
 

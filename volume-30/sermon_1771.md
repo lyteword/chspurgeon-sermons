@@ -1,4 +1,4 @@
-# Putting the Hand Upon the Head of the Sacrifice
+# Sermon 1771 | Putting the Hand Upon the Head of the Sacrifice
 
 (No. 1771)
 
