@@ -1,4 +1,4 @@
-# A Challenge and War Cry
+# Sermon 2929 | A Challenge and War Cry
 
 (No. 2929)
 

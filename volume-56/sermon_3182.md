@@ -1,4 +1,4 @@
-# Boldness at the Throne
+# Sermon 3182 | Boldness at the Throne
 
 (No. 3182)
 

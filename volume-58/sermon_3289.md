@@ -1,4 +1,4 @@
-# The Sealed Hand--a Winter Sermon
+# Sermon 3289 | The Sealed Hand--a Winter Sermon
 
 (No. 3289)
 

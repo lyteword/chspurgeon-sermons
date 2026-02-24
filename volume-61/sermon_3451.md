@@ -1,4 +1,4 @@
-# Grand Glorying
+# Sermon 3451 | Grand Glorying
 
 (No. 3451)
 

@@ -1,4 +1,4 @@
-# "The Zeal of the Lord"
+# Sermon 3432 | "The Zeal of the Lord"
 
 (No. 3432)
 

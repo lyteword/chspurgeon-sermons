@@ -1,4 +1,4 @@
-# What Christians Were and Are
+# Sermon 3198 | What Christians Were and Are
 
 (No. 3198)
 

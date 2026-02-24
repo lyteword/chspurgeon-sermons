@@ -1,4 +1,4 @@
-# A Stir--and What Came of It
+# Sermon 2939 | A Stir--and What Came of It
 
 (No. 2939)
 

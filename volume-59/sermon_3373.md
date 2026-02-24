@@ -1,4 +1,4 @@
-# Man's Scorn and God's Succor
+# Sermon 3373 | Man's Scorn and God's Succor
 
 (No. 3373)
 

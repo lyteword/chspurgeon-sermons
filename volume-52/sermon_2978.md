@@ -1,4 +1,4 @@
-# Power With God
+# Sermon 2978 | Power With God
 
 (No. 2978)
 

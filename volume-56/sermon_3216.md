@@ -1,4 +1,4 @@
-# The Two Gatherings
+# Sermon 3216 | The Two Gatherings
 
 (No. 3216)
 

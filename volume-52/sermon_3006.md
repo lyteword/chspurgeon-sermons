@@ -1,4 +1,4 @@
-# "The Lord Is My Shepherd"
+# Sermon 3006 | "The Lord Is My Shepherd"
 
 (No. 3006)
 

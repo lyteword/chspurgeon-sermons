@@ -1,4 +1,4 @@
-# Thought Condemned, Yet Commanded
+# Sermon 2973 | Thought Condemned, Yet Commanded
 
 (No. 2973)
 

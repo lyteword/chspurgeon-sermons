@@ -1,4 +1,4 @@
-# Struggling Against Sin
+# Sermon 3482 | Struggling Against Sin
 
 (No. 3482)
 

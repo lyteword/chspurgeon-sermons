@@ -1,4 +1,4 @@
-# Preventing Grace
+# Sermon 2924 | Preventing Grace
 
 (No. 2924)
 

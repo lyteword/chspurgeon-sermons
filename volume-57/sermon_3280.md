@@ -1,4 +1,4 @@
-# Christ's Prayer and Plea
+# Sermon 3280 | Christ's Prayer and Plea
 
 (No. 3280)
 

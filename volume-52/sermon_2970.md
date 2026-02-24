@@ -1,4 +1,4 @@
-# God's Jewels
+# Sermon 2970 | God's Jewels
 
 (No. 2970)
 

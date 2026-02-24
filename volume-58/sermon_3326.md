@@ -1,4 +1,4 @@
-# The Wondrous Covenant
+# Sermon 3326 | The Wondrous Covenant
 
 (No. 3326)
 

@@ -1,4 +1,4 @@
-# Faith in Christ
+# Sermon 3095 | Faith in Christ
 
 (No. 3095)
 

@@ -1,4 +1,4 @@
-# Unmitigated Prosperity
+# Sermon 2963 | Unmitigated Prosperity
 
 (No. 2963)
 

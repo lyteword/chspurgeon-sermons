@@ -1,4 +1,4 @@
-# Cleansing--Wrong Or Right?
+# Sermon 3069 | Cleansing--Wrong Or Right?
 
 (No. 3069)
 

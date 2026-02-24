@@ -1,4 +1,4 @@
-# Not Boasting, But Trusting
+# Sermon 3408 | Not Boasting, But Trusting
 
 (No. 3408)
 

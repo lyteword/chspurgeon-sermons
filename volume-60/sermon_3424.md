@@ -1,4 +1,4 @@
-# Meat Indeed, and Drink Indeed
+# Sermon 3424 | Meat Indeed, and Drink Indeed
 
 (No. 3424)
 

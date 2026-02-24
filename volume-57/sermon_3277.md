@@ -1,4 +1,4 @@
-# Good Cheer From Christ's Call and From Himself
+# Sermon 3277 | Good Cheer From Christ's Call and From Himself
 
 (No. 3277)
 

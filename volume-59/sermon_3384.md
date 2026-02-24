@@ -1,4 +1,4 @@
-# Growth in Faith
+# Sermon 3384 | Growth in Faith
 
 (No. 3384)
 

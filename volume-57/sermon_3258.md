@@ -1,4 +1,4 @@
-# Stumbling at the Word
+# Sermon 3258 | Stumbling at the Word
 
 (No. 3258)
 

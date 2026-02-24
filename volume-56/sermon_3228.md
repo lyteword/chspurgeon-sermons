@@ -1,4 +1,4 @@
-# "Oh, How He Loves!"
+# Sermon 3228 | "Oh, How He Loves!"
 
 (No. 3228)
 

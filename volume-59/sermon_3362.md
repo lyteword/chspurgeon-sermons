@@ -1,4 +1,4 @@
-# Fearing and Trusting--trusting and Not Fearing
+# Sermon 3362 | Fearing and Trusting--trusting and Not Fearing
 
 (No. 3362)
 

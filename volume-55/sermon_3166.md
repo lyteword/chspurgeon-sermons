@@ -1,4 +1,4 @@
-# "A Greater Than Solomon"
+# Sermon 3166 | "A Greater Than Solomon"
 
 (No. 3166)
 

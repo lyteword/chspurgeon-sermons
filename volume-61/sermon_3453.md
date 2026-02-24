@@ -1,4 +1,4 @@
-# The Wandering Bird
+# Sermon 3453 | The Wandering Bird
 
 (No. 3453)
 

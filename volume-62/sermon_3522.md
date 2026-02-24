@@ -1,4 +1,4 @@
-# Christ a Sanctuary
+# Sermon 3522 | Christ a Sanctuary
 
 (No. 3522)
 

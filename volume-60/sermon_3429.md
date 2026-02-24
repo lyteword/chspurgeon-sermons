@@ -1,4 +1,4 @@
-# "Accepted in the Beloved"
+# Sermon 3429 | "Accepted in the Beloved"
 
 (No. 3429)
 

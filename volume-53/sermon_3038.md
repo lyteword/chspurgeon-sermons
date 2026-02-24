@@ -1,4 +1,4 @@
-# Justice Vindicated And Righteousness Exemplified
+# Sermon 3038 | Justice Vindicated And Righteousness Exemplified
 
 (No. 3038)
 

@@ -1,4 +1,4 @@
-# Our Glorious Leader
+# Sermon 3545 | Our Glorious Leader
 
 (No. 3545)
 

@@ -1,4 +1,4 @@
-# Vanity Deprecated
+# Sermon 3026 | Vanity Deprecated
 
 (No. 3026)
 

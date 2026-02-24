@@ -1,4 +1,4 @@
-# Gathering in the Chosen
+# Sermon 3308 | Gathering in the Chosen
 
 (No. 3308)
 

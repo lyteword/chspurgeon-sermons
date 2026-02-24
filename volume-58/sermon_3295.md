@@ -1,4 +1,4 @@
-# Communion With Christ and His People
+# Sermon 3295 | Communion With Christ and His People
 
 (No. 3295)
 

@@ -1,4 +1,4 @@
-# Christ Made Sin
+# Sermon 3203 | Christ Made Sin
 
 (No. 3203)
 

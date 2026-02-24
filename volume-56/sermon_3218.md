@@ -1,4 +1,4 @@
-# Preaching Christ Crucified
+# Sermon 3218 | Preaching Christ Crucified
 
 (No. 3218)
 

@@ -1,4 +1,4 @@
-# Very Singular
+# Sermon 2995 | Very Singular
 
 (No. 2995)
 

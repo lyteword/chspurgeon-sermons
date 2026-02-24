@@ -1,4 +1,4 @@
-# The Curse Removed
+# Sermon 3254 | The Curse Removed
 
 (No. 3254)
 

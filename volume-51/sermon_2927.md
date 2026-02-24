@@ -1,4 +1,4 @@
-# Love at Leisure
+# Sermon 2927 | Love at Leisure
 
 (No. 2927)
 

@@ -1,4 +1,4 @@
-# Our Glorious Transforming
+# Sermon 3496 | Our Glorious Transforming
 
 A Sermon
 

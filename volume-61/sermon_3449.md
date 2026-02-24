@@ -1,4 +1,4 @@
-# Buying the Truth
+# Sermon 3449 | Buying the Truth
 
 (No. 3449)
 

@@ -1,4 +1,4 @@
-# Christ's Joy and Ours
+# Sermon 2935 | Christ's Joy and Ours
 
 (No. 2935)
 

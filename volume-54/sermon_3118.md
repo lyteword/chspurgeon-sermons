@@ -1,4 +1,4 @@
-# What Had Become of Peter?
+# Sermon 3118 | What Had Become of Peter?
 
 (No. 3118)
 

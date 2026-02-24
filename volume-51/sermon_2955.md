@@ -1,4 +1,4 @@
-# Simple But Sound
+# Sermon 2955 | Simple But Sound
 
 (No. 2955)
 

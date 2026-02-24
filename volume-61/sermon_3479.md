@@ -1,4 +1,4 @@
-# All of Grace
+# Sermon 3479 | All of Grace
 
 (No. 3479)
 

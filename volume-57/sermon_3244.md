@@ -1,4 +1,4 @@
-# "Our Light Affliction"
+# Sermon 3244 | "Our Light Affliction"
 
 (No. 3244)
 

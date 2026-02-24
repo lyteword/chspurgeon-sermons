@@ -1,4 +1,4 @@
-# A Vivid Contrast
+# Sermon 3003 | A Vivid Contrast
 
 (No. 3003)
 

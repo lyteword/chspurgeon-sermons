@@ -1,4 +1,4 @@
-# Simple Fact and Simple Faith
+# Sermon 3547 | Simple Fact and Simple Faith
 
 (No. 3547)
 

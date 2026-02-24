@@ -1,4 +1,4 @@
-# A Comprehensive Benediction
+# Sermon 3179 | A Comprehensive Benediction
 
 (No. 3179)
 

@@ -1,4 +1,4 @@
-# Christ Seen as God's Salvation
+# Sermon 3177 | Christ Seen as God's Salvation
 
 (No. 3177)
 

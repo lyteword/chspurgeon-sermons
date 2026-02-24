@@ -1,4 +1,4 @@
-# The Blood of Christ's Covenant
+# Sermon 3240 | The Blood of Christ's Covenant
 
 (No. 3240)
 

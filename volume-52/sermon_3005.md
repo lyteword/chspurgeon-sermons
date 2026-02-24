@@ -1,4 +1,4 @@
-# Silken Cords
+# Sermon 3005 | Silken Cords
 
 (No. 3005)
 

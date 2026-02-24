@@ -1,4 +1,4 @@
-# Proving God
+# Sermon 3036 | Proving God
 
 (No. 3036)
 

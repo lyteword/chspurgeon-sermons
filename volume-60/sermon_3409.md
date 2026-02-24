@@ -1,4 +1,4 @@
-# Seeking Richly Rewarded
+# Sermon 3409 | Seeking Richly Rewarded
 
 (No. 3409)
 

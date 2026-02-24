@@ -1,4 +1,4 @@
-# Scales Taken From the Eyes
+# Sermon 3205 | Scales Taken From the Eyes
 
 (No. 3205)
 

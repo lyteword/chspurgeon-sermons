@@ -1,4 +1,4 @@
-# A Suitable Watchword
+# Sermon 3097 | A Suitable Watchword
 
 (No. 3097)
 

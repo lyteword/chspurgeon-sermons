@@ -1,4 +1,4 @@
-# Christ's Glory Turned to Shame
+# Sermon 3276 | Christ's Glory Turned to Shame
 
 (No. 3276)
 

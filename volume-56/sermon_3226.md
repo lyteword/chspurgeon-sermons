@@ -1,4 +1,4 @@
-# Figs and Olives
+# Sermon 3226 | Figs and Olives
 
 (No. 3226)
 

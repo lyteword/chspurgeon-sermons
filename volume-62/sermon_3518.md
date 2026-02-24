@@ -1,4 +1,4 @@
-# The Powerful Truth of God
+# Sermon 3518 | The Powerful Truth of God
 
 (No. 3518)
 

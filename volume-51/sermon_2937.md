@@ -1,4 +1,4 @@
-# Too Little for the Lamb
+# Sermon 2937 | Too Little for the Lamb
 
 (No. 2937)
 

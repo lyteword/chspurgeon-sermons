@@ -1,4 +1,4 @@
-# Christ Loosens From Infirmities
+# Sermon 3195 | Christ Loosens From Infirmities
 
 (No. 3195)
 

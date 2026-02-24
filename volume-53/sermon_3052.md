@@ -1,4 +1,4 @@
-# Christ's Loneliness and Ours
+# Sermon 3052 | Christ's Loneliness and Ours
 
 (No. 3052)
 

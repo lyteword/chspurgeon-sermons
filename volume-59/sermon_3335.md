@@ -1,4 +1,4 @@
-# The Divine Discipline
+# Sermon 3335 | The Divine Discipline
 
 (No. 3335)
 

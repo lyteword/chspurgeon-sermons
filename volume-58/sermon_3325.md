@@ -1,4 +1,4 @@
-# Solace for Sad Hearts
+# Sermon 3325 | Solace for Sad Hearts
 
 (No. 3325)
 

@@ -1,4 +1,4 @@
-# "As" and "So"
+# Sermon 3173 | "As" and "So"
 
 (No. 3173)
 

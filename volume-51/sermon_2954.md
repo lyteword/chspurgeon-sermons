@@ -1,4 +1,4 @@
-# The Big Gates Wide Open
+# Sermon 2954 | The Big Gates Wide Open
 
 (No. 2954)
 

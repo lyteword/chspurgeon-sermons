@@ -1,4 +1,4 @@
-# With or Without Shedding of Blood
+# Sermon 2951 | With or Without Shedding of Blood
 
 (No. 2951)
 

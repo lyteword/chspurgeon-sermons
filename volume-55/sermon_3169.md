@@ -1,4 +1,4 @@
-# The Believer's Present Rest
+# Sermon 3169 | The Believer's Present Rest
 
 (No. 3169)
 

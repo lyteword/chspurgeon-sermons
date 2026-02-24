@@ -1,4 +1,4 @@
-# The Soul's Awakening
+# Sermon 3389 | The Soul's Awakening
 
 (No. 3389)
 

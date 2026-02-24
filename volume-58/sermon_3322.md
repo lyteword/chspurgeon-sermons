@@ -1,4 +1,4 @@
-# Hiding Among the Stuff
+# Sermon 3322 | Hiding Among the Stuff
 
 (No. 3322)
 

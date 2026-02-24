@@ -1,4 +1,4 @@
-# Jesus Christ's Idiom
+# Sermon 3053 | Jesus Christ's Idiom
 
 (No. 3053)
 

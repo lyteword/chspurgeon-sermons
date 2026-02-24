@@ -1,4 +1,4 @@
-# Our Position and Our Purpose
+# Sermon 3245 | Our Position and Our Purpose
 
 (No. 3245)
 

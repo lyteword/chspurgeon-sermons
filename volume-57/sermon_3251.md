@@ -1,4 +1,4 @@
-# Christ the Tree of Life
+# Sermon 3251 | Christ the Tree of Life
 
 (No. 3251)
 

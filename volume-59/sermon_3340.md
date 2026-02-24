@@ -1,4 +1,4 @@
-# "Take Away the Frogs"
+# Sermon 3340 | "Take Away the Frogs"
 
 (No. 3340)
 

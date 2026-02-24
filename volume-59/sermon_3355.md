@@ -1,4 +1,4 @@
-# Life's Inevitable Burden
+# Sermon 3355 | Life's Inevitable Burden
 
 (No. 3355)
 

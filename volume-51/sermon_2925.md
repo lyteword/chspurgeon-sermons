@@ -1,4 +1,4 @@
-# Reasons For Doubting Christ
+# Sermon 2925 | Reasons For Doubting Christ
 
 (No. 2925)
 

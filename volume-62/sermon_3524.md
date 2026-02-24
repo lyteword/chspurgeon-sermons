@@ -1,4 +1,4 @@
-# "Do I Love the Lord or Not?"
+# Sermon 3524 | "Do I Love the Lord or Not?"
 
 (No. 3524)
 

@@ -1,4 +1,4 @@
-# Clinging to Christ
+# Sermon 3210 | Clinging to Christ
 
 (No. 3210)
 

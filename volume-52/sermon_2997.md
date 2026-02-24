@@ -1,4 +1,4 @@
-# "Tempted of the Devil"
+# Sermon 2997 | "Tempted of the Devil"
 
 (No. 2997)
 

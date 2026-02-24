@@ -1,4 +1,4 @@
-# Faith Justifying Speech
+# Sermon 3200 | Faith Justifying Speech
 
 (No. 3200)
 

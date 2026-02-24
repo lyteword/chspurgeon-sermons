@@ -1,4 +1,4 @@
-# What We Have, and Are to Have
+# Sermon 2991 | What We Have, and Are to Have
 
 (No. 2991)
 

@@ -1,4 +1,4 @@
-# Araunah's Threshing Floor
+# Sermon 3477 | Araunah's Threshing Floor
 
 (No. 3477)
 

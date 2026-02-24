@@ -1,4 +1,4 @@
-# Beggars Becoming Princes
+# Sermon 3256 | Beggars Becoming Princes
 
 (No. 3256)
 

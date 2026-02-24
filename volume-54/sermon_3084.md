@@ -1,4 +1,4 @@
-# Paul's Parenthesis
+# Sermon 3084 | Paul's Parenthesis
 
 (No. 3084)
 

@@ -1,4 +1,4 @@
-# The Suffering Christ Satisfied
+# Sermon 3465 | The Suffering Christ Satisfied
 
 (No. 3465)
 

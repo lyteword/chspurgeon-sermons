@@ -1,4 +1,4 @@
-# The Covenant
+# Sermon 3261 | The Covenant
 
 (No. 3261)
 

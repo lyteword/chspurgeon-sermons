@@ -1,4 +1,4 @@
-# Assurance Sought
+# Sermon 3546 | Assurance Sought
 
 (No. 3546)
 

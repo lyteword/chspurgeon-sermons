@@ -1,4 +1,4 @@
-# The Faithful Olive Tree
+# Sermon 3208 | The Faithful Olive Tree
 
 (No. 3208)
 

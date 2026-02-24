@@ -1,4 +1,4 @@
-# Salvation As It Is Now Received
+# Sermon 3223 | Salvation As It Is Now Received
 
 (No. 3223)
 

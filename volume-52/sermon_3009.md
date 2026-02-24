@@ -1,4 +1,4 @@
-# Our Champion
+# Sermon 3009 | Our Champion
 
 (No. 3009)
 

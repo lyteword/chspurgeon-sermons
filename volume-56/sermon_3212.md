@@ -1,4 +1,4 @@
-# A Command and a Promise
+# Sermon 3212 | A Command and a Promise
 
 (No. 3212)
 

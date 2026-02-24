@@ -1,4 +1,4 @@
-# The Great Pot and the Twenty Loaves
+# Sermon 3187 | The Great Pot and the Twenty Loaves
 
 (No. 3187)
 

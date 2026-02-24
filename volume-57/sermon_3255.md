@@ -1,4 +1,4 @@
-# The Pearl of Patience
+# Sermon 3255 | The Pearl of Patience
 
 (No. 3255)
 

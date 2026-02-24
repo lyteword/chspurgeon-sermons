@@ -1,4 +1,4 @@
-# Man Transient--god's Word Eternal
+# Sermon 3439 | Man Transient--god's Word Eternal
 
 (No. 3439)
 

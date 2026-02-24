@@ -1,4 +1,4 @@
-# God, the Husband of His People
+# Sermon 3419 | God, the Husband of His People
 
 (No. 3419)
 

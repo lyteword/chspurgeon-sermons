@@ -1,4 +1,4 @@
-# Deliverance From the Power of Darkness
+# Sermon 3366 | Deliverance From the Power of Darkness
 
 (No. 3366)
 

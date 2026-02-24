@@ -1,4 +1,4 @@
-# The Saints' Riches
+# Sermon 3204 | The Saints' Riches
 
 (No. 3204)
 

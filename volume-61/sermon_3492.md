@@ -1,4 +1,4 @@
-# God's Word Not to Be Refused
+# Sermon 3492 | God's Word Not to Be Refused
 
 (No. 3492)
 

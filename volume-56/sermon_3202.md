@@ -1,4 +1,4 @@
-# "It Pleased God"
+# Sermon 3202 | "It Pleased God"
 
 (No. 3202)
 

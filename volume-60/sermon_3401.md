@@ -1,4 +1,4 @@
-# Sharing Christ's Life
+# Sermon 3401 | Sharing Christ's Life
 
 (No. 3401)
 

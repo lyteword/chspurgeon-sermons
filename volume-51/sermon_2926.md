@@ -1,4 +1,4 @@
-# The Love of Our Espousals
+# Sermon 2926 | The Love of Our Espousals
 
 (No. 2926)
 

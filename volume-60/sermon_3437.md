@@ -1,4 +1,4 @@
-# Friendship's Guide
+# Sermon 3437 | Friendship's Guide
 
 (No. 3437)
 

@@ -1,4 +1,4 @@
-# The Christian's Helmet
+# Sermon 3167 | The Christian's Helmet
 
 (No. 3167)
 

@@ -1,4 +1,4 @@
-# Our Magnificent Savior
+# Sermon 3554 | Our Magnificent Savior
 
 (No. 3554)
 

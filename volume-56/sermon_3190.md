@@ -1,4 +1,4 @@
-# Christ in Gethsemane
+# Sermon 3190 | Christ in Gethsemane
 
 (No. 3190)
 

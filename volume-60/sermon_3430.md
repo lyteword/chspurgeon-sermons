@@ -1,4 +1,4 @@
-# Chiding and Cheering
+# Sermon 3430 | Chiding and Cheering
 
 (No. 3430)
 

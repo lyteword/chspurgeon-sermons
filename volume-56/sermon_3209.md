@@ -1,4 +1,4 @@
-# The Priceless Prize
+# Sermon 3209 | The Priceless Prize
 
 (No. 3209)
 

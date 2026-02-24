@@ -1,4 +1,4 @@
-# The Christian's Manifestation
+# Sermon 3004 | The Christian's Manifestation
 
 (No. 3004)
 

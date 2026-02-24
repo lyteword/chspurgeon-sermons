@@ -1,4 +1,4 @@
-# God's King Magnified
+# Sermon 3333 | God's King Magnified
 
 (No. 3333)
 

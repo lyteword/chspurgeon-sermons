@@ -1,4 +1,4 @@
-# The Priesthood of Believers
+# Sermon 3266 | The Priesthood of Believers
 
 (No. 3266)
 

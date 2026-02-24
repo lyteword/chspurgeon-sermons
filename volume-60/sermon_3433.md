@@ -1,4 +1,4 @@
-# Love's Reward
+# Sermon 3433 | Love's Reward
 
 (No. 3433)
 

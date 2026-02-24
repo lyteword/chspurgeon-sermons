@@ -1,4 +1,4 @@
-# Plowing Rock
+# Sermon 2977 | Plowing Rock
 
 (No. 2977)
 

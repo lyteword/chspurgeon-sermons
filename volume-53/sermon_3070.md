@@ -1,4 +1,4 @@
-# A Visit to Christ's Hospital
+# Sermon 3070 | A Visit to Christ's Hospital
 
 (No. 3070)
 

@@ -1,4 +1,4 @@
-# Christ and His Hearers
+# Sermon 3410 | Christ and His Hearers
 
 (No. 3410)
 

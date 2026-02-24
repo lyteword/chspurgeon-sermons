@@ -1,4 +1,4 @@
-# Justification by Faith
+# Sermon 3392 | Justification by Faith
 
 (No. 3392)
 

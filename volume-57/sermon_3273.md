@@ -1,4 +1,4 @@
-# A Sermon to Ministers and Other Tried Believers
+# Sermon 3273 | A Sermon to Ministers and Other Tried Believers
 
 (No. 3273)
 

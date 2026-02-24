@@ -1,4 +1,4 @@
-# Great Pardon for Great Sin
+# Sermon 2988 | Great Pardon for Great Sin
 
 (No. 2988)
 

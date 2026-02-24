@@ -1,4 +1,4 @@
-# Preparing for the Week of Prayer
+# Sermon 3282 | Preparing for the Week of Prayer
 
 (No. 3282)
 

@@ -1,4 +1,4 @@
-# The Saint's Trials and the Divine Deliverances
+# Sermon 3548 | The Saint's Trials and the Divine Deliverances
 
 (No. 3548)
 

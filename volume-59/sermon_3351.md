@@ -1,4 +1,4 @@
-# The Queen of Sheba
+# Sermon 3351 | The Queen of Sheba
 
 (No. 3351)
 

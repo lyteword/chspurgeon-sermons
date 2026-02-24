@@ -1,4 +1,4 @@
-# "The Lamb of God"
+# Sermon 3222 | "The Lamb of God"
 
 (No. 3222)
 

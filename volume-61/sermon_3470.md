@@ -1,4 +1,4 @@
-# An Earnest Entreaty
+# Sermon 3470 | An Earnest Entreaty
 
 (No. 3470)
 

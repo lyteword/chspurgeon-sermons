@@ -1,4 +1,4 @@
-# Praise Comely to the Upright
+# Sermon 3460 | Praise Comely to the Upright
 
 (No. 3460)
 

@@ -1,4 +1,4 @@
-# "Heirs of God"
+# Sermon 2961 | "Heirs of God"
 
 (No. 2961)
 

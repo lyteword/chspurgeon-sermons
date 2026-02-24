@@ -1,4 +1,4 @@
-# Finding and Following Christ
+# Sermon 3225 | Finding and Following Christ
 
 (No. 3225)
 

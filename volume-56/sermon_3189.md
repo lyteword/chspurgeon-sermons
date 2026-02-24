@@ -1,4 +1,4 @@
-# The Tenderness of God's Comfort
+# Sermon 3189 | The Tenderness of God's Comfort
 
 (No. 3189)
 

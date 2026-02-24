@@ -1,4 +1,4 @@
-# The Holy Spirit in the Covenant
+# Sermon 3048 | The Holy Spirit in the Covenant
 
 (No. 3048)
 

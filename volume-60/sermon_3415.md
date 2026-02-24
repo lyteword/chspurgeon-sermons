@@ -1,4 +1,4 @@
-# Right-hand Sins
+# Sermon 3415 | Right-hand Sins
 
 (No. 3415)
 

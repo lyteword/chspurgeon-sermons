@@ -1,4 +1,4 @@
-# "His Great Love"
+# Sermon 2968 | "His Great Love"
 
 (No. 2968)
 

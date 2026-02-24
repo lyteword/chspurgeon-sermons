@@ -1,4 +1,4 @@
-# The Poor Man's Friend
+# Sermon 3059 | The Poor Man's Friend
 
 (No. 3059)
 

@@ -1,4 +1,4 @@
-# A View of God's Glory
+# Sermon 3120 | A View of God's Glory
 
 (No. 3120)
 

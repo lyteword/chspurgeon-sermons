@@ -1,4 +1,4 @@
-# Homage Offered to the Great King
+# Sermon 3100 | Homage Offered to the Great King
 
 (No. 3100)
 

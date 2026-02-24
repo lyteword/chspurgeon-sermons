@@ -1,4 +1,4 @@
-# Two Ancient Proverbs
+# Sermon 3080 | Two Ancient Proverbs
 
 (No. 3080)
 

@@ -1,4 +1,4 @@
-# "A Kind of First Fruits"
+# Sermon 3275 | "A Kind of First Fruits"
 
 (No. 3275)
 

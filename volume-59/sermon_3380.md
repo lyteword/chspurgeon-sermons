@@ -1,4 +1,4 @@
-# Our Lord's Voluntary Poverty
+# Sermon 3380 | Our Lord's Voluntary Poverty
 
 (No. 3380)
 

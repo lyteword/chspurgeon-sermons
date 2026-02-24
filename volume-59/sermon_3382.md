@@ -1,4 +1,4 @@
-# Our Lord's Transcendent Greatness
+# Sermon 3382 | Our Lord's Transcendent Greatness
 
 (No. 3382)
 

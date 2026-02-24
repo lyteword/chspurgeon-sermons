@@ -1,4 +1,4 @@
-# The Honored Guest
+# Sermon 3487 | The Honored Guest
 
 (No. 3487)
 

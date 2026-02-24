@@ -1,4 +1,4 @@
-# The Only Door
+# Sermon 3287 | The Only Door
 
 (No. 3287)
 

@@ -1,4 +1,4 @@
-# Ears Bored to the Doorpost
+# Sermon 3337 | Ears Bored to the Doorpost
 
 (No. 3337)
 

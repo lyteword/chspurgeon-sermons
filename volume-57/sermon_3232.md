@@ -1,4 +1,4 @@
-# Facts and Inferences
+# Sermon 3232 | Facts and Inferences
 
 (No. 3232)
 

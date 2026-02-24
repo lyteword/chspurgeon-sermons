@@ -1,4 +1,4 @@
-# A Type and Its Teaching
+# Sermon 3523 | A Type and Its Teaching
 
 (No. 3523)
 

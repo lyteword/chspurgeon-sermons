@@ -1,4 +1,4 @@
-# The Gospel in Power
+# Sermon 3551 | The Gospel in Power
 
 (No. 3551)
 

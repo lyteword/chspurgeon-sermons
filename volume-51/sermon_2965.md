@@ -1,4 +1,4 @@
-# Prepared to Meet God
+# Sermon 2965 | Prepared to Meet God
 
 (No. 2965)
 

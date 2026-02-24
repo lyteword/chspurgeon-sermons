@@ -1,4 +1,4 @@
-# A Procession of Cross-bearers
+# Sermon 2946 | A Procession of Cross-bearers
 
 (No. 2946)
 

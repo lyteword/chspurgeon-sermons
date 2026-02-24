@@ -1,4 +1,4 @@
-# The Lord's Eternal Rest
+# Sermon 3294 | The Lord's Eternal Rest
 
 (No. 3294)
 

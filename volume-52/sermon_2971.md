@@ -1,4 +1,4 @@
-# The Right Kind of Fear
+# Sermon 2971 | The Right Kind of Fear
 
 (No. 2971)
 

@@ -1,4 +1,4 @@
-# A Golden Sentence
+# Sermon 3135 | A Golden Sentence
 
 (No. 3135)
 

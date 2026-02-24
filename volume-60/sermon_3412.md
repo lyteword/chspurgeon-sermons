@@ -1,4 +1,4 @@
-# The Heavenly Rainbow
+# Sermon 3412 | The Heavenly Rainbow
 
 (No. 3412)
 

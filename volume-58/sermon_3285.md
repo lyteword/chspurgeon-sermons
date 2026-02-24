@@ -1,4 +1,4 @@
-# Good Cheer From Christ's Victory Over the World
+# Sermon 3285 | Good Cheer From Christ's Victory Over the World
 
 (No. 3285)
 

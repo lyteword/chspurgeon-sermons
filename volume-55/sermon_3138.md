@@ -1,4 +1,4 @@
-# Mocking the King
+# Sermon 3138 | Mocking the King
 
 (No. 3138)
 

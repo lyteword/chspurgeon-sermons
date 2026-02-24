@@ -1,4 +1,4 @@
-# The Divided Heart
+# Sermon 3527 | The Divided Heart
 
 (No. 3527)
 

@@ -1,4 +1,4 @@
-# A Promise and a Providence
+# Sermon 3528 | A Promise and a Providence
 
 (No. 3528)
 

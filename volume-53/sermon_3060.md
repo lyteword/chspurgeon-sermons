@@ -1,4 +1,4 @@
-# The Good Shepherd
+# Sermon 3060 | The Good Shepherd
 
 (No. 3060)
 

@@ -1,4 +1,4 @@
-# The Rule of Christ
+# Sermon 2998 | The Rule of Christ
 
 (No. 2998)
 

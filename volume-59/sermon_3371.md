@@ -1,4 +1,4 @@
-# Two Choice Benedictions
+# Sermon 3371 | Two Choice Benedictions
 
 (No. 3371)
 

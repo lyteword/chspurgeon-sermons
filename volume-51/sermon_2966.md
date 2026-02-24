@@ -1,4 +1,4 @@
-# Resistance to Salvation
+# Sermon 2966 | Resistance to Salvation
 
 (No. 2966)
 

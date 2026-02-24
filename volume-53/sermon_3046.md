@@ -1,4 +1,4 @@
-# One of the Master's Choice Sayings
+# Sermon 3046 | One of the Master's Choice Sayings
 
 (No. 3046)
 

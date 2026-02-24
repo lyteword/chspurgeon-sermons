@@ -1,4 +1,4 @@
-# Gathering Without Planting
+# Sermon 3248 | Gathering Without Planting
 
 (No. 3248)
 

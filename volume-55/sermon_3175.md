@@ -1,4 +1,4 @@
-# "Peace! Perfect Peace!"
+# Sermon 3175 | "Peace! Perfect Peace!"
 
 (No. 3175)
 

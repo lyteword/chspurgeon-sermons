@@ -1,4 +1,4 @@
-# One Aspect of Christ's Death
+# Sermon 2986 | One Aspect of Christ's Death
 
 (No. 2986)
 

@@ -1,4 +1,4 @@
-# Christ Our Peace
+# Sermon 3386 | Christ Our Peace
 
 (No. 3386)
 

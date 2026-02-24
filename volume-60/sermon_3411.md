@@ -1,4 +1,4 @@
-# Joining the Church
+# Sermon 3411 | Joining the Church
 
 (No. 3411)
 

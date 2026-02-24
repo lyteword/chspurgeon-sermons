@@ -1,4 +1,4 @@
-# Lessons From Christ's Baptism
+# Sermon 3298 | Lessons From Christ's Baptism
 
 (No. 3298)
 

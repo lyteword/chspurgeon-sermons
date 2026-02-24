@@ -1,4 +1,4 @@
-# Speaking on God's Behalf
+# Sermon 3543 | Speaking on God's Behalf
 
 (No. 3543)
 

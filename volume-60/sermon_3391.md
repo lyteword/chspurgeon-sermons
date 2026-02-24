@@ -1,4 +1,4 @@
-# Preparation for the Lord's Supper
+# Sermon 3391 | Preparation for the Lord's Supper
 
 (No. 3391)
 

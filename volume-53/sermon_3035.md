@@ -1,4 +1,4 @@
-# Enquiring the Way to Zion
+# Sermon 3035 | Enquiring the Way to Zion
 
 (No. 3035)
 

@@ -1,4 +1,4 @@
-# Strong Faith in a Faithful God
+# Sermon 3445 | Strong Faith in a Faithful God
 
 (No. 3445)
 

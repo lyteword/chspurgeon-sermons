@@ -1,4 +1,4 @@
-# Woe and Weal
+# Sermon 3239 | Woe and Weal
 
 (No. 3239)
 

@@ -1,4 +1,4 @@
-# 'That Day' and Its Disclosure"
+# Sermon 3531 | 'That Day' and Its Disclosure"
 
 (No. 3531)
 

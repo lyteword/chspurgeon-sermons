@@ -1,4 +1,4 @@
-# A Clear Understanding
+# Sermon 3305 | A Clear Understanding
 
 (No. 3305)
 

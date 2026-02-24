@@ -1,4 +1,4 @@
-# Pictures of Life
+# Sermon 3126 | Pictures of Life
 
 (No. 3126)
 

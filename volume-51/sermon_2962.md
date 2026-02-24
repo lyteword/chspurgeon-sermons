@@ -1,4 +1,4 @@
-# Diamond Hinges--"as" and "so"
+# Sermon 2962 | Diamond Hinges--"as" and "so"
 
 (No. 2962)
 

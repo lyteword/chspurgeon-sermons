@@ -1,4 +1,4 @@
-# The Happy Beggar
+# Sermon 3040 | The Happy Beggar
 
 (No. 3040)
 

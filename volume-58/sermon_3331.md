@@ -1,4 +1,4 @@
-# Knowing and Believing
+# Sermon 3331 | Knowing and Believing
 
 (No. 3331)
 

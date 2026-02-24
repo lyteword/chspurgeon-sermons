@@ -1,4 +1,4 @@
-# Faith in Christ's Ability
+# Sermon 3302 | Faith in Christ's Ability
 
 (No. 3302)
 

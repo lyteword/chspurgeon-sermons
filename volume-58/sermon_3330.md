@@ -1,4 +1,4 @@
-# Two Choice Assurances
+# Sermon 3330 | Two Choice Assurances
 
 (No. 3330)
 

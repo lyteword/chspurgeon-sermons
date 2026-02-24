@@ -1,4 +1,4 @@
-# Good Cheer From Christ's Real Presence
+# Sermon 3128 | Good Cheer From Christ's Real Presence
 
 (No. 3128)
 

@@ -1,4 +1,4 @@
-# The Sequel to Divine Sovereignty
+# Sermon 3284 | The Sequel to Divine Sovereignty
 
 (No. 3284)
 

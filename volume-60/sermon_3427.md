@@ -1,4 +1,4 @@
-# The Blessed Christ
+# Sermon 3427 | The Blessed Christ
 
 (No. 3427)
 

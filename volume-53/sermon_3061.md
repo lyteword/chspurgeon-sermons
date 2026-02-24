@@ -1,4 +1,4 @@
-# The Rule of Grace
+# Sermon 3061 | The Rule of Grace
 
 (No. 3061)
 

@@ -1,4 +1,4 @@
-# Facing the Wind
+# Sermon 2918 | Facing the Wind
 
 (No. 2918)
 

@@ -1,4 +1,4 @@
-# "Christ Is All"
+# Sermon 3446 | "Christ Is All"
 
 (No. 3446)
 

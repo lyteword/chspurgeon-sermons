@@ -1,4 +1,4 @@
-# The Church of God and the Truth of God
+# Sermon 3093 | The Church of God and the Truth of God
 
 (No. 3093)
 

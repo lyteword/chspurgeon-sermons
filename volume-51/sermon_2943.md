@@ -1,4 +1,4 @@
-# Restraining Prayer
+# Sermon 2943 | Restraining Prayer
 
 (No. 2943)
 

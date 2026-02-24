@@ -1,4 +1,4 @@
-# A Bold Challenge Justified
+# Sermon 3067 | A Bold Challenge Justified
 
 (No. 3067)
 

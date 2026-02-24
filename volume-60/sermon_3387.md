@@ -1,4 +1,4 @@
-# A New Year's Benediction
+# Sermon 3387 | A New Year's Benediction
 
 (No. 3387)
 

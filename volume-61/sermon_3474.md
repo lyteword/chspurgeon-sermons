@@ -1,4 +1,4 @@
-# Blessings Manifold and Marvelous
+# Sermon 3474 | Blessings Manifold and Marvelous
 
 (No. 3474)
 

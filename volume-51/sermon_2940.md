@@ -1,4 +1,4 @@
-# "He Must Reign"
+# Sermon 2940 | "He Must Reign"
 
 (No. 2940)
 

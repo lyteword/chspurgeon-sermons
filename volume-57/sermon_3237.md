@@ -1,4 +1,4 @@
-# Our Lord's Preaching
+# Sermon 3237 | Our Lord's Preaching
 
 (No. 3237)
 

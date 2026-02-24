@@ -1,4 +1,4 @@
-# Our Lord's Posture in Ascension
+# Sermon 2949 | Our Lord's Posture in Ascension
 
 (No. 2949)
 

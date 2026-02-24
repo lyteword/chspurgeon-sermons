@@ -1,4 +1,4 @@
-# Redeeming the Unclean
+# Sermon 3458 | Redeeming the Unclean
 
 (No. 3458)
 

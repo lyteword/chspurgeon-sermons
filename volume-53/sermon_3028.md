@@ -1,4 +1,4 @@
-# God's Glory Our Rereward
+# Sermon 3028 | God's Glory Our Rereward
 
 (No. 3028)
 

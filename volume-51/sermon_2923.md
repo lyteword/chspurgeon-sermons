@@ -1,4 +1,4 @@
-# The Singing Army
+# Sermon 2923 | The Singing Army
 
 (No. 2923)
 

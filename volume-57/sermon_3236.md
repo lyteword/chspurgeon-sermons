@@ -1,4 +1,4 @@
-# The Gospel Cordial
+# Sermon 3236 | The Gospel Cordial
 
 (No. 3236)
 

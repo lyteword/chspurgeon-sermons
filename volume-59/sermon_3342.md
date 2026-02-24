@@ -1,4 +1,4 @@
-# Faith Seeing God's Glory
+# Sermon 3342 | Faith Seeing God's Glory
 
 (No. 3342)
 

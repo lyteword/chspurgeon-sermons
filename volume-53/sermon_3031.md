@@ -1,4 +1,4 @@
-# "The Shadow of a Great Rock"
+# Sermon 3031 | "The Shadow of a Great Rock"
 
 (No. 3031)
 

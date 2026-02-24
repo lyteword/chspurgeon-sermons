@@ -1,4 +1,4 @@
-# The Truly Blessed Man
+# Sermon 3270 | The Truly Blessed Man
 
 (No. 3270)
 

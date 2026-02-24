@@ -1,4 +1,4 @@
-# Recruits for the King
+# Sermon 3533 | Recruits for the King
 
 (No. 3533)
 

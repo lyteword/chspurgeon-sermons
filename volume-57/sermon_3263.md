@@ -1,4 +1,4 @@
-# Intelligent Obedience
+# Sermon 3263 | Intelligent Obedience
 
 (No. 3263)
 

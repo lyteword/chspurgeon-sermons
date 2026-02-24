@@ -1,4 +1,4 @@
-# A Vision of the King
+# Sermon 3238 | A Vision of the King
 
 (No. 3238)
 

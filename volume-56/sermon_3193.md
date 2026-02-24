@@ -1,4 +1,4 @@
-# The Man Whose Hand Stuck to His Sword
+# Sermon 3193 | The Man Whose Hand Stuck to His Sword
 
 (No. 3193)
 

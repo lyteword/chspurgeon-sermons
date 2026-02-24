@@ -1,4 +1,4 @@
-# Guests for the Royal Feast
+# Sermon 3328 | Guests for the Royal Feast
 
 (No. 3328)
 

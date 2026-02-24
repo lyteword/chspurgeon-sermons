@@ -1,4 +1,4 @@
-# Strangers and Sojourners
+# Sermon 3234 | Strangers and Sojourners
 
 (No. 3234)
 

@@ -1,4 +1,4 @@
-# The Strait Gate
+# Sermon 3560 | The Strait Gate
 
 (No. 3560)
 

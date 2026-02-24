@@ -1,4 +1,4 @@
-# The Church--the World's Hope
+# Sermon 2952 | The Church--the World's Hope
 
 (No. 2952)
 

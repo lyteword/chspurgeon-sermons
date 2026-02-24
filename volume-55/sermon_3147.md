@@ -1,4 +1,4 @@
-# God's Glory in the Building Up of Zion
+# Sermon 3147 | God's Glory in the Building Up of Zion
 
 (No. 3147)
 

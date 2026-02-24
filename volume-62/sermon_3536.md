@@ -1,4 +1,4 @@
-# A Threefold Slogan
+# Sermon 3536 | A Threefold Slogan
 
 (No. 3536)
 

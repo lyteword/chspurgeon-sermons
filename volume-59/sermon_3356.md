@@ -1,4 +1,4 @@
-# David's Sublime Consolation
+# Sermon 3356 | David's Sublime Consolation
 
 (No. 3356)
 

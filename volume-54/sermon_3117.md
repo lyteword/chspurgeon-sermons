@@ -1,4 +1,4 @@
-# Eyes Opened
+# Sermon 3117 | Eyes Opened
 
 (No. 3117)
 

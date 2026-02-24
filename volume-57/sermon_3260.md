@@ -1,4 +1,4 @@
-# Spiritual Convalescence
+# Sermon 3260 | Spiritual Convalescence
 
 (No. 3260)
 

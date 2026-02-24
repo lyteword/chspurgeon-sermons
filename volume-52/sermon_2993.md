@@ -1,4 +1,4 @@
-# "That King Ahaz"
+# Sermon 2993 | "That King Ahaz"
 
 (No. 2993)
 

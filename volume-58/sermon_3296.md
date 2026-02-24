@@ -1,4 +1,4 @@
-# Praise for Jesus
+# Sermon 3296 | Praise for Jesus
 
 (No. 3296)
 

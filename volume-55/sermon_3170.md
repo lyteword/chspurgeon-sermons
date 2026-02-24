@@ -1,4 +1,4 @@
-# The Novelties of Divine Mercy
+# Sermon 3170 | The Novelties of Divine Mercy
 
 (No. 3170)
 

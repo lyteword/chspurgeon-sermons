@@ -1,4 +1,4 @@
-# Why the Gospel Is Hidden
+# Sermon 3288 | Why the Gospel Is Hidden
 
 (No. 3288)
 

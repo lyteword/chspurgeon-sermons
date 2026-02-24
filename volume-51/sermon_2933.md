@@ -1,4 +1,4 @@
-# Dead, Yet Alive
+# Sermon 2933 | Dead, Yet Alive
 
 (No. 2933)
 

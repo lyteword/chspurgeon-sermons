@@ -1,4 +1,4 @@
-# Beauty for Ashes
+# Sermon 3336 | Beauty for Ashes
 
 (No. 3336)
 

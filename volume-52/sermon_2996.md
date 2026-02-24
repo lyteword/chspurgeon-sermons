@@ -1,4 +1,4 @@
-# Enquiring of God
+# Sermon 2996 | Enquiring of God
 
 (No. 2996)
 

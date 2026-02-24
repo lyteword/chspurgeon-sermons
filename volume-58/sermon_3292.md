@@ -1,4 +1,4 @@
-# The Almighty Warrior
+# Sermon 3292 | The Almighty Warrior
 
 (No. 3292)
 

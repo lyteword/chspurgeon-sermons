@@ -1,4 +1,4 @@
-# "Hiding in You!"
+# Sermon 2930 | "Hiding in You!"
 
 (No. 2930)
 

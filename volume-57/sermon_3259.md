@@ -1,4 +1,4 @@
-# Faith's Way of Approach
+# Sermon 3259 | Faith's Way of Approach
 
 (No. 3259)
 

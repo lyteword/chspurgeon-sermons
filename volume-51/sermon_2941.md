@@ -1,4 +1,4 @@
-# Mary's Magnificat
+# Sermon 2941 | Mary's Magnificat
 
 (No. 2941)
 

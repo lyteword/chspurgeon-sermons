@@ -1,4 +1,4 @@
-# False Justification and True
+# Sermon 2932 | False Justification and True
 
 (No. 2932)
 

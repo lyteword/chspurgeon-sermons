@@ -1,4 +1,4 @@
-# Prompt Obedience
+# Sermon 3310 | Prompt Obedience
 
 (No. 3310)
 

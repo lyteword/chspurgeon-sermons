@@ -1,4 +1,4 @@
-# Sickness and Prayer, Healing and Praise
+# Sermon 3274 | Sickness and Prayer, Healing and Praise
 
 (No. 3274)
 

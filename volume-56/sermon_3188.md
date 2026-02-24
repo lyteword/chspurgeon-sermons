@@ -1,4 +1,4 @@
-# Discipline in Christ's Army
+# Sermon 3188 | Discipline in Christ's Army
 
 (No. 3188)
 

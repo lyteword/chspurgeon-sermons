@@ -1,4 +1,4 @@
-# The Errand of Mercy
+# Sermon 3050 | The Errand of Mercy
 
 (No. 3050)
 

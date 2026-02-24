@@ -1,4 +1,4 @@
-# The Beauty Of The Olive Tree
+# Sermon 3176 | The Beauty Of The Olive Tree
 
 (No. 3176)
 

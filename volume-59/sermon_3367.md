@@ -1,4 +1,4 @@
-# Paul As a Pattern Convert
+# Sermon 3367 | Paul As a Pattern Convert
 
 (No. 3367)
 

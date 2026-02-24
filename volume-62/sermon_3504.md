@@ -1,4 +1,4 @@
-# Following Christ
+# Sermon 3504 | Following Christ
 
 A Sermon
 

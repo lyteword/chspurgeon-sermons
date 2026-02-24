@@ -1,4 +1,4 @@
-# Christ's Ambassadors
+# Sermon 3148 | Christ's Ambassadors
 
 (No. 3148)
 

@@ -1,4 +1,4 @@
-# Angelic Protection in Appointed Ways
+# Sermon 2969 | Angelic Protection in Appointed Ways
 
 (No. 2969)
 

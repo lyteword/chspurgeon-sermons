@@ -1,4 +1,4 @@
-# Resurrection for the Just and the Unjust
+# Sermon 3346 | Resurrection for the Just and the Unjust
 
 (No. 3346)
 

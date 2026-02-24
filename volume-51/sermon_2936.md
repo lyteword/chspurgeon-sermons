@@ -1,4 +1,4 @@
-# Christ's "New Commandment"
+# Sermon 2936 | Christ's "New Commandment"
 
 (No. 2936)
 

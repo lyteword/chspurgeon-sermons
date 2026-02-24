@@ -1,4 +1,4 @@
-# Fullness of Joy Our Privilege
+# Sermon 3406 | Fullness of Joy Our Privilege
 
 (No. 3406)
 

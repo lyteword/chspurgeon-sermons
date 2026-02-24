@@ -1,4 +1,4 @@
-# The Church's Probation
+# Sermon 2967 | The Church's Probation
 
 (No. 2967)
 

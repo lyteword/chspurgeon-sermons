@@ -1,4 +1,4 @@
-# The Vine of Israel
+# Sermon 3243 | The Vine of Israel
 
 (No. 3243)
 

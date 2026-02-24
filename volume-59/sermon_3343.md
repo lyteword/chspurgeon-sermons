@@ -1,4 +1,4 @@
-# "The Star Out of Jacob"
+# Sermon 3343 | "The Star Out of Jacob"
 
 (No. 3343)
 

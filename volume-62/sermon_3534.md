@@ -1,4 +1,4 @@
-# The Light of the World
+# Sermon 3534 | The Light of the World
 
 (No. 3534)
 

@@ -1,4 +1,4 @@
-# The Power of Christ's Presence
+# Sermon 3146 | The Power of Christ's Presence
 
 (No. 3146)
 

@@ -1,4 +1,4 @@
-# God in Nature and in Revelation
+# Sermon 3314 | God in Nature and in Revelation
 
 (No. 3314)
 

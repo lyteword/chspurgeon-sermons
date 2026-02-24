@@ -1,4 +1,4 @@
-# Wheat in the Barn
+# Sermon 3393 | Wheat in the Barn
 
 (No. 3393)
 

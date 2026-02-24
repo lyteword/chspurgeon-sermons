@@ -1,4 +1,4 @@
-# David and His Volunteers
+# Sermon 3297 | David and His Volunteers
 
 (No. 3297)
 

@@ -1,4 +1,4 @@
-# Belief in the Resurrection
+# Sermon 3452 | Belief in the Resurrection
 
 (No. 3452)
 

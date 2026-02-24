@@ -1,4 +1,4 @@
-# The Sixth Beatitude
+# Sermon 3159 | The Sixth Beatitude
 
 (No. 3159)
 

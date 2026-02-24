@@ -1,4 +1,4 @@
-# God's Valiant Right Hand
+# Sermon 3361 | God's Valiant Right Hand
 
 (No. 3361)
 

@@ -1,4 +1,4 @@
-# The Sweetness of God's Word
+# Sermon 3197 | The Sweetness of God's Word
 
 (No. 3197)
 

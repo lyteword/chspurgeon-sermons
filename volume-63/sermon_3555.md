@@ -1,4 +1,4 @@
-# With Golden Band Girded
+# Sermon 3555 | With Golden Band Girded
 
 (No. 3555)
 

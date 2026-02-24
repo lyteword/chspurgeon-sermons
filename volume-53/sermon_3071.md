@@ -1,4 +1,4 @@
-# Idolatry Condemned
+# Sermon 3071 | Idolatry Condemned
 
 (No. 3071)
 

@@ -1,4 +1,4 @@
-# Two Coverings and Two Consequences
+# Sermon 3500 | Two Coverings and Two Consequences
 
 A Sermon
 

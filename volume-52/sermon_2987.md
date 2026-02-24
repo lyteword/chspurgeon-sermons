@@ -1,4 +1,4 @@
-# The "Beau Ideal" of Life
+# Sermon 2987 | The "Beau Ideal" of Life
 
 (No. 2987)
 

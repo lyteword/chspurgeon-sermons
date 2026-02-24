@@ -1,4 +1,4 @@
-# Freedom Through Christ's Blood
+# Sermon 3106 | Freedom Through Christ's Blood
 
 (No. 3106)
 

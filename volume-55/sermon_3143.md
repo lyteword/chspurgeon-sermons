@@ -1,4 +1,4 @@
-# Shoes for Pilgrims and Warriors
+# Sermon 3143 | Shoes for Pilgrims and Warriors
 
 (No. 3143)
 

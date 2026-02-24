@@ -1,4 +1,4 @@
-# Royal Emblems for Loyal Subjects
+# Sermon 2947 | Royal Emblems for Loyal Subjects
 
 (No. 2947)
 

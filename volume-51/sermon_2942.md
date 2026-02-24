@@ -1,4 +1,4 @@
-# The Objective of the Lord's Supper
+# Sermon 2942 | The Objective of the Lord's Supper
 
 (No. 2942)
 

@@ -1,4 +1,4 @@
-# Peter's Shortest Prayer
+# Sermon 3186 | Peter's Shortest Prayer
 
 (No. 3186)
 

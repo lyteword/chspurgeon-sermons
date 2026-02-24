@@ -1,4 +1,4 @@
-# Man Humbled, God Exalted
+# Sermon 3369 | Man Humbled, God Exalted
 
 (No. 3369)
 

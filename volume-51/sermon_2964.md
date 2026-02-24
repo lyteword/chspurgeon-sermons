@@ -1,4 +1,4 @@
-# "Trust in the Living God"
+# Sermon 2964 | "Trust in the Living God"
 
 (No. 2964)
 

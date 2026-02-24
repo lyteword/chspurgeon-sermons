@@ -1,4 +1,4 @@
-# Standing and Singing
+# Sermon 3375 | Standing and Singing
 
 (No. 3375)
 

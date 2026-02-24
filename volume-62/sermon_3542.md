@@ -1,4 +1,4 @@
-# A Precious Promise for a Pure People
+# Sermon 3542 | A Precious Promise for a Pure People
 
 (No. 3542)
 

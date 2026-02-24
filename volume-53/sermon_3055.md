@@ -1,4 +1,4 @@
-# Accomplices in Sin
+# Sermon 3055 | Accomplices in Sin
 
 (No. 3055)
 

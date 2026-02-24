@@ -1,4 +1,4 @@
-# Our Lord's Heroic Endurance
+# Sermon 3327 | Our Lord's Heroic Endurance
 
 (No. 3327)
 

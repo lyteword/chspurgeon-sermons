@@ -1,4 +1,4 @@
-# The Dumb Become Singers
+# Sermon 3332 | The Dumb Become Singers
 
 (No. 3332)
 

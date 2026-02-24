@@ -1,4 +1,4 @@
-# Lovely, But Lacking
+# Sermon 3334 | Lovely, But Lacking
 
 (No. 3334)
 

@@ -1,4 +1,4 @@
-# A Sore Grievance
+# Sermon 3426 | A Sore Grievance
 
 (No. 3426)
 

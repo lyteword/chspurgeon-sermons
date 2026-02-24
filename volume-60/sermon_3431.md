@@ -1,4 +1,4 @@
-# The King Passing Over Kidron
+# Sermon 3431 | The King Passing Over Kidron
 
 (No. 3431)
 

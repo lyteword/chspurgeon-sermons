@@ -1,4 +1,4 @@
-# "Ever This Our War Cry--victory, Victory!"
+# Sermon 3279 | "Ever This Our War Cry--victory, Victory!"
 
 (No. 3279)
 

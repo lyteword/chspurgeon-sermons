@@ -1,4 +1,4 @@
-# The Best Thing in the Best Place
+# Sermon 3002 | The Best Thing in the Best Place
 
 (No. 3002)
 

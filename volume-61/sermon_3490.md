@@ -1,4 +1,4 @@
-# Sincere Seekers--assured Finders
+# Sermon 3490 | Sincere Seekers--assured Finders
 
 (No. 3490)
 

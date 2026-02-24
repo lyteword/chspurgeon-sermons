@@ -1,4 +1,4 @@
-# Knowing and Doing
+# Sermon 3092 | Knowing and Doing
 
 (No. 3092)
 

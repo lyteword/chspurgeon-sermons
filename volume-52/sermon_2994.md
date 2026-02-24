@@ -1,4 +1,4 @@
-# Jude's Doxology
+# Sermon 2994 | Jude's Doxology
 
 (No. 2994)
 

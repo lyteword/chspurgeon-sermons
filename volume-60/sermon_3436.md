@@ -1,4 +1,4 @@
-# Christ Glorified
+# Sermon 3436 | Christ Glorified
 
 (No. 3436)
 

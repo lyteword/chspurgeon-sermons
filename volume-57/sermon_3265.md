@@ -1,4 +1,4 @@
-# Faith Tried and Triumphing
+# Sermon 3265 | Faith Tried and Triumphing
 
 (No. 3265)
 

@@ -1,4 +1,4 @@
-# Thoughts and Their Fruit
+# Sermon 3257 | Thoughts and Their Fruit
 
 (No. 3257)
 

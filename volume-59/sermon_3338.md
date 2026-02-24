@@ -1,4 +1,4 @@
-# The Witness of the Lord's Supper
+# Sermon 3338 | The Witness of the Lord's Supper
 
 (No. 3338)
 

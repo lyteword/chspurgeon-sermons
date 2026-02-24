@@ -1,4 +1,4 @@
-# Secret Disciples Encouraged
+# Sermon 3207 | Secret Disciples Encouraged
 
 (No. 3207)
 

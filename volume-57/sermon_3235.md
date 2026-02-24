@@ -1,4 +1,4 @@
-# The Hope That Purifies
+# Sermon 3235 | The Hope That Purifies
 
 (No. 3235)
 

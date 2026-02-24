@@ -1,4 +1,4 @@
-# The Third Beatitude
+# Sermon 3065 | The Third Beatitude
 
 (No. 3065)
 

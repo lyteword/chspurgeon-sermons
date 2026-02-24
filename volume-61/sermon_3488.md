@@ -1,4 +1,4 @@
-# Justification, Propitiation, Declaration
+# Sermon 3488 | Justification, Propitiation, Declaration
 
 (No. 3488)
 

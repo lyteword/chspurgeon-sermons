@@ -1,4 +1,4 @@
-# Christ and His Table Companions
+# Sermon 3107 | Christ and His Table Companions
 
 (No. 3107)
 

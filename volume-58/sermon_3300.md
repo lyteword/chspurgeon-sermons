@@ -1,4 +1,4 @@
-# Titles of Honor
+# Sermon 3300 | Titles of Honor
 
 (No. 3300)
 

@@ -1,4 +1,4 @@
-# A Solemn Deprival
+# Sermon 3472 | A Solemn Deprival
 
 (No. 3472)
 

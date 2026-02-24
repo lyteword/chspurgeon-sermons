@@ -1,4 +1,4 @@
-# The Glory of Our Strength
+# Sermon 3140 | The Glory of Our Strength
 
 (No. 3140)
 

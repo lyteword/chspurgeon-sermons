@@ -1,4 +1,4 @@
-# God's Thoughts and Ours
+# Sermon 3246 | God's Thoughts and Ours
 
 (No. 3246)
 

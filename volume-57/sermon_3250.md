@@ -1,4 +1,4 @@
-# The Growth of Faith
+# Sermon 3250 | The Growth of Faith
 
 (No. 3250)
 

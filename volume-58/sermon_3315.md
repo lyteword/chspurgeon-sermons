@@ -1,4 +1,4 @@
-# Joy in Harvest
+# Sermon 3315 | Joy in Harvest
 
 (No. 3315)
 

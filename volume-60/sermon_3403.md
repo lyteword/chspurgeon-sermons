@@ -1,4 +1,4 @@
-# The Multitude Before the Throne
+# Sermon 3403 | The Multitude Before the Throne
 
 (No. 3403)
 

@@ -1,4 +1,4 @@
-# True and Not True
+# Sermon 2950 | True and Not True
 
 (No. 2950)
 

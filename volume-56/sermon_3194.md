@@ -1,4 +1,4 @@
-# A Look and Its Lessons
+# Sermon 3194 | A Look and Its Lessons
 
 (No. 3194)
 

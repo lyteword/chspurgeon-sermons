@@ -1,4 +1,4 @@
-# Peter Walking on the Sea
+# Sermon 3562 | Peter Walking on the Sea
 
 (No. 3562)
 

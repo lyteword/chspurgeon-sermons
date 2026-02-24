@@ -1,4 +1,4 @@
-# The Preparatory Prayers of Christ
+# Sermon 3178 | The Preparatory Prayers of Christ
 
 (No. 3178)
 

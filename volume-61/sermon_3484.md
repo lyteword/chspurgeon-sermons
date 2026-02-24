@@ -1,4 +1,4 @@
-# Daniel--a Pattern for Pleaders
+# Sermon 3484 | Daniel--a Pattern for Pleaders
 
 (No. 3484)
 

@@ -1,4 +1,4 @@
-# Jotham's Peculiar Honor
+# Sermon 3063 | Jotham's Peculiar Honor
 
 (No. 3063)
 

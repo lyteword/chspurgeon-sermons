@@ -1,4 +1,4 @@
-# Beholding God's Church
+# Sermon 3423 | Beholding God's Church
 
 (No. 3423)
 
