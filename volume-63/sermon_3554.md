@@ -1,6 +1,4 @@
-
-
-Our Magnificent Savior
+# Our Magnificent Savior
 
 (No. 3554)
 
@@ -18,7 +16,7 @@ EVERY word of the text is peculiarly full of meaning. There are passages of Scri
 
 There are two points in the text. You observe there are two persons. There is the Lord Christ, and there are the many. We will take these two persons in order and you will perceive in a moment that these are both represented in a threefold character. And our first point will be the Lord Jesus in His threefold Character. And the second will be the many in their threefold character. To begin, then, where all mustbegin--
 
-I. OUR BLESSED LORD HIMSELF IN HIS THREEFOLD CHARACTER.
+OUR BLESSED LORD HIMSELF IN HIS THREEFOLD CHARACTER.
 
 You have Him here in a threefold Character. First, the Servant--"My righteous Servant." Secondly, the Sin-Bearer--"He shall bear their iniquities." Thirdly, the Justifer--"He shall justify many."
 
@@ -36,9 +34,8 @@ But especially upon the tree, for there we have it, "When You shall make His sou
 
 Now let us pause here a little and think over this wondrous mystery. The way in which God is pleased to save us from our sin is by laying our sins on His own Son and making Him suffer for those sins as if those sins had been His own! Why, do you think, did He choose such a method? Was is not thus? First, thus He satisfied His own Justice. Why, Brothers and Sisters, if we had lain in Hell forever, yet Divine Justice would not have been fully justified, for after thousands of years of suffering, there would still remain an eternity of debt due to God's Justice, and the debt would not be paid! And let me say, if God had annihilated all the sinners that ever lived in one stroke, He would not have so honored His Justice as He did when He took sin and laid it on His Son--and His Son bore Divine Wrath which was due to that sin! For now there has been rendered unto Divine Justice a full equivalent, a complete recompense for all the dishonor which it suffered-- and I know of no other conceivable way by which such a recompense could have been rendered--
 
-"He to the utmost farthing paid
-
-Whatever His people owed."
+> He to the utmost farthing paid   
+> Whatever His people owed.   
 
 He suffered what they should have suffered, and now God's Law stands in all its integrity. It has not dismissed the penalty. The penalty has been executed! The sword has awakened against the Shepherd, although the stroke was due to the flock!
 
@@ -62,7 +59,7 @@ Remember, Beloved, that this is the reward that Christ has for His death. "He sh
 
 I have thus briefly set forward Christ in His threefold capacity--a Servant, a Sin-Bearer and a Justifier. Now, with brevity, we are to look at--
 
-II. THE MANY IN THEIR THREEFOLD CHARACTER.
+THE MANY IN THEIR THREEFOLD CHARACTER.
 
 And in the text we see them, first, as needing Justification. Secondly, as receiving knowledge. And thirdly, as justified. Now we begin, tonight, this second head where God began with us. We see the many needing Justification. Christ would not have come to justify the just--they do not need it. The whole have no need of a physician. Suppose a man is brought up before a court of justice. He is justified, or reckoned to be just, if he is proved not guilty. But we, before the court of God, are all guilty! Therefore, Justification cannot come in that way to us. Our only hope of Justification lies in this--God says, "That man's sins I laid upon Christ. I punished Christ for that man. He is not guilty. Christ was obedient in that man's behalf. Christ's obedience is that man's obedience. He is just in Christ's Righteousness. I take him not as what he is, but as what his Sponsor is, even Christ! What his Surety is, what his Substitute is." As, for instance, in the old ballot days, when men had to go to war, if the number was called out and a substitute was provided, the person providing the substitute was said, by the law, to discharge his duty to his country. I believe that some time ago in the Northern States a person who had found a substitute to go to fight in the South, heard after a while that his substitute was dead. On a second drawing being made, this man was drawn, but he said, "No, I am dead. Number so-and-so went to the war and is dead. That is me. My substitute is dead." So when God's justice calls to me, a sinner, I do not answer to it! Why? Christ answered on my behalf long ago and died for me! I am dead with Christ. "I live, yet not I, but Christ lives in me." There is no legal charge that can be brought because Christ has stood in my place, been punished in my place, been reckoned as if He were I, and now, this day, I am reckoned as if I were in Christ's place, even as He was reckoned to be in my place. You see where we begin, then. We begin needing Justification, for we have, first of all, the sin of our first parents. "All we like sheep have gone astray." We have, next, our own sins. "We have turned, everyone, to his own way." We have many sins of omission and of commission. "The Lord has laid on Him our iniquities." Whether they are iniquities of excess or of shortcoming, they are both laid upon Jesus Christ's head. We were guilty--we were so guilty, that by ourselves considered, we were under condemnation! "He that believes not is condemned already," and if we had remained as we were, we were heirs of wrath, even as others! And our sin deserved the same punishment as others.
 

@@ -1,6 +1,4 @@
-
-
-An Urgent Necessity
+# An Urgent Necessity
 
 (No. 3557)
 
@@ -14,7 +12,7 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY31, 1870.
 
 HOSEA uses a great many figures taken from farming. He describe the seeking of the Lord in the former part of this verse as plowing, and sowing, and breaking up fallow ground. I suppose he intends by this to describe conviction of sin, humiliation of soul as the work that plows, the reception of the Truth of the Gospel by faith in Jesus Christ as sowing, for this introduces the Living Seed into the soul. And he here gives two reasons why this matter of seeking the Lord should be attended to at once. His first reason is the season. "It is time to seek the Lord." The second is a very gracious expectation that God will rain righteousness upon us. First, then, the Prophet reasons that we should seek after the Lord because it is--
 
-I. THE TIME TO SEEK GOD.
+THE TIME TO SEEK GOD.
 
 "It is time to seek the Lord." I wish you to reflect, first, that we yet have time. It might have been otherwise. We might have been cut down in our sins. Many of our neighbors and acquaintances have died. Some of them, we have reason to fear, died in their iniquities and were taken away with a stroke. We, too, have passed through dangers. Some have escaped in shipwreck. Some have been in imminent peril in accidents--some of us have come into the very jaws of death in serious sickness. We might almost sing, or quite sing--
 
@@ -38,7 +36,7 @@ The Puritans tell a story of a woman convinced of sin on her deathbed, who lived
 
 You have but one match left, O Sinner! Use it well--one light, one time--the time to seek the Lord. Oh, seek Him now--tonight! This moment in the pew say, "God be merciful to me a sinner!" Is that your prayer? 'Tis well. God hear and answer it! But now I must, by your patience, speak for a little while upon the second part of the text. There is another reason given for seeking the Lord--and that is--
 
-II. THE BLESSED EXPECTATION.
+THE BLESSED EXPECTATION.
 
 It is that in due time He will rain righteousness upon us! I understand by this that the plowing and the sowing are ours, but these are nothing without the heavenly rain of Grace. But God will be sure to send that in due time. In fact, our plowing and sowing are results and tokens of His Grace, and the Grace of comfort will come where the Grace of humiliation has already come. When it says, "righteousness," I think it means to assure us that God can, in a way of righteousness, be gracious to us. Through His dear Son, who bore the punishment of our sins, God can righteously rain upon sinners. Now just a moment or two. You say you have not Grace. You say you are not what you should be. 'Tis even so. But seek the Lord and He will rain righteousness upon you! Observe all Divine Grace must come from Him. Rain comes from God. He rains it. Every drop of Grace comes from Heaven. You, Sinner, can never get any Grace unless He gives it you! Remember this, and wait upon Him for it now. It must be heavenly Grace, or it will be no Grace at all. It can come to you. There are some parts on earth that never could be watered if it did not rain. Nobody would ever think of watering the hilltops. But He waters His hills from His chambers. We cannot give Grace to you--you are in such a desolate, lonely, mountainous place, but He can get to you and He will! See how it is He will rain righteousness upon you. Then, as there is a straight way for rain even to the wilderness, so is there a straight way for God's Grace to drop into your desertheart. Rain comes Sovereignly as God wills it, where He wills it, when He wills it. And in degree and duration according to His will. So does Grace. Lift up your soul, then, to Him for it, and bow your head, feeling that you deserve it not!
 
@@ -52,13 +50,10 @@ Some even of God's servants have been a good while seeking and they have not fou
 
 And so it will be with every earnest seeker. If the looks of love have never come to you for years, you will have them yet, for never soul believed but what was safe! Some have believed, but not been comfortable, but they are safe--the comfort will come. Only seek Sinner, for He will rain righteousness on you--
 
-"So I must maintain my hold,
-
-'Tis the goodness makes me bold;
-
-I can no denial take,
-
-For I plead for Jesus' sake."
+> So I must maintain my hold,   
+> 'Tis the goodness makes me bold;   
+> I can no denial take,   
+> For I plead for Jesus' sake.   
 
 Oh, Sinner, never let go! Cling close to Christ and He cannot cast you away, for this is His promise, "Him that comes, I will in no wise cast out." Come, then, and the Lord bless you! Amen and amen.
 
@@ -68,17 +63,17 @@ A very marvelous Chapter it is--a song and a prophecy, in which the poet-seer se
 
 Verses 1-3. Give ear, O you heavens, and I will speak; and hear, O earth, the words of my mouth. My doctrine shall drop as the rain, my speech shall distill as the dew, as the small rain upon the tender herb, and as the showers upon the grass because I will publish the name of the LORD: ascribe you greatness unto our God. All through, the song is for the glorification of God! Not a syllable, indeed, in which man is held up to honor, but the Lord, alone, is exalted in His dealings with His people. He is the Rock. All other things are the mere cloud that hovers on the mountain's brow. But--
 
-4. He is the RockImmutable, eternal.
+He is the RockImmutable, eternal.
 
-4. His work is perfect. Sometimes very terrible and very mysterious, but His work is perfect,
+His work is perfect. Sometimes very terrible and very mysterious, but His work is perfect,
 
-4. For all His ways are judgment; a God of truth and without iniquity, just and right is He. But as for His people, what a contrast between them and their God!
+For all His ways are judgment; a God of truth and without iniquity, just and right is He. But as for His people, what a contrast between them and their God!
 
-5. They have corrupted themselves, their spot is not the spot of His children: they are a perverse and crooked genera-tion.What a stoop from the God of Truth, without iniquity, to a people full of iniquity--a perverse and crooked generation! We never know so much of our own vileness as when we get a clear view of the excellency of God. What said Job? "I have heard of You by the hearing of the ear, but now my eyes see You, therefore I abhor myself and repent in dust and ashes."
+They have corrupted themselves, their spot is not the spot of His children: they are a perverse and crooked genera-tion.What a stoop from the God of Truth, without iniquity, to a people full of iniquity--a perverse and crooked generation! We never know so much of our own vileness as when we get a clear view of the excellency of God. What said Job? "I have heard of You by the hearing of the ear, but now my eyes see You, therefore I abhor myself and repent in dust and ashes."
 
-6. Do you thus requite the LORD, O foolish people and unwise? Is not He your Father who has bought you? Has He not made you, and established you?Who made the Jews to be a people? Who set Israel apart to be a nation? Who, but God, who bought them with a price when they came out of Egypt and, in his fatherly care, led them through the wilderness?
+Do you thus requite the LORD, O foolish people and unwise? Is not He your Father who has bought you? Has He not made you, and established you?Who made the Jews to be a people? Who set Israel apart to be a nation? Who, but God, who bought them with a price when they came out of Egypt and, in his fatherly care, led them through the wilderness?
 
-7. 8. Remember the days of old, consider the years of many generations: askyour father, and he will show you; your elders, and they will tell you. When the Most High divided to the nations their inheritance, when He separated the sons of Adam, He set the bounds of the people according to the number of the children of Israel God's first point in the government of the world was His own people. Everything else was mapped out after He had set apart a place for them--a place sufficient, large, fruitful and in an admirable position, that there they might multiply and enjoy all the good things which He so freely gave them. And to this day dynasties rise and fall, kings reign or are scattered by defeat, only with this one point in God's eye and purpose in His mind--the upholding of the Church in the world--the spread of His glorious
+8. Remember the days of old, consider the years of many generations: askyour father, and he will show you; your elders, and they will tell you. When the Most High divided to the nations their inheritance, when He separated the sons of Adam, He set the bounds of the people according to the number of the children of Israel God's first point in the government of the world was His own people. Everything else was mapped out after He had set apart a place for them--a place sufficient, large, fruitful and in an admirable position, that there they might multiply and enjoy all the good things which He so freely gave them. And to this day dynasties rise and fall, kings reign or are scattered by defeat, only with this one point in God's eye and purpose in His mind--the upholding of the Church in the world--the spread of His glorious
 
 Truth!
 
@@ -86,19 +81,19 @@ Truth!
 
 13, 14. He made him ride on the high places of the earth, that he might eat the increase of the fields: andHe made him to suck honey out of the rock, and oil out of the flinty rock; curds from the cattle, milk of the flock, with fat of lambs, and rams of the breed of Bashan, and goats, with the choicest wheat: and you did drink the pure blood of the grape. It was a very fruitful land, abounding not merely in necessaries, but in luxuries. Palestine gave to its inhabitants all that heart could wish, and for a long time, while they were faithful to God, they lived in the midst of plenty.
 
-15. But Jeshurun waxed fat, and kicked. "The little holy nation"--for I suppose that is the meaning of "Jeshurun." It is a diminutive word--"the little religious nation waxed fat. It abounded in prosperity. It grew stout and kicked."
+But Jeshurun waxed fat, and kicked. "The little holy nation"--for I suppose that is the meaning of "Jeshurun." It is a diminutive word--"the little religious nation waxed fat. It abounded in prosperity. It grew stout and kicked."
 
-15. You are waxen fat, you are grown thick, you are covered with fatness: then he forsook God which made him, and lightly esteemed the Rock of his salvation. Alas, alas! Alas! They set up calves in Bethel. They turned aside to Ashtoreth, and worshipped the Queen of Heaven!
+You are waxen fat, you are grown thick, you are covered with fatness: then he forsook God which made him, and lightly esteemed the Rock of his salvation. Alas, alas! Alas! They set up calves in Bethel. They turned aside to Ashtoreth, and worshipped the Queen of Heaven!
 
-16. 17. They provoked Him to jealousy with strange gods, with abomination provoked they Him to anger They sacrificed unto devils,Demons--not to God.
+17. They provoked Him to jealousy with strange gods, with abomination provoked they Him to anger They sacrificed unto devils,Demons--not to God.
 
-17. Not to God; to gods whom they knew not, to new gods that came newly up, whom your fathers feared not There is nothing new in religion that is true. The truth is always old. But only imagine a new God! And verily we have had lately some new fashions brought up--some new styles of worship. I think they call them mediaeval. They certainly are no older than that--"new gods that newly came up, whom your fathers feared not."
+Not to God; to gods whom they knew not, to new gods that came newly up, whom your fathers feared not There is nothing new in religion that is true. The truth is always old. But only imagine a new God! And verily we have had lately some new fashions brought up--some new styles of worship. I think they call them mediaeval. They certainly are no older than that--"new gods that newly came up, whom your fathers feared not."
 
-18. Of the Rock that begat you, you are unmindful, and have forgotten God that formedyou. Israel was nothing apart from God--a little tribe of people--nothing to be compared with the great nations of the earth. Its only reason for existence was its God. He was its center, its light, its glory, its power. They had got away from Him that formed them.
+Of the Rock that begat you, you are unmindful, and have forgotten God that formedyou. Israel was nothing apart from God--a little tribe of people--nothing to be compared with the great nations of the earth. Its only reason for existence was its God. He was its center, its light, its glory, its power. They had got away from Him that formed them.
 
-19. 20. And when the LORD saw it, He abhorred them, because of the provoking ofHis sons, and ofHis daughters. And He said, I will hide My face from them, I will see what their end shall be: for they are a very forward generation, children in whom is no faith. There is the mischief--lack of faith. Lack of faith leads to all manner of sin. Oh, that we had a strong elastic faith to realize the unseen God and keep to purely spiritual worship, not needing symbols, signs and outward tokens--all of which are abominable in His sight, but worshipping the unseen in spirit and in truth. But the Lord said--
+20. And when the LORD saw it, He abhorred them, because of the provoking ofHis sons, and ofHis daughters. And He said, I will hide My face from them, I will see what their end shall be: for they are a very forward generation, children in whom is no faith. There is the mischief--lack of faith. Lack of faith leads to all manner of sin. Oh, that we had a strong elastic faith to realize the unseen God and keep to purely spiritual worship, not needing symbols, signs and outward tokens--all of which are abominable in His sight, but worshipping the unseen in spirit and in truth. But the Lord said--
 
-21. They have moved Me to jealousy with that which is not God; they have provoked Me to anger with their vanities: and I will move them to jealousy with those which are not a people; I will provoke them to anger with a foolish na-tion.And so the idolatrous nations came and conquered Judea. One after another they trampled down the holy city and let them see that God could use the nations that they despised to be a scourge upon them!
+They have moved Me to jealousy with that which is not God; they have provoked Me to anger with their vanities: and I will move them to jealousy with those which are not a people; I will provoke them to anger with a foolish na-tion.And so the idolatrous nations came and conquered Judea. One after another they trampled down the holy city and let them see that God could use the nations that they despised to be a scourge upon them!
 
 22-25. For a fire is kindled in My anger, and shall burn unto the lowest Hell and shall consume the earth with her increase, and set on fire the foundations of the mountains. I will heap mischief upon them; I will spend My arrows upon them--they shall be burnt with hunger, and devoured with burning heat, and with bitter destruction. I will also sendthe teeth of beasts upon them, with the poison of serpents of the dust. The sword without, and terror within, shall destroy both the young man and the virgin, the suckling also with the man of gray hairs. Now read the story of the destruction of Israel and Judea--the overthrow of these two kingdoms--and you will see how, word for word, all this came true!
 
@@ -110,6 +105,6 @@ Truth!
 
 35, 36. To Me belongs vengeance, and recompense; their foot shall slide in due time: for the day of their calamity is at hand, and the things that shall come upon them make haste. For the LORD shall judge His people. He will not always let His enemies triumph over them. He will come back to His people whom He seemed to cast away. "The Lord shall judge His people."
 
-36. And have compassion on His servants, when He sees that their power is gone, and there is none shut up, or left. He seemed very angry, but how soon He comes back in love and tries His people over again.
+And have compassion on His servants, when He sees that their power is gone, and there is none shut up, or left. He seemed very angry, but how soon He comes back in love and tries His people over again.
 
 37-39. AndHe shallsay, Where are their gods, theirrock in whom they trusted? Which did eat the fat oftheir sacrifices, and drank the wine oftheir drink offerings? Let them rise up and help you, and be yourprotection. See now that I, even I, am He, and there is no god with Me. I kill, and I make alive: I wound, and I heal; neither is there any that can deliver out of My hand

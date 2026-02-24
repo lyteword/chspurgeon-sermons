@@ -1,6 +1,4 @@
-
-
-Assurance Sought
+# Assurance Sought
 
 (No. 3546)
 
@@ -16,7 +14,7 @@ DAVID knew where to run to for shelter in his hour of difficulty. Many were ther
 
 This short prayer I commend to everyone present--to saint and sinner, to the young and the old, to those who are assured and to those who are doubtful--"Say unto my soul, I am your salvation." It appears to me to imply certain doctrines, to express certain desires, and to suggest certain practical lessons upon which we may profitably meditate.
 
-I. "SAY UNTO MY SOUL, I AM YOUR SALVATION."
+"SAY UNTO MY SOUL, I AM YOUR SALVATION."
 
 Is it not very clear on the surface of the text that we need salvation? Salvation is the great necessity of the human race. We need to be saved from the consequences of the Fall, from the results of our own transgressions, from the penalties due to our guilt, the indwelling power of sin and the domination of our corrupt nature. You all know this by the witness of conscience. Therefore I need not argue or attempt to prove it. The main question is whether we know it experimentally, for it is one thing to know the letter, but quite another thing to know the spirit--one thing to know a matter with the head--and another thing to be affected by it in a lively manner in the soul. Answer me, then, have you learned experimentally that you need to be saved? Did you ever see your past sins in their true color? Did you ever behold what a future sin opens up before you, till you did start back alarmed and terror-stricken? Have you perceived that you need just such a salvation as Christ came to bring? Truly we never seek it till we see we need it! We are usually driven into the Port of Grace by a storm. It is not often that we fly to Christ if there is any other door open. In the sore straits of poverty, we have to cry to Him for sustenance. When we are sick we resort to Him for health and cure.
 
@@ -36,7 +34,7 @@ The God who can save us must be the only true and living God. So great a salvati
 
 These doctrines may seem to some of you so commonplace that you will say, "We have heard them ten thousand times." But I refer to them now to press the question--Do you know the vital force of these great Truths of God in your own hearts? Beloved, let each man, let each woman, enquire, "Do I know my need of salvation? Do I know that it must come from God? Have I got it from Him? Have I applied directly to Him for it? Have I received it at His hand in such a way that I have seen the Glory of God therein, so that my salvation shall be to me for a name, for an everlasting sign that shall not be cut off?" If you have had no dealings with God, your soul is in bad plight. Let us turn now to observe--
 
-II. THE DESIRE EXPRESSED IN THE TEXT.
+THE DESIRE EXPRESSED IN THE TEXT.
 
 It was David' s wish not only to have God for his salvation, but to know it for a fact, and that on the most conclusive evidence, with the best possible assurance, by a positive communication from GodHimself--"Say unto my soul, I am your salvation." There are some who doubt whether full assurance of faith can be obtained. They need not discredit an attainment which multitudes possess and daily enjoy! Others suppose that if they could experience a full assurance, it would be dangerous--and yet there are thousands of the saints who, so far from finding the privilege perilous, constantly prove its sanctifying, elevating power while they walk by faith and live near to God! Some have conjectured that any man who knew himself to be saved would inevitably grow listless in character and negligent of his conduct, but it is not so. A man who knows that an estate is really his own, does not become indifferent about its culture. He tills and farms it all the more sedulously. The fact is this--he who knows himself to be saved--being rid of that curse and burden of fear which often renders him incapable of serving God, passes beyond the sphere of a servile bondage! No more does he selfishly seek his own interest. His labor is free, cheered by love and lightened by song--
 
@@ -70,9 +68,8 @@ I like that story of a godly old woman, who, when told of God's answering prayer
 
 In what way, however, can we better show our gratitude than by comforting andassisting such as have not this blessing?--
 
-"Thousands in the fold of Jesus This attainment never could boast. To His Name eternal praises, None of these shall ever be lost-- Deeply graven
-
-On His hands, their names remain."
+> Thousands in the fold of Jesus This attainment never could boast. To His Name eternal praises, None of these shall ever be lost-- Deeply graven   
+> On His hands, their names remain.   
 
 Have you faith? You are saved, even if your faith should not develop into assurance. As the Puritan well said, "Faith is necessary to the being of a Christian. Assurance is necessary to his well-being." Yet, mark you, it is a great necessity. Let us try to comfort, then, such as are distracted, distressed and bowed down. When the Lord sees that we are using our strength and our joy for the help of the rest of the family for whom He cares, He will give us yet more abundantly, and make us to be stewards of the manifold Grace of God in the midst of the Church! Thus shall we glorify His name while we cultivate happiness in our own bosoms.
 

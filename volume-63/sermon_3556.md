@@ -1,6 +1,4 @@
-
-
-Absconding and Apostasy
+# Absconding and Apostasy
 
 (No. 3556)
 
@@ -46,7 +44,7 @@ Unsound Doctrine occasions many to apostatize. There is always plenty of that ab
 
 I will not continue in this strain. It is painful to me, if not to you. I will condense into a few sentences my answer to the second enquiry--
 
-II. WHAT BECOMES OF THEM?
+WHAT BECOMES OF THEM?
 
 Those who go aside--what becomes of them? Well, if they are God's children, I will tell you what becomes of them, for I have seen it scores of times. Though they go aside, they are not happy. They cannot rest, for they are miserable even when they try to be cheerful. After a while they begin to remember their first Husband, for then it was better with them than now. They return, but there are scores and scores, to say nothing of the shame which they have to carry with them to their grave, who are never the men they were before! They have to take a second place among their comrades. And even should Sovereign Grace so wonderfully bless their painful experience that they are fully restored, they can never mention the past without bitter regret. Their by-path serving for others' beacon, they will say to young people, "Never do as I have done. Nothing good, all mischief, comes of it." In the vast majority of cases, however, they are not the Lord's people. So this is what comes of it. Those who prove traitors to a profession they once made are the hardest people in the world to impress. Doubtless some of you, when you lived in the country, used always to be punctual at your usual places of worship, but since you have come to London, where your absence from any sanctuary is unnoticed, you rarely enter the courts of the Lord's House--nor would you have been here tonight but for some special inducement--some country cousin or some particular friend having brought you. Though unknown to me, God scans your path. Well, here you are, and yet it may be to little profit. You have had counsels and cautions in such profusion that it is like pouring oil down a slab of marble to admonish you. May God in His Omnipotent Mercy break your stubborn heart, or there will be no hope for you! Such people frequently lose all conscience. They can go a deal further in talking against religion than anybody else. They will sometimes venture to say they know so much about it that they could expose it. Their boasts and their threats are alike unmeaning--but as boys whistle while they walk through the churchyard to keep their courage up, so do their vain talk and their senseless stories betray their stifled fear. They speak contemptuously of God while they justify themselves in a course of which their own conscience upbraids them! They go back--alas, some of them to prove themselves the most abandoned sinners in the world! The raw material out of which the devil constructs the deadliest fabric is that which was presumed to be the most saintly substance.
 
@@ -60,7 +58,7 @@ While there is life there is hope! Jesus Christ can forgive you. Return to Him. 
 
 Our third point is this--
 
-III. WHY SHOULD WE NOT GO AWAY AS THEY HAVE GONE?
+WHY SHOULD WE NOT GO AWAY AS THEY HAVE GONE?
 
 Were we left to ourselves, I cannot tell you any reason why we should not go as they have gone. Nor, indeed, could I tell you why the best man here would not be the worst before tomorrow morning, if the Grace of God left him. John Bradford, you know, as he saw the poor criminals taken away to Tyburn to be executed, used to say, "There goes John Bradford, but for the Grace of God." Verily each one of us might say the same! To abide with Christ, however, is our only security--and we trust we shall never depart from Him. But how can we make sure of this? The great thing is to have a real foundation in Christ to begin with--genuine faith, vital godliness. The foundation is the first matter to be attended to in building a house. With a bad foundation there cannot be a substantial house. You require a firm bottom, a sound groundwork, before you proceed to the superstructure. Do pray God that if your religion is a sham, you may find it out now! Unless your hearts are deeply plowed with genuine repentance, and unless you are thoroughly rooted and grounded in the faith, you may have some cause to suspect the reality of your conversion and the verity of the Holy Spirit's operation in you. May the Lord work in you a good beginning, and then you may rely upon it, He will carry it on to the day of Jesus Christ!
 

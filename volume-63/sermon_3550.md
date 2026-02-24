@@ -1,6 +1,4 @@
-
-
-An Earnest Entreaty
+# An Earnest Entreaty
 
 (No. 3550)
 
@@ -16,7 +14,7 @@ LET us have a little quiet talk tonight. I have known a simple, earnest conversa
 
 Our text contains some very sound advice. Let us ask--to whom was it originally addressed And to whom is it appropriately addressed now?
 
-I. TO WHOM WAS IT ADDRESSED.
+TO WHOM WAS IT ADDRESSED.
 
 "Kiss the Son, lest He be angryr Look at the 10th verse, "Be wise now, therefore, O you kings; be instructed, you judges of the earth." Thus to monarchs and potentates of this world--to those who made and those who administered the laws, in whose hands were the liberties, if not the lives of their subjects--were these words spoken! People make a great fuss about a sermon preached before Her Majesty. I must confess to having wasted a shilling once or twice over those productions. I could never make out why they should not have been sold for a halfpenny, for I think better sermons could have been bought for a penny. But, somehow, there is always an interest attached to anything that is preached before a king or a queen, and still more so if it is pointedly preached to a king. Now this was a little private advice given to kings and judges. Still, it offers counsel by which persons of inferior rank may profit. You, Sir, are not so great in station but this advice may be good enough for you! If it was meant for those who sat on thrones, wielded scepters and exercised authority, you will not have to humble yourself much to listen earnestly, and receive gratefully this admonition of wisdom!
 
@@ -28,13 +26,13 @@ Once again, I believe the words of our text leave an especial reference to those
 
 Talk of preaching, I have specimens at home of sermons which can be bought for nine pence each. They are underlined, so that the proper emphasis is apparent--and the pauses to be made between the sentences are fairly indicated. Preaching made easy! We shall be favored, one of these days, with preaching machines--we have already got down to hearing machines. The mass of our hearers is not much more animated than an automaton figure. Life and liveliness are lacking in both. Preaching and hearing may both, perhaps, be done by steam! I would it were not so. Men are evidently thoughtful about other things. Bring up a sanitary problem and there are men that will work it out somehow. Is some new invention needed, say, a gun or a torpedo, to effect wholesale destruction of life? You shall find competitors in the arena, vying, one with another, in their study of the murderous science! Man seems to think of everything but of his God--to read everything but his Bible--to feel the influence of everything but the love of Christ, and to see reason and argument in everything except in the inviolable truth of Divine Revelation. Oh, when will men consider? Why are they bent upon dashing into eternity thoughtlessly? Is dying and passing into another world of no more account than passing from the parlor to the drawing room? Is there no hereafter? Is Heaven a dream and Hell a bugbear? Well, then, cease to play with shadows! No longer foster such delusions! Be these things true or false, your insincerity is alike glaring. Like honest men, repudiate the Scriptures if you will not accept their counsel. Do not pretend to believe the solemnities of God's Word and yet trifle with them! This is to stultify yourselves, while you insult your Maker! I appeal to the conscience of every thoughtless person here, if reason or commonsense would justify such vacillation. Having thus tried to find out the people to whom my text applies, let me now direct your attention to the advice it gives them.
 
-II. THE ADVICE WHICH IS GIVEN.
+THE ADVICE WHICH IS GIVEN.
 
 The advice is this--rebel no more against God. You have done so, some of you actively and willfully. Others of you, by ignoring His claims and utterly neglecting His will. It is not right to continue in this rebellious state! To have become entangled in such iniquity is grievous enough, but to continue therein any longer were an outrageous folly and a terrible crime. Serve the Lord with fear and rejoice with trembling. Do you say, "We hear of advice and are willing to take it-- our anxiety now is to find out the way in which we can become reconciled to God. How can we be restored to friendship with Him whom we have so bitterly wronged and so grossly offended?" Here is the pith of the advice. "Kiss the Son, pay Him homage, yield the affectionate fealty of your hearts to the Son of God." Between you and the great King, there is an awful breach. You can obtain no audience of Him. So grievous has been your revolt, that He will not see you. He has shut the door and there cannot be any communication between you and Himself. He has hung up a thick veil, through which your prayers cannot penetrate. But He refers you to His Son. That Son is His other Self--One with Himself in essential Deity, who has condescended to become man, has taken your nature into union with Himself, and in that Nature has offered unto Divine Justice an expiatory Sacrifice for human guilt. Now, therefore, God will deal with you through His Son. You must have an Advocate--as many a client cannot plead in court, but must have some counselor to plead for him who is infinitely more versed in the law and better able to defend his cause than he is--so the Lord appoints that you, if you would see the face of your God, must see it in the face of Jesus Christ! The short way of being at peace with God is not to try and mend your ways, or excuse yourself, or perform certain works, or go through certain ceremonies, but to repair to Christ, the one and only Mediator, who once was fastened to the Cross, being put to death in the flesh, but quickened by the Spirit. He is now at the right hand of God, and you are required to worship Him, to trust in Him, to love Him. Thus do, and the reconciliation between you and God is effected in a moment! The blessed Jesus will wash you from your guilt, and the righteousness of Christ will cover you with beauty which will make you acceptable in the sight of God. "Kiss the Son." It means render Him homage, just as in our own country they speak of kissing the Queen's hands when certain offices are taken and homage is required. So come and kiss the Savior! No hard work this! Some of us would gladly forever kiss His blessed feet It would be Heaven enough for us. Oh, come and pay your homage to Him! Acknowledge that Christ is your King! Give up your life to His service. Consecrate all your powers and faculties to do His will. But do trust Him. "Blessed are all they that put their trust in Him." That is the true kiss! Trust Him, rely upon Him, depend upon Him--leave off depending upon yourself, and rely upon Jesus! Throw yourself flat down upon the finished work of Christ! When you have so done your faith has reconciled you to God, and you may go your way in peace. Only go your way henceforth to serve that King whose hand you have kissed, and to be the willing subject of that dear Redeemer who ought to have you because He bought you with His precious blood!
 
 This advice is urgent. Do it at once. I am not speaking, now, after the fashion of the orator, but I am talking to you as a friend. I wish I could pass along those aisles, or over the tops of those pews, and gently take the hand of each one, and say, "Friend, God would gladly have you reconciled to Him, and it only needs the simple act of trusting Jesus and accepting Him to be your Leader and your King." Do it now. If it is ever worth doing, it is worth doing at once! It is a blessed thing to do. Why delay? It is a simple thing to do! Why hesitate? It is the very least thing God could ask of you, and even that He will not require you to do in your own strength. Are you willing, but weak? He will help you to do what He commands you to do! Now, as you sit in your pew, what say you to this? "I will think it over," says one. Does it need any thinking over? If I had offended my father, I should wish to be at peace with him immediately--and if my father said to me, "My son, I will be reconciled to you if you will go and speak to your brother about it," well, I would not think it difficult, for I love my brother as well as my father, and I would go to him at once--and so all would be well. God says, "Go to Jesus. I am in Him. You can reach Me there--go round by His Cross--you will find Me reconciled there. Away from the Cross I am a Judge and my terrors will consume you. With the Cross between you and Me, I am a Father, and you shall behold My face beaming with love to you." "But how am I to get to Jesus?" you ask. Why, have I not told you?--simply to trust Him--to rely upon Him! Faith is trusting Christ. This is the Gospel, "Believe in the Lord Jesus Christ, and you shall be saved." Put your entire trust in Him. Renounce all lordship that has ever been exercised over you by any other master and become Christ's servant! Rely on Him to land you safely at the right hand of God, and He will do it. "Kiss the Son." Oh, Friend, I cannot make you do it--it must be done of your own will. God alone can lead that will of yours to yield itself up to Christ's will! But I pray you do it--kiss the Son, and do it now! Pursuing our quiet talk, I come to my third point, which is--
 
-III. HOW IS THIS ADVICE PRESSED HOME UPON US?
+HOW IS THIS ADVICE PRESSED HOME UPON US?
 
 The vanity of any other course is made palpable. Be reconciled to God because there is no use in being at enmity with Him. The kings of the earth opposed God, but while they were plotting and planning, God was laughing. "Yet," says He, "have I set My King upon My holy hill of Zion." I think if I were a king and had the misfortune to be driven to go to war, I would not like to fight one that had ten times my own strength! I would rather engage in a somewhat equal combat, with a prospect that by dint of valor and good generalship, victory might be gained. To contend against Omnipotence is insanity! For any man, I care not who he may be, to put himself in opposition to God is utter folly! I have often watched, as doubtless you have done, the foolish moth attracted by the glare of the candle or the gas. He plunges at it, as though he would put it out, and he drops, full of exquisite pain, upon the table. He has enough wing left to make another dash at the flame, and again he is filled with another pain, and unless you mercifully kill him outright, he will continue as long as he has any strength to fight with the fire which destroys him! That is an apt picture of the sinner's life--and such will be the sinner's death! Oh, do not so, dear Friend--do not so! Speak I not with voice of reason when I thus dissuade you? If you must fight, let it be with someone that you can overcome. But sit down now and reckon whether you can hope to win a victory against an Almighty God! End the quarrel, Man, for the quarrel will otherwise end in your death and eternal destruction!
 
@@ -58,42 +56,37 @@ I am afraid some of you young people that are growing up here stand in deep need
 
 Affectionately and earnestly do I entreat you--not standing here ex-officio to deliver pious platitudes, but from my very soul, as though I were your brother or father, I would say, Young man, young woman, kiss the Son now! Yield your heart up to Jesus now! Blessed are they who trust in Him now. Oh, tonight, tonight, tonight--your first night in Grace, or else your last night in hope! Tonight, tonight! The clock has just struck. It seemed to say, "Tonight." God help you to say, "Yes, it shall be tonight, for God and for Christ!"--
 
-"Songs of triumph then resounding
-
-From your happy lips shall flow!
-
-In the knowledge of salvation
-
-You true happiness shall know,
-
-Through Christ Jesus,
-
-Who alone can life bestow."
+> Songs of triumph then resounding   
+> From your happy lips shall flow!   
+> In the knowledge of salvation   
+> You true happiness shall know,   
+> Through Christ Jesus,   
+> Who alone can life bestow.   
 
 EXPOSITION BY C. H. SPURGEON: LUKE 7:36-48.
 
 Verse 36. And one of the Pharisees desiredHim that He would eat with him. AndHe went into the Pharisee's house, and sat down to eat They sat according to the Eastern custom of sitting, which was rather lying at length, with the feet far out upon the couch or sofa.
 
-37. And, behold, a woman in the city, which was a sinner In a particular sense, a sinner--one whose very trade was sin.
+And, behold, a woman in the city, which was a sinner In a particular sense, a sinner--one whose very trade was sin.
 
-37. 38. When she knew that Jesus sat at the table in the Pharisee's house, brought an alabaster box of ointment and stood at His feet, behind Him, weeping. As she could do, you see, without coming into the room, except for a few yards, especially if the Savior ' s feet were close against the door.
+38. When she knew that Jesus sat at the table in the Pharisee's house, brought an alabaster box of ointment and stood at His feet, behind Him, weeping. As she could do, you see, without coming into the room, except for a few yards, especially if the Savior ' s feet were close against the door.
 
-38. And began to wash His feet with tears, and did wipe them with the hairs of her head, and kissed His feet, and anointed them with the ointment For water she gives her tears, for a towel, her hair--to heal the blisters of His weary pilgrimage, there are her soft lips for liniment and then, for ointment, comes this precious salve.
+And began to wash His feet with tears, and did wipe them with the hairs of her head, and kissed His feet, and anointed them with the ointment For water she gives her tears, for a towel, her hair--to heal the blisters of His weary pilgrimage, there are her soft lips for liniment and then, for ointment, comes this precious salve.
 
-39. Now when the Pharisee which had bidden Him saw it, he spoke within himself, saying, This Man, if He were a Prophet, would have known who and what manner of woman this is who touches Him; for she is a sinner "She is a sinner, and does He let her touch Him, kiss His feet and show such tokens of affection? What Man must He be who allows a harlot's kiss, even though it is upon His feet?" Ah, poor foolish Pharisee! He judged according to the sight of the eyes, or else he might have known that the best of men would never be angry at a harlot's tears, for the tears of repentance, come from whatever heart they may, are always like diamonds in the esteem of those who judge rightly.
+Now when the Pharisee which had bidden Him saw it, he spoke within himself, saying, This Man, if He were a Prophet, would have known who and what manner of woman this is who touches Him; for she is a sinner "She is a sinner, and does He let her touch Him, kiss His feet and show such tokens of affection? What Man must He be who allows a harlot's kiss, even though it is upon His feet?" Ah, poor foolish Pharisee! He judged according to the sight of the eyes, or else he might have known that the best of men would never be angry at a harlot's tears, for the tears of repentance, come from whatever heart they may, are always like diamonds in the esteem of those who judge rightly.
 
 40-42. And Jesus answering said unto him, Simon, Ihave something to say unto you. Andhe said, Master, say on. There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay--And were, therefore, likely to be cast into prison, and to be sold as slaves.
 
 42-43. He frankly forgave them both. Teel me, therefore, which of them will love him most Simon answered and said, I suppose that he to whom he forgave most AndHe said unto him, You have rightly judged. There were no bonds, no promises of what they would do in the future, but he frankly forgave them both.
 
-44. And He turned to the woman, and said unto Simon, See you this woman? I entered into your house--And it was, therefore, your duty to attend to Me.
+And He turned to the woman, and said unto Simon, See you this woman? I entered into your house--And it was, therefore, your duty to attend to Me.
 
-44. You gave Me no water for My feet Though that was the common custom.
+You gave Me no water for My feet Though that was the common custom.
 
-44. 45. But she has washed My feet with tears, and wiped them with the hairs of her head You gave Me no kiss. Which was the customary welcome to every honored guest--a kiss upon the cheek or upon the forehead.
+45. But she has washed My feet with tears, and wiped them with the hairs of her head You gave Me no kiss. Which was the customary welcome to every honored guest--a kiss upon the cheek or upon the forehead.
 
-45. But this women since the time I came in has not ceased to kiss My feet She has done what you ought to have done; she has done it better than you could have done it; she has done it when there was no claim upon her to do it, except that she has been forgiven much, and, therefore, loved much.
+But this women since the time I came in has not ceased to kiss My feet She has done what you ought to have done; she has done it better than you could have done it; she has done it when there was no claim upon her to do it, except that she has been forgiven much, and, therefore, loved much.
 
-46. My head with oil you did not anoint This, too, was the usual custom.
+My head with oil you did not anoint This, too, was the usual custom.
 
 46-48. But this woman has anointed My feet with ointment Therefore I say unto you, Her sins, which are many, are forgiven; for she loved much; but to whom little is forgiven, the same loves little. And He said unto her, Your sins are forgiven.
