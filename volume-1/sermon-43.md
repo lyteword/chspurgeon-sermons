@@ -1,6 +1,5 @@
 # Sermon 43 | The Death of the Christian
 
-
 > Thou shalt come to thy grave in a full age, like as a shock of corn cometh in in his season.    
 > Job 5:26.    
 

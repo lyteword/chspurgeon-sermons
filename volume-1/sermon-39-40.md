@@ -1,6 +1,5 @@
 # Sermon 39 & 40 | Heaven and Hell
 
-
 > And I say unto you, That many shall come from the east and west, and shall sit down with Abraham, and Isaac, and Jacob, in the kingdom of heaven. But the children of the kingdom shall be cast out into outer darkness; there shall be weeping and gnashing of teeth.    
 > Matthew 8:11-12.    
 

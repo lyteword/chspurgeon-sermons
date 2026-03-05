@@ -1,6 +1,5 @@
 # Sermon 29 | Christ Manifesting Himself to His People
 
-
 > Judas saith unto him, not Iscariot, Lord, how is it that thou wilt manifest thyself unto us, and not unto the world?    
 > John 14:22.    
 

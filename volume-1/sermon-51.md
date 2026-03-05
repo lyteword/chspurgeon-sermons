@@ -1,6 +1,5 @@
 # Sermon 51 | Comfort for the Desponding
 
-
 > Oh that I were as in months past.    
 > Job 29:2.    
 

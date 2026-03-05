@@ -1,6 +1,5 @@
 # Sermon 11 | The People's Christ
 
-
 > I have exalted one chosen out of the people.    
 > Psalm 89:19.    
 

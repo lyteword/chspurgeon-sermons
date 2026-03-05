@@ -1,6 +1,5 @@
 # Sermon 15 | The Bible
 
-
 > I have written to him the great things of my law; but they were counted as a strange thing.    
 > Hosea 8:12.    
 

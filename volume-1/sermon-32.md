@@ -1,6 +1,5 @@
 # Sermon 32 | The Necessity of Increased Faith
 
-
 > And the apostle said unto the Lord, increase our faith.    
 > Luke 17:5.    
 

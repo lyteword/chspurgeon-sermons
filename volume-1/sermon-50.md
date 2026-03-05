@@ -1,6 +1,5 @@
 # Sermon 50 | The Holy Ghost&mdash;The Great Teacher
 
-
 > Howbeit when he, the spirit of truth, is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come.    
 > John 16:13.    
 

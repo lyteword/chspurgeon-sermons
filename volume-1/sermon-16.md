@@ -1,6 +1,5 @@
 # Sermon 16 | Paul's First Prayer
 
-
 > For behold he prayeth    
 > Acts 9:11.    
 

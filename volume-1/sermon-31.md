@@ -1,6 +1,5 @@
 # Sermon 31 | The Desire of the Soul in Spiritual Darkness
 
-
 > With my soul have I desired thee in the night.    
 > Isaiah 26:9.    
 

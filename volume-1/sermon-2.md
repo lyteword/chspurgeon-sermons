@@ -1,6 +1,5 @@
 # Sermon 2 | The Remembrance of Christ
 
-
 > This do in remembrance of me.    
 > 1 Corinthians 11:24.    
 

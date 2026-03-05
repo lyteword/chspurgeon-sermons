@@ -1,6 +1,5 @@
 # Sermon 10 | The Kingly Priesthood of the Saints
 
-
 > And hast made us unto our God kings and priests; and we shall reign on the earth.    
 > Revelation 5:10.    
 

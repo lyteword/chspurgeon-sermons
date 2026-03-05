@@ -1,6 +1,5 @@
 # Sermon 37 | Law and Grace
 
-
 > Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound.    
 > Romans 5:20.    
 

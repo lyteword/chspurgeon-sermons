@@ -1,6 +1,5 @@
 # Sermon 27 | The Eternal Name
 
-
 > His name shall endure for ever.    
 > Psalm 72:17.    
 

@@ -1,6 +1,5 @@
 # Sermon 12 | The Peculiar Sleep of the Beloved
 
-
 > For so he giveth his beloved sleep.    
 > Psalm 127:2.    
 

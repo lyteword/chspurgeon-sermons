@@ -1,6 +1,5 @@
 # Sermon 22 | A Caution to the Presumptuous
 
-
 > Let him that thinketh he standeth take heed lest he fall.    
 > 1 Corinthians 10:12.    
 

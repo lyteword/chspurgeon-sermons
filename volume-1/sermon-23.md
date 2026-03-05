@@ -1,6 +1,5 @@
 # Sermon 23 | Thoughts on the Last Battle
 
-
 > The sting of death is sin; and the strength of sin is the law. But, thanks be unto God, which giveth us the victory through our Lord Jesus Christ.    
 > 1 Corinthians 15:56-57.    
 

@@ -1,6 +1,5 @@
 # Sermon 9 | Spiritual Liberty
 
-
 > Where the Spirit of the Lord is, there is liberty.    
 > 2 Corinthians 3:17.    
 

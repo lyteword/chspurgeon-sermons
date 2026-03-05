@@ -1,6 +1,5 @@
 # Sermon 36 | What Are the Clouds?
 
-
 > That clouds are the dust of his feet.    
 > Nahum 1:3.    
 

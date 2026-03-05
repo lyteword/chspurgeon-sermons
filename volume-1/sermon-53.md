@@ -1,6 +1,5 @@
 # Sermon 53 | Healing for the Wounded
 
-
 > He healeth the broken in heart, and bindeth up their wounds.    
 > Psalm 147:3.    
 

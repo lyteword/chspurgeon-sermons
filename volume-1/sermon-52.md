@@ -1,6 +1,5 @@
 # Sermon 52 | Free Will&mdash;A Slave
 
-
 > And ye will not come to me, that ye might have life.    
 > John 5:40.    
 

@@ -1,6 +1,5 @@
 # Sermon 49 | The God of Peace
 
-
 > Now the God of peace be with you all. Amen,    
 > Romans 15:33.    
 

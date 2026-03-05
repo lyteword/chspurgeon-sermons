@@ -1,6 +1,5 @@
 # Sermon 44 | Repentance Unto Life
 
-
 > Then hath God also to the Gentiles granted repentance unto life.    
 > Acts 11:18.    
 

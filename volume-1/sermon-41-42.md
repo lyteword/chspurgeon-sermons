@@ -1,6 +1,5 @@
 # Sermon 41 & 42 | Election
 
-
 > But we are bound to give thanks always to God for you, brethren beloved of the Lord, because God hath from the beginning chosen you to salvation through sanctification of the Spirit and belief of the truth: Whereunto he called you by our gospel, to the obtaining of the glory of our Lord Jesus Christ.    
 > 2 Thessalonians 2:13-14.    
 

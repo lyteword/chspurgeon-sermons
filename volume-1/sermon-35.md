@@ -1,6 +1,5 @@
 # Sermon 35 | God's People in the Furnace
 
-
 > I have chosen thee in the furnace of affliction.    
 > Isaiah 48:10.    
 

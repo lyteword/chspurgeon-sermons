@@ -1,6 +1,5 @@
 # Sermon 18 | The Tomb of Jesus
 
-
 > Come, see the place where the Lord lay.    
 > Matthew 28:6.    
 

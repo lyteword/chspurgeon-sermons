@@ -1,6 +1,5 @@
 # Sermon 26 | The Two Effects of the Gospel
 
-
 > For we are unto God a sweet savour of Christ, in them that are saved, and in them that perish: To the one we are the savour of death unto death; and to the other the savour of life unto life. And who is sufficient for these things?    
 > 2 Corinthians 2:15-16.    
 

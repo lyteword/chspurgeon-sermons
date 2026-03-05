@@ -1,6 +1,5 @@
 # Sermon 13 | Consolation Proportionate to Spiritual Sufferings
 
-
 > For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.    
 > 2 Corinthians 1:5.    
 

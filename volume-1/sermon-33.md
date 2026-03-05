@@ -1,6 +1,5 @@
 # Sermon 33 | A Wise Desire
 
-
 > He shall choose our inheritance for us.    
 > Psalm 47:4.    
 

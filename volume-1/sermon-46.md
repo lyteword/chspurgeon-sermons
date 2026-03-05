@@ -1,6 +1,5 @@
 # Sermon 46 | The Glorious Habitation
 
-
 > Lord thou hast been our dwelling-place in all generations.    
 > Psalm 90:1.    
 

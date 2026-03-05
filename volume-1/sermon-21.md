@@ -1,6 +1,5 @@
 # Sermon 21 | Christ's People&mdash;Imitators of Him
 
-
 > Now when they saw the boldness of Peter and John, and perceived that they were unlearned and ignorant men, they marvelled; and they took knowledge of them, that they had been with Jesus.    
 > Acts 4:13.    
 
