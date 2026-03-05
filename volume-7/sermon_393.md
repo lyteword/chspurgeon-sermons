@@ -1,6 +1,5 @@
 # Sermon 393 | The Church--Conservative And Aggressive
 
-
 > "The Church of the living God, the pillar and ground of the Truth."  
 > 1 Timothy 3:15.   
 

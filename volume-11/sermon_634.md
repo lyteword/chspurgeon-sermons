@@ -1,6 +1,5 @@
 # Sermon 634 | Christians Kept In Time And Glorified In Eternity
 
-
 > Now unto Him that is able to keep you from falling and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savor, be glory and majesty, dominion and power, both now and ever. Amen.    
 > Jude 24,25.    
 

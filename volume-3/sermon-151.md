@@ -1,6 +1,5 @@
 # Sermon 151 | The Condescension of Christ
 
-
 > For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich    
 > 2 Corinthians 8:9.    
 

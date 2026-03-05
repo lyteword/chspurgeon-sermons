@@ -1,6 +1,5 @@
 # Sermon 643 | No Tears In Heaven
 
-
 > And God shall wipe away all tears from their eyes.    
 > Revelation 7:17.    
 

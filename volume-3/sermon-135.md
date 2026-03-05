@@ -1,6 +1,5 @@
 # Sermon 135 | Presumptuous Sins
 
-
 > Keep back thy servant also from presumptuous sins.    
 > Psalm 19:13.    
 

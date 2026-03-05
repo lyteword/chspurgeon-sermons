@@ -1,6 +1,5 @@
 # Sermon 237 | Hypocrisy
 
-
 > Beware ye of the leaven of the Pharisees, which is hypocrisy.    
 > Luke 12:1.    
 

@@ -1,6 +1,5 @@
 # Sermon 201 | The Outpouring of the Holy Spirit
 
-
 > While Peter yet spake these words, the Holy Ghost fell on all them which heard the Word    
 > Acts 10:44.    
 

@@ -1,6 +1,5 @@
 # Sermon 392 | Trust In God--True Wisdom
 
-
 > "He who handles a matter wisely shall find good: and whoever trusts in the Lord, happy is he."  
 > Proverbs 16:20.  
 

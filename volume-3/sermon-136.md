@@ -1,6 +1,5 @@
 # Sermon 136 | Israel in Egypt
 
-
 > And they sang the song of Moses the servant of God, and the song of the Lamb, saying, Great and marvelous are thy works, Lord God Almighty; just and true are thy ways, thou King of saints.    
 > Revelation 15:3.    
 

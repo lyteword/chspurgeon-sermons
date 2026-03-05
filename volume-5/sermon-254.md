@@ -1,6 +1,5 @@
 # Sermon 254 | The Wounds of Jesus
 
-
 > He shewed them his hands and his feet.    
 > Luke 24:40.    
 

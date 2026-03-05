@@ -1,6 +1,5 @@
 # Sermon 494 | The Betrayal
 
-
 > "And while he yet spake, behold a multitude, and he that was called Judas, one of the twelve, went before them, and drew near unto Jesus to kiss him. But Jesus said unto him, Judas, betrayest thou the Son of man with a kiss?"  
 > Luke 22:47, 48.  
 

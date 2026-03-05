@@ -1,6 +1,5 @@
 # Sermon 461 | Am I Clear Of His Blood?
 
-
 > "The voice of your brother's blood cries out to Me from the ground."  
 > Genesis 4:10.  
 

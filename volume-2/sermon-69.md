@@ -1,6 +1,5 @@
 # Sermon 69 | The Allegories of Sarah and Hagar
 
-
 > These are the two covenants.    
 > Galatians 4:24.    
 

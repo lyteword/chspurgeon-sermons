@@ -1,6 +1,5 @@
 # Sermon 519 | Believing With The Heart
 
-
 > "For with the heart man believes unto righteousness. And with the mouth confession is made unto salvation."  
 > Romans 10:10.  
 

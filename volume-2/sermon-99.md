@@ -1,6 +1,5 @@
 # Sermon 99 | The Duty of Remembering the Poor
 
-
 > Only they would that we should remember the poor; the same which I also was forward to do.    
 > Galatians 2:10.    
 

@@ -1,6 +1,5 @@
 # Sermon 605 | Good Works In Good Company
 
-
 > "Come, my Beloved, let us go forth to the field. Let us lodge in the villages. Let us get up early to the vineyards. Let us see if the vine has budded, whether the grape blossoms are open and the pomegranates are in bloom. There will I give You my love. The mandrakes give off a fragrance, and at our gates are pleasant fruits, all manner new and old, which I have laid up for You, O my Beloved."  
 > Song of Solomon 7:11-13.  
 

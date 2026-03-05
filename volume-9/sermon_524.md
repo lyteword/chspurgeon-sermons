@@ -1,6 +1,5 @@
 # Sermon 524 | The Saint's Horror At The Sinner's Hell
 
-
 > "Gather not my soul with sinners."  
 > Psalm 269  
 

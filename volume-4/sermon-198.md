@@ -1,6 +1,5 @@
 # Sermon 198 | The Heavenly Race
 
-
 > So run, that ye may obtain.    
 > 1 Corinthians 9:24.    
 

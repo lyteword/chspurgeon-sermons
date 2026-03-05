@@ -1,6 +1,5 @@
 # Sermon 429 | Grace Exalted--Boasting Excluded
 
-
 Where is boasting then? It is excluded. By what law? Of works? No, but by the law of faith."--Romans 3:27.
 
 PRIDE is most obnoxious to God. As a sin, His holiness hates it. As a treason, His sovereignty detests it. As a rebellion, the whole of His attributes stand leagued to put it down. God has touched other sins with His finger, but against this vice He has made bare His arm. There have been, I know, terrible judgments against lust--but there have been ten times as many against that swelling lust of the deceitful heart. Remember, the first transgression had in its essence, pride.

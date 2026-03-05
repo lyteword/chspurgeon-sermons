@@ -1,6 +1,5 @@
 # Sermon 139 | Christ Lifted Up
 
-
 > And I, if I be lifted up, will draw all men unto me.    
 > John 12:32.    
 

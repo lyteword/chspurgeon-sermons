@@ -1,6 +1,5 @@
 # Sermon 488 | The Voice From Heaven
 
-
 > "And they heard a great voice from Hea ven, saying unto them, Come up here."  
 > Revelation 11:12.  
 

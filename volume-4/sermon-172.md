@@ -1,6 +1,5 @@
 # Sermon 172 | Search the Scriptures
 
-
 > To the law and to the testimony; if they speak not according to this word, it is because there is no light in them.    
 > Isaiah 8:20.    
 

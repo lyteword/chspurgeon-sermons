@@ -1,6 +1,5 @@
 # Sermon 308 | The Parable Of The Sower
 
-
 > And when much people were gathered together, and were come to him out of every city, he spake by a parable: a sower went out to sow his seed: and as he sowed, some fell by the way side; and it was trodden down, and the fowls of the air devoured it. And some fell upon a rock; and as soon as it was sprung up, it withered away, because it lacked moisture. And some fell among thorns; and the thorns sprang up with it, and choked it. And other fell on good ground, and sprang up, and bare fruit an hundredfold. And when he had said these things, he cried, He that hath ears to hear, let him hear.    
 > Luke 8:4-8.    
 

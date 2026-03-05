@@ -1,6 +1,5 @@
 # Sermon 78 | The Character of Christ's People
 
-
 > They are not of the world, even as I am not of the world.    
 > John 17:16.    
 

@@ -1,6 +1,5 @@
 # Sermon 223 | The Evil and Its Remedy
 
-
 > The iniquity of the house of Israel and Judah is exceeding great.    
 > Ezekiel 9:9.    
 

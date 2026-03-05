@@ -1,6 +1,5 @@
 # Sermon 500 | Ebenezer!
 
-
 > "Then Samuel took a stone, and set it between Mizpeh and Shen, and called the name of it Eben-ezer, saying, Hitherto hath the Lord helped us."  
 > 1 Samuel 7:12.  
 

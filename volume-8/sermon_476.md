@@ -1,6 +1,5 @@
 # Sermon 476 | Citizenship In Heaven
 
-
 > "For our conversation is in Heaven; from where also we look for the Savior, the Lord Jesus Christ."  
 > Philippians 3:20.  
 

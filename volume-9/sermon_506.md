@@ -1,6 +1,5 @@
 # Sermon 506 | Strong Meat
 
-
 > "But strong meat belongs to them that are of full age, even those who by reason of use have their senses exercised to discern both good and evil.'"  
 > Hebrews 5:14.  
 

@@ -1,6 +1,5 @@
 # Sermon 626 | The Waterer Watered
 
-
 > He that waters shall be watered also himself.    
 > Proverbs 11:25.    
 

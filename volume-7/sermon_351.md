@@ -1,12 +1,5 @@
 # Sermon 351 | Plenteous Redemption
 
-A Sermon
-
-
-Delivered at Exeter Hall, Strand, by the
-
-REV. C.H. SPURGEON.
-
 "With him is plenteous redemption."--Psalm 103:7.
 
 REDEMPTION is a word which has gladdened many ears, when there was no heavenly sound in its blessed chime. Apart from any theological use of it, the word is a very sweet one, and has been melodious to many hearts. In those days when piracy was carried on continually along the coast of Africa, when our fellow Christian subjects were caught by corsairs, and carried away captive, you can well understand how the burdened soul of the manacled slave, chained to the oar of his galley, was gladdened by the hope that possibly there would be redemption. His cruel master, who had forced him into his possession, would not willingly emancipate him; but a rumour came, that in some distant nation they had raised a sum of money to purchase the freedom of slaves--that some wealthy merchant had dedicated of his substance to buy back his fellow-countrymen; that the king himself upon his throne had promised to give a liberal redemption that the captives among the moors might return to their home. Truly I can suppose the hours run happily along, and the dreariness of their toil would be assuaged, when once that word "redemption" had sounded in their ears. So with our fellow-subjects and our fellow-men, who once were slaves in our West India settlements. We can well conceive that to their lips the word redemption must have been a very pleasing song. It must have been well nigh as sweet to them as the marriage peals to a youthful bridegroom, when they knew that the noble British nation would count down the twenty millions of their redemption money; that on a certain morning their fetters should be snapped asunder, so that they should no more go out to the plantations to sweat in the sun, driven by the whip, but they should call themselves their own, and none should be their masters to possess thir flesh, and have property in their souls. You can conceive when the sun of that happy morn arose, when emancipation was proclaimed from sea to sea, and the whole land was at liberty, how joyful must their new-found freedom have appeared. O there are many sonnets in that one word "redemption."

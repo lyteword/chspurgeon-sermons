@@ -1,6 +1,5 @@
 # Sermon 177 | God, the All-Seeing One
 
-
 > Hell and destruction are before the Lord: how much more then the hearts of the children of men?    
 > Proverbs 15:11.    
 

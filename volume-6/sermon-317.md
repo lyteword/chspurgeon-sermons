@@ -1,6 +1,5 @@
 # Sermon 317 | Characteristics of Faith
 
-
 > Then said Jesus unto him, Except ye see signs and wonders, ye will not believe.    
 > John 4:48.    
 

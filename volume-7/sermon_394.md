@@ -1,6 +1,5 @@
 # Sermon 394 | Even So, Father!
 
-
 > "At that time Jesus answered and said, I thank You, Father, Lord ofHeaven and earth, that You have hidden these thing from the wise and prudent and have revealed them to babes. Even so, Father, for so it seemed good in Your sight."  
 > Matthew 11:25,26.  
 

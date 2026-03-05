@@ -1,6 +1,5 @@
 # Sermon 654 | Memory--The Handmaid Of Hope
 
-
 > This I recall to my mind, therefore ha ve I hope.    
 > Lamentations 3:21.    
 

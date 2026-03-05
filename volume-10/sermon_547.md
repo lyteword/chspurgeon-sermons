@@ -1,6 +1,5 @@
 # Sermon 547 | Suffering And Reigning With Jesus
 
-
 > "If we suffer, we shall also reign with Him: if we deny Him, He also will deny us."  
 > 2 Timothy 2:12.  
 

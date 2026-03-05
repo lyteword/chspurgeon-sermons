@@ -1,6 +1,5 @@
 # Sermon 437 | A Sight Of Self
 
-
 > "But we are alias an unclean thing and all our righteousnesses are as filthy rags. And we all do fade as a leaf. And our iniquities, like the wind, have taken us away. And there is none that calls upon Your name, that stirs up himself to take hold of You: for You have hid Your face from us and have consumed us, because of our iniquities. But now, O Lord, You are our Father. We are the clay, and You our Potter. And we all are the work of Your hand."  
 > Isaiah 64:6, 7,8.  
 

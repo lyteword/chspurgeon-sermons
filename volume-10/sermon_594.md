@@ -1,6 +1,5 @@
 # Sermon 594 | An Awful Premonition
 
-
 > "Assuredly I say unto you, there are some standing here who shall not taste of death till they see the Son of Man coming in His kingdom."  
 > Matthew 16:28.  
 

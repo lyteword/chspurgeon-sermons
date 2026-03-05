@@ -1,6 +1,5 @@
 # Sermon 328 | True Prayer&mdash;True Power!
 
-
 > Therefore I say unto you, what things soever ye desire, when ye pray, believe that ye receive and ye shall have them.    
 > Mark 11:24.    
 

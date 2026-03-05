@@ -1,6 +1,5 @@
 # Sermon 557 | Where to Find Fruit
 
-
 > "From me is thy fruit found."  
 > Hosea 14:8.  
 

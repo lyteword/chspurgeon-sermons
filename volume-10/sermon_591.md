@@ -1,6 +1,5 @@
 # Sermon 591 | "Thus Saith The Lord:" Or, The Book of Common Prayer Weighed in the Balances of the Sanctuary
 
-
 > "Thus saith the Lord."  
 > Ezekiel 11:15.  
 

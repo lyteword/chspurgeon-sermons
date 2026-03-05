@@ -1,6 +1,5 @@
 # Sermon 60 | Sovereignty and Salvation
 
-
 > Look unto me and be ye saved, all the ends of the earth: for I am God, and there is none else.    
 > Isaiah 45:22.    
 

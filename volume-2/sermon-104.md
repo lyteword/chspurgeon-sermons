@@ -1,6 +1,5 @@
 # Sermon 104 | Love's Commendation
 
-
 > But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.    
 > Romans 5:8.    
 

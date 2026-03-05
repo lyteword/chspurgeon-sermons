@@ -1,6 +1,5 @@
 # Sermon 207 | Sovereign Grace and Man's Responsibility
 
-
 > But Esaias is very bold, and saith, I was found of them that sought me not; I was made manifest unto them that asked not after me. But to Israel he saith, all day long I have stretched forth my hands unto a disobedient and gainsaying people.    
 > Romans 10:20-21.    
 

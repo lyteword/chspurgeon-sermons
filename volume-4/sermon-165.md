@@ -1,6 +1,5 @@
 # Sermon 165 | The Warning Neglected
 
-
 > He heard the sound of the trumpet, and took not warning; his blood shall be upon him.    
 > Ezekiel 33:5.    
 

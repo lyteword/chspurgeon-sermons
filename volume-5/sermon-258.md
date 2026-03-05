@@ -1,6 +1,5 @@
 # Sermon 258 | His Name&mdash;the Mighty God
 
-
 > The mighty God.    
 > Isaiah 9:6.    
 

@@ -1,6 +1,5 @@
 # Sermon 455 | "The Love Of Jesus--What It Is--None But His Loved Ones Know"
 
-
 > "And to know the love of Christ which passes knowledge."  
 > Ephesians 3:19.   
 

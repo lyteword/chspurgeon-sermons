@@ -1,6 +1,5 @@
 # Sermon 284 | One Antidote for Many Ills
 
-
 > Turn us again, O Lord God of hosts, cause thy face to shine; and we shall be saved.    
 > Psalm 80:10.    
 

@@ -1,6 +1,5 @@
 # Sermon 418 | Bread For The Hungry
 
-
 > "And He humbled you and suffered you to hunger and fed you with manna, which you knew not neither did your fathers know; that He might make you know that man does not live by bread only but by every Word that proceeds out of the mouth of the Lord does man live."  
 > Deuteronomy 8:3.  
 

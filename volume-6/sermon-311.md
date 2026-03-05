@@ -1,6 +1,5 @@
 # Sermon 311 | The Beginning, Increase, and End of the Divine Life
 
-
 > Though thy beginning was small, yet thy latter end should greatly increase.    
 > Job 8:7.    
 

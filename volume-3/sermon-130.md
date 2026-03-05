@@ -1,6 +1,5 @@
 # Sermon 130 | Regeneration
 
-
 > Except a man be born again, he can not see the kingdom of God.    
 > John 3:3.    
 

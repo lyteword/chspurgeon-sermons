@@ -1,6 +1,5 @@
 # Sermon 87 | The Majestic Voice
 
-
 > The voice of the Lord is full of majesty.    
 > Psalm 29:4.    
 

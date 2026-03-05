@@ -1,6 +1,5 @@
 # Sermon 441 | The Elders Before The Throne
 
-
 > "And round about the Throne were four and twenty seats: and upon the seats I saw four and twenty elders sitting clothed in white raiment. And they had on their heads crowns of gold." The four and twenty elders fall down before Him that sat on the Throne and worship Him that lives forever and ever and cast their crowns before the Throne, saying, You are worthy, O Lord, to receive glory and honor and power: for You have created all things, and for Your pleasure they are and were created."  
 > Revelation 4:4; 10,11.  
 

@@ -1,6 +1,5 @@
 # Sermon 178 | The Work of the Holy Spirit
 
-
 > Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh?    
 > Galatians 3:3.    
 

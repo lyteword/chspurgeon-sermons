@@ -1,6 +1,5 @@
 # Sermon 583 | The Lamb--The Light
 
-
 > "And the city had no need of the sun, neither of the moon, to shine in it: for the Gory of God did lighten it and the Lamb is its light."  
 > Revelation 21:23.  
 

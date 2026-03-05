@@ -1,6 +1,5 @@
 # Sermon 502 | A Jealous God
 
-
 > "For the Lord, whose name is jealous, is a jealous God."  
 > Exodus 34:14.  
 

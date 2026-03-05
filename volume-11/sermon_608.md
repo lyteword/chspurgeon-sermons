@@ -1,6 +1,5 @@
 # Sermon 608 | A Discourse For A Revival Season
 
-
 > Behold the voice of the cry of the daughter of My people because of them that dwell in a far country, Is not the Lord in Zion? Is not her King in her? Why have they provoked Me to anger with their graven images and with strange vanities? The harvest is past, the summer is ended and we are not saved.    
 > Jeremiah 8:19,20.    
 

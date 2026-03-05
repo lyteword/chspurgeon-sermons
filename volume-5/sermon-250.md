@@ -1,6 +1,5 @@
 # Sermon 250 | War! War! War!
 
-
 > Fight the Lord's battles.    
 > 1 Samuel 18:17.    
 

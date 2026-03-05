@@ -1,6 +1,5 @@
 # Sermon 528 | Chastisement--Now And Afterward
 
-
 > "Now no chastening for the present seems to bejoyous, but grievous: nevertheless afterward it yields the peaceable fruit of righteousness unto them which are exercised thereby."  
 > Hebrews 12:11.  
 

@@ -1,6 +1,5 @@
 # Sermon 125 | The Fruitless Vine
 
-
 > And the word of the Lord came unto me, saying, Son of man, What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?    
 > Ezekiel 15:1-2.    
 

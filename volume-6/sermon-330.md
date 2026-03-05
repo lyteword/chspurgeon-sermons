@@ -1,6 +1,5 @@
 # Sermon 330 | Reigning Grace
 
-
 > So that as sin has reigned in death, even so might Grace reign through righteousness unto eternal life by Jesus Christ our Lord.    
 > Romans 5:21.    
 

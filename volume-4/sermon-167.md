@@ -1,6 +1,5 @@
 # Sermon 167 | The Holy Spirit and the One Church
 
-
 > These be they who separate themselves, sensual, having not the Spirit.    
 > Jude 1:19.    
 

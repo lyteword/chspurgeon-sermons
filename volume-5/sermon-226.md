@@ -1,6 +1,5 @@
 # Sermon 226 | The Feast of the Lord
 
-
 > The governor of the feast called the bridegroom, and saith unto him, every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse; but thou hast kept the good wine until now.    
 > John 2:9-10.    
 

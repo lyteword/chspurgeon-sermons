@@ -1,6 +1,5 @@
 # Sermon 245 | The Way to God
 
-
 > No man cometh unto the Father, but by me.    
 > St. John 14:6.    
 

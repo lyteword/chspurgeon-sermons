@@ -1,6 +1,5 @@
 # Sermon 473 | Good News For You
 
-
 > "But a certain Samaritan, as he journeyed, came where he was."  
 > Luke 10:33.   
 

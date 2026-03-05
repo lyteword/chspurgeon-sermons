@@ -1,6 +1,5 @@
 # Sermon 413 | To Die Or Not To Die!
 
-
 > "Willing rather to be absent from the body and to be present with the Lord."  
 > 2 Corinthians 5:8.  
 

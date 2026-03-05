@@ -1,6 +1,5 @@
 # Sermon 509 | Lead Us Not Into Temptation
 
-
 > "Lead us not into temptation, but deliver us from evil."  
 > Matthew 6:13.   
 

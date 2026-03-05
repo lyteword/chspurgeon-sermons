@@ -1,6 +1,5 @@
 # Sermon 448 | Another And A Nobler Exhibition
 
-
 > "To the intent that now unto the principalities and powers in heavenly places might be known by the Church the manifold wisdom of God."  
 > Ephesians 3:10.  
 

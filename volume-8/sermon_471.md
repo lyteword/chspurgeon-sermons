@@ -1,6 +1,5 @@
 # Sermon 471 | Accepted In The Beloved
 
-
 > "He has made us accepted in the Beloved."  
 > Ephesians 1:6.   
 

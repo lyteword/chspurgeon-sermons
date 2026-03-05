@@ -1,6 +1,5 @@
 # Sermon 220 | God's Barriers Against Man's Sin
 
-
 BELOVED FRIENDS AND KINDRED IN CHRIST,
 
 The days seem like weeks and the weeks seem like months since I went up to the house of the Lord. My heart and my flesh are crying out for the assembly of the saints. Oh how I long to hear once more the solemn shout of the festal throng who with the voice of joy and praise keep holy day!

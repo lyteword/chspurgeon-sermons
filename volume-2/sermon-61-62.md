@@ -1,6 +1,5 @@
 # Sermon 61 & 62 | The Beatific Vision
 
-
 > We shall see him as he is.    
 > 1 John 3:2.    
 

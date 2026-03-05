@@ -1,6 +1,5 @@
 # Sermon 568 | What God Cannot Do!
 
-
 > "God, that cannot lie."  
 > Titus 1:2.  
 

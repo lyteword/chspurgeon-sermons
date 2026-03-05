@@ -1,6 +1,5 @@
 # Sermon 563 | The Barley Field on Fire
 
-
 > "Absalom sent for Joab, to have sent him to the king; but he would not come to him; and when he sent again, the second time, he would not come. Therefore he said unto his servants, See, Joab's field is near mine, and he hath barley there: Go and set it on fire. And Absalom's servants set the field on fire. Then Joab arose, and came to Absalom unto his house, and said unto him, Wherefore have thy servants set my field on fire?"  
 > 2 Samuel 14:29-31.  
 

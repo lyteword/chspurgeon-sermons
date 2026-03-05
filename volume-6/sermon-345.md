@@ -1,6 +1,5 @@
 # Sermon 345 | Self-Sufficiency Slain
 
-
 > Without Me you can do nothing.    
 > John 15:5.    
 

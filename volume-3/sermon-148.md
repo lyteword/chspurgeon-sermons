@@ -1,6 +1,5 @@
 # Sermon 148 | Five Fears
 
-
 > Yet surely I know that it shall be well with them that fear God, which fear before him.    
 > Ecclesiastes 8:12.    
 

@@ -1,6 +1,5 @@
 # Sermon 546 | Alpha And Omega
 
-
 > "I am Alpha and Omega, the Beginning and the End, the First and the Last."  
 > Revelation 22:13.  
 

@@ -1,6 +1,5 @@
 # Sermon 480 | A Message from God for Thee
 
-
 > "The punishment of thine iniquity is accomplished, O daughter of Zion; he will no more carry thee away into captivity: he will visit thine iniquity, O daughter of Edom; he will discover thy sins."  
 > Lamentations 4:22.  
 

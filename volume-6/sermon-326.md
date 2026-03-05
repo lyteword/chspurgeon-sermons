@@ -1,6 +1,5 @@
 # Sermon 326 | Everywhere And Yet Forgotten
 
-
 > Who knows not in all these that tie hand of the Lord has worked this? In whose hand is the soul of every living thing and the breath of all mankind.    
 > Job 12:9,10.    
 

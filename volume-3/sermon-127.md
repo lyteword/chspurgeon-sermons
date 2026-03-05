@@ -1,6 +1,5 @@
 # Sermon 127 | Spiritual Resurrection
 
-
 > And you hath he quickened, who were dead in trespasses and sins.    
 > Ephesians 2:1.    
 

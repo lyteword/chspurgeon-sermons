@@ -1,6 +1,5 @@
 # Sermon 93 | God in the Covenant
 
-
 > I will be their God.    
 > Jeremiah 31:33.    
 

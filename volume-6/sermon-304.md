@@ -1,6 +1,5 @@
 # Sermon 304 | Memento Mori
 
-
 > Oh that they were wise, that they understood this, that they would consider their latter end.    
 > Deuteronomy 32:29.    
 

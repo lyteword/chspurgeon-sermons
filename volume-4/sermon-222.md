@@ -1,6 +1,5 @@
 # Sermon 222 | The Christian's Heaviness and Rejoicing
 
-
 > Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations.    
 > 1 Peter 1:6.    
 

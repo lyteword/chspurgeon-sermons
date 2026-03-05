@@ -1,6 +1,5 @@
 # Sermon 558 | A Bundle of Myrrh
 
-
 > "A bundle of myrrh is my well-beloved unto me; he shall lie all night betwixt my breasts."  
 > Song of Solomon 1:13.  
 

@@ -1,6 +1,5 @@
 # Sermon 194 | Human Responsibility
 
-
 > If I had not come and spoken unto them, they had not had sin: but now they have no cloke for their sin.    
 > John 15:22.    
 

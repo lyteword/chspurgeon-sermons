@@ -1,6 +1,5 @@
 # Sermon 603 | Now
 
-
 > "For He says, I have heard You in a time accepted and in the day of salvation have I succored You: behold, nowis the accepted time; behold, nowis the day of salvation."  
 > 2 Corinthians 6:2.  
 

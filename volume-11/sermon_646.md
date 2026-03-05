@@ -1,6 +1,5 @@
 # Sermon 646 | In Whom Are You Trusting?
 
-
 > Now in whom do you trust?    
 > Isaiah 36:5.    
 

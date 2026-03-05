@@ -1,6 +1,5 @@
 # Sermon 490 | Gracious Renewal
 
-
 > "Renew a right spirit within me."  
 > Psalm 51:10.  
 

@@ -1,6 +1,5 @@
 # Sermon 149 | Independence of Christianity
 
-
 > Not by might, nor by power, but by my Spirit, saith the Lord of Hosts.    
 > Zechariah 4:6.    
 

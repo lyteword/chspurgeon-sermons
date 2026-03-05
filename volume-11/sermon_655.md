@@ -1,6 +1,5 @@
 # Sermon 655 | The Great Itinerant
 
-
 > Who went about doing good.    
 > Acts 10:38.    
 

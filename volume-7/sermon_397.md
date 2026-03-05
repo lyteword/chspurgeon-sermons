@@ -1,6 +1,5 @@
 # Sermon 397 | Fire! Fire! Fire!
 
-
 > "When thou walkest through the fire, thou shalt not be burned; neither shall the flame kindle upon thee."  
 > Isaiah 43:2.  
 

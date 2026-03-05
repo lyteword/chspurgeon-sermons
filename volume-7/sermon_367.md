@@ -1,6 +1,5 @@
 # Sermon 367 | The Great Supreme
 
-
 > "Ascribe you greatness to our God."  
 > Deuteronomy 32:3.   
 

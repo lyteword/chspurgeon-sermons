@@ -1,6 +1,5 @@
 # Sermon 430 | Two Advents Of Christ
 
-
 > "And as is appointed unto men once to die but after this the judgment: So Christ was once offered to bear the sins of many, and unto them that look for Him shall He appear the second time without sin unto salvation.'"  
 > Hebrews 9:27,28.  
 

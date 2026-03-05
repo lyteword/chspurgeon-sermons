@@ -1,6 +1,5 @@
 # Sermon 544 | Lessons From Lydia's Conversion
 
-
 > "And on the Sabbath we went out of the city by a riverside, whereprayer was customarily made; and we sat down and spoke to the women who met there. And a certain woman named Lydia, a seller of purple, of the city of Thyatira, who worshipped God, heard us: whose heart the Lord opened, that she attended unto the things which were spoken of Paul."  
 > Acts 16:13,14.  
 

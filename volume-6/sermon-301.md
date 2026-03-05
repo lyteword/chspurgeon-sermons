@@ -1,6 +1,5 @@
 # Sermon 301 | A Blast of the Trumpet Against False Peace
 
-
 > Peace, peace, when there is no peace.    
 > Jeremiah 6:14.    
 

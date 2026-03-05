@@ -1,6 +1,5 @@
 # Sermon 187 | Providence
 
-
 > But the very hairs of your head are all numbered.    
 > Matthew 10:30.    
 

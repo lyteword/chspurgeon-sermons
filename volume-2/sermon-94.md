@@ -1,6 +1,5 @@
 # Sermon 94 | Tomorrow
 
-
 > Boast not thyself of to-morrow; for thou knowest not what a day may bring forth.    
 > Proverbs 27:1.    
 

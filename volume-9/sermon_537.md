@@ -1,6 +1,5 @@
 # Sermon 537 | Encourage Your Minister!
 
-
 > "Encourage him."  
 > Deuteronomy 1:38.  
 

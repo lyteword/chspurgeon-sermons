@@ -1,6 +1,5 @@
 # Sermon 432 | A Voice from the Hartley Colliery
 
-
 > "If a man die, shall he live again?  
 > Job 14:14.  
 

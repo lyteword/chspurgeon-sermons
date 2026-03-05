@@ -1,6 +1,5 @@
 # Sermon 85 | Omniscience
 
-
 > Thou God seest me.    
 > Genesis 16:13.    
 

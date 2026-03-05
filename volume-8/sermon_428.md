@@ -1,6 +1,5 @@
 # Sermon 428 | A Cure For Care
 
-
 > "Casting all your care upon Him. For He cares for you."  
 > 1 Peter 5:7.   
 

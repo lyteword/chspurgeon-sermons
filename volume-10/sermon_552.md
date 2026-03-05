@@ -1,6 +1,5 @@
 # Sermon 552 | Do You Know Him?
 
-
 > "That I may know him."  
 > Philippians 3:10.  
 

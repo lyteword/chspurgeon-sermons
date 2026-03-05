@@ -1,6 +1,5 @@
 # Sermon 638 | Who Are The Elect?
 
-
 > And the Lord said, Arise, anoint him, for this is he.    
 > 1 Samuel 16:12.    
 

@@ -1,6 +1,5 @@
 # Sermon 562 | "Alas For Us, If Thou Wert All, and Nought Beyond, O Earth"
 
-
 > "If in this life only we have hope in Christ, we are of all men most miserable."  
 > 1 Corinthians 15:19.  
 

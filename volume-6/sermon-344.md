@@ -1,6 +1,5 @@
 # Sermon 344 | Tender Words Of Terrible Apprehension!
 
-
 > The wicked shhall be turned into Hell, and all the nations that forget God.    
 > Psalm 9:17.    
 

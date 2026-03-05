@@ -1,6 +1,5 @@
 # Sermon 356 | Words Of Expostulation
 
-
 > "And now what have you to do in the way of Egypt, to drink the waters of Sihor? Or what have you to do in the way of Assyria, to drink the waters of the river?"  
 > Jeremiah 2:18.  
 

@@ -1,6 +1,5 @@
 # Sermon 599 | The Certainty And Freeness Of Divine Grace
 
-
 > "All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out."  
 > John 6:37.  
 

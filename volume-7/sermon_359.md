@@ -1,6 +1,5 @@
 # Sermon 359 | The Tabernacle &mdash; Outside The Camp
 
-
 > "And Moses took the Tabernacle and pitched it outside the camp, afar off from the camp, and called it the Tabernacle of the congregation. And it came to pass, that everyone which sought the LORRD went out unto the Tabernacle of the congregation, which was outside the camp."  
 > Exodus 33:7.  
 

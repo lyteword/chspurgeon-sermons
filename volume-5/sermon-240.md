@@ -1,6 +1,5 @@
 # Sermon 240 | Prayer Answered, Love Nourished
 
-
 > I love the Lord, because he hath heard my voice and my supplication.    
 > Psalm 116:1.    
 

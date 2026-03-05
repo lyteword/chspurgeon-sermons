@@ -1,6 +1,5 @@
 # Sermon 532 | Thanksgiving And Prayer
 
-
 > "You crown the year with Your goodness. And your paths drop fatness."  
 > Psalm 65:11.  
 

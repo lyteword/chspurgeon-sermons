@@ -1,6 +1,5 @@
 # Sermon 446 | The Old, Old Story
 
-
 > "In due time Christ died for the ungodly."  
 > Romans 5:6.  
 

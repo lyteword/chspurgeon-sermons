@@ -1,6 +1,5 @@
 # Sermon 644 | God's Witnesses
 
-
 > You are My witnesses, says the Lord, and My Servant, whom I have chosen.    
 > Isaiah 43:10.    
 

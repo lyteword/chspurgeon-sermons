@@ -1,6 +1,5 @@
 # Sermon 305 | Separating the Precious From the Vile
 
-
 > That ye may know how that the Lord hath put a difference between the Egyptians and Israel,    
 > Exodus 11:7.    
 

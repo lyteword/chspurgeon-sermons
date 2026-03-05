@@ -1,6 +1,5 @@
 # Sermon 363 | The Glorious Right Hand Of The Lord
 
-
 > "And the Lord said unto Moses, Is the Lord's hand waxed short? You shall now see whether My Word shall come to pass unto you or not."  
 > Numbers 11:23.  
 

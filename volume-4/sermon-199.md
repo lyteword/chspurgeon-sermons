@@ -1,6 +1,5 @@
 # Sermon 199 | A Free Salvation
 
-
 > Yea, come, buy wine and milk without money and without price.    
 > Isaiah 55:1.    
 

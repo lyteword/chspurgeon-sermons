@@ -1,6 +1,5 @@
 # Sermon 645 | The Blind Man's Earnest Cries
 
-
 > And when he heard that it was Jesus of Nazareth, he began to cry out and say, Jesus, Son of David, have mercy upon me! And many charged him that he should hold his peace: but he cried the more a great deal, Son of David, have mercy on me.    
 > Mark 10:47,48.    
 

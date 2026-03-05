@@ -1,6 +1,5 @@
 # Sermon 229 | Love
 
-
 > We love him, because he first loved us.    
 > 1 John 4:19.    
 

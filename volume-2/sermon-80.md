@@ -1,6 +1,5 @@
 # Sermon 80 | God Alone the Salvation of his People
 
-
 > He only is my rock and my salvation.    
 > Psalm 92:2.    
 

@@ -1,6 +1,5 @@
 # Sermon 196 | A Present Religion
 
-
 > Beloved, now are we the sons of God.    
 > 1 John 3:2.    
 

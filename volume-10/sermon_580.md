@@ -1,6 +1,5 @@
 # Sermon 580 | God Is With Us
 
-
 > "If God is for us, who can be against us?"  
 > Romans 8:31.  
 

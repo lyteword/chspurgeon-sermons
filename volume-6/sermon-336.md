@@ -1,6 +1,5 @@
 # Sermon 336 | Struggles of Conscience
 
-
 > How many are mine iniquities and sins? make me to know my transgression and my sin.    
 > Job 13:23.    
 

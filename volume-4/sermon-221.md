@@ -2,7 +2,6 @@
 
 This sermon was originally printed together with a pastoral letter from C. H. S.
 
-
 > Comfort ye, comfort ye my people, saith your God.    
 > Isaiah 40:1.    
 

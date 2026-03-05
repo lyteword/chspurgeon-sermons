@@ -1,6 +1,5 @@
 # Sermon 169 | What Have I Done?
 
-
 > What have I done?    
 > Jeremiah 8:6.    
 

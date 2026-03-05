@@ -1,6 +1,5 @@
 # Sermon 131 | Salvation of the Lord
 
-
 > Salvation is of the Lord.    
 > Jonah 2:9.    
 

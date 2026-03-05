@@ -1,6 +1,5 @@
 # Sermon 193 | The World Turned Upside Down
 
-
 > These that have turned the world upside down are come hither also.    
 > Acts 17:6.    
 

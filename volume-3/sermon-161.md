@@ -1,6 +1,5 @@
 # Sermon 161 | The Security of the Church
 
-
 > As the mountains are round about Jerusalem, so the Lord is round about his people from henceforth even for ever.    
 > Psalm 125:2.    
 

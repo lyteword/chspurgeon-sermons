@@ -1,6 +1,5 @@
 # Sermon 565 | The Great Liberator
 
-
 > "If the Son therefore shall make you free, you shall be free, indeed."  
 > John 8:36.  
 

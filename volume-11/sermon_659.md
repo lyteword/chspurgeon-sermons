@@ -1,6 +1,5 @@
 # Sermon 659 | Simeon
 
-
 > And, behold, there was a man in Jerusalem whose name was Simeon. And the same man was just and devout, waiting for the Consolation of Israel: and the Holy Spirit was upon him.    
 > Luke 2:25.    
 

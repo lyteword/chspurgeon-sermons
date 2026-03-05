@@ -1,6 +1,5 @@
 # Sermon 507 | The Power Of Prayer And The Pleasure Of Praise
 
-
 > "You also helping together byprayer for us, that for the gift bestowed upon us by the means of many persons thanks may be given by many on our behalf. For our rejoicing in this, the testimony of our conscience, that in simplicity and godly sincerity, not with fleshly wisdom, but by the Grace of God, we have had our conversation in the world and more abundantly to you."  
 > 2 Corinthians 1:11,12.  
 

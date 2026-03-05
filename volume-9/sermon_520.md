@@ -1,6 +1,5 @@
 # Sermon 520 | Confession With The Mouth
 
-
 > "With the heart man believes unto righteousness. And with the mouth confession is made unto salvation."  
 > Romans 10:10.  
 

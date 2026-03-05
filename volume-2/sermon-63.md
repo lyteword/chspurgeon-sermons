@@ -1,6 +1,5 @@
 # Sermon 63 | Marvellous Increase of the Church
 
-
 > Who are these that fly as a cloud, and as the doves to their windows?    
 > Isaiah 60:8.    
 

@@ -1,6 +1,5 @@
 # Sermon 458 | The Friend of Sinners
 
-
 > "He was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors."  
 > Isaiah 53:12.  
 

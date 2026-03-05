@@ -1,6 +1,5 @@
 # Sermon 188 | The Redeemer's Prayer
 
-
 > Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundations of the world.    
 > John 17:24.    
 

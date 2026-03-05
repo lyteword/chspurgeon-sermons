@@ -1,6 +1,5 @@
 # Sermon 256 | The Believer's Challenge
 
-
 > Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us    
 > Romans 8:34.    
 

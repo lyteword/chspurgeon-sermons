@@ -1,6 +1,5 @@
 # Sermon 420 | Abram And The Ravenous Birds
 
-
 > "But when the fowls came do wn upon the carcasses, Abram drove them away."  
 > Genesis 15:11.  
 

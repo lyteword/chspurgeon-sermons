@@ -1,6 +1,5 @@
 # Sermon 107 | Faith
 
-
 > Without faith it is impossible to please God.    
 > Hebrews 11:6.    
 

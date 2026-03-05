@@ -1,6 +1,5 @@
 # Sermon 497 | The Procession of Sorrow
 
-
 > "And they took Jesus, and led him away."  
 > John 19:16.  
 

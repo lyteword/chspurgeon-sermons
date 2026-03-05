@@ -1,6 +1,5 @@
 # Sermon 407 | Natural or Spiritual?
 
-
 > "But the natural man receiveth not the things of the spirit of God, neither can he know then because they are spiritually discerned."  
 > 1 Corinthians 2:14.  
 

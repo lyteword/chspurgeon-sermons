@@ -1,6 +1,5 @@
 # Sermon 133 | Heavenly Rest
 
-
 > There remaineth therefore a rest to the people of God.    
 > Hebrews 4:9.    
 

@@ -1,6 +1,5 @@
 # Sermon 412 | God's First Words To The First Sinner
 
-
 > "The Lord God called to Adam and said unto him, Where are you?"  
 > Genesis 3:9.  
 

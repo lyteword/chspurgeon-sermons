@@ -1,6 +1,5 @@
 # Sermon 280 | The Chaff Driven Away
 
-
 > The ungodly are not so: but are like the chaff which the wind driveth away.    
 > Psalm 1:4.    
 

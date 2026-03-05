@@ -1,6 +1,5 @@
 # Sermon 622 | Traveling Expenses On The Two Great Roads
 
-
 > So he paid the fare.    
 > Jonah 1:3.    
 

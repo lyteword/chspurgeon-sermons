@@ -1,6 +1,5 @@
 # Sermon 316 | A Sense of Pardoned Sin
 
-
 > Thou hast cast all my sins behind thy back    
 > Isaiah 38:17,    
 

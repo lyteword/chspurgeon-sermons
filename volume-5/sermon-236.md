@@ -1,6 +1,5 @@
 # Sermon 236 | The Shameful Sufferer
 
-
 > Who for the joy that was set before him endured the cross, despising the shame, and is now set down at the right hand of the throne of God.    
 > Hebrews 12:2.    
 

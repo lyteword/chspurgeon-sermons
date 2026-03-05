@@ -1,6 +1,5 @@
 # Sermon 211 | The Voice of the Blood of Christ
 
-
 > The blood of sprinkling, that speaketh better things than that of Abel.    
 > Hebrews 12:24.    
 

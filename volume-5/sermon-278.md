@@ -1,6 +1,5 @@
 # Sermon 278 | Grieving the Holy Spirit
 
-
 > And grieve not the Holy Spirit of God, whereby ye are sealed unto the day of redemption.    
 > Ephesians 4:30.    
 

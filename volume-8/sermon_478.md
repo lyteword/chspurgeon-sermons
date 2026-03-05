@@ -1,6 +1,5 @@
 # Sermon 478 | Christ--Perfect Through Sufferings
 
-
 > "For it became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings." Hebrews 2:10.  
 > "For it became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings." Hebrews 2:10.  
 

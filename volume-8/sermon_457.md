@@ -1,6 +1,5 @@
 # Sermon 457 | Religion--a Reality
 
-
 > "For it is not a vain thing for you, because it is your life."  
 > Deuteronomy 32:47.  
 

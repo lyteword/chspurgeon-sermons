@@ -1,6 +1,5 @@
 # Sermon 164 | The Loved Ones Chastened
 
-
 > As many as I love, I rebuke and chasten: be zealous therefore, and repent.    
 > Revelation 3:19.    
 

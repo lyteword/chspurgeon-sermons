@@ -1,6 +1,5 @@
 # Sermon 206 | Everybody's Sermon
 
-
 > I have multiplied visions, and used similitudes.    
 > Hosea 12:10.    
 

@@ -1,6 +1,5 @@
 # Sermon 162 | The First and Great Commandment
 
-
 > Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment.    
 > Mark 12:30.    
 

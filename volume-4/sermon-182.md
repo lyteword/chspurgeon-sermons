@@ -1,6 +1,5 @@
 # Sermon 182 | Human Inability
 
-
 > No man can come to me, except the Father which hath sent me draw him.    
 > John 6:44.    
 

@@ -1,6 +1,5 @@
 # Sermon 474 | Faith Omnipotent
 
-
 > "Jesus said unto him, If you can believe, all things are possible to him that believes.'"  
 > Mark 9:23.  
 

@@ -1,6 +1,5 @@
 # Sermon 464 | A Sermon For Gleaners
 
-
 > "Boaz commanded his young men, saying, Let her glean even among the sheaves, and reproach her not. And let fall also some of the handfuls on purpose for her and leave them, that she may glean them, and rebuke her not."  
 > Ruth 2:15,16.  
 

@@ -1,12 +1,5 @@
 # Sermon 342 | Grace Reviving Israel
 
-A Sermon
-
-
-Delivered at Tottenham Court Road Chapel, by the
-
-REV. C. H. Spurgeon.
-
 "I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon. His branches shall spread, and his beauty shall be as the olive tree, and his smell as Lebanon. They that dwell under his shadow shall return; they shall revive as the corn, and grow as the vine: the scent thereof shall be as the wine of Lebanon."&mdash;Hosea 14:5-7.
 
 N READING THIS PASSAGE, does it ever fail to charm you? How full of beauty, and how full of poetry it is! Every word is a figure. Fair flowers that adorn, and corn that enricheth the fields; the olive tree, and the vine; the scent of the wine of Lebanon, and all rich things are here gathered and clustered together, to set forth the beauty of Israel under the reviving influences of God's favor. And as this one portion of Sacred Writ is full of poetry, the like holds good of all the Word Of God. There is no book so poetic in its character as the Book of Inspiration. We had rather for poetry's sake, lose all the books that have ever been written by all the poets that ever lived, than lose the sacred Scriptures; yea, if a collection could be made of all the gems of all the noted books; could they all be bound into one volume, there could not be found so many beauties as lie here, some of them hidden, and others of them manifest, in this most blessed volume of Revelation. Altogether apart from the sublimity of the matters treated, and the glory of the doctrines, the style itself is enough to make the book precious to every reader. It is a wondrous book; it is the book of God: yea, as Herbert says, "The god of books." It is a book full of stars; every page blazes with light, from almost every sentence there beams forth some beautiful metaphor, some glorious figure.

@@ -1,6 +1,5 @@
 # Sermon 213 | The Fatherhood of God
 
-
 > Our Father which art in heaven.    
 > Matthew 6:9.    
 

@@ -1,6 +1,5 @@
 # Sermon 431 | A Secret And Yet No Secret
 
-
 > "A garden enclosed is My sister, My spouse; a spring shut up, a fountain sealed." "A fountain of gardens, a well of living waters and streams from Lebanon."  
 > Song of Solomon 4:12,15.  
 

@@ -1,6 +1,5 @@
 # Sermon 358 | The Earnest of Heaven
 
-
 > "That Holy Spirit of promise, which is the earnest of our inheritance."  
 > Ephesians 1:13,14.   
 

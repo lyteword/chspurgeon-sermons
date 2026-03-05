@@ -1,6 +1,5 @@
 # Sermon 637 | The Dove's Return To The Ark
 
-
 > But the dove found no rest for the soles of her feet and she returned unto him into the ark, for the waters were on the face of the whole earth. Then he put forth his hand and took her and pulled her in unto him into the ark.    
 > Genesis 8:9.    
 

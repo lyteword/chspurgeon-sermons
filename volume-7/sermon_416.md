@@ -1,6 +1,5 @@
 # Sermon 416 | The Shield Of Faith
 
-
 > "Above all, taking the shield of faith, wherewith you shall be able to quench all the fiery darts of the wicked."  
 > Ephesians 6:16.  
 

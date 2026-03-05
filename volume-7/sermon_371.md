@@ -1,9 +1,5 @@
 # Sermon 371 | Opening Services
 
-
-> ""  
-> e.  
-
 MEETING OF THE CONTRIBUTORS.
 
 On Tuesday evening, March 26th, the first of the Public Meetings in connection with the opening of the Tabernacle took place. It was limited exclusively to the Contributors to the Building Fund, of whom more than 3,000 were present. Up to the moment Sir HENRY HAVELOCK took the Chair, the platform below the pulpit presented a busy scene, as it was here the collecting cards had to be turned in. Some half-dozen gentlemen officiating as clerks were for about an hour unceasingly engaged in receiving and recording the contributions handed in by some hundreds of volunteer collectors, the respective amounts varying from a few pence up to many pounds. Rich and poor vied with each other, and it would be hard to say which excelled. The whole matter seemed to awaken a personal interest in each individual.

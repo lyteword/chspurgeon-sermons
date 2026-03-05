@@ -1,6 +1,5 @@
 # Sermon 349 | The Wailing of Risca
 
-
 > "Suddenly are my tents spoiled, and my curtains in a moment."  
 > Jeremiah 4:20.  
 

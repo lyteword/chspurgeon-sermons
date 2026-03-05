@@ -1,6 +1,5 @@
 # Sermon 442 | God's Will and Man's Will
 
-
 > "So then it is not of him that willeth, nor of him that runneth, but of God that showeth mercy."  
 > Romans 9:16  
 

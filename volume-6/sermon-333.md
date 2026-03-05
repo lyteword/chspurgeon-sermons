@@ -1,6 +1,5 @@
 # Sermon 333 | Three Homilies From One Text
 
-
 > And Jesus went about all Galilee, teaching in their synagogues and preaching the Gospel of the Kingdom and healing all manner of sickness and all manner of disease among the people. And His fame went throughout all Syria: and they brought unto Him all sick people who were taken with different diseases and torments and those which were possessed with devils and those which were lunatic, and those who had the palsy. And He healed them. And there followed Him great multitudes of people from Galilee and from Decapolis and from Jerusalem, and from Judea and from beyond Jordan.    
 > Matthew 4:23-25.    
 

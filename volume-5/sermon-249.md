@@ -1,6 +1,5 @@
 # Sermon 249 | A Vision of the Latter-Day Glories
 
-
 > And it shall come to pas in the last days that the mountain of the Lord's house shall be established in the top of the mountains, and shall be exalted above the hills, and all nations shall flow unto it.    
 > Isaiah 2:2., & Micah 4:1.    
 

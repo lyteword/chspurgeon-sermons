@@ -1,6 +1,5 @@
 # Sermon 166 | The Destroyer Destroyed
 
-
 > That through death he might destroy him that had the power of death, that is the devil    
 > Hebrews 2:14.    
 

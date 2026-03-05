@@ -1,6 +1,5 @@
 # Sermon 516 | The Minister's Stock-Taking
 
-
 > "And some believed the things which were spoken and some believed not."  
 > Acts 28:24.  
 

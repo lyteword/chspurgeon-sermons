@@ -1,6 +1,5 @@
 # Sermon 120 | A Faithful Friend
 
-
 > There is a friend that sticketh closer than a brother.    
 > Proverbs 18:24.    
 

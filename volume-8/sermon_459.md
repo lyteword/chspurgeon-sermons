@@ -1,6 +1,5 @@
 # Sermon 459 | A Sermon For Men Of Taste
 
-
 > "Therefore laying aside all malice and all guile and hypocrisies, and envies and all evil speaking, as newborn babes, desire the sincere milk of the Word, that you may grow thereby. If, indeed, you have tasted that the Lord is gracious."  
 > 1 Peter 2:1-3.  
 

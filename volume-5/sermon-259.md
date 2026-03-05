@@ -1,6 +1,5 @@
 # Sermon 259 | A Home Mission Sermon
 
-
 > Whatsoever thy hand findeth to do, do it with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest.    
 > Ecclesiastes 9:10.    
 

@@ -1,6 +1,5 @@
 # Sermon 578 | A Bad Excuse Is Worse Than None
 
-
 > "And they all with one consent began to make excuses."  
 > Luke 14:18.  
 

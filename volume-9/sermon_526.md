@@ -1,6 +1,5 @@
 # Sermon 526 | No Illusion
 
-
 > "And did not know that what was done by the angel was real, but thought he was seeing a vision."  
 > Acts 12:9.  
 

@@ -1,6 +1,5 @@
 # Sermon 340 | "Magnificat"
 
-
 > Awake, awake, Deborah; quake, awake, utter a song; arise, Barak, and lead thy captivity captive, thou son of Abinoam.    
 > Judges 5:12.    
 

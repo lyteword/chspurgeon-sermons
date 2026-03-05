@@ -1,6 +1,5 @@
 # Sermon 555 | Nothing But Leaves
 
-
 > "He found nothing but leaves."  
 > Mark 11:13.  
 

@@ -1,6 +1,5 @@
 # Sermon 451 | Choice Portions
 
-
 > "For the Lord's portion is His people."  
 > Deuteronomy 32:9.   
 

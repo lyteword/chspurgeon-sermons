@@ -1,6 +1,5 @@
 # Sermon 154 & 55 | Fast-Day Service
 
-
 ## BRIEF INVOCATION.
 
 O GOD, the God of heaven and of earth, we do this day pay Thee reverence, and meekly bow our heads in adoration before Thine awful throne. We are the creatures of Thine hand; Thou hast made us, and not we ourselves. It is but just and right that we should pay unto Thee our adoration. O God I we are met together in a vast congregation for a purpose which demands all the power of piety, and all the strength of prayer. Send down Thy Spirit upon Thy servant, that he, whilst trembling in weakness, may be made strong to preach Thy Word, to lead forth this people in holy prayer, and to help them in that humiliation for which this day is set apart. Come, O God, we beseech Thee; bow our hearts before Thee; instead of sackcloth and ashes give us true repentance, and hearts meekly reverent; instead of the outward guise, to which some pay their only homage, give us the inward spirit; and may we really pray, really humiliate ourselves, and really tremble before the Most High God. Sanctify this service; make it useful unto us and honorable to Thyself. And O Thou dread Supreme, unto Thee shall be the glory and the honor, world without end. Amen.

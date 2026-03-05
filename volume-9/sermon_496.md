@@ -1,6 +1,5 @@
 # Sermon 496 | The New Song
 
-
 > "O sing unto the Lord a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory."  
 > Psalm 98:1.  
 

@@ -1,6 +1,5 @@
 # Sermon 65 | Lions Lacking&mdash;But the Children Satisfied
 
-
 *On behalf of the Baptist Fund for the Relief of Poor Ministers.*
 
 > The young lions do lack, and suffer hunger; but they that seek the Lord shall not want any good thing.    

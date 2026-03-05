@@ -1,6 +1,5 @@
 # Sermon 369 | The First Sermon in the Tabernacle
 
-
 > "And daily in the temple, and in every house, they ceased not to teach and preach Jesus Christ."  
 > Acts 5:42.  
 

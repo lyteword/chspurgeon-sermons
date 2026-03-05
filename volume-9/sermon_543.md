@@ -1,6 +1,5 @@
 # Sermon 543 | Once A Curse But Now A Blessing
 
-
 > "And it shall come to pass, that as you were a curse among the heathen, O house of Judah and house of Israel, so will Isave you and you shall be a blessing: fear not, but let your hands be strong."  
 > Zechariah 8:13.  
 

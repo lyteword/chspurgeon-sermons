@@ -1,6 +1,5 @@
 # Sermon 160 | Light at Evening Time
 
-
 > It shall come to pass that at evening time it shall be light.    
 > Zechariah 14:7.    
 

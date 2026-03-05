@@ -1,6 +1,5 @@
 # Sermon 498 | The Gladness of the Man of Sorrows
 
-
 > "Thou lovest righteousness, and hatest wickedness: therefore God, thy God, hath anointed thee with the oil of gladness above thy fellows. All thy garments smell of myrrh, and aloes, and cassia, out of the ivory palaces, whereby they have made thee glad."  
 > Psalm 45:7, 8.  
 

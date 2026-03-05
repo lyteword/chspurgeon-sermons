@@ -1,6 +1,5 @@
 # Sermon 667 | Last Things
 
-
 > At the last.    
 > Proverbs 5:11    
 

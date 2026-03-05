@@ -1,6 +1,5 @@
 # Sermon 653 | A Blow For Puseyism
 
-
 > It is the spirit that quickens. The flesh profits nothing: the words that I speak unto you, they are spirit and they are life.    
 > John 6:63.    
 

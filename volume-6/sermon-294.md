@@ -1,6 +1,5 @@
 # Sermon 294 | A Home Question
 
-
 > But are there not with you, even with you, sins against the Lord your God?    
 > 2 Chron. 28:10.    
 

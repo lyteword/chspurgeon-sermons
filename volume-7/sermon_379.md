@@ -1,6 +1,5 @@
 # Sermon 379 | Perfect Cleansing
 
-
 > "For I will cleanse their blood that Ihave not cleansed."  
 > Joel 3:21.   
 

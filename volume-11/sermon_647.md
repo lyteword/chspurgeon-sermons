@@ -1,6 +1,5 @@
 # Sermon 647 | Heart's Ease
 
-
 > He shall not be afraid of evil tidings: his heart is fixed, trusting in the Lord.    
 > Psalm 112:7.    
 

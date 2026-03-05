@@ -1,6 +1,5 @@
 # Sermon 466 | The Loaded Wagon
 
-
 > "Behold, I am pressed under you, as a cart is pressed that is full of sheaves."  
 > Amos 2:13.  
 

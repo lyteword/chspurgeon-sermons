@@ -1,6 +1,5 @@
 # Sermon 624 | Present Privilege And Future Favor
 
-
 > The eternal God is your refuge and underneath are the everlasting arms: and He shall thrust out the enemy from before you. And shall say, Destroy them.    
 > Deuteronomy 33:27.    
 

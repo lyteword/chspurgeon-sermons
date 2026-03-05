@@ -1,6 +1,5 @@
 # Sermon 465 | The Holy Spirit Glorifying Christ
 
-
 > "He shall glorify Me: for He shall take of Mine, and shall show it unto you."  
 > John 16:14.  
 

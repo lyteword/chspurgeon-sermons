@@ -1,6 +1,5 @@
 # Sermon 299 | Sin Immeasurable
 
-
 > Who can understand his errors?    
 > Psalm 19:12.    
 

@@ -1,6 +1,5 @@
 # Sermon 70 | Good Works
 
-
 > Zealous of good works.    
 > Titus 2:14.    
 

@@ -1,6 +1,5 @@
 # Sermon 147 | The Sound in the Mulberry Trees
 
-
 > When thou hearest the sound of a going in the tops of the mulberry trees, that then thou shall bestir thyself: for then shall the Lord go out before thee, to smite the host of the Philistines.    
 > 2 Samuel 5:24.    
 

@@ -1,6 +1,5 @@
 # Sermon 83 | Indwelling Sin
 
-
 > Then Job answered the Lord and said, Behold, I am vile.    
 > Job 40:3-4.    
 

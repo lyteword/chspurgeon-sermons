@@ -1,6 +1,5 @@
 # Sermon 255 | Justice Satisfied
 
-
 > Just, and the justifier of him which believeth in Jesus.    
 > Romans 3:26.    
 

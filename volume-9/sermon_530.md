@@ -1,6 +1,5 @@
 # Sermon 530 | The Chief Of Sinners
 
-
 > "Sinners; of whom I am chief."  
 > 1 Timothy 1:15.  
 

@@ -1,6 +1,5 @@
 # Sermon 612 | Jesus Washing His Disciples' Feet
 
-
 > Then He came to Simon Peter: and Peter said unto Him, Lord, do You wash my feet?    
 > John 13:6.    
 

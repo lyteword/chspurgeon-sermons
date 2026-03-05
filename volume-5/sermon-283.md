@@ -1,6 +1,5 @@
 # Sermon 283 | The Sweet Uses of Adversity
 
-
 > Shew me wherefore thou contendest with me.    
 > Job 10:2.    
 

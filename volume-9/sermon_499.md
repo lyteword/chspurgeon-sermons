@@ -1,14 +1,5 @@
 # Sermon 499 | The Clean and the Unclean
 
-A Sermon
-
-
-By the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
-
 "Speak unto the children of Israel, saying, These are the beasts which ye shall eat among all the beasts that are on the earth. Whatsoever parteth the hoof, and is clovenfooted, and cheweth the cud, among the beasts, that shall ye eat."--Leviticus 11:2, 3.
 
 THE MOSAIC LAW ATTACHED great importance to meats and drinks: the Christian religion attaches none. The apostle Peter was shown by the vision of a sheet let down from heaven, not only that all nations were now to receive the gospel message, but that all kinds of food were now clean, and that all the prohibitions which had formerly been laid upon them for legal purposes were now once for all withdrawn. A Christian may, if he pleases, put himself under restrictions as to these matters. You will remember that the apostle Paul says, "I know and am persuaded of the Lord Jesus that there is nothing unclean of itself, but to him that esteemeth anything to be unclean, to him it is unclean." I wot our apostle was tender of weak consciences; but he could expostulate with the brethren somewhat thus, "If ye be dead with Christ from the rudiments of the world, why, as though living in the world, do ye dogmatize--touch not this, taste not that, handle not the other--and all about things which perish with the using?" The doctrine of the New Testament is expressly laid down, "Every creature of God is good and nothing to be refused, if it be received with thanksgiving." And as for the practice enjoined upon believers, "All things are lawful, but all things are not expedient." In the example of Paul we have full liberty; he would put no embargo upon the conscience. But in his example we have also fervent charity; he would put no stumbling-block in his brother's way. "If meat make my brother to offend, I will eat no flesh while the world standeth." The levitical law enjoined many precepts as to meats and drinks; but those carnal ordinances were imposed until the time of reformation. Since then, this Mosaic institution was not designed to be perpetual, we feel certain that it must have had some use at the time when it was first established, and during the time in which it was sustained. As that was pecuharly a typical dispensation, we feel persuaded that we shall not exaggerate the uses of the text if we show that there was something instructive to us and something typical of the better covenant in the command that the people were to eat no creatures but those which divided the hoof and those which chewed the cud.

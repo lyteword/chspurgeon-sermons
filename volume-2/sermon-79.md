@@ -1,6 +1,5 @@
 # Sermon 79 | The Form of Sound Words
 
-
 > Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus.    
 > 2 Timothy 1:13.    
 

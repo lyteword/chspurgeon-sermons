@@ -1,6 +1,5 @@
 # Sermon 158 | Instability
 
-
 > Unstable as water, thou shalt not excel.    
 > Genesis 49:4.    
 

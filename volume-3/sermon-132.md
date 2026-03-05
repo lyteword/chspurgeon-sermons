@@ -1,6 +1,5 @@
 # Sermon 132 | Christ&mdash;The Power and Wisdom of God
 
-
 > Christ the power of God, and the wisdom of God.    
 > 1 Corinthians 1:24.    
 

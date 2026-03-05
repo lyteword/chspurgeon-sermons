@@ -1,6 +1,5 @@
 # Sermon 368 | The March!
 
-
 > "And it came to pass, when the ark set out, that Moses said, Rise up, O Lord! Let Your enemies be scattered, and let those who hate You flee before You."  
 > Numbers 10:35.  
 

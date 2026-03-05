@@ -1,6 +1,5 @@
 # Sermon 90 | Men Chosen&mdash;Fallen Angels Rejected
 
-
 > Verily he took not on him the nature of angels; but he took on him the seed of Abraham.    
 > Hebrews 2:16.    
 

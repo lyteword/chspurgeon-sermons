@@ -1,6 +1,5 @@
 # Sermon 242 | Christ Precious to Believers
 
-
 > Unto you therefore which believe he is precious.    
 > 1 Peter 2:7.    
 

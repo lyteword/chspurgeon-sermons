@@ -1,6 +1,5 @@
 # Sermon 262 | Distinguishing Grace
 
-
 > For who maketh thee to differ from another?    
 > 1 Corinthians 4:7.    
 

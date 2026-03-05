@@ -1,6 +1,5 @@
 # Sermon 434 | Threefold Sanctification
 
-
 > "Sanctified by God the Father ... Sanctified in Christ Jesus."  
 > Jude 1:1 & 1 Corinthians 1:2.  
 

@@ -1,6 +1,5 @@
 # Sermon 642 | Withholding Corn
 
-
 > He that withholds corn, the people shall curse him but blessing shall be upon the head of him that sells it.    
 > Proverbs 11:26.    
 

@@ -1,6 +1,5 @@
 # Sermon 300 | Spiritual Peace
 
-
 > Peace I leave with you, my peace I give unto you.    
 > John 14:27.    
 

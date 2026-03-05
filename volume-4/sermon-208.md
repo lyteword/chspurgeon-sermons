@@ -1,6 +1,5 @@
 # Sermon 208 | Righteous Hatred
 
-
 > Ye that love the Lord, hate evil.    
 > Psalm 97:10.    
 

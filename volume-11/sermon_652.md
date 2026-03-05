@@ -1,6 +1,5 @@
 # Sermon 652 | Jesus The Shepherd
 
-
 > He shall feed His flock like a shepherd.    
 > Isaiah 40:11.    
 

@@ -1,6 +1,5 @@
 # Sermon 503 | Death and Life in Christ
 
-
 > "Now if we be dead with Christ, we believe that we shall also live with him: knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God. Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord."  
 > Romans 6:8-11.  
 

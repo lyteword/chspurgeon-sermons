@@ -1,6 +1,5 @@
 # Sermon 373 | Christ Set Forth As A Propitiation
 
-
 > "Christ Jesus whom God has set forth to be a propitiation through faith in His blood"  
 > Romans 3:25.  
 

@@ -1,16 +1,5 @@
 # Sermon 550 | The Ship on Fire--A Voice of Warning
 
-A Sermon
-
-
-Delivered on Sunday Evening, November 8th, 1863, on the
-
-burning of the Ship "Amazon," by the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
-
 "Escape for thy life."--Genesis 19:17.
 
 "Thou hast magnified thy mercy, which thou hast shewed unto me in saving my life."--Genesis 19:19.

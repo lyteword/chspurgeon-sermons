@@ -1,6 +1,5 @@
 # Sermon 491 | Our Stronghold
 
-
 > "The name of the Lord is a strong tower: the righteous run into it, and are safe."  
 > Proverbs 18:10.  
 

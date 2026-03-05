@@ -1,6 +1,5 @@
 # Sermon 124 | The Snare of the Fowler
 
-
 > Surely he shall deliver thee from the snare of the fowler.    
 > Psalm 91:3.    
 

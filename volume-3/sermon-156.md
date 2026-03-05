@@ -1,6 +1,5 @@
 # Sermon 156 | Fear Not
 
-
 > Fear not, thou worm Jacob, and ye men of Israel; I will help thee, saith the Lord and thy redeemer the Holy one of Israel.    
 > Isaiah 41:14.    
 

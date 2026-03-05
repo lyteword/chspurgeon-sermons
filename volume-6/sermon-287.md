@@ -1,6 +1,5 @@
 # Sermon 287 | Dilemma and Deliverance
 
-
 > Thou, Lord, hast not forsaken them that seek thee.    
 > Psalm 9:10.    
 

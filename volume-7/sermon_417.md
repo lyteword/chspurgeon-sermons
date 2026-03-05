@@ -1,6 +1,5 @@
 # Sermon 417 | Scourge For Slumbering Souls
 
-
 > "Woe to them that are at ease in Zion."  
 > Amos 6:1.   
 

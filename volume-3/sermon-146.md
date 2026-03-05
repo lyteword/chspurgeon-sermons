@@ -1,6 +1,5 @@
 # Sermon 146 | The Good Man's Life and Death
 
-
 > For to me to live is Christ, and to die is gain.    
 > Philippians 1:21.    
 

@@ -1,6 +1,5 @@
 # Sermon 633 | Two Loving Invitations
 
-
 > Come and see. ... Come and dine.    
 > John 1:39 & John 21:12.    
 

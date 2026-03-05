@@ -1,6 +1,5 @@
 # Sermon 554 | Enduring to the End
 
-
 > "He that endureth to the end shall be saved."  
 > Matthew 10:22.  
 

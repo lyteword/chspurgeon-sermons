@@ -1,6 +1,5 @@
 # Sermon 122 | Christ About His Father's Business
 
-
 > Wist ye not that I must be about my Father's business?    
 > Luke 2:49.    
 

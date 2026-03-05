@@ -1,6 +1,5 @@
 # Sermon 621 | The Precious Blood Of Christ
 
-
 > The precious blood of Christ.    
 > 1 Peter 1:19.    
 

@@ -1,6 +1,5 @@
 # Sermon 290 | The Inexhaustible Barrel
 
-
 > And the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the Lord, which he spake by Elijah.    
 > 1 Kings 17:16.    
 

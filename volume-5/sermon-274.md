@@ -1,6 +1,5 @@
 # Sermon 274 | Paul's Desire to Depart
 
-
 > Having a desire to depart and to be with Christ, which is far better.    
 > Philippians 1:23.    
 

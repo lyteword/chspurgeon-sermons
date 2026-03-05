@@ -1,6 +1,5 @@
 # Sermon 661 | The Great Arbitration Case
 
-
 > Neither is there any mediator between us, that might lay his hand upon us both.    
 > Job 9:33.    
 

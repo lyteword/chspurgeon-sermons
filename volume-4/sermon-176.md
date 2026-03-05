@@ -1,6 +1,5 @@
 # Sermon 176 | The Prodigal's Return
 
-
 > But when he was yet a great way off; his father saw him, and had compassion, and ran, and fell on his neck, and kissed him.    
 > Luke 15:20.    
 

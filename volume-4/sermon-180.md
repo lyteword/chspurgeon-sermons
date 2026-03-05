@@ -1,6 +1,5 @@
 # Sermon 180 | How To Keep the Heart
 
-
 > The peace of God, which passeth all understanding, shall keep your hearts and minds, through Christ Jesus.    
 > Philippians 4:7.    
 

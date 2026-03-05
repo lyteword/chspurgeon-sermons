@@ -1,6 +1,5 @@
 # Sermon 140 | A Simple Sermon for Seeking Souls
 
-
 > Whosoever shall call upon the name of the Lord shall be saved.    
 > Romans 10:13.    
 

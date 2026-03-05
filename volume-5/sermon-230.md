@@ -1,6 +1,5 @@
 # Sermon 230 | The Vanguard and Rereward of the Church
 
-
 > The Lord will go before you; and the God of Israel will be your rereward.    
 > Isaiah 52:12.    
 

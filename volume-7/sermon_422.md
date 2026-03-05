@@ -1,6 +1,5 @@
 # Sermon 422 | The Peacemaker
 
-
 > "Blessed are the peacemakers: for they shall be called the children of God."  
 > Matthew 5:9.  
 

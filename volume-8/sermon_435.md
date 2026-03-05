@@ -1,6 +1,5 @@
 # Sermon 435 | Obtaining Promises
 
-
 > "Who through faith obtained promises."  
 > Hebrews 11:33.   
 

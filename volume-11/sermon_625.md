@@ -1,6 +1,5 @@
 # Sermon 625 | Jesus Appearing To Mary Magdalene
 
-
 > Now when Jesus was risen early the first day of the week, He appeared first to Mary Magdalene, out of whom He had cast seven devils.    
 > Mark 16:9.    
 

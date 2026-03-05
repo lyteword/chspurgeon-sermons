@@ -1,6 +1,5 @@
 # Sermon 281 | The Saviour's Many Crowns
 
-
 > On his head were many crowns.    
 > Revelation 19:12.    
 

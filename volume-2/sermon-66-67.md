@@ -1,6 +1,5 @@
 # Sermon 66 & 67 | The Resurrection of the Dead
 
-
 > There shall be a resurrection of the dead, both the of the just and unjust.    
 > Acts 24:15.    
 

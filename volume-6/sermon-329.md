@@ -1,6 +1,5 @@
 # Sermon 329 | Christ's First and Last Subject
 
-
 > From that time Jesus began to preach, and to say, Repent: for the kingdom of heaven is at hand    
 > Matthew 4:17.    
 

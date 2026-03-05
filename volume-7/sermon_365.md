@@ -1,6 +1,5 @@
 # Sermon 365 | Humility
 
-
 > "Serving the Lord with all humility of mind."  
 > Acts 20:19.   
 

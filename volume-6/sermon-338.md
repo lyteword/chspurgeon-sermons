@@ -1,6 +1,5 @@
 # Sermon 338 | Love To Jesus
 
-
 > O You whom my soul loves.    
 > Song of Solomon 1:7.    
 

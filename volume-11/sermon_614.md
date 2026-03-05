@@ -1,6 +1,5 @@
 # Sermon 614 | For Christ's Sake
 
-
 > For Christ's sake.    
 > Ephesians 4:32.    
 

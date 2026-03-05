@@ -1,6 +1,5 @@
 # Sermon 312 | Personal Service
 
-
 ON BEHALF OF THE RELIGIOUS TRACT SOCIETY.
 
 "O Lord, truly I am thy servant; I am thy servant and the son of thine handmaid thou hast loosed my bonds."&mdash;Psalm 116:16.

@@ -1,6 +1,5 @@
 # Sermon 382 | The Last Census
 
-
 > "The Lord shall record, when He registers the people, that this man was born there."  
 > Psalm 87:6.   
 

@@ -1,6 +1,5 @@
 # Sermon 134 | Elijah's Appeal to the Undecided
 
-
 > How long halt ye between two opinions? If the Lord be God, follow him; if Baal, then follow him.    
 > 1 Kings 18:21.    
 

@@ -1,6 +1,5 @@
 # Sermon 354 | A Sermon For The Week Of Prayer
 
-
 > "Continue in prayer, and watch in the same with thanksgiving."  
 > Colossians 4:2.   
 

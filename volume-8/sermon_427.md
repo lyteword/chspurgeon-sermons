@@ -1,6 +1,5 @@
 # Sermon 427 | A Psalm For The New Year
 
-
 > "But grow in grace and in the knowledge of our Lord and Savior Jesus Christ. To Him be glory both now and forever. Amen."  
 > 2 Peter 3:18.  
 

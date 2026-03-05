@@ -1,6 +1,5 @@
 # Sermon 411 | Infant Salvation
 
-
 > "Is it well with the child? And she answered, It is well"  
 > 2 Kings 4:26.  
 

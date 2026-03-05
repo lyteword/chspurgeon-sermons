@@ -1,6 +1,5 @@
 # Sermon 289 | The Minister's Farewell
 
-
 Upon the last occasion of his preaching in that place.
 
 "Wherefore I take you to record this day, that I am pure from the blood of all men. For I have not shunned to declare unto you all the counsel of God."&mdash;Acts 20:26-27.

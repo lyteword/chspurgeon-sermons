@@ -1,6 +1,5 @@
 # Sermon 239 | Jacob and Esau
 
-
 > Jacob have I loved, but Esau have I hated.    
 > Romans 9:15.    
 

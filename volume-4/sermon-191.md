@@ -1,6 +1,5 @@
 # Sermon 191 | Christ Glorified as the Builder of His Church
 
-
 > He shall build the temple of the Lord, and he shall bear the glory.    
 > Zechariah 6:13.    
 

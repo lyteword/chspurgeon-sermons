@@ -1,6 +1,5 @@
 # Sermon 116 | Secret Sins
 
-
 > Cleanse thou me from secret faults.    
 > Psalm 19:12.    
 

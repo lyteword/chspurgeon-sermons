@@ -1,6 +1,5 @@
 # Sermon 610 | The Great Need--Or, The Great Salvation
 
-
 > O that you had hearkened to My commandments! Then your peace would ha ve been like a river and your righteousness as the waves of the sea.    
 > Isaiah 48:18.    
 

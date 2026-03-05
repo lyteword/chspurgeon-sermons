@@ -1,6 +1,5 @@
 # Sermon 517 | The Rainbow
 
-
 > "And the bow shall be in the cloud and I will look upon it, that I may remember the Everlasting Covenant between God and every living creature of all flesh that is upon the earth."  
 > Genesis 9:16.  
 

@@ -1,6 +1,5 @@
 # Sermon 548 | Forward! Forward! Forward!
 
-
 > "And the Lord said unto Moses, Why cry you unto Me? Speak unto the children of Israel, that they go forward."  
 > Exodus 14:15.  
 

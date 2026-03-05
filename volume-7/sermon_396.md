@@ -1,6 +1,5 @@
 # Sermon 396 | Climbing the Mountain
 
-
 > "Who shall ascend into the hill of the Lord?"  
 > Psalm 24:3.  
 

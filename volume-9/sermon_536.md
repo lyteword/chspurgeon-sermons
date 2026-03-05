@@ -1,6 +1,5 @@
 # Sermon 536 | Jehovah-Shammah
 
-
 > "Whereas the Lord was there."  
 > Ezekiel 35:10.  
 

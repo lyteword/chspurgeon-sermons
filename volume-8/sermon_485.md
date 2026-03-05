@@ -1,6 +1,5 @@
 # Sermon 485 | No Room for Christ in the Inn
 
-
 > "And she brought forth her firstborn son, and wrapped him in swaddling clothes, and laid him in a manger; because there was no room for them in the inn."  
 > Luke 2:7.  
 

@@ -1,6 +1,5 @@
 # Sermon 405 | The Triumphal Entry Into Jerusalem
 
-
 > "Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass."  
 > Matthew. 21:5.  
 

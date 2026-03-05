@@ -1,6 +1,5 @@
 # Sermon 402 | The Joint Heirs and Their Divine Portion
 
-
 > "Joint heirs with Christ."  
 > Romans 8:17.  
 

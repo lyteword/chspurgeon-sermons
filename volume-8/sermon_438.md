@@ -1,6 +1,5 @@
 # Sermon 438 | God Or Self--Which?
 
-
 > "Speak unto all the people of the land and to the priests, saying, When you fasted and mourned in the fifth and seventh month, even those seventy years, did you at all fast unto Me, even to Me? And when you did eat and when you did drink, did not you eat for yourselves and drink for yourselves."  
 > Zechariah 7:5, 6.  
 

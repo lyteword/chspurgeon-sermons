@@ -1,6 +1,5 @@
 # Sermon 585 | A Mystery! Saints Sorrowing and Jesus Glad!
 
-
 > "Then said Jesus unto them plainly, Lazarus is dead. And I am glad for your sakes that I was not there, to the intent ye may believe; nevertheless let us go unto him"  
 > John 11:14-15.  
 

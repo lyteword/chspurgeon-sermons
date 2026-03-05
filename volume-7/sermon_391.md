@@ -1,6 +1,5 @@
 # Sermon 391 | The First Resurrection
 
-
 > "And I saw thrones, and they sat upon them, and judgment was given unto them: and I saw the souls of them who were beheaded for the witness of Jesus, and for the Word of God, and who had not worshipped the beast, neither his image, neither had received his mark on their foreheads, or on their hands. And they lived and reigned with Christ a thousand years. But the rest of the dead lived not again until the thousandyears were finished. This is the first resurrection. Blessed and holy is he who has part in the first resurrection; on such the second death has nopower, but they shall be priests of God, and of Christ and shall reign with Him a thousandyears."  
 > Revelation 20:4-6.  
 

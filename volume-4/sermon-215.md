@@ -1,6 +1,5 @@
 # Sermon 215 | His Name&mdash;The Counsellor
 
-
 > For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor.    
 > Isaiah 9:6.    
 

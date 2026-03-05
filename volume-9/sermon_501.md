@@ -1,6 +1,5 @@
 # Sermon 501 | Grace Abounding
 
-
 > "I will love them freely."  
 > Hosea 14:4.  
 

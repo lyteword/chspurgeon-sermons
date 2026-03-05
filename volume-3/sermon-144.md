@@ -1,6 +1,5 @@
 # Sermon 144 | Waiting Only Upon God
 
-
 > My soul, wait thou only upon God.    
 > Psalm 62:6.    
 

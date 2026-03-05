@@ -1,6 +1,5 @@
 # Sermon 484 | The Lord,--the Liberator
 
-
 > "The Lord looseth the prisoners."  
 > Psalm 146:7.  
 

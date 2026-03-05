@@ -1,6 +1,5 @@
 # Sermon 525 | Am I Sought Out?
 
-
 > "You shall be called, Sought Out."  
 > Isaiah 62:12.  
 

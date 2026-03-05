@@ -1,6 +1,5 @@
 # Sermon 214 | His Name&mdash;Wonderful!
 
-
 > His name shall be called Wonderful.    
 > Isaiah 9:6.    
 

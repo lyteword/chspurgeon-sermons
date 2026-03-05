@@ -1,6 +1,5 @@
 # Sermon 483 | Life And Walk Of Faith
 
-
 > "As you have therefore received Christ Jesus the Lord, so walkyou in Him."  
 > Colossians 2:6.   
 

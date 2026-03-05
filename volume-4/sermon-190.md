@@ -1,6 +1,5 @@
 # Sermon 190 | The Desolations of the Lord, the Consolation of His Saints
 
-
 On behalf of the Baptist Missionary Society.
 
 "Come, behold the works of the Lord, what desolations he hath made in the earth. He maketh wars to cease unto the end of the earth; he breaketh the bow, and cutteth the spear in sunder, he burneth the chariot in the fire."&mdash;Psalm 46:8-9.

@@ -1,6 +1,5 @@
 # Sermon 475 | Self-Delusion
 
-
 > "Many, I say unto you, will seek to enter in and shall not be able."  
 > Luke 13:24.  
 

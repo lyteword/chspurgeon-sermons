@@ -1,6 +1,5 @@
 # Sermon 170 | The Immutability of Christ
 
-
 > Jesus Christ the same yesterday, and to-day, and for ever.    
 > Hebrews 13:8.    
 

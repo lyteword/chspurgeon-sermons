@@ -1,6 +1,5 @@
 # Sermon 228 | The Blood
 
-
 > When I see the blood, I will pass over you.    
 > Exodus 12:13.    
 

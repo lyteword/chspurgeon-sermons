@@ -1,6 +1,5 @@
 # Sermon 636 | The Church's Love To Her Loving Lord
 
-
 > Tell me, O You whom my soul loves, where You feed, where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions?    
 > Song of Solomon 1:7.    
 

@@ -1,6 +1,5 @@
 # Sermon 472 | Believers--Lights In The World
 
-
 > "Do all things without murmurings and disputing, that you may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom you shine as lights in the world; holding forth the Word of Life, that I may rejoice in the day of Christ, that I have not run in vain, neither labored in vain."  
 > Philippians 2:14-16.  
 

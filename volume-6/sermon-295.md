@@ -1,6 +1,5 @@
 # Sermon 295 | The Treasure of Grace
 
-
 > The forgiveness of sins, according to the riches of his grace.    
 > Ephesians 1:7.    
 

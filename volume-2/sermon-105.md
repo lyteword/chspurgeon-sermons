@@ -1,6 +1,5 @@
 # Sermon 105 | Manasseh
 
-
 > Then Manasseh knew that the Lord he was God.    
 > 2 Chron. 33:13.    
 

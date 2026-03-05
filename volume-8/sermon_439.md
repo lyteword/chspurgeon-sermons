@@ -1,6 +1,5 @@
 # Sermon 439 | The Danger Of Doubting
 
-
 > "And David said in his heart, I shall now perish one day by the hand of Saul.'"  
 > 1 Samuel 27:1.   
 

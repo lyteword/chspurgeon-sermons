@@ -1,6 +1,5 @@
 # Sermon 453 | Compassion For The Multitude
 
-
 > "And they say unto Him, We have here but five loaves and two fishes. He said, Bring them here to Me."  
 > Matthew 14:17,18.  
 

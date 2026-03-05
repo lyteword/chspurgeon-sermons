@@ -1,6 +1,5 @@
 # Sermon 515 | The Sinner's Advocate
 
-
 > "My little children, these things write I unto you, that you sin not. And if any man sins, we have an Advocate with the Father, Jesus Christ the righteous"  
 > 1 John 2:1.  
 

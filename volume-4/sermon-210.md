@@ -1,6 +1,5 @@
 # Sermon 210 | "As Thy Days, So Shall Thy Strength Be"
 
-
 > As thy days, so shall thy strength be;    
 > Deuteronomy 33:25.    
 

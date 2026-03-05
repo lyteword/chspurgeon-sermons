@@ -1,6 +1,5 @@
 # Sermon 181 | Particular Redemption
 
-
 > Even as the Son of man came not to be ministered unto, but to minister, and to give His life a ransom for many.    
 > Matthew 20:28.    
 

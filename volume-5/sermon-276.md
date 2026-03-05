@@ -1,6 +1,5 @@
 # Sermon 276 | A Divided Heart
 
-
 > Their heart is divided; now shall they be found faulty.    
 > Hosea 10:2.    
 

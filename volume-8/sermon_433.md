@@ -1,6 +1,5 @@
 # Sermon 433 | Life In Earnest
 
-
 > "He did it with all his heart and prospered."  
 > 2 Chronicles 31:21.   
 

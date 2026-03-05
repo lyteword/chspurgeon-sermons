@@ -1,6 +1,5 @@
 # Sermon 539 | Heavenly Lovesickness!
 
-
 > "I charge you, O daughters of Jerusalem, if you find my Beloved, that you tell Him that I am sick of love."  
 > Song of Solomon 5:8.  
 

@@ -1,6 +1,5 @@
 # Sermon 115 | Why Are Men Saved?
 
-
 > Nevertheless he saved them for his name's sake.    
 > Psalm 106:8.    
 

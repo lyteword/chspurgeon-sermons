@@ -1,6 +1,5 @@
 # Sermon 521 | The Power Of Aaron's Rod
 
-
 > "But Aaron's rod swallowed up their rods."  
 > Exodus 7:12.  
 

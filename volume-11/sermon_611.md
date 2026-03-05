@@ -1,6 +1,5 @@
 # Sermon 611 | Zechariah's Vision Of Joshua The High Priest
 
-
 > And he showed me Joshua the high priest standing before the Angel of the Lord and Satan standing at his right hand to resist him. And the Lord said to Satan, The Lord rebuke you Satan! The Lord who has chosen Jerusalem rebuke you! Is this not a log plucked from the fire? Now Joshua was clothed with filthy garments and was standing before the Angel. Then He answered and spoke to those who stood before Him, saying, Take away the filthy garments from him. And to him He said, Behold, I have removed your iniquity from you and I will clothe you with rich robes. And I said, Let them put a clean turban upon his head. So they put a clean turban upon his head and they put the clothes on him. And the Angel of the Lord stood by.    
 > Zechariah 3:1-5.    
 

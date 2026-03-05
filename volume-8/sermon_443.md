@@ -1,6 +1,5 @@
 # Sermon 443 | The Two Draughts Of Fishes
 
-
 > "Now when He had left speaking, He said unto Simon, Launch out into the deep and let down your nets for a draught."  
 > Luke 5:4  
 

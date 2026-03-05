@@ -1,6 +1,5 @@
 # Sermon 212 | The New Heart
 
-
 > A new heart also will I give you, and a new spirit will I put within you, and I will take away the stony heart out of your flesh, and I will give you an heart of flesh.    
 > Ezekiel 36:26.    
 

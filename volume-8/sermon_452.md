@@ -1,12 +1,5 @@
 # Sermon 452 | The Lord's Care Of His People
 
-A Sermon
-
-
-Delivered on Sunday Evening April 27th, 1862, by
-
-H. SPURGEON,
-
 "He that touches you, touches the apple of My eye."--Zechariah 2:8. 
 
 GOD'S love to His ancient people is the theme of many a Psalm and deserves to be rehearsed in the ears of every generation. Abraham was by nature as a rough unhewn stone, but the Lord who chose him in the quarry, having hewn him from the rock, made him a polished pillar, a monument of Divine faithfulness. The Lord set His love upon him while he was a Syrian ready to perish. He brought him out of the land of his nativity and called him from his father's house. Having made a Covenant with the solitary man, He multiplied his seed until they became as plentiful as the stars of Heaven. The kindness which God showed towards Abraham, Isaac and Jacob, He retained towards His chosen people, who sprang of their loins. Even when to all appearance He had deserted them, His face was towards them for good. If He sent a famine and broke the staff of life, He provided seven years of plenty in Egypt, that the storehouses of Pharaoh might be full for their sakes. If the Egyptians heavily oppressed them, then all the powers of nature were put out of their accustomed pathway to emancipate them from the house of bondage. When He had brought them out into the howling wilderness, His path dropped fatness, the heavens rained forth bread, and the rocks flowed with rivers. He made men to eat angels' food. He carried them as on eagles' wings. He could truly say, "I shod you with badgers' skin and I girded you about with fine linen."

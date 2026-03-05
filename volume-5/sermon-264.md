@@ -1,6 +1,5 @@
 # Sermon 264 | How Saints May Help the Devil
 
-
 > That thou mayest bear thing own shame, and mayest be confounded in all that thou hast done, in that thou art a comfort unto them.    
 > Ezekiel 16:54.    
 

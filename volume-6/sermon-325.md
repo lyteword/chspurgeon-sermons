@@ -1,6 +1,5 @@
 # Sermon 325 | Constraining Love
 
-
 > Oh love the Lord, all you His saints.    
 > Psalm 31:23.    
 

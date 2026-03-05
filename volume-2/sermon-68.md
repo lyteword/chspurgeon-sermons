@@ -1,6 +1,5 @@
 # Sermon 68 | A Solemn Warning for All Churches
 
-
 > Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white; for they are worthy.    
 > Revelation 3:4.    
 

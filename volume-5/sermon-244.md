@@ -1,6 +1,5 @@
 # Sermon 244 | The Bed and Its Covering
 
-
 > For the bed is shorter than that a man can stretch himself on it: and the covering narrower than that he can wrap himself in it.    
 > Isaiah 28:20.    
 

@@ -1,6 +1,5 @@
 # Sermon 487 | A Tempted Savior--Our Best Succor
 
-
 > "For in that He Himself has suffered being tempted, He is able to succor them that are tempted."  
 > Hebrews 2:18.  
 

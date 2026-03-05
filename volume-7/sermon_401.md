@@ -1,6 +1,5 @@
 # Sermon 401 | Jacob's Waking Exclamation
 
-
 > "And Jacob awaked out of his sleep, and he said, Surely the Lord in this place; and I knew it not."  
 > Genesis 28:16.  
 

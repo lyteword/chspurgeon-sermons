@@ -1,6 +1,5 @@
 # Sermon 381 | Christian Baptism
 
-
 > "Buried with Him in Baptism, wherein also you are risen with Him through the faith of the operation of God who has raised Him from the dead."  
 > Colossians 2:12.  
 

@@ -1,6 +1,5 @@
 # Sermon 108 | The Question of Fear and the Answer of Faith
 
-
 > Will he plead against me with his great power? No; but he would put strength in me.    
 > Job 23:6.    
 

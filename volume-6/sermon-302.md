@@ -1,6 +1,5 @@
 # Sermon 302 | Jesus About His Father's Business
 
-
 > Jesus saith unto them, my meat is to do the will of him that sent me, and to finish his work.    
 > John 4:34.    
 

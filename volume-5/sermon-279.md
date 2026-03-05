@@ -1,6 +1,5 @@
 # Sermon 279 | Come and Welcome
 
-
 > And the Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely.    
 > Revelation 22:17.    
 

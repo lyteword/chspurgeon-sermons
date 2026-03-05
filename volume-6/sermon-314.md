@@ -1,6 +1,5 @@
 # Sermon 314 | Peace at Home, and Prosperity Abroad
 
-
 ON BEHALF OF THE LONDON MISSIONARY SOCIETY.
 
 "He maketh peace in thy borders, and filleth thee with the finest of the wheat He sendeth forth his commandment upon earth: his word runneth very swiftly."&mdash;Psalm 147:14.-15.

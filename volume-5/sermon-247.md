@@ -1,6 +1,5 @@
 # Sermon 247 | The Best of Masters
 
-
 > Peace I leave with you; my peace l give unto you; not as the world giveth, I give unto you.    
 > John 14:27.    
 

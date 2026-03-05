@@ -1,6 +1,5 @@
 # Sermon 56 | Heaven
 
-
 > As it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit; for the Spirit searcheth all things, yea, the deep things of God.    
 > 1 Corinthians 2:9-10.    
 

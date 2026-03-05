@@ -1,6 +1,5 @@
 # Sermon 145 | Love Thy Neighbour
 
-
 > Thou shalt love thy neighbour as thyself    
 > Matthew 19:19.    
 

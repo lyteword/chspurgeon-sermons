@@ -1,6 +1,5 @@
 # Sermon 513 | The Young Man's Prayer
 
-
 > "O satisfy us early with Your mercy, that we may rejoice and be glad all our days."  
 > Psalm 90:14.  
 

@@ -1,6 +1,5 @@
 # Sermon 253 | A Psalm of Remembrance
 
-
 > We have known and believed the love that God hath to us.    
 > 1 John 4:16.    
 

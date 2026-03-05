@@ -1,6 +1,5 @@
 # Sermon 623 | Satan Considering the Saints
 
-
 > And the Lord said unto Satan, Hast thou considered my servant Job.    
 > Job 1:8.    
 

@@ -1,6 +1,5 @@
 # Sermon 447 | God's Estimate Of Time
 
-
 > "But, Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years and a thousand years as one day."  
 > 2 Peter 3:8.  
 

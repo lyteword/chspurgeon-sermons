@@ -1,6 +1,5 @@
 # Sermon 277 | The Blood of the Everlasting Covenant
 
-
 > The blood of the everlasting covenant.    
 > Hebrews 13:20.    
 

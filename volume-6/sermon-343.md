@@ -1,6 +1,5 @@
 # Sermon 343 | A Basket of Summer Fruit
 
-
 > Thus hath the Lord God shewed unto me: and behold a basket of summer fruit. And he said, Amos, what seest thou? And I said, a basket of summer fruit. Then said the Lord unto me, the end is come upon my people of Israel; I will not again pass by them any more.    
 > Amos 8:1-2.    
 

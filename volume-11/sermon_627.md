@@ -1,6 +1,5 @@
 # Sermon 627 | Justification And Glory
 
-
 > Whom He justified, them He also glorified.    
 > Romans 8:30.    
 

@@ -1,6 +1,5 @@
 # Sermon 545 | The Holy Child, Jesus
 
-
 > "That signs and wonders may be done by the name of Your holy Child, Jesus."  
 > Acts 4:30.  
 

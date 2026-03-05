@@ -1,6 +1,5 @@
 # Sermon 114 | Preaching for the Poor
 
-
 > The poor have the gospel preached to them.    
 > Matt. 11:5.    
 

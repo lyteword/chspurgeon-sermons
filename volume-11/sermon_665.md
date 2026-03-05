@@ -1,6 +1,5 @@
 # Sermon 665 | Open House For All Comers
 
-
 > This Man receives sinners and eats with them.    
 > Luke 15:2.    
 

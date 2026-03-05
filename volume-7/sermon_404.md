@@ -1,6 +1,5 @@
 # Sermon 404 | Intercessory Prayer
 
-
 > "And the Lord turned the captivity of Job, when he prayed for his friends."  
 > Job 42:10.  
 

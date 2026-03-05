@@ -1,6 +1,5 @@
 # Sermon 586 | The Child Samuel's Prayer
 
-
 > "Speak, Lord; for Your servant hears."  
 > 1 Samuel 3:9.  
 

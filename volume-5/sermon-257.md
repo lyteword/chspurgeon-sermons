@@ -1,6 +1,5 @@
 # Sermon 257 | The Scales of Judgment
 
-
 > Tekel; Thou art weighed in the balances, and art found wanting.    
 > Daniel 5:27.    
 

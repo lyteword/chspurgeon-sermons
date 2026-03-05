@@ -1,6 +1,5 @@
 # Sermon 71 | A Bottle in the Smoke
 
-
 > For I am become like a bottle in the smoke; yet do I not forget they statutes.    
 > Psalm 119:83.    
 

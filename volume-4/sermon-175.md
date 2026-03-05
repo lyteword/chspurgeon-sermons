@@ -1,6 +1,5 @@
 # Sermon 175 | The Two Talents
 
-
 > He also that had received two talents came and said, Lord, thou deliveredst unto me two talents: behold, I have gained two other talents beside them. His lord said unto him, Well done, good and faithful servant; thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy Lord.    
 > Matthew 25:22-23.    
 

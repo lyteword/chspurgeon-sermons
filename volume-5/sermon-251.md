@@ -1,6 +1,5 @@
 # Sermon 251 | The Necessity of the Spirit's Work
 
-
 > And I will put my Spirit within you.    
 > Ezekiel, 36:27.    
 

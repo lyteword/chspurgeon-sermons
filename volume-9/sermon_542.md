@@ -1,6 +1,5 @@
 # Sermon 542 | Paul--His Cloak And His Books
 
-
 > "The cloak that I left at Troas with Carpus, when you come, bring with you, and the books, but especially the parchments."  
 > 2 Timothy 4:13.  
 

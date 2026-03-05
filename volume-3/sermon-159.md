@@ -1,6 +1,5 @@
 # Sermon 159 | The True Christian's Blessedness
 
-
 > We know that all things work together far good to them that love God, to them who are the called according to his purpose.    
 > Romans 8:28.    
 

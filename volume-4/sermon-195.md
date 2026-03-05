@@ -1,6 +1,5 @@
 # Sermon 195 | Looking Unto Jesus
 
-
 > They looked unto him, and were lightened: and their faces were not ashamed.    
 > Psalm 34:5.    
 

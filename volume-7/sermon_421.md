@@ -1,6 +1,5 @@
 # Sermon 421 | It is finished!
 
-
 > "When Jesus therefore had received the vinegar, He said, It is finished: and He bowed His head and gave up the ghost."  
 > John 19:30.  
 

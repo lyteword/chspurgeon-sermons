@@ -1,6 +1,5 @@
 # Sermon 569 | The Arrows Of The Lord'S Deliverance
 
-
 > "You should have struck five or six times. Then had you struck Syria till you had consumed it: whereas now you shall strike Syria but thrice."  
 > 2 Kings 13:19.  
 

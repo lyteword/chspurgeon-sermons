@@ -1,6 +1,5 @@
 # Sermon 650 | Judgment Threatening But Mercy Sparing
 
-
 > Cut it down; why does it use up the ground? But he answered and said to him, Lord, let it alone this year also.    
 > Luke 13:7,8.    
 

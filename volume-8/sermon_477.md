@@ -1,6 +1,5 @@
 # Sermon 477 | Never! Never! Never! Never! Never!
 
-
 > "He hath said, I will never leave thee, nor forsake thee."  
 > Hebrews 13:5.  
 

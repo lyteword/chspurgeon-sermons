@@ -1,6 +1,5 @@
 # Sermon 597 | Preparation for Revival
 
-
 > "Can two walk together, except they be agreed?"  
 > Amos 3:3.  
 

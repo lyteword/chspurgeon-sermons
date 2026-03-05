@@ -1,6 +1,5 @@
 # Sermon 533 | The Queen Of The South, Or The Earnest Enquirer
 
-
 > "The queen of the south shall rise up in the judgment with this generation and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here."  
 > Matthew 12:42.  
 

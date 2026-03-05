@@ -1,14 +1,5 @@
 # Sermon 561 | Expiation
 
-A Sermon
-
-
-By the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
-
 "Thou shalt make his soul an offering for sin."--Isaiah 53:10.
 
 BOTH Jews and Gentiles knew pretty well what an offering for sin meant. The Gentiles had been in the habit of offering sacrifices. The Jews, however, had by far the clearer idea of it. And what was meant by a sin-offering? Undoubtedly, it was taken for granted by the offerer, that without shedding blood there was no remission of sin. Conscious of guilt, and anxious for pardon, therefore he brought a sacrifice, the blood of which should be poured out at the foot of the altar--feeling persuaded that without sacrifice there was no satisfaction, and without satisfaction there was no pardon. Then the victim to be offered was, on all occasions, a spotless one. The most scrupulous care was taken that it should be altogether without blemish; for this idea was always connected with a sin-offering, that it must be sinless in itself; and being without spot or wrinkle, or any such thing, it was held to be a competent victim to take the offender's place. That done, the victim being selected, the offerer put his hand upon the sin-offering--and this indeed was the essence of the whole transaction--putting his hand on the victim, he confessed his sin, and a transferrence took place, in type at least, from the offender to the victim. He did, as it were, put the sin from off his own shoulders on to those of the lamb, or the bullock, or the he-goat which was now about to be slaughtered. And, to complete the sin-offering, the priest draws his knife and kills the victim which must be utterly consumed with fire. I say this was always the idea of a sin-offering,--that of a perfect victim; without offense on its own account, taking the place of the offender; the transferrence of the offender's sin to that victim, and that expiation in the person of the victim for the sin done by another.

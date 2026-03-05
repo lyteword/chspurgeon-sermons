@@ -1,6 +1,5 @@
 # Sermon 658 | From The Dunghill To The Throne
 
-
 > He raises up the poor out of the dust and lifts the needy out of the dunghill, that He may set him with princes, even with the princes of His people.    
 > Psalm 113:7,8.    
 

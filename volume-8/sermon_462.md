@@ -1,6 +1,5 @@
 # Sermon 462 | Creation--An Argument For Faith
 
-
 > "Ah Lord God, behold, You have made the Heaven and the earth by Your great power and stretched out arm, and there is nothing too hard for You."  
 > Jeremiah 32:17.  
 

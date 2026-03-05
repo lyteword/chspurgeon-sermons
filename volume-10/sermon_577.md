@@ -1,6 +1,5 @@
 # Sermon 577 | Let Us Go Forth
 
-
 > "Let us go forth therefore unto Him outside the camp, bearing His reproach."  
 > Hebrews 13:13.  
 

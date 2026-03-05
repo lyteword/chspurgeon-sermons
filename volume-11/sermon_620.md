@@ -1,6 +1,5 @@
 # Sermon 620 | A Warning Against Hardness Of Heart
 
-
 > But exhort one another daily, while it is called 'Today,'lest any of you be hardened through the deceitfulness of sin.    
 > Hebrews 3:13.    
 

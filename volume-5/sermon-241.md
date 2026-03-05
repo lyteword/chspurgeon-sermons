@@ -1,6 +1,5 @@
 # Sermon 241 | Predestination and Calling
 
-
 > Moreover whom he did predestinate, them he also called.    
 > Romans 8:30    
 

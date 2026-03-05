@@ -1,6 +1,5 @@
 # Sermon 118 | The Blood-Shedding
 
-
 > Without shedding of blood is no remission.    
 > Hebrews 9: 22.    
 

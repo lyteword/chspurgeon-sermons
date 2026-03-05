@@ -1,6 +1,5 @@
 # Sermon 360 | Adoption
 
-
 > "Having predestinated us unto the adoption of children by Jesus Christ to Himself, according to the good pleasure of His will."  
 > Ephesians 1:5.  
 

@@ -1,6 +1,5 @@
 # Sermon 348 | Consolation in Christ
 
-
 > "If there be therefore any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any bowels and mercies."  
 > Philippians 2:1.  
 

@@ -1,9 +1,5 @@
 # Sermon 372 | Meeting Of The Neighboring Churches
 
-
-> ""  
-> e.  
-
 THE invitation to the ministers and members of neighboring churches, to show their support in the opening of the new Tabernacle, by attending especially at a meeting held this evening, was most cordially accepted, and the number present proved the heartiness of the response. An audience approaching 4,000 in number assembled on the occasion, while on the platform and pulpit were a goodly array of ministerial Brothers. The CHAIR was occupied by the Rev. Dr. STEANE.
 
 The fourth hymn, given out by Mr. SPURGEON, and described as a hymn of welcome and fellowship, was first sung.

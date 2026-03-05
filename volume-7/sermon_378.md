@@ -1,6 +1,5 @@
 # Sermon 378 | Christ's Finished Work
 
-
 > "It is finished!"  
 > John 19:30.   
 

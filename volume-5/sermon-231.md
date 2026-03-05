@@ -1,6 +1,5 @@
 # Sermon 231 | Faith in Perfection
 
-
 > The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands.    
 > Psalm 138:8.    
 

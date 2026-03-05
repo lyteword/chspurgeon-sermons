@@ -1,6 +1,5 @@
 # Sermon 595 | Barabbas Preferred To Jesus
 
-
 > "Then cried they all again, saying, Not this man, but Barabbas. Now Barabbas was a robber."  
 > John 18:40.  
 

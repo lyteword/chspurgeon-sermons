@@ -1,6 +1,5 @@
 # Sermon 529 | The Cedars Of Lebanon
 
-
 > "The trees of the Lord are full of sap. The cedars of Lebanon, which He has planted."  
 > Psalm 104:16.  
 

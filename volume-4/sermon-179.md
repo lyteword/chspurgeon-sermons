@@ -1,6 +1,5 @@
 # Sermon 179 | The Great Reservoir
 
-
 > Keep thy heart with all diligence; for out of it are the issues of life.    
 > Proverbs 4:23.    
 

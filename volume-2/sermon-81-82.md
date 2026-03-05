@@ -1,6 +1,5 @@
 # Sermon 81 & 82 | The God of the Aged
 
-
 > Even to your old age I am he; and even to hoar hairs will I carry you. I have made, and I will bear; even I will carry, and will deliver you.    
 > Isaiah 46:4.    
 

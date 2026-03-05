@@ -1,6 +1,5 @@
 # Sermon 463 | Christ's Servant--His Duty And Reward
 
-
 > "If any man serve Me, let him follow Me. And where I am, there shall also My servant be: if any man serve Me, him will My Father honor."  
 > John 12:26.  
 

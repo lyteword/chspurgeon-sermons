@@ -1,6 +1,5 @@
 # Sermon 248 | Little Sins
 
-
 > Is it not a little one?    
 > Genesis 19:20.    
 

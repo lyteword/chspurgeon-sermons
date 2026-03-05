@@ -1,6 +1,5 @@
 # Sermon 576 | Quiet Musing!
 
-
 > "While I was musing the fire burned."  
 > Psalm 39:3.  
 

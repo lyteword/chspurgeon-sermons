@@ -1,6 +1,5 @@
 # Sermon 291 | A Christmas Question
 
-
 > For unto us a child is born, unto us a son is given.    
 > Isaiah 9:6.    
 

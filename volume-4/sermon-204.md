@@ -1,6 +1,5 @@
 # Sermon 204 | The Mission of the Son of Man
 
-
 > For the Son of man is come to seek and to save that which was lost.    
 > Luke 19:10.    
 

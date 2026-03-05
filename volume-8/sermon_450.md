@@ -1,6 +1,5 @@
 # Sermon 450 | An Exhortation
 
-
 > "And it came to pass, after the year was expired, at the time when kings go forth to battle, that Da vid sent Joab and his servants with him and all Israel. And they destroyed the children of Amnion and besieged Rabbah. But David tarried still at Jerusalem."  
 > 2 Samuel 11:1.  
 

@@ -1,6 +1,5 @@
 # Sermon 615 | Human Depravity And Divine Mercy
 
-
 > And the Lord smelled a sweet savor. And the Lord said in His heart, I will not again curse the ground anymore for man's sake; for the imagination of man's heart is evil from his youth; neither will I again destroy anymore every thing living as I have done.    
 > Genesis 8:21.    
 

@@ -1,6 +1,5 @@
 # Sermon 571 | Unbelievers Stumbling--Believers Rejoicing
 
-
 > "As it is written, Behold I lay in Zion a stumbling stone and rock of offense: and whoever believes on Him shall not be ashamed."  
 > Romans 9:33.  
 

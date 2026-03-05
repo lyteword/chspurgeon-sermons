@@ -1,6 +1,5 @@
 # Sermon 510 | Peace By Believing
 
-
 > "Therefore, beingjustified by faith, we havepeace with God through ourLord Jesus Christ."  
 > Romans 5:1.  
 

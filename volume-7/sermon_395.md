@@ -1,6 +1,5 @@
 # Sermon 395 | Jehovah Tsidkenu: The Lord Our Righteousness
 
-
 > "This is his name whereby he shall be called, The Lord our Righteousness."  
 > Jeremiah 23:6.  
 

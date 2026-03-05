@@ -1,6 +1,5 @@
 # Sermon 456 | The Stony Heart Removed
 
-
 > "I will take away the stony heart out of your flesh, and I will give you an heart of flesh."  
 > Ezekiel 36:26.  
 

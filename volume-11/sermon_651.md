@@ -1,6 +1,5 @@
 # Sermon 651 | A Sermon From A Rush
 
-
 > Can the rush grow up without a marsh? Can the reeds grow without water? While it is yet green and not cut down, it withers before any other plant. So are the paths of all that forget God. And the hypocrite's hope shall perish.    
 > Job 8:11-13.    
 

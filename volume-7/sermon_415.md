@@ -1,6 +1,5 @@
 # Sermon 415 | The Fullness Of Christ--Received!
 
-
 > "And of His fullness have all we received.'"  
 > John 1:16.   
 

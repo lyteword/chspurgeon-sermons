@@ -1,6 +1,5 @@
 # Sermon 639 | Zealots
 
-
 > Simon called the Zealot.    
 > Luke 6:15.    
 

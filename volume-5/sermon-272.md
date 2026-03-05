@@ -1,6 +1,5 @@
 # Sermon 272 | Limiting God
 
-
 > They limited the Holy One of Israel    
 > Psalm 78:41.    
 

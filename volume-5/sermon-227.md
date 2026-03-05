@@ -1,6 +1,5 @@
 # Sermon 227 | Compel Them to Come In
 
-
 > Compel them to come in.    
 > Luke 14:23.    
 

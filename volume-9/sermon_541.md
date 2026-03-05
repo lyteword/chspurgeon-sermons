@@ -1,6 +1,5 @@
 # Sermon 541 | Direction In Dilemma
 
-
 > "Standstill and see the salvation of the Lord."  
 > Exodus 14:13.  
 

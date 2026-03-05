@@ -1,6 +1,5 @@
 # Sermon 129 | David's Dying Prayer
 
-
 > Let the whole earth be filled with his glory; Amen, and Amen.    
 > Psalm 72:10.    
 

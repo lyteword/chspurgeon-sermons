@@ -1,6 +1,5 @@
 # Sermon 88 | The Plea of Faith
 
-
 > Do as thou hast said.    
 > 2 Samuel 7:25.    
 

@@ -1,6 +1,5 @@
 # Sermon 320 | Contentment
 
-
 > For I have learned, in whatsoever state I am, therewith to be content.    
 > Philippians 4:11.    
 

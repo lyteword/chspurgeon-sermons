@@ -1,6 +1,5 @@
 # Sermon 579 | God Pleading For Saints, And Saints Pleading For God
 
-
 > "O Lord, You ha ve pleaded the causes of my soul; You have redeemed my life."  
 > Lamentations 3:58.  
 

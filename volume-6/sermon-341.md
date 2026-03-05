@@ -1,6 +1,5 @@
 # Sermon 341 | The High Priest Standing Between the Dead and the Living
 
-
 > And Aaron took as Moses commanded, and ran into the midst of the congregation; and behold, the plague was begun among the people: and he put on incense, and made an atonement for the people. And he stood between the dead and the living; and the plague was stayed.    
 > Numbers 16:47-48.    
 

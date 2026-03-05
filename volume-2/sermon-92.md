@@ -1,6 +1,5 @@
 # Sermon 92 | Profit and Loss
 
-
 > What shall it profit a man, if he shall gain the whole word, and lose his own soul?    
 > Mark 8:36.    
 

@@ -1,6 +1,5 @@
 # Sermon 523 | From Death To Life
 
-
 The Lord kills and makes alive: He brings down to the grave, and brings up."--1 Samuel 2:6.
 
 THIS sentence occurs in the very remarkable song of Hannah, who was equally illustrious as a poetess and prevalent as a suppliant. She sings an experimental song, for her deep sorrow had been a living death to her, and her joyful exaltation was a triumphant resurrection. Her hymn is a golden bracelet set with the jewels of sparkling contrasts. And this verse, with its vivid opposition between life and death, restoration and the grave, bears in it diamonds of the finest quality. Like the ewes in the Canticles, this verse bears twins.

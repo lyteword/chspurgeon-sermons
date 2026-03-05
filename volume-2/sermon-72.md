@@ -1,6 +1,5 @@
 # Sermon 72 | Israel at the Red Sea
 
-
 > He rebuked the Red Sea also, and it was dried up: so he led them through the depths, as through the wilderness.    
 > Psalm 106:9.    
 

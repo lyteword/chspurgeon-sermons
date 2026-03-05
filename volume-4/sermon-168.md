@@ -1,6 +1,5 @@
 # Sermon 168 | The First Christmas Carol
 
-
 > Glory to God in the highest, and on earth peace, good will toward men.    
 > Luke 2:14.    
 

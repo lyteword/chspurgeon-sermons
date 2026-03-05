@@ -1,6 +1,5 @@
 # Sermon 309 | Full Redemption
 
-
 > There shall not a hoof be left behind.    
 > Exodus 10:26.    
 

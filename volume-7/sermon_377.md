@@ -1,9 +1,5 @@
 # Sermon 377 | Public Meeting Of The Various Denominations
 
-
-> ""  
-> e.  
-
 FOR THE PURPOSE OF HEARING ADDRESSES ON CHRISTIAN UNITY.
 
 The CHAIR, which was occupied by EDWARD BALL, Esq., M.P., was taken at half-past six o'clock. The proceedings were commenced by singing and prayer.

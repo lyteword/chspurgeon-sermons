@@ -1,6 +1,5 @@
 # Sermon 219 | An Appeal To Sinners
 
-
 DEARLY BELOVED,
 
 It hath pleased the Lord by a painful illness to interrupt for a little while my usual labors. As I was unable to preach last Lord's day, accept this week the issue of an old sermon. Though it has been buried in my publisher's warehouse for two years, I pray God it may bud afresh and bring forth fruit, even as old corn after having been entombed in Egyptian sepulchres for centuries will often germinate again and yield an abundant crop. Ye have prayed for me. The Lord hath visited me in the chamber of affliction. I am recovering; and God knoweth "I long to see you, and impart unto you some spiritual gift;" and I trust that ere long "through your prayers I shall be given unto you."

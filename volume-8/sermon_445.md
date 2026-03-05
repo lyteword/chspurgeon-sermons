@@ -1,6 +1,5 @@
 # Sermon 445 | Resurrection--Christ The First Fruits
 
-
 > "But now is Christ risen from the dead and become the first fruits of them that slept."  
 > 1 Corinthians 15:20.  
 

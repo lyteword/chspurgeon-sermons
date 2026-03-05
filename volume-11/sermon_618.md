@@ -1,6 +1,5 @@
 # Sermon 618 | The Great Physician And His Patients
 
-
 > They that are whole need not a physician, but they that are sick.    
 > Matthew 9:12.    
 

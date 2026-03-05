@@ -1,6 +1,5 @@
 # Sermon 128 | The Uses of the Law
 
-
 > Wherefore then serveth the law?     
 > Galatians 3:19.    
 

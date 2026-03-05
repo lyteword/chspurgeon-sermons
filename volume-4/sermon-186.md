@@ -1,6 +1,5 @@
 # Sermon 186 | The Form and Spirit of Religion
 
-
 > Let us fetch the ark of the covenant of the Lord out of Shiloh unto us, that, when it cometh among us, it may save us out of the hand of our enemies.    
 > 1 Samuel 4:3.    
 

@@ -1,6 +1,5 @@
 # Sermon 183 | The Solar Eclipse
 
-
 > I form the light, and create darkness.    
 > Isaiah 45:7.    
 

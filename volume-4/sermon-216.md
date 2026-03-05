@@ -1,6 +1,5 @@
 # Sermon 216 | Confession and Absolution
 
-
 > And the publican, standing afar off would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner.    
 > Luke 18:13.    
 

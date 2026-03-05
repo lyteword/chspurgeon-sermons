@@ -1,6 +1,5 @@
 # Sermon 315 | The Teaching of the Holy Ghost
 
-
 > But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, Whatsoever I have said unto you.    
 > John 14:26.    
 

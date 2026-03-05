@@ -1,6 +1,5 @@
 # Sermon 657 | Satanic Hindrances
 
-
 > Satan hindered us.    
 > 1 Thessalonians 2:18.    
 

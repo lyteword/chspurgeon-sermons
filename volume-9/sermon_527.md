@@ -1,6 +1,5 @@
 # Sermon 527 | The Red Heifer
 
-
 > "This is the ordinance of the la w, which the Lord has commanded, saying, Speak unto the children of Israel, that they bring you a red heifer without spot, wherein is no blemish and upon which never came yoke: and you shall give her unto Eleazar the priest, that he may bring her forth without the camp and one shall slay her before his face."  
 > Numbers 19:2,3.  
 

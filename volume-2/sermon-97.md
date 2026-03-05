@@ -1,6 +1,5 @@
 # Sermon 97 | Pride and Humility
 
-
 > Before destruction the heart of man is haughty, and before honor is humility.    
 > Proverbs 18:12.    
 

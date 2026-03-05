@@ -1,6 +1,5 @@
 # Sermon 54 | Christ Our Passover
 
-
 > For even Christ our passover is sacrificed for us.    
 > 1 Corinthians 5:7.    
 

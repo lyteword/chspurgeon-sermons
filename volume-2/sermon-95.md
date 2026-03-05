@@ -1,6 +1,5 @@
 # Sermon 95 | The Day of Atonement
 
-
 > This shall be an everlasting statute unto you, to make an atonement for the children of Israel for all their sins once a year.    
 > Leviticus 16:34.    
 

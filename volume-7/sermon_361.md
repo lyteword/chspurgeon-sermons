@@ -1,6 +1,5 @@
 # Sermon 361 | None But Jesus
 
-
 > "He that believeth on him is not condemned"  
 > John 3:18  
 

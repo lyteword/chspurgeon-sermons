@@ -1,6 +1,5 @@
 # Sermon 403 | The Broken Column
 
-
 > "And another also said, Lord, I will follow thee: but"  
 > Luke 9:61.  
 

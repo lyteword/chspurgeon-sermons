@@ -1,6 +1,5 @@
 # Sermon 505 | The Root Of The Matter
 
-
 > "The root of the matter is found in me."  
 > Job 19:28.  
 

@@ -1,10 +1,5 @@
 # Sermon 370 | Evangelical Congratulations
 
-A Sermon
-
-
-Delivered on Monday Evening, March 25th, 1861 by the
-
 Rev. W. BROCK
 
 "Christ is preached, and I therein do rejoice, yes, and will rejoice."--Philippians 1:18. 

@@ -1,6 +1,5 @@
 # Sermon 126 | Justification by Grace
 
-
 > Being justified freely by his grace, through the redemption that is in Christ Jesus.    
 > Rom. 3:24.    
 

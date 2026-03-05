@@ -1,6 +1,5 @@
 # Sermon 137 | Mercy, Omnipotence, and Justice
 
-
 > The Lord is slow to anger and great in power, and will not at all acquit the wicked.    
 > Nahum 1:3.    
 

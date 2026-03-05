@@ -1,6 +1,5 @@
 # Sermon 322 | A Divine Challenge!
 
-
 > Thus says the Lord, let My people go, that they may serve Me.    
 > Exodus 8:1.    
 

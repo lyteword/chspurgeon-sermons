@@ -1,6 +1,5 @@
 # Sermon 566 | General And Yet Particular
 
-
 > "You have given Him power o ver all flesh, that He should give eternal life to as many as You have given Him."  
 > John 17:2.  
 

@@ -1,6 +1,5 @@
 # Sermon 189 | The Cry Of The Heathen
 
-
 > And a vision appeared to Paul in the night. There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us.    
 > Acts 16:9.    
 

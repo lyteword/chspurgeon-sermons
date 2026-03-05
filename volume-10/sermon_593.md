@@ -1,6 +1,5 @@
 # Sermon 593 | Inward Conflicts
 
-
 > "Return, return, O Shulamite; return, return, that we may look upon you. What will you see in the Shulamite? As it were the company of two armies."  
 > Song of Solomon 6:13.  
 

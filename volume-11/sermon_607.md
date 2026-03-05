@@ -1,6 +1,5 @@
 # Sermon 607 | True Unity Promoted
 
-
 > Endeavoring to keep the unity of the Spirit in the bond of peace.    
 > Ephesians 4:3.    
 

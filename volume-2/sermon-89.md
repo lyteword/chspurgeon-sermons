@@ -1,6 +1,5 @@
 # Sermon 89 | Hatred Without Cause
 
-
 > They hated me without a cause.    
 > John 15:25.    
 

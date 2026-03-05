@@ -1,6 +1,5 @@
 # Sermon 486 | The Sinner's End
 
-
 > "Until I went into the sanctuary of God; then understood I their end. Surely thou didst set them in slippery places: thou castedst them down into destruction."  
 > Psalm 73:17, 18.  
 

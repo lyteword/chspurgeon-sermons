@@ -1,6 +1,5 @@
 # Sermon 217 | Declension from First Love
 
-
 > Nevertheless I have somewhat against thee, because thou hast left thy first love.    
 > Revelation 2:4.    
 

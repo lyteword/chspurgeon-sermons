@@ -1,6 +1,5 @@
 # Sermon 374 | The Interest Of Christ And His People In Each Other
 
-
 > "My Beloved is mine, and I am His."  
 > Song of Solomon 2:16.   
 

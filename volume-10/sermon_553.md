@@ -1,6 +1,5 @@
 # Sermon 553 | Election no Discouragement to Seeking Souls
 
-
 > "I will be gracious upon whom I will be gracious, and will show mercy upon whom I will show mercy."  
 > Exodus 33:19.  
 

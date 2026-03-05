@@ -1,6 +1,5 @@
 # Sermon 495 | The Greatest Trial on Record
 
-
 > "The kings of the earth set themselves, and the rulers take counsel together, against the Lord, and against his anointed."  
 > Psalm 2:2.  
 

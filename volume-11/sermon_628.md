@@ -1,6 +1,5 @@
 # Sermon 628 | A Glorious Church
 
-
 > Husbands, love your wives, even as Christ also loved the Church, and gave Himself for her, that He might sanctify and cleanse her with the washing of water by the Word, that He might present her to Himself a glorious Church, not having spot, or wrinkle, or any such thing, but that she should be holy and without blemish.    
 > Ephesians 5:25-27.    
 

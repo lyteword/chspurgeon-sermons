@@ -1,6 +1,5 @@
 # Sermon 609 | Knowledge Commended
 
-
 > But the people that know their God shall be strong and do exploits. And they that understand among the people shall instruct many.    
 > Daniel 11:32,33.    
 

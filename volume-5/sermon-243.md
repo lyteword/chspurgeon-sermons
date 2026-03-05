@@ -1,6 +1,5 @@
 # Sermon 243 | Weak Hands and Feeble Knees
 
-
 > Strenghten ye the weak hands and confirm the feeble knees.    
 > Isaiah 35:8.    
 

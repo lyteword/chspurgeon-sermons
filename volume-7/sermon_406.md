@@ -1,6 +1,5 @@
 # Sermon 406 | The Infallibility of God's Purpose
 
-
 > "But he is in one minds, and who can turn him? and what his soul desireth, even that he doeth.  
 > Job 23:13.  
 

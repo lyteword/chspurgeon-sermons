@@ -1,6 +1,5 @@
 # Sermon 246 | Mr. Fearing Comforted
 
-
 > O thou of little faith, wherefore didst thou doubt?    
 > Matthew 14:31.    
 

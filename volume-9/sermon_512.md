@@ -1,6 +1,4 @@
 # Sermon 512 | A Precious Drop Of Honey
-
-
 > "Behold, I have inscribed you upon the palms of My hands."  
 > Isaiah 49:16.   
 

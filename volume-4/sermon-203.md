@@ -1,6 +1,5 @@
 # Sermon 203 | The Sympathy of the Two Worlds
 
-
 > There is joy in the: presence of the angels of God over one sinner that repenteth.    
 > Luke15:10.    
 

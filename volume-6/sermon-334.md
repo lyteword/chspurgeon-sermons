@@ -1,6 +1,5 @@
 # Sermon 334 | Man's Weakness&mdash;God's Anointing
 
-
 > I am this day weak, though anointed king; and these men, the sons of Zeruiah, are too hard for me.    
 > 2 Samuel 3:39.    
 

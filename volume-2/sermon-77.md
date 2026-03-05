@@ -1,6 +1,5 @@
 # Sermon 77 | Divine Sovereignty
 
-
 > Is it not lawful for me to do what I will with mine own?    
 > Matthew 20:15.    
 

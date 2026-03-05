@@ -1,6 +1,5 @@
 # Sermon 288 | "Let Us Pray"
 
-
 > But it is good for me to draw near to God.    
 > Psalm 73:23.    
 

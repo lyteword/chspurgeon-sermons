@@ -1,6 +1,5 @@
 # Sermon 101 | The Exaltation of Christ
 
-
 *This sermon was Spurgeon's first message following the disaster at the Music Hall, Royal Surrey Gardens&mdash;in which seven people lost their lives when some miscreants purposely started a panic while Mr. Spurgeon was preaching.*
 
 > Wherefore God also hath highly exalted him, and given him a name which is above every name: That at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth; And that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father.    

@@ -1,6 +1,5 @@
 # Sermon 606 | Mary's Song
 
-
 > "And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savior.'"  
 > Luke 1:46, 47.  
 

@@ -1,6 +1,5 @@
 # Sermon 572 | Laus Deo
 
-
 > "For of Him and through Him and to Him, are all things: to whom be glory forever. Amen."  
 > Romans 11:36.  
 

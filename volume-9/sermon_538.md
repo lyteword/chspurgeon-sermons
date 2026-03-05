@@ -1,6 +1,5 @@
 # Sermon 538 | Caleb--The Man For The Times
 
-
 > "But My servant Caleb, because he had another spirit in him and has followed Me fully, him will I bring into the land he went. And his seed shall possess it."  
 > Numbers 14:24.  
 

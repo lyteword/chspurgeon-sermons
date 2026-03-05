@@ -1,6 +1,5 @@
 # Sermon 399 | A Peal of Bells
 
-
 > "In that day shall there be upon the bells of the horses, HOLINESS UNTO THE LORD."  
 > Zechariah 14:20.  
 

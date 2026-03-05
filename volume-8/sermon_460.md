@@ -1,6 +1,5 @@
 # Sermon 460 | Faith and Repentance Inseparable
 
-
 > "Repent ye, and believe the gospel."  
 > Mark 1:15  
 

@@ -1,6 +1,5 @@
 # Sermon 508 | Comfort To Seekers From What The Lord Has Not Said
 
-
 > "I have not spoken in secret, in a dark place of the earth: I said not unto the seed of Jacob, Seek you Me in vain."  
 > Isaiah 45:19.  
 
