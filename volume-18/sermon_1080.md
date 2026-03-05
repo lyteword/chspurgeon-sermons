@@ -1,12 +1,5 @@
 # Sermon 1080 | Our Gifts and How To Use Them
 
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore I remind you to you stir up the gift of God which is in you by the laying on of my hands." 2 Timothy 1:6.
 
 I SUPPOSE that Timothy was a somewhat retiring youth and that from the gentleness of his nature he needed to be exhorted to the exercise of the bolder virtues. He is bid not to be ashamed of the testimony of our Lord and to endure hardness as a good soldier of Jesus Christ. He is called to the front, though his modesty would have kept him in the rear, and he is exhorted to command and teach, suffering no man to despise his youth. Perhaps, also, he was not a man of very vigorous action and needed, every now and then, a little touch of the spur to induce him to put forth all his dormant energy and keep himself and his Church thoroughly up to the mark in labor for Christ.

@@ -1,6 +1,5 @@
 # Sermon 996 | The Alarum
 
-
 > "I myself will awake early."  
 > Psalms 42:8.  
 

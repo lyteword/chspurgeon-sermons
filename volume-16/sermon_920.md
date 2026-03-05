@@ -1,12 +1,5 @@
 # Sermon 920 | Backsliding Healed
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 13, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will heal their backsliding." Hosea 14:4.
 
 WHICH rings with the more sonorous voice, the knell, "their backsliding," or the marriage peal, "I will heal"? All through the Scripture records there is revealed a vehement contest between man's sin and God's Grace--each of them striving to become more abundant than the other. Sin, like a dragon, pours forth floods from its mouth, and God's mercy, as a shoreless ocean, rolls in greater majesty. Sin abounds, so that none can measure its heinousness or power. But where sin abounds Grace does much more abound. In the text sin abounds--"their backsliding." There is a comprehensiveness in that word, a dreadful abyss of iniquity. But Grace abounds yet more, "I will heal their backsliding." Here is a height and depth of Grace like the God from whom it came--incomprehensible and infinite!

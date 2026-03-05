@@ -1,6 +1,5 @@
 # Sermon 1190 | A Song Among the Lilies
 
-
 My beloved is mine, and I am his: he feedeth among the lilies.''Song of Solomon 2:16.
 
 LAST SABBATH, in our morning's sermon, we began at the beginning and described the turning point in which the sinner sets his face towards his God, and for the first time gives practical evidence of spiritual life in his soul. He bestirs himself, he goes to his Father's house, and speedily is pressed to his Father's bosom, forgiven, accepted, and rejoiced over. This morning we are going far beyond that stage, to a position which I may call the very crown and summit of the spiritual life. We would conduct you from the door-step to the innermost chamber, from the outer court to the Holy of Holies, and we pray the Holy Spirit to enable each one of us who have entered in by Christ Jesus, the door, to pass boldly into the secret place of the tabernacles of the Host High, and sing with joyful heart the words of our text, My beloved is mine, and I am his.'

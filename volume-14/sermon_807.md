@@ -1,6 +1,5 @@
 # Sermon 807 | Good News for Loyal Subjects
 
-
 > "He must reign."  
 > 1 Corinthians 15:25.  
 

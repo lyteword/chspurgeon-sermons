@@ -1,6 +1,5 @@
 # Sermon 693 | The Garden Of The Soul
 
-
 > "A place called Gethsemane."  
 > Matthew 26:36.  
 

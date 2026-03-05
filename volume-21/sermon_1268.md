@@ -1,12 +1,5 @@
 # Sermon 1268 | The Story of a Runaway Slave
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Perhaps he therefore departed for a season, that you should receive him forever." Philemon 1:15.
 
 NATURE is selfish but Grace is loving. He who boasts that he cares for nobody and nobody cares for him, is the reverse of a Christian, for Jesus Christ enlarges the heart when He cleanses it. None so tender and sympathetic as our Master and if we are truly His disciples, the same mind will be in us which was also in Christ Jesus. The Apostle Paul was eminently large-hearted and sympathetic. Surely he had enough to do at Rome to bear his own troubles and to preach the Gospel. If, like the priest in the parable of the good Samaritan, he had, "passed by on the other side," he might have been excused, for he was on the urgent business of that Master who once said to His 70 messengers, "Salute no man by the way."

@@ -1,12 +1,5 @@
 # Sermon 925 | Individual Sin Laid On Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "All we like sheep have gone astray. We have turned, every one to his own way; and the Lord has laid on Him the iniquity of us all." Isaiah 53:6.
 
 

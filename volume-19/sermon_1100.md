@@ -1,12 +1,5 @@
 # Sermon 1100 | Good News for the Lost
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 9, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the Son of Man is come to seek and to sa ve that which was lost." Luke 19:10.
 
 THE promises of God are like stars, there is not one of them but has in its turn guided tempest-tossed souls to their desired haven. But as among the stars which stud the midnight sky there are constellations which above all others attract the mariner's gaze and are helpful to the steersman, so there are certain passages in Scripture which have not only directed a few wise men to Jesus, but have been guiding stars to myriads of simple minds who have, through their help, found the port of peace. I could mention a number of texts this morning which I might compare to the pointers of the Great Bear or to the Southern Cross because they have directly pointed the penitent eye to Jesus, the Pole Star, and by looking to Him, sinners have found "the way, the truth, and the life."

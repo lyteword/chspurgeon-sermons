@@ -1,6 +1,5 @@
 # Sermon 670 | Frost And Thaw
 
-
 > "He gives snow like wool; He scatters the frost like ashes; He casts out His hail like morsels. Who can stand before His cold? He sends out His word and melts them; He causes His wind to blow, and the waters flow."  
 > Psalm 147:16-18.  
 

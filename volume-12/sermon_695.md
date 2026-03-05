@@ -1,6 +1,5 @@
 # Sermon 695 | The Axe at the Root--A Testimony Against Puseyite Idolatry
 
-
 > "But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth, for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth."  
 > John 4:23-24.  
 

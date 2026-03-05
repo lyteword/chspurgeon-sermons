@@ -1,6 +1,5 @@
 # Sermon 716 | The Church Awakened
 
-
 > "Therefore He says: Awake, you who sleep, Arise from the dead, And Christ will give you light.'"  
 > Ephesians 5:14.  
 

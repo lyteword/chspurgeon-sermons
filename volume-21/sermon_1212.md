@@ -1,12 +1,5 @@
 # Sermon 1212 | Faith and Its Attendant Privileges
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He came unto His own, and His own received Him not. But as many as received Him, to them gave He power to become the sons of God, even to them which believe on His name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God." John 1:11-13.
 
 ACCORDING to this text, the principal matter in our salvation is faith. Faith is described as "receiving" Jesus. It is the empty cup placed under the flowing stream. It is the penniless hand held out for heavenly alms. It is also described in the text as "believing on His name." And this reception, this believing, is the main thing in real godliness. Faith is the simplest thing conceivable! When we hear people sing, "Only believe and you shall be saved," they sing the Truth of God, for we have the Divine assurance that "whoever believes on Him is not condemned." The Gospel message is, "Believe on the Lord Jesus Christ and you shall be saved."

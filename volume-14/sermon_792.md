@@ -1,14 +1,5 @@
 # Sermon 792 | Mary Magdalene
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, January 26, 1868, by
-
-H. SPURGEON,
-
-at the [5]Metropolitan Tabernacle, Newington.
-
 "Mary Magdalene, out of whom He had cast seven devils.'" Mark 16:9.
 
 EXPERIMENTAL preaching, when truthful, is almost always profitable. As the spouse of old desired to see the footsteps of the flock, so souls in distress are always happy to observe the proofs that others have trod that same pathway before. It may be, and I trust it shall be, that while we are speaking upon the life of Magdalene and showing how the Lord was pleased to lead her up from the depths of mental distress to the heights of spiritual joy, some who may be in like circumstances may be led to hope that for them, also, there may be deliverance. And others who have already received like favors may have their grateful recollections refreshed, and may be made to bless the Lord who brought them up out of the horrible pit and out of the miry clay, and has now set their feet upon a rock. We shall begin with Mary of Magdalene here. God began with her in a way of effectual Grace.

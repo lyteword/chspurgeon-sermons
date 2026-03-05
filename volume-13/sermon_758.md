@@ -1,7 +1,5 @@
 # Sermon 758 | The Glorious Gospel of the Blessed God
 
-A sermon
-
 "According to the glorious Gospel of the blessed God, which was committed to my trust."- 1 Timothy 1:11.
 
 THIS verse occurs just after a long list of sins which the Apostle declares to be contrary to sound doctrine, from which we gather that one test of sound doctrine is its opposition to every form of sin. That doctrine which in any way palliates sin may be popular, but is not sound doctrine. Those who talk much of their soundness but yet, by their lives, betray the rottenness of their hearts, need far rather to be ashamed of their hypocrisy than to be proud of their orthodoxy.

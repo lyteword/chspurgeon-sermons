@@ -1,12 +1,5 @@
 # Sermon 1145 | The Great Jail--and How To Get Out Of It
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 30, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But the Scripture has confined all under sin, that the promise by faith of Jesus Christ might be given to them that believe." Galatians 3:22.
 
 IN every work which we undertake it is most important that we should act upon right principles, for if we are misled upon essential points, our efforts will be wasted since success cannot possibly be the result. A man may study the stars as long as he pleases, but he certainly will not come to right conclusions if he calculates their courses upon the theory that they daily revolve around the earth as a center. The alchemists were earnest even to enthusiasm, but the object of their pursuit was unattainable and the theories which guided their investigations were absurd, and, therefore, they exhibited a sorrowful spectacle of misapplied perseverance and labor thrown away.

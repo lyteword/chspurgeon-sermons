@@ -1,7 +1,5 @@
 # Sermon 769 | Serving the Lord With Gladness
 
-A sermon
-
 "Serve the Lord with gladness."- Psalm 100:2.
 
 MUCH of the sweetness of music lies in the ear to which it is addressed. There are mysterious sweetnesses and unknown harmonies which lurk, and the notes are detected only by the ear attuned to melody. The most enchanting strain to one ear may be discord, itself, to another! The wise man tells us that as vinegar is upon niter, so is he that sings songs to a sad heart. The song in itself may embody the soul of delight and yet it may be misery itself to the ear which is not in tune with it. So is it with my text. It is a short, but inexpressibly sweet stanza. "Serve the Lord with gladness," is a delightful sonnet to the spiritual mind, but to the ungodly, the careless, the unspiritual, it is flat and dull--the grinding of labor's wheel--and far other than a verse from a cherub's harp.

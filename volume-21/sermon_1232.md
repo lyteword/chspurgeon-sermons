@@ -1,12 +1,5 @@
 # Sermon 1232 | Solomon's Plea
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 2, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For You did separate them from among all the people of the earth, to be Your inheritance" 1 Kings 8:53.
 
 ISRAEL was a type of the Church of God. The Apostle, in the Epistle to the Romans, clearly shows that Abraham was the father, not of the circumcision only, but of all those who walk in the steps of the faith of Abraham, and that the promise that he should be heir of the world was not to Abraham or his seed through the Law, but through the righteousness of faith. The covenanted inheritance was not to be given according to descent through the flesh, else would the inheritance have fallen to Ishmael, but the peculiar blessings which God promised to Abraham are the heritage of those who are born after the Spirit, according to the promise, even as Isaac was. Abraham, himself, believed, and his faith was counted to him for righteousness, and all those who possess faith are the true children of "the father of the faithful."

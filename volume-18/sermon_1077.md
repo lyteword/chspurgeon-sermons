@@ -1,12 +1,5 @@
 # Sermon 1077 | The Lord Blessing His Saints
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 26, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You are blessed of the Lord [or of JEHOVAH] which made Heaven and earth." Psalm 115:15.
 
 WITHOUT any preface, (for where there is such a feast before us anything which detains us from the table will be out of place), let us come at once to the delightful words of our text and may the Holy Spirit lead us into their inner sense! Here is a blessing spoken of. The Lord that made Heaven and earth has been pleased to bless His people. And this blessing has several peculiarities about it of which we shall speak particularly. It will help us to reach the marrow and fatness of the text if we consider in detail the orthodox number of five points.

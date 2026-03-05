@@ -1,6 +1,5 @@
 # Sermon 723 | The Root That Bears Wormwood
 
-
 > "Lest there should be among you a root that bears gall and wormwood."  
 > Deuteronomy 29:18.  
 

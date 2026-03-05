@@ -1,12 +1,5 @@
 # Sermon 954 | A Most Needful Prayer Concerning The Holy Spirit
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 9, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Cast me not away from Your Presence. And take not Your Holy Spirit from me." Psalm 51:11.
 
 THIS Psalm is beyond all others a photograph of penitent David. You have probably seen that interesting slab of stone which bears on its surface indications of the fall of raindrops in a primeval shower--this Psalm preserves the marks of David's teardrops for the inspection and instruction of succeeding generations. Or what if I change the figure and borrow another from an Oriental fable? They said of old that pearls were formed by drops of spring rain falling into shells upon the shores of the sea. So here, the drops of David's repentance are preserved in inspired Scripture as precious, priceless pearls.

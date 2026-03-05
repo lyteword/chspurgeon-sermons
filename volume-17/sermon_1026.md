@@ -1,6 +1,5 @@
 # Sermon 1026 | Joy Born at Bethlehem
 
-
 > "And the angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people. For unto you is born this day in the city of David a Saviour, which is Christ the Lord. And this shall be a sign unto you; Ye shall find the babe wrapped in swaddling clothes, lying in a manger."  
 > Luke 2:10-12.  
 

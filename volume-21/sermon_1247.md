@@ -1,12 +1,5 @@
 # Sermon 1247 | The Special Prayer Meeting
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When he had considered the thing, he came to the house of Mary the mother of John, whose surname was Mark; where many were gathered together praying." Acts 12:12.
 
 IT was a great wonder that the infant Church of Christ was not destroyed. Truly, she was like a lone lamb in the midst of furious wolves, without either earthly power, prestige or patronage to protect her, yet, as though she wore a charmed life, she escaped from the hosts of her cruel foes. Had not this child been something more than others it had been slain like the innocents at Bethlehem--but being Heaven-born it escaped the fury of the destroyer. It is worth while asking, however--with what weapons did this Church protect herself? For we may very wisely use the same. She was preserved in her utmost danger from overwhelming destruction--what was her defense? Where did she find shield and buckler?

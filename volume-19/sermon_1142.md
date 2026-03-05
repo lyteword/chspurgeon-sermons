@@ -1,12 +1,5 @@
 # Sermon 1142 | Free Pardon
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I, even I, am He that blots outyour transgressions for My own sake, and will not remember your sins." Isaiah 43:25.
 
 THIS extraordinary passage is rendered the more remarkable from its connection, for it follows a description of the sins of God's people, a description which mentions their sins of omission in that they had neglected the service of the Most High--and their sins of commission in that they had gone so far in breaking God's Law that they had even wearied Him with their iniquities. There is the charge--a thousand facts prove it--and nothing can be urged by way of extenuation. We might expect that the next utterance would be the sentence. And the next motion of the Divine hand would be the execution, but, instead of that, O wonder of wonders! (Who is a pardoning God like unto You, O Jehovah?)--there comes a full remission, a complete absolution--"I, even I, am He that blots out your transgressions."

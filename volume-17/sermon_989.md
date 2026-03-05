@@ -1,6 +1,5 @@
 # Sermon 989 | A Last Look-Out
 
-
 > "The time of my departure is at hand."  
 > 2 Timothy 4:6.  
 

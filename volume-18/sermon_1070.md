@@ -1,12 +1,5 @@
 # Sermon 1070 | Wrecked, But Not reckless
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 9, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "All hope that we should be sa ved was then taken away." Acts 27:20.
 
 HERE was a case of extreme peril, in which there seemed to be no possibility whatever of any of the lives of nearly 300 persons being preserved. In this emergency the Apostle Paul resorted to prayer. We may avail ourselves of this privilege in the worst pinch. When things are so black that they cannot be any darker we may still pray. God is good at a dead lift. Our extremities, as we well know, are always His opportunities. When we can do nothing to help ourselves, let us pray and we can get help from God in everything. Or, after we have done the little we can do, let us leave all with God and resort to Him in prayer.

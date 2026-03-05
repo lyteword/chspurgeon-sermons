@@ -1,8 +1,5 @@
 # Sermon 813 | The Privileged Man
 
-
-Delivered on Sunday Morning, May 31, 1868, by C. H. SPURGEON, at the [23]Metropolitan Tabernacle, Newington.
-
 "Then washed I you with water; yes, I thoroughly washed away your blood from you, and I anointed you with oil. I clothed you also with embroidered work, and shod you with badgers 'skin, and I girded you about with fine linen, and I covered you with silk. I adorned you also with ornaments, and I put bracelets upon your hands, and a chain on your neck. And I put a jewel on your forehead, and earrings in your ears, and a beautiful crown upon your head. Thus were you decked with gold and silver; and your raiment was of fine linen, and silk, and embroidered work; you did eat fine flour, and honey, and oil: and you were exceedingly beautiful, and you did prosper into a kingdom. And your renown went forth among the heathen for your beauty for it was perfect through your comeliness, which I had put upon you, says the Lord God." Ezekiel 16:9-14.
 
 THE root of Israel's nation was originally a lone man whose family and dependants formed a small Bedouin tribe wandering throughout the plains of Canaan. God separated and selected Abraham, who was in no way distinct from others in his parentage, and declared that in him and in his seed should all the nations of the earth be blessed. When the tribe had somewhat multiplied, God found them in Egypt, a herd of slaves helplessly crushed beneath the foot of Pharaoh. They were sorely burdened with labors for which they received no reward. They were without spirit to resent the oppressions of their taskmasters and without power to succeed had the energy been there.

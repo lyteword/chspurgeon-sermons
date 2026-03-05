@@ -1,7 +1,5 @@
 # Sermon 782 | Saving Knowledge
 
-A sermon
-
 "Jesus answered and said unto her, If you knew the gift of God, and who it is that says to you, Give Me to drink; you would have asked of Him, and He would have given you living water."- John 4:10.
 
 THE matter will turn, this morning, upon those few words, "If you knew the gift of God." The woman of Samaria, who was met by our Lord at the well, was an object of electing love but she was not yet regenerated. One difficulty alone lay in the way--she was willing to receive the Truth of God, perfectly willing to be obedient to it--but ignorance lay like a stone before the door of her sepulcher. "If you knew the gift of God," says Christ, "then you would have asked, and I would have given." There was the one barrier! If that could be removed she would be a saved soul.

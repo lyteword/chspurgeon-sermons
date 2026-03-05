@@ -1,12 +1,5 @@
 # Sermon 1099 | The Man Of Sorrows
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 2, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A Man of sorrows, and acquainted with grief." Isaiah 53:3.
 
 POSSIBLY a murmur will pass round the congregation, "This is a dreary subject and a mournful theme." But, O Beloved, it is not so, for great as were the woes of our Redeemer, they are all over now and are to be looked back upon with sacred triumph! However severe the struggle, the victory has been won! The laboring vessel was severely tossed by the waves, but she has now entered into the desired haven. Our Savior is no longer in Gethsemane agonizing, or upon the Cross dying--the crown of thorns has been replaced by many crowns of sovereignty! The nails and the spear have given way to the scepter!

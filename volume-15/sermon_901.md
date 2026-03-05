@@ -1,7 +1,5 @@
 # Sermon 901 | The Upper Hand
 
-A sermon
-
 "For sin shall not have dominion over you: for you are not under Law, but under Grace."- Romans 6:14.
 
 WHAT a golden sentence! But does it not begin with a hard word? A sad and sorrowful note is sounded in that word "sin." 'Twas Sin that blighted Eden and drove our first parents forth to toil in weariness outside its peaceful bowers. 'Twas Sin that polluted all our blood and left the leprosy still in our veins, as a legacy of ill to the latest generation. 'Tis Sin that has been the parent of all our earthly sorrow. 'Tis Sin that will be the cause of our everlasting misery unless we are delivered from it. Never has the world seen another tyrant comparable to this. Beneath its dragon-wings the light has been eclipsed, life has dwindled, joy has expired. Remember--you that fear the Lord and are the servants of Jesus Christ--remember how many there are that are still the slaves of sin!

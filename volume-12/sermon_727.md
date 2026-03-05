@@ -1,6 +1,5 @@
 # Sermon 727 | God Incarnate, The End Of Fear
 
-
 > "And the angel said unto them, Fear not."  
 > Luke 2:10.  
 

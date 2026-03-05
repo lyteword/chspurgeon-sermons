@@ -1,12 +1,5 @@
 # Sermon 1168 | The Crown of Thorns
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 12, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when they had platted a crown of thorns, they put it upon His head." Matthew 27:29.
 
 BEFORE we enter the common hall of the soldiers and gaze upon "the sacred head once wounded," it will be well to consider who and what He was who was thus cruelly put to shame. Forget not the intrinsic excellence of His Person, for He is the brightness of the Father's Glory and the express image of His Person. He is in Himself God over all, blessed forever, the eternal Word by whom all things were made and by whom all things consist. Though Heir of all things, the Prince of the kings of the earth, He was despised and rejected of men, "a Man of sorrows and acquainted with grief." His head was scornfully surrounded with thorns for a crown. His body was bedecked with a faded purple robe. A poor reed was put into His hand for a scepter, and then the ribald soldiers dared to spit upon His face, and worry Him with their filthy jests--

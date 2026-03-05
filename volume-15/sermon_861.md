@@ -1,7 +1,5 @@
 # Sermon 861 | Broken Bones
 
-A sermon
-
 "Make me to hear joy and gladness, that the bones which You have broken may rejoice."- Psalm 51:8.
 
 BACKSLIDING is a most common evil, far more common than some of us suppose. We may ourselves be guilty of it and yet may delude our hearts with the idea that we are making progress in spiritual life. As the cunning hunter always makes the passage into his pits most easy and attractive, but always renders it most difficult for his victim to escape, so Satan makes the way of apostasy to be very seductive to our nature, but alas, the path of return from backsliding is very hard to tread and were it not for Divine Grace, no human feet would ever be able to make progress in it.

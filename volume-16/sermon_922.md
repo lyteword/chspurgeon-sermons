@@ -1,12 +1,5 @@
 # Sermon 922 | Sincerity And Duplicity
 
-
-DELIVERED ON LORD'S-DAY EVENING, MARCH 6, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hereby we do know that we know Him, if we keep His commandments. He that says, I know Him, and keeps not His commandments, is a liar, and the Truth is not in him." 1 John 2:3,4.
 
 THE Epistles of John possess and combine certain qualities which seem, at the first blush, to stand opposite as the poles to one another. Their style of expression is simple, chaste, and unadorned. Short words are used. For the most part words of one syllable--such little homely words as a young child might easily spell. And the sense is so clear and obvious, that the captious critic or the astute reasoner must be puzzled to distort it. Yet there is no lack of dignity in the language, and as for the matter of these Epistles, it is grand and sublime. Where would you turn in the pages of the New Testament, save only to the book of the Revelation, given by the pen of the same writer, for more notable mystery?

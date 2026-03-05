@@ -1,12 +1,5 @@
 # Sermon 1165 | The Christian's Motto
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 22, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I always do those things that please Him." John 8:29.
 
 OUR Lord Jesus stood alone as the Advocate of right and truth in the days when He dwelt among men. It is true He had a few followers, but they were so slow to learn and so weak in action that they rather increased His difficulties than rendered Him assistance. He was a solitary Champion in the midst of armies of foes. Those foes were powerful, cunning, cruel and exceedingly active, yet He was calm, unmoved and faced them without fear. He was never put to the blush by them and never turned His back in retreat. Our Lord was victorious all through the campaign of His ministry. I may say of Him that He went forth conquering and to conquer--and on the Cross He gained His crowning victory!

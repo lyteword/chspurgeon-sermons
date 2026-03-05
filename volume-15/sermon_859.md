@@ -1,7 +1,5 @@
 # Sermon 859 | The Old Way of the Wicked
 
-A sermon
-
 "Have you marked the old way which wicked men have trod? Which were cut down out of time, whose foundation was swept away with a flood: Which said unto God, Depart from us: and what can the Almighty do for them?"- Job 22:15-17.
 
 "HAVE you marked the old way?" Antiquity is no guarantee for truth. It was the old way, but it was the wrong way. If our religion is to be settled by antiquity, we shall presently pass back to the worst form of idolatry, for we would have to become Druids. It is not always that "the old is better." Sometimes, by reason of the depravity of human nature, the old is the more corrupt. The oldest of all would be the best, but how shall we come at it? Adam was once perfection-- but how shall we regain that state? Old, exceedingly old, is the path of sin and the path of error, for as old as the Father of Lies is sin.

@@ -1,12 +1,5 @@
 # Sermon 1177 | Fearful Of Coming Short
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 7, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let us therefore fear, lest, a promise being left us of entering into His rest, any of you should seem to come short of it. For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it." Hebrews 4:1,2.
 
 THE general strain of the Apostle Paul is confident and even jubilant. Where in the whole compass of Revelation do you meet with bolder writing than that which comes from his pen? "There is therefore now no condemnation to them that are in Christ Jesus." "For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord." "Who shall lay anything to the charge of God's elect?" "I know whom I have believed, and am persuaded that He is able to keep that which I have committed to Him." Paul is the great doctor of faith and teacher of full assurance. You meet with nothing in his writings which would encourage doubts and fears, or lead the saints into bondage to anxiety and suspicion.

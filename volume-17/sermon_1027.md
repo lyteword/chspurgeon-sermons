@@ -1,6 +1,5 @@
 # Sermon 1027 | The Joy of the Lord, the Strength of His People
 
-
 > "The joy of the Lord is your strength."  
 > Nehemiah 8:10.  
 

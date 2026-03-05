@@ -1,12 +1,5 @@
 # Sermon 1139 | The Minister's Plea
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Through your prayer, and the supply of the Spirit of Jesus Christ." Philippians 1:19.
 
 THE Apostle was in prison, in great jeopardy of his life. He was much troubled by many who had begun to preach Jesus Christ but did not preach Him in a proper spirit. He was often depressed by that which came daily upon him, the care of all the Churches. Yet, while he looked in the face the evils which surrounded him, he was able to see beyond them and to believe that the consequences of all his trials would be a real and lasting good. He felt sure that it was a good thing for him to be in prison, that it would be a good thing even if he had to die there. He felt that it was well that many were preaching Christ--even though some did it for the wrong reasons--for Christ was still being preached and the result could not be evil. And he felt that the troubles and trials of the Churches were good, for somehow or other they would be overruled for God's Glory.

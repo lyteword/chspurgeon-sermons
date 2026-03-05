@@ -1,12 +1,5 @@
 # Sermon 951 | The Unrivalled Eloquence Of Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 18, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The officers answered, Never man spoke like this Man." John 7:46.
 
 THE chief priests and Pharisees sent officers to lay hold upon the Savior lest His preaching should altogether overthrow their power. While the constables who had mingled with the throng were waiting for an opportunity of arresting the Lord Jesus, they themselves were arrested by His earnest eloquence. They could not take Him, for He had fairly taken them, and when they came back without a prisoner, they gave their reason for not having captured Him in these memorable words, "Never man spoke like this Man."

@@ -1,6 +1,5 @@
 # Sermon 881 | The Believer A New Creature
 
-
 > "Therefore if any man be in Christ, he is a new creature."  
 > 2 Corinthians 5:17.  
 

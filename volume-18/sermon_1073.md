@@ -1,12 +1,5 @@
 # Sermon 1073 | A Honeycomb
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 29, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For consider Him that endured such contradiction of sinners against Himself, lest you are wearied and faint in your minds." Hebrews 12:3.
 
 WHEN the Hebrew Christians were suffering dire persecution the Apostle could suggest no better support for their faith than this, "Consider Him." He bade them look to Jesus and compare their case with that of their Lord. Such contemplations would prove a sovereign balm for their distressed minds. A consideration of our Lord and Master is the best conceivable stay and support during persecution. Let us look into that fact for a few minutes. The Believer under persecution should remember that he is suffering no strange thing, but is only enduring that which fell upon his Master before him.

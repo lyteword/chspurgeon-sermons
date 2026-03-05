@@ -1,12 +1,5 @@
 # Sermon 1096 | Divine Love and Its Gifts
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 16, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now may our Lord Jesus Christ Himself, and God, even our Father, which has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts, and establish you in every good word and work." 2 Thessalonians 2:16,17.
 
 THE Thessalonians had been much disturbed by the predictions of different persons that the day of Christ was at hand. There always have been pretenders to prophetic knowledge who have fixed dates for the end of the world and, by their fanaticism, have driven many into lunatic asylums and disturbed the peace of others. Some of this band had worried the saints at Thessalonica. The Apostle, after beseeching them not to be soon shaken in mind or troubled by such follies, went on to beg them not to be deceived by forged letters or pretended prophets and then prayed for them that they might possess abiding consolation which would keep them calmly persevering in holiness.

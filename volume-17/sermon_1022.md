@@ -1,6 +1,5 @@
 # Sermon 1022 | Sleep Not
 
-
 > "Let us not sleep, as do others."  
 > 1 Thessalonians 5:6.  
 

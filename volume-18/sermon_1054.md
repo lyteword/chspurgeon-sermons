@@ -1,12 +1,5 @@
 # Sermon 1054 | "Waters To Swim In"
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, APRIL 25, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Waters to swim in." EzekieI47:5.
 
 THE whole vision, though bearing other meanings, may be applied to the spread of the Gospel of Jesus Christ. It began at Jerusalem as a tiny rivulet. By our Savior's preaching, a few disciples, some of whom became Apostles, were converted. These were the means of the conversion of a still larger number. But at first the stream was very shallow, for the whole Church could meet in one upper room. Even after the Pentecostal increase it was but as a small brook. Herod thought that he could leap across it, or could dam it up, but his persecutions swelled the stream. Very shortly after, the watercourse grew broader and deeper till it attracted the attention of the Roman Emperors and excited their alarm.

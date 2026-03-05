@@ -1,14 +1,5 @@
 # Sermon 798 | Special Protracted Prayer
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, March 1, 1868, by
-
-H. SPURGEON,
-
-at the [11]Metropolitan Tabernacle Newington.
-
 "And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God." Luke 6:12.
 
 IF any man of woman born might have lived without prayer it was surely the Lord Jesus Christ. To us poor weak erring mortals, prayer is an absolute necessity. But it does not at first sight seem to be so to Him who was "holy, harmless, undefiled, and separate from sinners." In some parts of prayer our Lord Jesus Christ could take no share. As for instance in that most important department, namely, personal confession of sin, He could take no portion. There were no slips in His outward life. There were no declensions in His inward heart. "Forgive us our debts as we forgive our debtors" is a very suitable prayer for Him to teach us, but He could not use it Himself.

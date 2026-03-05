@@ -1,6 +1,5 @@
 # Sermon 715 | Children's Bread Given To Dogs
 
-
 > "And she said, Truth, Lord: yet even the little dogs eat of the crumbs which fall from their masters' table."  
 > Matthew 15:27.  
 

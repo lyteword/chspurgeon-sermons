@@ -1,7 +1,5 @@
 # Sermon 856 | The Importunate Widow
 
-A sermon
-
 "And He spoke a parable unto them to this end, that men ought always to pray and not to faint, saying, There was in a city a judge which feared not God, neither regarded man: and there was a widow in that city; and she came unto him, saying, Avenge me of my adversary. And he would not for a while: but afterward he said within himself, Though I fear not God, nor regard man; yet because this widow troubles me, I will avenge her, lest by her continual coming she weary me. And the Lord said, Hear what the unjust judge says. And shall not God avenge His own elect, which cry day and night unto Him, though He bear long with them? I tell you that He will avenge them speedily."- Luke 18:1-8.
 
 REMEMBER that our Lord did not only inculcate prayer with great earnestness, but He was Himself a brilliant example of it. It always gives force to a teacher's words when his hearers know that he carries out his own instructions. Jesus was a mighty Prophet both in deed and in word, and we read of Him, "Jesus began both to do and to teach." In the exercise of prayer, "cold mountains and the midnight air" witnessed that He was as great a Doer as a Teacher. When He exhorted His disciples to continue in prayer and to "pray without ceasing," He only bade them follow in His steps. If any one of all the members of the mystical body might have been supposed to need no prayer, it would certainly have been our Covenant Head, but if our Head abounded in supplication, much more ought we, the inferior members!

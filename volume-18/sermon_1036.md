@@ -1,6 +1,5 @@
 # Sermon 1036 | Precious Deaths
 
-
 'Precious in the sight of the Lord is the death of his saints.''Psalm 116:15.
 
 DAVID SOUGHT DELIVERANCE from imminent peril, and he felt sure of obtaining it; for being a servant of the Lord he knew that his life was too precious in the sight of God for it to be lightly brought to an end. It should be a source of consolation to all tried saints that God will not deliver them over to the hands of their enemies; it is not the will of their Father who is in heaven that one of his little ones should perish. A shepherd who did not care for his sheep might suffer the wolf to devour it, but he who prizes it highly will put his own life in jeopardy to pluck the defenseless one from between the monster's jaws.

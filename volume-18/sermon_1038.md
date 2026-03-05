@@ -1,6 +1,5 @@
 # Sermon 1038 | Another Royal Procession
 
-
 'Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass.''Matthew 21:5.
 
 IT IS NOT OUR INTENTION to preach alone from this verse, but from the combined narrative of our Savior's triumphant entry into the city of Jerusalem, as contained in the four evangelists.

@@ -1,8 +1,5 @@
 # Sermon 831 | The Alter
 
-
-Delivered on Lord's Day Morning, September 20, 1868, by C. H. SPURGEON.
-
 "The altar that sanctifies the gift" Matthew 23:19.
 
 Had man remained perfect, his communion with God would have been as unrestricted as that of an obedient child with an affectionate father. Adam might have worshiped his God acceptably anywhere, at any time, and in any mode he chose. Had there been literal offerings as well as sacrifices of praise, he might have brought before his God the delicious fruits of the garden or poured forth libations from Eden's golden-sanded river--and these might have been presented on the high places of the earth or in the shady groves, or amid the verdure of the plains--anywhere the Lord would have received the grateful offerings of men whose hearts were perfect towards Himself.

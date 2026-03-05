@@ -1,7 +1,5 @@
 # Sermon 736 | A Happy Christian
 
-A sermon
-
 "And the Lord shall guide you continually, and satisfy your soul in drought, and make fat your bones; and you shall be like a watered garden, and like a spring of water, whose waters fail not."- Isaiah 58:11
 
 IT is very important that our preaching should sometimes give descriptions of Christians in an unhealthy and sickly state. So many are in this condition that when we describe their symptoms they may discover themselves, and by Divine Grace be led to desire escape from it. The proper remedies being pointed out, and the Christian being earnestly exhorted to the use of them, I am quite sure that such ministry as describes the unhealthy state of the Christian's experience will be found useful. But I have sometimes thought--and I think you will, some of you, have noticed the same thing--that such preaching as continually dwells upon inward corruption and the innate baseness of the heart is very apt to lead men to think that it must always be so with them. The prevalence of unbelief, depression of spirit, backsliding and indifference to heavenly things becomes chronic, and they grow so familiar with reflecting upon it that they regard it as a state in which a Christian man may well be content.

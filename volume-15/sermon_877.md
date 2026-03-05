@@ -1,7 +1,5 @@
 # Sermon 877 | Leaning On Our Beloved
 
-A sermon
-
 "Who is this that comes up from the wilderness, leaning upon her Beloved?"- Song of Solomon 8:5.
 
 CAREFUL readers will have noticed that in the verses which precede my text, the spouse had been particularly anxious that her communion with her Lord might not be disturbed. Her language is intensely earnest, "I charge you, O daughters of Jerusalem, that you stir not up, nor awake my love, until He please." She valued much the fellowship with which her Beloved solaced her. She was jealously alarmed lest she should endanger the continuance of it, lest any sin on her part or on the part of her companions should cause the Beloved to withdraw Himself in anger.

@@ -1,12 +1,5 @@
 # Sermon 1221 | Opening the Mouth
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Open your mouth wide, and I will fill it." Psalm 81:10.
 
 SOME have considered that our text contains an allusion to a singular custom of showing favor which has been occasionally adopted by Eastern monarchs. It is not a very long time ago that a former Shah of Persia bade an ambassador, who was in great favor with him, open his mouth, and when he had done so the monarch filled it with pearls and gems of great value which, of course, were a present to him. This certainly affords an illustration of the text, even if the passage contains no allusion to it. If we will but open the mouth of our desire, God will give to us mercies infinitely more precious than the rarest gems.

@@ -1,12 +1,5 @@
 # Sermon 1161 | Without Money and Without Price
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 8, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Without money and without price." Isaiah 55:1.
 
 THE spiritual blessings promised and provided in the Gospel comprise all that man can need. They are described in the chapter before us as "water" refreshing and cleansing--the "Water of Life," of which if a man drinks he shall never thirst again. They are next described as "wine," the wine of joy--exhilarating, comforting, "making good the heart of man"--a wine in which is no woe, but fullness of holy delight. These blessings are thirdly represented as "milk," for milk is almost the only article of diet which contains everything that is necessary for the support of man, and therefore it is a type of the satisfying qualities of the Gospel. He who receives the Gospel of Jesus Christ has all that his soul can possibly need for time and for eternity, so that water, wine and milk set forth a full supply of life, joy and satisfaction for our spirits.

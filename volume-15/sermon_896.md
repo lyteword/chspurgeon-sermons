@@ -1,12 +1,5 @@
 # Sermon 896 | The Coming Resurrection
 
-A sermon
-
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Marvel not at this: for the hour is coming in the which all that are in the graves shall hear His voice and shall come forth--they that ha ve done good, unto the resurrection of life, and they that have done evil, unto the resurrection of damnation."- John 5:28,29.
 
 THE doctrine of the Resurrection of the dead is peculiarly a Christian belief. With natural reason, assisted by some little light lingering in tradition, or borrowed from the Jews, a few philosophers spelled out the immortality of the soul. But that the body should rise again--that there should be another life for this corporeal frame--was a hope which is brought to light by the Revelation of Christ Jesus. Men could not have imagined so great a wonder, and they prove their powerlessness to have invented it by the fact that still, as at Athens, when they hear of it for the first time, they fall to mocking. "Can these dry bones live?" is still the unbeliever's sneer!

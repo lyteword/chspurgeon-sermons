@@ -1,7 +1,5 @@
 # Sermon 766 | Believing To See No.
 
-A sermon
-
 " I had fainted, unless I had believed to see the goodness of the Lord in the land of the living."- Psalm 27:13.
 
 I HAVE taken the whole verse for my text, but I am not sure that I shall keep to it. The words in it at which I catch are these, "Unless I had believed to see." Most people see to believe, but in David's case the process was reversed and put into Gospel order--he believed to see and this is the keynote of our discourse. The prayer of my heart is that some may be led to believe to see, and that those who have been trying to see in order to believe may now come and trust in Jesus and believe and see the Grace of God. Here we have in the words I select for the text, a doctrine stated, many difficulties removed, and some directions afforded for the Christian life.

@@ -1,12 +1,5 @@
 # Sermon 1064 | Salvation All of Grace
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 4, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By Grace are you saved." Ephesians 2:8.
 
 OTHER Divine attributes are manifest in salvation. The Wisdom of God devised the plan. The Omnipotence of God executes in us the work of salvation. The Immutability of God preserves and carries it on--in fact, all the attributes of God are magnified in the salvation of a sinner--but at the same time the text is most accurate since Grace is the fountainhead of salvation and is most conspicuous throughout. Grace is to be seen in our election, for, "there is a remnant according to the election of Grace, and if by Grace then it is no more of works."

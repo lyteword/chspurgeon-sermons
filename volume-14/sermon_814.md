@@ -1,8 +1,5 @@
 # Sermon 814 | Life by Faith
 
-
-Delivered on Sunday Morning, June 7, 1868, by C. H. SPURGEON, at the [24]Metropolitan Tabernacle, Newington.
-
 "The just shall live by faith." Galatians 3:11.
 
 THE Apostle quotes from the Old Testament, from the second chapter of Habakkuk, at the fourth verse, and thus confirms one Inspired statement by another. Even the just are not justified by their own righteousness, but live by faith. It follows, then, most conclusively, that no man is justified by the Law in the sight of God. If the best of men find no justification coming to them through their personal virtues but stand accepted only by faith, how much more such imperfect beings, such frequent sinners as ourselves? Men who are saved by faith become just. The operation of faith upon the human heart is to produce love, and through love, obedience, and obedience to the Divine Law is but another name for morality, or, what is the diviner form of it, holiness!

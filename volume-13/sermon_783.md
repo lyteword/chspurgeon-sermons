@@ -1,6 +1,4 @@
 
-A sermon
-
 "And when Jacob had made an end of commanding his sons, he gathered up his feet into the bed, and yielded up the ghost, and was gathered unto his people."- Genesis 49:33.
 
 JACOB did not yield up the ghost until he had delivered the last sentence of admonition and benediction to his 12 sons. He was immortal till his work was done. So long as God had another sentence to speak by him, death could not paralyze his tongue. Yet, after all, the strong man was bowed down, and he who had journeyed with unwearied foot full many a mile, was now obliged to gather up his feet into the bed to die. His life had been eventful in the highest degree, but that dread event now came upon him which is common to us all.

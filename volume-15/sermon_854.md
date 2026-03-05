@@ -1,7 +1,5 @@
 # Sermon 854 | Fire--the Need of the Times
 
-A sermon
-
 "I came to send fire on the earth, and how I wish it were already kindled!"- Luke 12:49.
 
 OUR Lord was here certainly alluding to the opposition and persecution which the Gospel would excite. This is clear from the context, in which He declares that He is not come to send peace on the earth but a sword, and from the parallel passages in the other Gospels, where our Lord is forewarning His disciples that they must look for persecution. Albeit, that this was the first direction of the Savior's thought, He here delivers Himself of a Truth of God of a far wider application and reveals a great peculiarity of the Gospel which causes men to oppose it. He bears witness that the Gospel is an ardent, fervent, flaming thing--a subject for enthusiasm, a theme for intense devotion, a matter which excites men's souls and stirs them to the lowest depths--and for this reason, mainly, it arouses hostility.

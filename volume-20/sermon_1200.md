@@ -1,12 +1,5 @@
 # Sermon 1200 | The Power of the Risen Savior
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 25, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus came and spoke unto them, saying, All power is given unto Me in Hea ven and in earth. Go you, therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit teaching them to observe all things whatever I have commanded you: and, lo, I am with you always, even unto the end of the world. Amen." Matthew 28:18-20.
 
 THE change from "the Man of Sorrows," before His crucifixion, to the "Lord over All" after His Resurrection is very striking. Before His Passion He was well-known by His disciples and appeared only in one form, as the Son of Man, clad in the common peasant's garment without seam, woven from the top throughout. But after He had risen from the dead He was, on several occasions, unrecognized by those who loved Him best. He is once, at least, described as having appeared to certain of them "under another form." He was the same Person, for they saw His hands and His feet-- Thomas even handled Him and placed his finger in the print of the nails! But yet it would seem that some gleams of His Glory were, at times, manifested to them--a Glory which had been hidden during His previous life, except only when He stood on the Mount of Transfiguration.

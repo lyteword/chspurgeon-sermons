@@ -1,6 +1,5 @@
 # Sermon 674 | The Mighty Arm
 
-
 > "You have a mighty arm: strong is Your hand, and high is Your right hand."  
 > Psalm 89:13.  
 

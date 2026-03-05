@@ -1,6 +1,5 @@
 # Sermon 682 | Future Punishment A Fearful Thing
 
-
 > "It is a fearful thing to fall into the hands of the living God."  
 > Hebrews 10:31.  
 

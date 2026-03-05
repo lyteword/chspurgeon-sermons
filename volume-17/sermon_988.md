@@ -1,8 +1,5 @@
 # Sermon 988 | The Pastor's Parting Blessing
 
-
-BEFORE LEAVING HOME FOR A JOURNEY
-
 "The grace of our Lord Jesus Christ be with you all. Amen."--Romans 16:24.
 
 THE CHRISTIAN IS A MAN of generous actions, but his wishes go far beyond his deeds. Where he cannot be beneficent he is benevolent. If he cannot actually accomplish good for all, yet he anxiously desires it. If it be not in his power to confer grace upon any, yet he prays that God would give his grace to all the brotherhood. His heart entertains thousands, though his house might be overfull with ten; his liberal desires feed nations, even though his purse be so scant that he cannot afford more than a penny for a poor child. God, whose providence limits our ability, has set no measure to our willingness. Our wishes may be boundless though our powers are contracted, and this will be good for ourselves and not useless to others.

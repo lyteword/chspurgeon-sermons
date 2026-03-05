@@ -1,12 +1,5 @@
 # Sermon 1123 | A Welcome Discovery
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "God opened her eyes, and she saw a well of water; and she went and filled the bottle with water, and gave the lad drink." Genesis 21:19.
 
 You know the story of Hagar--of her being sent out from Abraham's tent with her son Ishmael. It was necessary that they should be sent away from the child of promise. God, nevertheless, had designs of good towards Ishmael and his mother. Still He tried them. Whether we are saints or sinners, we shall meet with tribulation. Whether it is Sarah or Hagar, no life shall be without its affliction. To Hagar the affliction came in a very painful manner, for the little water that she had brought with her in her bottle was spent. She must give her child drink, or it would die and then she, by-and-by, must follow. She laid the boy down, giving him up in despair and began to weep what she thought would be her last flood of tears.

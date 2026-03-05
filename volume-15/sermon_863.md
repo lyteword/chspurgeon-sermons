@@ -1,7 +1,5 @@
 # Sermon 863 | The Stone Rolled Away
 
-A sermon
-
 "The angel of the Lord descended from Heaven and came and rolled back the stone from the door, and sat upon it."- Matthew 28:2.
 
 As the holy women went towards the sepulcher in the twilight of the morning, desirous to embalm the body of Jesus, they recollected that the huge stone at the door of the tomb would be a great impediment in their way and they said one to another, "Who shall roll away the stone?" That question gathers up the mournful enquiry of the whole universe. They seem to have put into language the great sigh of universal manhood, "Who shall roll away the stone?" In man's path of happiness lies a huge rock which completely blocks up the road. Who among the mighty shall remove the barrier? Philosophy attempted the task, but miserably failed. In the ascent to immortality the stone of doubt, uncertainty and unbelief stopped all progress. Who could remove the awful mass and bring life and immortality to light?

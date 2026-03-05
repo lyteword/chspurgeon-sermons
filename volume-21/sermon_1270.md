@@ -1,12 +1,5 @@
 # Sermon 1270 | "God With Us"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 26, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They shall call His name Emmanuel, which being interpreted is, God with us." Matthew 1:23.
 
 THOSE words, "being interpreted," salute my ear with much sweetness. Why should the word, "Emmanuel," in the Hebrew, be interpreted at all? Was it not to show that it has reference to us Gentiles and, therefore, it must be interpreted into one of the chief languages of the then existing Gentile world, namely, the Greek? This, "being interpreted," at Christ's birth and the three languages employed in the inscription upon the Cross at His death, show that He is not the Savior of the Jews only, but also of the Gentiles.

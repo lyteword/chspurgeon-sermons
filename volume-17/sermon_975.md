@@ -1,6 +1,5 @@
 # Sermon 975 | The Parable of the Wedding Feast
 
-
 > "The kingdom of heaven is like unto a certain king, which made a marriage for his son, and sent forth his servants to call them that were bidden to the wedding: and they would not come. Again, he sent forth other servants, saying, Tell them which are bidden, Behold, I have prepared my dinner: my oxen and my fatlings are killed and all things are ready: come unto the marriage."  
 > Matthew 22:2,3,4.  
 

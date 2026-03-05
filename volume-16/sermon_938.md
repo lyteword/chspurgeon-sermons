@@ -1,12 +1,5 @@
 # Sermon 938 | A Good Soldier Of Jesus Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 26, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A good soldier of Jesus Christ." 2 Timothy 2:2,3.
 
 MANY men, many minds. In reference to what a Christian is there have been very many and diverse opinions. According to the notions of some, a Christian is an exquisite of remarkably delicate tastes. He cannot worship except it be in a place whose architecture is correctly Gothic, otherwise his dainty soul will be shocked. He is unable to offer prayer aright unless his devotions are uplifted upon the wings of the choicest music. And, even then, scarcely will he be successful unless he is aided by sundry gentlemen, whose pedigree, like that of racehorses, can be clearly traced, and whose garments the tailor has fashioned according to the directions of the ecclesiastical fashion book for the various seasons of the year.

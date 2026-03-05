@@ -1,12 +1,5 @@
 # Sermon 1249 | Saints In Heaven And Earth One Family
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 8, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The whole family in Hea ren and earth." Ephesians 3:15.
 
 BEREAVEMENTS are among the sorest griefs of this mortal life. We are permitted by God to love those whom He gives to us and our heart eagerly casts its tendrils around them and, therefore, when suddenly the beloved objects are withdrawn by death, our most tender feelings are wounded. It is not sinful for us to lament the departure of friends, for Jesus wept. It would be unnatural and inhuman if we did not mourn for the departed--we should be less feeling than the beasts of the field. The stoic is not a Christian, and his spirit is far removed from that of the tender-hearted Jesus.

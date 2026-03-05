@@ -1,6 +1,5 @@
 # Sermon 686 | Obedience Better Than Sacrifice
 
-
 > "Behold, to obey is better than sacrifice, and to hearken than the fat of rams."  
 > 1 Samuel 15:2.  
 

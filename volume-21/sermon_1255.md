@@ -1,12 +1,5 @@
 # Sermon 1255 | How To Converse With God
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 19, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then call, and I will answer: or let me speak, and You answer me." Job 13:22.
 
 JOB might well have been driven frantic by his miserable comforters. It is wonderful that he did not express himself far more bitterly than he did. Surely Satan found better instruments for his work in those three ungenerous friends than in the marauding Sabeans, or the pitiless whirlwind. They assailed Job remorselessly and seemed to have no more hearts of compassion than so many flint stones. No wonder that he said to them many things which otherwise he would never have thought of uttering and, a few, which I dare say, he afterwards regretted.

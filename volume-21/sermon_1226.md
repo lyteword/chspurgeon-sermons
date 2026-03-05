@@ -1,12 +1,5 @@
 # Sermon 1226 | The Secret Of Health
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I shall yet praise Him who is the health of my countenance and my God." Psalm 42:11.
 
 ANOTHER verse in this Psalm so attracts me that, though it is not my text, I cannot pass it by without a moment's notice. In the 5th verse the Psalmist says, "I shall yet praise Him for the help of His Countenance," and then follows the expression of the text, "who is the health of my countenance and my God." God's Countenance is our help and He, Himself is the health of our countenance! The best help a man can have in time of trouble is the Countenance of God! If he feels that he enjoys the Divine Love and that he is acceptable with the Lord, he becomes, at once, strong to bear, or dare, or do. Ask the Presence of God to be with you, child of God, and you may then descend into a lion's den, traverse a fiery furnace, or pass through the iron gates of death! A look from the Lord is life and strength to His people!

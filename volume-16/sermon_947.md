@@ -1,12 +1,5 @@
 # Sermon 947 | Seeking For Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 21, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Seeking for Jesus." John 6:24.
 
 THE persons who are here described as seeking for Jesus were looking after Him from a very mean and selfish motive--not because of the gracious words which He spoke, nor to render Him thanks for benefits received at His hands-- but merely because they had eaten of the loaves and fishes, and hoped to do so again. From such sordid motives let us flee. May we all shun with detestation the very idea of making a profession of religion for the sake of worldly advantage. It is detestable to the last degree. Those who seek Jesus Christ with the groveling desire to make a gain of godliness are hypocrites of the meanest order.

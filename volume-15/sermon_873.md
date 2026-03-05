@@ -1,7 +1,5 @@
 # Sermon 873 | Christ Made a Curse for Us
 
-A sermon
-
 "Christ has redeemed us from the curse of the Law, being made a curse for us: for it is written, Cursed is everyone that hangs on a tree."- Galatians 3:13.
 
 The Apostle had been showing to the Galatians that salvation is in no degree by works. He proved this all-important Truth of God, in the verses which precede the text, by a very conclusive form of double reasoning. He showed, first, that the Law could not give the blessing of salvation, for, since all had broken it, all that the Law could do was to curse. He quotes the substance of the 27th chapter of Deuteronomy, "Cursed is everyone that continues not in all things which are written in the book of the Law to do them." And as no man can claim that he has continued in all things that are in the Law, he pointed out the clear inference that all men under the Law had incurred the curse.

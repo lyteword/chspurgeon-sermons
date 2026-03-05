@@ -1,12 +1,5 @@
 # Sermon 1254 | Jesus In Our Midst
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then the same day at evening, being the first day of the week, when the doors were shut where the disciples were assembled for fear of the Jews, Jesus came and stood in their midst, and said unto them, Peace be with you." John 20:19.
 
 WE do not wonder that when certain devout Greeks came up to keep the feast at Jerusalem they said to Philip, "Sir, we would see Jesus." Who would not want to see Him? Who that has been redeemed by His precious blood does not long to behold Him? As a child pines for its mother, so have we been sick with strong desire to behold our Lord! Yet to see the King in His beauty with these eyes of ours is denied to us for the present. But the reasons for delay are so gracious that we are well content to tarry. It is better for us that the bodily Presence of our Lord should be withdrawn, for otherwise the Comforter would not come unto us and the Comforter, even the blessed Spirit, brings us richer gifts than even the personal Presence of Christ could have conferred!

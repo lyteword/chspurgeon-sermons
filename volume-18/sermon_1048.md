@@ -1,12 +1,5 @@
 # Sermon 1048 | The Sin-Offering for the Common People
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 28, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And if any one of the common people sins through ignorance, while he does something against any of the commandments of the Lord concerning things which ought not to be done, and is guilty. Or if his sin, which he has sinned, comes to his knowledge: then he shall bring his offering, a kid of the goats, a female without blemish, for his sin which he has sinned. And he shall lay his hand upon the head of the sin offering, and slay the sin offering in the place of the burnt offering. And the priest shall take of the blood thereof with his finger, and put it upon the horns of the altar of burnt offering, and shall pour out all the blood thereof at the bottom of the altar. And the priest shall burn it upon the altar for a sweet sa vor unto the Lord; and the priest shall make an atonement for him, and it shall be forgiven him." Leviticus 4:27-31.
 
 VERY much of interesting truth clusters around the sin-offering. The type is well worthy of the most careful consideration and I regret that we shall not have time, this morning, to enter into all its details. The reader of the chapter will perceive that it gives us four forms of the same sacrifice. These may be regarded as four views of the same thing, probably views taken by four classes of Believers according to their standing in the Divine life. Although all men who are saved have the same Savior, they have not the same apprehensions of Him. We are all cleansed, if cleansed at all, by the same blood, but we have not all the same knowledge of the manner in which it is effectual for cleansing.

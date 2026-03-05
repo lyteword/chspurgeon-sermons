@@ -1,7 +1,5 @@
 # Sermon 907 | Christ--the Fall and Rise of Many
 
-A sermon
-
 "And Simeon blessed them and said unto Mary His mother, Behold, this Child is set for the fall and rising again of many in Israel; and for a sign which shall be spoken against."- Luke 2:34.
 
 [I thank God most devoutly that I am permitted, once again, to appear in my place among you. It is always a most painful deprivation to me when I am unable to preach the Gospel on the Sabbath to my beloved congregation. I earnestly pray that this long affliction may be for my spiritual growth and that you may all profit by that which my Lord has taught me in the School of the Cross. I beseech you, my dear fellow Helpers, ask of God, as a great favor, that now, upon my return to my accustomed work, a double blessing may rest upon all that is done--that those already saved may be more active and the conversions in our midst may be more numerous. So may God grant it and His shall be the praise.]

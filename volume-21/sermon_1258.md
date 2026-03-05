@@ -1,12 +1,5 @@
 # Sermon 1258 | The Hand of God in the History of a Man
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Is there not an appointed time to man upon earth? Are not his days also like the days of an hireling?" Job 7:1.
 
 I WAS settling myself down yesterday to meditate upon the Word of God and to prepare my mind to preach the Gospel to you today, when, all of a sudden I had my subject marked out for me by a mournful messenger, for the Angel of Death pointed to it with his finger. There came into my chamber an honored elder of this Church, who in broken accents told me, "Our beloved Brother, Henry Olney, is dead." He is my near neighbor and I was in his house so lately that I could not believe the news. It seems that when he left the City at noon he felt a severe rheumatic pain in his shoulder, and on reaching home he sent for a doctor, who prescribed a slight remedy and advised him to lie down. He did so, and with a gasp or two, he expired.

@@ -1,7 +1,5 @@
 # Sermon 754 | The Saint and the Spirit
 
-A sermon
-
 "But you know Him; for He dwells with you, and shall be in you."- John 14:17.
 
 THE Holy Spirit, although He is the most active, most potent, and most real Worker in the world, is not discerned by the mass of mankind. The great majority of men are affected only by what they see, or hear, or feel. Their life is confined to the narrow range of their senses. "What shall we eat?" Or, "What shall we drink?" Or, "With what shall we be clothed?"--these are the trinity of questions which absorb the attention and effort of the worldly. If they can see a thing, they believe in it! If they can hear the sound of it, they recognize it. If they can discern its shape, they put it down as real. They know not that the things which are seen are temporal, and therefore shadowy--and that the things which are not seen are the only substantial things, because they exist forever.

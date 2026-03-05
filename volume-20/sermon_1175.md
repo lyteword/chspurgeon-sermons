@@ -1,12 +1,5 @@
 # Sermon 1175 | Stephen's Death
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 24, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep." Acts 7:59, 60.
 
 IT is of the greatest service to us all to be reminded that our life is but a vapor which appears for a little while and then vanishes away. Through forgetfulness of this, worldlings live at ease and Christians walk carelessly. Unless we watch for the Lord's coming, worldliness soon eats into our spirit as does a canker. If you have this world's riches, Believer, remember that this is not your rest--set not too great a store by its comforts. If, on the other hand, you dwell in straitness and are burdened with poverty, be not too much depressed, for these light afflictions are but for a moment and are not worthy to be compared with the Glory which shall be revealed in us! Look upon the things that are as though they were not. Remember you are a part of a great procession which is always moving by--others come and go before your own eyes--you see them and they disappear. You, yourself, are moving onward to another and more real world.

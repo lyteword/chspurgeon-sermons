@@ -1,8 +1,5 @@
 # Sermon 840 | Do Not Sin Against the Child
 
-
-Delivered on Lord's-Day Morning, November 8, 1868, by C. H. SPURGEON, at the [48]Metropolitan Tabernacle Newington.
-
 "Spoke I not unto you, saying, Do not sin against the child?'" Genesis 42:22.
 
 THUS Reuben reminded his brothers of his admonition concerning Joseph--thus would I address you with regard to your own children. I thought it meet, beloved Friends, as our friend, Mr. Hammond, is coming among us to labor for the conversion of the young, that I should, as it were, this morning deliver the preface to his series of services. Perhaps by enlisting the consideration and the affectionate prayers of God's people for the young, I may be doing more to help my friend in his work than it would be possible for me to do by any other means.

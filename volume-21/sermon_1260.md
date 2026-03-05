@@ -1,12 +1,5 @@
 # Sermon 1260 | The Unbroken Line Of True Nobles
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 17, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Instead of your fathers shall be your children, whom you may make princes in all the earth." Psalm 45:16.
 
 WERE you ever perplexed by being drawn with almost equal force in two directions? I have been so. There is a bond which reaches from the cemetery which holds me very fast and, therefore, I desired again, this morning, to have made use of the solemn visitation which so suddenly removed one of our friends from us. But this is the beginning of the week set apart for prayer for the young, and I have felt duty bound to take a part in the celebration and to assist to stir up Sunday school teachers and the members of the Church in general to pray for the blessing of God upon the rising generation.

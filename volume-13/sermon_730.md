@@ -1,7 +1,5 @@
 # Sermon 730 | Let Not Your Heart Be Troubled
 
-A sermon
-
 "Let not your heart be troubled: you believe in God, believe also in Me."- John 14:1.
 
 THE disciples had been like lambs carried in the warm bosom of a loving Shepherd. They were now about to be left by Him and would hear the howling of the wolves and endure the terrors of the snowstorm. They had been like tender plants conserved in a hothouse, a warm and genial atmosphere had always surrounded them--they were now to endure the wintry world with its nipping frosts. And so it was to be proven whether or not they had an inward vitality which could exist when outward protections were withdrawn.

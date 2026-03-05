@@ -1,7 +1,5 @@
 # Sermon 741 | A Troubled Prayer
 
-A sermon
-
 "Look upon my affliction and my pain; and forgive all my sins." Psalm 25:18.
 
 IF this Psalm were, indeed, written by David at the time when his son Absalom had raised the rebellion against him, we can readily understand the distinction which he draws between his "affliction," and his "pain." It is a great "affliction" to have a son become a rebel and that subjects who owed so much to their monarch should become traitors against his gentle government. "Pain" was the acute sensation which David's own heart experienced as the result of such calamity. He knew--

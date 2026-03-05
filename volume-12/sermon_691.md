@@ -1,6 +1,5 @@
 # Sermon 691 | An Immovable Foundation
 
-
 > "If the foundations are destroyed, what can the righteous do?"  
 > Psalm 11:3.  
 

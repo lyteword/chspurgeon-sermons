@@ -1,7 +1,5 @@
 # Sermon 855 | Everyday Usefulness
 
-A sermon
-
 "And he brought him to Jesus."- John 1:42.
 
 WE have a most intense desire for the revival of religion in our own midst and throughout all the Churches of our Lord Jesus. We see that error is making great advances and we would gladly lift up a banner for the cause of the Truth of God. We pity the mighty populations among whom we dwell for they are still godless and Christless and the things of their peace are hidden from their eyes. Therefore we would gladly behold the Lord performing miracles of Divine Grace. Our hope is that the set time to favor Zion is come and we intend to be importunate in prayer that God will reveal His arm and do great things in these latter days.

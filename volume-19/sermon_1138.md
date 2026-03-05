@@ -1,12 +1,5 @@
 # Sermon 1138 | Morning And Evening Songs
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To show forth Your loving kindness in the morning, and Your faithfulness every night." Psalm 92:2.
 
 IT is a notion of the Rabbis that this Psalm was sung by Adam in Paradise. There are no reasons why we should believe it was so and there are a great many why we should be sure it was not. It is not possible that Adam could have sung concerning brutish men and fools, and the wicked springing as grass, while as yet he was the only man, and himself un-fallen. Still, at least the first part of the Psalm might have fallen as suitably from the lips of Adam as from our tongues, and if Milton could put into Adam's mouth the language--

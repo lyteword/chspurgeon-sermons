@@ -1,6 +1,5 @@
 # Sermon 735 | Loving Advice for Anxious Seekers
 
-
 > "If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him."  
 > James 1:5.  
 

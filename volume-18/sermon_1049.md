@@ -1,12 +1,5 @@
 # Sermon 1049 | Intercessory Prayer
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 5, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For yet my prayer also shall be in their calamities." Psalm 141:5.
 
 THIS is a very difficult passage in the original and it is hard to fix its meaning with absolute certainty. However, it is no business of mine, at the present, to go into the various interpretations which have been given, for I am aiming at something else. I am, for my immediate purpose, quite content with the authorized version. The meaning given to the passage by our translators is this--David says although the righteous man should rebuke him most sternly so as to strike his conscience and bring before him his wrong-doing--and even though he should do this with considerable severity, yet he would not be displeased with him. He would love him all the better, be thankful to him for having acted so faithfully, and he would prove his love by continuing to pray for his reprover, should the good man at any time be overtaken by calamity.

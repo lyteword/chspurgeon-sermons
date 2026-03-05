@@ -1,7 +1,5 @@
 # Sermon 747 | "Make This Valley Full of Ditches"
 
-A sermon
-
 "And he said, Thus says the Lord, Make this valley full of ditches. For thus says the Lord, You shall not see wind, neither shall you see rain yet that valley shall be filled with water, that you may drink both you, and your cattle, and your beasts. And this is but a light thing in the sight of the Lord: He will deliver the Moabites also into your hand."- 2 Kings 3:16-18.
 
 MANY useful lessons might be gathered from this narrative if we had but time. Upon the very surface we are led to observe the weakness of man when at his utmost strength. Three kings, with three armies well-skilled in war, were gathered to subdue Moab, and lo, the whole of the hosts were brought to a standstill by the simple circumstance that there was a lack of water. How easily can God nonplus and checkmate all the wisdom and the strength of mankind! In circumstances of need how utterly without strength men become!

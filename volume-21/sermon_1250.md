@@ -1,12 +1,5 @@
 # Sermon 1250 | The Priest Dispensed With
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that believes on the Son of God has the witness in himself." 1 John 5:10.
 
 IT is a part of the theory of Ritualism, that is to say, Anglicized Popery, that no man can know his sins forgiven unless he is assured so by a priest. They tell us that to know ourselves saved we must either have a revelation from Heaven, which we may not expect, or we must wait till the Day of Judgement, or else some duly authorized "spiritual father" must pronounce us absolved. They cannot suppose any other method of being assured of forgiveness. That is the theory and in practice it comes to this, that when anything troubles your conscience you must make a clean breast of it to this, so-called, learned "minister," alias parish priest, and tell him whatever things you have done, answering all questions he may choose to put to you, whether they are clean or whether they are unclean.

@@ -1,6 +1,5 @@
 # Sermon 1018 | Pleading
 
-
 > "But I am poor and needy: make haste unto me, O God: Thou art my help and my deliverer; O Lord, make no tarrying."  
 > Psalm 70:5  
 

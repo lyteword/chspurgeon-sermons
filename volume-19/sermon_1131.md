@@ -1,12 +1,5 @@
 # Sermon 1131 | Clearing the Road to Heaven
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Gather out the stones." Isaiah 62:10.
 
 "GATHER out the stones"--that is to say, out of the King's highway. Clear the road. Make room for coming sinners. Take away all stumbling blocks. Make the Gospel plain and simple and come to the help of those who find hindrances and impediments in their progress to the Savior. Such stones are there and Satan tries to increase their number. The Lord's servants must gather them out. That is my object. I do not intend to attempt anything beyond that. I shall only try, with great simplicity of thought and speech, to deal with those things which prevent sinners from getting to Christ, for perhaps while we are trying to do this the Eternal Spirit may bring them to Jesus and they may find salvation on the spot. To that end let all who are already saved cry mightily to the Lord for His saving health and consoling Grace.

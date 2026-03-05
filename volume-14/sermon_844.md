@@ -1,6 +1,5 @@
 # Sermon 844 | Justification by Faith--Illustrated by Abram's Righteousness
 
-
 > "And he believed in the Lord; and he counted it to him for righteousness."  
 > Genesis 15:6.  
 

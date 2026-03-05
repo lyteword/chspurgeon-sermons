@@ -1,12 +1,5 @@
 # Sermon 1133 | A Fatal Deficiency
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "If any man ha ve not the Spirit of Christ, he is none of His." Romans 8:9.
 
 THIS is one of the most solemn texts in the whole Bible. It is so sweeping--it deals with all of us. "If any man have not the Spirit of Christ, he is none of His." And it deals with the most important point about us, for to belong to Christ is the most essential thing for time and eternity. But we are not Christ's unless we have His Spirit. The text does not treat of external rites and ceremonies. It does not discuss a vexed question in doctrine. It does not speak of rare attainments and unusual virtues--but it lays its axe at the root of the tree--it points its sword at a vital part. The text probes to the quick--it pierces to the dividing asunder of the joints and marrow--dealing with the thoughts and intents of the heart. It speaks to the soul and though it is the voice of the Gospel, yet is its sound as terrible as the thunderclaps of Sinai. "If any man have not the Spirit of Christ, he is none of His."

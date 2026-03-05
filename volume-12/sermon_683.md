@@ -1,6 +1,5 @@
 # Sermon 683 | Divine Gentleness Acknowledged
 
-
 > "Your gentleness has made me great."  
 > Psalm 18:35.  
 

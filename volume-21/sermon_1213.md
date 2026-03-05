@@ -1,12 +1,5 @@
 # Sermon 1213 | Faith, And The Witness Upon Which It Is Founded
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "If we receive the witness of men, the witness of God is greater: for this is the witness of God which He has witnessed of His Son. He that believes in the Son of God has the witness in himself: he that believes not God, has made Him a liar; because he believes not the witness that God witnessed of His Son." 1 John 5:9,10.
 
 YOU observe that I have somewhat corrected the translation. The same word is employed in every case in the original, but for the sake of variety of expression the translators have used four different words in our version and so, instead of improving the sense, which, indeed, never can be in the case of the Holy Spirit's writing, they have rather darkened the meaning. Put the word, "witness," or, "testimony," in each case, and you get the true meaning.

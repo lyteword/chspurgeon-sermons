@@ -1,7 +1,5 @@
 # Sermon 746 | The End of the Righteous Desired
 
-A sermon
-
 "Let me die the death of the righteous, and let my last end be like his."- Numbers 23:10.
 
 CARLYLE, in his "History of the French Revolution," tells us of a Duke of Orleans who did not believe in death. And when his secretary stumbled on the words, "The late King of Spain," he angrily demanded what he meant by it. The flattering attendant replied, "My Lord, it is a title which some of the kings of Spain have taken."

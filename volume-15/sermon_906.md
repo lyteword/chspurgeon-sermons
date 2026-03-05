@@ -1,7 +1,5 @@
 # Sermon 906 | The Soul's Crisis
 
-A sermon
-
 "Jesus of Nazareth passes by."- Luke 18:37.
 
 Such was the news of that day. As an exclamation, doubtless it was often repeated when our Lord made His journeys through the land of Palestine and its outskirts--"Jesus of Nazareth passes by!" How quickly would the inhabitants of their cities and their villages be astir when the news reached them! What a curiosity there would be to see Him, knowing that His fame was spoken of everywhere! What an eagerness among the multitudes to get close enough to hear Him! What an intense anxiety on the part of some to go, themselves, and of others to take their sick and diseased friends that they might obtain health and cure! Oh, I think there was enough in those words to make men forego, awhile, their farms and their merchandise, their labors and their pleasures that they might feast their eyes and ears with the sight of His face and the sound of His voice--or much more, that they might obtain some grateful relief and get some substantial benefit from Him who went about doing good!

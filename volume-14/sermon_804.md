@@ -1,6 +1,5 @@
 # Sermon 804 | Apostolic Exhortation
 
-
 > "Repent ye therefore, and be converted, that your sins may be blotted out, when the times of refreshing shall come from the presence of the Lord."  
 > Acts 3:19.  
 

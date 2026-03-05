@@ -1,7 +1,5 @@
 # Sermon 757 | In the Hay Field
 
-A sermon
-
 "He causes the grass to grow for the cattle."- Psalm 104:14.
 
 VE who are condemned to live in this great wilderness of brick are very likely to forget the seasons altogether. And our friends who live out in the green country and see the changing seasons, are quite as apt to hear the voices of the seasons with their ears only, and not to learn the inward meaning with their hearts. Spring, summer, autumn, and winter are God's four Evangelists whom He sends into this world to teach those who are willing to be taught. But the most of men are far too much intent upon the problem of how they may be fed to care for spiritual instruction.

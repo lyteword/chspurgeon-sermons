@@ -1,6 +1,5 @@
 # Sermon 897 | The First Cry from the Cross
 
-
 > "Then said Jesus, Father, forgive them; for they know not what they do."  
 > Luke 23:34.  
 

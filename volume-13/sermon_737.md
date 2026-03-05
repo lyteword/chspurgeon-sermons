@@ -1,7 +1,5 @@
 # Sermon 737 | God--All in All
 
-A sermon
-
 "When He gives quietness, who then can make trouble? And when He hides His face, who then can behold Him? Whether it is done against a nation, or against a man only."- Job 34:29.
 
 WE commenced our special services with a sermon of encouragement, by which we were reminded of the rapid answer which Daniel received to his prayer, [Sermon #734--The Dawn of Revival, Or Prayer Speedily Answered] and were led to hope that the Lord intended, at the very commencement of our supplications, to send forth a commandment of mercy. Since then, God has done great things for us, of which we are glad. Few of you, probably, are aware of the numerous conversions which God has worked in this place during the past two weeks. We are not fond of publishing numbers, nor of making estimates, but it suffices you to know, and us to say, that the Lord has made bare His arm and led forth captive souls from the bondage of sin.

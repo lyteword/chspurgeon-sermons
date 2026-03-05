@@ -1,6 +1,5 @@
 # Sermon 708 | The Blood Of Abel And The Blood Of Jesus
 
-
 > "And He said, 'Whathave you done? The voice of your brother's blood cries unto Me from the ground.'"  
 > Genesis 4:10.  
 

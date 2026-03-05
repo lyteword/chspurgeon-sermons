@@ -1,12 +1,5 @@
 # Sermon 1164 | Now, A Sermon for Young Men and Young Women
 
-
-DELIVERED ON THURSDAY EVENING, MARCH 19, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Son of man, behold, they of the house of Israel say, The vision that he sees is for many days to come, and he prophesies of the times that are far off" Ezekiel 12:27.
 
 ONE would have thought that if the glorious Lord condescended to send His servants to speak to men of the way of salvation, all mankind would delight to hear the message. We should naturally conclude that the people would immediately run together in eager crowds to catch every word--and would at once be obedient to the heavenly command. But, alas, it has not been so! Man's opposition to God is too deep, too stubborn for that. The Prophets of old were compelled to cry, "Who has believed our report?" and the servants of God in later times found themselves face to face with a stiff-necked generation who resisted the Holy Spirit as their fathers did.

@@ -1,12 +1,5 @@
 # Sermon 1214 | Strengthening Medicine For God's Servants
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will not fail you, nor forsake you." Joshua 1:5.
 
 NO doubt God had spoken to Joshua before. He had been a man of faith for many years and his faith enabled him to distinguish himself by such simple truthfulness of character and thoroughly faithful obedience to the Lord's will, that he and another were the only two left of the whole generation that came up out of Egypt. "Faithful among the faithless found," he survived where all else died. Standing erect in full vigor, he might have been compared to a lone tree which spreads its verdant branches untouched by the axe which has leveled its fellows with the ground.

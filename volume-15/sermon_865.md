@@ -1,7 +1,5 @@
 # Sermon 865 | Deep Calls Unto Deep
 
-A sermon
-
 "Deep calls unto deep."- Psalm 42:7.
 
 IN the grandeur of Nature there are awful harmonies. When the storm agitates the ocean below, the heavens above hear the tumult and answer to the clamor. Down comes a deluge of sonorous hail or swift-descending rain, attended with peals of thunder and flashes of flame. Frequently the waterspout, of which David speaks in the next sentence, evidences the sympathy of the two great waters above and beneath the firmament--the great deep above stretches out its hands to the great deep below and in voice of thunder their old relationship is recognized. It is almost as if the twin seas remembered how once they lay together in the same cradle of confusion till the decree of the Eternal appointed each his bounds and place.

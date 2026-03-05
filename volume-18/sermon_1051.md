@@ -1,12 +1,5 @@
 # Sermon 1051 | Golden Bowls Full Of Incense
 
-
-A SERMON DELIVERED ON SUNDAY MORNING, MAY 19, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Golden vials full of incense, which are the prayers of saints." Revelation 5:8.
 
 I SHOULD not have addressed you upon the subject of intercession today if this week had not been set apart for general prayer, for it was only two Sabbaths ago that I endeavored to set before you the duty and privilege of intercession [Sermon #1049, Intercessory Prayer.] However, as our mind is now directed to it again, it may be that the line upon line, the precept upon precept, the here a little and there a little, may not be without benefit to us. The vision before us is a very remarkable one. We do not intend, for we have not the time, to go into all the details of it. No doubt it is a vision referring to some special occasion, but at the same time we may regard it as descriptive of the usual worship which is offered before the Throne of God and the Lamb.

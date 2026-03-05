@@ -1,6 +1,5 @@
 # Sermon 1020 | "The Sun of Righteousness"
 
-
 > "In them hath he set a tabernacle for the sun, which is as a bridegroom coming out of his chamber, and rejoiceth as a strong man to run a race. His going forth is from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof."  
 > Psalm 19:4-6.  
 

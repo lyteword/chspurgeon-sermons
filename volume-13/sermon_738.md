@@ -1,7 +1,5 @@
 # Sermon 738 | Grieve Not the Holy Spirit
 
-A sermon
-
 "And grieve not the Holy Spirit of God, whereby you are sealed unto the day of redemption.."- Ephesians 4:30.
 
 IT is a very clear proof of the Personality of the Holy Spirit that He can be grieved. Now, it would be very difficult to imagine an influence, or a mere spiritual emanation being grieved. We can only grieve a person, and, inasmuch as the Holy Spirit may be grieved, we see that He is a distinct subsistence in the sacred Trinity. Rob Him not of the glory which is due to Him but be ever mindful to do Him homage. Our text, moreover, reveals to us the close connection between the Holy Spirit and the Believer. He must take a very tender and affectionate interest in us since He is grieved by our shortcomings and our sins. He is not a God who reigns in solitary isolation, divided by a great gulf, but He, the blessed Spirit, comes into such near contact with us, takes such minute observations, feels such tender regards that He can be grieved by our faults and follies.

@@ -1,12 +1,5 @@
 # Sermon 1116 | Medicine For The Distracted
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In the multitude of my thoughts within me Your comforts delight my soul." Psalm 94:19.
 
 GODLY people are thoughtful people. Indeed, it is often a sign of the beginning of Grace in a man when he begins to consider. Lack of thought has to do with the ruin of most of those who perish--it is not so much that they despise as that they neglect the great salvation. They have no time for thinking. They fly through life like mere butterflies and they rush upon destruction like wanton moths. Alas, that they should be so brutish! It is shameful and grievous that men whose noblest attribute is an intellect akin to angels should live like "dumb, driven cattle." Even men who call themselves religious often seek for priests or ministers to do their thinking for them. They cannot be induced to give personal heed to their eternal welfare.

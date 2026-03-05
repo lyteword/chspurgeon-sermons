@@ -1,6 +1,5 @@
 # Sermon 1006 | Christ Is All
 
-
 > "Christ is all in all."  
 > Colossians 3:11.  
 

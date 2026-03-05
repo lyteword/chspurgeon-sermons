@@ -1,12 +1,5 @@
 # Sermon 911 | The Putting Away Of Sin
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 16, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now once in the end of the world has He appeared to put a way sin by the sacrifice of Himself." Hebrews 9:26.
 
 WHEN the old dispensation was becoming worn out, and like a vesture ready to be laid aside. When the end of the typical twilight had come, then Jesus Christ came forth from the Father and brought the dawning with Him. When the often appearing of the Aaronic priests had not availed for the putting away of sin, He came whose once appearing perfected the work. As it was said to the master of the feast, "You have kept the best wine until now," so might it be said of the great God of Grace, whose crowning gift to man came late, but not too late, to enrich the banquet of His love. There was a fullness of time before which the Messiah could not be cut off, but when that hour was come He was not slow with His sacrifice--He appeared in the appointed place to make Atonement for human guilt.

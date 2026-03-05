@@ -1,12 +1,5 @@
 # Sermon 1074 | The Paraclete
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 6, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will pray the Father, and He shall give you another Comforter, that He may abide with you forever." John 14:16.
 
 THE unspeakable gift of the Son of God was followed up by the equally priceless gift of the Holy Spirit. Must it not be confessed by us that we think far less of the Holy Spirit than we should? I am sure we do not exalt the Savior too much, nor is He too often the subject of our meditations, but at the same time we give to the Holy Spirit a very disproportionate place compared with the Redeemer. I fear that we even grieve the Spirit by our neglect of Him. Let me invite your devout contemplations to the special work of the Holy Spirit. Such an invitation is necessary. The subject has not grown stale, for it too seldom occupies our thoughts.

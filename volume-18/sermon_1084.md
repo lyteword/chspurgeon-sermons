@@ -1,12 +1,5 @@
 # Sermon 1084 | The Thorn in the Flesh
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 8, 1872
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh, the messenger of Satan to buffet me, lest I should be exalted above measure. For this thing I besought the Lord thrice, that it might depart from me. And He said unto me, My Grace is sufficient for you: for My strength is made perfect in weakness. Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may rest upon me." 2 Corinthians 12:7,8,9.
 
 MANY persons have a morbid desire to roll up the curtain and gaze upon the secret lives of eminent personages. Paragraphs detailing the private habits of public men are delicacies for such minds. Books stuffed with idle gossip and mere trash are sure of a wide circulation if they tell how princes ate, how warriors drank, how philosophers slept, or how senators arranged their hair. And now we are able to gratify curiosity and yet minister to edification--for we have unveiled before us a portion of the secret life of Paul, the great Apostle of the Gentiles.

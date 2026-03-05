@@ -1,14 +1,5 @@
 # Sermon 800 | The Centurion's Faith and Humility
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, March 15, 1868, by
-
-H. SPURGEON,
-
-at the [13]Metropolitan Tabernacle, Newington.
-
 "Then Jesus went with them. And when He was now not far from the house, the centurion sent friends to Him, saying unto Him, Lord, trouble not Yourself: for Iam not worthy that You should enter under my roof. Why neither thought I myself worthy to come unto You: but say in a word, and my servant shall be healed. For Ialso am a man set under authority, having under me soldiers, and I say unto one, Go, and he goes; and to another, Come, and he comes; and to my servant, Do this, and he does it." Luke 7:6-8.
 
 THE greatest light may enter into the darkest places. We may find the choicest flowers blooming where we least expected them. Here was a Gentile, a Roman soldier--a soldier clothed with absolute power--and yet a tender master, a considerate citizen, a lover of God! Let no man, therefore, be despised because of his calling, and let not the proverb, "Can any good come out of Nazareth?" be ever heard from the wise man's lips. The best of pearls have been found in the darkest caves of the ocean. Why should it not be so, still, that God should have even in Sardis a few that have not defiled their garments--who shall walk with Christ in white--for they are worthy.

@@ -1,7 +1,5 @@
 # Sermon 870 | Things Present
 
-A sermon
-
 "Things present, all are yours."- 1 Corinthians 3:22.
 
 SOME of the Corinthians had attached themselves to one great religious teacher and others to another. There was a disposition among them to set up rival leaders of opposing parties--a band would follow Paul, another company admired Apollos--and a third extolled Peter. The Apostle, in order to take the minds of Believers off estimating any one of their blessings at too high a rate, leads them to contemplate the exceeding length and breadth of the treasures which God had given to them. Why should they glory in man when all things were theirs? It is the part of a poor man to set a great value upon the one thing in which he delights.

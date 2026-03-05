@@ -1,12 +1,5 @@
 # Sermon 1234 | The Final Separation
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And before Him shall be gathered all nations: and He shall separate them, one from another, as a shepherd divides his sheep from the goats." Matthew 25:32.
 
 JESUS Christ, the man of Nazareth, who is also the Son of God, was crucified, dead and buried, and the third day He rose again from the dead. After He had showed Himself to His disciples for 40 days--sometimes to one alone, at other times to two or three together, and on one occasion to above 500 Brethren at once--He ascended into Heaven. From the Mount Olivet, from the midst of His disciples, He rose into mid air and, by-and-by, a cloud received Him out of their sight. That same Jesus who is gone into Heaven shall so come in like manner as He was seen to go up into Heaven. That is to say, in Person, in His own risen body. The same Christ who rose into the skies will, in the latter day, surely descend again. The time of His coming is not revealed to us--"Of that day and that hour knows no man, no, not the angels of God," but the time is certainly growing nearer every day, and we cannot tell when the hour shall be.

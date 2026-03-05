@@ -1,7 +1,5 @@
 # Sermon 894 | Christ with the Keys of Death and Hell
 
-A sermon
-
 "I have the keys of Hell and of Death."- Revelation 1:18.
 
 THEN Hell and death, terrible powers as they are, are not left to riot without government. Death is a land of darkness, as darkness itself, without any order, yet a Sovereign eye surveys it and a master hand holds its key. Hell, also, is a horrible region where powers of evil and of terror hold their high court and dread assembly--but Hell trembles at the Presence of the Lord and there is a Throne higher than the throne of evil. Let us rejoice that nothing in Heaven, or earth, or in places under the earth is left to itself to engender anarchy. Everywhere, serene above the floods, the Lord sits King forever and ever!

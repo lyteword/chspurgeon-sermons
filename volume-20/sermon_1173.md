@@ -1,12 +1,5 @@
 # Sermon 1173 | "I Thought"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I thought." 2 Kings 5:11.
 
 OUR great object in preaching today will be the conversion of sinners. There is a great deal else to be done-- Believers need building up, comforting and quickening--but while myriads of men remain careless until they are swept away into Perdition, it becomes us to lend our strength to the most necessary work of winning souls for Jesus. Therefore, again this morning, I shall leave the 99 in the wilderness and go after that which has gone astray, pleading earnestly with God that He will bless my pleading with men so that while I discourse with them concerning their folly in rejecting the Savior, His Spirit may discourse with them, also, and lead them to flee to Jesus for eternal life!

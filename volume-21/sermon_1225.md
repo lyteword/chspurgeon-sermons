@@ -1,12 +1,5 @@
 # Sermon 1225 | Jesus, The Delight of Heaven
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they sung a new song, saying, You are worthy to take the book, and to open the seals thereof: for You were slain, and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation; and have made us unto our God kings and priests: and we shall reign on the earth." Revelation 5:9,10.
 
 IF YOU want to know a man's character, it is well to inquire at his home. What do his children and servants think of him? What is the estimate formed by those who are always with him? George Whitefield was once asked his opinion of a person and his answer was very wise, for he replied, "I never lived with him." Beloved Brothers and Sisters in Christ, see what an estimate is formed of your Lord at Home up yonder, where they know Him best and see Him most constantly, and in the clearest light! They have discovered no faults in Him. The angels who have beheld Him ever since they were created, the redeemed who have been with Him, some of them for thousands of years, have found no spot in Him. Their unanimous verdict expressed freely in joyful song is, "You are worthy; You are worthy; You are worthy."

@@ -1,7 +1,5 @@
 # Sermon 785 | Wanted, A Guest Chamber!
 
-A sermon
-
 "The Master says, Where is the guest chamber, where I shall eat the Passover with My disciples."- Mark 14:14.
 
 As far as we know, out of the many thousands who had come to Jerusalem from the utmost ends of the earth to keep the Passover, none were left unaccommodated with a guest chamber except our Lord Jesus Christ. Jerusalem, at the time of the Passover, was one great inn--the whole of the houses were occupied not only by the regular tenants, but by their friends from the country parts of Judea. Each one had invited his own friends and all the houses were filled. But there was found no one to invite the Savior and He had no dwelling of His own. He who received sinners, was excluded by all. The Friend of man was houseless, and at the national festival He was no man's guest. He would have been left in the streets, if by His own supernatural power He had not found Himself an upper room in which to keep the feast.

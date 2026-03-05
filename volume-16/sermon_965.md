@@ -1,12 +1,5 @@
 # Sermon 965 | Purging Out the Leaven
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 11, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Know you not that a little leaven leavens the whole lump?Purge out, therefore, the old leaven, that you may be a newlump, as you are unleavened. For even Christ our Passover is sacrificed for us. Therefore let us keep the feast, not with old leaven, neither with the leaven of malice and wickedness. But with the unleavened bread of sincerity and truth." 1 Corinthians 5:6-8.
 
 "WHAT God has joined together, let no man put asunder." Evermore in Scripture the Doctrines of Grace are married to the precepts of holiness. Where faith leads the way, the virtues follow in a goodly train. The roots of holiness and happiness are the same, and in some respects they are but two words for the same thing. There have been persons who have thought it impossible that holiness should come out of the preaching of salvation by faith. If you tell men that "there is life in a look at the Crucified One," will they not conclude that cleanness of life is unnecessary? If you preach salvation by Grace through faith, and not at all by the works of the Law, will they not draw the inference that they need not be obedient to Christ, but may live as they wish?

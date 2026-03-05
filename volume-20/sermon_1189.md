@@ -1,6 +1,5 @@
 # Sermon 1189 | The Turning Point
 
-
 And he arose, and came to his father.'Luke 15:20.
 
 THIS SENTENCE EXPRESSES the true turning point in the prodigal's life story. Many other matters led up to it, and before he came to it there was much in him that was very hopeful; but this was the point itself, and had he never reached it he would have remained a prodigal, but would never have been the prodigal restored, and his life would have been a warning rather than an instruction to us. He arose, and came to his father.' Speaking, as I do, in extreme weakness, I have no words to spare; and while my voice holds out I shall speak straight to the point, and I pray the Lord to make every syllable practical and powerful by his Holy Spirit.

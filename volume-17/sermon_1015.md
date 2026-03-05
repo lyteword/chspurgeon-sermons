@@ -1,6 +1,5 @@
 # Sermon 1015 | The One Thing Needful
 
-
 > "But one thing is needful."  
 > Luke 10:42.  
 

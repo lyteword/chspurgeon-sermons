@@ -1,6 +1,5 @@
 # Sermon 972 | New Uses for Old Trophies
 
-
 > "King David's spears and shields, that were in the temple of the Lord."  
 > 2 Kings 11:10.  
 

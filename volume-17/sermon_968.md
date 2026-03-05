@@ -1,6 +1,5 @@
 # Sermon 968 | Life In Christ
 
-
 > "Because I live, ye shall live also."  
 > John 14:19.  
 

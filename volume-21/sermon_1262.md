@@ -1,12 +1,5 @@
 # Sermon 1262 | The Turning Of Job's Captivity
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord turned the captivity of Job, when he prayed for his friends: also the Lord ga ve Job twice as much as he had before." Job 42:10.
 
 SINCE God is immutable, He acts always upon the same principles and, therefore, His course of action in the olden times to a man of a certain sort will be a guide as to what others may expect who are of like character. God does not act by caprice, nor by fits and starts. He has His usual modes and ways. The Psalmist David uses the expression, "Then will I teach transgressors Your ways," as if God had well-known ways, habits and modes of action. And so He has, or He would not be the unchangeable Jehovah. In that song of Moses, the servant of God and the song of the Lamb, which is recorded in the 15th chapter of Revelation, we read, "Just and true are Your ways, You King of saints." The Lord has ways as high above our ways as the heavens are above the earth--and these are not fickle and arbitrary.

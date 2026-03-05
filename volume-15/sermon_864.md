@@ -1,7 +1,5 @@
 # Sermon 864 | Life's Ever-Springing Well
 
-A sermon
-
 "The water that I shall give him shall be in him a well of water springing up into everlasting life."- John 4:14.
 
 YOU have been busy all the week with external things. You have had to deal with the questions, "What shall we eat and what shall we drink and with what shall we be clothed?" It is well that at least on this one day in seven we should turn our eyes away from the external to the internal--from the less to the greater--for as life is more than meat and the body than raiment, so is the soul more important than all that which surrounds it. It were most unwise in any man to be so continually attending to the exterior of his house as to neglect the comforts of the inner apartments and the warmth of the fireside. It were extreme folly in any of us to be very careful in the dressing of our person and meanwhile to permit our body to pine away under some dreadful disease.

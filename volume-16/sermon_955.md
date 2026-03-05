@@ -1,12 +1,5 @@
 # Sermon 955 | A Singular But Needful Question
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 16, 1870,
-
-BY C H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Will you be made whole?" John 5:6.
 
 JESUS spoke to the impotent man who had been afflicted for thirty-eight years, and enquired of him, "Will you be made whole?" It seems a very strange question to ask. Who would not be made whole? Would the poor man have been lying at the pool if he had not been anxious for healing? Must there not have been in the very look of his face, as he gazed upon the Savior, an answer to that question, superseding all necessity of saying it? Yet as our Lord spoke no superfluous words, it may be that He perceived that the paralysis of the man's body had, to a very painful degree, benumbed his mind and brought on a paralysis of his will.

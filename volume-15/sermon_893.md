@@ -1,7 +1,5 @@
 # Sermon 893 | Strong Consolation
 
-A sermon
-
 "Wherein God, willing more abundantly to show unto the heirs of promise the immutability of His counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might ha ve a strong consolation, who have fled for refuge to lay hold upon the hope set before us."- Hebrews 6:17,18.
 
 THE Lord's transactions with the Patriarch Abraham are frequently used in Scripture as types of His dealings with all the heirs of promise. The Lord found him in an idolatrous household, even as He finds all His people far off from Him and strangers to Him. But the Lord separated him by an effectual call and brought him out from his country and from his father's house, even as He does unto all His people when He visits them in mercy, and says, "Come out from among them and be you separate and touch not the unclean thing."

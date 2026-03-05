@@ -1,12 +1,5 @@
 # Sermon 1196 | The Stern Teacher
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore the Law was our schoolmaster to bring us unto Christ, that we might bejustified by faith. But after faith has come, we are no longer under a schoolmaster." Galatians 3:24-26.
 
 NEITHER the Jewish Law of Ten Commandments, nor its Law of ceremonies were ever intended to save anybody. It was not the intent of the ceremonial Law, in itself to effect the redemption of the soul--by a set of pictures it set forth the way of salvation--but it was not, itself, the way. It was a map, not a country. It was a model of the road, not the road itself. The blood of bulls and goats, nor the ashes of a heifer could take away sin! These sacrifices and offerings were but types of the great Sacrifice which, in due time, was presented by the true Priest. There was no inherent virtue in the victims that were slain, or in the services that were observed by the worshippers! Those sacred rites were intended to portray to the minds of the people the real Sacrifice, which was, in the fullness of time, to be offered by our Lord Jesus Christ--but they could do nothing more.

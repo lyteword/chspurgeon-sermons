@@ -1,6 +1,5 @@
 # Sermon 724 | His Name--The Everlasting Father
 
-
 > "The Everlasting Father."  
 > Isaiah 9:6.  
 

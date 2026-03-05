@@ -1,7 +1,5 @@
 # Sermon 886 | A Safe Prospective
 
-A sermon
-
 "At the time appointed the end shall be."- Daniel 8:19.
 
 Human nature anxiously desires to know something of the future. If we were told tonight that we could repair to a certain spot where we might lift the veil of our own history and foresee the course of our own lives during the next few years, I am afraid very few of us could be trusted to absent ourselves from such a place, or miss such an opportunity. This anxiety to know the future and that strange credulity which gives heed to every species of so-called "prophets" and omens, has caused men and women to be the easy dupes of designing impostors in all ages--from the ignorance of the unlettered Egyptian, up to the cleverness of modern professors.

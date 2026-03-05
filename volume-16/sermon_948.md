@@ -1,12 +1,5 @@
 # Sermon 948 | A String Of Pearls
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 28, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Blessed be the God and Father of our Lord Jesus Christ, which according to His abundant mercy has begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead, to an inheritance incorruptible, and undefiled, and that fades not away, reserved in Heaven for you, who are kept by the power of God through faith unto salvation ready to be revealed in the last time." 1 Peter 1:3-5.
 
 THE persons whom Peter addressed were in great need of comfort. They were strangers, strangers scattered far from home. They had in consequence to suffer manifold trials and therefore needed plenteous consolations. Such is our position in a spiritual sense. We, too, are strangers and foreigners. We are pilgrims and sojourners below, and our citizenship is in Heaven. We also require the Word of comfort, for while our banishment lasts, we look for tribulations. The persons whom Peter addressed were God's chosen, "elect according to the foreknowledge of God the Father," and one sure result of Divine election is the world's enmity. "If you were of the world, the world would love his own: but because you are not of the world, but I have chosen you out of the world, therefore the world hates you."

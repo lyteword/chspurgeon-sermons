@@ -1,12 +1,5 @@
 # Sermon 1207 | A Solemn Impeachment of Unbelievers
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 13, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that believes not God has made Him a liar; because he believes not the record that God gave of His Son." 1 John 5:10.
 
 NO doubt if our Lord Jesus were on earth He would find many persons for whom He would pray, "Father, forgive them, for they know not what they do." It is no doubt true of many who are living in great sin that they do it ignorantly, not knowing the full measure of their guilt or its real character in the sight of God. It is the duty of the Christian minister and, indeed, of all Christians, to render sins of ignorance impossible by imparting Scriptural knowledge. We must let men know what they are doing and never suffer them to go on in the dark. If they will commit sin, let them at least know what is involved in it, for "that the soul be without knowledge is not good."

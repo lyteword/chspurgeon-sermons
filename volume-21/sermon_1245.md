@@ -1,12 +1,5 @@
 # Sermon 1245 | Why Men Cannot Believe in Christ
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "How can you believe, which receive honor one of another, and seek not the honor that comes from God only?" John 5:44.
 
 OUR Savior was addressing Himself to Pharisees who would not receive Him, and who, no doubt, pleaded that they could not believe on Him. They had just seen a very notable miracle worked by Him--a man who had been sick many years had been suddenly restored and that by a word. That miracle, being of the same nature as the wonderful works of the great Father, a miracle of tenderness and Omnipotence, ought to have convinced them that Christ was the Son of God. They saw the miracle, however, and instead of drawing the proper inference, they began to quibble at the Master because He had performed it upon the Sabbath Day. The teaching of our Lord's wonderful work of mercy and power was lost upon them. They could not, they would not see the finger of God in the miracle.

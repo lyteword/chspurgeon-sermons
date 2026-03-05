@@ -1,12 +1,5 @@
 # Sermon 1264 | The Man of One Subject
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 31, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For I determined not to know anything among you, save Jesus Christ, and Him crucified." 1 Corinthians 2:2.
 
 Paul was a very determined man and whatever he undertook he carried out with all his heart. Once let him say, "I determined," and you might be sure of a vigorous course of action! "This one thing I do" was always his motto. The unity of his soul and its mighty resoluteness were the main features of his character. He had once been a great opposer of Christ and His Cross and had shown his opposition by furious persecutions. It was not so very much to be wondered at that when he became a disciple of this same Jesus, whom he had persecuted, he should become a very ardent one and bring all his faculties to bear upon the preaching of Christ crucified.

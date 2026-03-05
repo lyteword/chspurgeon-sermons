@@ -1,12 +1,5 @@
 # Sermon 1159 | Counting the Cost
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For which of you, intending to build a tower, sits not down first, and counts the cost, whether he has sufficient to finish it? Lest haply, after he has laid the foundation, and is not able to finish it, all that behold it begin to mock him, saying, This man began to build, and was not able to finish." Luke 14:28-30.
 
 THIS passage is peculiar to Luke. He tells us that at the time when our Lord uttered it, great multitudes followed Him. It is observable that when our Lord was forsaken by the crowd, He was not depressed, and when His ministry became popular He was not elated. He was calm and wise in the midst of the excitement of the thronging multitudes. This passage is sufficient evidence of that fact. On this occasion our Lord spoke with a view to the winnowing of the great heap of nominal discipleship which lay before Him, that the chaff might be driven away and only the precious corn might remain.

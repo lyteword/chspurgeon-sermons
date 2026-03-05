@@ -1,6 +1,5 @@
 # Sermon 1004 | "Bought with a Price"
 
-
 > "Ye are not your own: for ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's."  
 > 1 Corinthians 6:19-20.  
 

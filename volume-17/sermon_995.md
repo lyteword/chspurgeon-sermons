@@ -1,6 +1,5 @@
 # Sermon 995 | The Sheep and Their Shepherd
 
-
 > "My sheep hear my voice, and I know them, and they follow me."  
 > John 10:27.  
 

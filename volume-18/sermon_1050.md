@@ -1,12 +1,5 @@
 # Sermon 1050 | A Bright Light in Deep Shades
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 12, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hearken to me, you that follow after righteousness, you that seek the Lord. Look unto the rock where you are hewn, and to the hole of the pit where you are dug." Isaiah 51:1.
 
 THE Israelites were commanded to remember all the ways which the Lord their God had led them in the wilderness. That precept was not given without reason. The remembrance of God's mercy in the past is helpful to us in many ways. To look back upon our past condition and upon the manner in which God befriended us at such times as we were reduced to sore straits will often prove salutary and bracing to our souls. For one thing, it tends to bring forth in us the meekness of wisdom. Should we become rich and increased in goods spiritually, it will humble us and keep us in our right place if we remember that once we were naked, poor and miserable.

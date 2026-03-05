@@ -1,7 +1,5 @@
 # Sermon 888 | The Silken Fetter
 
-A sermon
-
 "Fear the Lord and His goodness."- Hosea 3:5.
 
 THE whole verse runs thus: "Afterward shall the children of Israel return, and seek the Lord their God and David their king; and shall fear the Lord and His goodness in the latter days." A brief word may suffice upon the prophecy. I think no reader of Holy Scripture can doubt but that the seed of Abraham, however long they may be in blindness, will at the last obey the Messiah, Jesus, the Son of David, and in those days the goodness of God to them will be so extraordinary that they shall fear and wonder at it. Constrained by gratitude, they will be numbered among the most earnest servants of the Lord. May the Lord hasten so blessed a consummation in His own time.

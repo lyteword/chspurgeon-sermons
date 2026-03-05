@@ -1,6 +1,5 @@
 # Sermon 1001 | Altogether Lovely
 
-
 > "Yea, he is altogether lovely."  
 > Song of Solomon 5:16.  
 

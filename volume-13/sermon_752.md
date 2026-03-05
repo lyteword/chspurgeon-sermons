@@ -1,7 +1,5 @@
 # Sermon 752 | The King In His Beauty
 
-A sermon
-
 "Your eyes shall see the King in His beauty: they shall behold the land that is very far off."- Isaiah 33:17.
 
 WHEN the Assyrians had invaded Judea with an immense army and were about to attack Jerusalem, Rabshakeh was sent with a railing message to the king and his people. When Hezekiah heard of the blasphemies of the proud Assyrian, he tore his clothes, put on sackcloth and went into the house of the Lord and sent the elders of the priests, covered with sackcloth, to consult with Isaiah the Prophet. The people of Jerusalem, therefore, had seen their king in most mournful array, wearing the garments of sorrow and the weeds of mourning. They were, however, cheered by the promise that there should be so complete a defeat of Sennacherib that the king should again adorn himself with the robes of state and appear with a smiling countenance in all the beauty ofjoy.

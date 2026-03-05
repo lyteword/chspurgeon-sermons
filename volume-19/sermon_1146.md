@@ -1,12 +1,5 @@
 # Sermon 1146 | Consolation For The Despairing
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 7, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For I said in my haste, I am cut off from before Your eyes, nevertheless You heard the voice of my supplications when I cried unto You." Psalm 31:22.
 
 I DESIRE at this time to speak to those who are much depressed in spirit, the sons of despondency and daughters of mourning who dwell upon the dreary confines of despair. It may seem objectionable among so large an audience to address my discourse to a class so comparatively small, but I must leave it to your compassion to excuse me. No, I think I hardly need do that, but may urge as my apology the nature of my calling. When the shepherd comes in the early morning to his flock, do not his eyes single out the sick, and does he need forgiveness if, for a while, he devotes all his skill and his care to those sheep which need it?

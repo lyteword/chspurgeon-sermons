@@ -1,12 +1,5 @@
 # Sermon 1124 | God Beseeching Sinners by His Ministers
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 27, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And all things are of God, who has reconciled us to Himself by Jesus Christ, and has given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them, and has committed unto us the word of reconciliation. Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be you reconciled to God. For He has made Him to be sin for us, who knew no sin that we might be made the righteousness of God in Him." 2 Corinthians 5:18-21.
 
 MAN became God's enemy wantonly, without the slightest offense given on God's part. But man did not make advances towards reconciliation, or express regret because peace was broken. The first overtures for peace are not made by man, the offender, but by our aggrieved and offended God. Therefore our text begins with the declaration, "All things are of God." Reconciliation of man to his Maker is never achieved by man, but is the work of God from first to last, and to God must be all the glory. The text enforces this Truth by giving us a brief summary. The Lord first finds the messengers of reconciliation by reconciling some men to Himself. He chooses His ministers, having called them into a state of reconciliation.

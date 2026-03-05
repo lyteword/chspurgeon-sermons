@@ -1,12 +1,5 @@
 # Sermon 942 | The Way
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 24, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus said unto him, I am the way." John 14:6.
 
 THE most precious things lie in the smallest compass. Diamonds have much value in little space. Those Scriptural sayings which are fullest of meaning are many of them couched in the fewest words. Who shall measure the depth of that sentence, "God is love"? Or that other, "God is light"? Who shall know the lengths and breadths of this declaration, "Christ is all"? How clearly is the whole Gospel condensed into that line, "By Grace are you saved"! There are many more Divine Words of a like character, all short, and as sweet as they are short, precious beyond comparison, and as brief as precious. Our text, with its four words, and those all monosyllables, and none of more than three letters, is among the chief of these Bibles in miniature. "I am the way."

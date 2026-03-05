@@ -1,12 +1,5 @@
 # Sermon 1121 | Christ Asleep in the Vessel
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Master, care You not that we perish?" Mark 4:38.
 
 THE day had been a very illustrious one. Our Lord had remarkably displayed His teaching and healing powers. Great crowds had been attracted and He had both delivered to them most precious parables and worked among them most marvelous cures. Grand as the day was, it could not come to a close without a storm. After the same manner you will find it in the history of the Church of God, that intermingled with great successes will be great afflictions. Pentecost is followed by persecution--Peter's sermon by Peter's imprisonment. Though today a Church may flourish abundantly, in a very short time it may be visited with stern adversities. It may be tried, none the less, but all the more, because God is in its midst and is blessing it.

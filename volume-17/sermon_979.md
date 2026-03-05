@@ -1,6 +1,5 @@
 # Sermon 979 | Faith and Regeneration
 
-
 > "Whosoever believeth that Jesus is the Christ is born of God: and everyone that loveth him that begot loveth him also that is begotten of him."  
 > 1 John 5:1.  
 

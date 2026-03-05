@@ -1,6 +1,5 @@
 # Sermon 725 | A Message From God To His Church And People
 
-
 > "O Lord, I have heard Your speech, and was afraid: O Lord, revive Your work in the midst of the years! In the midst of the years make it known; in wrath remember mercy."  
 > Habakkuk 3:2.  
 

@@ -1,7 +1,5 @@
 # Sermon 749 | The Righteous Holding On His Way
 
-A sermon
-
 "The righteous also shall hold on his way."- Job 17:9.
 
 WE are thrice happy in having a goodly number of young beginners in our midst. Our springtide is cheered and beautified with many blossoms of hopeful converts. They have just begun to go on pilgrimage and would be as happy as the birds of the air were it not that some of them are grievously afflicted with the fear that they shall not hold out to the end. This is one of their daily torments, that, after all, they shall be false to Christ--that the Grace of God will fail them, or that they will fail to depend upon it--that having begun well they shall by-and-by be hindered and shall not obey the truth.

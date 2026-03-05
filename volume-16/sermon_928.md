@@ -1,12 +1,5 @@
 # Sermon 928 | A New Song For New Hearts
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 1, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And in that day you shall say, O Lord, I will praise You: though You were angry with me, Your anger is turned away, and You comfort me." Isaiah 12:1.
 
 THIS prophesy is said by some to relate to the invasion by Sennacherib. That calamity threatened to be a very terrible display of Divine anger. It seemed inevitable that the Assyrian power would make an utter desolation of all Judea. But God promised that He would interpose for the deliverance of His people and punish the stout heart of the king of Assyria. And in that day His people should say, "We will praise You though You were angry with us, and therefore sent the Assyrian monarch to chastise us. Your anger is turned away, and You comfort us."

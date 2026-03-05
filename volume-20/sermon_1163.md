@@ -1,12 +1,5 @@
 # Sermon 1163 | Redemption and Its Claims
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, MARCH 8, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You are bought with a price." 1 Corinthians 6:20. "You are bought with a price." 1 Corinthians 7:23.
 
 THE same words are found in each place, though a different inference is drawn from them. "You are bought with a price." This morning's text was, "Without money and without price," [#1161] and to the best of my ability I tried to show how freely the blessings of the Gospel are bestowed upon the sons of men. But though they cost us nothing, they cost the Savior dearly. They are without price to us, but what a price He paid! Well did our poet put it in the remarkable verse which we sang--

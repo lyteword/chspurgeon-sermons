@@ -1,12 +1,5 @@
 # Sermon 1083 | Living Temples for the Living God
 
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Thus says the Lord, Hea ven is My throne and earth is My footstool. Where is the house that you build unto Me? And where is the place of My rest? For all those things has My hand made, and all those things have been, says the Lord; but to this man will I look, even to him that is poor and of a contrite spirit and trembles at My Word." Isaiah 66:1,2.
 
 THAT is an excellent answer which was given by a poor man to a skeptic who attempted to ridicule his faith. The scoffer said, "Pray Sir, is your God a great God or a little God?" The poor man replied, "Sir, my God is so great that the Heaven of heavens cannot contain Him and yet He condescends to be so little that He dwells in broken and contrite hearts." Oh, the greatness of God and the condescension of God! I hope we shall be led to think of both this evening while we meditate upon the Words of the text. We have no time nor need of a preface. The text first of all teaches us that God rejects all material temples as the places of His abode. But, secondly, it informs us that God has made a choice of spiritual temples where He will dwell.

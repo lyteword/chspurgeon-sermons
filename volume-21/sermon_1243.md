@@ -1,12 +1,5 @@
 # Sermon 1243 | Rivers Of Water In A Dry Place
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 11, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As rivers of water in a dry place." Isaiah 32:2.
 
 I SUPPOSE it must be conceded that the surface sense of this passage refers to Hezekiah and to other good kings who were the means of great blessings to the declining kingdom of Judah. We can scarcely be thankful enough for a righteous government. If, for a few years, we could feel the yoke of despotism, we should better appreciate the joys of freedom. In the prophecy before us, very much is said in praise of a king who shall reign in righteousness and princes who shall rule in judgment. Such men are the protectors of the State, enriching it by commerce and blessing it with peace. They deserve honor and the Word of God renders it to them.

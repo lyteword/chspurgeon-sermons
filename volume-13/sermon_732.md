@@ -1,7 +1,5 @@
 # Sermon 732 | The Heart--a Den of Evil
 
-A sermon
-
 "For out of the heart proceed evil thoughts, murders, adulteries, fornications, thefts, false witness, blasphemies."- Matthew 15:19.
 
 WE cannot too often insist upon it that religion is a matter of the heart. It is the besetting sin of man to forget that God is a Spirit and that worship rendered to God must be of a spiritual kind. Idolatry is the full carrying out of this mischievous propensity. Instead of adoring the Great Invisible and giving Him the love of the heart, man sets up a block of wood or stone, and, burning incense and performing genuflections before it, he cries, "This is my god." Where this idolatry does not assume the very grossest form it takes another which is equally as objectionable in the sight of God. Man pleads that he cannot worship God with his heart unless his memory is assisted by some outward object, and then he smuggles in his idol and gratifies his depraved nature with will worship and outward formalism.

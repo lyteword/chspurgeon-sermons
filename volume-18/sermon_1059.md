@@ -1,12 +1,5 @@
 # Sermon 1059 | To The Thoughtless
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 7, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The ox knows his owner, and the donkey his master's crib: but Israel does not know, My people do not consider." Isaiah 1:3.
 
 IT IS clear from this chapter that the Lord views the sin of mankind with intense regret. We are obliged to speak of Him after the manner of men and in doing so we are clearly authorized to say that He does not look upon human sin merely with the eye of a judge who condemns it, but with the eye of a friend who, while He censures the offender, deeply laments that there should be such faults to condemn. "Hear, O heavens, and give ear, O earth: I have nourished and brought up children and they have rebelled against Me," is not merely an exclamation of surprise or an accusation of injured justice, but it contains a note of grief, as though the Most High represented Himself to us as mourning like an ill-treated parent and deploring that after having dealt so well with His offspring they had made Him so base a return.

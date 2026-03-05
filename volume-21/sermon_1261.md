@@ -1,12 +1,5 @@
 # Sermon 1261 | Sow To Yourselves
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 24, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Sow to yourselves in righteousness, reap in mercy." Hosea 10:12.
 
 FARMERS are now devoting their attention to putting seed into the ground. They know right well that without sowing in the present they cannot expect a reaping in the future. Seedtime has many lessons. That which we shall learn this morning is very personal and practical. Our hearts are like a field and if we let them alone the only crop we shall get will be the natural weeds of the soil together with those tares which the evil spirit is quite sure to scatter whether we sow good seed or not. We are to sow beside all waters, but we must not neglect to sow to ourselves. There is need that we sow good seed in our own gardens, or else it will be of little use to us to have planted and watered others.

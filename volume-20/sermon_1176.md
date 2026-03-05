@@ -1,12 +1,5 @@
 # Sermon 1176 | The Eternal Day
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 31, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your sun shall no more go do wn, neither shall your moon withdraw itself: for the Lord shall be your everlasting light, and the days of your mourning shall be ended." Isaiah 60:20.
 
 ISRAEL of old had light while all the rest of the world sat in darkness. In consequence of receiving moral and spiritual light from God, the nation prospered, and under the smile of Heaven it was greatly enriched and multiplied. But, alas, the sun went down and the moon withdrew itself, for Israel turned aside and followed after idols, and the land was terribly smitten by the hostile sword. Upon her repentance her sun arose again and the daughters of Judah rejoiced, but again they went astray, for the zealous judge, or the godly king, or the pious priest died--and the nation, prone to backsliding, again provoked the Lord--and the light of His Countenance was withdrawn. This typical Church of God abode not in the light continually, its history was checkered with alternate brightness and gloom, repentance and relapse, prosperity and adversity.

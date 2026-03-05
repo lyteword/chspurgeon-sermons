@@ -1,7 +1,5 @@
 # Sermon 781 | Christus Et Ego
 
-A sermon
-
 "I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave Himself for me."- Galatians 2:20.
 
 IN great ranges of mountains there are lofty peaks which pierce the clouds, but, on the other hand, there are, here and there, lower parts of the range which are crossed by travelers. They become national highways and afford passages for commerce from land to land. My text rises before my contemplation like a lofty range of mountains, a very Andes for elevation! I shall not attempt, this morning, to climb the summits of its sublimity--we have not the time and we fear we have not the skill for such work--but I shall, to the best of my ability, conduct you over one or two practical Truths of God which may be serviceable to us this morning, and introduce us to sunny fields of contemplation.

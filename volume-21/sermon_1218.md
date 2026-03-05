@@ -1,12 +1,5 @@
 # Sermon 1218 | The Miracle of the Loaves
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They considered not the miracle of the loaves." Mark 6:52.
 
 Let us, with deep attention, consider the miracle of the loaves lest we fall into the same evil as that which happened to the disciples in the text. When they saw Jesus walking on the sea, "they were sore amazed in themselves and wondered: for they considered not the miracle of the loaves, for their heart was hardened." Hard hearts and painful unbeliefs spring up in the waste places where we bury our forgotten mercies. The miracles of our Lord Jesus Christ ought to be considered. They are not trifles and they ought not to be passed over as if they were the mere commonplace stories of a daily newspaper. Everything that has to do with the Son of God is a fit subject for the deepest study and all His sayings and works should be sought out by them that have pleasure therein.

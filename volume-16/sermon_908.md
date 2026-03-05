@@ -1,12 +1,5 @@
 # Sermon 908 | Assured Security In Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 2, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I know Whom I have believed, and am persuaded that He is able to keep that which Ihave committed unto Him against that day." 2 Timothy 1:12.
 
 IN the style of these Apostolic words there is a positiveness most refreshing in this age of doubt. In certain circles of society it is rare nowadays to meet with anybody who believes anything. It is the philosophical, the right, the fashionable thing, nowadays, to doubt everything which is generally received. Indeed, those who have any creed whatever are by the liberal school set down as old-fashioned dogmatists, persons of shallow minds, deficient in intellect, and far behind their age. The great men, the men of thought, the men of high culture and refined taste consider it wisdom to cast suspicion upon Revelation, and sneer at all definiteness of belief.

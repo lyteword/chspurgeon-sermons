@@ -1,8 +1,5 @@
 # Sermon 832 | The Best Cloak
 
-
-Delivered by C. H. SPURGEON at the [41]Metropolitan Tabernacle, Newington.
-
 "And was clad with zeal as a cloak.'" Isaiah 59:17.
 
 THE solitary champion who is here spoken of, who looked and, "saw that there was no man, and wondered that there was no intercessor"--and therefore His own arm brought salvation unto Him, and His righteousness it sustained Him--this conquering hero we cannot fail to recognize as the Lion of the tribe of Judah, the Prince of the House of David, our Lord Jesus Christ. Whatever may have been the first and primary meaning of the text, we are persuaded that the ultimate reference of it is to that destroyer of death, the Captain of our salvation, by whose struggles the whole host of the elect have obtained the victory!

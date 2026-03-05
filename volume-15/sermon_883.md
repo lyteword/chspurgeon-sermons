@@ -1,7 +1,5 @@
 # Sermon 883 | Multitudinous Thoughts And Sacred Comforts
 
-A sermon
-
 "In the multitude of my thoughts within me, Your comforts delight my soul."- Psalm 94:19.
 
 IF man were a mere animal, his joy and sorrow would depend entirely upon outward things. Let but the trough be full and the swine are happy. Let the pasture be abundant and the sheep are content. In the sunshine every sparrow will be twittering on the trees. Let the heavens weep and every wing is drooping. In long drought, or severe frost, or pinching famine the animal creation languishes and pines. You cannot, however, be sure of making a man happy by surrounding him with abundance, nor can you plunge a Christian man into wretchedness by any deprivations which you may cause him. Man's greatest joy or sorrow must arise from inner springs.

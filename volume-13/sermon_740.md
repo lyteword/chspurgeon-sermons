@@ -1,7 +1,5 @@
 # Sermon 740 | Stephen's Martyrdom
 
-A sermon
-
 "But he, being full of the Holy Spirit, looked up steadfastly into Heaven, and saw the glory of God, and Jesus standing at the right hand of God, and said, Behold, I see the heavens opened, and the Son of Man standing at the right hand of God."- Acts 7:55,56.
 
 TRUE Christian zeal will seek to do the highest work of which sanctified humanity is capable. Stephen is first heard of as a distributor of the alms of the Church to needy widows. He exercised what was virtually, if not nominally, the deacon's office. Being grave, and not double-tongued, and holding the mystery of the faith in a good conscience, he was well fitted for his work. Doubtless he used the office of a deacon well, and so purchased to himself a good degree and great boldness in the faith which is in Christ Jesus.

@@ -1,6 +1,5 @@
 # Sermon 1007 | North and South
 
-
 > "I will say to the north, Give up; and to the south, keep not back."  
 > Isaiah 43:6.  
 

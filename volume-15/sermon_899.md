@@ -1,7 +1,5 @@
 # Sermon 899 | The Unrivalled Friend
 
-A sermon
-
 "A friend loves at all times and a brother is born for adversity."- Proverbs 17:17.
 
 THERE is one thing about the usefulness of which all men are agreed, namely, friendship. But most men are soon aware that counterfeits of friendship are common as autumn leaves. Few men enjoy from others the highest and truest form of friendship. The friendships of this world are hollow. They are as unsubstantial as a dream, as soon dissipated as a bubble, as light as thistledown. Those airy compliments, those empty sentences of praise--how glibly they fall from the lips--but how little have they to do with the heart! He must be a fool, indeed, who believes that there is anything in the complimentary affection but mere flattery or matter of form.

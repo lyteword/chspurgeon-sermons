@@ -1,7 +1,5 @@
 # Sermon 750 | A Triumphal Entrance
 
-A sermon
-
 "Lift up your heads, O you gates! Lift them up, you everlasting doors! And the King of glory shall come in."- Psalm 24:9.
 
 ON Monday evening we expounded this Psalm. We then enlarged upon the glorious ascension of our Lord Jesus Christ and His triumphal entrance within the pearly gates of the New Jerusalem, to which we believe this verse is to be referred. Having on that occasion endeavored to set forth the literal and proper meaning of the words, amplifying them at some length, we trust we may be permitted to use them tonight rather by way of accommodation while we speak on quite another subject, and give a different turn to the flow of our thoughts. Not that we wish to supersede the natural sense of the prophetic song, although we think that without violence, and even with profit, we may borrow a sentence from it to point a moral of practical godliness.

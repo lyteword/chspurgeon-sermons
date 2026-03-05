@@ -1,14 +1,5 @@
 # Sermon 793 | Nearer and Dearer
 
-A sermon
-
-
-Delivered on Lord's-Day Morning, February 2, 1868, by
-
-H. SPURGEON
-
-at the [6]Metropolitan Tabernacle, Newington.
-
 "I sleep, but my heart wakes: it is the voice of my beloved that knocks, saying, Open to me, my sister, my love, my dove, my undefiled: for my head is filled with dew, and my locks with the drops of the night. I have put off my coat; how shall I put it on? I have washed my feet; how shall I defile them? My beloved put his hand by the hole of the door, and my heart was moved for him. I rose up to open to my beloved; and my hands dropped with myrrh, and my fingers with sweet smelling myrrh, upon the handles of the lock. I opened to my beloved; but my beloved had withdrawn himself, and was gone: my soul failed when he spoke: I sought him, but I could not find him; I called him, but he gave me no answer. The watchmen that want about the city found me, they smote me, they wounded me; the keepers of the walls took away my veil from me. I charge you, O daughters of Jerusalem, if you find my beloved, that you tell him that I am sick of love." Song of Solomon 5:2-8.
 
 THE most healthy state for a Christian is that of unbroken and intimate fellowship with the Lord Jesus Christ. From such a state of heart he should never decline. "Abide in Me, and I in you," is the loving precept of our ever loving Lord. But, alas, my Brethren, as in this world our bodies are subject to many sicknesses, so our souls, also, by reason of the body of this death with which we are encompassed, are often sorely afflicted with sin, sickness, and an evil heart of unbelief in departing from the Lord. We are not what we might be. We are not what we should be. We are not what we shall be. We are not what we wish to be. I fear that many of us are not walking in the light of God's countenance, are not resting with our heads upon the Savior's bosom, nor sitting with Mary at the Master's feet. We dwell in Kedar rather than Zion, and sojourn in Mesech rather than Jerusalem.

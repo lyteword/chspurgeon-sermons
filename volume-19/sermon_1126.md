@@ -1,12 +1,5 @@
 # Sermon 1126 | A Song Concerning Loving Kindnesses
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 10, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will mention the loving kindnesses of the Lord, and the praises of the Lord, according to all that the Lord has bestowed on us, and the great goodness toward the house of Israel, which He has bestowed on them according to His mercies, and according to the multitude of His loving kindnesses." Isaiah 63:7.
 
 THE chapter opens with a declaration of our glorious Lord, as to His ultimate overthrow of His foes. He declares that He will tread down all the enemies of His people, as grapes are trod in the winepress. The chapter, as you know, begins with that remarkable exclamation, "Who is this that comes from Edom, with dyed garments from Bozrah?" The Prophet, having beheld the glorious vision, and heard the proclamation of the victorious Hero, felt his soul stirred within him. It is usual for saints' hearts to burn within them when Christ is near. The glowing flames of his heart unloosed the bonds of his tongue--he could not but speak--and the theme which suggested itself to him was the loving kindness of the Lord.

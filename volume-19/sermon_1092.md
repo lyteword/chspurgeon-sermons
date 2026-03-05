@@ -1,12 +1,5 @@
 # Sermon 1092 | A Holy Celebration
 
-
-A SERMON DELIVERED BY
-
-REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "It is a night to be much observed unto the Lord." Exodus 12:42.
 
 OF course you will understand that our text relates to the Passover. This is its first meaning. The Israelites were enjoined never to forget that they were once slaves in Egypt and that God, with a strong hand, brought them forth. To help their memories an ordinance was instituted which was to be celebrated every year by every person in the nation. The young children were to be taught the meaning of that ordinance so that never in time should it be forgotten that God passed over His own people when He smote His enemies in the land of Egypt.

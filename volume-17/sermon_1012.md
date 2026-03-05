@@ -1,6 +1,5 @@
 # Sermon 1012 | The Unbeliever's Unhappy Condition
 
-
 > "He that believed, not the Son shall not see life; but the wrath of God abideth on him."  
 > John 3:36.  
 

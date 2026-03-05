@@ -1,6 +1,5 @@
 # Sermon 697 | God's Cure For Man's Weakness
 
-
 > "Out of weakness were made strong."  
 > Hebrews 11:34.  
 

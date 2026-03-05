@@ -1,7 +1,5 @@
 # Sermon 759 | Jesus Putting Away Sin
 
-A sermon
-
 "...now once in the end of the age has He appeared to put away sin by the sacrifice of Himself."- Hebrews 9:26.
 
 WHEN the conscience is unenlightened and the heart is rebellious, man is divided from his God by a false sense of personal righteousness. He imagines that God deals harshly with him, that He looks upon his sin in too severe a light, and that although He may be offended, yet, in some other respects, he has a claim upon the consideration of his Maker. As soon, however, as the Spirit of God illuminates the understanding, this self-righteousness disappears! It is a flimsy cobweb which the broom of the Law soon sweeps away. It is no more substantial than the mist of the morning, and it is at once dissipated by the rising sun of Divine Grace.

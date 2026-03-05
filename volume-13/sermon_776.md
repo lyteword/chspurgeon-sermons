@@ -1,7 +1,5 @@
 # Sermon 776 | A Song at the Wellhead
 
-A sermon
-
 "And from there they went to Beer, which is the well where the Lord said to Moses, 'Gather the people together, and I will give them water.' Then Israel sang this song, Spring up, O well! All of you sing to it--The princes dug the well, the nobles of the people dug it, by the direction of the la wgiver, with their sta ves."- Numbers 21:16-18.
 
 WE have remarked in our reading that the children of Israel were continually changing their places and that there was usually a great difference between one station and the next. So, also, we are constantly varying in our experience, and the variations are sometimes exceedingly remarkable. You observe, in the neighborhood of the text, that the people pitched their tents at one time by the brooks of Arnon. There appears to have been an exceedingly abundance of water where they then were, but nevertheless they removed into the wilderness where there was not a single drop to quench their thirst.

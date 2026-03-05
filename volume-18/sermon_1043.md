@@ -1,6 +1,5 @@
 # Sermon 1043 | Glorious Predestination
 
-
 'For whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren.''Romans 8:29.
 
 YOU WILL HAVE NOTICED that in this chapter, Paul has been expounding a very deep inward, spiritual experience. He has written concerning the spirit of bondage, and the spirit of adoption, the infirmities of the flesh, and the helpings of the spirit; the waiting for the redemption of the body, and the groanings which cannot be uttered. It was most natural, therefore, that a deep spiritual experience should bring him to a clear perception of the doctrines of grace, for such an experience is a school in which alone those great truths are effectually learned. A lack of depth in the inner life accounts for most of the doctrinal error in the church. Sound conviction of sin, deep humiliation on account of it, and a sense of utter weakness and unworthiness naturally conduct the mind to the belief of the doctrines of grace, while shallowness in these matters leaves a man content with a superficial creed. Those teachings which are commonly called Calvinistic doctrines are usually most beloved and best received by those who have had much conflict of soul, and so have learned the strength of corruption and the necessity of grace.

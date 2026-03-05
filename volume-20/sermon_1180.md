@@ -1,12 +1,5 @@
 # Sermon 1180 | Jesus Near but Unrecognized
 
-
-A SERMON DELIVERED BY
-
-H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But their eyes were restrained that they should not know Him." Luke 24:16.
 
 THE Lord may be present with His people and yet they may not be conscious of it. They may be conscious of the effect produced thereby, but not of the fact itself. When the Lord visited Abraham in his tent on the plains of Mamre, at the first, at least, Abraham thought he was receiving a wayfaring man and so he entertained the Angel of the Covenant unawares. When the Lord appeared unto Jacob he rose up from the vision and said, "Surely God was in this place, and I knew it not." Afterwards at the brook Jabbok, when the Covenant Angel wrestled with him, Jacob was not aware of the exact Character of the mysterious personage, for he said, "Tell me Your name." He did not understand who it was with whom he wept, made supplication and prevailed.

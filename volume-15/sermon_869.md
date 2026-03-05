@@ -1,7 +1,5 @@
 # Sermon 869 | The Gospel of Abraham's Sacrifice of Isaac
 
-A sermon
-
 "He that spared not His own Son, but delivered Him up for us all." - Romans 8:32.
 
 We have selected this verse as our theme, but our true text you will find in the 22nd chapter of Genesis, the narrative which we read to you this morning at full length and upon which we spoke in detail in our discourse. I thought it meet to keep to one point this morning, on the ground that one thing at a time is best and therefore I endeavored to lead your undivided contemplations to the peerless example of holy, believing obedience which the father of the faithful presented to us when he offered up his son.

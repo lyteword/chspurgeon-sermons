@@ -1,12 +1,5 @@
 # Sermon 1170 | "By All Means, Save Some"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 26, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That I might, by all means, save some." 1 Corinthians 9:22.
 
 THE Apostle speaks very broadly and talks about saving men. Some of our extremely orthodox Brothers would say at once, "You save men? How can man do that? The expression is inaccurate in the extreme. Is not salvation of the Lord from first to last? How can you, Paul, dare to speak of saving some?" Yet Peter spoke very much like this when he said, "Save yourselves from this untoward generation." Indeed, the expression is a little more bold, if anything, and if Peter were alive now he would be called to account. When Paul wrote to Timothy, he said to him, "Take heed unto yourself, and unto the doctrine; continue in them: for in doing this you shall both save yourself and them that hear you." This is another instance of language used in a popular sense by a man who had not the fear of critics before his eyes.

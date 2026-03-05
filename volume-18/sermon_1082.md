@@ -1,12 +1,5 @@
 # Sermon 1082 | The Life, Walk and Triumph of Faith
 
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when Abram was ninety-nine years old, the LORD appeared to Abram, and said unto him, I am the Almighty God; walk before Me, and be you perfect. And I will make My covenant between Me and you, and will multiply you exceedingly." Genesis 17:1,2.
 
 BELOVED, all Scripture is the Word of God but some Scripture is expressly so. Much of its teaching comes through inspired men but some of it was spoken by God's own mouth, directly and without instrumentality. Such are the Words now before us which were of old spoken to Abram by the Almighty God. These sentences ought for this reason to be regarded with peculiar reverence and considered with double attention. The glow of Divinity is fresh upon the lines-- bend, then, your souls to the understanding of them.

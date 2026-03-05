@@ -1,12 +1,5 @@
 # Sermon 1155 | The Chariots Of Amminadib
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Before I was even aware, my soul made me like the chariots of Amminadib." Song of Solomon 6:12.
 
 WE cannot be quite sure at this date what these chariots of Amminadib were to which the Inspired poet here refers. Some suppose that he may have alluded to a person of that name who was renowned, like Jehu of old, for his furious driving. Therefore it might have been familiar at the time and afterwards have become proverbial to speak in metaphor of the chariots of Amminadib. The conjecture seems harmless, still it is only a conjecture, and cannot be verified. It is quite possible, however, that our translators may have retained as a proper name a conjunction of two words, which, taken separately, are capable of being interpreted.

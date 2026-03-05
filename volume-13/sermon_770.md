@@ -1,7 +1,5 @@
 # Sermon 770 | The Water of Life
 
-A sermon
-
 "The woman said unto Him, Sir, give me this water." John 4:15.
 
 You will remember that our Savior had been speaking to the woman of Samaria concerning living water. He had endeavored to catch her attention by using a metaphor to her work and her position. Water was uppermost in her thoughts and Jesus sanctified the element to His own gracious end. Sitting at the well's mouth, I think I can see His earnest face and note the woman's wondering eyes while He talked to her as she had never been spoken to before concerning water which caused a man never to thirst again.

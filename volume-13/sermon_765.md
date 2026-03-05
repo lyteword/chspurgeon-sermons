@@ -1,7 +1,5 @@
 # Sermon 765 | Grace--the One Way of Salvation
 
-A sermon
-
 "But we believe that through the grace of the Lord Jesus Christ we shall be saved, even as they." Acts 15:11.
 
 You who are conversant with Scripture will recollect that these are the words of the Apostle Peter. Paul and Barnabas had been preaching the Gospel among the Gentiles with great success, but "certain of the sect of the Pharisees which believed could not get rid of their old Jewish bigotry and vehemently urged that the converted Gentiles ought to be circumcised, or else they could not be saved. They made a great clamor over this and there was no small dissension and disputation. The children of the bondwoman mustered all their forces, while the champions of glorious liberty arrayed themselves for the battle.

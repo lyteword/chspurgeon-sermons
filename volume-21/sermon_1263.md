@@ -1,12 +1,5 @@
 # Sermon 1263 | Hold Fast Your Shield
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Cast not away, therefore, your confidence, which has great recompense of reward." Hebrews 10:35.
 
 THE early Christians had to suffer for their faith. They were exposed to great ridicule and enmity. They were, indeed, the byword, the laughingstock and the derision of all mankind. There are still to be seen in Rome, in the praetorian guardroom, caricatures of Christians and of their Lord. I dare not mention what they are, but they are so insulting to everything which we hold dear, that they remain as lasting evidence that Christians were counted as the offscouring of all things for the sake of Jesus, their crucified Savior. Nor did it end in ridicule. They were deprived of their goods. Ruinous fines were exacted from them. They were driven from city to city and not thought worthy to dwell among the sons of men.

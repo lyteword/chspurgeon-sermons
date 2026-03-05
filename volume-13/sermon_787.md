@@ -1,7 +1,5 @@
 # Sermon 787 | A Song, A solace, A Sermon and a Summons
 
-A sermon
-
 "For His mercy endures forever."- Psalm 136:1.
 
 THIS 136th Psalm was constantly sung in the Temple by appointed singers, among whom the names of Heman and Jeduthun are mentioned. These, we are told in the Book of Chronicles, were chosen to give thanks unto Jehovah, whose "mercy endures forever." This continued service of song was most fitting, for, if Jehovah's mercy endures forever, our praise should endure forever! If His goodness never ceases, our thanksgiving should never be silent! It seemed to me most appropriate to direct your attention to this text in the closing Sunday of the year because it is a fit accompaniment to that upon which I addressed you on the first Sunday. [Good Cheer for the New Year, Sermon #728.]

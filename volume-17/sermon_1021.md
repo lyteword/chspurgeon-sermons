@@ -1,6 +1,5 @@
 # Sermon 1021 | Heaven's Nurse Children
 
-
 > "I taught Ephraim also to go, taking them by their arms."  
 > Hosea 11:3.  
 

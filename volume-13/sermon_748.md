@@ -1,7 +1,5 @@
 # Sermon 748 | Self-Humbling
 
-A sermon
-
 "Because your heart was tender, and you humbled yourself before God when you heard His words against thisplace, and against the inhabitants, and you humbled yourself before Me, and you tore your clothes, and wept before Me; Ialso have heardyou, says the Lord."- 2 Chronicles 34:27.
 
 JOSIAH was very earnestly engaged in a devout work for God--he was cleansing, beautifying, and repairing the Temple at Jerusalem. While this was being done, a copy of the Book of the Law being found, it was carried to the king, and the king at once diligently perused it. While reading it he discovered certain terrible penalties threatened to idolaters and other offenders, and knowing that his subjects had for successive years been guilty of the offenses thus condemned, he felt persuaded that the righteous judgments of God would come upon them. Greatly alarmed, though himself personally innocent of the guilt, he tore his clothes, wept, and humbled himself before the Most High.

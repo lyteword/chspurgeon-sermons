@@ -1,12 +1,5 @@
 # Sermon 1094 | Always and for All Things
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 2, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ." Ephesians 5:20.
 
 THE position of our text in the Epistle is worthy of observation. It follows the precept with regard to sacred song in which Believers are bid to speak to themselves and one another in Psalms and hymns and spiritual songs, singing and making melody in their hearts to the Lord. If they cannot be always singing they are always to maintain the spirit of song. If they must, of necessity, desist at intervals from outward expressions of praise, they ought never to refrain from inwardly giving thanks. The Apostle, having touched upon the act of singing in public worship, here points out the essential part of it which lies not in classic music and thrilling harmonies, but in the melody of the heart. Thanksgiving is the soul of all acceptable singing.

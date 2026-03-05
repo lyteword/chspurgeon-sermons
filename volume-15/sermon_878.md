@@ -1,7 +1,5 @@
 # Sermon 878 | A Well-ordered Life
 
-A sermon
-
 "Order my steps in Your Word and let not any iniquity have dominion over me."- Psalm 119:133.
 
 This is not the prayer of an unconverted man, or the cry of an awakened sinner foolishly expecting to find salvation in good works. It is the prayer of one who is saved and who knows it. The verse preceding the text shows this, for he asks to be mercifully dealt with as the Lord is accustomed to do unto those that love His name. He therefore is confident that he is one of those--that he is a partaker of Divine favor--and has the evidence of this in his love to the name of the Lord. Now, those persons who are truly saved are among the very loudest to cry out against anything like confidence in good works--you shall hear them denounce with all their hearts self-righteousness in every shape. You shall hear them preach up with might and main the righteousness of the Lord Jesus Christ as the only confidence upon which a soul may rest-- and yet at the same time these people are, of all others in the world, the most zealous for good works and the most earnest, themselves, to be holy and in the fear of God to adorn the doctrine of God their Savior in all things.

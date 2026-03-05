@@ -1,7 +1,5 @@
 # Sermon 731 | A Word in Season
 
-A sermon
-
 "When men are cast down, then you shall say, There is lifting up; and He shall save the humble person."- Job 22:29.
 
 ALTHOUGH we cannot take everything that Eliphaz the Temanite happened to say as being of Divine authority-- the immediate Inspiration of the Holy Spirit--yet in this case he evidently gives utterance to such a great and important Truth of God that we may regard these words of his as being the words of God, confirmed as they are by like sentiments to be found in other parts of the Scriptures. If you read the verse carefully you will sympathize with the perplexity of expositors who have been not a little puzzled to know which, out of three meanings, is the one intended. I shall not presume to pronounce an arbitrary decision, but after mentioning the three different constructions, I shall dwell upon the last, and amplify it for practical uses.

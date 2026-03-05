@@ -1,12 +1,5 @@
 # Sermon 1129 | The Heart Of Flesh
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 31, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will take away the stony heart out of your flesh, and I will give you an heart of flesh.'' Ezekiel 36:26.
 
 IT is a peculiar feature in our holy religion that it begins its work within and acts first upon the heart. Other religions, like that of the Pharisees, begin with outward forms and ceremonies, perhaps hoping to work inwardly from without, although the process never ends, for though the outside of the cup and of the platter is made clean, the inside still remains full of rottenness as before. No Truth of God is more sure than this concerning all the sons of men, "You must be born again."

@@ -1,7 +1,5 @@
 # Sermon 784 | The Rose and the Lily
 
-A sermon
-
 "I am the rose of Sharon, and the lily of the valleys.."- Song of Solomon 2:1.
 
 HERE are sweet flowers blooming serenely in this wintry weather. In the garden of the soul you may gather fragrant flowers at all seasons of the year. And although the soul's garden, like every other, has its winter, yet, strange to say, no sooner do the roses and the lilies mentioned in the text begin to bloom than the winter flies and the summer smiles! Outside, in your garden, the summer brings the roses, but within the enclosure of the heart the roses and lilies create the summer.

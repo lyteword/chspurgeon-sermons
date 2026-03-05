@@ -1,8 +1,5 @@
 # Sermon 824 | The Heavan of Heavan
 
-
-Delivered on lord's-day morning, august 9, 1868 by C. H. SPURGEON, at the [34]Metropolitan Tabernacle, Newington.
-
 "And they shall see His face." Revelation 22:4.
 
 THE Italians so much admire the city of Naples that their proverb is, "See Naples and die," as if there remained nothing more to be seen after that fair bay and city had been gazed upon. To behold the far fairer sight mentioned in the text, men might well be content to die a thousand times! If it shall please God that we shall depart this life before the Master's appearing, we may laugh at death and count it to be gain, seeing that it introduces us to the place where we shall see His face. "You cannot see My face and live," said the Lord of old. But that was true of mortals only, and refers not to immortals who have put on incorruption!

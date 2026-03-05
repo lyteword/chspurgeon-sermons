@@ -1,10 +1,5 @@
 # Sermon 910 | Overwhelming Obligations
 
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "What shall I render unto the Lord for all His benefits toward me?" Psalm 116:12.
 
 DEEP emotion prompts this question. But where are the depths of love and gratitude that can meet its exuberant demands? You will perhaps remember an incident in the life of a famous soldier, who also became a famous Christian, Colonel James Gardiner. One night he was little thinking of Divine things, but on the contrary had made an appointment of the most vicious kind. He was waiting for the appointed hour when he saw, or thought he saw before him in the room where he sat alone, a visible representation of the Lord Jesus Christ upon the Cross.

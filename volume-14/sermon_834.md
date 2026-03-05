@@ -1,8 +1,5 @@
 # Sermon 834 | The Universal Remedy
 
-
-Delivered on Lord's-Day Morning, October 4, 1868, by C. H. SPURGEON, at the [43]Metropolitan Tabernacle, Newington.
-
 "With His stripes we are healed." Isaiah 53:5.
 
 I RECEIVED, one day this week, a short communication worded on this wise: "Wanted, a cure for a weak and doubting faith, especially when Satan disinclines to pray." Anxiously desirous to prescribe cures for such maladies, and for any others which may vex the Lord's people, I began to turn over in my mind what were the sacred remedies for such a case, and I could only remember one, "The leaves of the tree were for the healing of the nations." Our Lord Jesus is to us a Tree of Life, and by the leaves, I suppose, the Holy Spirit means the acts, words, promises, and lesser griefs of Jesus-- all of which are for the healing of His people. Then my mind reverted to this kindred text: "With His stripes we are healed." Not merely His bleeding wounds, but even those blue bruises of His flesh help to heal us. Not alone the work of the nails and the spear, but the cruel handiwork of the rod and the scourge.

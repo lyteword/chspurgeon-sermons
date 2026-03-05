@@ -1,7 +1,5 @@
 # Sermon 760 | The Sweet Harp of Consolation
 
-A sermon
-
 "Fear not, for I am with you."- Isaiah 41:10.
 
 WE sometimes speak and think very lightly of doubts and fears, but such is not God's estimate of them. Our heavenly Father evidently considers them to be great evils, extremely mischievous to us and exceedingly dishonorable to Himself, for He very frequently forbids our fears, and as often affords us the most potent remedies for them. "Fear not" is a frequent utterance of the Divine mouth. "I am with you" is the fervent, soul-cheering argument to support it. Unless the Lord had judged our fears to be a great evil He would not so often have forbidden them, or have provided such a heavenly quietus for them.

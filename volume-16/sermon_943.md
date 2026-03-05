@@ -1,12 +1,5 @@
 # Sermon 943 | The Spur
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 31, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I must work the works of Him that sent Me, while it is day: the night comes, when no man can work." John 9:4.
 
 IF this ninth chapter of John is intended to be a continuation of the history contained in the eighth, as we think it is, it brings before us a very extraordinary fact. You will observe in the eighth chapter that our Lord was about to be stoned by the Jews. He therefore withdrew Himself from the circle of His infuriated foes, and passed through the crowd, not, I think, in a hurried manner, but in a calm and dignified way--as one not at all disconcerted, but wholly self-possessed. His disciples, who had seen His danger, gathered round Him while He quietly retreated. The group wended their way with firm footsteps till they reached the outside of the Temple.

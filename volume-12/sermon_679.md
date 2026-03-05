@@ -1,6 +1,5 @@
 # Sermon 679 | The Amen
 
-
 > "The Amen."  
 > Revelation 3:14.  
 

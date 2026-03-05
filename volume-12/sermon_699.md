@@ -1,6 +1,5 @@
 # Sermon 699 | Sin Condemned And Executed By Christ Jesus
 
-
 > "For what the law could not do in that it was weak through the flesh, God did by sending His own Son in the likeness of sinful flesh, on account of sin: He condemned sin in the flesh."  
 > Romans 8:3.  
 

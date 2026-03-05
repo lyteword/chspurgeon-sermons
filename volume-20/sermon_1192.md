@@ -1,12 +1,5 @@
 # Sermon 1192 | Hindrances to Prayer
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 13, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That your prayers be not hindered." 1 Peter 3:7.
 
 TO many persons this discourse will have but little reference because they do not pray. I fear, also, there are some others whose prayers are so worthless that if they were hindered it would be of no very material consequence. It is even possible that their being forced to omit them might arouse them out of a self-righteous lethargy. Merely to bow the knee in formality, to go through a form of devotion in a careless or half-hearted manner is rather to mock God than to worship Him. It would be a terrible theme for contemplation to consider how much of vain repetition and heartless praying the Lord is wearied with from day to day. I would, however, most solemnly remind those who do not truly pray that the wrath of God abides on them! He who never seeks for mercy has certainly never found it. Conscience acknowledges it to be a righteous thing with God that He should not give to those who will not ask.

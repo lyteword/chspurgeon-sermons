@@ -1,6 +1,5 @@
 # Sermon 713 | Soul Murder--Who Is Guilty?
 
-
 > "Deliver me from the guilt of bloodshed, O God, The God of my salvation, And my tongue shall sing aloud of Your righteousness."  
 > Psalm 51:14.  
 

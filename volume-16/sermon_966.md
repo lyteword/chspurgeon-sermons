@@ -1,12 +1,5 @@
 # Sermon 966 | Joseph's Bones
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 18, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By faith Joseph, when he died, made mention of the departing of the children of Israel. And gave commandment concerning his bones." Hebrews 11:22.
 
 WE cannot readily tell which action in a gracious life God may set the most store by. The Holy Spirit in this chapter selects out of good men's lives the most brilliant instances of their faith. I should hardly have expected that He would have mentioned the dying scene of Joseph's life as the most illustrious proof of his faith in God. That eventful life, perhaps the most interesting in all sacred Scripture, with the exception of One, abounds with incidents of which the Holy Spirit might have said by His servant Paul, "By faith Joseph did this and that," but none is mentioned save the closing scene. The triumph especially of his chastity under well-known and exceedingly severe temptation, might have been very properly traced to the power of his faith, but it is passed over, and the fact that he gave commandment concerning his bones is singled out as being the most illustrious proof of his faith.

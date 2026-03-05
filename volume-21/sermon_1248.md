@@ -1,12 +1,5 @@
 # Sermon 1248 | The Choice Of A Leader
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And he spoke a parable unto them, Can the blind lead the blind? Shall they not both fall into the ditch? The disciple is not above his master: but everyone that is perfect shall be as his master." Luke 6:39, 40.
 
 MAN can hardly be retained in the place of wisdom, even if brought there. Truth lies between two extremes and man, like a pendulum, swings either too much this way or that. He abides not long in one place, but tosses from side to side, never, except by Divine Grace, finding rest in the middle point of wisdom. Two extremes exist in reference to the pilgrimage and scholarship of life. Some assert that man needs no guide whatever. Is he not a noble creature, gifted with high intelligence? Can he not reason and judge, and understand and discern? He can surely find his own way without direction from without. As a learner, why does he need a teacher? He can instruct himself! Is he not possessed of science? Has he not already found out many inventions?

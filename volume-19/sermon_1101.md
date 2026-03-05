@@ -1,12 +1,5 @@
 # Sermon 1101 | An Old-Fashioned Conversion
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 16, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Lo, all these things works God oftentimes with man, To bring back his soul from thepit, to be enlightened with the light of the living." Job 33:29,30.
 
 SOME people are wonderfully enamored of anything that is old. An old coin, an old picture, an old book, or even a piece of antique rubbish they will almost worship. The jingle of a rusty medal is music to them, and "auld nick-nackets" are as precious as diamonds. It is wonderful what a little mold and a few worm-holes will do in the way of increasing values! I confess I do not very greatly share in the feeling, at least it is no craze of mine but, nevertheless, all things being equal, antiquity has its charms. Old, old stories of the days far past, when time was young, have a special interest. They are as windows which permit us to gaze down the dim aisles of ages long gone by--we look through them with mingled curiosity and awe.

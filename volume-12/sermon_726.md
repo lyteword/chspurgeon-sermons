@@ -1,6 +1,5 @@
 # Sermon 726 | Life Eternal
 
-
 > "And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of My hand."  
 > John 10:28.  
 

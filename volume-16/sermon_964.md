@@ -1,12 +1,5 @@
 # Sermon 964 | The Essence Of The Gospel
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 4, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that believes on Him is not condemned. But he that believes not is condemned already, because he has not believed in the name of the only begotten Son of God." John 3:18.
 
 I MAY have preached from this text before. I may have done so several times. If I have not, I ought to have. It is the whole Bible in miniature. We may say of it so many words, so many volumes, for every single syllable here is charged to the full with meaning. We may read it, and re-read it, and continue still to read it day and night, yet ever find some fresh instruction in it. It is the essence of the Gospel. The good news in brief. When our Lord Jesus Christ shall come a second time, before Him shall be gathered all nations, and He shall separate them one from another, as the shepherd divides the sheep from the goats.

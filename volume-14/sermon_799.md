@@ -1,14 +1,5 @@
 # Sermon 799 | Jesus, the Example of Holy Praise
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, March 8, 1868, by
-
-H. SPURGEON,
-
-at the [12]Metropolitan Tabernacle, Newington.
-
 "I will declare Your name unto My brethren: in the midst of the congregation will I praise You. You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel." Psalm22:22,23.
 
 WE greatly esteem the dying words of good men, but what must be the value of their departing thoughts! If we could pass beyond the gate of speech and see the secret things which are transacted in the silent chambers of their souls at the moment of departure, we might greatly value the revelation, for there are thoughts which the tongue could not and must not utter, and there are deep searchings of heart which are not to be expressed by syllables and sentences. If, by some means we could read the inmost death-thoughts of holy men, we might be privileged, indeed.

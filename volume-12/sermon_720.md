@@ -1,6 +1,5 @@
 # Sermon 720 | The Gospel's Healing Power
 
-
 > "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the la w sitting by, which were come out of every town of Galilee, and Judea, and Jerusalem: and the power of the Lord was present to heal them."  
 > Luke 5:17.  
 

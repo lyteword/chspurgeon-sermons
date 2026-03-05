@@ -1,7 +1,5 @@
 # Sermon 733 | Unstaggering Faith
 
-A sermon
-
 "And being not weak in faith, he considered not his own body now dead, when he was about an hundred years old, neither yet the deadness of Sarah's womb. He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God, and being fully persuaded that what He had promised, He was able also to perform."- Romans 4:19-21.
 
 IT was God's purpose that Abraham should be a surpassingly excellent example of the power of faith. He was to be "the father of the faithful," the mirror, pattern and paragon of faith. He was ordained to be the supreme Believer of the patriarchal age, the serene and venerable leader of the noble army of Believers in Jehovah, the faithful and true God. In order to produce so eminent a character it was necessary that Abraham's faith should be exercised in a special and unequalled manner. The power of his faith could not be known except by putting it to the severest tests. To this end, among other trials of his faith, God gave him a promise that in his seed should all the nations of the earth be blessed, and yet for many a year he remained without an heir.

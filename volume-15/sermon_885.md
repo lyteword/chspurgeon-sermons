@@ -1,7 +1,5 @@
 # Sermon 885 | Serving The Lord
 
-A sermon
-
 "Serving the Lord."- Romans 12:11.
 
 THE harmony of Scripture is admirable. Everything is proportionate and balanced. He who weighed the mountains in scales has had a clear eye to the adjustment of truth in His Word. Within these pages you find a sufficiency of doctrine, for it is the basis of practice. You read abundance of promise, for it is the support of perseverance. But, you meet, also, with frequency of precept, for it is the spur and guide of holiness. We could not afford to dispense with a verse of Holy Writ. The removal of a single text, like the erasure of a line of a great epic, would mar the completeness and connection of the whole. As well pluck a gem from the high priest's breastplate as erase a line of Revelation.

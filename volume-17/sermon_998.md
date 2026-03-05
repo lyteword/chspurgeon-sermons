@@ -1,6 +1,5 @@
 # Sermon 998 | More and More
 
-
 > "But I will hope continually, and will yet praise thee more and more."  
 > Psalm 71:14.  
 

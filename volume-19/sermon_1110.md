@@ -1,12 +1,5 @@
 # Sermon 1110 | Miracles Of Love
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You have loved my soul out of the pit of corruption." Isaiah 38:17
 
 (Marginal reading).

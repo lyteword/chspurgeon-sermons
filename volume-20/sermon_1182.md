@@ -1,12 +1,5 @@
 # Sermon 1182 | A Singular Title and a Special Favor
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 12, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The God of my mercy shall prevent me." Psalm 59:10.
 
 A LIFE without trouble would be very uninteresting. Our opportunities for greatness would be narrowed down if trials were gone. I watched a glorious sunset, marveling at the beauty of the evening skies all ablaze and adoring Him who gave them their matchless coloring. On the next evening I resorted to the same spot, hoping to be, again, enraptured with the gorgeous pomp of the ending day, but there were no clouds and, therefore, no glories. True, the canopy of sapphire was there, but no magnificent array of clouds to form golden masses with edges of burning crimson, or islands of loveliest hue set in a sea of emerald. There were no great conflagrations of splendor or flaming peaks of mountains of fire. The sun was as bright as before, but for lack of dark clouds on which to pour out his luster, his magnificence was unrevealed.

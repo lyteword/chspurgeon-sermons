@@ -1,12 +1,5 @@
 # Sermon 1253 | The Lion-slayer--the Giant-killer
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 5, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your servant slew both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he has defied the armies of the living God. David said moreover, the Lord that delivered me out of the paw of the lion and out of thepaw of the bear, He will deliver me out of the hand of this Philistine." 1 Samuel 17:36,37.
 
 WE have all thought a great deal of the courage of David in meeting giant Goliath, but probably we have not given him credit for his conduct in a previous contest. We have not sufficiently noticed that immediately before the encounter with the Philistine he fought a battle which cost him far more thought, prudence and patience. The battle of words in which he had to engage with his brothers and with King Saul was a more trying ordeal to him than going forth in the strength of the Lord to smite the uncircumcised boaster. Many a man meets with more trouble from his friends than from his enemies. And when he has learned to overcome the depressing influence of prudent friends he makes short work of the opposition of avowed adversaries.

@@ -1,8 +1,5 @@
 # Sermon 843 | Effectual Calling--Illustrated by the Call of Abram
 
-
-Delivered on Lord's-Day Morning, November 29, 1868, by C. H. SPURGEON, at the [50]Metropolitan Tabernacle, Newington.
-
 "They went forth to go into the land of Canaan; and into the land of Canaan they came.'" Genesis 12:5.
 
 IF you desire to know the character or a child, you will probably learn much about it from observing the father. The young bird flies and sings as its father did before it. If we would know the life of the child of faith, we should study the history of the "father of the faithful." Abraham, the man of faith, is a type of all believing men, and the narrative of his life, if rightly considered, is the mirror of the history of all the saints of God. The commencement of his career of faith, when he first became separated from his own country and went into the land of Canaan, is a most instructive representation of our effectual calling--when we are, by a work of Omnipotent Grace, separated from the world, and made to obey the great precept, "Come you out from among them, be you separate, and touch not the unclean thing; and I will receive you, and will be a Father unto you, and you shall be My sons and daughters."

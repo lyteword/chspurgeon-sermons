@@ -1,12 +1,5 @@
 # Sermon 1208 | Infallibility--Where To Find It and How To Use It
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 20, 1874,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "It is written." Matthew 4:4.
 
 THOUGHTFUL minds anxiously desire some fixed point of belief. The old philosopher wanted a fulcrum for his lever and believed that if he could only obtain it he could move the world! It is uncomfortable to be always at sea--we would gladly discover terra firma and plant our feet upon a rock. We cannot rest till we have found out something which is certain, sure, settled, decided and no longer to be questioned. Many a mind has peered into the hazy region of rationalism and has seen nothing before it but perpetual mist and fog. And, shivering with the cold chill of those arctic regions of skepticism, it has yearned for a clearer light, a warmer guide, a more tangible belief.

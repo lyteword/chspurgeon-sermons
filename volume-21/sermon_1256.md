@@ -1,12 +1,5 @@
 # Sermon 1256 | The Old Man's Sermon
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 26, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O God, You ha ve taught me from my youth: and until this time ha ve I declared Your wondrous works. Now, also, when I am old and gray-headed, O God, forsake me not, until I have showed Your strength unto this generation, and Your power to everyone that is to come." Psalm 71:17,18.
 
 I EXPECT, during the present week, to have the pleasure of preaching at Kettering, to celebrate the centenary of the ministry in that place of Mr. Toller and his father. My esteemed friend, Mr. Toller, has for about 55 years proclaimed the Gospel of the Grace of God to the same people, and with the 45 years of his father's previous pastorate the century is completed! Having this very pleasant task before me, I have been led to consider the subject of old age and especially the old age of Believers, and have concluded that "the reminiscences of an old man" would furnish us a suitable topic for this morning's discourse. I was the more led to choose the subject because on Sabbath week the children and young people will have a claim upon the preacher, since that day has been selected by the Sunday School Union for special prayer.

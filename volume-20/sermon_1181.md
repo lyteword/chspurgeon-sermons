@@ -1,12 +1,5 @@
 # Sermon 1181 | Thinking and Turning
 
-
-ASERMON DELIVERED ON LORD'S-DAY MORNING, JULY 5, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I thought on my ways, and turned my feet unto Your testimonies" Psalm 119:59.
 
 ALMOST every phase of spiritual life is depicted in the Psalms, but we shall not always find in them the interpretation of those deep exercises of soul with which the Believer grows familiar. We must look to the New Testament for full discourses upon the indwelling of the Holy Spirit, upon the conflicting forces of Divine Grace, depraved nature and for the other causes which produce the mysterious experience of the Christian. In the Old Testament we get the facts--in the New Testament we find the explanation of the facts. The statement of David, which is now before us, doubtless sets forth the experience of many here present in this assembly--"I thought on my ways, and turned my feet unto Your testimonies."

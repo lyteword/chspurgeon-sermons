@@ -1,12 +1,5 @@
 # Sermon 1079 | The Secret Food And The Public Name
 
-
-A SERMON DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your Words were found, and I did eat them; and Your Word was unto me the joy and rejoicing of my heart: for I am called by Your name, O Lord God of Hosts." Jeremiah 15:16.
 
 JEREMIAH had been greatly persecuted for his faithfulness in delivering the Word of God. He tells us the reason for his continuance in a work which brought him so sorrowful a reward. He makes us understand that he had been faithful in delivering God's Word because that Word had been overpoweringly precious to his own soul. He could not do otherwise than speak the Truth of God, because that Truth had been his own daily food. He had met with nothing but ill-treatment from those whom he addressed. They had vilified him in every way--he had been put into the most noisome dungeon. He had been denied even bread and water--everything short of actually putting him to death had been inflicted upon him by his ungrateful countrymen.

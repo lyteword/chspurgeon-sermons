@@ -1,12 +1,5 @@
 # Sermon 913 | Method and Music, Or the Art of Holy and Happy Living
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 30, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And whatever you do in word or deed, do all in the name of the Lord Jesus, giving thanks to God the Father by Him." Colossians 3:17.
 
 IT is always an advantage to have the laws of a kingdom as concise as possible. No one will ever be able to tell how much of litigation and consequent calamity has been caused in this country by the confused condition of our laws. When Napoleon issued his celebrated "Code Napoleon," which is an admirable summary of French Law, he conferred upon the empire one of the greatest gifts and proved himself a wise ruler.

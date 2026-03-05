@@ -1,12 +1,5 @@
 # Sermon 1062 | Why Am I Thus?
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, MARCH 14, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I delight in the Law of God after the inward man. But I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members." Romans 7:22,23.
 
 LAST Thursday evening, as many of you will remember, I addressed you upon the final perseverance of the saints. I have been greatly surprised and gratified during the week to learn how many persons found comfort and cheer from the simple explanation of that doctrine which I gave you. In fact, on the past two Thursday evenings [PERSEVERANCE without presumption, #1056, and A persuasive TO steadfastness, #1042] we have been handling a precept and a promise both relating to the same matter, though each putting it in a different light. The one admonished us to perseverance by holding fast--the other assured us of preservation because we are fast held.

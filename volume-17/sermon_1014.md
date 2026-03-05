@@ -1,6 +1,5 @@
 # Sermon 1014 | "Nunc Dimittis"
 
-
 > "Lord, now lettest thou thy servant depart in peace, according to thy word: for mine eyes have seen thy salvation."  
 > Luke 2:29-30.  
 

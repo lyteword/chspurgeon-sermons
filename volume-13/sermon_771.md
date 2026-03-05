@@ -1,7 +1,5 @@
 # Sermon 771 | Seeing Jesus
 
-A sermon
-
 "We see Jesus." Hebrews 2:9.
 
 THE Apostle, in this verse, does not claim to have seen the Lord in the flesh, although he boasts in another passage that he has done so, and asserts it as one of the proofs of his Apostleship. He is not, indeed, in this text referring to any seeing of the Lord by mortal eyes at all--he is speaking offaith--he means a spiritual sight of the Lord Jesus Christ. The point to which I shall have to draw your attention this evening is that sight is very frequently used in Scripture as a metaphor, an illustration, a symbol to set forth what faith is.

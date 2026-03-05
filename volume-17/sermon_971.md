@@ -1,6 +1,5 @@
 # Sermon 971 | The Open Fountain
 
-
 > "In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem for sin and for uncleanness."  
 > Zechariah 13:1.  
 

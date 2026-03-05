@@ -1,12 +1,5 @@
 # Sermon 1158 | The Sieve
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Not everyone that says unto Me, Lord, Lord, shall enter into the kingdom of Heaven; but he that does the will of My Father which is in Heaven." Matthew 7:21.
 
 IN reading this chapter one is led to feel that it is not, after all, an easy thing to be a sincere Christian. The way is hard, the road is narrow. Who will, may represent the way to Heaven as being easy, but our Savior does not speak so of it. "Strait is the gate and narrow is the way, and few there are that find it." "Many are called and few chosen." The difficulty of being right is increased by the fact that there are men in the world whose trade it is to make counterfeits. There were, and there are, many false prophets. Our Savior has spoken about them in this chapter and given us a way of testing them--but they are still carrying on their trade as successfully as ever.

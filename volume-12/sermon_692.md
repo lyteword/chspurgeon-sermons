@@ -1,6 +1,5 @@
 # Sermon 692 | Joy And Peace In Believing
 
-
 > "Joy and peace in believing.'"  
 > Romans 15:13.  
 

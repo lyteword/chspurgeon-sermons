@@ -1,7 +1,5 @@
 # Sermon 860 | Mourning at the Sight of the Crucified
 
-A sermon
-
 "And all the people that came together to that sight, beholding the things which were done, smote their breasts and returned."- Luke 23:48.
 
 MANY in that crowd came together to behold the crucifixion of Jesus, in a condition of the most furious malice. They had hounded the Savior as dogs pursue a stag and at last, all mad with rage, they hemmed Him in for death. Others, willing enough to spend an idle hour and to gaze upon a sensational spectacle, swelled the mob until a vast assembly congregated around the little hill upon which the three crosses were raised. There unanimously, whether of malice or of wantonness, they all joined in mockery of the Victim who hung upon the center Cross. Some thrust out their tongue. Some wagged their heads. Others scoffed and jeered--some taunted Him in words and others in signs--but all alike exulted over the defenseless man who was given as a prey to their teeth.

@@ -1,6 +1,5 @@
 # Sermon 675 | Spring In The Heart
 
-
 > "You water the ridges abundantly: You settle the furrows: You make it soft with showers: You bless its growth."  
 > Psalm 65:10.  
 

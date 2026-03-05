@@ -1,6 +1,5 @@
 # Sermon 669 | Open Heart For The Great Savior
 
-
 > "But as many as received Him, to them ga ve He power to become the sons of God, even to them thatbelieve on His name: who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God."  
 > John 1:12.  
 

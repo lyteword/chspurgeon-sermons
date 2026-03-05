@@ -1,8 +1,5 @@
 # Sermon 821 | Hope in Hopeless Cases
 
-
-Delivered on Lord's-Day Morning, July 19, 1868, by C. H. SPURGEON, at the [31]Metropolitan Tabernacle, Newington.
-
 "Bring him here to Me." Matthew 17:17.
 
 OUR real text will be the entire narrative, but as it seems necessary to select some one sentence, we have chosen that before us as the true hinge of the story. The kingdom of our Lord Jesus Christ, while on earth, was so extensive as to touch the confines both of Heaven and Hell. We see Him at one moment discoursing with Moses and Elijah in His Glory, as though at Heaven's gates, and lo, in a few hours we see Him confronting a foul spirit, as though defying the infernal pit. There is a long journey from Patriarchs to demons, from Prophets to dumb devils, yet mercy prompts Him and power supports Him so that He is equally glorious in either place!

@@ -1,8 +1,5 @@
 # Sermon 828 | Dying Daily
 
-
-Delivered on lord's day morning, august 30, 1868, by C. H. SPURGEON, at the [38]Metropolitan Tabernacle, Newington.
-
 "I die daily." 1 Corinthians 15:31.
 
 IN a certain sense we all do this. The very moment we begin to live we commence to die. We are like hour-glasses-- there are fewer sands left to run from the very moment they begin to trickle down. The whole of our life is like an ebbing tide--our first months and years may look like advancing waves, but the whole is retreating, and by-and-by the living flood will be replaced by the mire of death--

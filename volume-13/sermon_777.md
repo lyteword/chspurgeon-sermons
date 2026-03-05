@@ -1,7 +1,5 @@
 # Sermon 777 | Helps
 
-A sermon
-
 "And God has set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues."- 1 Corinthians 12:28.
 
 IT appears, according to the Apostle Paul, in regard to the diversity of gifts which proceeded from the selfsame Spirit of God, those who gave assistance to the early Church did so in different ways. He tells us, "God has set some in the church, first apostles." These were to go from place to place founding churches and ordaining ministers. There were next, "secondarily, prophets," some of whom uttered prophecies and others were gifted in their explanation. Then came, "thirdly, teachers," who were probably either pastors settled in many churches teaching the Word, or else evangelists journeying about and proclaiming the Truths of God.

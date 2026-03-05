@@ -1,12 +1,5 @@
 # Sermon 1144 | A Mighty Plea
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 23, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You have been my help; leave me not, neither forsake me." Psalm 27:9.
 
 IN times of distress it is somewhat a difficulty to have a choice of helpers, because while we are making our selection, the danger may have overtaken us. While the fox was considering which way to run, the hounds had seized him. While the sick man was selecting the physician and considering the medicine, his disease carried him off. It is well to be shut up to one sole help, if that help is all we need. It is for our good, in such a case, to have no alternative, but to have, as the old proverb has it, Hobson's choice--that or none.

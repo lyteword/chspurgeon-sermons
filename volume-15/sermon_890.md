@@ -1,7 +1,5 @@
 # Sermon 890 | The Bellows Burned
 
-A sermon
-
 "The bellows are burned."- Jeremiah 6:29.
 
 THE Prophets frequently spoke in parables. They did this partly to excite the attention of their hearers. Those to whom they spoke might not have listened to didactic truth expressed in abstract terms, but when they heard mention of common things, such as bellows and lead and brass, they turned aside and asked, "What is this which this man has to say?" Moreover, metaphors often convey to the mind truth which otherwise would not have reached the understanding, for men frequently see under the guise and form of an illustration a doctrine which, if it had been nakedly stated, they could not have comprehended.

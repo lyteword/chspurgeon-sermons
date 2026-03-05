@@ -1,12 +1,5 @@
 # Sermon 1227 | Spiritual Appetite
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The full soul loathes the honeycomb; but to the hungry soul every bitter thing is sweet." Proverbs 27:7.
 
 IT is a great blessing when food and appetite meet together. Some have appetite and no meat, they need our pity. Others have meat but no appetite. They may not, perhaps, win our pity but they certainly require it. We have heard of a gentleman who was accustomed to take an early morning walk and frequently met a poor man hastening to his labor. One morning he said to him, "I have to walk this early each morning to get a stomach for my meat." "Ah," said the other, "and I have to trudge to work this early to get meat for my stomach." Neither of them was quite satisfied with his position--only the happy conjunction of the appetite and the food could secure content.

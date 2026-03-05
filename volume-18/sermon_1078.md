@@ -1,12 +1,5 @@
 # Sermon 1078 | The Saints Blessing The Lord
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 20, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Bless the Lord, O my Soul: and all that is within me, bless His holy name." Psalm 103:1.
 
 You see here a man talking to himself, a soul with all his soul talking to his soul. Every speaker should learn to soliloquize. His own soul is the first audience a good man ought to think of preaching to. Before we address ourselves to others we should lecture within the doors of our own heart. Indeed, if any man desires to excite the hearts of others in any given direction, he must first stir up himself upon the same matter. He who would make others grateful must begin by saying, "Bless the Lord, O my Soul."

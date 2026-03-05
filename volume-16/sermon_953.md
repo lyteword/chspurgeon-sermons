@@ -1,12 +1,5 @@
 # Sermon 953 | Done In A Day, But Wondered At Forever
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 25, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will remove the iniquity of that land in one day. In that day, says the Lord of hosts. They shall call every man his neighbor under the vine, and under the fig tree." Zechariah 3:9,10.
 
 WE cull the text from one of Zechariah's most instructive visions. It is a stone from a diamond field. All the context is rich in precious things, but we cannot, though we would be very glad to do so, linger over them this morning. We must be satisfied with this one brilliant stone. Taking the text as it stands, and by itself, it is evidently descriptive of those long expected and happy days when God will once and for all forgive His Israel and restore His long-banished ones to their former place of favor and ofjoy. As a consequence thereof, He shall cause them to dwell in their own land under the happiest circumstances, surrounded by peace and enjoyment, praising and blessing the God of mercy.

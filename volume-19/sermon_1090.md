@@ -1,12 +1,5 @@
 # Sermon 1090 | For The Troubled
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 12, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your wrath lies hard upon me, and You have afflicted me with all Your waves." Psalm 88:7.
 
 IT is the business of a shepherd not only to look after the happy ones among the sheep, but to seek after the sick of the flock and to lay himself out right earnestly for their comfort and succor. I feel, therefore, that I do rightly when I, this morning, make it my special business to speak to such as are in trouble. Those of you who are happy and rejoicing in God, full of faith and assurance, can very well spare a discourse for your weaker Brothers and Sisters--you can be even glad and thankful to go without your portion that those who are depressed in spirit may receive a double measure of the wine of consolation.

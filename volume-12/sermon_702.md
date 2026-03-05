@@ -1,6 +1,5 @@
 # Sermon 702 | Peter's Three Calls
 
-
 > "The two disciples heard him speak, and they followed Jesus."  
 > John 1:37.  
 

@@ -1,12 +1,5 @@
 # Sermon 1198 | The Master
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "She called Mary her sister secretly, saying, The Master is come, and calls for you." John 11:28.
 
 I SUPPOSE by Martha's whispering the word, "The Master," in Mary's ear, that it was the common name by which the sisters spoke of our Lord to one another in His absence. Perhaps it was His usual name among all the disciples, for Jesus said, "You call me Master and Lord: and you say well; for so I am." It often happens that for persons whom we love we have some special title by which we speak of them familiarly when we are in the circle of those who join in our esteem of them. Instead of always using their official titles or their actual names, there is some one name which we have attached to them which calls up happy associations, or reminds us of endearing traits in their character and, therefore, it is very sweet in our mouths.

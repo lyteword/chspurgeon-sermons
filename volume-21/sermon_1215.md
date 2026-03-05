@@ -1,12 +1,5 @@
 # Sermon 1215 | Solemn Pleadings for Revival
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 3, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Keep silence before Me, O islands; and let the people renew their strength: let them come near; then let them speak: let us come near together tojudgment." Isaiah 41:1.
 
 THE text is a challenge to the heathen to enter into a debate with the living God. The Lord bids them argue at their best and let the controversy be calmly carried out to its issues, so as to be decided once and for all. He bids them be quiet, reflect and consider, in order that with renewed strength they may come into the discussion and defend their gods if they can. He urges them not to bring flippant arguments, but such as have cost them thought and have weight in them, if such arguments can be. He bids them be quiet till they are prepared to speak and then, when they can produce their strong reasons and set their cause in the best possible light, He challenges them to enter the lists and see if they can maintain, for a moment, that their gods are gods, or anything better than deceit and falsehood.

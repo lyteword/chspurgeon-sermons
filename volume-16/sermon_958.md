@@ -1,12 +1,5 @@
 # Sermon 958 | Dei Gratia
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 30, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To the praise of the glory of His Grace." Ephesians 1:6.
 
 NO Truth of God is more plainly taught in God's Word than this, that the salvation of sinners is entirely owing to the Grace of God. If there is anything clear at all in Scripture, it is plainly there declared that men are lost by their own works but saved through the free favor of God. Their ruin is justly merited, but their salvation is always the result of the unmerited mercy of God. In varied forms of expression, but with constant clearness and positiveness, this Truth is over and over again declared. Yet, plain as this Truth is, and influencing as it should be in every part of our doctrinal belief, it is frequently forgotten.

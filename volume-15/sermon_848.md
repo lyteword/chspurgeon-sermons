@@ -1,7 +1,5 @@
 # Sermon 848 | Jesus Christ Immutable
 
-A sermon
-
 "Jesus Christ the same yesterday and today and forever."- Hebrews 13:8.
 
 FOR a very considerable number of years an esteemed and venerable vicar of a Surrey parish has sent me at the New Year a generous testimony of his love and an acknowledgment of the pleasure which he derives from the weekly reading of my sermons. Enclosed in the parcel which his kindness awards to me is a text from which he hopes that I may preach on the first Sunday morning of the New Year. This year he sends me this golden line, "Jesus Christ the same yesterday and today and forever."

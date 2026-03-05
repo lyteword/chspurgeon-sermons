@@ -1,12 +1,5 @@
 # Sermon 959 | Right Replies To Right Requests
 
-
-DELIVERED ON LORDS-DAY MORNING, NOVEMBER 6, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "If a son shall ask for bread of any of you that is a father, will he give him a stone? Or if he asks for a fish, will he for a fish give him a serpent? Or if he shall ask for an egg, will he offer him a scorpion? If you then, being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask Him?" Luke 11:11-13.
 
 IN this chapter there is an evident progress. It opens by the disciples asking the Lord to teach them to pray. To that He gave a full and sufficient reply. He prepared them an outline of what complete prayer should be. Brethren, we have need, some of us, to begin with asking to be taught to pray. It will be a blessed sign when it can be said of us, "Behold, he prays." And just in proportion as we are instructed how to pray shall we give evidence of a more advanced Christian life. He has most grown in Grace who prays best. Depend upon it, the most acceptable prayer with God is the evidence of a most accepted state of heart within.

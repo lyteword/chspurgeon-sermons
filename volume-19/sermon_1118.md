@@ -1,12 +1,5 @@
 # Sermon 1118 | The Way To Honor
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Whoe ver keeps the fig tree shall eat the fruit thereof: so he who waits on his master shall be honored." Proverbs 27:18.
 
 IF a man in Palestine carefully watched his fig tree and kept it in proper condition, he was sure to be abundantly rewarded in due season, for it would yield him a large quantity of fruit of which he would enjoy the luscious taste. So, according to Solomon, good servants obtained honor as the fruit of diligent service. In those early days, when there were far better relations between servants and masters than, unhappily, there are nowadays, if a servant carefully waited upon his master he was sure to be honored for his faithfulness.

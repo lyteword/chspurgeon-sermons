@@ -1,7 +1,5 @@
 # Sermon 891 | The Vital Force
 
-A sermon
-
 "Now, the just shall live by faith."- Hebrews 10:38.
 
 SEE here the germ of the Christian's life! See, too, how it blooms, blossoms and bears! But observe it is not said the just shall live for his faith, or because of the merit of his believing in God. This were to place the Christian virtually under the Old Covenant of Law. To confuse faith with works would be, indeed, to bring us back to the old bondage of the first dispensation. It is no more true that the righteous man is saved because of the excellency of his faith, than that any man can be saved because of the excellency of his works. Neither does it say in the text that the just shall live upon his faith. Faith would make poor food for his soul! Small consolation may a man fetch from his faith, itself.

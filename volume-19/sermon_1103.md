@@ -1,12 +1,5 @@
 # Sermon 1103 | The Conditions Of Power In Prayer
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 23,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And whatever we ask, we receive of Him, because we keep His commandments, and do those things that are pleasing in His sight. And this is His commandment, That we should believe on the name of His Son Jesus Christ, and love one another, as He gave us commandment. And he that keeps His commandment dwells in Him, and He in him. And hereby we know that He abides in us, by the Spirit which He has given us." 1 John 3:22-24.
 
 I THOUGHT of addressing you this morning upon the importance of prayer and I designed earnestly to stir you up to pray for me and for the Lord's work in this place. Truly, I do not think I could have had a more weighty subject, or one which weighs more upon my soul. If I were only allowed to offer one request to you it would be this--"Brethren, pray for us." Of what use can our ministry be without the Divine blessing and how can we expect the Divine blessing unless it is sought for by the Church of God? I would say it even with tears, "Brethren, pray for us." Do not restrain prayer--on the contrary, be abundant in intercession, for so, and so only, can our prosperity as a Church be increased, or even continued.

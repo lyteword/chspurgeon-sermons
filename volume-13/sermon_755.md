@@ -1,6 +1,5 @@
 # Sermon 755 | Alive or Dead--Which?
 
-
 > "He that hath the Son hath life; and he that hath not the Son of God hath not life."  
 > 1 John 5:12.  
 

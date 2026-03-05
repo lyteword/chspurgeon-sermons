@@ -1,12 +1,5 @@
 # Sermon 941 | The Tender Pity of the Lord
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 17, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Like as a father pities his children, so the Lord pities them that fear Him. For he knows our frame. He remembers that we are dust." Psalm 103:13,14.
 
 DAVID sang of the compassionate pity of our heavenly Father who will not always chide, nor keep His anger forever. He had proved in relation to Himself that the Lord is not easily provoked but is plenteous in mercy. Remembering how feeble and how frail we are, the Lord bears and forbears with His weak and sinful children and is gentle towards them as a nurse with her child. Although our own observation has proved this to be true, and our experience everyday goes to show how truthfully David sang, yet assuredly the clearest display of the patience and pity of God towards us may be seen in the life of Him in whom dwells all the fullness of the Godhead bodily.

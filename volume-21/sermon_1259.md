@@ -1,12 +1,5 @@
 # Sermon 1259 | There Go The Ships
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "There go the ships." Psalm 104:26.
 
 I was walking, the other day, by the side of the sea, looking out upon the English Channel. It so happened that there was a bad wind for the vessels going down the Channel and they were lying in great numbers between the shore and the Goodwins. I should think I counted more than a hundred, all waiting for a change of wind. All of a sudden the wind shifted to a more favorable quarter and it was interesting to see with what rapidity all sails were spread and the vessels began to disappear like birds on the wing. It was a sight such as one might not often see, but worth traveling a hundred miles to gaze upon, to see them all sail like a gallant squadron and disappear southward on their voyages. "There go the ships," was the exclamation that naturally rose to one's lips.

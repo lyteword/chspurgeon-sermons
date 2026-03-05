@@ -1,12 +1,5 @@
 # Sermon 1132 | The Seed Upon Stony Ground
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 14, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And some fell on stony ground, where it had not much earth, and immediately it sprang up, because it had no depth of earth: but when the sun was up, it was scorched; and because it had no root, it withered away." Mark 4:5, 6.
 
 THE Gospel seed, according to the parable, falls upon all kinds of soil. Some of its precious grains drop upon the hard pathway, some upon the rock, some among the thorns and only a portion, perhaps a smaller proportion than one in four, falls upon good ground in which it finds a congenial abiding place. The preacher, therefore, will not meet with unmixed success in all directions. He may look for a full recompense from his work as a whole, but he must not fondly suppose that everywhere the good Word will become effectual, for in many it will be a savor of death unto death and not of life unto life. Even when Jesus preached, only few received Him, and of Paul's ministry it is recorded that "some believed the things which were spoken, and some believed not." It is for the beginner in holy service to go forward with reasonable expectations, lest he should, before long, weary of the work and leave it because of his bitter disappointments.

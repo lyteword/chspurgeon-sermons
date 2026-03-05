@@ -1,12 +1,5 @@
 # Sermon 927 | Martha And Mary
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 24, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now it came to pass, as they went, that He entered into a certain village: and a certain woman named Martha received Him into her house. And she had a sister called Mary, which also sat at Jesus 'feet, and heard His Word. But Martha was cumbered aboutmuch serving, and came to Him, and said, Lord, do you not care that my sister has leftme to serve alone? Bid her therefore that she help me. And Jesus answered and said unto her, 'Martha, Martha, you are careful and troubled about many things: but one thing is needful: and Mary has chosen that good part, which shall not be taken away from her." Luke 10:38-42.
 
 IT is not an easy thing to maintain the balance of our spiritual life. No man can be spiritually healthy who does not meditate and commune. No man, on the other hand, is as he should be unless he is active and diligent in holy service. David sweetly sang, "He makes me to lie down in green pastures." There was the contemplative. "He leads me beside the still waters." There was the active and progressive. The difficulty is to maintain the two--and to keep each in its relative proportion to the other. We must not be so active as to neglect communion, nor so contemplative as to become unpractical.

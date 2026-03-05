@@ -1,8 +1,5 @@
 # Sermon 822 | The Panting Deer
 
-
-Delivered on Lord's-Day Morning, July 20, 1868, by C. H. SPURGEON, at the [32]Metropolitan Tabernacle, Newington.
-
 "As the deerpants after the water brooks, so pants my soul after You, O God." Psalm 42:1.
 
 THERE is something to be lamented in this state of mind, for if the Psalmist had maintained unbroken communion with his God, he would not have been so much panting after Him as enjoying Him. It is deeply to be deplored that we, who sometimes bask in the sunshine of God's Countenance, cannot live so as always to enjoy it. Why do we wander? Why do we grieve His Holy Spirit? Why do we turn aside from God, our exceeding joy? Why do we provoke Him to jealousy and cause Him to make us grope in darkness, and sigh out of a lonely and desolate heart? There is much of an evil heart of unbelief in departing from the living God.

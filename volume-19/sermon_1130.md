@@ -1,12 +1,5 @@
 # Sermon 1130 | The Christian's Great Business
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 7, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Restore unto me the joy of Your salvation; and uphold me with Your free Spirit. Then will I teach transgressors Your ways; and sinners shall be converted unto You." Psalm 51:12-13.
 
 BELOVED Brothers and Sisters, sinners are all around us living in their sins. Tens of thousands in our great cities and our country towns and villages are abiding in the densest spiritual darkness. They do not know their right hand from their left as to eternal things. And an equally numerous class who do know something of the letter of the Gospel are yet as men who see but perceive not, who hear but understand not. Some of these wandering ones are in great misery everyday, as the result of their sins, and if we knew what they suffered we would greatly pity them. It would be impossible for us to remain indifferent if we heard their secret groans. And all these sinners, whether they are suffering or not, are living to the dishonor of God, robbing God of the Glory which is due Him as Creator, and more or less dishonoring the Lord Jesus who receives no reward from them as Redeemer. If we were in a right state of heart we could not live where we are without feeling daily anguish on account of abounding sin.

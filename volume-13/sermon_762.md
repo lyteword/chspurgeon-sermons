@@ -1,7 +1,5 @@
 # Sermon 762 | The Relationship of Marriage
 
-A sermon
-
 "Turn, O backsliding children, says the Lord; for I am married unto you."- Jeremiah 3:14.
 
 THESE are dainty words--a grateful sedative for a troubled conscience. Such singular comfort is fitted to cheer the soul and put the brightest hue on all her prospects. The person to whom it is addressed has an eminently happy position. Satan will be very busy with you, Believer in Christ, tonight! He will say, "What right have you to believe that God is married to you?" He will remind you of your imperfections and of the coldness of your love, and perhaps of the backsliding state of your heart. He will say, "What? With all this about you can you be presumptuous enough to claim union with the Son of God? Can you venture to hope that there will be any marriage between you and the Holy One?"

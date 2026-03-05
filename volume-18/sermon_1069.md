@@ -1,12 +1,5 @@
 # Sermon 1069 | Laboring And Not Fainting
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 8, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For My name's sake you ha ve labored and ha ve not fainted." Revelation 2:3.
 
 THE Lord Jesus Christ never removes His eyes from His Church. He notes everything that concerns her, observing not merely the life of her members but their soul's health, and not merely their health, but the way in which they spend their spiritual strength. He knows their works, He observes their charity, their patience, their zeal for His name's sake. Seven times in His words to the Churches, He says, "I know your works." This should make us live with great care, for albeit the whole world is under the eye of God, yet of His Church it is true, "upon one stone there shall be seven eyes." The full perfection of Omniscience exerts itself upon the Lord's chosen people. The farmer has an eye to all his estate but his chief care is his own family. And, even so, while the Great Husbandman of all creation observes all His works, He chiefly looks upon His own household. "The eye of the Lord is upon them that fear Him, upon them that hope in His mercy."

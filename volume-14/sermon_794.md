@@ -1,14 +1,5 @@
 # Sermon 794 | Jesus and the Lambs
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, February 9, 1868, by
-
-H. SPURGEON
-
-at the [7]Metropolitan Tabernacle, Newington.
-
 "He shall gather the lambs with His arm, and carry them in His bosom.'" Isaiah 40:11.
 
 IN the chapter before us our Savior is described as Jehovah God. He is spoken of as clothed with irresistible power: "He shall come with strong hand, and His arm shall rule for Him," but, as if to soften a glory far too bright for the weak eyes of the trembling, the Prophet introduces the delightful words of the text: "He shall feed His flock like a shepherd: He shall gather the lambs with His arm, and carry them in His bosom, and shall gently lead those that are with young." Here is Divinity! Not Jehovah, the Man of War, but Jehovah the Shepherd of Israel! Here is the fire of Deity, but its gentle, warming influence is felt and the consuming force is veiled. Greatness in league with gentleness, and power linked with affection now pass before us.

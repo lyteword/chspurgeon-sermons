@@ -1,8 +1,5 @@
 # Sermon 829 | The Perfuming of the Heart
 
-
-Delivered on Lord's Day Morning, September 6 1868, by C. H. SPURGEON, at the [39]Metropolitan Tabernacle, Newington.
-
 "And hope makes not ashamed; because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us." Romans 5:5.
 
 THE Apostle sets before us a ladder like that which Jacob saw--the foot rests upon the earth, but the top ascends to Heaven. Tribulation is the foot, but we mount as we see that it works patience. And we climb again, for patience works experience. And we ascend yet once again, for experience sustains hope, and hope that makes not ashamed climbs up to the very heart of God--and the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us. I might compare these verses to those songs of degrees which were sung by the people as they went up to the Temple--as they halted at each stage of the pilgrimage they sang a fresh Psalm--and so David said, "They go from strength to strength; every one of them in Zion appears before God."

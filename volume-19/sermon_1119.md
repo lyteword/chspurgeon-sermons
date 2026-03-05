@@ -1,12 +1,5 @@
 # Sermon 1119 | The Spur
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Whatever your hand finds to do, do it with allyour might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, where you go." Ecclesiastes 9:10.
 
 I FIND that these words, and those which precede them, have been considered by some to be a sarcastic address to those persons of an epicurean spirit who consider this world to be everything and will not believe that there is a world to come. They are bidden to eat the fat and drink the sweet, and enjoy life while they can--and if they have anything that they wish to do, to get it done as quickly as they can--because there is no work nor device in the grave. If this is the meaning, we must regard it as spoken to them from their own standpoint and so it is tantamount to their favorite maxim, "let us eat and drink, for tomorrow we die."

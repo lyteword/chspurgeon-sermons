@@ -1,7 +1,5 @@
 # Sermon 780 | The Secret Spot
 
-A sermon
-
 "Their spot is not the spot of His children.."- Deuteronomy 32:5.
 
 THERE are frequently great difficulties in identifying the persons of men even when they have been distinctly seen. Our police courts have given us, during the last few weeks, most serious evidence that men may be utterly deceived as to the identity of individuals. They may be prepared, and honestly, I believe, to take an oath that such-and-such a person is the man whom they saw discharging firearms or throwing stones, and yet that person may have been many miles away. A slight change of dress, another color in the necktie or a different shape of the hat--or some trifling alteration of the hair may throw a witness entirely off his guard.

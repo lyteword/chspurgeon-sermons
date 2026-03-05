@@ -1,8 +1,5 @@
 # Sermon 842 | The Angelic Life
 
-
-Delivered on Lord's-Day Morning, November 22, 1868, by C. H. SPURGEON, at the [49]Metropolitan Tabernacle, Newington.
-
 "For in the resurrection they neither marry, nor are given in marriage, but are as the angels of God in Hea ven." Matthew 22:30.
 
 WE must, all of us, develop one way or the other. Manhood, as we see it here, is but the green blade, or, at the best, the corn in the ear--the full corn in the ear will only be seen in the world to come. We must either descend or ascend-- none of us can remain in the position which he occupies today. Some are sliding every hour downward, descending by the force of evil habits. More and more do they become the serfs and slaves of Satan, and by consequence, more and more developed into his image. They can find their doom written in these words, "Depart into everlasting fire in Hell, prepared for the devil and his angels. You followed Satan, you grew more and more like he is, and now receive the heritage appointed for him."

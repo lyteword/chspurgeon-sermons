@@ -1,6 +1,5 @@
 # Sermon 1039 | 'Pray Without Ceasing'
 
-
 'Pray without ceasing.''1 Thessalonians 5:17.
 
 THE POSITION OF OUR TEXT is very suggestive. Observe what it follows. It comes immediately after the precept, 'Rejoice evermore;' as if that command had somewhat staggered the reader, and made him ask 'How can I always rejoice?' and, therefore, the apostle appended as answer, 'Always pray.' The more praying the more rejoicing. Prayer gives a channel to the pent-up sorrows of the soul, they flow away, and in their stead streams of sacred delight pour into the heart. At the same time the more rejoicing the more praying; when the heart is in a quiet condition, and full of joy in the Lord, then also will it be sure to draw nigh unto the Lord in worship. Holy joy and prayer act and react upon each other.

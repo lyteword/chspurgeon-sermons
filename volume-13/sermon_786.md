@@ -1,7 +1,5 @@
 # Sermon 786 | The Great Mystery of Godliness
 
-A sermon
-
 "And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory."- 1 Timothy 3:16.
 
 THE Apostle had just reminded Timothy that the Church of the living God is the pillar and ground of the Truth of God, and he had pressed it upon him to behave himself aright in the midst of those faithful men to whom the Lord had committed the Gospel. And, lest by any means the youthful minister should think that the treasure committed to the Church was of little value, he declares that beyond all controversy it was great and precious. Every heathen religion had its mystery, its secret doctrine revealed only to the initiated which was held to be the essence of the faith. The mystery of some religions was mere froth, foolish if untrue, and if true of no consequence to anyone. But even those who do not believe the facts of our religion can hold no controversy with us about the unspeakable greatness of them, if they are, indeed, true.

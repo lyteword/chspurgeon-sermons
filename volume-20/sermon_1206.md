@@ -1,12 +1,5 @@
 # Sermon 1206 | Heart-Knowledge of God
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 6, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will give them a heart to know Me, that I am the Lord." Jeremiah 24:7.
 
 WITH what blindness has sin struck the heart of man, for man does not know his own Maker! It is implied in the text that in his heart he is ignorant of Jehovah, though in Him he lives, and moves, and has his being. What an impotence has sin brought upon the mind of man, since being ignorant of God he is also incapable of finding Him out! This, also, may be most readily gathered from the text. The fact that a promise is made in the Covenant that to the chosen shall be given hearts to know the Lord is a clear proof that without the Divine teaching and without the reception of a new heart from the Lord, man not only does not know, but cannot find out his God!

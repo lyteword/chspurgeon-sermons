@@ -1,12 +1,5 @@
 # Sermon 1106 | "The Lord Is Risen, Indeed"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Why seek you the living among the dead? He is not here, but is risen! Remember how He spoke unto you when He was yet in Galilee." Luke 24:5, 6.
 
 THE first day of the week commemorates the Resurrection of Christ and, following Apostolic example, we have made the first day of the week to be our Sabbath. Does not this intimate to us that the rest of our souls is to be found in the Resurrection of our Savior? Is it not true that a clear understanding of the rising again of our Lord is, through the power of the Holy Spirit, the very surest means of bringing our minds into peace? To have a part in the Resurrection of Christ is to enjoy that Sabbath which remains for the people of God. We who have believed in the risen Lord do enter into rest, even as He also, Himself, is resting at the right hand of the Father. In Him we rest because His work is finished, His Resurrection being the pledge that He has perfected all that is necessary for the salvation of His people and we are complete in Him.

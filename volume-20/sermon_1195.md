@@ -1,12 +1,5 @@
 # Sermon 1195 | Abundant Pardon
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 27, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He will abundantly pardon." Isaiah 55:7.
 
 IN our childhood we learned from Dr. Watts' Catechism that Isaiah was that Prophet who spoke more of Jesus Christ than all the rest. In the chapter before us Isaiah had been declaring in the name of the Lord the coming and the character of the Redeemer, speaking of Him thus, "Behold I have given Him for a witness to the people, a leader and a commander to the people." No sooner had he thus proclaimed the appearance of the Christ, than he beheld whole nations of the heathen rushing to Him and, inspired by that sight, he began at once to address himself to the sinners around him bidding them fly to Him, too. As there is a natural connection between the physician and the sick, so is there between the Savior and the sinner.

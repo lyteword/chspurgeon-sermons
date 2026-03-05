@@ -1,6 +1,5 @@
 # Sermon 688 | Sweet Savor
 
-
 > "I will accept you with your sweet savor."  
 > Ezekiel 20:41.  
 

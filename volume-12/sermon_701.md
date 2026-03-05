@@ -1,6 +1,5 @@
 # Sermon 701 | Seeing And Not Seeing--Or, Men As Trees Walking
 
-
 > "And He came to Bethsaida and they brought a blind man unto Him, and besought Him to touch him. And He took the blind man by the hand, and led him out of the town. And when He had spit on his eyes, andputHis hands upon him, He asked him if he saw anything. And he looked up, and said, I see men as trees, walking. After that He put His hands again upon his eyes, and made him look up. And he was restored, and saw every man clearly."  
 > Mark 8:22-25.  
 

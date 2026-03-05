@@ -1,6 +1,5 @@
 # Sermon 700 | Order and Argument in Prayer
 
-
 > "Oh that I knew where I might find him! that I might come even to his seat! I would order my cause before him, and fill my mouth with arguments."  
 > Job 23:3,4  
 

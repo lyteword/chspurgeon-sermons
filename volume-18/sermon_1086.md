@@ -1,12 +1,5 @@
 # Sermon 1086 | Jesus, The King of Truth
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, DECEMBER 19, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Pilate therefore said unto Him, Are You a king, then? Jesus answered, You say that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth. Everyone that is of the truth hears My voice." John 18:37.
 
 THE season is almost arrived when by the custom of our fellow citizens we are led to remember the birth of the holy child Jesus who was born "king of the Jews." I shall not, however, conduct you to Bethlehem, but to the foot of Calvary. There we shall learn, from the Lord's own lips, something concerning the kingdom over which He rules and thus we shall be led to prize more highly the joyous event of His nativity. We are told by the Apostle Paul that our Lord Jesus Christ before Pontius Pilate witnessed a good confession. It was a good confession as to the manner of it, for our Lord was truthful, gentle, prudent, patient, meek and yet uncompromising and courageous.

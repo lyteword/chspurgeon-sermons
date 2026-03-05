@@ -1,8 +1,5 @@
 # Sermon 838 | Sins of Omission
 
-
-Delivered on Lord's-Day Morning, October 25, 1868, by C. H. SPURGEON, at the Metropolitan Tabernacle, Newington.
-
 "Yet they obeyed not, nor inclined their ear, but walked every one in the imagination of their evil heart: therefore I will bring upon them all the words of this covenant which I commanded them to do; but they did them not." Jeremiah 11:8.
 
 JEREMIAH was commissioned of God to bring a solemn accusation against rebellious Israel and he commences by solemnly mentioning their sins of omission. Observe that neglect of the Divine command is the charge brought in the text. In the next verses, the Prophet goes on to mention their sins of commission, but he very properly gives the first place to their shortcomings in positive service. He reminds them of what they had not done which they ought to have done and how constantly and persistently they had refused to render active obedience to the righteous will of the Most High.

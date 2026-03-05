@@ -1,12 +1,5 @@
 # Sermon 1063 | Moses' Decision
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 28, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By faith Moses, when came of age, refused to be called the son of Pharaoh's daughter, choosing rather to suffer affliction with the people of God than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompense of the reward." Hebrews 11:24,25,26.
 
 LAST Sunday we spoke upon the faith of Rahab [RAHAB, #1061]. We had then to mention her former unsavory character and to show that, notwithstanding, her faith triumphed and both saved her and produced good works. Now it has occurred to me that some persons would say, "This faith is, no doubt, a very suitable thing for Rahab and persons of that class. A people destitute of sweetness and light may follow after the Gospel and it may be a very proper and useful thing for them, but the better sort of people will never take to it."

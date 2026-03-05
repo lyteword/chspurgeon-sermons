@@ -1,7 +1,5 @@
 # Sermon 775 | The Great Attraction
 
-A sermon
-
 "And I, if I am lifted up from the earth, will draw all men unto Me."- John 12:32.
 
 THE death of our Lord Jesus Christ must have appeared to His Apostles to be an unmitigated misfortune. No doubt they conceived that it would be the death of the cause, a heavy blow and a deep discouragement. Smite the Shepherd and the sheep will be scattered. Strike the Head and what shall become of the members? But our Lord instructed His disciples that this, which seemed so dreary a circumstance, was really the most hopeful of all the points of His history. He assured them that by His death He would totally defeat the powers of darkness. "Now is the judgment of this world: now shall the prince of this world be cast out."

@@ -1,7 +1,5 @@
 # Sermon 876 | The Unwearied Runner
 
-A sermon
-
 "They shall run and not be weary."- Isaiah 40:31.
 
 Being the Annual Sermon of the Young Men's Association in Aid of the Baptist Missionary Society.

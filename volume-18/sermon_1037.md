@@ -1,6 +1,5 @@
 # Sermon 1037 | The Poor Man's Friend
 
-
 'For he shall deliver the needy when he crieth; the poor also, and him that hath no helper.''Psalm 72:12.
 
 THIS IS A ROYAL PSALM. In it you see predictions of Christ, not upon the cross, but upon the throne. In reference to his manhood as well as to his godhead, he is exalted and extolled and very high. He is the king'the king's son, truly with absolute sway, stretching his scepter from sea to sea, and 'from the river even unto the ends of the earth.' It is remarkable that in this psalm which so fully celebrates the extent of his realm and the sovereignty of his government, there is so much attention drawn to the minuteness of his care for the lowly, his personal sympathy with the poor, and the large benefits they are to enjoy from his kingdom. Where Christ is highest and we are lowest, and the two meet, there is 'glory to God in the highest, and on earth peace, goodwill towards men.' I might almost raise the question whether this psalm is more a tribute of homage to the Messiah, or a treasury of comfort for his poor subjects. We will compound the controversy by saying that as Christ here is highly exalted, so his poor needy ones are highly blessed, and while it is a blessing to them that he is exalted, it is an exaltation to him that they are blessed.

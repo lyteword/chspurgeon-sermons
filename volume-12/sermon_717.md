@@ -1,6 +1,5 @@
 # Sermon 717 | Pray For Jesus
 
-
 > "Prayer also shall be made for Him continually."  
 > Psalm 72:15.  
 

@@ -1,7 +1,5 @@
 # Sermon 853 | A Sermon for the Most Miserable of Men
 
-A sermon
-
 "My soul refused to be comforted."- Psalm 77:2.
 
 In this refusal to be comforted, David is not to be imitated. His experience in this instance is recorded rather as a warning than as an example. Here is no justification for those professors who, when they suffer bereavements or temporal losses, repine bitterly and reject every consoling thought. We have known persons who made mourning for departed ones the main business of life years after the beloved relative had entered into rest. Like the heathen, they worship the spirits of the dead. The sufferer has a right to mourn, a right which Jesus Christ has sealed, for, "Jesus wept," but that right is abused into a wrong when protracted sorrow poisons the springs of the heart and unfits the weeper for the duties of daily

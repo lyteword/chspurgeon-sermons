@@ -1,12 +1,5 @@
 # Sermon 923 | Prepare To Meet Your God
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 27, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Prepare to meet your God, O Israel." Amos 4:12.
 
 GOD had, in the days of Amos, by different ways rebuked the sin of His people Israel. He had wasted them with famine and sword. He had withheld the rain. He had sent forth the pestilence after the manner of Egypt. He had smitten their fields and gardens with blast and mildew, and He had overthrown some of them, as Sodom and Gomorrah. But they still persevered in their rebellion, and therefore He declares that He will send them no more of His messengers, and shoot no more of His far-reaching arrows, but will come Himself, in His own Person, to deal with them.

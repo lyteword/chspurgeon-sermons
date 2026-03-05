@@ -1,12 +1,5 @@
 # Sermon 960 | Iconoclast
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 13, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He removed the high places, and broke the images, and cut down the groves, and broke in pieces the bronze serpent that Moses had made; for until those days the children of Israel did burn incense to it. And he called it Nehushtan. He trusted in the Lord God of Israel, so that after him was none like him among all the kings of Judah, nor any that were before him." 2 Kings 18:4,5.
 
 THE First Commandment instructs us that there is but one God, who alone is to be worshipped. And the Second Commandment teaches that no attempt is to be made to represent the Lord, neither are we to bow down before any form of sacred similitude. "You shall not make unto you any graven image, or any likeness of any thing that is in Heaven above, or that is in the earth beneath, or that is in the water under the earth: you shall not bow down yourself to them, nor serve them." The two commandments thus make a full sweep of idolatry. We are not to worship any other god. We are not to worship the true God by the use of representative symbols. He is a Spirit and is to be worshipped in spirit and in truth, and not by the use of visible imagery.

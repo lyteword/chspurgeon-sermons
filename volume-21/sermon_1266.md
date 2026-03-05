@@ -1,12 +1,5 @@
 # Sermon 1266 | Paul's Doxology
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now unto Him that is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us, unto Him be glory in the Church by Christ Jesus throughout all ages, world without end. Amen." Ephesians 3:20,21.
 
 This chapter has a whole service of worship within itself. It certainly contains a sermon, for Paul gives a very earnest address upon the unveiling of the hidden mystery so that the Gentiles are made partakers of the promise in Christ by the Gospel. It contains a prayer, for one of the verses begins, "For this cause I bow my knees." And in the verses before us it closes with a hymn, a hymn of incomparable praise. Thus, in the compass of a short chapter, we have all those devout exercises with which our assemblies for worship are familiar, namely--instruction, supplication, and praise.

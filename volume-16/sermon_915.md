@@ -1,6 +1,5 @@
 # Sermon 915 | Sinners Bound with the Cords of Sin
 
-
 > "His own iniquities shall take the wicked himself, and he shall be holden with the cords of his sins."  
 > Proverbs 5:22.  
 

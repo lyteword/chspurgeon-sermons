@@ -1,12 +1,5 @@
 # Sermon 945 | Ripe Fruit
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 14, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My soul desired the first ripe fruit." Micah 7:1.
 
 THE nation of Israel had fallen into so sad and backsliding a condition--it was not like a vine covered with fruit, but like a vineyard after the whole vintage has been gathered--there was not to be found a single cluster. Not one righteous man could be found, not one to be trusted or found faithful to God. The whole state had become like a field that has been closely reaped, in which nothing remains but the stubble--like a vineyard that has been completely stripped, in which there remains no vestige of fruit.

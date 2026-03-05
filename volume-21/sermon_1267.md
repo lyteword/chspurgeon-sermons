@@ -1,12 +1,5 @@
 # Sermon 1267 | The God of Bethel
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I am the God of Bethel." Genesis 31:13.
 
 Jacob had been sent away to Padanaram and he might, perhaps, have stopped there if things had been quite as he wished. As it was, he stayed there quite long enough. He seemed almost to forget his father's house in the cares that his wives and children and the anxious oversight of his constantly increasing flocks involved. But God did not mean him to remain at Padanaram. He was to lead a separated life in Canaan and, therefore, things grew very uncomfortable with Laban. He was not a nice man to live with at any time, but he began to show his crotchets and his heart-burnings, and a good deal of that scheming spirit of which there was a little in Jacob.

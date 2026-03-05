@@ -1,6 +1,5 @@
 # Sermon 677 | Faith Versus Sight
 
-
 > "For we walk by faith, not by sight."  
 > 2 Corinthians 5:7.  
 

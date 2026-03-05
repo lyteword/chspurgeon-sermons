@@ -1,7 +1,5 @@
 # Sermon 904 | The Eye--a Similitude
 
-A sermon
-
 "Keep me as the apple of the eye."- Psalm 17:8.
 
 THIS prayer is full of meaning and is the outflow of a well-instructed mind. It is no parrot cry, but the leaping up of a living desire from a Grace-taught and thoughtful heart. The man knows something of himself who sincerely offers this plaintive petition to his God, "Keep me." Is there not a deep and sorrowful confession implied in this brief utterance of the suppliant? As though he should say, "Preserve me from my own heart, for it is deceitful above all things and desperately wicked: guard me from the rising up of my natural corruptions, for the carnal mind is enmity against God. It is not subject to the Law of God, neither, indeed, can be. Defend me from the turbulence of my own passions, those household foes which are the worst enemies to the peace and purity of my mind. Keep me from that evil man, Myself."

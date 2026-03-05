@@ -1,12 +1,5 @@
 # Sermon 1104 | Spring
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 30, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As the earth brings forth her bud, and as the garden causes the things that are sown in it to spring forth; so the Lord God will cause righteousness and praise to spring forth before all the nations." Isaiah 61:11.
 
 DURING the past week the air has been balmy with the breath of spring and all Nature has felt the influence of the "ethereal mildness." The earth, of which, through the long winter, we might have said, "she is not dead, but sleeps," has now awakened and she begins already to put on her garments of glory and beauty. Wild flowers are springing up in the hedgerows, buds upon the trees are hastening to burst, the time of the singing of birds is come and if the voice of the turtle is not heard in our land, yet we trust the winter is past--the rain is over and gone.

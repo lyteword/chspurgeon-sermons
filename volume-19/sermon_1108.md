@@ -1,12 +1,5 @@
 # Sermon 1108 | Plenary Absolution
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As far as the east is from the west, so far has He removed our transgressions from us." Psalm 103:12.
 
 WE shall aim at no novelty tonight, nor shall we try to serve up the old Truths of God in any new and attractive forms. Upon your tables you always require bread and generally you account salt to be indispensable. Some kinds of food are presented to us over and over again and it would foretell ill for our health if they were not always relished. It was an evil lusting which made Israel tire of the manna. An Israelite in his right mind found it to be still a dainty, though he ate of it every day of his 40 years' pilgrimage. Who tires of the verdure of the fields, the light of the sun, or the air we breathe? These things are ever fresh and new, and ever necessary to us. The doctrine of forgiving love is one of those necessities of daily life concerning which it may be affirmed that if we should set them before you every day we should not be guilty of vain repetition.

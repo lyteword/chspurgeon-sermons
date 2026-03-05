@@ -1,7 +1,5 @@
 # Sermon 745 | The Unsearchable Riches Of christ
 
-A sermon
-
 "Unto me, who am less than the least of all saints, is this Grace given, that I should preach among the Gentiles the unsearchable riches of Christ."- Ephesians 3:8.
 
 THE Apostle Paul felt it to be a great privilege to be allowed to preach the Gospel. He did not look upon his calling as a drudgery or a servitude, but he entered upon it with intense delight. All God's truly-sent servants have experienced much delight in the declaration of the Gospel of Jesus, and it is natural that they should, for their message is one of mercy and love. If a herald were sent to a besieged city with the tidings that no terms of mercy would be offered, but that every rebel without exception should be put to death, I think he would go with lingering footsteps, stopping by the way to let out his heavy heart in sobs and groans.

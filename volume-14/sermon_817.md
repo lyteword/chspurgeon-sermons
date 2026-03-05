@@ -1,8 +1,5 @@
 # Sermon 817 | The Widow of Sarepta
 
-
-Delivered on Lord's-Day Morning, June 21, 1868, BY C. H. SPURGEON, at the [27]Metropolitan Tabernacle, Newington.
-
 "And the word of the Lord came unto him, saying, Arise, get you to Zarephath, which belongs to Sidon, and dwell there: behold, I have commanded a widow woman there to sustain you." 1 Kings 17:8,9.
 
 THE Prophets taught as much by their doings as by their sayings--they were as truly prophesying to the people by the miracles which they worked, as by the messages which they delivered. There was oftentimes a symbolic meaning in their actions, in fact, they were constantly teaching the people by outward symbols, which, alas, those people were usually of too dull an understanding to interpret, but which, nevertheless, were a sign unto them. In the case of Elijah, a Prophet of laconic speech who said but little, but said that with a voice of thunder, I do not doubt that the narratives connected with his life are meant to be to us a kind of acted prophesying, full of richest meaning.

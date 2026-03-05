@@ -1,7 +1,5 @@
 # Sermon 739 | The Sin Offering
 
-A sermon
-
 "If the anointed priest sins, bringing guilt on the people; then let him bring for his sin, which he has sinned, a young bull without blemish unto the Lord for a sin offering."- Leviticus 4:3.
 
 In the previous chapters of the book of Leviticus you read of the burnt offering, the peace offering, and the meat offering--all types our Lord Jesus Christ as seen from different points of view. Those three sacrifices were sweet savor offerings, and represent the Lord Jesus in His glorious Person and perfect righteousness as an offering of a sweet smell unto God. The chapter before us, the whole of which we shall require as a text, describes the sin offering, which, although quite distinct from the sweet savor offerings, is not altogether to be separated from them, for the Lord Jesus Christ viewed in any light is very dear unto His Father.

@@ -1,12 +1,5 @@
 # Sermon 919 | The King Feasting in his Garden
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 6, 1870,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice. I have eaten My honeycomb with My honey. I have drunk My wine with My milk: eat, O Friends; drink, yes, drink abundantly, O Beloved." Song of Solomon 5:1.
 
 I BELIEVE this text to be appropriate to the spiritual condition of our Church. If I am not very sadly mistaken, the Lord of Hosts is with us in a very remarkable manner. Our meetings for prayer have been distinguished by an earnest and fervent spirit. Our meetings with enquirers have been remarkably powerful. In a quiet manner, without any outward outcries, souls have been smitten down with conviction of sin, and have been comforted as they have received Christ by faith. By His Grace we are not a deserted Church, we are not left with broken hedges, with the wild boar of the wood committing devastations.

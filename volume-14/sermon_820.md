@@ -1,8 +1,5 @@
 # Sermon 820 | Working Out What is Worked In
 
-
-Delivered on Lord's-Day Morning, July 12, 1868, by C. H. SPURGEON, at the [30]Metropolitan Tabernacle, Newington.
-
 "Work out your own salvation with fear and trembling. For it is God which works in you both to will and to do of His good pleasure." Philippians 2:12,13.
 
 I HAVE frequently heard these words addressed to an indiscriminate audience and it has always struck me that they have thereby been twisted from their right meaning. These words, as they stand in the New Testament, contain no exhortation to all men, but are directed to the people of God. They are not intended as an exhortation to the unconverted. They are, as we find them in the Epistle, beyond all question addressed to those who are already saved through a living faith in the Lord Jesus Christ.

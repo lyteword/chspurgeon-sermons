@@ -1,7 +1,5 @@
 # Sermon 872 | The Perseverance of the Saints
 
-A sermon
-
 "Being confident of this very thing, that He who has begun a good work in you will perform it until the day of Jesus Christ."- Philippians 1:6.
 
 THE dangers which attend the spiritual life are of the most appalling character. The life of a Christian is a series of miracles. See a spark living in mid ocean, see a stone hanging in the air, see health blooming in a leper colony, and the snow-white swan among rivers of filth and you behold an image of the Christian life. The new nature is kept alive between the jaws of death, preserved by the power of God from instant destruction--by no power less than Divine could its existence be continued. When the instructed Christian sees his surroundings, he finds himself to be like a defenseless dove flying to her nest, while against her, tens of thousands of arrows are leveled. The Christian life is like that dove's anxious flight as it threads its way between the death-bearing shafts of the enemy and by constant miracle escapes unhurt.

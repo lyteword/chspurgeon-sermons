@@ -1,7 +1,5 @@
 # Sermon 858 | The Fullness of Jesus the Treasury of Saints
 
-A sermon
-
 "Of His fullness have we all received and Grace for Grace."- John 1:16.
 
 THESE are not words spoken by John the Baptist, as a cursory reader might imagine, but they were written by John the Evangelist. The verse preceding is a paragraph cast into the midst of the Gospel, causing a temporary break. Omitting that verse, we read as follows: "The Word was made flesh and dwelt among us, (and we beheld His glory, the glory as of the only-begotten of the Father), full of Grace and truth; and of His fullness have we all received and Grace for Grace."

@@ -1,7 +1,5 @@
 # Sermon 761 | The Shrill Trumpet of Admonition
 
-A sermon
-
 "Moab has been at ease from his youth, and he has settled on his lees, and has not been emptied from vessel to vessel, neither has he gone into captivity. Therefore his taste remained in him, and his scent is not changed. 'Therefore, behold, the days come,' says the Lord, 'that I will send unto him wanderers, that shall cause him to wander, and shall empty his vessels, and break their bottles.."- Jeremiah 48:11,12.
 
 FOR a considerable season the country of Moab had been free from the inroads of war and the terrors of pestilence. The nation had, therefore, become so conceitedly secure, that the Lord said, "We have heard the pride of Moab (he is exceedingly proud), his loftiness, and his arrogance, and his pride, and the haughtiness of his heart." The people became vain, dominating, boastful, and mocked at their afflicted neighbors the Israelites, manifesting ungenerous joy in their sorrows. "For was not Israel a derision unto you? Was he found among thieves? For since you spoke of him, you skipped for joy."

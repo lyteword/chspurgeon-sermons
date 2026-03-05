@@ -1,6 +1,5 @@
 # Sermon 1187 | The Three Witnesses
 
-
 There are three that bear witness on earth, the Spirit, and the water, and the blood: and these three agree in one.''1 John 5:8.
 
 CHRISTIANITY PUTS FORTH very lofty claims. She claims to be the true faith, and the only true one. She avows her teachings to be divine, and therefore infallible; while for her great Teacher, the Son of God, she demands divine worship, and the unreserved confidence and obedience of men. Her commands are issued to every creature, and though at present her authority is rejected by millions of mankind, she confidently looks forward to a time when truth shall obtain universal dominion, and Jesus the Lord shall take unto himself his great power and reign.

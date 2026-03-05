@@ -1,12 +1,5 @@
 # Sermon 1109 | The Light of the World
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You are the light of the world." Matthew 5:14.
 
 THIS title had been given by the Jews to certain of their eminent Rabbis. With great pomposity they spoke of Rabbi Judah, or Rabbi Jochanan, as the lamps of the universe, the lights of the world. It must have sounded strange in the ears of the Scribes and Pharisees, to hear that same title, in all soberness, applied to a few bronzed-faced and rough-handed peasants and fishermen who had become disciples of Jesus. Jesus, in effect, said--not the Rabbis, not the Scribes, not the assembled Sanhedrim, but you, My humble followers, you are the light of the world! He gave them this title, not after He had educated them for three years, but at almost the outset of His ministry. From this I gather that the title was given them, not so much on account of what they knew, as on account of what they were. Not their knowledge, but their character made them the light of the world.

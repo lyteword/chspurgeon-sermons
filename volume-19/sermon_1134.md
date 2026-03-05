@@ -1,12 +1,5 @@
 # Sermon 1134 | Paved With Love
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 28, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The midst thereof being pa ved with love, for the daughters of Jerusalem." Song of Solomon 3:10.
 
 THIS portion of the Song describes the royal bridegroom as traveling up from the wilderness in an eastern palanquin, attended by his bodyguard and by those who bear torches and burn perfumes. We have a description of the sumptuous chariot-bed in which this great monarch traveled, describing it as being made of cedar, with pillars of silver, a bottom of gold, curtains of purple, and within it a patterned floor, with pavement, not of precious stones, but of priceless love. Metaphor is suddenly dropped in this last item and the result is a complicated, but very expressive form of speech. Some regard the expression as signifying a pavement of stone, engraved with hieroglyphic emblems of love which made up the floor of this traveling chariot. But this would surely be very uncomfortable and unusual, and therefore others have explained the passage as referring to choice embroidery and dainty carpets, woven with cost and care, with which the interior of the traveling chair was lined.

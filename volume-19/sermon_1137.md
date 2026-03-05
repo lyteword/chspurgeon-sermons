@@ -1,12 +1,5 @@
 # Sermon 1137 | To Sunday School Teachers And Other Soul-winners
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 19, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Brethren, if any of you do err from the truth, and one converts him, lethim know, thathe which converts the sinner from the error ofhis way shall save a soul from death, and shall hide a multitude of sins." James 5:19,20.
 
 JAMES is pre-eminently practical. If he were, indeed, the James who was called, "The Just," I can understand how he earned the title, for that distinguishing trait in his character shows itself in his Epistle, and if he were "the Lord's brother," he did well to show so close a resemblance to his great Relative and Master who commenced His ministry with the practical Sermon on the Mount.

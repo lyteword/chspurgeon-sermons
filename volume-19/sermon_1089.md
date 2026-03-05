@@ -1,12 +1,5 @@
 # Sermon 1089 | The Man Greatly Beloved
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 5, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O man greatly beloved, fear not: peace be unto you, be strong, yes, be strong." Daniel 10:19.
 
 I ANTICIPATE an objection to my preaching from this text and using it in reference to any persons in this congregation. "The words were spoken to Daniel and we are not Daniels"--that is probably the shape which the objection will take in certain minds. And my reply is, If we are not Daniels, at least we should desire to be and we should remember that there are possibilities of our being such. In many parts of Daniel's character we can, by Divine Grace, tread in his steps. Daniel is not set up far above us as one who cannot be imitated--he is an example whom it should be our joy to follow.

@@ -1,7 +1,5 @@
 # Sermon 889 | Real Grace for Real Need
 
-A sermon
-
 "He healed them that had need of healing."- Luke 9:11.
 
 "HE healed them that had need of healing," that is to say, on this gracious occasion no single case came before Him which baffled Him. However rampant might be the disease, however extreme the condition of the patient's malady, Jesus worked an instantaneous cure. And truly to this very hour no spiritual sickness has defeated the great Physician. No sick souls have ever been carried away from His feet to perish hopelessly because their need outreached His power. Satan's worst is soon undone by Jesus' best. The Son of God, in no solitary instance, has been foiled. Still in the goings forth of His mercy He has "healed them that had need of healing."

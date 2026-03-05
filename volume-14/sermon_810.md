@@ -1,8 +1,5 @@
 # Sermon 810 | The Faithfulness of Jesus
 
-
-Delivered on Sunday Morning, May 10th, 1868, by C. H. SPURGEON, At the [21]Metropolitan Tabernacle, Newington.
-
 "Having loved his own which were in the world, he loved them unto the end."--John 13:1.
 
 WE SHALL CONSIDER these words first in their evident relation to the apostles, and those who were the companions of Jesus during his sojourn on earth, and afterwards we shall take them in their broader signification, as relating to all the Lord's own whom he loves and will love even to the end.

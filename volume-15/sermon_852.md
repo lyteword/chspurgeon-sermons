@@ -1,7 +1,5 @@
 # Sermon 852 | Constancy And Inconstancy--a Contrast
 
-A sermon
-
 "Then shall we know, if we follow on to know the Lord: His going forth is prepared as the morning; and He shall come unto us as the rain, as the latter and former rain unto the earth. O Ephraim, what shall I do unto you? O Judah, what shall I do unto you? For your goodness is as a morning cloud and as the early dew it goes away."- Hosea 6:3,4.
 
 THESE two verses very fitly describe in very similar imagery the opposite characters of the true and persevering Believer and the fictitious and the transient professor. There are many things in this world which are very much alike and yet are totally dissimilar. The king who, after stern conflict and arduous struggles, has at last obtained the empire, shines not with greater pomp than yonder actor mimicking majesty upon the stage in borrowed robes and tinsel crown. How like each other that monarch and the player, and yet how wide the difference! The one rules with real power, the other with but fancied sway--the king has fought for many a day to earn the scepter--the other in a few minutes in the green room has attained his monarchy and, we may add, in a few minutes more he will lose it, too!

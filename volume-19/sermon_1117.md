@@ -1,12 +1,5 @@
 # Sermon 1117 | The Father's Will
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And this is the Father's will which has sent Me, that of all which He has given Me I should lose nothing, but should raise it up again at the last day. And this is the will of Him thatsentMe, that everyone which sees the Son, and believes on Him, may have everlasting life; and I will raise him up at the last day." John 6:39,40.
 
 SUCH is our impertinent curiosity that we would gladly peer between the folded leaves of the Divine purposes. The eager thirst of man to discover secrets, to solve mysteries, to draw aside the folded curtains and to ascertain that which is past finding out, tempts him full often to the wildest conjecture and the most adventurous speculation. How many would rush to any part of the earth were it possible to light upon a spot from which they could reconnoiter the times and the seasons to get a sight of the future? To know that which God conceals seems to be one of the depraved desires of the human heart. This presumptuous enquiry is both foolish and sinful. What have you to do, O man, with God's councils? To obey Him is your work, not to attempt to know what He does not please to reveal.

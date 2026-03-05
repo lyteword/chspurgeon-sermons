@@ -1,6 +1,5 @@
 # Sermon 703 | Salvation Altogether By Grace
 
-
 > "Who has saved us, and called us with a holy calling, not according to our works, but according to His own purpose and grace which was given to us in Christ Jesus before the world began."  
 > 2 Timothy 19.  
 

@@ -1,6 +1,5 @@
 # Sermon 711 | A Feast For Faith
 
-
 > "This also comes forth from the Lord of Hosts, Who is wonderful in counsel and excellent in working."  
 > Isaiah 28:29.  
 

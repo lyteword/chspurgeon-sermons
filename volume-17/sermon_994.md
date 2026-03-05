@@ -1,6 +1,5 @@
 # Sermon 994 | The Prayer of Jabez
 
-
 > "Oh that thou wouldest bless me indeed!"  
 > 1 Chron. 4:10.  
 

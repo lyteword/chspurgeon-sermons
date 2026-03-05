@@ -1,7 +1,5 @@
 # Sermon 774 | A Sharp Knife for the Vine Branches
 
-A sermon
-
 "Every branch in Me that bears not fruit He takes away: and every branch that bears fruit, He purges it, that it may bring forth more fruit."- John 15:2.
 
 THESE are the words of Jesus. Unto YOU that believe He is precious, and every word that He speaks is precious for His sake. You will be sure, then, to give every syllable its weight and to let each word fall upon your soul as coming directly from His lips. These are the words of our Lord Jesus just before His departure from the world. We reckon the words of dying men to be worth keeping, and especially of such a matchless Man as our Lord and Master.

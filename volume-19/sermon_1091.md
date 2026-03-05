@@ -1,12 +1,5 @@
 # Sermon 1091 | Prayer Certified Of Success
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 19, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I say unto you, Ask, and it shall be given you; seek, and you shall find; knock, and it shall be opened unto you. For everyone that asks receives and he that seeks finds; and to him that knocks it shall be opened." Luke 11:9-10.
 
 To seek aid in time of distress from a supernatural being is an instinct of human nature. We say not that human nature unrenewed ever offers truly spiritual prayer, or ever exercises saving faith in the living God. But still, like a child crying in the dark with painful longing for help from somewhere or other, it scarcely knows where, the soul in deep sorrow almost invariably cries to some supernatural being for succor. None have been more ready to pray in time of trouble than those who have ridiculed prayer in their prosperity--and probably no prayers have been more true to the feelings of the hour than those which atheists have offered under the pressure of the fear of death.

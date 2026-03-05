@@ -1,12 +1,5 @@
 # Sermon 1135 | Signs Of The Times
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said also to the people, When you see a cloud rise out of the west, straightway you say, There comes a shower; and so it is. And when you see the south wind blow, you say, There will be heat; and it comes to pass. You hypocrites, you can discern the face of the sky and of the earth; but how is it that you do not discern this time? Yes, and why even of yourselves judge you not what is right?" Luke 12:54-57.
 
 THESE words were addressed by our Savior to the common people who had gathered around Him. He appealed to their common sense. They were able to foretell the weather from the signs which they saw in the heavens and if they could do this, the signs of His coming were even more clear and manifest, so that if they would but use their eyes they might see that He was the Messiah. That they did not do so was an instance of hypocrisy of heart--they did not see the Savior because they would not. Our Savior's coming had been very clearly foretold by the Prophets. The people were generally acquainted with the Prophetic writings and there had been, consequently, a general expectation of the coming of the Messiah at the time. Above all, the scepter had departed from Judah and they knew by this sure signal that the set time for the coming of Shiloh had arrived.

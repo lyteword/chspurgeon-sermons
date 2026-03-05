@@ -1,12 +1,5 @@
 # Sermon 1233 | Healing Leaves
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 9, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. (ON BEHALF OF THE RELIGIOUS TRACT SOCIETY).
-
 "The leaves of the tree were for the healing of the nations." Revelation 22:2
 
 WE have in the 21st and 22nd chapters of the Book of Revelation a very wonderful description of Heaven upon earth. I shall not attempt to go into any prophetical explanations as to when this will be fulfilled, but we know this for certain, for we have it in so many words, that the holy city, New Jerusalem, will descend out of Heaven from God, and that, in a word, there will be, for a time at least, a Heaven on earth. But inasmuch as Heaven, be it where it may, is still Heaven, the description of Heaven on earth sufficiently benefits us to reveal, in some measure, the present joys and blessings of the celestial state.

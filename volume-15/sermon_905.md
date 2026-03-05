@@ -1,7 +1,5 @@
 # Sermon 905 | Footsteps Of Mercy
 
-A sermon
-
 "If there is a messenger with him, an interpreter, one among a thousand, to show unto men His uprightness: Then He is gracious unto him and says, Deliver him from going down to the Pit: I have found a ransom."- Job 33:23,24.
 
 WHEN God has distinct and definite purposes of mercy towards an individual, He often begins with stern discipline and brings him low by affliction and sorrow. As the good farmer cuts down the trees and makes a clearance of the soil before he sows the grain and prepares for a harvest, so does our God cut down all our goodly cedars, our pleasures, and our pride in order that the heart may be afterwards plowed, broken, harrowed and made ready to receive the good seed of the Word. Elihu describes this preparatory breaking-up process as being brought about by sickness. It is often so--I doubt not that a sickbed is one of God's best orators to the sons of men.

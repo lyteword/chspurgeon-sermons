@@ -1,6 +1,5 @@
 # Sermon 976 | The Wedding Garment
 
-
 > "And when the king came in to see the guests, he saw there a man which had not on a wedding garment: And he saith unto him, Friend, how camest thou in hither not having a wedding garment? And he was speechless. Then said the king to the servants, Bind him hand and foot, and take him away, and cast him into outer darkness; there shall be weeping and gnashing of teeth. For many are called, but few are chosen."  
 > Matthew 22:11-14.  
 

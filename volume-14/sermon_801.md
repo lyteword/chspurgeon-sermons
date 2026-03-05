@@ -1,14 +1,5 @@
 # Sermon 801 | The Woman Which Was a Sinner
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, March 22, 1868, by
-
-H. SPURGEON,
-
-at the [14]Metropolitan Tabernacle, Newington.
-
 "And, behold, a woman in the city, which was a sinner, when she knew that Jesus sat at meat in the Pharisee's house, brought an alabaster box of ointment, and stood at His feet behind Him weeping, and began to wash His feet with tears, and did wipe them with the hairs of her head, and kissed His feet, and anointed them with the ointment." Luke 7:37-38.
 
 THIS is the woman who has been confused with Mary Magdalene. How the error originated, it would not be easy to imagine, but error it certainly is. There is not the slightest shadow of evidence that this woman, who was a sinner, had even the remotest connection with her out of whom Jesus cast seven devils. In delivering you a sermon a few Sabbaths ago, upon the life of Mary of Magdala, [#792, Mary Magdalene, January 26, 1868] I think I showed you that it was hardly possible, and most improbable that she could have been a sinner in the sense here intended. And now I venture to affirm that there is as much evidence to prove that the woman in the narrative now before us, was the Queen of Sheba, or the mother of Sisera, as that she was Mary Magdalene--there is not a figment or fraction of evidence to be found! The fact is, there is no connection between the two.

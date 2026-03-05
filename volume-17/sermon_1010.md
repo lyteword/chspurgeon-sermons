@@ -1,6 +1,5 @@
 # Sermon 1010 | Light for Those Who Sit in Darkness
 
-
 > "The land of Zabulon, and the land of Nephthalim, by the way of the sea, beyond Jordan, Galilee of the Gentiles; the people which sat in darkness saw great light; and to them which sat in the region and shadow of death light is sprung up,"  
 > Matthew 4:15-16.  
 

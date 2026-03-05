@@ -1,6 +1,5 @@
 # Sermon 1000 | Number One Thousand; Or, "Bread Enough and To Spare"
 
-
 > "And when he came to himself, he said, How many hired servants of my father's have bread enough and to spare, and I perish with hunger!"  
 > Luke 15:17.  
 

@@ -1,12 +1,5 @@
 # Sermon 962 | A Personal Application
 
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 16, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But now once in the end of the world has He appeared to put away sin by the sacrifice of Himself." Hebrews 9:26.
 
 IN those good old times when preachers did not grow weary, though they discoursed for three hours at a stretch. And when congregations were not given to slumber, even under such long discourses, the preacher had ample time not only to dilate upon the doctrine of his text, but to speak, also, upon what was then called "the improvement of the subject," namely, the practical and experimental application of the Truths of God taught to the cases of his hearers. Nowadays when we are restricted to three-quarters of an hour--not altogether to our loss or yours--there are occasions on which we feel our course so wide, and our time so narrow, that having found a good sea to sail upon, and objects of surpassing interest to attract our attention in the morning, we venture to resume the current of thought and follow up with the application in the evening.

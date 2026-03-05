@@ -1,6 +1,5 @@
 # Sermon 681 | Eyes Opened
 
-
 > "And God opened her eyes, and she saw a well of water."  
 > Genesis 21:19.  
 

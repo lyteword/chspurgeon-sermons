@@ -1,6 +1,5 @@
 # Sermon 719 | Praying In The Holy Spirit
 
-
 > "Praying in the Holy Spirit."  
 > Jude 1:20.  
 

@@ -1,12 +1,5 @@
 # Sermon 1202 | Holy Water
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 8, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Whoever drinks of the water that Ishall give him shall never thirst. But the water that I shall give him shall be in him a well of water springing up into everlasting life." John 4:14.
 
 ALL things that are of earth are unsatisfactory. Our spirit craves for something more than time and sense can yield. Nothing which comes of earth, even if it should yield a transient satisfaction, can long maintain its excellence. Pointing to the water in Jacob's well, our Lord said, "He that drinks of this water shall thirst again." And therein He took up His parable against all earthly things, whether they are fame, or riches, or fleshly pleasure, or anything else beneath the sun. He that drinks at these shallow wells shall not quench, but thirst, or if, for a time, he imagines that he has done so, he will be deceived and, in a little season, the old craving will return. That which is born of the flesh is still flesh at its best--and all flesh is grass and the goodliness thereof is as the flower of grass--the grass withers and the flower thereof fades away and in like manner fades the flesh and its glory.

@@ -1,8 +1,5 @@
 # Sermon 846 | Good Cheer for Christians
 
-
-delivered on Lord's-Day Morning, December 20, 1868, by C. H. SPURGEON, at the [51]Metropolitan Tabernacle, Newington.
-
 "And in this mountain shall the Lord of hosts make unto all people a feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well-refined.'" Isaiah 25:6.
 
 WE have nearly arrived at the great merry-making season of the year. On Christmas Day we shall find all the world in England enjoying themselves with all the good cheer which they can afford. Servants of God, you who have the largest share in the Person of Him who was born at Bethlehem, I invite you to the best of all Christmas fare--to nobler food than makes the table groan--bread from Heaven, food for your spirit! Behold how rich and how abundant are the provisions which God has made for the high festival which He would have His servants keep, not now and then, but all the days of their lives!

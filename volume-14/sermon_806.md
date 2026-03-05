@@ -1,6 +1,5 @@
 # Sermon 806 | A Young Man's Vision
 
-
 > "Your young men shall see visions.'"  
 > Acts 2:17.  
 

@@ -1,6 +1,5 @@
 # Sermon 1013 | Our Watchword
 
-
 > "Let such as love thy salvation say continually, Let God be magnified."  
 > Psalm 70:4.  
 

@@ -1,12 +1,5 @@
 # Sermon 1068 | A Simple Remedy
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 1, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "With His stripes we are healed." Isaiah 53:5.
 
 EVER since the Fall, healing has been the chief necessity of manhood. There was no physician in Paradise, but outside that blissful enclosure professors of the healing art have been precious as the gold of Ophir. Even in Eden itself there grew herbs which should, in after days, yield medicine for the body of man. Before sin came into the world, and disease which is the consequence of it, God had created plants of potent efficacy to soothe pain and wrestle with disease. Blessed be His name, while thus mindful of the body, He had not forgotten the direr sicknesses of the soul--for He has raised up for us a Plant of renown, yielding a balm far more effectual than that of Gilead! This He had done before the plague of sin had yet infected us. Christ Jesus, the true Medicine of the sons of men, was ordained of old to heal the sicknesses of His people.

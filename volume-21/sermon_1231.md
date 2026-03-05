@@ -1,12 +1,5 @@
 # Sermon 1231 | The Sure Triumph Of The Crucified One
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 25, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, My Servant shall deal prudently, He shall be exalted and extolled, and be very high. As many were astonished at you, His visage was so marred more than any man, and His form more than the sons of men: So shall He sprinkle many nations; the kings shall shut their mouths at Him: for that which had not been told them shall they see; and that which they had not heard shall they consider." Isaiah 52:13-15.
 
 MODERN Jewish writers refuse to see the Messiah in this passage, but their predecessors were not so blind. The Tar-gum and the ancient Rabbis interpreted it of the Messiah and, indeed, all attempts to explain it apart from Him are palpable failures. Christian commentators in all ages have seen the Lord Jesus here. How could they do otherwise? To whom else could the Prophet have referred? If the Man of Nazareth, the Son of God, is not right visible in these three verses, they are dark as midnight itself! We do not hesitate for a moment in applying every word to our Lord Jesus Christ.

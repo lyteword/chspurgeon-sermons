@@ -1,12 +1,5 @@
 # Sermon 1222 | The Overflowing Cup
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My cup runs o ver." Psalm 23:5.
 
 THE Psalm culminates in this expression. The poet can mount no higher. He has endeavored to express the blessedness of his condition, in having the Lord for his Shepherd, but after all his efforts, he is conscious of failure. His sonnet has not reached the height of the great argument, nor has his soul, though enlarged with gratitude, been able to compass the immeasurable gifts of Grace. And therefore, in holy wonder at the lavish superfluities of mercy, he cries, "My cup runs over." In one short but most expressive sentence he does as good as say, "Not only have I enough, but more than enough! I possess not only all that I am capable of containing, but I inherit an excess ofjoy, a redundancy of blessing, an extravagance of favor, a prodigality of love--my cup runs over."

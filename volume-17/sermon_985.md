@@ -1,6 +1,5 @@
 # Sermon 985 | The Touchstone of Godly Sincerity
 
-
 > "Will he always call upon God?"  
 > Job 27:10.  
 

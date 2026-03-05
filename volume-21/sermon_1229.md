@@ -1,12 +1,5 @@
 # Sermon 1229 | Decision--Illustrated by the Case of Joshua
 
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, APRIL 18, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As for me and my house, we will serve the Lord." Joshua 24:15.
 
 JOSHUA knew that the people who surrounded him, while ostensibly serving Jehovah, were, many of them, secretly worshipping the ancient idols of their Mesopotamian fathers--those seraphim which were once hidden in Rachel's tent and were never quite purged from Jacob's family. Some of them, also, harbored the Egyptian emblems. And some had even fallen into the worship of the gods of the people whom they had displaced and were setting up the images of Baalim in their homes. The people were nominally worshippers of Jehovah, but in reality, many of them had turned aside unto strange gods. Never in their best days had the children of Israel been quite divorced from idols, for, as Stephen said of them, even in the wilderness they took up the tabernacle of Moloch and the star of their god Remphan, figures which they made, to worship.

@@ -1,14 +1,5 @@
 # Sermon 797 | Spots in Our Feats of Charity
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, February 23, 1868, by
-
-H. SPURGEON,
-
-at the [10]Metropolitan Tabernacle, Newington.
-
 "These are spots in your feasts of charity, when they feast with you, feeding themselves without fear." Jude 1:12.
 
 WHEN the Church of God is extending her bounds rapidly, it is of the utmost importance that the growth should be real and permanent. If the walls of Zion are being built quickly, the master builders should keep an anxious eye upon the workmanship lest the stones should be put together with untempered mortar and the whole erection should, by-and-by, come to the ground. We desire not to grow up in a night, as the gourd, lest we also perish in a night. Our Lord Jesus, who is the great Shepherd of the sheep, sends to His Churches, at times when they are most prospering, sad reminders of human frailty by which He warns them to, "take heed that they be not deceived; but see to it that they make sure work, and build substantially, with gold, silver, and precious stones, and not with wood, and hay, and stubble."

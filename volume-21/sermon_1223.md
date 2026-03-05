@@ -1,12 +1,5 @@
 # Sermon 1223 | Jesus, The Substitute For His People
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who is he that condemns? It is Christ that died, yes rather, that is risen again, who is even at the right hand of God, who also makes intercession for us." Romans 8:34.
 
 THE most dreadful alarm that can disturb a reasonable man is the fear of being condemned by the Judge of All. To be condemned of God, how dreadful! To be condemned of Him at the Last Great Day, how terrible! Well might Belshaz-zar's loins be loosed when the handwriting on the wall condemned him as weighed in the balances and found wanting! And well may the conscience of the convicted one be comparable to a little Hell when, at its lesser judgement seat, the Law pronounces sentence upon him on account of his past life.

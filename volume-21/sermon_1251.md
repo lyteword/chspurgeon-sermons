@@ -1,12 +1,5 @@
 # Sermon 1251 | The Sacred Love-Token
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the blood shall be to you for a token." Exodus 12:13.
 
 You remember that last Lord's-Day morning we spoke upon the witness within the child of God. We tried to show that Believers did not need any man to assure them that they are forgiven, that they could get on exceedingly well without absolution from a priest and could know their salvation altogether apart from the ghostly father, seeing that they have the evidence of it in their own souls by believing in the Lord Jesus Christ. We shall not think or speak much of that miserable impostor, the priest, this morning, for he really is not worth thinking of. But we shall continue our consideration of the witness which the Lord has given to His believing people concerning their safety in Jesus Christ. May the Holy Spirit help us while we meditate upon the most vital of all subjects, which lies at the very heart of true religion.

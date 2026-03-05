@@ -1,7 +1,5 @@
 # Sermon 871 | To Those Who Are "Almost Persuaded"
 
-A sermon
-
 "Then Agrippa said unto Paul, You almost persuade me to be a Christian."- Acts 26:28.
 
 NOTWITHSTANDING his bonds, Paul is to be envied that he had an opportunity of addressing himself to kings and rulers and that once, at least, in his life he stood before the great master of the Roman world, the Emperor himself. To reach the ignorant who sit on thrones is no mean feat for benevolence. Alas, the Gospel seldom climbs the high places of rank and dignity. It is a great act of mercy towards nobles and princes, when they have the opportunity of hearing a faithful Gospel discourse. Highly favored was Edward VI to have such a preacher as Hugh Latimer, to tell him to his face the Truth of God as it is in Jesus!

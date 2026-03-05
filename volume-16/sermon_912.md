@@ -1,12 +1,5 @@
 # Sermon 912 | The Glorious Hereafter and Ourselves
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 23, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now He that has worked us for the same thingis God, who also has given unto us the earnest of the Spirit." 2 Corinthians 5:5.
 
 IT is a very comforting thing to be able to see the work of God in our own hearts. We can clearly enough perceive the effects of the Fall--the workings of our inward corruption are always sufficiently perceptible. We have not to search long for the foul handiwork of Satan within us, for his temptations vex us day by day, and too often wound us to our dismay. The evil influences of the world are also exceedingly apparent to the eyes of self-examination. It is, therefore, consoling to the highest degree when, amidst all this disfiguring of the vessel by the hands of evil, we can see growing traces of the Great Artist's hand still fashioning the clay upon the wheel and undoing the mischief of His enemies.

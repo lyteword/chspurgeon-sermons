@@ -1,7 +1,5 @@
 # Sermon 898 | A Word with those who Wait for Signs and Wonders
 
-A sermon
-
 "This is an evil generation: they seek a sign."- Luke 11:29.
 
 READING the Old Testament we observe that the Lord, in the olden times, condescendingly gave signs to His servants when He saw that it would be for their good. Moses, when he was called to undertake the great work of bringing the chosen people up out of Egypt and conducting them into the promised land, had a sign given him by which to assure him that he was truly called of God. He put his hand into his bosom and when he took it out it was leprous, white as snow. He thrust it into his bosom again and again removed it and, lo, it was whole as the other! He cast his rod upon the earth and the rod became a serpent, and when he took it by the tail, it stiffened into a rod again.

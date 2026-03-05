@@ -1,7 +1,5 @@
 # Sermon 778 | Plain Words With the Careless
 
-A sermon
-
 "When he saw Jesus, he cried out, fell down before Him, and with a loud voice said, 'What have I to do with You, Jesus, You Son of the Most High God? I beg You, do not torment me.."- Luke 8:28.
 
 IF we understand these words to be the exclamation of the evil spirit which tormented this poor demonian, they are very natural words and one can very readily understand them, for the Presence of Christ is such a great torment to the Prince of Evil, that he might well cry out, "Are you come to torment us before our time?" If we would put Satan to rout we have only to preach the Lord Jesus in the power of the Spirit, for this is the Hell of devils. Hence it is that he roars so much against Gospel preachers--he roars because the Gospel makes him hurt.

@@ -1,7 +1,5 @@
 # Sermon 875 | "Things To Come"
 
-A sermon
-
 "Things to come, all are yours."- 1 Corinthians 3:22.
 
 A SHORT time ago we meditated upon the former words of this verse, "Things present, all are yours." ["Things Present," #870, Vol. 15.] Friends have asserted that it was a pleasant and profitable meditation--may we have more than equal of the blessing of God's Spirit this morning. The waters are deeper in the things to come than in the things present, but they are, every drop of them, as sweet. The horizon is wider in the future than in the present, but it its equally clear. If the clouds which threaten us in the future are darker than any we have up to now experienced, the Covenant rainbow shall span them all. And if the glories which are to be revealed are more sublime than any we have yet beheld, they are as certainly ours as those of less bewildering luster, for there are no hesitations here, but plainly and boldly does the text assert, "Things to come, all are yours."

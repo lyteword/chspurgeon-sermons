@@ -1,12 +1,5 @@
 # Sermon 1194 | "I and the Children"
 
-
-DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 20, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, Iand the children whom the Lord has given me are for signs and for wonders in Israel from the Lord of Hosts, which dwells in Mount Zion." Isaiah 8:18.
 
 WE might possibly have had some difficulty in explaining this verse, or we might have referred it to the Prophet Isaiah and his sons, had not Inspiration been its own expositor. Turn to the New Testament and the text will be no mystery to you. Its key hangs on its proper nail. In the second chapter of the Epistle to the Hebrews, and at the 11th verse, we read--"For both He that sanctifies and they who are sanctified are all of one: for which cause He is not ashamed to call them brethren, saying, I will declare Your name unto My brethren, in the midst of the Church will I sing praise unto You. And again, I will put My trust in Him. And again, Behold, I and the children which God has given Me."

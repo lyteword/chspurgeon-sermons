@@ -1,7 +1,5 @@
 # Sermon 729 | Cheering Words and Solemn Warnings
 
-A sermon
-
 "Say you to the righteous that it shall be well with them, for they shall eat the fruit of their doings. Woe to the wicked! It shall be ill with him, for the reward of his hands shall be given him."- Isaiah 3:10,11.
 
 THERE are two classes mentioned here, the righteous and the wicked. And into these two orders the Book of God is accustomed to divide the whole population of the globe. It speaks but little of upper and lower classes. It says but little concerning the various ranks into which civil and political institutions have divided the race of man--but from its first page to its last it is taken up with this grand division--the righteous and the wicked. Very early in human history we find the "Seed of the woman," and the "seed of the serpent." And we meet with Cain, who was of that Wicked One, and slew his brother, because his own works were evil and his brother's righteous.

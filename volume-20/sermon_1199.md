@@ -1,12 +1,5 @@
 # Sermon 1199 | The Agony in Gethsemane
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING. OCTOBER 18, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And being in an agony He prayed more earnestly: and His sweat was, as it were, great drops of blood falling down to the ground." Luke 22:44.
 
 OUR Lord, after having eaten the Passover and celebrated the supper with His disciples, went with them to the Mount of Olives and entered the Garden of Gethsemane. What induced Him to select that place to be the scene of His terrible agony? Why there, in preference to anywhere else would He be arrested by His enemies? May we not conceive that as in a garden Adam's self-indulgence ruined us, so in another garden the agonies of the second Adam should restore us? Gethsemane supplies the medicine for the ills which followed upon the forbidden fruit of Eden. No flowers which bloomed upon the banks of the four-fold river were ever so precious to our race as the bitter herbs which grew hard by the black and sullen stream of Kidron.

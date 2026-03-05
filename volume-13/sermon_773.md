@@ -1,7 +1,5 @@
 # Sermon 773 | David's Holy Wonder at The Lord's Great Goodness
 
-A sermon
-
 "Oh how great is Your goodness, which You have laid up for them that fear You, which You have worked for them that trust in You before the sons of men."- Psalm 31:19.
 
 YOU will observe in reading this Psalm that David was in deep distress. These are the words of his lamentation: "My life is spent with grief, and my years with sighing: my strength fails because of my iniquity, and my bones are consumed. I was a reproach among all my enemies, but especially among my neighbors, and a fear to my acquaintances: they that did see me outside fled from me. I am forgotten as a dead man out of mind: I am like a broken vessel."

@@ -1,12 +1,5 @@
 # Sermon 1156 | Rubbish
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "There is much rubbish; so that we are not able to build the wall" Nehemiah 4:10.
 
 REMEMBER that Jerusalem had been totally destroyed by Nebuchadnezzar and what is meant by the destruction by the Babylonians may be inferred from the vast heaps of the dust of powdered bricks and charred wood which have been discovered upon the sites of cities which were utterly razed to the ground by the fierce soldiers of that terrible king. The ruins are frequently so complete that even tradition has forgotten the name of the mound or heap which is the sole memorial to mark the sepulcher of a queenly city. The Babylonians made sure work when they did it, their plowers made deep furrows and their destroyers cried one, to another, "Overturn, overturn, overturn, till not a stone shall abide in its place."

@@ -1,7 +1,5 @@
 # Sermon 767 | The Echo
 
-A sermon
-
 "When You said, Seek you My face; my heart said unto You, Your face, Lord, will I seek."- Psalm 27:8.
 
 THIS ready response to a Divine call may be looked at in three ways. It may be said of it, first, that it is the natural duty of man to God such as his responsibility to his Creator demands. I should not like to think it necessary to prove that statement in this assembly. Surely when God creates a man it is but a matter of right that the man created should answer to the call of his Maker. When the Creator says, "Seek you My face," it is the natural duty of the creature to reply, "Your face, Lord, will I seek." And the more is this so, because our Creator renews our obligations hourly by exercising His sustaining power and maintaining our existence. In a certain sense we are "created" every day, because the creature would go back to its native nothingness--our bodies would return to the dust, and our spirits would expire--if it were not for a continued action of Divine Omnipotence by which we are retained in being.

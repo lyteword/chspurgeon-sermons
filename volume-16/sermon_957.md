@@ -1,12 +1,5 @@
 # Sermon 957 | Jesus No Phantom
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 2, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when the disciples saw Him walking on the sea, they were troubled, saying, It is a ghost. And they cried out for fear." Matthew 14:26.
 
 SOME of the richest comforts are lost to us for want of clear perception. What consolation could be greater to the tempest-tossed disciples than to know their Master was present, and to see Him manifestly revealed as Lord of sea as well as land? Yet because they did not discern Him clearly, they missed the incomparable consolation. What is worse, at times the dimness of our perception will even turn the rarest consolation into the source of fear. Jesus is come, and in His coming the Sun of their joy has risen, but they do not perceive it to be Jesus. And thinking it to be a phantom, they are filled with alarm and cry out in dread.

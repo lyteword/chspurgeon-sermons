@@ -1,12 +1,5 @@
 # Sermon 1183 | Is Conversion Necessary?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 19, 1874,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore if any man is in Christ, he is a new creature: old things are passed away; behold, all things are become new." 2 Corinthians 5:17.
 
 A FEW days ago I was preaching in Lancashire upon the putting away of sin by our Lord Jesus and the consequent peace of conscience enjoyed by the Believer. In the course of the sermon I related my own conversion, with the view of showing that the simple act of looking to Jesus brought peace to the soul. Now, the diocese of Manchester is presided over by a bishop who has a deservedly high place in public esteem for his zeal, industry and force of character. And, feeling that he did not agree with me, he has very properly taken an opportunity to warn the working men, whom he addressed, against drawing improper inferences from my story. And he has done this in a manner so courteous that I only wish all discussions were conducted in the same spirit.

@@ -1,12 +1,5 @@
 # Sermon 1055 | Ingratitude of Man
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 9, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He came unto His own, and His own received Him not." John 1:11.
 
 I WOULD very frankly confess at the outset that I am not about to preach from the words of this text and that I have selected it solely because it contains an epitome of man's behavior towards the Savior. He came unto His own people, the Jews, and answered in every particular to the descriptions which their Prophets had given. But as they were looking for a temporal leader who should dazzle them with an earthly kingdom, they would not acknowledge the true Messiah. And though He continued to come unto them preaching and working such miracles among them as no other man did, so that their unbelief was without excuse, they still rejected Him. This was a gross act of ingratitude. It was superlative kindness which brought Jesus to that nation in particular and to the sons of men in general--it was supreme ingratitude when that nation, alas, in this representing us all, would not receive Him, but rejected the Lord of Glory.

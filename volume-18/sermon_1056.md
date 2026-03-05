@@ -1,12 +1,5 @@
 # Sermon 1056 | Perseverance Without Presumption
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, MARCH 7, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I give them eternal life, and they shall never perish, neither shall any man pluck them out of My hand." John 10:28.
 
 THOSE of you who were present last Thursday evening will remember that I spoke, then, upon the necessity of "holding fast the beginning of our confidence steadfast unto the end," [A PERSUASIVE TO STEADFASTNESS, NO. 1042] and I showed you that it is only by continuing in the faith with which we began that we are proven to be partakers of the Lord Jesus Christ. Now, let us speak as plainly as we may, we are always liable to be misunderstood. The most eager hearer may easily confuse his thoughts with our words, and so attribute notions to us that spring up spontaneously in his own mind.

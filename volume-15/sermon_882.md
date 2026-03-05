@@ -1,7 +1,5 @@
 # Sermon 882 | The Old Man Crucified
 
-A sermon
-
 "Knowing this, that our old man is crucified with Him." - Romans 6:6.
 
 EVERY new man is two men--every Believer in Christ is what he was and not what he was--the old nature and the new nature exist at the same time in each regenerate individual. That old nature the Apostle calls a man, because it is a complete manhood after the image of fallen Adam. It has the desires, the judgment, the mind, the thoughts, the language and the action of man as he is in his rebellious estate. He calls it the "old man," because it is as old as Eden's first transgression. It is as old as we are. It is the nature born with us, the natural depravity, the fleshly mind which we inherited from our parents. It is tainted by the old serpent and bears within it a dread propensity to his old sin.

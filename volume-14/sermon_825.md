@@ -1,8 +1,5 @@
 # Sermon 825 | The Sieve
 
-
-Delivered on lord's-day morning, august 16, 1868, by C. H. SPURGEON, at the [35]Metropolitan Tabernacle, Newington.
-
 "For, lo, I will command, and I will sift the house of Israel among all nations, like as corn is sifted in a sieve, yet shall not the least grain fall upon the earth." Amos 9:9.
 
 "I WILL command, and I will sift"--how easily the Divine purposes become facts! The Lord has but to command and His will is done. Omnipotence has servants everywhere. If those who serve Jehovah cheerfully shall not suffice to carry out His will, the very devils themselves, and the most rebellious of spirits shall be chained to the chariot of His Divine decree and made to effect His designs--

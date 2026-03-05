@@ -1,12 +1,5 @@
 # Sermon 932 | How God Condemned Sin
 
-
-DELIVERED ON LORD'S-DAY EVENING, MAY 8, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For what the Law could not do, in that it was weak through the flesh, God sending His o wn Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh." Romans 8:3.
 
 EVER since man has fallen away from God, two things have been highly desirable. The one, that he should be forgiven all his offenses. The other, equally if not more important, that he should be led to hate the sin into which he has fallen and love the purity and holiness from which he has become alienated. These two disabilities must be removed, or, looking at the matter from a loftier point of view, these two purposes of Divine mercy must be accomplished together.

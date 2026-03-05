@@ -1,6 +1,5 @@
 # Sermon 690 | A Lesson From The Great Panic
 
-
 > "The removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain."  
 > Hebrews 12:27.  
 

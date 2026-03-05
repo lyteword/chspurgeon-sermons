@@ -1,12 +1,5 @@
 # Sermon 956 | Think Well And Do Well
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 23, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For Your loving kindness is before my eyes: and I have walked in Your Truth." Psalm 26:3.
 
 THROUGHOUT this Psalm David is laboring under the fear that he should be judged and condemned with the ungodly world. He feels in his own heart that he is not one with the enemies of God, and he shudders lest having hated their society on earth he should be shut up in their company forever. His agonizing prayer is, "Gather not my soul with sinners, nor my life with bloody men." In urging reasons before the Throne of Grace why he should not be reckoned in the same condemnation as the ungodly, he urges not self-righteously, but truthfully and confidently that there was a difference made by Grace between himself and them.

@@ -1,14 +1,5 @@
 # Sermon 983 | Moab Is My Washpot
 
-A Sermon
-
-
-by
-
-H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
-
 "Moab is my washpot."--Psalm 60:8.
 
 MOAB, which had threatened Israel, was to be so completely subdued, and become so utterly contemptible as to be likened to a washpot or basin in which men wash their feet. More than this, however, may have been intended--nay, we feel sure was intended by the expression. Let us explain exactly what the language literally means. In the East the general mode of washing the hands and the feet is with a basin and ewer; water is poured upon the hands or feet from the ewer, and it falls into the basin. No Oriental, if he can help it, will wash in standing water; he prefers to have it clear and running. He puts his feet into the washpot, into the bath, into the basin, and then the clear, cool liquid is poured upon his feet; the washpot answering the sole purpose of holding the dirty water which has already passed over the man's flesh. Wearing no completely covering shoes, as we do, but only sandals, the feet of an eastern traveler in a long journey become very much defiled; the water, therefore, when it runs off from them, is far from clean, and the washpot is thus put to a very contemptible use by being only the receptacle of dirty water. When Moab thus became a washpot, it was far other than when it was said, "Moab hath been at ease from his youth, and he hath settled on his lees, and hath not been emptied from vessel to vessel, neither hath he gone into captivity: therefore his taste remained in him, and his scent is not changed." "We have heard the pride of Moab (he is exceeding proud), his loftiness, and his arrogancy, and his pride, and the haughtiness of his heart."

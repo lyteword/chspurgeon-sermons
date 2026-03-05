@@ -1,8 +1,5 @@
 # Sermon 839 | The Head of the Church
 
-
-Delivered on Lord's-Day Morning, November 1, 1868, by C. H. SPURGEON, at the [47]Metropolitan Tabernacle, Newington.
-
 "He is the head of the body, the church." Colossians 1:18.
 
 As if to show us that this title of "Head of the Church" is to be held in highest esteem, it is here placed in connection with the loftiest honors of our Lord Jesus. In the same breath the Son of God is styled "the image of the invisible God," "the first-born of every creature," the Creator of all existence, and then, "the head of the body, the church." We dare not, therefore, think slightly of this title, nor do we hesitate to assert that any levity with regard to it would be as disgraceful as the profane use of any other name of our Divine Lord. For any mortal to assume it to himself, we conceive would be equal in blasphemy to the assumption of the mediatorial office--and we should be no more shocked to hear a man claim to be "the Creator of all things," than we are now when a mortal is designated, "Head of the Church."

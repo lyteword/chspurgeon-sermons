@@ -1,7 +1,5 @@
 # Sermon 850 | Soul-winning
 
-A sermon
-
 "He that wins souls is wise."- Proverbs 11:30.
 
 THE text does not say, "he that wins money is wise," though no doubt he thinks himself wise and perhaps, in a certain groveling sense in these days of competition, he might be so. But such wisdom is of the earth, and ends with the earth. There is another world where the currencies of Europe will not be accepted, nor their past possession be any sign of wealth or wisdom. Solomon, in the text before us, awards no crown for wisdom to crafty statesmen, or even to the ablest of rulers. He issues no diplomas to philosophers, poets, or men of wit. He crowns with laurels only those who win souls.

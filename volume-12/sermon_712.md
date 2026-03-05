@@ -1,6 +1,5 @@
 # Sermon 712 | War With Amalek
 
-
 > "Then came Amalek, and fought with Israel in Rephidim."  
 > Exodus 17:8.  
 

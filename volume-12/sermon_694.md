@@ -1,6 +1,5 @@
 # Sermon 694 | Sin Laid on Jesus
 
-
 > "All we like sheep have gone astray; we have turned every one to his own way; and the Lord hath laid on him the iniquity of us all."  
 > Isaiah 53:6.  
 

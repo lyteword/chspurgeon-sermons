@@ -1,12 +1,5 @@
 # Sermon 950 | Means for Restoring the Banished
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 11, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Neither does God respect any person: yet does He devise means, that His banished are not expelled from Him." 2Samuel 14:14.
 
 THE woman of Tekoah, in arguing with David for the recall of his son Absalom, argued with great shrewdness. After craftily entrapping the king by her parable, she then pleaded with him in persuasive terms--the cleverness of which we must admire--though the end aimed at was not consistent with the impartial justice which every magistrate ought to exercise. In effect she pleaded thus--"It is true that Absalom slew his brother Amnon. But nevertheless spare his life, and permit him to return from exile. What is done cannot be undone. Death is the common lot of all, and one way or another we must all become like water spilt upon the ground which cannot be gathered up.

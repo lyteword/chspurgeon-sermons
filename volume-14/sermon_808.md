@@ -1,6 +1,5 @@
 # Sermon 808 | Bringing the King Back
 
-
 > "Now therefore why speak you not a word of bringing the king back?"  
 > 2 Samuel 19:10.  
 

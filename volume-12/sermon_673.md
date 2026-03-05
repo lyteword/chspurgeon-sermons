@@ -1,6 +1,5 @@
 # Sermon 673 | Secret Sins Driven Out By Stinging Hornets
 
-
 > "Moreover the Lord your God will send the hornet among them, until those who are left, who hide themselves from you, are destroyed."  
 > Deuteronomy 7:20.  
 

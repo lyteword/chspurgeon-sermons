@@ -1,12 +1,5 @@
 # Sermon 1122 | Fresh Grace Confidently Expected
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I shall be anointed with fresh oil." Psalm 92:10.
 
 DAVID IS very positive. He does not say, "I hope I shall be anointed with fresh oil and I have a pleasing expectation that it may be so." But he speaks of his future as absolutely certain--"I shall be anointed with fresh oil." Nor will it appear at all wonderful that he should be so positive if you read the Psalm, for his subject there is the ever-living and all-sufficient God. And when we get near to God we get into the region of positive certainty. While we depend upon man we are in the realm of, "maybe," and, "hope," and, "perhaps"--but when we come to rest in God we are far removed from everything that is of chance and conjecture. Our God is the God of Truth and Righteousness. "He is my rock, and there is no unrighteousness in Him."

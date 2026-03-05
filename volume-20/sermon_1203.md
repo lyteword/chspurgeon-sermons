@@ -1,12 +1,5 @@
 # Sermon 1203 | The Consecration of Priests
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 15, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "This is the thing that you shall do onto them to hallow them, to minister unto Me in the priest's office." Exodus 29:1.
 
 UNDER the Law, only one family could serve God in the priest's office, but under the Gospel all the saints are "a chosen generation, a royal priesthood" (1 Peter 2:9). In the Christian Church no persons whatever are set apart to the priesthood above the rest of their Brethren, for in us is fulfilled the promise which Israel, by reason of her sin, failed to obtain--"You shall be a kingdom of priests unto Me." Paul, in addressing all the saints, bids them present their bodies a living sacrifice, holy, acceptable unto God, which is their reasonable service. It is the grand design of all the works of Divine Grace, both for us and in us, to fit us for the office of the spiritual priesthood, and it will be the crown of our perfection when, with all our Brothers and Sisters, we shall sing unto the Lord Jesus the new song, "Unto Him that loved us and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father; to Him be glory and dominion forever and ever."

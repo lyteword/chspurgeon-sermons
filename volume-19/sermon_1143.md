@@ -1,12 +1,5 @@
 # Sermon 1143 | Death for Sin and Death to Sin
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 16, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who His own self bore our sins in His own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes you were healed." 1 Peter 2:24.
 
 PETER, in this chapter, exhorted Christians to holiness and dwelt upon that branch of holiness which consists in the patient endurance of wrong. He could find no better argument with which to plead with the saints than the life and example of their Lord, and, indeed, who could find a better? Since the Lord Jesus is all our salvation, He is also all our desire. And to be like He is, is the highest object of our ambition. If, therefore, we find Him patient under wrong, it is to us a conclusive argument that we should be patient, too. I admire the Apostle Peter, because in using so good an argument he selected from the life of his Lord that particular portion of it which must have been most vividly written upon his own soul.

@@ -1,7 +1,5 @@
 # Sermon 866 | Rest
 
-A sermon
-
 "For we who have believed do enter into rest."- Hebrews 4:3.
 
 REST! A dainty word, indeed! Too rich a syllable for this unstable earth! Is it not a stray word from the language of the celestials? REST! Is it obtainable? Is it possible? Can there ever be rest for the race who were driven out of Paradise to till the ground from where they were taken and to eat bread in the sweat of their face? Rest! Is it possible for a soul polluted with sin, tossed to and fro with lusts and agitated with outward temptations? Is not man like the dove sent forth from the ark, when towards evening, it longed for a rest for the sole of its feet, but found none? Is it not the fate of man's soul to use her wings as long as they will last her--forever flitting to and fro in vain pursuit of rest--seeing far and wide mocking wastes of disappointments, but never reaching a place of repose for her flagging pinions?

@@ -1,12 +1,5 @@
 # Sermon 949 | The Unconquerable King
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 4, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "At the end of the days I, Nebuchadnezzar, lifted up my eyes unto Heaven, and my understanding returned unto me, and I blessed the Most High, and I praised and honored Him that lives forever, whose dominion is an everlasting dominion, and His kingdom is from generation to generation: and all the inhabitants of the earth are reputed as nothing: and He does according to His will in the army of Heaven, and among the inhabitants of the earth: and none can stay His hand, or say unto Him, What do You?" Daniel 4:34,35.
 
 NO one has ever numbered Nebuchadnezzar with the Prophets, or believed his language to be inspired. We have before us simply a statement made by an uninspired man, after passing through the most extraordinary experience. He had been among the greatest and proudest of men--he suddenly fell into the condition of a grass-eating ox, by losing his reason. And upon being restored, he acknowledged publicly the hand of the Most High. I should not have taken his language as my text if it had not happened to be, as it is, a most correct and vigorous statement of sublime doctrines which are clearly stated by the Holy Spirit in different parts of Scripture.

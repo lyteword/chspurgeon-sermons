@@ -1,12 +1,5 @@
 # Sermon 1246 | The Blessings Of Following On
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then shall we know, if we follow on to know the Lord. His going forth is prepared as the morning, and He shall come unto us as the rain, as the latter and former rain unto the earth." Hosea 6:3.
 
 I MUST first remove the moldy piece from the text, and that is the word, "if," which has no sort of business here whatever. You notice that the translators put it in italics, to intimate to us that it was no Word of God, but one of their own words which they thought necessary to complete the sense. We might read--and we should, to be far nearer the sense--"Then shall we know when we follow on to know the Lord." Or, perhaps, better still, "We shall know: we shall follow on to know the Lord," for there is no trace of question in the matter, and no indication of an, "if." We will cut out man's, "if," and then take the text as it should have been--"Then shall we know when we follow on to know the Lord. His going forth is prepared as the morning."

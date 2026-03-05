@@ -1,12 +1,5 @@
 # Sermon 1140 | Let Him Alone
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Ephraim is joined to idols: let him alone." Hosea 4:17.
 
 TO what purpose these vast assemblies Sunday after Sunday? Why do you crowd these aisles and galleries till every seat is occupied, and every foot of standing room is filled? Have you, all of you, a zeal to worship? Do you all thirst to hear the Word of the Lord? Ah me! I am beset with fears and misgivings. My heart is troubled for full many of you. Many persons entertain the evil notion that preaching sermons and hearing sermons is a light matter. When the occasion is past, the exhortation closed, the congregations broken up and the Sunday over, they think that all is done and ended. The doors are shut and what they have heard they no longer heed any more than if they had been at the theater, and the curtain had fallen, and the lights were out.

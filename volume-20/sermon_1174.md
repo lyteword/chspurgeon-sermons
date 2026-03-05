@@ -1,12 +1,5 @@
 # Sermon 1174 | The Ear Bored With An Awl
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And if the servant shall plainly say, I love my master, my wife, and my children; I will not go out free: Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the doorpost; and his master shall bore his ear through with an awl; and he shall serve him forever." Exodus 21:5, 6.
 
 THE slavery which existed among the ancient Jews was a very different thing from that which has disgraced humanity in modern times. And it ought also to be remembered that Moses did not institute slavery in any shape or fashion. The laws concerning it were made on purpose to repress it, to confine it within very narrow bounds and, ultimately, to put an end to it. It was like the law of divorce--Moses authored that law but he knew that the people were so deeply rooted in it that it could not be forbidden. And therefore, as Jesus tells us, Moses, because of the hardness of their hearts, suffered them to put away their wives. And so, I may say, because of the hardness of their hearts he suffered them, still, to retain persons in servitude. But he made the laws very stringent, so as almost to prevent it.

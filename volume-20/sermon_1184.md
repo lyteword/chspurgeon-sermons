@@ -1,12 +1,5 @@
 # Sermon 1184 | The Sad Plight and Sure Relief
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For when we were yet without strength, in due time Christ died for the ungodly." Romans 5:6.
 
 As I was sitting, the other day, with an aged Believer who is a local preacher among our Wesleyan friends, he said to me, "I cannot hope, in the course of nature, to stand up in the pulpit many more times. Therefore, every time I preach now, I preach of nothing but Jesus Christ. And I said to the people the other day, 'You will say when I am dead and gone, Poor old Mr. So-and-So will come and preach to us no more. But as he got older and older the more he preached about Jesus Christ, till for the last few months of his life the old man never spoke about anything but his Master.'" Then, as if confidentially addressing himself to me, he said, "I should like to leave just that impression upon the people's minds when I am taken from them."

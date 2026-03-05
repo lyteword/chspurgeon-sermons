@@ -1,12 +1,5 @@
 # Sermon 1067 | The Resurrection Credible
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 25, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Why should it be thought a thing incredible with you, that God should raise the dead?" Acts 26:8.
 
 CONCERNING the souls of our believing friends who have departed this life we suffer no distress, we feel sure that they are where Jesus is and behold His Glory according to our Lord's own memorable prayer. We know but very little of the disembodied state, but we know quite enough to rest certain beyond all doubt that--

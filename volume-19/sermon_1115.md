@@ -1,12 +1,5 @@
 # Sermon 1115 | The Good Shepherdess
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Tell me, O You whom my soul loves, where You feed, where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions? If you know not, O you fairest among women, go your way forth by the footsteps of the flock, and feed your kids beside the shepherds' tents." Song of Solomon 1:7,8.
 
 THE bride was most unhappy and ashamed because her personal beauty had been sorely marred by the heat of the sun. The fairest among women had become swarthy as a sunburn slave. Spiritually it is so full often with a chosen soul. The Lord's Grace has made her fair to look upon, even as the lily, but she has been so busy about earthly things that the sun of worldliness has injured her beauty. The bride, with holy shamefacedness, exclaims, "Look not upon me, for I am black, because the sun has looked upon me." She dreads alike the curiosity, the admiration, the pity and the scorn of men. She then turns herself, alone, to her Beloved, whose gaze she knows to be so full of love that her swarthiness will not cause her pain when most beneath His eyes.

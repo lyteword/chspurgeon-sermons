@@ -1,6 +1,5 @@
 # Sermon 721 | The Last Enemy Destroyed
 
-
 > "The last enemy that shall be destroyed is death."  
 > 1 Corinthians 15:26.  
 

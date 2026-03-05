@@ -1,7 +1,5 @@
 # Sermon 753 | Nazareth--or Jesus, Rejected by His Friends
 
-A sermon
-
 "And all they in the synagogue, when they heard these things, were filled with wrath, and rose up, and thrust Him out of the city. And they led Him unto the brow of the hill on which their city was built, that they might throwHim down over the cliff. Thenpassing through the midst of them He went His way."- Luke 4:28-30.
 
 JESUS had spent several years in retirement in the house of His reputed father at Nazareth. He must have been well known--the excellency of His Character and conduct must have attracted notice. In due time He left Nazareth, was baptized by John in Jordan, and began at once His work of preaching and working wonders. The inhabitants of Nazareth, no doubt, often said to one another, "He will be sure to come home and see His parents. When He comes we will all go to hear what the carpenter's son has to say."

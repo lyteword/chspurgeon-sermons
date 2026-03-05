@@ -1,12 +1,5 @@
 # Sermon 934 | Bands Of Love
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 5, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I drew them with cords of a man, with bands of love: and I was to them as they that take off the yoke on their jaws, and I laid meat unto them." Hosea 11:4.
 
 GOD, by the mouth of His Prophet, is here expostulating with His people for their ungrateful rebellion against Him. He had not treated them in a harsh, tyrannical, overbearing manner, else there might have been some excuse for their revolt. But His rule had always been gentle, tender, and full of pity. Therefore, for them to disobey Him was the very height of wanton wickedness. The Lord had never made His people to suffer hard bondage in mortar and in brick as Pharaoh did, yet we do not find that they raised an insurrection against the Egyptian tyrant. They gave their backs to the burdens, and they bore the lash of the taskmaster without turning upon the hands which oppressed them.

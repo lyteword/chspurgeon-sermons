@@ -1,14 +1,5 @@
 # Sermon 796 | Joshua's Obedience
 
-A Sermon
-
-
-Delivered by
-
-H. SPURGEON,
-
-at the [9]Metropolitan Tabernacle, Newington.
-
 "Only be you strong and very courageous, that you may observe to do according to all the Law which Moses, My servant commanded you: turn not from it to the right hand or to the left, that you may prosper where ever you go." Joshua 1:7.
 
 JOSHUA was very highly favored in the matter of promises. The promises given him by God were broadly comprehensive and exceedingly encouraging. But Joshua was not, therefore, to say within himself, "These covenant engagements will surely be fulfilled and I may therefore sit still and do nothing." On the contrary, because God had decreed that the land should be conquered, Joshua was to be diligent to lead the people onward to battle. He was not to use the promise as a couch upon which his indolence might luxuriate, but as a girdle wherewith to gird up his loins for future activity.

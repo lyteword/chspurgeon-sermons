@@ -1,10 +1,5 @@
 # Sermon 756 | Work
 
-A sermon
-
-
-Delivered on Thursday Evening, March 21, 1867, by C. H. Spurgeon, at the Surrey Chapel, Blackfriars Road.
-
 "I must work the works of Him who sent Me while it is day: the night comes, when no man can work."- John 9:4.
 
 You observe that a very speculative question had been put to our Lord, and His answer to that very speculative question is, "I must work." His disciples wished to know something about the mysterious fact that some persons are born in an unhappy condition--blind, or deaf, or dumb--on what account they were sent into the world under such disadvantageous circumstances. Would you not, yourselves, like to know? Do you not wish that the Savior had expounded all that mystery?

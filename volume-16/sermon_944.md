@@ -1,12 +1,5 @@
 # Sermon 944 | An Encouraging Lesson From Paul's Conversion
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 7, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then Ananias answered, Lord, I have heard by many of this man, how much evil he has done to Your saints at Jerusalem: and here he has authority from the chief priests to bind all that call on Your name. But the Lord said unto him, Go your way: for he is a chosen vessel unto Me, to bear My name before the Gentiles, and kings, and the children of Israel: for I will show him how great things he must suffer for My name's sake." Acts 9:13-16.
 
 THE conversion of Saul of Tarsus was one of the most remarkable facts in Christian history. Perhaps there has never happened an event of equal importance since the days of Pentecost. It was important as a testimony to the power and Truth of the Gospel. When such a man, so violently opposed, so intelligent and well-instructed, could be converted to the faith of the Nazarene by the appearance of the Lord from Heaven, it was a testimony alike to the fact of our Lord's Resurrection, and to the power of His Word.

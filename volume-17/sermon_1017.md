@@ -1,6 +1,5 @@
 # Sermon 1017 | The Talking Book
 
-
 > "When thou awakest, it shall talk with thee"  
 > Proverbs 6:22.  
 

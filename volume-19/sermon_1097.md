@@ -1,12 +1,5 @@
 # Sermon 1097 | Good Cause for Great Zeal
 
-
-A SERMON DELIVERED
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now because we have maintenance from the king's palace, and it was not meet for us to see the King dishonored, therefore have we sent and informed the king." Ezra 4:14.
 
 THE facts of the case were these. Under Zerubbabel, the Jews, who had returned from Babylon, commenced to rebuild Jerusalem. There were in the land certain half-and-half persons, somewhat like the Samaritans, who were neither Jews nor Gentiles and they asked, at first, that they might join in the building of Jerusalem. This was refused, the Jews determining to keep themselves pure from all association with the heathen or semi-heathen. So indignant were these people at this that they wrote Artaxerxes, the king, to tell him that he was very little aware of what was going on in Judea, for the Jews had always been, from time immemorial, a troublesome people, and now they were beginning to build their city again. And as soon as it was built they would, in all probability, revolt against King Artaxerxes and give him much trouble, as their fathers had done to kings before him.

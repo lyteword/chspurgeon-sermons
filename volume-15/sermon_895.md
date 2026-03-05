@@ -1,7 +1,5 @@
 # Sermon 895 | A Summons To Battle
 
-A sermon
-
 "The time when kings go forth to battle."- 2 Samuel 11:1.
 
 THERE seems to have been in the olden times, among the petty sovereigns of the East, regular seasons for warfare. Perhaps they marched forth in the spring, when the grass would afford food for their horses, or possibly in the autumn, when the troops could forage upon the standing crops. These sovereigns of small territories were little better than the captains of hordes of robbers, and their revenues were rather derived from plunder than from legitimate taxation. We may thank God that we live in a happier era, for the miseries of nations were then beyond imagination. Desolating as war now is, its evils are comparatively little compared with those days of perpetual plunder. There are times when kings go forth to battle now--they will be at their accursed trade when they think that their people will tolerate another oppressive tax, or when their credit is good enough for their bankers to make them another advance. Alas, the blood which has been poured forth to gratify the ambition of princes!

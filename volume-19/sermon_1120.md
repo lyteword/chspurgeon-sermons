@@ -1,12 +1,5 @@
 # Sermon 1120 | The Apple Tree in the Woods
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 6, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As the apple tree among the trees of the woods, so is my Beloved among the sons." Song of Solomon 2:3.
 
 BY the apple tree would probably be intended by the oriental writer either the citron, or the pomegranate, or the orange. I suppose he did not refer to the apple tree of our gardens, for it would scarcely be known to him. The word would not, however, be properly rendered if we confined it to any of the three fruit trees we have mentioned, or if we excluded our own apple from it, for the term apple comprehends all large round fruit not enclosed in a shell. And so we may, without making any mistake, think of the apple tree of our own English orchards and the metaphor will stand good, except that the shadow of our apple tree at home is hardly so excellent a retreat from the sun as the shadow of the other trees included under the term.

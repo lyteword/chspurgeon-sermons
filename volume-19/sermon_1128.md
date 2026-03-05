@@ -1,12 +1,5 @@
 # Sermon 1128 | Love's Crowning Deed
 
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, AUGUST 24, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Greater love has no man than this, that a man lay down his life for his friends." John 15:13.
 
 I HAVE lately in my ministry very much detained you in the balmy region of Divine lovingkindness. Our subjects have frequently been full of love. I have, perhaps, repeated myself, and gone over the same ground again and again, but I could not help it. My own soul was in a grateful condition and therefore out of the abundance of the heart the mouth has spoken. Truly I have little reason to excuse myself, for the region of love to Christ is the native place of the Christian. We were first brought to know Christ and to rest in Him through His love, and there, in the warmth of His tenderness, we were born to God. Not by the terrors ofjustice, nor the threats of vengeance were we reconciled, but Divine Grace drew us with cords of love.

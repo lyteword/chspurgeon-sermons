@@ -1,12 +1,5 @@
 # Sermon 1179 | Forty Years
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 14, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the Lord your God has blessed you in all the works of your hands: He knows your walking through this great wilderness: these forty years the Lord your God has been with you; you have lacked nothing." Deuteronomy 2:7.
 
 THE habit of numbering our days is a very admirable one. To do it rightly a man needs to be taught of God and if we have not been so taught, it is well to offer the prayer, "So teach us to number our days that we may apply our hearts unto wisdom." Some men number their cattle, number their acres, number their pounds, but do not number their days, or, if they do, they fail to draw the inference from them which both reason and Divine Grace suggest--that we may apply our hearts unto wisdom. It is not wisdom to try to seem younger than you are, though I have known many attempt it. I have marked between census and census that the ages of certain persons have hardly increased 10 years, as I thought they would have done by the lapse of time. The age of many whom we admire is an inscrutable mystery.

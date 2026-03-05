@@ -1,12 +1,5 @@
 # Sermon 1167 | Additions to the Church
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 5, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the Lord added to the Church daily such as should be saved." Acts2:47.
 
 WE are just coming to the most beautiful season of the year--Spring--when everything around us is shaking off the chill grave clothes of winter and putting on the beautiful array of a new life. The Church of God was in that condition at Pentecost--her winter was past and the flowers appeared on the earth. She enjoyed the spring breezes, for the breath of the Holy Spirit refreshed her garden. There was spring music--the time of the singing of birds was come, for her preachers testified faithfully of Jesus. And so many and varied were the sweet notes which welcomed the new season, that many nations of men heard in their own tongue the wonderful works of God!

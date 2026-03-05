@@ -1,12 +1,5 @@
 # Sermon 1193 | Girding on the Harness
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 6, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the king of Israel answered and said, Tell him, Let not him that girds on his harness boast himself as he that takes it off" 1 Kings 20:11.
 
 THESE two kings were about to proceed to war and they irritated one another by insulting messages. That was the custom of all combatants in the old heathen times. They seemed to delight in stinging each other and exciting each other's worst passions before they commenced the battle. Let it not be so among us. If we have to contend for the Truth of God let us endeavor to do it in the kindest spirit. And if we must smite, let it always be with the iron rod of Truth held in the hand of love, wounding none, nor exulting over them, but breaking in pieces their errors and their sins by the help of God. The blow will be none the weaker for being divested of anything like an evil spirit and an ungenerous temper. Speak the Truth firmly and contend earnestly for it, but never manifest a bitter spirit. Bring up the weightiest arguments you can find, but let them be accompanied with courtesy and kindness, for the wrath of man works not the righteousness of God--and it is ill for a Christian soldier to imitate the manners of the heathen.

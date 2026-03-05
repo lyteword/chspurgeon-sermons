@@ -1,6 +1,5 @@
 # Sermon 1008 | Love's Logic
 
-
 > "We love him because he first loved us."  
 > 1 John 4:19.  
 

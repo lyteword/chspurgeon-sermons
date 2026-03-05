@@ -1,12 +1,5 @@
 # Sermon 1075 | A Root Out Of A Dry Ground
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 13, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A root out of a dry ground." Isaiah 53:2.
 
 THE Prophet is speaking of the Messiah. He declares of Him, "He shall grow up before Him as a tender plant, and as a root out of a dry ground: He has no form nor comeliness; and when we shall see Him, there is no beauty that we should desire Him." It is marvelous that with such plain prophecies concerning the Messiah the Jews should have made such a fatal mistake in reference to Him. They looked for a temporal prince who would come in splendor, notwithstanding that this and other Scriptures speak of His humiliation in express terms. Every unprejudiced person might have seen from this passage that the Messiah, when He came, was not to be surrounded with pomp but would come as "a Man of sorrows, and acquainted with grief," to be, "despised and rejected of men."

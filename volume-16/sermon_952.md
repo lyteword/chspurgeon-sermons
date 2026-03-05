@@ -1,12 +1,5 @@
 # Sermon 952 | Negotiations For Peace
 
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 18, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Preaching peace by Jesus Christ; (He is Lord of all)." Acts 10:36.
 
 THESE words were addressed to an admirable congregation, all met with an earnest purpose, all conscious that they were in the Presence of God, all like good soil that had been plowed and prepared for the good seed. Happy preacher to have such a congregation! God make this congregation to be of the same sort. The preacher, also, was a right faithful messenger from Heaven. No sooner did Peter know that he was commissioned to the Gentile centurion and his household, than he came to his house. And when he found himself surrounded by the family and their friends, he girt up his loins for his work and gave his whole soul to his subject. Peter goes straight to his business. There is no beating about the bush, no prefatory apology--he begins to preach.

@@ -1,7 +1,5 @@
 # Sermon 900 | Preach, Preach, Preach Everywhere!
 
-A sermon
-
 "And He said unto them, Go you into all the world and preach the Gospel to every creature. He that believes and is baptized shall be saved; but he that believes not shall be damned."- Mark 16:15,16.
 
 BEFORE our Lord gave His disciples this commission He addressed them in tones of serious rebuke. You will observe that appearing unto the Eleven as they ate meat, "He upbraided them with their unbelief and hardness of heart because they believed not them which had seen Him after He was risen." So honorable an estimation did He set upon testimony--so marked a censure did He pronounce upon those who neglected it! The reprimand they received on such an occasion may well serve as a caution to us for unbelief unfits the Christian for service. It is in proportion to our personal faith in the Gospel that we become competent witnesses for the teaching of it to others. Each one of us who would get credit for sincerity must say with David, "I believed, therefore have I spoken," or else a need of faith of ourselves will effectually deprive our speech of all its power over our fellow men.

@@ -1,12 +1,5 @@
 # Sermon 1147 | The Gentleness Of Jesus
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 14, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He shall not strive, nor cry; neither shall any man hear His voice in the streets. A bruised reed shall He not break, and smoking flax shall He not quench, till He sends forth judgment unto victory. And in His name shall the Gentiles trust." Matthew 12:19,20,21.
 
 EVERY single fragment of Scripture is precious. Short texts culled here and there, as subjects of meditation, are useful. At the same time the practice of discoursing upon disconnected extracts may be carried too far, and sometimes the meaning of a passage may be entirely lost by not regarding its connection. The Bible ought to be treated in the reading of it as any other book is treated, only with much more of reverential regard. Suppose that Milton's "Paradise Lost" were used as a textbook--and that its general mode of usage were to take separate lines disconnected from the rest of the great poem--and consider them as positive statements and suitable topics of meditation?

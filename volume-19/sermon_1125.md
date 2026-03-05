@@ -1,12 +1,5 @@
 # Sermon 1125 | The World On Fire
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 3, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But the day of the Lord will come as a thief in the night; in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up. Seeing then that all these things shall be dissolved, what manner of persons ought you to be in all holy con versation and godliness?" 2 Peter 3:10,11.
 
 MEN have frequently inferred liberty to sin from the apparent absence of God from the world. Because the Lord, in His infinite long-suffering, has suffered transgression to go for awhile unpunished, therefore they have wickedly said, "How does God know? The Almighty does not regard us. He will neither interfere to punish men nor to reward them, whether they break or keep His Commandments." When for a long time no great changes have occurred in the world, no remarkable judgments, no visitations of famine, pestilence, or war, men are very apt to grow carnally secure and to take license to sin from the merciful respite which ought to halve led them to gratitude, and through gratitude to obedience. At certain periods it has seemed to the Most High to be imperatively necessary to send great calamities upon mankind lest pride, oppression and profanity should cause society utterly to rot.

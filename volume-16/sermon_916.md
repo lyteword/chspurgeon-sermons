@@ -1,10 +1,5 @@
 # Sermon 916 | A Generous Proposal
 
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Come you with us, and we will do you good." Numbers 10:29.
 
 THESE ancient words, so simple, yet so sweet, fascinate us with a potent hallowed charm. They ring out their melody like a familiar air. The language of a heart full of kindness, inspired with faith, and inspirited with the enthusiasm of a hope so much Divine that the lapse of ages impairs not their force, or diminishes anything from their natural spontaneous freshness. This story of Hobab one can hardly read without remembering the Apostolic declaration that the Law was a "shadow of good things to come." A truly instructive shadow it was. In this instance the shadow is so like the image, the type so like the antitype, that we can almost see the Christian Church, and the convert as he is invited to unite with it. And we may behold in metaphor the blessings of which he may expect to be a partaker in so doing.

@@ -1,6 +1,5 @@
 # Sermon 1024 | The Throne of Grace
 
-
 > "The throne of grace."  
 > Hebrews 4:16  
 

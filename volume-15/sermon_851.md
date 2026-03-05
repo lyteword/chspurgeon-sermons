@@ -1,7 +1,5 @@
 # Sermon 851 | Nearness To God
 
-A sermon
-
 "But now in Christ Jesus you who once were far off are made near by the blood of Christ."- Ephesians 2:13.
 
 THE text is a gate of pearl leading up to the excellent Glory. Happy are the men to whom it is given to enter thereby. It turns upon hinges of diamond. Those two phrases, "in Christ Jesus," "by the blood of Christ"--these are the two pivots of the precious doctrine of the text. "Made near," this is our delightful privilege, but, "in Christ Jesus," is one source of the blessing, "and by the blood of Christ" is the other. Before our rejoicing eyes rolls a sea of love, an ocean of boundless peace and bliss comparable to the sea of glass before the sapphire throne! In order to reach this great Pacific, you must sail through yon narrow strait which flows between the two headlands of union to Christ and cleansing by the atoning blood.

@@ -1,12 +1,5 @@
 # Sermon 1047 | The Triumph Of Christianity
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 21, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before You." Psalm 22:27.
 
 SOME have thought that this Psalm was used as a soliloquy by our Lord when He was expiring upon the Cross. It may be so. Fitter words could scarcely have been conceived, even by our Lord Himself. We must not, however, strain a point to establish a conjecture, nor attempt to prove that which is not revealed to us. We have no sort of hesitation, however, in asserting that this Psalm describes both the outward sufferings and the inward emotions of our expiring Lord--and in that light it becomes a very wonderful Psalm, indeed. Its clear prophetic description is an evidence of our Lord's Messiahship, and indeed, it is so full and plain that it is a key to His sufferings.

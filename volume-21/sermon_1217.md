@@ -1,12 +1,5 @@
 # Sermon 1217 | Rightly Dividing the Word of Truth
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, DECEMBER 26, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Rightly dividing the word of truth." 2 Timothy 2:15.
 
 TIMOTHY was to divide rightly the Word of God. Every Christian minister must do this if he would make full proof of his ministry and if he would be clear of the blood of his hearers at the Last Great Day. Of the whole 20 years of my printed sermons, I can honestly say that this has been my aim--rightly to divide the Word of Truth. Wherein I have succeeded, I magnify the name of the Lord. In which I have failed I lament my faultiness. And now once more we will try, again, and may God the Holy Spirit, without whose power nothing can be done aright, help us rightly to divide the Word of Truth.

@@ -1,12 +1,5 @@
 # Sermon 1171 | The Lord Chiding His People
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 3, 1874, BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He will not always chide: neither will He keep His anger forever." Psalm 103:9.
 
 THIS verse has reference only to the children of God. The Psalm is for them--they alone can sing it and this statement concerns them only--for this reason, that the wrath of the great Judge of all the earth is removed from every true child of God. Our sins were laid upon Jesus Christ and He bore them for us. The penalty due to us on account of them, or its equivalent, has been endured by Jesus Christ, our Substitute. Therefore, as before the Throne of God there is no accusation against a Believer, the justice of God has no anger towards him. "Though You were angry with me, Your anger is turned away and You comfort me," is the proper language of every justified man.

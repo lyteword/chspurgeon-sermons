@@ -1,14 +1,5 @@
 # Sermon 803 | Israel's God and God's Israel
 
-A Sermon
-
-
-Delivered on Lord's-Day Morning, March 29, 1868, by
-
-H. SPURGEON,
-
-at the [15]Metropolitan Tabernacle, Newington.
-
 "There is none like unto the God of Jeshurun, who rides upon the Hea ven in your help, and in His excellency on the sky. The eternal God is your refuge, and underneath are the everlasting arms: and He shall thrust out the enemy from before you; and shall say, Destroy them. Israel then shall dwell in safety alone: the fountain of Jacob shall be upon a land of corn and wine; also His heavens shall drop down dew." Deuteronomy 33:26-28.
 
 MOSES lived to be 120 years of age, and his life was divided into three periods of 40 years. The first 40 he spent as the son of Pharaoh's daughter in the Courts of Egypt. The second in the wilderness, at the foot of Horeb, as a shepherd, and the third 40 he reigned as king in Jeshurun, leading the Lord's people from Egypt to the borders of the promised land. Observe how each of these periods terminated. The time of his apprenticeship in Egypt concluded with his refusing to be called the son of Pharaoh's daughter, his avowal of brotherhood with the afflicted Israelites, his attempt to avenge their wrongs and his consequent flight from Egypt, because of the king.

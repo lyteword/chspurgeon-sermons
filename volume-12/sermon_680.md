@@ -1,6 +1,5 @@
 # Sermon 680 | Have You Forgotten Him?
 
-
 > "I do remember my faults this day."  
 > Genesis 41:9.  
 

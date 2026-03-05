@@ -1,12 +1,5 @@
 # Sermon 1151 | A Revival Promise
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 11, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For I will pour water upon him that is thirsty, and floods upon the dry ground: I will pour My Spirit upon your seed, and My blessing upon your offspring: and they shall spring up as among the grass, as willows by the watercourses. One shall say, I am the Lord's; and another shall call himself by the name of Jacob; and another shall subscribe with his hand unto the Lord, and surname himself by the name of Israel" Isaiah 44:3-6.
 
 IN the Christian Church at this moment there is a very general desire for a revival of religion. You may go where you may among Christian people and you will find that they are mourning over the present state of things and saying, one to the other, "When will a greater blessing come? How can we obtain it? When shall we make some impression upon the masses of the ungodly? When shall our houses of prayer be filled with attentive hearers? When will the Lord's kingdom come and His right arm be made bare in the eyes of all the people?"

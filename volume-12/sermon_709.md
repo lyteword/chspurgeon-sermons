@@ -1,6 +1,5 @@
 # Sermon 709 | Kicking Against The Pricks
 
-
 > "It is hard for you to kick against the pricks."  
 > Acts 9:5.  
 

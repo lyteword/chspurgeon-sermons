@@ -1,12 +1,5 @@
 # Sermon 918 | The Two Builders And Their Houses
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore whosoever hears these sayings of Mine, and does them, I will liken him unto a wise man, which built his house upon a rock: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell not: for it was founded upon a rock. And everyone that hears these sayings of Mine, and does them not, shall be likened unto a foolish man, which built his house upon the sand: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell: and great was the fall of it." Matthew 7:24-27.
 
 THESE were the closing words of our Savior's most famous sermon upon the mount. Some preachers concentrate all their powers upon an effort to conclude with a fine thing called a peroration, which, being interpreted, means a blaze of rhetorical fireworks in the glory of which the speaker subsides. They certainly have not the example of Christ in this discourse to warrant them in the practice. Here is the Savior's peroration, and yet it is as simple as any other part of the address. Here is an evident absence of all artificial oratory.

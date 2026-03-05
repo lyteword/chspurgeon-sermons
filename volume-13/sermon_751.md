@@ -1,7 +1,5 @@
 # Sermon 751 | More Than Conquerors
 
-A sermon
-
 "No, in all these things we are more than conquerors through Him that loved us."- Romans 8:37.
 
 THE distinguishing mark of a Christian is his confidence in the love of Christ and the yielding of his affections to Christ in return. First, faith sets her seal upon the man by enabling the soul to say with the Apostle, "Christ loved me and gave Himself for me." Then love gives the countersign and stamps upon the heart gratitude and love to Jesus in return. "We love Him because He first loved us." "God is love," and the children of God are ruled in their inmost powers by love--the love of Christ constrains them. They believe in Jesus' love and then they reflect it. They rejoice that Divine love is set upon them. They feel it shed abroad in their hearts by the Holy Spirit, which is given to them, and then by force of gratitude they love fervently the Savior with a pure heart.

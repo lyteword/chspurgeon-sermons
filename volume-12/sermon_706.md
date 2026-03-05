@@ -1,6 +1,5 @@
 # Sermon 706 | Fields White For Harvest
 
-
 > "Do you notsay, 'There are yet four months, and then comes the harvest'? Behold, Isay to you, Lift up your eyes and look at the fields for they are already white for harvest."  
 > John 4:35.  
 

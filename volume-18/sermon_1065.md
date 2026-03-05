@@ -1,12 +1,5 @@
 # Sermon 1065 | The Healing of One Born Blind
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 11 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Since the world began was it not heard that any man opened the eyes of one that was born blind." John 9:32.
 
 THAT was quite true--there was no instance recorded in Scripture or in profane history at the time when this man spoke, of any person who was born blind having obtained his sight. I believe it was in the year 1728 that the celebrated Dr. Cheselden, of St. Thomas's Hospital, for the first time in the world's history achieved the marvel of giving sight to a man who had been blind from his youth up. And since then the operation of couching the eyes has been several times successfully performed upon persons who were born blind.

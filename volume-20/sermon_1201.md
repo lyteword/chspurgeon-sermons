@@ -1,12 +1,5 @@
 # Sermon 1201 | Providence--as Seen in the Book of Esther
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Though it was turned to the contrary, that the Jews had rule over them that hated them." Esther 9:1.
 
 YOU are probably aware that some persons have denied the Inspiration of the Book of Esther because the name of God does not occur in it. They might, with equal justice, deny the Inspiration of a great number of chapters in the Bible, and of a far greater number of verses. Although the name of God does not occur in the Book of Esther, the Lord Himself is there most conspicuously in every incident which it relates. I have seen portraits bearing the names of persons for whom they were intended, and they certainly needed them, but we have all seen others which required no name because they were such striking likenesses that the moment you looked upon them you knew them.

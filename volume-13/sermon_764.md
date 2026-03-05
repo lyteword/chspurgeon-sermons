@@ -1,7 +1,5 @@
 # Sermon 764 | Our Life, Our Work, Our Change
 
-A sermon
-
 "All the days of my appointed time will I wait, till my change comes."- Job 14:14.
 
 JOB was well near driven to desperation by the fearful torment of his bodily pains, by the exasperating remarks of his friends, and the cutting suggestion of his wife. It is no wonder if he became somewhat impatient. Never were words of complaint more excusable than in the sad case of Job when he cried, "O that you would hide me in the grave!" Everything that could make life bearable had been taken from him and every evil which could make death desirable came upon him.

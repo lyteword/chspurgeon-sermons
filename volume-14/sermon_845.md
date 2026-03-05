@@ -1,6 +1,5 @@
 # Sermon 845 | Consecration to God--Illustrated by Abraham's Circumcision
 
-
 > "And when Abram was ninety years old and nine, the Lord appeared to Abram, and said unto him, I am the Almighty God; walk before me, and be thou perfect. And I will make my covenant between me and thee, and will multiply thee exceedingly."  
 > Genesis 17:1-2.  
 

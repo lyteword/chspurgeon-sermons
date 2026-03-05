@@ -1,12 +1,5 @@
 # Sermon 1102 | Royal Homage
 
-
-A SERMON DELIVERED
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And cast their crowns before the Throne." Revelation 4:10.
 
 THERE are a great many things we should like to know about Heaven. Our curiosity has been excited full often to ask a vast number of questions, but after being excited it has never been gratified, for God's Word has told us little about the details of that happy realm. I suppose the Lord thought it better to leave the future shrouded in mystery that we might think more of the common everyday duties of the life that now is. Therefore the Revelation He has made directs our faith to Himself and to His dear Son--and does not distract our attention with descriptions of scene and circumstance into which our imagination would fondly rise.

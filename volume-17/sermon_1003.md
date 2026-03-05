@@ -1,6 +1,5 @@
 # Sermon 1003 | Your Own Salvation
 
-
 > "Your own salvation."  
 > Philippians 2:12.  
 

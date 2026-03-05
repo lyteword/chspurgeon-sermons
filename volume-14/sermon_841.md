@@ -1,8 +1,5 @@
 # Sermon 841 | Crowding to Touch the Savior
 
-
-Delivered on Lord's-Day Morning, November 13, 1868, by C. H. SPURGEON, at Bloomsbury Chapel.
-
 "For He had healed many; insomuch that they pressed upon Him for to touch Him, as many as had plagues." Mark 3:10.
 
 OUR Lord had been persecuted and therefore He put forth many proofs of His power. When opposition attends the Gospel it will be the more triumphant. The warnings of the devil predict the success of the Word of God. When our Lord Jesus had done much, He was under a sacred necessity to do more--for everyone who was healed busied himself in spreading abroad the fame of the Beloved Physician--and others laboring under similar infirmities hastened at once to receive the like cure. The more we do for Christ the more we may do, and I think usually the more we must do. If we hold back from Christian labor we may think that little is required of us, but as soon as we once enter, heart and soul, into the Master's service, we shall feel as if we needed a thousand hands and a hundred lives to overtake the growing demands upon us.

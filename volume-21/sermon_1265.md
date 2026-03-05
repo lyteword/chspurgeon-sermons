@@ -1,12 +1,5 @@
 # Sermon 1265 | The Eternal Truth of God
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 6, 1875,
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The truth endures to all generations." Psalm 100:5.
 
 IT was very solemn work, this morning, to lay bare the sin of unbelief. [Sermon #1238, Beware of Unbelief] It was the burden of the Lord to him who had to speak and it could have been but very small pleasure to those who had to listen. Nevertheless, I trust it was something better than pleasure to many and it drove their souls to pray to God for others. By His Grace sinners were moved, as we already know, to yield up their hearts to the Lord Jesus Christ. After meditating upon the heinousness of this sin--the sin of making God a liar--after even thinking of it, horror took hold upon my soul and it seemed to me that we ought to have a supplementary sermon, tonight, in honor of the Truth of God.

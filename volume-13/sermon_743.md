@@ -1,7 +1,5 @@
 # Sermon 743 | Ephraim Bemoaning Himself
 
-A sermon
-
 "I have surely heard Ephraim bemoaning himself thus: You have chastised me, and I was chastised as a bull unaccustomed to the yoke. Turn You me, and I shall be turned, for You are the Lord my God."- Jeremiah 31:18.
 
 THE heathen described their fabled deity, Jove, as sitting far aloft regardless of the common affairs of this lower world. Upon a few kings and princes he might turn an observant eye, but the most of men were creatures far too insignificant to affect the mind of Jove. Whether they lived or died was nothing to him--they fulfilled their destinies and passed away, while Jove remained serenely still, or nodded as his august will might be.

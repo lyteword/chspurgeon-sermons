@@ -1,8 +1,5 @@
 # Sermon 837 | "All These Things"--A Sermon with Three Texts
 
-
-Delivered on Sunday Morning, October 18, 1868, by C. H. SPURGEON, at the [46]Metropolitan Tabernacle, Newington.
-
 "And Jacob their father said unto them, You have bereaved me of my children: Joseph is not, and Simeon is not, and you will take Benjamin away: all these things are against me." Genesis 42:36.
 
 THE Patriarch must use the expression, "ALL THESE THINGS." He had gone through the catalog--there were but three items at the most, and yet nothing narrower than, "All these things are against me" will suit him. Our notation of our trials is very apt to present them in exaggerated number, but when we come to count our mercies, as a usual rule our tendency is to diminish them. We magnify the hosts of our troubles and underestimate the armies of our benefits. It were well if it were not so, for the habit is most painful to ourselves and dishonorable to God. "All these things," indeed! And what a little "all" compared with the benefits of God! What an insignificant "all" compared with the sufferings of our Covenant Head! What a trifling "all" compared with the amazing weight of Glory which shall soon be revealed in us!

@@ -1,12 +1,5 @@
 # Sermon 1216 | To Souls In Agony
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The sorrows of death compassed me, and the pains of Hell got hold upon me. I found trouble and sorrow. Then called I upon the name of the Lord; O Lord, I beseech You, deliver my soul...You have delivered my soul from death, my eyes from tears, and my feet from falling." Psalm 116:3,4,8.
 
 THE great trouble which is here described very probably happened to David long after he had been a Believer. He had been living the life of faith, perhaps, for years, in a calm, happy and quiet manner. But by-and-by he met with outward tribulation and not a little of inward conflict. At some time or other it generally happens to a Believer, between the setting out at the wicket gate and the crossing of the last river, that he endures a great fight of afflictions. My observation leads me to notice that those who begin with rough times frequently have a smooth path afterwards, while others, whose first experience was very sunny and peaceful, meet with fierce conflicts farther on.

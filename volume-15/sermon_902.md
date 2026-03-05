@@ -1,7 +1,5 @@
 # Sermon 902 | Safe Shelter
 
-A sermon
-
 "He shall cover you with His feathers, and under His wings shall you trust."- Psalm 91:4.
 
 WHAT condescending words! I cannot express the sense I feel of the great loving kindness of the Lord to us in using such a simile to set forth His protecting care of His people. Had any poet suggested the metaphor, we might have recoiled from it as unseemly, or rejected it as profane. It really is so familiar and so homely that unless God Himself had spoken it by the mouth of His Holy Spirit, we might have accounted it impertinent for any human being to have used the comparison. The Lord here compares Himself to a hen covering her brood--and He speaks not only of the wings, which give shelter, but He enters into detail and speaks of the feathers which give warmth and comfort and repose. "He shall cover you with His feathers and under His wings shall you trust."

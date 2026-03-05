@@ -1,6 +1,5 @@
 # Sermon 672 | The Ravens' Cry
 
-
 > "He gives to the beasthis food, and to the young ravens which cry."  
 > Psalm 147:9.  
 

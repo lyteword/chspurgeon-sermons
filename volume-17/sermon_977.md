@@ -1,8 +1,5 @@
 # Sermon 977 | The Master's Profession--The Disciple's Pursuit
 
-
-In aid of the Baptist Young Men's Missionary Association.
-
 "I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, thou knowest. I have not hid thy righteousness within my heart, I have declared thy faithfulness and thy salvation: I have not concealed thy lovingkindness and thy truth from the great congregation."--Psalm 40:9,10.
 
 WHO IS THE SPEAKER that gives utterance to these marvellous words? In the first instance they must be understood to proceed from our Lord Jesus Christ. By the Spirit of prophecy in the Old Testament they were spoken of him, and by the Spirit of interpretation in the New Testament they have been applied to him. Mark, then, how vehemently he here declares that he has fully discharged the work which he was sent to accomplish. When, in the days of his flesh, he was crying to his Father for preservation in a season of dire distress, he might well ask that he should then be helped, since all the previous strength he possessed had been laid out in his Father's service. But because this profession emphatically belongs to our Savior we need not suppose that it exclusively belongs to him. On the other hand, Christ being our forerunner and our example, we are encouraged to emulate the high calling and the dutiful obedience he so perfectly exhibited.

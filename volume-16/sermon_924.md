@@ -1,6 +1,5 @@
 # Sermon 924 | Jesus Only
 
-
 > "And when they had lifted up their eyes, they saw no man, save Jesus only."  
 > Matthew 17:8.  
 

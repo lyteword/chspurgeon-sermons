@@ -1,12 +1,5 @@
 # Sermon 1112 | Soul-satisfying Bread
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus said unto them, I am the bread of life: he that comes to Me shall never hunger; and he that believes on Me shall never thirst." John 6:35.
 
 OUR Savior used expressions concerning Himself which might be turned to another meaning than He intended. He did not guard His words by saying, "I am like bread, and faith is like eating and drinking," but He said, "I am the bread of life," and, "except a man eat My flesh and drink My blood there is no life in him." He did this not only because from His own sincerity of heart it was not in Him to be forever fencing around all His speeches, but also with a set purpose, because His speech was so plain that if any man misunderstood Him it would be the result of his own perversity of mind and not the effect of any obscurity in the Lord's language. Thus by fixing a low and sensual meaning upon elevated spiritual language the men of His time would be discovered to be none of the Lord's chosen--and the thoughts of many hearts would be revealed.

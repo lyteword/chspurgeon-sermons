@@ -1,12 +1,5 @@
 # Sermon 1205 | All For Jesus!
 
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, NOVEMBER 29, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You serve the Lord Christ." Colossians 3:24.
 
 The Gospel does not merely supply us with directions for holy living but furnishes us with reasons for obedience and tells us where to find the power to obey. Hence in the commencement of this chapter, before the Apostle comes to any practical exhortation, he reminds us of our position and privileges. He bids us remember who and what we are as Believers in Christ, that we may act accordingly. We are risen with Christ and, therefore, our affection should not be set on earthly things. We are dead to the world and, therefore, we must not, cannot live in sin. Christ is our life and, therefore, we must walk after His example.

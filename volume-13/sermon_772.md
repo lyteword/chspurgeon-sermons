@@ -1,7 +1,5 @@
 # Sermon 772 | Delay Is Dangerous
 
-A sermon
-
 "And her brother and her mother said, Let the damsel abide with us a few days, at least ten; after that she shall go." Genesis 24:55.
 
 You know the story of which these words form a part. Abraham was anxious to secure a wife for his son, Isaac. He sends, therefore, his well-tried servant to the land of their forefathers and takes an oath of him that he will bring a maiden from there who should be, by her birth and character, suitable to her future destiny. The venerable servant departs on his delicate and difficult errand. He took all precautions and then commended his case to the wise disposal of his own and his master's God. Success, which was in perfect harmony with his faith and with the Divine promises, at once crowned his efforts. The maiden best adapted above all others to be the spouse of Isaac is sent to meet him. She immediately responded to his wishes and conducted him to the house of her brother.

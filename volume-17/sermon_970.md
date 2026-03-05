@@ -1,6 +1,5 @@
 # Sermon 970 | The Lost Silver Piece
 
-
 > "Either what woman having ten pieces of silver, if she lose one piece, doth not light a candle, and sweep the house, and seek diligently till she find it? And when she hath found it, she calleth her friends and her neighbours together, saying, Rejoice with me; for I have found the piece which I had lost. Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repenteth."  
 > Luke 15:8-10.  
 

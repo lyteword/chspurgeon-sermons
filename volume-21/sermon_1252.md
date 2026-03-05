@@ -1,12 +1,5 @@
 # Sermon 1252 | The First Day Of Creation
 
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, AUGUST 29, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And God saw the light that it was good." Genesis 1:4.
 
 WE shall, this morning, leave all discussion as to the creation of the world to those learned Divines who have paid their special attention to that subject, and to those geologists who know, or at any rate think they know, a very great deal about it. It is a very interesting subject, but this is not the time for its consideration. Our business is moral and spiritual rather than scientific. We justify our present discourse by quoting that remarkable parallel text which the Holy Spirit has given us in the second Epistle to the Corinthians, fourth chapter and the sixth verse, where Paul says, "God, who commanded the light to shine out of darkness, has shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ."

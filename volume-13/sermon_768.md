@@ -1,7 +1,5 @@
 # Sermon 768 | A Prayer for the Church Militant
 
-A sermon
-
 "Save Your people, and bless Your inheritance: feed them also, and lift them up forever."- Psalm 28:9.
 
 LET me direct your attention to the verse before the text, and then let us read the text in connection with it, "The Lord is their strength, and He is the saving strength of His anointed. Save Your people, and bless Your inheritance: feed them also, and lift them up forever." You have in the eighth verse the Church militant reviewed, and in the ninth verse the Church militant prayed for. With regard to the Psalmist's review of the militant Church, it is summed up in two sentences: "Jehovah is their strength," and "Jehovah is the saving strength of His anointed." The people of God are strong, then, for their strength is spoken of. They are weak in themselves, yes--they confess themselves to be weakness itself-- yet by faith, when they grasp the power of the Almighty, they are no longer feeble but they venture to say with the Apostle, " I can do all things through Christ which strengthens me."

@@ -1,7 +1,5 @@
 # Sermon 862 | Winnowing Time
 
-A sermon
-
 "What is the chaff to the wheat? says the Lord."- Jeremiah 23:28.
 
 IT is remarkable that God has traced so much of the misery of the children of Israel in the period of their degradation to the unfaithfulness of those governors, priests and prophets who ruled over them. The crying evil of a nation's crimes lay at the door of these foolish shepherds. At first it would seem that the main stress of calamity rested on the common people--and the time-serving rulers enjoyed ease and affluence as the fruit of their own corruption. But when the Most High arises to judgment, He begins with those "pastors" who have foully betrayed their sacred trust. As one who has seen their way with His watchful eyes and heard their lies with His ever-listening ears, He denounces them with terrible threats.

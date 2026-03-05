@@ -1,6 +1,5 @@
 # Sermon 991 | The Fourfold Treasure
 
-
 > "But of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption: that, according as it is written, he that glorieth, let him glory in the Lord."  
 > 1 Corinthians 1:30, 31.  
 

@@ -1,6 +1,5 @@
 # Sermon 980 | Hidden Manna
 
-
 > "Thy words were found, and I did eat them; and thy word was unto me the joy and rejoicing of mine heart: for I am called by thy name, O Lord God of hosts,"  
 > Jeremiah 15:16.  
 

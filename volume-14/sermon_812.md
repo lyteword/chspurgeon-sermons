@@ -1,8 +1,5 @@
 # Sermon 812 | The Deep-Seated Character of Sin
 
-
-Delivered on Sunday Morning, May 17, 1868, by C. H. SPURGEON, at the [22]Metropolitan Tabernacle, Newington.
-
 "The sin of Judah is written with a pen of iron, and with the point of a diamond: it is engraved upon the tablet of their heart, and upon the horns of your altars." Jeremiah 17:1.
 
 IN traveling in the East, inscriptions upon the rocks are often met with, which have remained almost as sharp and clear as when they were first cut by the engraver's tool. Some of these owe their indelible character to the hardness of the rocks upon which they have been engraved. They must have been written, to use the expressive language before us, "with a pen of iron," and engraved as "with the point of a diamond." When such writing had been once achieved, those who had achieved their purpose might have said with Pilate, "What I have written I have written," for there it stood, and there it stands.

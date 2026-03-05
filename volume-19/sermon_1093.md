@@ -1,12 +1,5 @@
 # Sermon 1093 | Questions of the Day and THE Question of the Day
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 26, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "What do you think of the Christ?" Matthew 22:42.
 
 IT was a custom among the Jews before the Paschal Lamb was killed to shut it up for several days for examination. It was at first selected with great care, for it must be "a lamb without blemish, a male of the first year," and lest at the first choice some blemish should have been overlooked it was continually inspected from day to day. It was meet that the Lamb of God's Passover should pass through a similar ordeal. It is remarkable that our Savior, during the days which preceded His being offered up for us on Calvary was examined and questioned, both by friends and foes. The sharpest eyes were brought to bear upon Him--eyes made preternaturally keen through the malice of wicked hearts. He passed under the scrutiny of Pharisees, of Herodians, of Sadducees, and of lawyers. They tested Him in all parts and tried Him from all points, yet they found no fault in Him. "They marveled, and left Him, and went their way." And, like Pilate, they found no fault in Him.

@@ -1,12 +1,5 @@
 # Sermon 914 | Work in Us and Work by Us
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 6, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Whereunto I also labor, striving according to His working, which works in me mightily." Colossians 1:29.
 
 THE Apostle Paul could very truthfully assert that he labored and agonized. When the Holy Spirit had anointed the Apostles they all became ardent enthusiasts for the spread of the Redeemer's kingdom. Having the whole world committed to them that they might enlighten it, they labored most ardently--each one in his sphere to spread abroad the Truth of the Gospel--but the Apostle of the Gentiles labored more abundantly than they all. Into how many countries did he carry the testimony of Christ? How often did he cross the sea, traverse mountains, and ford rivers?

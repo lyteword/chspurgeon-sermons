@@ -1,7 +1,5 @@
 # Sermon 892 | A Serious Reprimand
 
-A sermon
-
 "My father, if the Prophet had bid you do some great thing, would you not have done it? How much rather, then, when he says to you, Wash and be clean?"- 2 Kings 5:13.
 
 I am somewhat, myself, in the position of Elijah, when Naaman, the Syrian, came dashing up with his horses and with his chariot and stood at the door of the house of the Prophet. There are before me in this house, I fear, many who are spiritually diseased. Your motive for coming up to this assembly should be to hear the Gospel and to discover the remedy by which your spiritual disease may be removed. But what, let me ask, are really the thoughts that occupy your minds? I can suppose that you are looking for different things from me. One, perhaps, imagines that something will be said odd and strange that shall provoke a smile. Another imagines that I shall labor to make some display of elocution and speak tender words softly, like flakes of feathered snow melting as they fall and so draw forth the silent, graceful tear.

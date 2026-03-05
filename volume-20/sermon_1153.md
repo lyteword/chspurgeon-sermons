@@ -1,12 +1,5 @@
 # Sermon 1153 | The Matchless Mystery
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For we are members of His body, of His flesh, and of His bones" Ephesians 5:30.
 
 I DO not hesitate to say that this is one of the most wonderful texts in the whole compass of Revelation. It sets forth the mystery of mysteries, the very pith and marrow of the loftiest divinity. It is fitted rather to be the theme for a hundred elaborate discourses than for one brief homily. Most assuredly it is a deep that knows no sounding, an abyss where thought plunges into never-ending contemplations. He who handles it had need, first of all, to be filled with all the fullness of God. Therefore we feel incapable of dealing with it as it should be dealt with--it is all too great and vast for us--we can no more hope to compass it than a child can hold an ocean in his hand.

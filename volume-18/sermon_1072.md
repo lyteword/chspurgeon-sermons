@@ -1,12 +1,5 @@
 # Sermon 1072 | My Prayer
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 22, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Quicken me in Your way." Psalm 119:37.
 
 I THINK you will find the prayer for quickening repeated nine times in this Psalm. The form of it differs but it is always the same vehement cry, "Quicken me, O Lord." In addition to this you will hear David twice acknowledge that God had quickened him, saying on one occasion, "Your Word has quickened me," and in another place, "Your precepts have quickened me," so that 11 times in one Psalm David turns his contemplations to the subject of quickening. This shows us the very great importance which he attached to it.

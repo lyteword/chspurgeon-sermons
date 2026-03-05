@@ -1,6 +1,5 @@
 # Sermon 684 | Hope, Yet No Hope--No Hope, Yet Hope
 
-
 > "You are wearied in the length of your way; yet you did not say, There is no Hope."  
 > Isaiah 57:10.  
 

@@ -1,8 +1,5 @@
 # Sermon 816 | The Wall Daubed with Untempered Mortar
 
-
-Delivered on Lord's-Day Evening, May 31, 1868, by C. H. SPURGEON, at the [26]Metropolitan Tabernacle, Newington.
-
 "Because, even because, they have seduced My people, saying, Peace; and there was no peace; and one built up a wall, and, lo, others daubed it with untempered mortar: say unto them which daub it with untempered mortar, that it shall fall: there shall be an overflowing shower; and you, O great hailstones, shall fall; and a stormy wind shall rend it. Lo, when the wall is fallen, shall it not be said unto you, Where is the daubing with which you have daubed it?" Ezekiel 13:10-12.
 
 EZEKIEL was sent to arouse the people of Jerusalem to a sense of danger. This task was in itself difficult enough since he had to deal with a slumbering people who were carnally secure. But the difficulty was much increased by the fact that a large number of base pretenders to prophecy, both male and female, sprang up at that time and exercised great influence among the people. They imitated the Prophet's speech. They came forward with their lies and prefaced them with the solemn words, "Thus says the Lord," pretending to have a commission from the Lord of Hosts.

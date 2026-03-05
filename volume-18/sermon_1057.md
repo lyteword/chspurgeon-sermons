@@ -1,12 +1,5 @@
 # Sermon 1057 | Untrodden Ways
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 23, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For you have not passed this way before." Joshua 3:4.
 
 THEY had come out of Egypt. They had gone up and down in the wilderness, but they had never before crossed the Jordan. It was new ground to them, a new difficulty, and a new series of events lay before them. As a fresh emergency had arisen, they had new orders direct from the Lord, their leader, and Joshua and his officers were busy going throughout the host to communicate the Divine directions. Beloved, when it shall be our lot to come into new positions we shall always obtain renewed guidance from the Spirit of God if we will but wait upon Him for it and cry, "Show me Your way, O Lord, and lead me in a plain path."

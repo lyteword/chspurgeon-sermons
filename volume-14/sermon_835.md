@@ -1,8 +1,5 @@
 # Sermon 835 | A Cheerful Giver is Beloved of God
 
-
-Delivered on thursday evening, august 27, 1868, by C. H. SPURGEON, at the [44]Metropolitan Tabernacle, Newington.
-
 "God loves a cheerful giver." 2 Corinthians 9:7.
 
 I AM most anxious, dear Friends, to make full proof of my ministry, and in this one respect, especially, that I may address you upon all parts of God's Word and not be found guilty of confining myself to one set of topics, for certainly this, although it might be pleasant, would not be profitable to you. I would rather, if I had my choice, constantly preach upon the doctrine of God's everlasting and unchanging love. I should delight to dilate each Sunday and, indeed, in every sermon, upon the simple doctrine of the justification of the sinner in the sight of God by faith in Jesus Christ.

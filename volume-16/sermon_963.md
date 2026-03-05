@@ -1,12 +1,5 @@
 # Sermon 963 | Our King, Our Joy
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 27, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let the children of Zion bejoyful in their King." Psalm 149:2.
 
 THE book of Psalms ends in a sacred tumult of joyous praise. There is praise all through it, though sometimes it is but a still small voice. But when you reach the concluding Psalms you hear thunders of praise! There God is praised with the sound of the trumpet and upon the high sounding cymbals. All the force and the energy of sacred minstrelsy are laid under contribution that Jehovah may be extolled. Let the Book of Psalms stand as an image of the Christian's life. If we began with the blessing of the man who delights in the Law of the Lord. If we proceeded to obtain the blessing of the man whose transgression is forgiven, whose sin is covered. If our soul learned to pant for her God as the hart for the water brooks. And if we went onwards till we sang, "He crowns me with loving kindness and tender mercies," let us not pause now, but advance to the hallelujahs of the closing pages of our book of life!

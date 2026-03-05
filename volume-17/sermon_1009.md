@@ -1,6 +1,5 @@
 # Sermon 1009 | Travailing for Souls
 
-
 > "As soon as Zion travailed, she brought forth her children."  
 > Isaiah 66:8.  
 

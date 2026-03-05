@@ -1,12 +1,5 @@
 # Sermon 1105 | The Heart Of Jesus
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 6, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I am meek and lowly in heart." Matthew 11:29.
 
 WE have preached upon the whole of this passage several times before, therefore we do not intend to speak upon it in its full teaching, or enter upon its general run and connection. But we select for our meditation this one expression, which has greater depth in it than we shall be able to fully explore--"I am meek and lowly in heart." I have felt very grateful to God for the mercy of the past week during which the ministers educated in our College have been gathered together as a devout convocation and have enjoyed a flood-tide of the Divine blessing. Unusually great and special joy has filled my soul and, therefore, I have asked myself, "What can I do to glorify the Lord my God who has been so gracious to me and has so prospered the work committed to me and my Brethren?"

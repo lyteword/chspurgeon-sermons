@@ -1,8 +1,5 @@
 # Sermon 847 | Joyful Transformations
 
-
-Delivered on Lord's-Day Morning, December 27, 1868, by C. H. SPURGEON, at the [52]Metropolitan Tabernacle, Newington.
-
 "I will make darkness light before them, and crooked things straight." Isaiah 42:16
 
 IN the pursuit of holiness the pilgrim is often surrounded with darkness. While in the pathway of evil the traveler is dazzled with a glare of light. It is the way of the Tempter to make the downward path as attractive as possible with the flaring splendor of carnal pleasure. Sin is surrounded with a fascinating luster which enchants the unwary seeker of pleasure and leads him to his own destruction. Look at the palace of firewater, dedicated to the demon of drunkenness-- it is brighter than any other house in the street! See how it glitters with abundant lamps, and mirrors, and burnished brass! Rich with color are the flowers which bloom at the mouth of the old serpent's den.

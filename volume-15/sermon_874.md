@@ -1,7 +1,5 @@
 # Sermon 874 | The Overflowing Cup
 
-A sermon
-
 "My cup runs over."- Psalm 23:5.
 
 THE fault of being too happy, if it exists anywhere, must be a very scarce one. A far more prevalent vice is that of dwelling upon the dark shades of life, to the forgetfulness of its brighter lights. We drink our wormwood in ostentatious publicity, but eat our honey behind the door. It is noteworthy that if a man's life is prosperous, it glides away rapidly and leaves little trace upon his memory. We write sorrows in marble and mercies in the sand! The history of nations becomes dull and unromantic when it flows happily, so that it has been wisely written, "Blessed is that nation which has no history."

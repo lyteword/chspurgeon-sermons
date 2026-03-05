@@ -1,12 +1,5 @@
 # Sermon 967 | The Sages, The Star, and The Savior
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 25, 1870
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Where is He that is born King of the Jews? For we have seen His star in the East, and are come to worship Him." Matthew 2:2.
 
 THE Incarnation of the Son of God was one of the greatest events in the history of the universe. Its actual occurrence was not, however, known to all mankind, but was specially revealed to the shepherds of Bethlehem and to certain Wise Men of the East. To shepherds--the illiterate, men little versed in human learning--the angels in choral song made known the birth of the Savior, Christ the Lord. And they hastened to Bethlehem to see the great sight, while the Scribes, the writers of the Law and expounders of it, knew nothing concerning the long-promised birth of the Messiah. No angelic bands entered the assembly of the Sanhedrim and proclaimed that the Christ was born.

@@ -1,7 +1,5 @@
 # Sermon 867 | Tearful Sowing and Joyful Reaping
 
-A sermon
-
 "He that goes forth and weeps, bearing precious seed, shall doubtless come again with rejoicing, bringing his sheaves with him."- Psalm 126:6.
 
 THE whole of our life we are sowing. In activity, in suffering, in thought, in word we are always scattering imperishable seed. Some sow amidst laughter and merriment--they sow unto the lusts of the flesh and shall of the flesh reap corruption. Theirs is easy work and suitable to their inclinations. All around them siren songs cheer them in the fields of transgression as they go forth with the seed of hemlock to scatter it broadcast in the furrows. Alas, for them, they shall reap under other skies--they shall gather sheaves of flame in the harvest of fire--in the day of vengeance of our God. They have sown the wind and they shall reap the whirlwind and who shall help them in that hour of terror?

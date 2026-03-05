@@ -1,12 +1,5 @@
 # Sermon 961 | The Saint One With His Savior
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 20, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that is joined unto the Lord is one spirit." 1 Corinthians 6:17.
 
 THE connection of our text is very terrible. When we are reading the sixteenth verse one seems to remember Sodom, its infamy, and the fire and brimstone that came down from Heaven upon it. But here in our text we enter into Jerusalem, the holy city, whose streets are of purity so rich and rare as to be comparable to gold clear as transparent glass. And there we seem to behold the Great White Throne of the thrice Holy, surrounded by the white robed bands of the immaculate. In looking at the text I call to mind John Bunyan's description of the way through the Valley of the Shadow of Death. It was an "exceedingly narrow" path, not readily kept. On the right hand the dreadful gulf, and on the left the fearful quagmire.

@@ -1,12 +1,5 @@
 # Sermon 1148 | The Parent's and Pastor's Joy
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 21 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have no greater joy than to hear that my children walk in truth." 3 John 1:4.
 
 JOHN speaks of himself as though he were a father and, therefore, we concede to parents the right to use the language of the text. Sure am I that many of you here present, both mothers and fathers, can truly say, "We have no greater joy than to hear that our children walk in truth" [the Truth of God.] But John was not after the flesh, the father of those of whom he was writing--he was their spiritual father. It was through his ministry that they had been brought into the new life. His relationship to them was that he had been the instrument of their conversion and had afterwards displayed a father's care in supplying them with heavenly food and gracious teaching.

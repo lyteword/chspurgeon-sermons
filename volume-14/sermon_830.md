@@ -1,8 +1,5 @@
 # Sermon 830 | Gray Hairs
 
-
-Delivered on Lord's Day Morning, September 13, 1868, by C. H. SPURGEON, at the [40]Metropolitan Tabernacle, Newington.
-
 "Gray hairs are here and there upon him, yet he knows not." Hosea 7:9.
 
 THE Prophet here testified that the kingdom of Israel had learned the way of the surrounding heathen, and had polluted itself with their vices, and consequently the strength of the kingdom had decayed. He declares that he could discern signs of this decay--signs as manifest and certain as gray hairs which mark the decline of life--yet the inhabitants of the realm of Israel had not observed their decline, but had boasted of their strength when all the while it was departing from them. We need not go into any particulars as to that little kingdom which after awhile was swept away by Assyria, but there is no doubt that what happened unto them happens unto many a nation--it may happen unto our own! Before we are aware of it the scepter may depart from Britain. A general laxity of commercial morality may, by degrees, sap and undermine the foundation of our commerce and before we are aware, our industry may be crippled, our trade withdrawn and our position among the nations debased. If so, we shall fall by our sins, and by our sins alone.

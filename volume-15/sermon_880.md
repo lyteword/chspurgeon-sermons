@@ -1,7 +1,5 @@
 # Sermon 880 | The Former and the Latter Rain
 
-A sermon
-
 "Let us now fear the Lord our God, who gives rain, both the former and the latter, in its season. He reserves for us the appointed weeks of the harvest."- Jeremiah 5:24.
 
 SUCH are the climate and soil of Palestine, that all agricultural operations are most manifestly dependent upon the periodical rainfall. Hence the people speak of the weather and the crops with a more immediate reference to God than is usual with us. It is said that the common expressions of the peasantry are such as quite strike travelers with their apparently devout recognition of the Almighty agency. Certainly we may account for a very large number of what may be called the agricultural promises of the Old Testament from the fact that little of the food of the people was gained by manufacture or commerce. The whole population depended upon the field and the field upon the rain.

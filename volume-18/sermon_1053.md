@@ -1,12 +1,5 @@
 # Sermon 1053 | Testimony And Experience
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 2, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And many of the Samaritans of that city believed in Him because of the saying of the woman, who testified, 'He told me all that I ever did.'So when the Samaritans had come to Him, they urged Him to stay with them; and He stayed there two days. And many more believed because of His own word. Then they said to the woman, 'Now we believe, not because of what you said, for we have heard Him ourselves, and we know that this is, indeed, the Christ, the Savior of the world." John 4:39-42.
 
 THE most important question concerning any man living is this--is he a saved soul or not? It is of comparatively little consequence whether he is rich or poor, educated or uneducated, compared with this--is he among the living before God--or is he dead in sins? Is he pardoned or unpardoned? Is he a child of God or an heir of wrath? Is he walking in the darkness or has he passed into light? Therefore of all the days of a man's history the most important is the day in which he is born-again.

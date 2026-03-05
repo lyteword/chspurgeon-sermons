@@ -1,7 +1,5 @@
 # Sermon 779 | God's Foreknowledge of Man's Sin
 
-A sermon
-
 "Yes, you heard not; yes, you knew not; yes, from that time that your ear was not opened: for I knew that you would deal very treacherously, and were called a transgressor from the womb."- Isaiah 48:8.
 
 THE ancient people of God were most annoyingly emotionless, and although the Lord taught them very plainly and repeatedly, precept upon precept, here a little and there a little, yet they would not understand His will. More especially, in order to convince them that Jehovah was the only true God and that the gods of the heathen were not gods, He was pleased to send them Prophets to foretell things to come. And when those events transpired which had been so plainly predicted, one would have thought that ordinary sense and reason would have led them to adore the God who thus proved His existence and His foreknowledge. But even this powerful proof did not convince them! They still paid more respect to the gods of the heathen than to the one and only living God, and their souls hankered after the idols of the nations.

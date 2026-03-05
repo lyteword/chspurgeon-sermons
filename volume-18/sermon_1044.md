@@ -1,12 +1,5 @@
 # Sermon 1044 | Loosening The Sandal Strap
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 31, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "One mightier than I comes, whose sandal strap I am not worthy to loose." Luke 3:16.
 
 IT was not John's business to attract followers to himself but to point them to Jesus, and he very faithfully discharged his commission. His opinion of his Master, of whom he was the herald, was a very high one. He reverenced Him as the Anointed of the Lord, the King of Israel, and, consequently, he was not tempted into elevating himself into a rival. He rejoiced to declare, "He must increase but I must decrease." In the course of his self-depreciation he uses the expression of our text which is recorded by each one of the Evangelists with some little variation. Matthew words it, "whose shoes I am not worthy to bear." He was not fit to fetch his Lord His shoes.

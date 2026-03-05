@@ -1,6 +1,5 @@
 # Sermon 978 | All Fulness in Christ
 
-
 > "For it pleased the Father that in him should all fullness dwell."  
 > Colossians 1:19.  
 

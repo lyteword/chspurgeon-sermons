@@ -1,7 +1,5 @@
 # Sermon 857 | Timely Reflections
 
-A sermon
-
 "Now is our salvation nearer than when we believed."- Romans 13:11.
 
 BUT what "salvation" is this? The question is important because we very commonly speak of "salvation" as that state of Divine Grace into which everyone that believes in Jesus is introduced when he passes from death unto life, being delivered from the power of darkness and translated into the kingdom of God's dear Son. This sweet assurance we celebrate in our hymns of praise--

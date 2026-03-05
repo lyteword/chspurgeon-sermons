@@ -1,12 +1,5 @@
 # Sermon 1157 | Shiloh
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Until Shiloh comes; and unto Him shall the gathering of the people be." Genesis 49:10.
 
 THE dying Patriarch was speaking of his own son, Judah, but while speaking of Judah, he had a special eye to our Lord, who sprang from the tribe of Judah. Everything, therefore, which he says of Judah, the type, he means with regard to our greater Judah, the Antitype, our Lord Jesus Christ. You will remember how Jacob gathered his 12 sons around his bed and, addressing them individually as representatives of the 12 tribes that bear their names, uttered different predictions, and gave to each a special blessing. After first addressing Reuben, Simeon and Levi, he proceeds to salute Judah in words full of majesty--"Judah, you are he whom your brethren shall praise." A happy expression, for the word, "Judah," signifies "praise." The name was given to him by his mother as expressing her gratitude to God at his birth.

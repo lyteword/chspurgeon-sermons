@@ -1,12 +1,5 @@
 # Sermon 1166 | Marrow and Fatness
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 29, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then went King David in, and sat before the lord, and he said, Who am I, O Lord God? and what is my house, that You have brought me up to now? And this was yet a small thingin Your sight, O Lord God, but You have spoken also of Your servant's house for a great while to come. And is this the manner of man, O Lord God? And what can David say more unto You? for You, Lord God, know Your servant. For Your word's sake, and according to Your own heart, have You done all these great things, to make Your servant know them. Therefore You are great, O Lord God: for there is none like You, neither is there any God beside You, according to all that we have heard with our ears." 2 Samuel 7:18-22.
 
 DAVID was overwhelmed with the mercy of God! Nathan's message was too much for him. He felt emotions in his bosom which he could not express. Like a wise man, he went at once, while under the impulse of gratitude, into the place of nearness to God. It was not everyone who might go in and sit before the Lord as he did, but he felt he had a special call to draw near unto the Most High--and there he sat down in the posture of waiting to receive the fulfillment of what was promised, in the posture of rest--as one who had, now, all that he could desire and was pressed down under the weight of blessing. Yet the Psalmist's sitting was also a posture of worship and surely of all passages of Scripture none can be said to contain more true adoration than that which is now before us.

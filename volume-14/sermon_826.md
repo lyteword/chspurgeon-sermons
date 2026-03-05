@@ -1,8 +1,5 @@
 # Sermon 826 | Christ, the Glory of His People
 
-
-Delivered on Lord's Day Evening, March 22, 1868, by C. H. SPURGEON, at the [36]Metropolitan Tabernacle, Newington.
-
 "A light to lighten the Gentiles, and the Glory of Your people Israel." Luke 2:32.
 
 WE must read this passage literally, for so Simeon intended it. The Lord Jesus Christ, though once despised and rejected by His own countrymen, is the great honor and splendor of God's people, Israel. It is reckoned an honor to a nation when eminent persons are born of its stock and lineage--but Israel can claim the palm above all lands, for she can say that our Lord sprang out of Judah.

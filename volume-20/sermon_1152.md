@@ -1,12 +1,5 @@
 # Sermon 1152 | A Lesson from the Life of King Asa
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Herein you have done foolishly: therefore from henceforth you shall have wars." 2 Chronicles 16:9.
 
 OUR text leads us to speak upon historical matters, and for this I shall by no means apologize, although I have sometimes heard very foolish professors speak slightingly of the historical part of Scripture. Remember that the historical books were almost the only Scripture possessed by the early saints and from those they learned the mind of God. David sang the blessedness of the man who delighted in the Law of the Lord, yet he only had the first five books and, perhaps, Joshua, Judges and Ruth--all books of history in which to meditate day and night. The Psalmist, himself, spoke most lovingly of these books, which were the only statutes and testimonies of the Lord to him, with, perhaps, the addition of the Book of Job.

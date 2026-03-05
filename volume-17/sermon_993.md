@@ -1,6 +1,5 @@
 # Sermon 993 | The Northern Iron and the Steel
 
-
 > "Shall iron break the northern iron and the steel?"  
 > Jeremiah 15:12.  
 

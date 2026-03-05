@@ -1,7 +1,5 @@
 # Sermon 728 | Good Cheer for the New Year
 
-A sermon
-
 "The eyes of the Lord your God are always upon it, from the beginning of the year even unto the end of the year."- Deuteronomy 11:12.
 
 THE Israelites had sojourned for a while in Egypt, a land which only produces food for its inhabitants by the laborious process of irrigating its fields. They had mingled with the sons of Ham as they watched with anxious eyes the swelling of the river Nile. They had shared in the incessant labors by which the waters were preserved in reservoirs, and afterwards eked out by slow degrees to nourish the various crops. Moses tells them in this chapter that the land of Palestine was not at all like Egypt--it was a land which did not so much depend on the labor of the inhabitants as upon the good will of the God of Heaven. He calls it a land of hills and valleys, a land of springs and rivers, a land dependent not upon the rivers of earth but upon the rain of Heaven, and he styles it in conclusion, "A land which the Lord your God cares for: the eyes of the Lord your God are always upon it, from the beginning of the year even unto the end of the year."

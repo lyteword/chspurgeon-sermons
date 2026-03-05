@@ -1,8 +1,5 @@
 # Sermon 833 | The Lord's Name and Memorial
 
-
-Delivered on Lord's-Day Morning, September 27, 1868, by C. H. SPURGEON, at the [42]Metropolitan Tabernacle, Newington.
-
 "Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off." Isaiah 55:13.
 
 THESE words are a poetical description of great moral changes which the Gospel works wherever it comes. It transforms human nature and makes society to become as though a desert suddenly blossomed into a cultivated field. At the same time, the words of the text are not solely and alone poetical, for it is a great Truth of God that wherever the spiritual change comes the physical change is almost sure to follow. As men are elevated the earth yields her increase more largely. The earth was cursed for man's sake, and in proportion as man forsakes his sloth, his drunkenness, his savageness, the ground rewards his diligence with plenteous harvests.

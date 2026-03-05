@@ -1,6 +1,5 @@
 # Sermon 687 | Messengers Wanted
 
-
 > "Also I heard the voice of the Lord, saying, Whom shall I send, and who will go for Us? Then said I, Here am I! Send me."  
 > Isaiah 6:8.  
 

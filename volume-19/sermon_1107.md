@@ -1,12 +1,5 @@
 # Sermon 1107 | A Call To Worship
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 20, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the inhabitants of one city shall go to another, saying, Let us go speedily to pray before the Lord, and to seek the Lord of Hosts: I will go also." Zechariah 8:21.
 
 THIS prophecy may relate to the Jews, literally, and it is referred to by their learned doctors as to the days of the Messiah. We believe, also, that it refers to the days of the Messiah and we look for times when again the Holy Land shall be fully inhabited and the people shall rejoice to meet together to worship the Lord their God. We do not see, however, that this prophecy has yet been accomplished, and we look for it to be fulfilled in the latter days. Spiritually it teaches just this, that when God returns to bless His Church there are certain signs and marks of His return. Just as the coming back of the sun when he advances north of the Equator and again cheers us with his warmth, is marked by the springing up of flowers and the singing of birds, so the return of God's Holy Spirit to bless His Church is marked by certain signs and tokens.

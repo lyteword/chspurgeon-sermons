@@ -1,12 +1,5 @@
 # Sermon 917 | Precious, Honorable, Beloved
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 20, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROTROPOLITAN TABERNACLE, NEWINGTON.
-
 "Since you were precious in My sight you have been honorable, and I have loved you." Isaiah 43:4.
 
 THE first reference of this text is evidently to Israel. That nation was precious in God's sight. He had been pleased sovereignly to make an election of the seed of Abraham, that they should be His portion, and He should be their portion evermore. They were precious in His sight because of the Covenant which He had made with their great forefather, saying, "In blessing I will bless you, and in multiplying I will multiply your seed, and in your seed shall all the nations of the earth be blessed."

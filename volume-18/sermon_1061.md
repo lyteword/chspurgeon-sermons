@@ -1,12 +1,5 @@
 # Sermon 1061 | Rahab
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 21, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By faith the harlot Rahab perished not with them that believed not, when she had received the spies in peace." Hebrews 11:31.
 
 "Likewise also was not Rahab the harlot justified by works, when she had received the messengers, and had sent them out another way?" James 2:25.

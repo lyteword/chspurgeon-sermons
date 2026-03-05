@@ -1,7 +1,5 @@
 # Sermon 887 | A Door Opened In Heaven
 
-A sermon
-
 "After this I looked and, behold, a door was opened in Hea ven."- Revelation 4:1.
 
 How highly favored was the Apostle John! While his Master was on earth he was the favored disciple, permitted to lean his head upon His bosom as a token of the most familiar and loving communion. After our Lord had ascended, He had the same heart towards John and, finding him alone amidst the wild rocks of Patmos, He visited him on the Lord's-Day and revealed Himself to him in a most glorious manner. Brothers and Sisters, if Heaven should offer any one thing which we might choose--if ever the Lord should appear to us as He did to Solomon and say, "Ask what you will, and it shall be given you," be it ours to request that we may enjoy the closest possible fellowship with the Well-Beloved!
