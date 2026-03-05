@@ -1,6 +1,5 @@
 # Sermon 3094 | Heart Piercing
 
-(No. 3094)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 28, 1908.
 

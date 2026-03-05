@@ -1,6 +1,5 @@
 # Sermon 3560 | The Strait Gate
 
-(No. 3560)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 19, 1917.
 

@@ -1,6 +1,5 @@
 # Sermon 3320 | A Bad King's Good Son
 
-(No. 3320)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 19, 1912.
 

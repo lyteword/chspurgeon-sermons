@@ -1,6 +1,5 @@
 # Sermon 3563 | Cheering Congratulation
 
-(No. 3563)
 
 A SERMON DELIVERED
 

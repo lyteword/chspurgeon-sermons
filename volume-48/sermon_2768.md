@@ -1,6 +1,5 @@
 # Sermon 2768 | Debtors and Debtors
 
-(No. 2768)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 2, 1902.
 

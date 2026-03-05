@@ -1,6 +1,5 @@
 # Sermon 1630 | Four Choice Sentences
 
-(No. 1630)
 
 DELIVERED ON THURSDAY EVENING, FEBRUARY 3, 1881,
 

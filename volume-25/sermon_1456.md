@@ -1,6 +1,5 @@
 # Sermon 1456 | Peace--a Fact and a Feeling
 
-(No. 1456)
 
 DELIVERED BY
 

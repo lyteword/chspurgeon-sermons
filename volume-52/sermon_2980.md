@@ -1,6 +1,5 @@
 # Sermon 2980 | A Lift for the Prostrate
 
-(No. 2980)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 22, 1906.
 

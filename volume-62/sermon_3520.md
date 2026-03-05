@@ -1,6 +1,5 @@
 # Sermon 3520 | Jerusalem the Guilty
 
-(No. 3520)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 13, 1916.
 

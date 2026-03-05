@@ -1,6 +1,5 @@
 # Sermon 752 | The King In His Beauty
 
-Sermon No. 752 - Delivered on Lord's-day Morning, MAY 26, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Your eyes shall see the King in His beauty: they shall behold the land that is very far off."- Isaiah 33:17.

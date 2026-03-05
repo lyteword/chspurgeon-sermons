@@ -1,6 +1,5 @@
 # Sermon 1775 | "My Lord and My God!"
 
-(No. 1775)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1884,
 

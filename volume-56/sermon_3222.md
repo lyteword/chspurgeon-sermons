@@ -1,6 +1,5 @@
 # Sermon 3222 | "The Lamb of God"
 
-(No. 3222)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 3, 1910.
 

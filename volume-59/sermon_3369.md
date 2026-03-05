@@ -1,6 +1,5 @@
 # Sermon 3369 | Man Humbled, God Exalted
 
-(No. 3369)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 28, 1913.
 

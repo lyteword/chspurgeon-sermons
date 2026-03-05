@@ -1,6 +1,5 @@
 # Sermon 3173 | "As" and "So"
 
-(No. 3173)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 2, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 743 | Ephraim Bemoaning Himself
 
-Sermon No. 743 - Delivered on Lord's-day Morning, MARCH 31, 1867 the REV. C.H. SPURGEON at the Agricultural Hall, Newington.
 A sermon
 
 "I have surely heard Ephraim bemoaning himself thus: You have chastised me, and I was chastised as a bull unaccustomed to the yoke. Turn You me, and I shall be turned, for You are the Lord my God."- Jeremiah 31:18.

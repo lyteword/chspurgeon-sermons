@@ -1,6 +1,5 @@
 # Sermon 291 | A Christmas Question
 
-Sermon No. 291 - Delivered on Sabbath Morning, December 25th, 1859, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > For unto us a child is born, unto us a son is given.    
 > Isaiah 9:6.    

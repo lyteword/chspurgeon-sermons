@@ -1,6 +1,5 @@
 # Sermon 2735 | Fountains of Repentant Tears
 
-(No. 2735)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 14, 1901.
 

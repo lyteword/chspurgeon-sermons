@@ -1,6 +1,5 @@
 # Sermon 3290 | God's Hand at Evening
 
-(No. 3290)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1912.
 

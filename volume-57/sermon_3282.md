@@ -1,6 +1,5 @@
 # Sermon 3282 | Preparing for the Week of Prayer
 
-(No. 3282)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1911.
 

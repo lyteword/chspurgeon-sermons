@@ -1,6 +1,5 @@
 # Sermon 1712 | Filling the Empty Vessels
 
-(No. 1712)
 
 DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 17, 1882,
 

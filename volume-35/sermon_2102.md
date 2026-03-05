@@ -1,6 +1,5 @@
 # Sermon 2102 | Pricked in Their Heart
 
-Sermon No. 2102 - Delivered on Lord's-day Morning, September 1st, 1889 the REV. C.H. SPURGEON at [6]the Metropolitan Tabernacle, Newington.
 
 > "Therefore let all the house of Israel know assuredly, that God hath made that same Jesus, whom ye have crucified, both Lord and Christ. Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the apostles, Men and brethren, what shall we do?"'Acts 2:36-37.  
 > "Therefore let all the house of Israel know assuredly, that God hath made that same Jesus, whom ye have crucified, both Lord and Christ. Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the apostles, Men and brethren, what shall we do?"'Acts 2:36-37.  

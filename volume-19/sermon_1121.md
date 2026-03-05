@@ -1,6 +1,5 @@
 # Sermon 1121 | Christ Asleep in the Vessel
 
-(No. 1121)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1873,
 

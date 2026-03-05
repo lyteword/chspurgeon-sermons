@@ -1,6 +1,5 @@
 # Sermon 3301 | A Prophetic Warning
 
-(No. 3301)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 9, 1912.
 

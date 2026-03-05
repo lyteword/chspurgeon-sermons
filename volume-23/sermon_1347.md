@@ -1,6 +1,5 @@
 # Sermon 1347 | How Is Salvation Received?
 
-(No. 1347)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 1, 1877,
 

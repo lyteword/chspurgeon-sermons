@@ -1,6 +1,5 @@
 # Sermon 1056 | Perseverance Without Presumption
 
-(No. 1056)
 
 A SERMON DELIVERED ON THURSDAY EVENING, MARCH 7, 1872,
 

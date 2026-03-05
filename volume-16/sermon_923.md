@@ -1,6 +1,5 @@
 # Sermon 923 | Prepare To Meet Your God
 
-(No. 923)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 27, 1870,
 

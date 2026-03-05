@@ -1,6 +1,5 @@
 # Sermon 2272 | Longing To Find God
 
-(No. 2272)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 4, 1892.
 

@@ -1,6 +1,5 @@
 # Sermon 1716 | The Bridegroom's Parting Words
 
-(No. 1716)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 15, 1883,
 

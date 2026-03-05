@@ -1,6 +1,5 @@
 # Sermon 2382 | The Holy Spirit's Chief Office
 
-(No. 2382)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 14, 1894.
 

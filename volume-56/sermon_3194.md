@@ -1,6 +1,5 @@
 # Sermon 3194 | A Look and Its Lessons
 
-(No. 3194)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 21, 1910.
 

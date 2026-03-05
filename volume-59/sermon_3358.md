@@ -1,6 +1,5 @@
 # Sermon 3358 | "Grace and Glory"
 
-(No. 3358)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 12, 1913.
 

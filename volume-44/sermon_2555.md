@@ -1,6 +1,5 @@
 # Sermon 2555 | The Stronghold
 
-(No. 2555)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 6, 1898.
 

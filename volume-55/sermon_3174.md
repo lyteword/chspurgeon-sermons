@@ -1,6 +1,5 @@
 # Sermon 3174 | Concentration and Diffusion
 
-(No. 3174)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 9, 1909.
 

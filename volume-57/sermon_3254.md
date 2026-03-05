@@ -1,6 +1,5 @@
 # Sermon 3254 | The Curse Removed
 
-(No. 3254)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 15, 1911.
 

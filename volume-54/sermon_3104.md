@@ -1,6 +1,5 @@
 # Sermon 3104 | Binding Up Broken Hearts
 
-(No. 3104)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 6, 1908.
 

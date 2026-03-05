@@ -1,6 +1,5 @@
 # Sermon 1025 | A Visit to the Harvest Field
 
-Sermon No. 1025 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waited for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. Be ye also patient; stablish your hearts: for the coming of the Lord draweth nigh."  
 > James 5:7-8.  

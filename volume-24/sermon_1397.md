@@ -1,6 +1,5 @@
 # Sermon 1397 | The Peace of God
 
-(No. 1397)
 
 DELIVERED ON LORD'S-DAY EVENING, JANUARY 6, 1878,
 

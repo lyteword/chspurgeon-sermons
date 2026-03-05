@@ -1,6 +1,5 @@
 # Sermon 2672 | Neither Forsaken Nor Forgotten
 
-(No. 2672)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 29, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 2569 | The Backslider's Door of Hope
 
-(No. 2569)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 8, 1898.
 

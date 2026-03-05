@@ -1,6 +1,5 @@
 # Sermon 1080 | Our Gifts and How To Use Them
 
-(No. 1080)
 
 DELIVERED
 

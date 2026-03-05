@@ -1,6 +1,5 @@
 # Sermon 2444 | Cheering Words
 
-(No. 2444)
 
 INTENDED FOR READING ON LORD'S DAY, DECEMBER 22, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 2314 | Three Blessings of the Heavenly Charter
 
-(No. 2314)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 25, 1893.
 

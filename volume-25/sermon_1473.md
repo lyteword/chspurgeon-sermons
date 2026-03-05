@@ -1,6 +1,5 @@
 # Sermon 1473 | Forts Demolished and Prisoners Taken
 
-(No. 1473)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 11, 1879,
 

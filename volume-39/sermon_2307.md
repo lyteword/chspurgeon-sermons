@@ -1,6 +1,5 @@
 # Sermon 2307 | The Greatest Exhibition of the Age
 
-(No. 2307)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 7, 1893.
 

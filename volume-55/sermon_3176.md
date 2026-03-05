@@ -1,6 +1,5 @@
 # Sermon 3176 | The Beauty Of The Olive Tree
 
-(No. 3176)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 16, 1909.
 

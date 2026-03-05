@@ -1,6 +1,5 @@
 # Sermon 1823 | Peter's Blunder--a Lesson for Ourselves
 
-(No. 1823)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 22, 1885,
 

@@ -1,6 +1,5 @@
 # Sermon 2746 | The Nature and Design of Divine Chastening
 
-(No. 2746)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 29, 1901.
 

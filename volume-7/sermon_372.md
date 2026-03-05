@@ -1,6 +1,5 @@
 # Sermon 372 | Meeting Of The Neighboring Churches
 
-Sermon No. 372 - Delivered on Wednesday, March 27, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > ""  
 > e.  

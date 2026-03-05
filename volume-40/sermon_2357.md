@@ -1,6 +1,5 @@
 # Sermon 2357 | The Two Pillars Of Salvation
 
-(No. 2357)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 22, 1894.
 

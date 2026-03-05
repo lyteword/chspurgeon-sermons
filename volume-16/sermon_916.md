@@ -1,6 +1,5 @@
 # Sermon 916 | A Generous Proposal
 
-(No. 916)
 
 DELIVERED BY C. H. SPURGEON,
 

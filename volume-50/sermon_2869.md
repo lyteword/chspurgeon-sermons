@@ -1,6 +1,5 @@
 # Sermon 2869 | Prayer Found in the Heart
 
-(No. 2869)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 3479 | All of Grace
 
-(No. 3479)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1915.
 

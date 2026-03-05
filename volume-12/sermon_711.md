@@ -1,6 +1,5 @@
 # Sermon 711 | A Feast For Faith
 
-Sermon No. 711 - Delivered on Sunday Evening, September 16th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "This also comes forth from the Lord of Hosts, Who is wonderful in counsel and excellent in working."  
 > Isaiah 28:29.  

@@ -1,6 +1,5 @@
 # Sermon 3018 | The True Lineage
 
-(No. 3018)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 13 1906.
 

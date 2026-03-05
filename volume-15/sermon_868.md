@@ -1,6 +1,5 @@
 # Sermon 868 | Mature Faith--Illustrated By Abraham's Offering Up Isaac
 
-Sermon No. 868 - Delivered on Lord's-day Morning, MAY 2, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And He said, Take now your son, your only son Isaac, whom you love, and get you into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell you of."- Genesis 22:2.

@@ -1,6 +1,5 @@
 # Sermon 1136 | "Forever With The Lord"
 
-(No. 1136)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1873,
 

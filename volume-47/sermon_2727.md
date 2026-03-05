@@ -1,6 +1,5 @@
 # Sermon 2727 | Bitter Herbs
 
-(No. 2727)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 19, 1901.
 

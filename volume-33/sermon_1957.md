@@ -1,6 +1,5 @@
 # Sermon 1957 | The Lord's Own View of His Church and People
 
-Sermon No. 1957 - Delivered on Sunday Morning, April 3rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "A garden enclosed is My sister, My spouse; a spring shut up, a fountain sealed."  
 > Song of Solomon 4:12.  

@@ -1,6 +1,5 @@
 # Sermon 2176 | The Lord No More Angry with His People
 
-Sermon No. 2176 - Delivered on Sunday Morning, December 7th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you."  
 > Isaiah 54:9.  

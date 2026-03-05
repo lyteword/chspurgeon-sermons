@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 1850)
 
 Intended for reading on Lord's-Day, July 26th, 1885,
 

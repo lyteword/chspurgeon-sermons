@@ -1,6 +1,5 @@
 # Sermon 3196 | Noah's Eminence
 
-(No. 3196)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 5, 1910.
 

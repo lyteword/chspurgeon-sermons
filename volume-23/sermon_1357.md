@@ -1,6 +1,5 @@
 # Sermon 1357 | A Business-Like Account
 
-(No. 1357)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 3, 1877,
 

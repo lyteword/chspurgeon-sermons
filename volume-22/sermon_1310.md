@@ -1,6 +1,5 @@
 # Sermon 1310 | The Blind Befriended
 
-(No. 1310)
 
 A SERMON DELIVERED ON THURSDAY EVENING, MARCH 9, 1876,
 

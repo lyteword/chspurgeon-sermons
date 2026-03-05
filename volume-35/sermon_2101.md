@@ -1,6 +1,5 @@
 # Sermon 2101 | Life and Pardon
 
-Sermon No. 2101 - Delivered on Sunday, August 25, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven you all trespasses."  
 > Colossians 2:13.  

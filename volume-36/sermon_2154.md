@@ -1,6 +1,5 @@
 # Sermon 2154 | The Pastor's Joy and Confidence
 
-Sermon No. 2154 - Delivered on Sunday Morning, July 13th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I thank my God upon every remembrance of you, always in every prayer of mine for you all making request with joy, for your fellowship in the Gospel from the first day until now being confident of this very thing that He which has begun a good work in you will perform it until the day of Jesus Christ: even as it is meet for me to think this of you all, because I have you in my heart; inasmuch as both in my bonds and in the defense and confirmation of the Gospel, you all are partakers of my grace."  
 > Philippians 1:3-7.  

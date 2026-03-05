@@ -1,6 +1,5 @@
 # Sermon 1024 | The Throne of Grace
 
-Sermon No. 1024 - Delivered on Lord's-Day Morning, November 19th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The throne of grace."  
 > Hebrews 4:16  

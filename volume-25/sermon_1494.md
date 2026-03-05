@@ -1,6 +1,5 @@
 # Sermon 1494 | The One Foundation
 
-(No. 1494)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 14, 1879,
 

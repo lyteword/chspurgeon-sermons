@@ -1,6 +1,5 @@
 # Sermon 1231 | The Sure Triumph Of The Crucified One
 
-(No. 1231)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 25, 1875,
 

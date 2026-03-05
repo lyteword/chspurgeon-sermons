@@ -1,6 +1,5 @@
 # Sermon 2774 | Love Pledging Fidelity
 
-(No. 2774)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 13, 1902.
 

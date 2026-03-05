@@ -1,6 +1,5 @@
 # Sermon 2578 | Refusing to Be Comforted
 
-(No. 2578)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 1O, 1898.
 

@@ -1,6 +1,5 @@
 # Sermon 2761 | The Free Agency of Christ
 
-(No. 2761)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 12, 1902.
 

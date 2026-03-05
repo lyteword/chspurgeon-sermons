@@ -1,6 +1,5 @@
 # Sermon 177 | God, the All-Seeing One
 
-Sermon No. 177 - Delivered on Sabbath Morning, February 14, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Hell and destruction are before the Lord: how much more then the hearts of the children of men?    
 > Proverbs 15:11.    

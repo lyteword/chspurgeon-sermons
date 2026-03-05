@@ -1,6 +1,5 @@
 # Sermon 1428 | The True Position of the Witness Within
 
-(No. 1428)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 11, 1878,
 

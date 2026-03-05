@@ -1,6 +1,5 @@
 # Sermon 2725 | Elijah Fainting
 
-(No. 2725)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 5, 1901.
 

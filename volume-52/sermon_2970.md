@@ -1,6 +1,5 @@
 # Sermon 2970 | God's Jewels
 
-(No. 2970)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1906.
 

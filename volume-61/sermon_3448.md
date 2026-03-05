@@ -1,6 +1,5 @@
 # Sermon 3448 | God's Glory and His Goodness
 
-(No. 3448)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 4, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 1684 | "Feed My Lambs"--a Sunday School Sermon
 
-(No. 1684)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 15, 1882,
 

@@ -1,6 +1,5 @@
 # Sermon 1158 | The Sieve
 
-(No. 1158)
 
 DELIVERED BY
 

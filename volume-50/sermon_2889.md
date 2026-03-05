@@ -1,6 +1,5 @@
 # Sermon 2889 | Christ Receiving Sinners
 
-(No. 2889)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 23, 1904.
 

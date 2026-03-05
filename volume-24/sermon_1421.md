@@ -1,6 +1,5 @@
 # Sermon 1421 | The Hiding of Moses by Faith
 
-(No. 1421)
 
 DELIVERED BY
 

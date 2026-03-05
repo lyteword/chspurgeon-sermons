@@ -1,6 +1,5 @@
 # Sermon 1134 | Paved With Love
 
-(No. 1134)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 28, 1873,
 

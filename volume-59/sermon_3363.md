@@ -1,6 +1,5 @@
 # Sermon 3363 | Witnessing at the Cross
 
-(No. 3363)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 17, 1913.
 

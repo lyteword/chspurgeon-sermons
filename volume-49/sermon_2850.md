@@ -1,6 +1,5 @@
 # Sermon 2850 | The New Song and the Old Story
 
-(No. 2850)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1903.
 

@@ -1,6 +1,5 @@
 # Sermon 825 | The Sieve
 
-A Sermon (No. 825)
 
 Delivered on lord's-day morning, august 16, 1868, by C. H. SPURGEON, at the [35]Metropolitan Tabernacle, Newington.
 

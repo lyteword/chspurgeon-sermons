@@ -1,6 +1,5 @@
 # Sermon 2219 | A Harp of Ten Strings
 
-(No. 2219)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 30, 1891,
 

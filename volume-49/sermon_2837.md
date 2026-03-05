@@ -1,6 +1,5 @@
 # Sermon 2837 | "The Ministry of Reconciliation"
 
-(No. 2837)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 28, 1903.
 

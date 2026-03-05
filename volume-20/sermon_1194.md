@@ -1,6 +1,5 @@
 # Sermon 1194 | "I and the Children"
 
-(No. 1194)
 
 DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 20, 1874,
 

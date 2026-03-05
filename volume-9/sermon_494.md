@@ -1,6 +1,5 @@
 # Sermon 494 | The Betrayal
 
-Sermon No. 494 - Delivered on Sunday Morning, February 15th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And while he yet spake, behold a multitude, and he that was called Judas, one of the twelve, went before them, and drew near unto Jesus to kiss him. But Jesus said unto him, Judas, betrayest thou the Son of man with a kiss?"  
 > Luke 22:47, 48.  

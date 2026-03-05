@@ -1,6 +1,5 @@
 # Sermon 1866 | The Sunday School and the Scriptures
 
-(No. 1866)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 18, 1885,
 

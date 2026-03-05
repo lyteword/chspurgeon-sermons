@@ -1,6 +1,5 @@
 # Sermon 2909 | Job's Sure Knowledge
 
-(No. 2909)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 10, 1904.
 

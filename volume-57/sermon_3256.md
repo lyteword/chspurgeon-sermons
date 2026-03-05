@@ -1,6 +1,5 @@
 # Sermon 3256 | Beggars Becoming Princes
 
-(No. 3256)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 29, 1911.
 

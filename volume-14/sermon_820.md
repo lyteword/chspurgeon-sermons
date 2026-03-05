@@ -1,6 +1,5 @@
 # Sermon 820 | Working Out What is Worked In
 
-A Sermon (No. 820)
 
 Delivered on Lord's-Day Morning, July 12, 1868, by C. H. SPURGEON, at the [30]Metropolitan Tabernacle, Newington.
 

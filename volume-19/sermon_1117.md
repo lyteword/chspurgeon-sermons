@@ -1,6 +1,5 @@
 # Sermon 1117 | The Father's Will
 
-(No. 1117)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 2275 | Belief, Baptism, Blessing
 
-(No. 2275)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 25, 1892.
 

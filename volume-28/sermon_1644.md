@@ -1,6 +1,5 @@
 # Sermon 1644 | Our Lord's First Appearance before Pilate
 
-(No. 1644)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 12, 1882,
 

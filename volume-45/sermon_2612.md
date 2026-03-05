@@ -1,6 +1,5 @@
 # Sermon 2612 | Questions and Answers Concerning Zion
 
-(No. 2612)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 5, 1899.
 

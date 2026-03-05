@@ -1,6 +1,5 @@
 # Sermon 692 | Joy And Peace In Believing
 
-Sermon No. 692 - Delivered on Sunday Morning, May 20th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Joy and peace in believing.'"  
 > Romans 15:13.  

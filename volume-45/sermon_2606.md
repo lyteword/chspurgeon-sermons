@@ -1,6 +1,5 @@
 # Sermon 2606 | Choice Teaching for the Chosen
 
-(No. 2606)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 22, 1899.
 

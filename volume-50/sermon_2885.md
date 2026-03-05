@@ -1,6 +1,5 @@
 # Sermon 2885 | Christ's Sympathy With His People
 
-(No. 2885)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 26, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 1288 | Truly Eating the Flesh of Jesus
 
-(No. 1288)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 9, 1876,
 

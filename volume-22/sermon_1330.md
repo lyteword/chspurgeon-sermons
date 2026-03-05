@@ -1,6 +1,5 @@
 # Sermon 1330 | The Great Birthday
 
-(No. 1330)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 24, 1876.
 

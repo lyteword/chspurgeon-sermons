@@ -1,6 +1,5 @@
 # Sermon 2794 | A Refreshing Canticle
 
-(No. 2794)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 31, 1902.
 

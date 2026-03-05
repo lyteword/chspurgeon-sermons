@@ -1,6 +1,5 @@
 # Sermon 926 | The Sine Qua Non
 
-(No. 926)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 17, 1870,
 

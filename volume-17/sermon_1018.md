@@ -1,6 +1,5 @@
 # Sermon 1018 | Pleading
 
-Sermon No. 1018 - Delivered on Lord's-day Morning, October 29th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But I am poor and needy: make haste unto me, O God: Thou art my help and my deliverer; O Lord, make no tarrying."  
 > Psalm 70:5  

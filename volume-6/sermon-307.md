@@ -1,6 +1,5 @@
 # Sermon 307 | Importance of Small Things in Religion
 
-Sermon No. 307 - Delivered on Sabbath Morning, April 8th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > The Lord our God made a breach upon us for that we sought him not after the due order.    
 > 1 Chron. 15:13.    

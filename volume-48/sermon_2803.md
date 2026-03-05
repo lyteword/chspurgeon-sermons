@@ -1,6 +1,5 @@
 # Sermon 2803 | The Saddest Cry From the Cross
 
-(No. 2803)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 2, 1902.
 

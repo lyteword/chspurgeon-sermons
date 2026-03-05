@@ -1,6 +1,5 @@
 # Sermon 1658 | Healed or Deluded? Which?
 
-(No. 1658)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 7, 1882,
 

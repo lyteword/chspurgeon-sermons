@@ -1,6 +1,5 @@
 # Sermon 993 | The Northern Iron and the Steel
 
-Sermon No. 993 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Shall iron break the northern iron and the steel?"  
 > Jeremiah 15:12.  

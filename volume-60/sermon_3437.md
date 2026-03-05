@@ -1,6 +1,5 @@
 # Sermon 3437 | Friendship's Guide
 
-(No. 3437)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 17, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 573 | Baptismal Regeneration
 
-Sermon No. 573 - Delivered on Sunday Morning, June 5th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And he said unto them, Go ye into all the world, and preach the gospel to every creature. He that believeth and is baptized shall be saved; but he that believeth not shall be damned."  
 > Mark 16:15-16.  

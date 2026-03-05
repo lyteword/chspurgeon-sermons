@@ -1,6 +1,5 @@
 # Sermon 3482 | Struggling Against Sin
 
-(No. 3482)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 21, 1915.
 

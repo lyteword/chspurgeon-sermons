@@ -1,6 +1,5 @@
 # Sermon 2997 | "Tempted of the Devil"
 
-(No. 2997)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 19 1906.
 

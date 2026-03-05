@@ -1,6 +1,5 @@
 # Sermon 673 | Secret Sins Driven Out By Stinging Hornets
 
-Sermon No. 673 - Delivered on Sunday Morning, January 28th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Moreover the Lord your God will send the hornet among them, until those who are left, who hide themselves from you, are destroyed."  
 > Deuteronomy 7:20.  

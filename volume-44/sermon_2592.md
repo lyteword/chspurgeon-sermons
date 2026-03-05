@@ -1,6 +1,5 @@
 # Sermon 2592 | The Power of Christ's Name
 
-(No. 2592)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 16, 1898.
 

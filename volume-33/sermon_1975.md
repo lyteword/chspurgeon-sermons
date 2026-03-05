@@ -1,6 +1,5 @@
 # Sermon 1975 | The Covenanter
 
-Sermon No. 1975 - Delivered on Sunday Morning, July 31st, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "All the paths of the Lord are mercy and truth unto such as keep His Co venant and His testimonies."  
 > Psalm 25:10.  

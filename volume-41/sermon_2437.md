@@ -1,6 +1,5 @@
 # Sermon 2437 | Prayer, the Proof of Godliness
 
-(No. 2437)
 
 INTENDED FOR READING ON LORD'S DAY, NOVEMBER 3, 1895.
 

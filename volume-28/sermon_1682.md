@@ -1,6 +1,5 @@
 # Sermon 1682 | Ask and Have
 
-(No. 1682)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 1, 1882,
 

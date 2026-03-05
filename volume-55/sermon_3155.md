@@ -1,6 +1,5 @@
 # Sermon 3155 | The Beatitudes
 
-(No. 3155)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 29, 1909.
 

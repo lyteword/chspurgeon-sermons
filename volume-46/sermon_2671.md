@@ -1,6 +1,5 @@
 # Sermon 2671 | A Sincere Summary--and a Searching Scrutiny
 
-(No. 2671)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 22, 1900.
 

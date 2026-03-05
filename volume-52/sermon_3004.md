@@ -1,6 +1,5 @@
 # Sermon 3004 | The Christian's Manifestation
 
-(No. 3004)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 6, 1906.
 

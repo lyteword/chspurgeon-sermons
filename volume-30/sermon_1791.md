@@ -1,6 +1,5 @@
 # Sermon 1791 | Helps to Full Assurance
 
-(No. 1791)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1884,
 

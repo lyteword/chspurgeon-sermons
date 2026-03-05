@@ -1,6 +1,5 @@
 # Sermon 2239 | "Is God In the Camp?"
 
-(No. 2239)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 17, 1892,
 

@@ -1,6 +1,5 @@
 # Sermon 2860 | Owl or Eagle?
 
-(No. 2860)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1903.
 

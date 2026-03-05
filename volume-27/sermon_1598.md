@@ -1,6 +1,5 @@
 # Sermon 1598 | The Substance Of True Religion
 
-(No. 1598)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 15, 1881,
 

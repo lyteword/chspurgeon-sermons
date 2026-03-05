@@ -1,6 +1,5 @@
 # Sermon 2529 | Compassion on the Ignorant
 
-(No. 2529)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 8, 1897.
 

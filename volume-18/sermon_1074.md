@@ -1,6 +1,5 @@
 # Sermon 1074 | The Paraclete
 
-(No. 1074)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 6, 1872,
 

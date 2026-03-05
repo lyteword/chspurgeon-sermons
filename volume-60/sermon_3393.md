@@ -1,6 +1,5 @@
 # Sermon 3393 | Wheat in the Barn
 
-(No. 3393)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 12, 1914.
 

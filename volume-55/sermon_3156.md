@@ -1,6 +1,5 @@
 # Sermon 3156 | The First Beatitude
 
-(No. 3156)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 5, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2060 | The Messages of Our Lord's Love
 
-Sermon No. 2060 - Delivered on Sunday Evening, August 5th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Go your way, tell His disciples and Peter that He goes beforeyou into Galilee: there shall you see Him, as He said unto you."  
 > Mark 16:7.  

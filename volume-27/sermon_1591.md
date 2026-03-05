@@ -1,6 +1,5 @@
 # Sermon 1591 | Honey From A Lion
 
-(No. 1591)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 3, 1881,
 

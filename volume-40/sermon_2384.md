@@ -1,6 +1,5 @@
 # Sermon 2384 | "Forget You, I Will Not"
 
-(No. 2384)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 28, 1894.
 

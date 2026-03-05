@@ -1,6 +1,5 @@
 # Sermon 1681 | Shutting, Sealing and Covering--or, Messiah's Glorious Work
 
-(No. 1681)
 
 DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 24, 1882,
 

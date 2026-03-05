@@ -1,6 +1,5 @@
 # Sermon 3260 | Spiritual Convalescence
 
-(No. 3260)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 27, 1911.
 

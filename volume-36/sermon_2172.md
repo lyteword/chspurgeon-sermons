@@ -1,6 +1,5 @@
 # Sermon 2172 | Patient Job and the Baffled Enemy
 
-Sermon No. 2172 - Delivered on Thursday Evening August 28th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "In all this Job sinned not, nor charged God foolishly."  
 > Job 1:22.  

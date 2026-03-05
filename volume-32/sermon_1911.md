@@ -1,6 +1,5 @@
 # Sermon 1911 | Hideous Discovery
 
-(No. 1911)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 25, 1886,
 

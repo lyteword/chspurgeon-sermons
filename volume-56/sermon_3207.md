@@ -1,6 +1,5 @@
 # Sermon 3207 | Secret Disciples Encouraged
 
-(No. 3207)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 21, 1910.
 

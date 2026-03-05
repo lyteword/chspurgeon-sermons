@@ -1,6 +1,5 @@
 # Sermon 1147 | The Gentleness Of Jesus
 
-(No. 1147)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 14, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 2476 | "This Thing Is From Me"
 
-(No. 2476)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1896.
 

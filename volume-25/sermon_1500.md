@@ -1,6 +1,5 @@
 # Sermon 1500 | Number 1500, Or Lifting Up the Bronze Serpent
 
-(No. 1500)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 19, 1879,
 

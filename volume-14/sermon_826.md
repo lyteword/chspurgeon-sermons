@@ -1,6 +1,5 @@
 # Sermon 826 | Christ, the Glory of His People
 
-A Sermon (No. 826)
 
 Delivered on Lord's Day Evening, March 22, 1868, by C. H. SPURGEON, at the [36]Metropolitan Tabernacle, Newington.
 

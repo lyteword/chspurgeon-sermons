@@ -1,6 +1,5 @@
 # Sermon 1248 | The Choice Of A Leader
 
-(No. 1248)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1875,
 

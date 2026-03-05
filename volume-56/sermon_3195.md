@@ -1,6 +1,5 @@
 # Sermon 3195 | Christ Loosens From Infirmities
 
-(No. 3195)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 28, 1910.
 

@@ -1,6 +1,5 @@
 # Sermon 1702 | On Laying Foundations
 
-(No. 1702)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 21, 1883,
 

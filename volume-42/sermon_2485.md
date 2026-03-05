@@ -1,6 +1,5 @@
 # Sermon 2485 | Love's Vigilance Rewarded
 
-(No. 2485)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 4, 1896.
 

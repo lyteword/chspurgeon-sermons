@@ -1,6 +1,5 @@
 # Sermon 2826 | The King in Pilate's Hall
 
-(No. 2826)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1903.
 

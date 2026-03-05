@@ -1,6 +1,5 @@
 # Sermon 1687 | The Law Written in the Heart
 
-(No. 1687)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 29, 1882,
 

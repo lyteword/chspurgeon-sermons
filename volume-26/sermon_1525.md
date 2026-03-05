@@ -1,6 +1,5 @@
 # Sermon 1525 | The Lily Among Thorns
 
-(No. 1525)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 29, 1880,
 

@@ -1,6 +1,5 @@
 # Sermon 2349 | All Comers To Christ Welcomed
 
-(No. 2349)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 25, 1894.
 

@@ -1,6 +1,5 @@
 # Sermon 1379 | The Magnanimity of God
 
-(No. 1379)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 21, 1877,
 

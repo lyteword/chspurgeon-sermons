@@ -1,6 +1,5 @@
 # Sermon 2905 | The Father and the Son
 
-(No. 2905)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 13, 1904,
 

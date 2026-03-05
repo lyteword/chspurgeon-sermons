@@ -1,6 +1,5 @@
 # Sermon 2477 | Darkness Before the Dawn
 
-(No. 2477)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 9, 1896.
 

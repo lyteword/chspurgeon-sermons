@@ -1,6 +1,5 @@
 # Sermon 1176 | The Eternal Day
 
-(No. 1176)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 31, 1874,
 

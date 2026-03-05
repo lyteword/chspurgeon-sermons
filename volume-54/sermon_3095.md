@@ -1,6 +1,5 @@
 # Sermon 3095 | Faith in Christ
 
-(No. 3095)
 
 TO MEN OF BUSINESS, PUBLISHED ON THURSDAY, JUNE 4, 1908.
 

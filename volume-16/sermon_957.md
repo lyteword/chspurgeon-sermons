@@ -1,6 +1,5 @@
 # Sermon 957 | Jesus No Phantom
 
-(No. 957)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 2, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 3233 | God's Firebrands
 
-(No. 3233)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 19, 1911.
 

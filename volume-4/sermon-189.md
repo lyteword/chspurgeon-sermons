@@ -1,6 +1,5 @@
 # Sermon 189 | The Cry Of The Heathen
 
-Sermon No. 189 - Delivered on Sabbath Morning, April 25th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > And a vision appeared to Paul in the night. There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us.    
 > Acts 16:9.    

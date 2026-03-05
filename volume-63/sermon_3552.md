@@ -1,6 +1,5 @@
 # Sermon 3552 | The Soul's Desertion
 
-(No. 3552)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1917.
 

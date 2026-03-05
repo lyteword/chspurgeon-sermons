@@ -1,6 +1,5 @@
 # Sermon 3227 | The Secret of Happiness
 
-(No. 3227)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 8, 1910.
 

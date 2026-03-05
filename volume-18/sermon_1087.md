@@ -1,6 +1,5 @@
 # Sermon 1087 | The Hexapla Of Mystery
 
-(No. 1087)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 22, 1872,
 

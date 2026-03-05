@@ -1,6 +1,5 @@
 # Sermon 1230 | A Holy and Homely Resolve
 
-(No. 1230)
 
 DELIVERED BY
 

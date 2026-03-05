@@ -1,6 +1,5 @@
 # Sermon 1668 | The Still Small Voice
 
-(No. 1668)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 9, 1882,
 

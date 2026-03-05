@@ -1,6 +1,5 @@
 # Sermon 1365 | The Trees in God's Courts
 
-(No. 1365)
 
 DELIVERED BY
 

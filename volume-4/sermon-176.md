@@ -1,6 +1,5 @@
 # Sermon 176 | The Prodigal's Return
 
-Sermon No. 176 - Delivered on Sabbath Morning, February 7, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > But when he was yet a great way off; his father saw him, and had compassion, and ran, and fell on his neck, and kissed him.    
 > Luke 15:20.    

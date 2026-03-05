@@ -1,6 +1,5 @@
 # Sermon 3338 | The Witness of the Lord's Supper
 
-(No. 3338)
 
 A SERMON PUBLISHED ON JANUARY 23, 1913.
 

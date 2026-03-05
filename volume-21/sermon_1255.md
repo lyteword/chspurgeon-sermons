@@ -1,6 +1,5 @@
 # Sermon 1255 | How To Converse With God
 
-(No. 1255)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 19, 1875,
 

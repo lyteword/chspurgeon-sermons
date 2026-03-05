@@ -1,6 +1,5 @@
 # Sermon 1348 | The Great House and the Vessels In It
 
-(No. 1348)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 8, 1877,
 

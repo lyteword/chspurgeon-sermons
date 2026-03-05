@@ -1,6 +1,5 @@
 # Sermon 3343 | "The Star Out of Jacob"
 
-(No. 3343)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 27, 1913.
 

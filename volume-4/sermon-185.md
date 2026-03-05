@@ -1,6 +1,5 @@
 # Sermon 185 | The Great Revival
 
-Sermon No. 185 - Delivered on Sabbath Morning, March 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > The Lord hath made bare his holy arm in the eyes of all the nations; and all the ends of the earth shall see the salvation of our God.    
 > Isaiah 52:10.    

@@ -1,6 +1,5 @@
 # Sermon 1165 | The Christian's Motto
 
-(No. 1165)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 22, 1874,
 

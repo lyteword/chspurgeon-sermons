@@ -1,6 +1,5 @@
 # Sermon 918 | The Two Builders And Their Houses
 
-(No. 918)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 2991 | What We Have, and Are to Have
 
-(No. 2991)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 7, 1906.
 

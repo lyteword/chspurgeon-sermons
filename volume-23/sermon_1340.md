@@ -1,6 +1,5 @@
 # Sermon 1340 | Manoah's Wife and Her Excellent Argument
 
-(No. 1340)
 
 DELIVERED BY
 

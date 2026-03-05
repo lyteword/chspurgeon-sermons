@@ -1,6 +1,5 @@
 # Sermon 3477 | Araunah's Threshing Floor
 
-(No. 3477)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 23, 1915.
 

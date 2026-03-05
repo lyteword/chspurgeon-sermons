@@ -1,6 +1,5 @@
 # Sermon 1065 | The Healing of One Born Blind
 
-(No. 1065)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 11 1872,
 

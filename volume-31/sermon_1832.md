@@ -1,6 +1,5 @@
 # Sermon 1832 | Elijah's Plea
 
-(No. 1832)
 
 DELIVERED BY
 

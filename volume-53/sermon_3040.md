@@ -1,6 +1,5 @@
 # Sermon 3040 | The Happy Beggar
 
-(No. 3040)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 16, 1907.
 

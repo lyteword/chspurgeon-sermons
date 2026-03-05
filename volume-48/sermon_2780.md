@@ -1,6 +1,5 @@
 # Sermon 2780 | The Sojourn in Mesech
 
-(No. 2780)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 25, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 1328 | Christ the Maker of All Things New
 
-(No. 1328)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 10, 1876,
 

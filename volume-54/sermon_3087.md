@@ -1,6 +1,5 @@
 # Sermon 3087 | A Time of Finding for Lost Sheep
 
-(No. 3087)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 9, 1908.
 

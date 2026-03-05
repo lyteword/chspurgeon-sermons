@@ -1,6 +1,5 @@
 # Sermon 2526 | "Speak, Lord!"
 
-(No. 2526)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 18, 1897.
 

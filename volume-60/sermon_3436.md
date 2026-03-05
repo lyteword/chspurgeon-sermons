@@ -1,6 +1,5 @@
 # Sermon 3436 | Christ Glorified
 
-(No. 3436)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1914.
 

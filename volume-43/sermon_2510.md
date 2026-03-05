@@ -1,6 +1,5 @@
 # Sermon 2510 | Apart
 
-(No. 2510)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 28, 1897.
 

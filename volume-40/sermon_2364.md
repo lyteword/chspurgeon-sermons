@@ -1,6 +1,5 @@
 # Sermon 2364 | Poverty and Riches
 
-(No. 2364)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 10 1894.
 

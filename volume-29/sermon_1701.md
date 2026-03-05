@@ -1,6 +1,5 @@
 # Sermon 1701 | Gladness For Sadness
 
-(No. 1701)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 14, 1883,
 

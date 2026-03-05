@@ -1,6 +1,5 @@
 # Sermon 456 | The Stony Heart Removed
 
-Sermon No. 456 - Delivered on Sunday Evening, May 25th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I will take away the stony heart out of your flesh, and I will give you an heart of flesh."  
 > Ezekiel 36:26.  

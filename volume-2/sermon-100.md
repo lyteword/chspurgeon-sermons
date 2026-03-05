@@ -1,6 +1,5 @@
 # Sermon 100 | The Comer's Conflict with Satan
 
-Sermon No. 100 Delivered on Sabbath Morning, August 24, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > And as he was yet a coming, the devil threw him down, and tare him. And Jesus rebuked the unclean spirit, and healed the child, and delivered him again to his father.    
 > Luke 9:42.    

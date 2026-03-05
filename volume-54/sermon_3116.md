@@ -1,6 +1,5 @@
 # Sermon 3116 | Preparing to Depart
 
-(No. 3116)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1908.
 

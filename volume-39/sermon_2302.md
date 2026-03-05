@@ -1,6 +1,5 @@
 # Sermon 2302 | Watching For Christ's Coming
 
-(No. 2302)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 2, 1893.
 

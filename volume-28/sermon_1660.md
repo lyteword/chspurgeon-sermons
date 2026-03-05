@@ -1,6 +1,5 @@
 # Sermon 1660 | The Perpetuity of the Law of God
 
-(No. 1660)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 21, 1882,
 

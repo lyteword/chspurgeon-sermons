@@ -1,6 +1,5 @@
 # Sermon 3120 | A View of God's Glory
 
-(No. 3120)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1908.
 

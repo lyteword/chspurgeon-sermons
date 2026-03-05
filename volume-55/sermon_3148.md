@@ -1,6 +1,5 @@
 # Sermon 3148 | Christ's Ambassadors
 
-(No. 3148)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 10, 1909.
 

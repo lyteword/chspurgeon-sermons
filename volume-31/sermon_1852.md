@@ -1,6 +1,5 @@
 # Sermon 1852 | The Modern Dead Sea and the Living Waters
 
-(No. 1852)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 19, 1885,
 

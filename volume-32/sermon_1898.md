@@ -1,6 +1,5 @@
 # Sermon 1898 | Mouth and Heart
 
-(No. 1898)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, APRIL 25, 1886,
 

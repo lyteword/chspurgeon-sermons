@@ -1,6 +1,5 @@
 # Sermon 1830 | All Or None--or, Compromises Refused-- a Sermon With Five Texts
 
-(No. 1830)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1885,
 

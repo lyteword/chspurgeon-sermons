@@ -1,6 +1,5 @@
 # Sermon 2500 | Number 2500--or, "entrance and Exclusion"
 
-(No. 2500)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 17 1897.
 

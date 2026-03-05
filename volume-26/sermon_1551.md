@@ -1,6 +1,5 @@
 # Sermon 1551 | Today! Today! Today!
 
-(No. 1551)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1880,
 

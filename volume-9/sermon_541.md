@@ -1,6 +1,5 @@
 # Sermon 541 | Direction In Dilemma
 
-Sermon No. 541 - Delivered on Sunday Morning, November 22nd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Standstill and see the salvation of the Lord."  
 > Exodus 14:13.  

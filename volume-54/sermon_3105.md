@@ -1,6 +1,5 @@
 # Sermon 3105 | The Search after Happiness
 
-(No. 3105)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 219 | An Appeal To Sinners
 
-Sermon No. 219 - Delivered on Sabbath Evening, September 14th, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 DEARLY BELOVED,
 

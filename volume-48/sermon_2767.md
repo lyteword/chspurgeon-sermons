@@ -1,6 +1,5 @@
 # Sermon 2767 | Jesus in Gethsemane
 
-(No. 2767)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 23, 1902.
 

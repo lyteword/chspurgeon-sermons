@@ -1,6 +1,5 @@
 # Sermon 1047 | The Triumph Of Christianity
 
-(No. 1047)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 21, 1872,
 

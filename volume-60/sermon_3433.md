@@ -1,6 +1,5 @@
 # Sermon 3433 | Love's Reward
 
-(No. 3433)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1914.
 

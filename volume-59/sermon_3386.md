@@ -1,6 +1,5 @@
 # Sermon 3386 | Christ Our Peace
 
-(No. 3386)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 25, 1913.
 

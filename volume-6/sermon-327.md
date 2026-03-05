@@ -1,6 +1,5 @@
 # Sermon 326 | Vessels Of Mercy&mdash;A Sermon Of Self-Examination
 
-Sermon No. 326 - Delivered on Sabbath Morning, August 5th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > And that He might make known the riches of His Glory on the vessels of mercy, which He had prepared beforehand for glory, even us, whom He called, not of the Jews only, but also of the Gentiles.    
 > Romans 9:23,24.    

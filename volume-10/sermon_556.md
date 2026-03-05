@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 556)
 
 By the
 

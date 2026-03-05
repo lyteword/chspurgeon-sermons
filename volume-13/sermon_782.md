@@ -1,6 +1,5 @@
 # Sermon 782 | Saving Knowledge
 
-Sermon No. 782 - Delivered on Lord's-day Morning, NOVEMBER 24, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Jesus answered and said unto her, If you knew the gift of God, and who it is that says to you, Give Me to drink; you would have asked of Him, and He would have given you living water."- John 4:10.

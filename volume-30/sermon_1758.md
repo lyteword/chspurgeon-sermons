@@ -1,6 +1,5 @@
 # Sermon 1758 | The Pastor's Life Wrapped Up with His People's Steadfastness a Pleading Reminder for the New Year
 
-(No. 1758)
 
 DELIVERED BY
 

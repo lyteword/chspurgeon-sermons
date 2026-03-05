@@ -1,6 +1,5 @@
 # Sermon 2316 | Twelve Covenant Mercies
 
-(No. 2316)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 9, 1893.
 

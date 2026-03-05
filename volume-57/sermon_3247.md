@@ -1,6 +1,5 @@
 # Sermon 3247 | Unreasonable Reasons
 
-(No. 3247)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 27, 1904.
 

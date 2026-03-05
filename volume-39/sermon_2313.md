@@ -1,6 +1,5 @@
 # Sermon 2313 | Charity and Purity
 
-(No. 2313)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 18, 1893.
 

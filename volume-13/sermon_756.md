@@ -2,7 +2,6 @@
 
 A sermon
 
-(No. 756)
 
 Delivered on Thursday Evening, March 21, 1867, by C. H. Spurgeon, at the Surrey Chapel, Blackfriars Road.
 

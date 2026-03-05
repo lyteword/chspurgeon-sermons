@@ -1,6 +1,5 @@
 # Sermon 3518 | The Powerful Truth of God
 
-(No. 3518)
 
 A SERMON PUBLISHED ON THURSDAY JUNE 29, 1916.
 

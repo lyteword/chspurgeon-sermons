@@ -1,6 +1,5 @@
 # Sermon 1398 | Offended Because of Christ?
 
-(No. 1398)
 
 DELIVERED BY
 

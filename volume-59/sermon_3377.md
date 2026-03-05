@@ -1,6 +1,5 @@
 # Sermon 3377 | The Greatest Wonder of Grace
 
-(No. 3377)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 23, 1913.
 

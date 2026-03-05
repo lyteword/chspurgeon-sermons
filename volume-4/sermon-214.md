@@ -1,6 +1,5 @@
 # Sermon 214 | His Name&mdash;Wonderful!
 
-Sermon No. 214 - Delivered on Sabbath Morning, September 19, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > His name shall be called Wonderful.    
 > Isaiah 9:6.    

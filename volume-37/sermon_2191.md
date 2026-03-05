@@ -1,6 +1,5 @@
 # Sermon 2191 | Believing On Jesus--and Its Counterfeits
 
-(No. 2191)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1891,
 

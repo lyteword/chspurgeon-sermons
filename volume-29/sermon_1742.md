@@ -1,6 +1,5 @@
 # Sermon 1742 | Spiritual Knowledge and Its Practical Results
 
-(No. 1742)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 30 1883,
 

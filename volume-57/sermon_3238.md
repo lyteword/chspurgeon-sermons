@@ -1,6 +1,5 @@
 # Sermon 3238 | A Vision of the King
 
-(No. 3238)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1911.
 

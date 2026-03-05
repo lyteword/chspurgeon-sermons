@@ -1,6 +1,5 @@
 # Sermon 2539 | The Joy of Holy Households
 
-(No. 2539)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 17, 1897.
 

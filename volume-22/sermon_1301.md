@@ -1,6 +1,5 @@
 # Sermon 1301 | A Prince and a Savior
 
-(No. 1301)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 25, 1876,
 

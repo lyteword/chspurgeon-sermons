@@ -1,6 +1,5 @@
 # Sermon 1880 | A Lesson and a Fortune for Christian Men of Business
 
-(No. 1880)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 24, 1886.
 

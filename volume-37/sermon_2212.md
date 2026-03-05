@@ -1,6 +1,5 @@
 # Sermon 2212 | The Private Thoughts and Words of Jesus
 
-(No. 2212)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 12, 1891,
 

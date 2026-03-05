@@ -1,6 +1,5 @@
 # Sermon 2549 | Luminous Words
 
-(No. 2549)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 26, 1897.
 

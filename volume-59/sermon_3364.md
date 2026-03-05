@@ -1,6 +1,5 @@
 # Sermon 3364 | Surveying the Field
 
-(No. 3364)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 24, 1913.
 

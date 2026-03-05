@@ -1,6 +1,5 @@
 # Sermon 2757 | Victorious Faith
 
-(No. 2757)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 15, 1901.
 

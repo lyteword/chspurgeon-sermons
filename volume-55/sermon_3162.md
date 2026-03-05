@@ -1,6 +1,5 @@
 # Sermon 3162 | The Unfailing Help
 
-(No. 3162)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 16, 1909.
 

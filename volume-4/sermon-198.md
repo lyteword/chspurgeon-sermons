@@ -1,6 +1,5 @@
 # Sermon 198 | The Heavenly Race
 
-Sermon No. 198 - Delivered on Friday Afternoon, June 11, 1858, by the REV. C.H. SPURGEON on the Grand Stand, Epsom Race-Course.
 
 > So run, that ye may obtain.    
 > 1 Corinthians 9:24.    

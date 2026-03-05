@@ -1,6 +1,5 @@
 # Sermon 3440 | Attention!
 
-(No. 3440)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 7, 1915.
 

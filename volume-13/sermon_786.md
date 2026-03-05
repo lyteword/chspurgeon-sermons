@@ -1,6 +1,5 @@
 # Sermon 786 | The Great Mystery of Godliness
 
-Sermon No. 786 - Delivered on Lord's-day Morning, DECEMBER 22, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory."- 1 Timothy 3:16.

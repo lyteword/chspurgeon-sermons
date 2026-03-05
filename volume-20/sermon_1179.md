@@ -1,6 +1,5 @@
 # Sermon 1179 | Forty Years
 
-(No. 1179)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 14, 1874,
 

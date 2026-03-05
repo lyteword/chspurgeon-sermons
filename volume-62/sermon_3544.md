@@ -1,6 +1,5 @@
 # Sermon 3544 | The Only Road
 
-(No. 3544)
 
 PUBLISHED ON THURSDAY, DECEMBER 28, 1916.
 

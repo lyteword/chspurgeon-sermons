@@ -1,6 +1,5 @@
 # Sermon 1917 | In Christ No Condemnation
 
-(No. 1917)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 29, 1886,
 

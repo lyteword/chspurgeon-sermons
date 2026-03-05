@@ -1,6 +1,5 @@
 # Sermon 2556 | Life Proved by Love
 
-(No. 2556)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 13, 1898.
 

@@ -1,6 +1,5 @@
 # Sermon 1766 | A Waiting God and a Waiting People
 
-(No. 1766)
 
 A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 17, 1884,
 

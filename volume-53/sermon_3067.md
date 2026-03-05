@@ -1,6 +1,5 @@
 # Sermon 3067 | A Bold Challenge Justified
 
-(No. 3067)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 1, 1907.
 

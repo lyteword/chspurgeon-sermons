@@ -1,6 +1,5 @@
 # Sermon 2932 | False Justification and True
 
-(No. 2932)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 20, 1905.
 

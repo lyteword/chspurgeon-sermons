@@ -1,6 +1,5 @@
 # Sermon 3050 | The Errand of Mercy
 
-(No. 3050)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 25, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 3226 | Figs and Olives
 
-(No. 3226)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 1, 1910.
 

@@ -1,6 +1,5 @@
 # Sermon 777 | Helps
 
-Sermon No. 777 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And God has set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues."- 1 Corinthians 12:28.

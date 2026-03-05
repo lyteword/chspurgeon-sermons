@@ -1,6 +1,5 @@
 # Sermon 951 | The Unrivalled Eloquence Of Jesus
 
-(No. 951)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 18, 1870,
 

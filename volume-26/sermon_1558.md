@@ -1,6 +1,5 @@
 # Sermon 1558 | Rare Fruit
 
-(No. 1558)
 
 DELIVERED BY
 

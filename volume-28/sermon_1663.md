@@ -1,6 +1,5 @@
 # Sermon 1663 | The True Gospel Is No Hidden Gospel
 
-(No. 1663)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 4, 1882,
 

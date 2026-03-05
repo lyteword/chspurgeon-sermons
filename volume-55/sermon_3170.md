@@ -1,6 +1,5 @@
 # Sermon 3170 | The Novelties of Divine Mercy
 
-(No. 3170)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 11, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2744 | Lost Through One--Saved Through One
 
-(No. 2744)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 15, 1901.
 

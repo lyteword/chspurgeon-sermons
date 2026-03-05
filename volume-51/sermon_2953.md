@@ -1,6 +1,5 @@
 # Sermon 2953 | Spiritual Sight and Eternal Life
 
-(No. 2953)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1905,
 

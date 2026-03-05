@@ -1,6 +1,5 @@
 # Sermon 2747 | Saying Versus Doing
 
-(No. 2747)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 6, 1901.
 

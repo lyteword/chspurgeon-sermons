@@ -1,6 +1,5 @@
 # Sermon 2670 | Pride Catechized
 
-(No. 2670)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 15, 1900.
 

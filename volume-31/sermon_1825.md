@@ -1,6 +1,5 @@
 # Sermon 1825 | An Inscription for the Mausoleum of the Saints
 
-(No. 1825)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 1, 1885,
 

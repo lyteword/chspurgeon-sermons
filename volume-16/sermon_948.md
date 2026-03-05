@@ -1,6 +1,5 @@
 # Sermon 948 | A String Of Pearls
 
-(No. 948)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 28, 1870,
 

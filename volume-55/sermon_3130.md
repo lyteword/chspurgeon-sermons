@@ -1,6 +1,5 @@
 # Sermon 3130 | "In Remembrance"
 
-(No. 3130)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1909.
 

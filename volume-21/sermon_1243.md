@@ -1,6 +1,5 @@
 # Sermon 1243 | Rivers Of Water In A Dry Place
 
-(No. 1243)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 11, 1875,
 

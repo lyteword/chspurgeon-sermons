@@ -1,6 +1,5 @@
 # Sermon 2338 | The Crisis Of This World
 
-(No. 2338)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 10, 1893.
 

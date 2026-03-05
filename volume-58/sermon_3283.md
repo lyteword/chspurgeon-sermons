@@ -1,6 +1,5 @@
 # Sermon 3283 | The Voices of Our Days
 
-(No. 3283)
 
 A NEW YEAR'S SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1912.
 

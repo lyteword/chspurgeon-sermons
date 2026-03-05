@@ -1,6 +1,5 @@
 # Sermon 2504 | Jonah's Object-lessons
 
-(No. 2504)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 14, 1897.
 

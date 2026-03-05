@@ -1,6 +1,5 @@
 # Sermon 967 | The Sages, The Star, and The Savior
 
-(No. 967)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 25, 1870
 

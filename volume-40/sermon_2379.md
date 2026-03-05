@@ -1,6 +1,5 @@
 # Sermon 2379 | A Discourse to the Despairing
 
-(No. 2379)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 23, 1894.
 

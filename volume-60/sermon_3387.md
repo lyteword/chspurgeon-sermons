@@ -1,6 +1,5 @@
 # Sermon 3387 | A New Year's Benediction
 
-(No. 3387)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 1, 1914.
 

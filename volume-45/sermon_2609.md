@@ -1,6 +1,5 @@
 # Sermon 2609 | Our Thoughts About God's Thoughts
 
-(No. 2609)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 12, 1899.
 

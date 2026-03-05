@@ -1,6 +1,5 @@
 # Sermon 953 | Done In A Day, But Wondered At Forever
 
-(No. 953)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 25, 1870,
 

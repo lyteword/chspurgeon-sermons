@@ -1,6 +1,5 @@
 # Sermon 1502 | Satan in a Rage
 
-(No. 1502)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1879,
 

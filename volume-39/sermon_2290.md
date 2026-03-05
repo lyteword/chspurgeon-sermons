@@ -1,6 +1,5 @@
 # Sermon 2290 | God's Unspeakable Gift
 
-(No. 2290)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 8, 1893.
 

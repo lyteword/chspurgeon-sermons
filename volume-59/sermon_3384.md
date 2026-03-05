@@ -1,6 +1,5 @@
 # Sermon 3384 | Growth in Faith
 
-(No. 3384)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 11, 1913.
 

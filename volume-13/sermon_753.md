@@ -1,6 +1,5 @@
 # Sermon 753 | Nazareth--or Jesus, Rejected by His Friends
 
-Sermon No. 753 - Delivered on Lord's-day Morning, JUNE 2, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And all they in the synagogue, when they heard these things, were filled with wrath, and rose up, and thrust Him out of the city. And they led Him unto the brow of the hill on which their city was built, that they might throwHim down over the cliff. Thenpassing through the midst of them He went His way."- Luke 4:28-30.

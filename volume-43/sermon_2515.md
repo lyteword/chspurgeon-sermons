@@ -1,6 +1,5 @@
 # Sermon 2515 | Something Worth Seeking
 
-(No. 2515)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1897.
 

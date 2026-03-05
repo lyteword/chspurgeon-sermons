@@ -1,6 +1,5 @@
 # Sermon 2709 | Christ's Past and Present Witnesses
 
-(No. 2709)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 13, 1901.
 

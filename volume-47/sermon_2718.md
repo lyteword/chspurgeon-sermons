@@ -1,6 +1,5 @@
 # Sermon 2718 | The Tenses
 
-(No. 2718)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 17, 1901.
 

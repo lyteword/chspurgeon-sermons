@@ -1,6 +1,5 @@
 # Sermon 1299 | Love's Birth and Parentage
 
-(No. 1299)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 11, 1876,
 

@@ -1,6 +1,5 @@
 # Sermon 1495 | The King-Priest
 
-(No. 1495)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1879,
 

@@ -1,6 +1,5 @@
 # Sermon 912 | The Glorious Hereafter and Ourselves
 
-(No. 912)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 23, 1870,
 

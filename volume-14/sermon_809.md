@@ -1,6 +1,5 @@
 # Sermon 809 | The Approachableness of Jesus
 
-A Sermon (No. 809)
 
 Delivered on Sunday Evening, May 3rd, 1868, by C. H. SPURGEON, At the [20]Metropolitan Tabernacle, Newington.
 

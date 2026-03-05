@@ -1,6 +1,5 @@
 # Sermon 2038 | The Lord's Supper: A Remembrance Of Jesus
 
-Sermon No. 2038 - Delivered on Sunday Morning, August 19th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "This do in remembrance of Me."  
 > Luke 22:19.  

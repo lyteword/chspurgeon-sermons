@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 805)
 
 Delivered on Lord's-Day Morning, April 12, 1868, by
 

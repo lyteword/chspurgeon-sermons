@@ -1,6 +1,5 @@
 # Sermon 1679 | One War Over and Another Begun
 
-(No. 1679)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 17, 1882,
 

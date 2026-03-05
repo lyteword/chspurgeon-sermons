@@ -1,6 +1,5 @@
 # Sermon 2344 | Christ's Dying Word for His Church
 
-(No. 2344)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 21, 1894.
 

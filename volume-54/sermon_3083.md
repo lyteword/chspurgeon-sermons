@@ -1,6 +1,5 @@
 # Sermon 3083 | Comfort for Those Whose Prayers Are Feeble
 
-(No. 3083)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 12, 1908.
 

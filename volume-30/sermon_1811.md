@@ -1,6 +1,5 @@
 # Sermon 1811 | The Road to Honor
 
-(No. 1811)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, OCTOBER 12, 1884,
 

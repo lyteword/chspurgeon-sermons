@@ -1,6 +1,5 @@
 # Sermon 2616 | Christ's Care of His Disciples
 
-(No. 2616)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 2, 1899.
 

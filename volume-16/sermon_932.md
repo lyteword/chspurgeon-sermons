@@ -1,6 +1,5 @@
 # Sermon 932 | How God Condemned Sin
 
-(No. 932)
 
 DELIVERED ON LORD'S-DAY EVENING, MAY 8, 1870,
 

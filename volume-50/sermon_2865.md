@@ -1,6 +1,5 @@
 # Sermon 2865 | Fencing the Table
 
-(No. 2865)
 
 A SERMON PUBLISHED ON THURSDAY JANUARY 7, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 2367 | God's Hidden Ones
 
-(No. 2367)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 1, 1894.
 

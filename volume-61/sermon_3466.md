@@ -1,6 +1,5 @@
 # Sermon 3466 | A Warning to Believers
 
-(No. 3466)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 8, 1915.
 

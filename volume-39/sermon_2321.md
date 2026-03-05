@@ -1,6 +1,5 @@
 # Sermon 2321 | The Heavenly Singers and Their Song
 
-(No. 2321)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 13, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 2805 | "Life for a Look"
 
-(No. 2805)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 16, 1902.
 

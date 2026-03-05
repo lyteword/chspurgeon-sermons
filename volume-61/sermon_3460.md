@@ -1,6 +1,5 @@
 # Sermon 3460 | Praise Comely to the Upright
 
-(No. 3460)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 27, 1915.
 

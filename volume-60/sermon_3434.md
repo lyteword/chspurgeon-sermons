@@ -1,6 +1,5 @@
 # Sermon 3434 | Fruitless Faith
 
-(No. 3434)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1914.
 

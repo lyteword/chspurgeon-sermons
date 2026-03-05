@@ -1,6 +1,5 @@
 # Sermon 2315 | Paul Apprehended and Apprehending
 
-(No. 2315)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 2, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 1492 | The First Note of My Song
 
-(No. 1492)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 31, 1879,
 

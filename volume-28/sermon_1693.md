@@ -1,6 +1,5 @@
 # Sermon 1693 | That Horrible East Wind!
 
-(No. 1693)
 
 DELIVERED AT THE THURSDAY EVENING LECTURE,
 

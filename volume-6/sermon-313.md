@@ -1,6 +1,5 @@
 # Sermon 313 | Terrible Convictions and Gentle Drawings
 
-Sermon No. 313 - Delivered on Sabbath Morning, May 6th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > When I kept silence, my bones waxed old through my roaring all the day long. For day, and night thy hand was heavy upon me: my moisture is turned into the drought of summer.    
 > Psalm 32:3-4.    

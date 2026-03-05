@@ -1,6 +1,5 @@
 # Sermon 1874 | A Discourse Upon True Blessedness Here and Hereafter
 
-(No. 1874)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 13, 1885.
 

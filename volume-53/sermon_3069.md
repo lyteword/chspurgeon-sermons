@@ -1,6 +1,5 @@
 # Sermon 3069 | Cleansing--Wrong Or Right?
 
-(No. 3069)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 5, 1907.
 

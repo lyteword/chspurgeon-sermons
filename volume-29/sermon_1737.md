@@ -1,6 +1,5 @@
 # Sermon 1737 | John's First Doxology
 
-(No. 1737)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 2, 1883,
 

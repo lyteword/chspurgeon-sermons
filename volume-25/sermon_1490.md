@@ -1,6 +1,5 @@
 # Sermon 1490 | Contention Ended and Grace Reigning
 
-(No. 1490)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 17, 1879,
 

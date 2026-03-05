@@ -1,6 +1,5 @@
 # Sermon 3549 | Little, But Lovely
 
-(No. 3549)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1917.
 

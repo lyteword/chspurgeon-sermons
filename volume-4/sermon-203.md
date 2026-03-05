@@ -1,6 +1,5 @@
 # Sermon 203 | The Sympathy of the Two Worlds
 
-Sermon No. 203 - Delivered on Sabbath Morning, July 4, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > There is joy in the: presence of the angels of God over one sinner that repenteth.    
 > Luke15:10.    

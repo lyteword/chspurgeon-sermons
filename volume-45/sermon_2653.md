@@ -1,6 +1,5 @@
 # Sermon 2653 | The Head and the Body
 
-(No. 2653)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 17, 1899.
 

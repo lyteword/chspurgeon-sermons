@@ -1,6 +1,5 @@
 # Sermon 3228 | "Oh, How He Loves!"
 
-(No. 3228)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 15, 1910.
 

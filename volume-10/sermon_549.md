@@ -1,6 +1,5 @@
 # Sermon 549 | A Desperate Case--How to Meet It
 
-Sermon No. 549 - Delivered on Sunday Morning, January 10th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Then came the disciples to Jesus apart, and said, Why could not we cast him out? And Jesus said unto them, Because of your unbelief: for verily I say unto you, If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove: and nothing shall be impossible unto you. Howbeit this kind goeth not out but by prayer and fasting."  
 > Matthew 17:19-21.  

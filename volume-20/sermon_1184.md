@@ -1,6 +1,5 @@
 # Sermon 1184 | The Sad Plight and Sure Relief
 
-(No. 1184)
 
 DELIVERED BY
 

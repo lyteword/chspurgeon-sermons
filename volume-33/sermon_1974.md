@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 1974)
 
 Delivered1887, by
 

@@ -1,6 +1,5 @@
 # Sermon 2561 | "Noli Me Tangere" ("Touch Me Not")
 
-(No. 2561)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 20, 1898.
 

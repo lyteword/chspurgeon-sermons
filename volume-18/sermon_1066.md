@@ -1,6 +1,5 @@
 # Sermon 1066 | A Call For Revival
 
-(No. 1066)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 18, 1872,
 

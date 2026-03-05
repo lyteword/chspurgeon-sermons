@@ -1,6 +1,5 @@
 # Sermon 3526 | The New Wine of the Kingdom
 
-(No. 3526)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1916.
 

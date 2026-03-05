@@ -1,6 +1,5 @@
 # Sermon 1855 | What is the Verdict?
 
-(No. 1855)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 16, 1885,
 

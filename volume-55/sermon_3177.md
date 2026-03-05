@@ -1,6 +1,5 @@
 # Sermon 3177 | Christ Seen as God's Salvation
 
-(No. 3177)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 23, 1909.
 

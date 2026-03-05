@@ -1,6 +1,5 @@
 # Sermon 3239 | Woe and Weal
 
-(No. 3239)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 2, 1911.
 

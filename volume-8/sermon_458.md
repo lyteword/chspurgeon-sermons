@@ -1,6 +1,5 @@
 # Sermon 458 | The Friend of Sinners
 
-Sermon No. 458 - Delivered on Sunday Morning, June 29th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors."  
 > Isaiah 53:12.  

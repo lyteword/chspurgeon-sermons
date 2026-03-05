@@ -1,6 +1,5 @@
 # Sermon 2778 | Consulting With Jesus
 
-(No. 2778)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 11, 1902.
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 31, 1878
 
 "And when the queen of Sheba heard of the fame of Solomon concerning the name of the Lord, she came to test him with hard questions...So Solomon answered all her questions: there was nothing so difficult for the king, that he could not explain it to her" 1 Kings 10:1-3.
 
-Those of you who were here last Thursday evening will recollect that I spoke to you upon our Savior's words, "The queen of the south shall rise up in judgment with this generation and shall condemn it; for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here." [Sermon No. 2776, Volume 48--
 
 THE QUEEN OF SHEBA, A SIGN]. I tried, then, to prove that the queen of
 

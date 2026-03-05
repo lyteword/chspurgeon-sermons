@@ -1,6 +1,5 @@
 # Sermon 1071 | The Ministry Of Gratitude
 
-(No. 1071)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 15, 1872,
 

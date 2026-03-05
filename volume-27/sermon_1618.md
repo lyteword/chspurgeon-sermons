@@ -1,6 +1,5 @@
 # Sermon 1618 | Holiness, The Law of God's House
 
-(No. 1618)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 11, 1881,
 

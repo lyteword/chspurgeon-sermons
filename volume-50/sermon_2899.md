@@ -1,6 +1,5 @@
 # Sermon 2899 | "To You"
 
-(No. 2899)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 1, 1904.
 

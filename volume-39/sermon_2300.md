@@ -1,6 +1,5 @@
 # Sermon 2300 | The Whole Gospel In A Single Verse
 
-(No. 2300)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 19, 1893.
 

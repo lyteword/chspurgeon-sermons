@@ -1,6 +1,5 @@
 # Sermon 476 | Citizenship In Heaven
 
-Sermon No. 476 - Delivered on Sunday Evening, October 12th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For our conversation is in Heaven; from where also we look for the Savior, the Lord Jesus Christ."  
 > Philippians 3:20.  

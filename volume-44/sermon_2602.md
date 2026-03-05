@@ -1,6 +1,5 @@
 # Sermon 2602 | Good News for the Aged
 
-(No. 2602)
 
 A SERMON
 

@@ -1,6 +1,5 @@
 # Sermon 2784 | "Non Nobis, Domine!"
 
-(No. 2784)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 22, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 3265 | Faith Tried and Triumphing
 
-(No. 3265)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1911.
 

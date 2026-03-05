@@ -1,6 +1,5 @@
 # Sermon 2958 | The Saints' Love to God
 
-(No. 2958)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1905.
 

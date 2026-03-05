@@ -1,6 +1,5 @@
 # Sermon 1661 | Praying and Pleading
 
-(No. 1661)
 
 DELIVERED BY
 

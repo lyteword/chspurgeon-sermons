@@ -1,6 +1,5 @@
 # Sermon 1875 | The Preacher's Last Sermon for the Season
 
-(No. 1875)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 29, 1885,
 

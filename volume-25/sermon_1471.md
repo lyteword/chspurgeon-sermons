@@ -1,6 +1,5 @@
 # Sermon 1471 | Concealing the Words of God
 
-(No. 1471)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1879,
 

@@ -1,6 +1,5 @@
 # Sermon 1159 | Counting the Cost
 
-(No. 1159)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1874,
 

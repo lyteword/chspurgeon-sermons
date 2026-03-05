@@ -1,6 +1,5 @@
 # Sermon 2957 | Advance!
 
-(No. 2957)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 12, 1905.
 

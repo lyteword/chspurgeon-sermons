@@ -1,6 +1,5 @@
 # Sermon 1488 | More and More, or Less and Less
 
-(No. 1488)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 10, 1879,
 

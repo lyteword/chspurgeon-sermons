@@ -1,7 +1,5 @@
 # Sermon 1820 | Fallen Angels a Lesson To Fallen Men
 
-Sermon No. 1820 - Delivered on Delivered the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington.
-(No. 1820)
 
 THESE ARE ANCIENT THINGS." Most men hunger after the latest news; let us on this occasion go back upon the earliest records, and think of the hoar past, before man was made. It does us good to look back upon the past of God's dealings with his creatures; herein lies the value of history. We should not confine our attention to God's dealings with men, but we should observe how he acts towards another order of beingshow he dealt with angels before man had become the second sinner. If angels transgress, what is his conduct towards them? This study will enlarge our minds, and show us great principles in their wider sweep. We shall inevitably make mistakes in our judgment as to God's conduct towards men if we do not remember sufficiently how he has dealt with beings who are in certain respects much superior to the human race. By seeing how God treated the rebellions angels, light may be cast upon his dealings with us, and thereby misapprehensions may be removed.
 

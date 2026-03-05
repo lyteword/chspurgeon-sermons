@@ -1,6 +1,5 @@
 # Sermon 2873 | Who Loves Christ More?
 
-(No. 2873)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 3,1904.
 

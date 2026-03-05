@@ -1,6 +1,5 @@
 # Sermon 1305 | The Secret of a Happy Life
 
-(No. 1305)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 16, 1876,
 

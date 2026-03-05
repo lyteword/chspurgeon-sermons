@@ -1,6 +1,5 @@
 # Sermon 2878 | Good Cheer for the Needy
 
-(No. 2878)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 7, 1904.
 

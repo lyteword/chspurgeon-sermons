@@ -1,6 +1,5 @@
 # Sermon 3313 | A Practical Discourse
 
-(No. 3313)
 
 A SERMON PUBLISHED ON THURSDAY AUGUST 1, 1912.
 

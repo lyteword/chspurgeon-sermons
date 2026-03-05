@@ -1,6 +1,5 @@
 # Sermon 2395 | The Blessings of Public Worship
 
-(No. 2395)
 
 INTENDED FOR READING ON LORD'S DAY, JANUARY 13, 1895.
 

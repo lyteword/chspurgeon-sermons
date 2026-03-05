@@ -1,6 +1,5 @@
 # Sermon 2833 | Lessons on Divine Grace
 
-(No. 2833)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 31, 1903.
 

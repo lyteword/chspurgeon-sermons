@@ -1,6 +1,5 @@
 # Sermon 2410 | Springtime in Nature and Grace
 
-(No. 2410)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1895.
 

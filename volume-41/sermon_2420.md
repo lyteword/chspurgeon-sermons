@@ -1,6 +1,5 @@
 # Sermon 2420 | "The King Can Do No Wrong"
 
-(No. 2420)
 
 INTENDED FOR READING ON LORD'S DAY, JULY 7, 1895.
 

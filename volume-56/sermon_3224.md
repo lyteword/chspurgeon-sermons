@@ -1,6 +1,5 @@
 # Sermon 3224 | "Repentance and Remission"
 
-(No. 3224)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 17, 1910.
 

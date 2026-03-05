@@ -1,6 +1,5 @@
 # Sermon 1463A | The Gazelles and the Deer
 
-(No. 1463A)
 
 WRITTEN AT MENTONE
 

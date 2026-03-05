@@ -1,6 +1,5 @@
 # Sermon 1986 | The Child Of Light Walking In Light
 
-Sermon No. 1986 - Delivered on Sunday Morning, October 2nd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "If we say that we have fellowship with Him, and walk in darkness, we lie, and do not the truth: but if we walk in the Light, as He is in the Light, we have fellowship with one another, and the blood of Jesus Christ His Son cleanses us from all sin."  
 > 1 John 1:6, 7.  

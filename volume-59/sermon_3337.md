@@ -1,6 +1,5 @@
 # Sermon 3337 | Ears Bored to the Doorpost
 
-(No. 3337)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 16, 1913.
 

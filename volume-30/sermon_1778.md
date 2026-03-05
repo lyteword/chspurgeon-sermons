@@ -4,7 +4,6 @@ A Heavenly Pattern for Our Earthly Life
 
 A Sermon
 
-(No. 1778)
 
 Preached on Wednesday Morning, April 30th, 1884, By
 

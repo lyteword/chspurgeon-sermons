@@ -1,6 +1,5 @@
 # Sermon 995 | The Sheep and Their Shepherd
 
-Sermon No. 995 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "My sheep hear my voice, and I know them, and they follow me."  
 > John 10:27.  

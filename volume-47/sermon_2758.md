@@ -1,6 +1,5 @@
 # Sermon 2758 | "Return Unto Your Rest"
 
-(No. 2758)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 22, 1901.
 

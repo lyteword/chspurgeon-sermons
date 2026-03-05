@@ -1,6 +1,5 @@
 # Sermon 1718 | Certain Singular Subjects
 
-(No. 1718)
 
 DELIVERED BY
 

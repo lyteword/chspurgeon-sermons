@@ -1,6 +1,5 @@
 # Sermon 2199 | Israel's Hope--Or, The Center of the Target
 
-(No. 2199)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1891,
 

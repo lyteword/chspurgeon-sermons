@@ -1,6 +1,5 @@
 # Sermon 53 | Healing for the Wounded
 
-Sermon No. 53 - Delivered on Sabbath Morning, November 11, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > He healeth the broken in heart, and bindeth up their wounds.    
 > Psalm 147:3.    

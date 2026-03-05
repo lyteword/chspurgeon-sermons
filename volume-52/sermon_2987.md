@@ -1,6 +1,5 @@
 # Sermon 2987 | The "Beau Ideal" of Life
 
-(No. 2987)
 
 A SERMON ESPECIALLY TO YOUNG MIEN, PUBLISHED ON THURSDAY, MAY 10, 1906.
 

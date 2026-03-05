@@ -1,6 +1,5 @@
 # Sermon 3305 | A Clear Understanding
 
-(No. 3305)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 6, 1912.
 

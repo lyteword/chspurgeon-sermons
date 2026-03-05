@@ -1,6 +1,5 @@
 # Sermon 1146 | Consolation For The Despairing
 
-(No. 1146)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 7, 1873,
 

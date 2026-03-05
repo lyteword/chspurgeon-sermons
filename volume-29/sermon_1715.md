@@ -1,6 +1,5 @@
 # Sermon 1715 | A Description of Young Men in Christ
 
-(No. 1715)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 8, 1883,
 

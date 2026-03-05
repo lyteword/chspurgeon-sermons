@@ -1,6 +1,5 @@
 # Sermon 2274 | God's People Melted and Tried
 
-(No. 2274)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 18, 1892.
 

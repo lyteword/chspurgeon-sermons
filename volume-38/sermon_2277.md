@@ -1,6 +1,5 @@
 # Sermon 2277 | Sychar's Sinner Saved
 
-(No. 2277)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 9 1892.
 

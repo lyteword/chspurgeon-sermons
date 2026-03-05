@@ -1,6 +1,5 @@
 # Sermon 3271 | God, the Children's Teacher
 
-(No. 3271)
 
 A SERMON TO CHILDREN.
 

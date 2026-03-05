@@ -1,6 +1,5 @@
 # Sermon 2753 | Patience, Comfort and Hope From the Scriptures
 
-(No. 2753)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 17, 1901.
 

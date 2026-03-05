@@ -1,6 +1,5 @@
 # Sermon 1576 | The Throne of God and of the Lamb
 
-(No. 1576)
 
 DELIVERED BY
 

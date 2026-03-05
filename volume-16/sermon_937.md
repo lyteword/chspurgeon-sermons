@@ -1,6 +1,5 @@
 # Sermon 937 | The Profit Of Godliness In This Life
 
-(No. 937)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 19, 1870,
 

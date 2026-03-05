@@ -1,6 +1,5 @@
 # Sermon 1843 | A Question for a Questioner
 
-Sermon No. 1843 - Delivered on Lord's Day Morning, May 31st, 1885 the REV. C.H. SPURGEON at [11]the Metropolitan Tabernacle, Newington.
 
 > "Hath God forgotten to be gracious?"  
 > Psalm 77:9.  

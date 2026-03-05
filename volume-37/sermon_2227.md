@@ -1,6 +1,5 @@
 # Sermon 2227 | Wanted!--Volunteers
 
-(No. 2227)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 25, 1891,
 

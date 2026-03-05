@@ -1,6 +1,5 @@
 # Sermon 1996 | Public Testimony--a Debt To God and Man
 
-Sermon No. 1996 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Then they said to one another, We are not doing right. This day is a day of good news, and we remain silent. If we wait until morning light, some punishment will come upon us. Now therefore, come, let us go and tell the king's household."  
 > 2 Kings 7:9.  

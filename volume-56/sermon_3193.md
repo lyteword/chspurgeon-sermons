@@ -1,6 +1,5 @@
 # Sermon 3193 | The Man Whose Hand Stuck to His Sword
 
-(No. 3193)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 14, 1910.
 

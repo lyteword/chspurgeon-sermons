@@ -1,6 +1,5 @@
 # Sermon 178 | The Work of the Holy Spirit
 
-Sermon No. 178 - Delivered on Thursday Evening, November 5, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh?    
 > Galatians 3:3.    

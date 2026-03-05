@@ -1,6 +1,5 @@
 # Sermon 1864 | First Things First
 
-(No. 1864)
 
 [This address has been lengthened a little in order to fill the usual number of pages. It has also been revised sufficiently to make it read much the same as it was heard. There were passages which depended so much upon the voice and tone that they could
 

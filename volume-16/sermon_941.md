@@ -1,6 +1,5 @@
 # Sermon 941 | The Tender Pity of the Lord
 
-(No. 941)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 17, 1870,
 

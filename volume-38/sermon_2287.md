@@ -1,6 +1,5 @@
 # Sermon 2287 | "If There Is No Resurrection"
 
-(No. 2287)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 18, 1892.
 

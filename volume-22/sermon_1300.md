@@ -1,6 +1,5 @@
 # Sermon 1300 | Life's Need and Maintenance
 
-(No. 1300)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 18, 1876,
 

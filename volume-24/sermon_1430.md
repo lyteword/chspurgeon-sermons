@@ -1,6 +1,5 @@
 # Sermon 1430 | Refined, But Not With Silver
 
-(No. 1430)
 
 DELIVERED BY
 

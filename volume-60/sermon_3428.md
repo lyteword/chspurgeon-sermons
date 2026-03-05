@@ -1,6 +1,5 @@
 # Sermon 3428 | Private and Confidential
 
-(No. 3428)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1914.
 

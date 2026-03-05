@@ -1,6 +1,5 @@
 # Sermon 2585 | Spiritual Glean1ng
 
-(No. 2585)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 28, 1898.
 

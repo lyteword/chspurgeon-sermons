@@ -1,6 +1,5 @@
 # Sermon 2790 | Our Lord's Substitution
 
-(No. 2790)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 3, 1902.
 

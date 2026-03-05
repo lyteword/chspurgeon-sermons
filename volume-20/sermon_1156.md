@@ -1,6 +1,5 @@
 # Sermon 1156 | Rubbish
 
-(No. 1156)
 
 DELIVERED BY
 

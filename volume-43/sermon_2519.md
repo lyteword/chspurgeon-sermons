@@ -1,6 +1,5 @@
 # Sermon 2519 | When Should We Pray?
 
-(No. 2519)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 30, 1897.
 

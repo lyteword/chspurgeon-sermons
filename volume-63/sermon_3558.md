@@ -1,6 +1,5 @@
 # Sermon 3558 | A Plea From the Cross
 
-(No. 3558)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 5, 1917.
 

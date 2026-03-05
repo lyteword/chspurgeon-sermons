@@ -1,6 +1,5 @@
 # Sermon 980 | Hidden Manna
 
-Sermon No. 980 - Delivered on Lord's-Day Morning, March 12th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Thy words were found, and I did eat them; and thy word was unto me the joy and rejoicing of mine heart: for I am called by thy name, O Lord God of hosts,"  
 > Jeremiah 15:16.  

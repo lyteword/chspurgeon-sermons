@@ -1,6 +1,5 @@
 # Sermon 3474 | Blessings Manifold and Marvelous
 
-(No. 3474)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 2, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 2924 | Preventing Grace
 
-(No. 2924)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 23, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 106 | Turn or Burn
 
-Sermon No. 106 - Delivered on Sabbath Morning, December 7, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > If he turn not, he will whet his sword; he hath bent his bow and made it ready.    
 > Psalm 7:12.    

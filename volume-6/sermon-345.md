@@ -1,6 +1,5 @@
 # Sermon 345 | Self-Sufficiency Slain
 
-Sermon No. 345 - Delivered on Sabbath Morning, November 11th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Without Me you can do nothing.    
 > John 15:5.    

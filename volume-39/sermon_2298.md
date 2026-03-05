@@ -1,6 +1,5 @@
 # Sermon 2298 | The Christ-Given Rest
 
-(No. 2298)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 5, 1893.
 

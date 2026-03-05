@@ -1,6 +1,5 @@
 # Sermon 1386 | Sins Of Ignorance
 
-(No. 1386)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 25, 1877,
 

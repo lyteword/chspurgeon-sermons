@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 3502)
 
 Published on Thursday, March 9th, 1916.
 

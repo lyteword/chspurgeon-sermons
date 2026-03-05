@@ -1,6 +1,5 @@
 # Sermon 2793 | Five Divine Declarations
 
-(No. 2793)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 24, 1902.
 

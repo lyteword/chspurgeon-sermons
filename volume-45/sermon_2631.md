@@ -1,6 +1,5 @@
 # Sermon 2631 | Israel's Cry and God's Answer
 
-(No. 2631)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 16, 1899.
 

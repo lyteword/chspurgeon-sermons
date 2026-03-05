@@ -1,6 +1,5 @@
 # Sermon 2812 | Causes and Cure of Fainting
 
-(No. 2812)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 4, 1903.
 

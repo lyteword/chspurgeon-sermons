@@ -1,6 +1,5 @@
 # Sermon 3082 | "Here I Am!"
 
-(No. 3082)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 5, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 2698 | The First and the Second
 
-(No. 2698)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 28, 1900.
 

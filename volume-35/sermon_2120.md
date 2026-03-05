@@ -1,6 +1,5 @@
 # Sermon 2120 | The Security Of Believers--Or, Sheep Who Shall Never Perish
 
-Sermon No. 2120 - Delivered on Sunday Morning, December 29th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "My sheep hear My voice and I know them and they follow Me: and I give unto them eternal life. And they shall never perish, neither shall any man pluck them out of My hand. My Father, which gave them Me is greater than all. And no man is able to pluck them out of My Father's hand. I and my Father are one."  
 > John 10:27-30  

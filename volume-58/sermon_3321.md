@@ -1,6 +1,5 @@
 # Sermon 3321 | God in Heaven, and Men on the Sea
 
-(No. 3321)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 26, 1912.
 

@@ -1,6 +1,5 @@
 # Sermon 3075 | Looking for One Thing and Finding Another
 
-(No. 3075)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 16, 1908.
 

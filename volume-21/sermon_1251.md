@@ -1,6 +1,5 @@
 # Sermon 1251 | The Sacred Love-Token
 
-(No. 1251)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1875,
 

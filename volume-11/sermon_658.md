@@ -1,6 +1,5 @@
 # Sermon 658 | From The Dunghill To The Throne
 
-Sermon No. 658 - Delivered on Sunday Morning, November 5th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > He raises up the poor out of the dust and lifts the needy out of the dunghill, that He may set him with princes, even with the princes of His people.    
 > Psalm 113:7,8.    

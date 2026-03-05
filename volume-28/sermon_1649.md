@@ -1,6 +1,5 @@
 # Sermon 1649 | Freshness
 
-(No. 1649)
 
 DELIVERED ON THURSDAY EVENING, FEBRUARY 16, 1882,
 

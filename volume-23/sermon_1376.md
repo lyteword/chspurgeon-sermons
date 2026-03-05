@@ -1,6 +1,5 @@
 # Sermon 1376 | The True Priesthood, Temple and Sacrifice
 
-(No. 1376)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 30, 1877,
 

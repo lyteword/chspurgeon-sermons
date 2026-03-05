@@ -1,6 +1,5 @@
 # Sermon 2588 | Perfect Restoration
 
-(No. 2588)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 18, 1898.
 

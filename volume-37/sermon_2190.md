@@ -1,6 +1,5 @@
 # Sermon 2190 | Bit and Bridle--How To Escape Them
 
-(No. 2190)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 15, 1891,
 

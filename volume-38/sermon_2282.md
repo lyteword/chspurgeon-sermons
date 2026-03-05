@@ -1,6 +1,5 @@
 # Sermon 2282 | David's Prayer in the Cave
 
-(No. 2282)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 13, 1892.
 

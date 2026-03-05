@@ -1,6 +1,5 @@
 # Sermon 48 | Chastisement
 
-Sermon No. 48 - Delivered on Sabbath Morning, October 28, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > And ye have forgotten the exhortation which speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him.    
 > Hebrews 12:5.    

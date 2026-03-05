@@ -1,6 +1,5 @@
 # Sermon 3184 | Maroth--or, the Disappointed
 
-(No. 3184)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 10, 1910.
 
@@ -74,7 +73,6 @@ was all in vain, for die they must! God save all of you, my dear Hearers, from s
 
 EXPOSITION BY C. H. SPURGEON: HEBREWS 4.
 
-(This Exposition belongs to sermon No. 3182, Volume 56--"Boldness at the Throne," but there was no space available for it there.
 
 Verse 1. Let us therefore fear lest a promise being left us of entering into His rest, any of you should seem to come short of it.Not only dread coming short, but dread the very appearanceof it! Oh, that we might now enter into that rest and so clearly enjoy it that there should not even be a seeming to come short of it!
 

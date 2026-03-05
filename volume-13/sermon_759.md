@@ -1,6 +1,5 @@
 # Sermon 759 | Jesus Putting Away Sin
 
-Sermon No. 759 - Delivered on Lord's-day Morning, JULY 7, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "...now once in the end of the age has He appeared to put away sin by the sacrifice of Himself."- Hebrews 9:26.

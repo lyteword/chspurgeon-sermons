@@ -1,6 +1,5 @@
 # Sermon 2546 | A Message to the Glad and the Sad
 
-(No. 2546)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 5, 1897,
 

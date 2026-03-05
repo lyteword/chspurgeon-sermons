@@ -1,6 +1,5 @@
 # Sermon 225 | Satan's Banquet
 
-Sermon No. 225 - Delivered on Sabbath Morning, November 28th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > The governor of the feast called the bridegroom, and saith unto him, every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse; but thou hast kept the good wine until now.    
 > John 2:9-10.    

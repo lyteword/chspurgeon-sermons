@@ -1,6 +1,5 @@
 # Sermon 513 | The Young Man's Prayer
 
-Sermon No. 513 - Delivered on Sunday Morning, June 7th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "O satisfy us early with Your mercy, that we may rejoice and be glad all our days."  
 > Psalm 90:14.  

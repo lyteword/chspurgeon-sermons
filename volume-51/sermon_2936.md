@@ -1,6 +1,5 @@
 # Sermon 2936 | Christ's "New Commandment"
 
-(No. 2936)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 18, 1905.
 

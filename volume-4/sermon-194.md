@@ -1,6 +1,5 @@
 # Sermon 194 | Human Responsibility
 
-Sermon No. 194 - Delivered on Sabbath Morning, May 16, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > If I had not come and spoken unto them, they had not had sin: but now they have no cloke for their sin.    
 > John 15:22.    

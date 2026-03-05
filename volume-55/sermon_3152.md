@@ -1,6 +1,5 @@
 # Sermon 3152 | The Lower Courts
 
-(No. 3152)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 8, 1909.
 

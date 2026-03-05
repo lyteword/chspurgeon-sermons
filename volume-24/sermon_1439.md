@@ -1,6 +1,5 @@
 # Sermon 1439 | Receiving the Kingdom of God as a Little Child
 
-(No. 1439)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 20, 1878,
 

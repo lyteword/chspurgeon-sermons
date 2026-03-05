@@ -1,6 +1,5 @@
 # Sermon 807 | Good News for Loyal Subjects
 
-Sermon No. 807 - Delivered on Sunday Morning, April 19, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He must reign."  
 > 1 Corinthians 15:25.  

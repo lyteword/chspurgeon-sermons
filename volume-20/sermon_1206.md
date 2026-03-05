@@ -1,6 +1,5 @@
 # Sermon 1206 | Heart-Knowledge of God
 
-(No. 1206)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 6, 1874,
 

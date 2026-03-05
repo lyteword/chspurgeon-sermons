@@ -1,6 +1,5 @@
 # Sermon 2185 | Our Manifesto
 
-(No. 2185)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 25, 1891,
 

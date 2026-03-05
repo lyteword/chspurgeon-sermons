@@ -1,6 +1,5 @@
 # Sermon 2733 | Christ's Manifestation to Mary Magdalene
 
-(No. 2733)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 30, 1901.
 

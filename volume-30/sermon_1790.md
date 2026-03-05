@@ -1,6 +1,5 @@
 # Sermon 1790 | Receiving the Holy Spirit
 
-(No. 1790)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1884,
 

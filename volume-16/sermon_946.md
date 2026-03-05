@@ -1,6 +1,5 @@
 # Sermon 946 | The Profit Of Godliness In The Life To Come
 
-(No. 946)
 
 DELIVERED ON LORD'S-DAY EVENING, JUNE 19, 1870,
 

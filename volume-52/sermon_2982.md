@@ -1,6 +1,5 @@
 # Sermon 2982 | The Memorable Hymn
 
-(No. 2982)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 5, 1906.
 

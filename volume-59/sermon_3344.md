@@ -1,6 +1,5 @@
 # Sermon 3344 | Unanswered Prayer
 
-(No. 3344)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 6, 1913.
 

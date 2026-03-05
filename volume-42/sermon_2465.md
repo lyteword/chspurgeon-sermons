@@ -1,6 +1,5 @@
 # Sermon 2465 | Our Omnipotent Leader
 
-(No. 2465)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 17, 1896.
 

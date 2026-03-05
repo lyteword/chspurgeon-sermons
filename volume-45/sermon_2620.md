@@ -1,6 +1,5 @@
 # Sermon 2620 | Christ's Prayer for Peter
 
-(No. 2620)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 30, 1899.
 

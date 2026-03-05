@@ -1,6 +1,5 @@
 # Sermon 449 | Joseph And His Brothers
 
-Sermon No. 449 - Delivered on Sunday Morning, May 11th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And Joseph said unto his brothers, I am Joseph; does my father yet live? And his brothers could not answer him. For they were trembled at his presence. And Joseph said unto his brothers, Come near to me, I pray you. And they came near. And he said, I am Joseph your brother, whomyou sold into Egypt. Now therefore be not grieved, nor angry with yourselves, that you sold me here: for God did send me before you to preserve life."  
 > Genesis 45:3-5.  

@@ -1,6 +1,5 @@
 # Sermon 2676 | Comfort From the Future
 
-(No. 2676)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 27, 1900.
 

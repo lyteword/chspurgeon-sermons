@@ -1,6 +1,5 @@
 # Sermon 2378 | Pardon for the Greatest Guilt
 
-(No. 2378)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 16, 1894.
 

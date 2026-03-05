@@ -1,6 +1,5 @@
 # Sermon 2652 | Seeing Christ's Day
 
-(No. 2652)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 10, 1899.
 

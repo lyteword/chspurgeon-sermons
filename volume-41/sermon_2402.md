@@ -1,6 +1,5 @@
 # Sermon 2402 | Under Arrest
 
-(No. 2402)
 
 INTENDED FOR READING ON LORD'S DAY, MARCH 3, 1895.
 

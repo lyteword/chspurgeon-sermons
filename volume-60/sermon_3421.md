@@ -1,6 +1,5 @@
 # Sermon 3421 | Prayer Meetings
 
-(No. 3421)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1914.
 

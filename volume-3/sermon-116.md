@@ -1,6 +1,5 @@
 # Sermon 116 | Secret Sins
 
-Sermon No. 116 - Delivered on Sabbath Morning, February 8, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Cleanse thou me from secret faults.    
 > Psalm 19:12.    

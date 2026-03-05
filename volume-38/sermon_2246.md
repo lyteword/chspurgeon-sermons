@@ -1,6 +1,5 @@
 # Sermon 2246 | Come From the Four Winds, O Breath!
 
-(No. 2246)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 6, 1892.
 

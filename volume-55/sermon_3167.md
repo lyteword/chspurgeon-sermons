@@ -1,6 +1,5 @@
 # Sermon 3167 | The Christian's Helmet
 
-(No. 3167)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 21, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2204 | Sin--Its Springhead, Stream and Sea
 
-(No. 2204)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 10, 1891,
 

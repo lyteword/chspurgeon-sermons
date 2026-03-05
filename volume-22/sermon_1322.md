@@ -1,6 +1,5 @@
 # Sermon 1322 | Rest For The Laboring
 
-(No. 1322)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, OCTOBER 22, 1876,
 

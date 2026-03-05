@@ -1,6 +1,5 @@
 # Sermon 3035 | Enquiring the Way to Zion
 
-(No. 3035)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 11, 1907.
 

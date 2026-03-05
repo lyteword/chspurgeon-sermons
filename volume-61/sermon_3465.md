@@ -1,6 +1,5 @@
 # Sermon 3465 | The Suffering Christ Satisfied
 
-(No. 3465)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 1, 1915.
 

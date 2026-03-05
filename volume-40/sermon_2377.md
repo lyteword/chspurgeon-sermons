@@ -1,6 +1,5 @@
 # Sermon 2377 | Love Stronger Than Death
 
-(No. 2377)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 9, 1894.
 

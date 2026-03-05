@@ -1,6 +1,5 @@
 # Sermon 2304 | Blinded By Satan
 
-(No. 2304)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 16, 1893.
 

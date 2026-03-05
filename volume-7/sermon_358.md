@@ -1,6 +1,5 @@
 # Sermon 358 | The Earnest of Heaven
 
-Sermon No. 358 - Delivered on Sabbath Morning, February 3rd, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > "That Holy Spirit of promise, which is the earnest of our inheritance."  
 > Ephesians 1:13,14.   

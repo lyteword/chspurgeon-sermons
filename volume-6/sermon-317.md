@@ -1,6 +1,5 @@
 # Sermon 317 | Characteristics of Faith
 
-Sermon No. 317 - Delivered on Sabbath Morning, May 27th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Then said Jesus unto him, Except ye see signs and wonders, ye will not believe.    
 > John 4:48.    

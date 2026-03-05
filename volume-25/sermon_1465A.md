@@ -1,6 +1,5 @@
 # Sermon 1465A | The Son Glorified by the Father and the Father Glorified by the Son
 
-(No. 1465A)
 
 DELIVERED BY
 

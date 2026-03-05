@@ -1,6 +1,5 @@
 # Sermon 2494 | The Cause and Cure of a Wounded Spirit
 
-(No. 2494)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 6, 1896.
 

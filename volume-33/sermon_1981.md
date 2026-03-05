@@ -1,6 +1,5 @@
 # Sermon 1981 | God the Wonder-Worker
 
-Sermon No. 1981 - Delivered on Sunday Morning, September 4th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "To him who along doeth great wonders: for his mercy endureth for ever."  
 > Psalm 136:4.  

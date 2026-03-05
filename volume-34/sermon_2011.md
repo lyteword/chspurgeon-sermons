@@ -1,6 +1,5 @@
 # Sermon 2011 | Abram's Call--or, Half-Way--and All the Way
 
-Sermon No. 2011 - Delivered on Sunday Morning, February 26th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And Terah took Abram his son and Lot the son of Haran his son's son and Sarai his daughter-in-law, his son Abram's wife; and they went forth with them from Ur of the Chaldees, to go into the land of Canaan. And they came unto Haran and dwelt there."  
 > Genesis 11:31.  

@@ -1,6 +1,5 @@
 # Sermon 816 | The Wall Daubed with Untempered Mortar
 
-A Sermon (No. 816)
 
 Delivered on Lord's-Day Evening, May 31, 1868, by C. H. SPURGEON, at the [26]Metropolitan Tabernacle, Newington.
 

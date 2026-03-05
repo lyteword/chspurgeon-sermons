@@ -1,6 +1,5 @@
 # Sermon 1111 | Motives for Steadfastness
 
-Sermon No. 1111 - Delivered on Lord's Day Morning, May 11, 1873 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
 
 > "Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labor is not in vain in the Lord." 1 Corinthians 15:58.  
 > "Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labor is not in vain in the Lord." 1 Corinthians 15:58.  

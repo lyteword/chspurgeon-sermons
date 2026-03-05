@@ -1,6 +1,5 @@
 # Sermon 2390 | A Royal Funeral
 
-(No. 2390)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 9, 1894.
 

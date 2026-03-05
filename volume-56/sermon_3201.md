@@ -1,6 +1,5 @@
 # Sermon 3201 | Mercy for the Meanest of the Flock
 
-(No. 3201)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 9, 1910.
 

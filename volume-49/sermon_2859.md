@@ -1,6 +1,5 @@
 # Sermon 2859 | The Lions' Den
 
-(No. 2859)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1903.
 

@@ -1,6 +1,5 @@
 # Sermon 2332 | Lessons From the Manna
 
-(No. 2332)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 29, 1893.
 

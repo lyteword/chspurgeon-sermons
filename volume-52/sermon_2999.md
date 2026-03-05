@@ -1,6 +1,5 @@
 # Sermon 2999 | Railings
 
-(No. 2999)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 2, 1906.
 

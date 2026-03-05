@@ -1,6 +1,5 @@
 # Sermon 2654 | Wakeful and Watchful Eyes
 
-(No. 2654)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 24, 1899.
 

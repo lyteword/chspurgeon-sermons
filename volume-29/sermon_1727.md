@@ -1,6 +1,5 @@
 # Sermon 1727 | The Voice from the Cloud and the Voice of the Beloved
 
-(No. 1727)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 24, 1883,
 

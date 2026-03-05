@@ -1,6 +1,5 @@
 # Sermon 2708 | The Old Gospel for the New Century
 
-(No. 2708)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 6, 1901.
 

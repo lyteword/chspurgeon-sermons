@@ -1,6 +1,5 @@
 # Sermon 1990 | A Sermon for the Time Present
 
-Sermon No. 1990 - Delivered on Sunday Morning, October 30th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "In that day it shall be said to Jerusalem, Fear thou not: and to Zion, Let not thine hands be slack. The Lord thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing. I will gather them that are sorrowful for the solemn assembly, who are of thee, to whom the reproach of it was a burden."  
 > Zephaniah 3:16-18.  

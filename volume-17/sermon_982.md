@@ -1,6 +1,5 @@
 # Sermon 982 | The Ascension of Christ
 
-Sermon No. 982 - Delivered on Lord's-day Morning, March 26th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Unto every one of us is given grace according to the measure of the gift of Christ. Wherefore he saith, when he ascended up on high, he led captivity captive and gave gifts unto men. (Now that he ascended, what is it, but that he also descended first into the lower parts of the earth? He that descended is the same also that ascended up far above all heavens, that he might fill all things.) And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers; for the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ."  
 > Ephesians 4:7-12.  

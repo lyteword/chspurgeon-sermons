@@ -1,6 +1,5 @@
 # Sermon 1068 | A Simple Remedy
 
-(No. 1068)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 1, 1872,
 

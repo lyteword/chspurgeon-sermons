@@ -1,6 +1,5 @@
 # Sermon 1363 | Sudden Sorrow
 
-(No. 1363)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 8, 1877,
 

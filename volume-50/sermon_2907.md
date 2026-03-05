@@ -1,6 +1,5 @@
 # Sermon 2907 | The Holy Spirit Glorifying Christ
 
-(No. 2907)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 27, 1904.
 

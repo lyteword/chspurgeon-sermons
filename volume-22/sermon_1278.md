@@ -1,6 +1,5 @@
 # Sermon 1278 | Reasons For Parting With Sin
 
-(No. 1278)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 13, 1876,
 

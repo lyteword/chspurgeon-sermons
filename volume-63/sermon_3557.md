@@ -1,6 +1,5 @@
 # Sermon 3557 | An Urgent Necessity
 
-(No. 3557)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 29, 1917.
 

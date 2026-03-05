@@ -1,6 +1,5 @@
 # Sermon 720 | The Gospel's Healing Power
 
-Sermon No. 720 - Delivered on Sunday Morning, November 11th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the la w sitting by, which were come out of every town of Galilee, and Judea, and Jerusalem: and the power of the Lord was present to heal them."  
 > Luke 5:17.  

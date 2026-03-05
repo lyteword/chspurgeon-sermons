@@ -1,6 +1,5 @@
 # Sermon 2371 | Freedom At Once and Forever
 
-(No. 2371)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 29, 1894.
 

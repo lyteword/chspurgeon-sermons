@@ -1,6 +1,5 @@
 # Sermon 1839 | Delight in the Almighty
 
-(No. 1839)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 3, 1885,
 

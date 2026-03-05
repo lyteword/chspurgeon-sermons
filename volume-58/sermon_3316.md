@@ -1,6 +1,5 @@
 # Sermon 3316 | Their Desired Haven
 
-(No. 3316)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 22, 1912.
 

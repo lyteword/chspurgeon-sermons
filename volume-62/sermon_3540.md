@@ -1,6 +1,5 @@
 # Sermon 3540 | A Remarkable Benediction
 
-(No. 3540)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1916.
 

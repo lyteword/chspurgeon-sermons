@@ -1,6 +1,5 @@
 # Sermon 1228 | Salvation by Faith and the Work of the Spirit
 
-(No. 1228)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 11 1875,
 

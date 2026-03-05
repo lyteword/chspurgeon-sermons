@@ -1,6 +1,5 @@
 # Sermon 1482 | Our Change of Masters
 
-(No. 1482)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 6, 1879,
 

@@ -1,6 +1,5 @@
 # Sermon 1203 | The Consecration of Priests
 
-(No. 1203)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 15, 1874,
 

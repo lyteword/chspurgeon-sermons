@@ -1,6 +1,5 @@
 # Sermon 44 | Repentance Unto Life
 
-Sermon No. 44 - Delivered on Sabbath Morning, September 23, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Then hath God also to the Gentiles granted repentance unto life.    
 > Acts 11:18.    

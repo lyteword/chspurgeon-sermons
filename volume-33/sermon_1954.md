@@ -1,6 +1,5 @@
 # Sermon 1954 | The Breaker and the Flock
 
-Sermon No. 1954 - Delivered on Sunday Morning, March 20th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I will surely assemble, O Jacob, all of you; I will surely gather the remnant of Israel, I will put them together as the sheep of Bozrah, as the flock in the midst of their fold: they shall make great noise by reason of the multitude of men. The Breaker is come up before them: they ha ve broken up, and have passed through the gate, and are gone out by it: and their King shall pass before them, and the Lord at the head of them." Micah 2:12,13.  
 > "I will surely assemble, O Jacob, all of you; I will surely gather the remnant of Israel, I will put them together as the sheep of Bozrah, as the flock in the midst of their fold: they shall make great noise by reason of the multitude of men. The Breaker is come up before them: they ha ve broken up, and have passed through the gate, and are gone out by it: and their King shall pass before them, and the Lord at the head of them." Micah 2:12,13.  

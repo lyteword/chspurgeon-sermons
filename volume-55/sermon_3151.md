@@ -1,6 +1,5 @@
 # Sermon 3151 | The Lord's Supper--simple But Sublime!
 
-(No. 3151)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 1, 1909.
 

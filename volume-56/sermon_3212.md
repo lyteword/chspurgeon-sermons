@@ -1,6 +1,5 @@
 # Sermon 3212 | A Command and a Promise
 
-(No. 3212)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 25, 1910.
 

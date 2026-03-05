@@ -1,6 +1,5 @@
 # Sermon 942 | The Way
 
-(No. 942)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 24, 1870,
 

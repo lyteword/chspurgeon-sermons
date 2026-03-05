@@ -1,6 +1,5 @@
 # Sermon 1169 | The Fullness of Christ the Treasury of the Saints
 
-(No. 1169)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1874,
 

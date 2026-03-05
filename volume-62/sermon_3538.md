@@ -1,6 +1,5 @@
 # Sermon 3538 | Preparation for Heaven
 
-(No. 3538)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1916.
 

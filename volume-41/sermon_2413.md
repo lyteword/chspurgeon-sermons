@@ -1,6 +1,5 @@
 # Sermon 2413 | Despised Light Withdrawn
 
-(No. 2413)
 
 INTENDED FOR READING ON LORD'S DAY, MAY 19, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 3431 | The King Passing Over Kidron
 
-(No. 3431)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1914.
 

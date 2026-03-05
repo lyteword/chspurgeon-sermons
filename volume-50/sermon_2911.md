@@ -1,6 +1,5 @@
 # Sermon 2911 | "Cases of Conscience"
 
-(No. 2911)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 24, 1904.
 

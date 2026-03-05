@@ -1,6 +1,5 @@
 # Sermon 2403 | The Sweet and the Sweetener
 
-(No. 2403)
 
 INTENDED FOR READING ON LORD'S DAY, MARCH 10, 1895.
 

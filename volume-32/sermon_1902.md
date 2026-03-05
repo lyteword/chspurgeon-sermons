@@ -1,6 +1,5 @@
 # Sermon 1902 | The Happy Duty of Daily Praise
 
-(No. 1902)
 
 A SERMON DELIVERED ON LORDS-DAY MORNING, MAY 30, 1886,
 

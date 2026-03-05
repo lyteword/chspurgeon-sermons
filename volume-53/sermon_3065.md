@@ -1,6 +1,5 @@
 # Sermon 3065 | The Third Beatitude
 
-(No. 3065)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 7, 1907.
 

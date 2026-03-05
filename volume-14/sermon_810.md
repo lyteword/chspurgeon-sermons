@@ -1,6 +1,5 @@
 # Sermon 810 | The Faithfulness of Jesus
 
-A Sermon (No. 810)
 
 Delivered on Sunday Morning, May 10th, 1868, by C. H. SPURGEON, At the [21]Metropolitan Tabernacle, Newington.
 

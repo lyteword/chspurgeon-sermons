@@ -1,6 +1,5 @@
 # Sermon 1623 | Wholehearted Religion
 
-(No. 1623)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 9, 1881,
 

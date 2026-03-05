@@ -1,6 +1,5 @@
 # Sermon 1523 | The Royal Prerogative
 
-(No. 1523)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 15, 1880,
 

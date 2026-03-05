@@ -1,7 +1,5 @@
 # Sermon 1271 | Pride Catechized and Condemned
 
-Sermon No. 1271 - Delivered on Lord's-Day Morning, January 2nd, 1876 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
-(No. 1271)
 
 PRIDE GROWS APACE like other ill weeds. It will live on any soil. In the natural heart it flourishes, springing up without sowing, and growing without watering; and even in the renewed heart it all too readily takes root when Satan casts abroad a handful of its seed. Of all creatures in the world the Christian is the last man who ought to be proud; and yet, alas, we have had mournful evidence both in past history and in our own observation, and worst of all in our own personal experience, that Christian men may become lifted up, to their own shame. Paul set himself very earnestly to deal with this disease when he saw it raging among the Corinthians. He felt it needful to do so, for it was leading to other mischiefs of the most disgraceful kind. Pride and self-conceit had led the members of the church in Corinth to choose for themselves distinct leaders, and to arrange them selves under separate banners: the followers of this man thinking themselves better than the followers of that. Thus the body of Christ was divided, and all sorts of ill feeling, jealousy, emulation and envy sprang up in the church of God where all ought to have been mutual helpfulness and loving unity. Paul therefore earnestly, and with great wisdom, assailed the spirit of pride.
 

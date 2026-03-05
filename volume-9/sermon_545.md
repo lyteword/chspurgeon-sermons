@@ -1,6 +1,5 @@
 # Sermon 545 | The Holy Child, Jesus
 
-Sermon No. 545 - Delivered on Sunday Morning, December 20th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "That signs and wonders may be done by the name of Your holy Child, Jesus."  
 > Acts 4:30.  

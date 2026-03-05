@@ -1,6 +1,5 @@
 # Sermon 2380 | Encouragements To Prayer
 
-(No. 2380)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 30, 1894.
 

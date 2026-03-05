@@ -1,6 +1,5 @@
 # Sermon 1772 | Slaying the Sacrifice
 
-(No. 1772)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 23, 1884,
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
 "And he shall kill the bullock before the LORD." Leviticus 1:5.
 
-You remember that last Lord's Day we spoke of two things vitally essential to a true sacrifice and the first upon which we then enlarged was the laying on of the hands of the offerer upon the victim, by which he accepted it as his sacrifice, and made a typical transfer of his sin from himself to the victim. [ "Putting the Hand Upon the Head of the Sacrifice," No. 1771. And Sermon #1780, "The Sprinkling of the Blood of the Sacrifice" continues the series.] Now, the second essential thing, of which we are to speak this morning, is this--that the victim, thus bearing the guilt of the offerer, must be killed--its blood must be shed before the Lord. Nothing short of its death by violence would render it an atonement for the offerer--"he shall kill the bullock."
 
 You will find this order continually repeated whenever a sacrifice is spoken of. As I said on the last occasion, I feel great satisfaction, in this time of my weakness, in being permitted to speak to you about essential things. It was always a stigma upon the character of Caligula that he gathered his warriors, fitted out his ships and, when the people of Rome looked for some great addition to the empire by the vast naval expedition, he simply anchored his vessels near the beach and bade his legions advance upon the shore and gather shells and pebbles--and carry them home as trophies of their undisputed conquest. He trifled where he should have struggled. He spent time and labor upon matters of no importance and neglected the weighty business of his kingdom.
 

@@ -1,6 +1,5 @@
 # Sermon 1419 | Encouragement to Trust and Pray
 
-(No. 1419)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 16, 1878,
 

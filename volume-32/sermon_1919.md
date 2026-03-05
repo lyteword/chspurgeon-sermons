@@ -1,6 +1,5 @@
 # Sermon 1919 | The Very Bold Prophecy
 
-(No. 1919)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1886,
 

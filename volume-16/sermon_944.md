@@ -1,6 +1,5 @@
 # Sermon 944 | An Encouraging Lesson From Paul's Conversion
 
-(No. 944)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 7, 1870,
 

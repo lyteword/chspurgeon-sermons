@@ -1,6 +1,5 @@
 # Sermon 3180 | Christ the Creator
 
-(No. 3180)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 13, 1910.
 

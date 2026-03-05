@@ -1,6 +1,5 @@
 # Sermon 1667 | Love and I' A Mystery
 
-Sermon No. 1667 - Delivered on Lord's-Day Morning, July 2nd, 1882 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 I have declared unto them thy name, and will declare it: that the love wherewith thou hast loved me may be in them, and I in them.'John 17:26.
 

@@ -1,6 +1,5 @@
 # Sermon 2425 | Self-destroyed, Yet Saved
 
-(No. 2425)
 
 INTENDED FOR READING ON LORD'S DAY, AUGUST 11, 1895.
 

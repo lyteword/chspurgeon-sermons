@@ -1,6 +1,5 @@
 # Sermon 830 | Gray Hairs
 
-A Sermon (No. 830)
 
 Delivered on Lord's Day Morning, September 13, 1868, by C. H. SPURGEON, at the [40]Metropolitan Tabernacle, Newington.
 

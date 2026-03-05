@@ -1,6 +1,5 @@
 # Sermon 3348 | Knowing and Doing
 
-(No. 3348)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 3, 1913.
 

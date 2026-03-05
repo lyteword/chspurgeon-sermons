@@ -1,6 +1,5 @@
 # Sermon 3262 | Satan's Arrows and God's
 
-(No. 3262)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 1440 | The Great Emancipator
 
-(No. 1440)
 
 DELIVERED BY
 

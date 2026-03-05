@@ -1,6 +1,5 @@
 # Sermon 2775 | David Warned and Rewarded
 
-(No. 2775)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 20, 1902.
 

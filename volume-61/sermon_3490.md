@@ -1,6 +1,5 @@
 # Sermon 3490 | Sincere Seekers--assured Finders
 
-(No. 3490)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 16, 1915.
 

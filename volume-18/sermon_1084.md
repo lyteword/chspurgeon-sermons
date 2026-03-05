@@ -1,6 +1,5 @@
 # Sermon 1084 | The Thorn in the Flesh
 
-(No. 1084)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 8, 1872
 

@@ -1,6 +1,5 @@
 # Sermon 2896 | Harvest Time
 
-(No. 2896)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 11, 1904.
 

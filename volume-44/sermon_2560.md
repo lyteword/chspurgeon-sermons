@@ -1,6 +1,5 @@
 # Sermon 2560 | Universal Fatherhood--a Lie!
 
-(No. 2560)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 13, 1898.
 

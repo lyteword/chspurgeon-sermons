@@ -1,6 +1,5 @@
 # Sermon 1595 | The Valley Of The Shadow Of Death
 
-(No. 1595)
 
 DELIVERED ON THURSDAY EVENING, AUGUST 12, 1880,
 

@@ -1,6 +1,5 @@
 # Sermon 3160 | The Call of "Today"
 
-(No. 3160)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 2, 1909.
 

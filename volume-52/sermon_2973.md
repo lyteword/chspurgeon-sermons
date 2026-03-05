@@ -1,6 +1,5 @@
 # Sermon 2973 | Thought Condemned, Yet Commanded
 
-(No. 2973)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1906.
 

@@ -1,6 +1,5 @@
 # Sermon 2937 | Too Little for the Lamb
 
-(No. 2937)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 25, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 2683 | The Bitterness of the Cross
 
-(No. 2683)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 15, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 196 | A Present Religion
 
-Sermon No. 196 - Delivered on Sabbath Morning, May 30, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Beloved, now are we the sons of God.    
 > 1 John 3:2.    

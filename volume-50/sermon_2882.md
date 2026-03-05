@@ -1,6 +1,5 @@
 # Sermon 2882 | Forgiveness and Fear
 
-(No. 2882)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 5, 1904.
 

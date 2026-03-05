@@ -1,6 +1,5 @@
 # Sermon 2562 | Cries From the Cross
 
-(No. 2562)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1898.
 

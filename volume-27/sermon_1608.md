@@ -1,6 +1,5 @@
 # Sermon 1608 | The Double "Come"
 
-(No. 1608)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 10, 1881,
 

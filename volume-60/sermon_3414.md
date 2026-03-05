@@ -1,6 +1,5 @@
 # Sermon 3414 | "Brief Life Is Here Our Portion"
 
-(No. 3414)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 9, 1914.
 

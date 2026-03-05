@@ -1,6 +1,5 @@
 # Sermon 1105 | The Heart Of Jesus
 
-(No. 1105)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 6, 1873,
 

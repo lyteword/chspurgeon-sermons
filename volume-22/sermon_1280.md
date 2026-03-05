@@ -1,6 +1,5 @@
 # Sermon 1280 | An Objection and an Answer
 
-(No. 1280)
 
 A SERMON DELIVERED BY
 

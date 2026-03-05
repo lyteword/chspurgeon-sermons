@@ -1,6 +1,5 @@
 # Sermon 3049 | "Going and Weeping"
 
-(No. 3049)
 
 A SERMON PUBLISHED ON TUESDAY, JULY 18, 1907.
 

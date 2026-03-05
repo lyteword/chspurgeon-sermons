@@ -1,6 +1,5 @@
 # Sermon 2763 | The Glory of Grace
 
-(No. 2763)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 26, 1902.
 

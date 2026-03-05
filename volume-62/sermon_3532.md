@@ -1,6 +1,5 @@
 # Sermon 3532 | Christ's Great Mission
 
-(No. 3532)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1916.
 

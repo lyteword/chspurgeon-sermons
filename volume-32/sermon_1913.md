@@ -1,6 +1,5 @@
 # Sermon 1913 | Confidence and Concern
 
-(No. 1913)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, AUGUST 8, 1886,
 

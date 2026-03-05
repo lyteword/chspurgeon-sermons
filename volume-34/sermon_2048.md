@@ -1,6 +1,5 @@
 # Sermon 2048 | A Life-Long Occupation
 
-Sermon No. 2048 - Delivered on Sunday Morning, October 14th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "By Him, therefore, let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to His name."  
 > Hebrews 13:15.  

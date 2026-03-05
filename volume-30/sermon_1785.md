@@ -1,6 +1,5 @@
 # Sermon 1785 | The Children and Their Hosannas
 
-(No. 1785)
 
 A SERMON DELIVERED ON WEDNESDAY EVENING, MAY 7, 1884,
 

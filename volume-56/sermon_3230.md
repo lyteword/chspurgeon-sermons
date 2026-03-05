@@ -1,6 +1,5 @@
 # Sermon 3230 | The Last Message for the Year
 
-(No. 3230)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 29, 1910.
 

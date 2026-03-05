@@ -1,6 +1,5 @@
 # Sermon 3274 | Sickness and Prayer, Healing and Praise
 
-(No. 3274)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1911.
 

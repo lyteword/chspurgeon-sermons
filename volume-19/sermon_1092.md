@@ -1,6 +1,5 @@
 # Sermon 1092 | A Holy Celebration
 
-(No. 1092)
 
 A SERMON DELIVERED BY
 

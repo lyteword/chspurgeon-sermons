@@ -1,6 +1,5 @@
 # Sermon 2237 | Gratitude for Deliverance from the Grave
 
-(No. 2237)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1892,
 

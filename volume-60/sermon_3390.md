@@ -1,6 +1,5 @@
 # Sermon 3390 | Hoping in God's Mercy
 
-(No. 3390)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 22, 1914.
 

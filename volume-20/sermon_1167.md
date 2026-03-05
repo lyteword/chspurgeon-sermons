@@ -1,6 +1,5 @@
 # Sermon 1167 | Additions to the Church
 
-(No. 1167)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 5, 1874,
 

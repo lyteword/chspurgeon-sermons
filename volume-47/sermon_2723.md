@@ -1,6 +1,5 @@
 # Sermon 2723 | God's Dealings With Egypt and Israel
 
-(No. 2723)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 21, 1901.
 

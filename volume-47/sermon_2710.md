@@ -1,6 +1,5 @@
 # Sermon 2710 | Christ the Cause of Division
 
-(No. 2710)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 20, 1901.
 

@@ -10,7 +10,6 @@ Spurgeon preached this message in response to two disasters that had hit very cl
 
 A Sermon
 
-(No. 408)
 
 Delivered on Sunday Morning, September the 8th, 1861 by the
 

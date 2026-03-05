@@ -1,6 +1,5 @@
 # Sermon 2512 | Hearing With Heed
 
-(No. 2512)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 11, 1897.
 

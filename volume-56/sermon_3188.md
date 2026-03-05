@@ -1,6 +1,5 @@
 # Sermon 3188 | Discipline in Christ's Army
 
-(No. 3188)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 10, 1910.
 

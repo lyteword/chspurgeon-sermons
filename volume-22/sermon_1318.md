@@ -1,6 +1,5 @@
 # Sermon 1318 | Increased Faith the Strength of Peace Principles
 
-(No. 1318)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 15, 1876,
 

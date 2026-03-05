@@ -1,6 +1,5 @@
 # Sermon 1721 | Glory!
 
-(No. 1721)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 20, 1883,
 

@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 3494)
 
 Published on Thursday, January 13th, 1916.
 

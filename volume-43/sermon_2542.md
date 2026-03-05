@@ -1,6 +1,5 @@
 # Sermon 2542 | Christ's Rest and Ours
 
-(No. 2542)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 7, 1897.
 

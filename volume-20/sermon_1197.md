@@ -1,6 +1,5 @@
 # Sermon 1197 | The Claims of God
 
-(No. 1197)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 11, 1874,
 

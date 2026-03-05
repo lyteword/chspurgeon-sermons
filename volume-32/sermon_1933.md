@@ -1,6 +1,5 @@
 # Sermon 1933 | "Your Rowers Have Brought You Into Great Waters"
 
-(No. 1933)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 12, 1886,
 

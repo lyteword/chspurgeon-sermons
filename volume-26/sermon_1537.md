@@ -1,6 +1,5 @@
 # Sermon 1537 | Samuel--an Example of Intercession
 
-(No. 1537)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 9, 1880,
 

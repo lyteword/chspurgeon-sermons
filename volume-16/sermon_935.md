@@ -1,6 +1,5 @@
 # Sermon 935 | The Sad Wonder
 
-(No. 935)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 12, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 1568 | The Believer Catechized
 
-(No. 1568)
 
 DELIVERED ON SUNDAY MORNING, NOVEMBER 21, 1880,
 

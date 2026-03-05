@@ -1,6 +1,5 @@
 # Sermon 1069 | Laboring And Not Fainting
 
-(No. 1069)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 8, 1872,
 

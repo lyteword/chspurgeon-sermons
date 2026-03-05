@@ -1,6 +1,5 @@
 # Sermon 2401 | The Child of Light and the Works of Darkness
 
-(No. 2401)
 
 INTENDED FOR READING ON LORD'S DAY, FEBRUARY 24, 1895.
 

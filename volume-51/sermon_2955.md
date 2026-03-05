@@ -1,6 +1,5 @@
 # Sermon 2955 | Simple But Sound
 
-(No. 2955)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1905.
 

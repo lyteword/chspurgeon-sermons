@@ -1,6 +1,5 @@
 # Sermon 1380 | Vanities and Verities
 
-(No. 1380)
 
 DELIVERED BY
 

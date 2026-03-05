@@ -1,6 +1,5 @@
 # Sermon 1750 | The Luther Sermon at Exeter Hall
 
-(No. 1750)
 
 DELIVERED ON LORD'S-DAY EVENING, NOVEMBER 11, 1883,
 

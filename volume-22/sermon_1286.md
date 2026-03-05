@@ -1,6 +1,5 @@
 # Sermon 1286 | A Weighty Charge
 
-(No. 1286)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 26 1876,
 

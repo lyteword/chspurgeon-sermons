@@ -1,6 +1,5 @@
 # Sermon 3206 | "The Church of the First-born"
 
-(No. 3206)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 14, 1910.
 

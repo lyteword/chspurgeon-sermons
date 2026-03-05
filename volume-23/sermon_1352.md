@@ -1,6 +1,5 @@
 # Sermon 1352 | Strong Consolation for the Lord's Refugees
 
-(No. 1352)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 29, 1877,
 

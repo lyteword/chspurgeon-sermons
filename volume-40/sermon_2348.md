@@ -1,6 +1,5 @@
 # Sermon 2348 | The Lord Leading--David Following
 
-(No. 2348)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 18, 1894.
 

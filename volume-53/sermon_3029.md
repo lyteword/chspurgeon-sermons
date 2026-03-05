@@ -1,6 +1,5 @@
 # Sermon 3029 | God's Tender Mercy
 
-(No. 3029)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 28, 1907.
 

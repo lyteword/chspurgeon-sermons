@@ -1,6 +1,5 @@
 # Sermon 1803 | Jehovah-Jireh
 
-(No. 1803)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1884,
 

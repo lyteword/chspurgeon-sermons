@@ -1,6 +1,5 @@
 # Sermon 591 | "Thus Saith The Lord:" Or, The Book of Common Prayer Weighed in the Balances of the Sanctuary
 
-Sermon No. 591 - Delivered on Sunday Morning, September 25th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Thus saith the Lord."  
 > Ezekiel 11:15.  
@@ -63,13 +62,9 @@ BAPTISMAL REGENERATION
 
 The following sermons contain Mr. Spurgeon's views upon the Question now under controversy:--
 
-No. 573.--"Baptismal Regeneration."--170th Thousand.
 
-No. 577.--"Let Us Go Forth."--30th Thousand.
 
-No. 581.--"Children Brought to Christ, Not to the Font."--60th Thousand.
 
-No. 591.--"Thus Saith The Lord:" Or, The Book of Common Prayer Weighed in the Balances of the Sanctuary.--60th Thousand.
 
 TWO LETTERS from C. H. SPURGEON--one to the Evangelical Alliance, signifying his withdrawal from that Association; and another to The Christian Public, proving that his accusations against the Evangelical Clergy are neither novel nor singular.--25th Thousand.
 

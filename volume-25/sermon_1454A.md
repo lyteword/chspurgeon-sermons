@@ -1,6 +1,5 @@
 # Sermon 1454A | The Empty Seat
 
-(No. 1454A)
 
 WRITTEN WHEN AWAY FROM HIS PEOPLE,
 

@@ -1,6 +1,5 @@
 # Sermon 950 | Means for Restoring the Banished
 
-(No. 950)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 11, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 1748 | Jehovah Has Spoken--will You Not Hear?
 
-(No. 1748)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 4, 1883,
 

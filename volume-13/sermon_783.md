@@ -1,6 +1,4 @@
-# Sermon 783 | Sermons From Saintly Deathbeds No. 783
 
-Sermon No. 783 - Delivered on Lord's-day Morning, DECEMBER 1, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And when Jacob had made an end of commanding his sons, he gathered up his feet into the bed, and yielded up the ghost, and was gathered unto his people."- Genesis 49:33.

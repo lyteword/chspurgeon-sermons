@@ -1,6 +1,5 @@
 # Sermon 2738 | The Redeemer's Face Set Like a Flint
 
-(No. 2738)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 4, 1901.
 

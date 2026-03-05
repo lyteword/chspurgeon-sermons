@@ -1,6 +1,5 @@
 # Sermon 670 | Frost And Thaw
 
-Sermon No. 670 - Delivered on Sunday Evening, December 24th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He gives snow like wool; He scatters the frost like ashes; He casts out His hail like morsels. Who can stand before His cold? He sends out His word and melts them; He causes His wind to blow, and the waters flow."  
 > Psalm 147:16-18.  

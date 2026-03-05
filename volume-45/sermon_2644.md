@@ -1,6 +1,5 @@
 # Sermon 2644 | The Last Words of Christ on the Cross
 
-(No. 2644)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 15, 1899.
 

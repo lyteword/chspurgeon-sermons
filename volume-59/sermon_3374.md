@@ -1,6 +1,5 @@
 # Sermon 3374 | Sin's True Character
 
-(No. 3374)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 2, 1913.
 

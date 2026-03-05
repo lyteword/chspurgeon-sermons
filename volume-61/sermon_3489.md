@@ -1,6 +1,5 @@
 # Sermon 3489 | Encouragement for the Depressed
 
-(No. 3489)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 9, 1915.
 

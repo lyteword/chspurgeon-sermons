@@ -1,6 +1,5 @@
 # Sermon 2703 | The Preservation of Christians in the World
 
-(No. 2703)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 2D, 1900.
 

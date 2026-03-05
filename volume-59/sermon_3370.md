@@ -1,6 +1,5 @@
 # Sermon 3370 | Our Leader Through the Darkness
 
-(No. 3370)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 4, 1913.
 

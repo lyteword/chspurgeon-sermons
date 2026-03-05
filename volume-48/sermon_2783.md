@@ -1,6 +1,5 @@
 # Sermon 2783 | A Worthy Theme for Thought
 
-(No. 2783)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 15, 1902.
 

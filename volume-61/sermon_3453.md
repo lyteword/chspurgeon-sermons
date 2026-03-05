@@ -1,6 +1,5 @@
 # Sermon 3453 | The Wandering Bird
 
-(No. 3453)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 8, 1915.
 

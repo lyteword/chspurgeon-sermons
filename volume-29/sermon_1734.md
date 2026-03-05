@@ -1,6 +1,5 @@
 # Sermon 1734 | A Gospel Worth Dying For
 
-(No. 1734)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 12, 1883,
 

@@ -1,6 +1,5 @@
 # Sermon 1540 | The Mediator--Judge And Savior
 
-(No. 1540)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 30, 1880,
 

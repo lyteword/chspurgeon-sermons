@@ -1,6 +1,5 @@
 # Sermon 2844 | The Seed Upon a Rock
 
-(No. 2844)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1903.
 

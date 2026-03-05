@@ -1,6 +1,5 @@
 # Sermon 1563 | The Duty of the Present Hour
 
-(No. 1563)
 
 DELIVERED BY
 

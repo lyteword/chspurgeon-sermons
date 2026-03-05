@@ -1,6 +1,5 @@
 # Sermon 1579 | Roads Cleared
 
-(No. 1579)
 
 DELIVERED BY
 

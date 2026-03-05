@@ -1,6 +1,5 @@
 # Sermon 2340 | The Best Christmas Fare
 
-(No. 2340)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 24, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 1052 | The Sphere Of Instrumentality
 
-(No. 1052)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 26, 1872,
 

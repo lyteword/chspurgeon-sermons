@@ -1,6 +1,5 @@
 # Sermon 2182 | Jehovah-shammah--a Glorious Name for the New Year
 
-(No. 2182)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 4, 1891,
 

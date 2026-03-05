@@ -1,6 +1,5 @@
 # Sermon 2788 | Prayer for the Church
 
-(No. 2788)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 20, 1902.
 

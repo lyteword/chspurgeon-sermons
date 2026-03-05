@@ -1,6 +1,5 @@
 # Sermon 2697 | Angelic Interest in the Gospel
 
-(No. 2697)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 21, 1900.
 

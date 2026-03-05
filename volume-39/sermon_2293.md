@@ -1,6 +1,5 @@
 # Sermon 2293 | Simeon's Swan Song
 
-(No. 2293)
 
 INTENDED FOR READING, ON LORD'S-DAY, JANUARY 29, 1893.
 

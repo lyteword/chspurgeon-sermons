@@ -1,6 +1,5 @@
 # Sermon 3133 | Christ's Prayer for Believers
 
-(No. 3133)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25, 1909.
 

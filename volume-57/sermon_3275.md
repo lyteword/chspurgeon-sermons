@@ -1,6 +1,5 @@
 # Sermon 3275 | "A Kind of First Fruits"
 
-(No. 3275)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1911.
 

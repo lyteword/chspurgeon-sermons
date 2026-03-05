@@ -1,6 +1,5 @@
 # Sermon 1629 | Two Good Things
 
-(No. 1629)
 
 A SERMON DELIVERED
 

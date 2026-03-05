@@ -1,6 +1,5 @@
 # Sermon 1250 | The Priest Dispensed With
 
-(No. 1250)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1875,
 

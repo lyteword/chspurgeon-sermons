@@ -1,6 +1,5 @@
 # Sermon 264 | How Saints May Help the Devil
 
-Sermon No. 264 - Delivered on Sabbath Morning, July 24th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > That thou mayest bear thing own shame, and mayest be confounded in all that thou hast done, in that thou art a comfort unto them.    
 > Ezekiel 16:54.    

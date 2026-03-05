@@ -1,6 +1,5 @@
 # Sermon 2347 | The Lord's Famous Titles
 
-(No. 2347)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 11, 1894.
 

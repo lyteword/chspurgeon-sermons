@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 3501)
 
 Published on Thursday, March 2nd, 1916.
 

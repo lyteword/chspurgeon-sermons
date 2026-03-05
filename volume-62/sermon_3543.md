@@ -1,6 +1,5 @@
 # Sermon 3543 | Speaking on God's Behalf
 
-(No. 3543)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1916.
 

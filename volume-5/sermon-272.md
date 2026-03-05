@@ -1,6 +1,5 @@
 # Sermon 272 | Limiting God
 
-Sermon No. 272 - Delivered on Sabbath Morning, August 28th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > They limited the Holy One of Israel    
 > Psalm 78:41.    

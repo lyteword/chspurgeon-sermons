@@ -1,6 +1,5 @@
 # Sermon 3472 | A Solemn Deprival
 
-(No. 3472)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 19, 1915.
 

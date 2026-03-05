@@ -1,6 +1,5 @@
 # Sermon 1293 | The Unknown Ways of Love
 
-(No. 1293)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 14, 1876,
 

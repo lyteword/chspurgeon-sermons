@@ -1,6 +1,5 @@
 # Sermon 2827 | The Redeemer Described by Himself
 
-(No. 2827)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1903.
 

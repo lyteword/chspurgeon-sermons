@@ -1,6 +1,5 @@
 # Sermon 1646 | A Home Question and a Right Answer
 
-(No. 1646)
 
 DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 5, 1882,
 

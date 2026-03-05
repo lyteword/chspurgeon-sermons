@@ -2,7 +2,6 @@
 
 A sermon
 
-(No. 896)
 
 BY C. H. SPURGEON,
 

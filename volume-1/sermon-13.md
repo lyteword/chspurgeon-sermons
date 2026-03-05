@@ -1,6 +1,5 @@
 # Sermon 13 | Consolation Proportionate to Spiritual Sufferings
 
-Sermon No. 13 - Delivered on Sabbath Morning, March 11, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.    
 > 2 Corinthians 1:5.    

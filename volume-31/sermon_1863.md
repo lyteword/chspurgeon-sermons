@@ -1,6 +1,5 @@
 # Sermon 1863 | Departed Saints Yet Living
 
-(No. 1863)
 
 SUGGESTED BY THE DECEASE OF THE EARL OF SHAFTESBURY.
 

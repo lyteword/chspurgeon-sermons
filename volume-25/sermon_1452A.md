@@ -1,6 +1,5 @@
 # Sermon 1452A | The Sick Man Left Behind
 
-(No. 1452A)
 
 FROM THE SICK ROOM OF
 

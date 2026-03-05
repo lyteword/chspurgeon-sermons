@@ -1,6 +1,5 @@
 # Sermon 2923 | The Singing Army
 
-(No. 2923)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1905.
 

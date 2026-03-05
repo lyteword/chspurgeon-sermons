@@ -1,6 +1,5 @@
 # Sermon 3522 | Christ a Sanctuary
 
-(No. 3522)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 27, 1916.
 

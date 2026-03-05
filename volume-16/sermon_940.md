@@ -1,6 +1,5 @@
 # Sermon 940 | The Winnowing Fan
 
-(No. 940)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 10, 1870,
 

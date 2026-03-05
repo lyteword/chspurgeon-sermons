@@ -1,6 +1,5 @@
 # Sermon 2720 | The Savior Resting in His Love
 
-(No. 2720)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 31, 1901.
 

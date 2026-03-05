@@ -1,6 +1,5 @@
 # Sermon 2666 | The Sorrowful Man's Question
 
-(No. 2666)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 18, 1900.
 

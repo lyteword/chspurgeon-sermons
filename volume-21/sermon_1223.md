@@ -1,6 +1,5 @@
 # Sermon 1223 | Jesus, The Substitute For His People
 
-(No. 1223)
 
 DELIVERED BY
 

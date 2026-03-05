@@ -1,6 +1,5 @@
 # Sermon 904 | The Eye--a Similitude
 
-Sermon No. 904 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Keep me as the apple of the eye."- Psalm 17:8.

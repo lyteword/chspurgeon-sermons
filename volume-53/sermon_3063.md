@@ -1,6 +1,5 @@
 # Sermon 3063 | Jotham's Peculiar Honor
 
-(No. 3063)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 24, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 1252 | The First Day Of Creation
 
-(No. 1252)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, AUGUST 29, 1875,
 

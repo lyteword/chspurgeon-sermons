@@ -1,6 +1,5 @@
 # Sermon 954 | A Most Needful Prayer Concerning The Holy Spirit
 
-(No. 954)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 9, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 1076 | The Great Assize
 
-Sermon No. 1076 - Delivered on Lord's Day Evening, August 25th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 'For we must all appear before the judgment seat of Christ; that everyone may receive the things done in his body, according to that he hath done, whether it be good or bad.''2Corinthians 5:10.
 

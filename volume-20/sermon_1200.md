@@ -1,6 +1,5 @@
 # Sermon 1200 | The Power of the Risen Savior
 
-(No. 1200)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 25, 1874,
 

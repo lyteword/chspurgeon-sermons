@@ -1,6 +1,5 @@
 # Sermon 1436 | What The Church Should Be
 
-(No. 1436)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 29, 1878,
 

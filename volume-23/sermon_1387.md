@@ -1,6 +1,5 @@
 # Sermon 1387 | God's Thoughts and Ways Far Above Ours
 
-(No. 1387)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 2, 1877,
 

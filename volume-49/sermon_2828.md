@@ -1,6 +1,5 @@
 # Sermon 2828 | Startling!
 
-(No. 2828)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 26, 1903.
 

@@ -1,6 +1,5 @@
 # Sermon 2611 | A Lost Christ Found
 
-(No. 2611)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 26, 1899.
 

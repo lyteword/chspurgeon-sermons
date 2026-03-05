@@ -1,6 +1,5 @@
 # Sermon 2369 | Blood Even on the Golden Altar
 
-(No. 2369)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 15, 1894.
 

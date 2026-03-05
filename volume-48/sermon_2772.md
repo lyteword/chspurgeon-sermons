@@ -1,6 +1,5 @@
 # Sermon 2772 | The Minister's Trumpet Blast and Church Member's Warning
 
-(No. 2772)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 30, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 3024 | Christ's Death And Ours
 
-(No. 3024)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 24, 1907.
 
@@ -93,7 +92,6 @@ A very considerable portion of this Sermon was revised by Mr. Spurgeon in readin
 
 It is also a somewhat remarkable fact that the Sermon to be issued next week was preached on Thursday evening, February 11th, 1869, exactly 23 years to the very day before the funeral service at the Tabernacle, the long procession from Newington to Norwood, and the interment in the cemetery there in the presence of an enormous concourse of sympathizing spectators.
 
-Regular readers of the Sermons will remember that similar coincidences were pointed out at the time of Mr. Spurgeon's Home-going, when, without any human pre-arrangement, the Sermons intended for reading on the four Sabbaths in February, 1892, were as follows--No. 2242, Volume 38--GOD'S WILL ABOUT THE FUTURE; No. 2243, Volume 38-- HIS OWN FUNERAL SERMON; No. 2244, Volume 38--MEMBERS OF CHRIST and No. 2245, Volume 38--"LIVING, LOVING, LASTING UNION'--the four discourses concerning the Home-going of Deacon
 
 William Olney].
 
@@ -129,7 +127,6 @@ Father, glorify Your name. That is a grand answer to the Savior's question, "Wha
 
 28-30. Saying, I have both glorified it, and will glorify it again. The people therefore, that stood by, and heard it, said that it thundered. Others said, An angel spoke to Him. Jesus answered and said, This Voice came not because of Me, but for your sakes. "You needed to be strengthened as to the Divine Character and authority of My mission. You required to be comforted with the full assurance that I shall, indeed, be glorifying My Father even when I die upon the Cross of Calvary."
 
-Now is the judgment of this world. This is a wonderful sentence--as if, in Christ's death, the world was judged and condemned! And so it was. Nothing ever so convicted the world of high treason against God as when men said of the Lord Jesus Christ, God's well-beloved Son, "This is the Heir. Come, let us kill Him, and the inheritance shall be ours." The shedding of the blood of Christ upon the Cross is the crimson evidence of the deep transgression of human nature! "Now is the judgment of this world." There is another rendering of this text, retaining the Greek word, "Now is the crisis of this world." [See Sermon No. 2338, Volume 39--THE CRISIS OF THIS WORLD.]
 
 Now shall the prince of this world be cast out Thank God for that! His throne was shaken to its fall when Christ died on Calvary. All the powers of darkness suffered eternal defeat in the hour that men and devils fancied they had gained the victory.
 

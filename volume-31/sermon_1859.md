@@ -1,6 +1,5 @@
 # Sermon 1859 | The Cross Our Glory
 
-(No. 1859)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 13, 1885,
 

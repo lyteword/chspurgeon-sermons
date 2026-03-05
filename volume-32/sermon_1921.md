@@ -1,6 +1,5 @@
 # Sermon 1921 | Cleansing--a Covenant Blessing
 
-(No. 1921)
 
 DELIVERED BY
 

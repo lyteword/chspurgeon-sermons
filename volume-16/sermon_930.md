@@ -1,6 +1,5 @@
 # Sermon 930 | Away With Fear
 
-(No. 930)
 
 DELIVERED ON LORD'S-DAY EVENING, APRIL 10, 1870,
 

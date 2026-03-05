@@ -1,6 +1,5 @@
 # Sermon 1521 | A Plain Answer to an Important Enquiry
 
-(No. 1521)
 
 DELIVERED BY
 

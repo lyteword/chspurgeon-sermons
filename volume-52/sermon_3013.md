@@ -1,6 +1,5 @@
 # Sermon 3013 | Warning and Encouragement
 
-(No. 3013)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 8, 1906.
 

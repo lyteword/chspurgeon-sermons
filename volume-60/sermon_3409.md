@@ -1,6 +1,5 @@
 # Sermon 3409 | Seeking Richly Rewarded
 
-(No. 3409)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 4, 1914.
 

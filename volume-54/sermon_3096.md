@@ -1,6 +1,5 @@
 # Sermon 3096 | The Second Time
 
-(No. 3096)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 11, 1908.
 

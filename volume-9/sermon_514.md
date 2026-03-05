@@ -1,6 +1,5 @@
 # Sermon 514 | Tell It All
 
-Sermon No. 514 - Delivered on Sunday Morning, June 14th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But the woman fearing and trembling, knowing what was done in her, came and fell down before Him and told Him all the truth."  
 > Mark 5:33.  

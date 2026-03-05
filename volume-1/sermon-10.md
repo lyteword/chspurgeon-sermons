@@ -1,6 +1,5 @@
 # Sermon 10 | The Kingly Priesthood of the Saints
 
-Sermon No. 10 - Delivered on Sabbath Morning, January 28th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > And hast made us unto our God kings and priests; and we shall reign on the earth.    
 > Revelation 5:10.    

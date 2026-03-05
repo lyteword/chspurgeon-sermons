@@ -1,6 +1,5 @@
 # Sermon 1966 | The Death of Moses
 
-Sermon No. 1966 - Delivered on Sunday Morning, June 5th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "So Moses, the servant of the Lord, died there in the land of Moab, according to the Word of the Lord."  
 > Deuteronomy 34:5.  

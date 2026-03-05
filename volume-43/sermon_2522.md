@@ -1,6 +1,5 @@
 # Sermon 2522 | "After Two Days Is the Passover"
 
-(No. 2522)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 20, 1897.
 

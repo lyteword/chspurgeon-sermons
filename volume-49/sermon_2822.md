@@ -1,6 +1,5 @@
 # Sermon 2822 | Christ in Bonds
 
-(No. 2822)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1903.
 

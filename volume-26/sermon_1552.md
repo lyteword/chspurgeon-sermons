@@ -1,6 +1,5 @@
 # Sermon 1552 | The Friends Of Jesus
 
-(No. 1552)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 8, 1880,
 

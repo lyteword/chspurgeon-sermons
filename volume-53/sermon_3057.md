@@ -1,6 +1,5 @@
 # Sermon 3057 | Following Christ
 
-(No. 3057)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 12, 1907.
 

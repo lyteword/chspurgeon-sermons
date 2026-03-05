@@ -1,6 +1,5 @@
 # Sermon 2614 | Strange Things
 
-(No. 2614)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 19, 1899.
 

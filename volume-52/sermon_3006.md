@@ -1,6 +1,5 @@
 # Sermon 3006 | "The Lord Is My Shepherd"
 
-(No. 3006)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 29, 1906.
 

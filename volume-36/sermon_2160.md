@@ -1,6 +1,5 @@
 # Sermon 2160 | Not Sufficient and Yet Sufficient
 
-Sermon No. 2160 - Delivered on Sunday Morning, August 24th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Not that we are sufficient of ourselves to think anything as of ourselves; but our sufficiency is of God, who also has made us able ministers of the ne w testament, not of the letter, but of the Spirit: for the letter kills, but the Spirit gives life."  
 > 2 Corinthians 3:5, 6.  

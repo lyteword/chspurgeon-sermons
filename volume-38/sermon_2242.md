@@ -1,6 +1,5 @@
 # Sermon 2242 | God's Will About the Future
 
-(No. 2242)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1892,
 

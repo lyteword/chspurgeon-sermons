@@ -1,6 +1,5 @@
 # Sermon 1410 | Believers Free from the Dominion of Sin
 
-(No. 1410)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 21, 1878,
 

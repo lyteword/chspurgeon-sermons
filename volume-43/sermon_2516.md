@@ -1,6 +1,5 @@
 # Sermon 2516 | Jesus and His Brethren
 
-(No. 2516)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 9 1897.
 

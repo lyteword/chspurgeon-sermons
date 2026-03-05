@@ -1,6 +1,5 @@
 # Sermon 1836 | First Healing and then Service
 
-(No. 1836)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1885,
 

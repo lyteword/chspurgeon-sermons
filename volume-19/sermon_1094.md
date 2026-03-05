@@ -1,6 +1,5 @@
 # Sermon 1094 | Always and for All Things
 
-(No. 1094)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 2, 1873,
 

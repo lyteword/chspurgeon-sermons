@@ -1,6 +1,5 @@
 # Sermon 1345 | For Whom Is The Gospel Meant?
 
-(No. 1345)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1877,
 

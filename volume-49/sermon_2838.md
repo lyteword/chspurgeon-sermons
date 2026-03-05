@@ -1,6 +1,5 @@
 # Sermon 2838 | God's Glory in Hiding Sin
 
-(No. 2838)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1903.
 

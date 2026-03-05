@@ -1,6 +1,5 @@
 # Sermon 2748 | Rest As a Test
 
-(No. 2748)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 13, 1901.
 

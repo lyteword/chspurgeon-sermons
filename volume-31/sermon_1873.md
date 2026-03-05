@@ -1,6 +1,5 @@
 # Sermon 1873 | The Dream of the Barley Cake
 
-(No. 1873)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 22, 1885,
 

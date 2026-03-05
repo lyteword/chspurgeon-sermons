@@ -1,6 +1,5 @@
 # Sermon 2008 | The Lord And The Leper
 
-Sermon No. 2008 - Delivered on Lord's-day Morning, February 12th, 1888 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 
 > "And there came a leper to him, beseeching him, and kneeling down to him, and saying unto him, if thou wilt, thou canst make me clean. and Jesus, moved with compassion, put forth his hand, and touched him, and saith unto him, I will; be thou clean. And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed."'Mark 1:40-42.  
 > "And there came a leper to him, beseeching him, and kneeling down to him, and saying unto him, if thou wilt, thou canst make me clean. and Jesus, moved with compassion, put forth his hand, and touched him, and saith unto him, I will; be thou clean. And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed."'Mark 1:40-42.  

@@ -1,6 +1,5 @@
 # Sermon 3249 | Under the Apple Tree
 
-(No. 3249)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 11, 1911.
 

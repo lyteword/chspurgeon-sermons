@@ -1,6 +1,5 @@
 # Sermon 3189 | The Tenderness of God's Comfort
 
-(No. 3189)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 17, 1910.
 

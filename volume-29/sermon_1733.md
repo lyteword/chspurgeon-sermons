@@ -1,6 +1,5 @@
 # Sermon 1733 | On Humbling Ourselves before God
 
-(No. 1733)
 
 DELIVERED BY
 

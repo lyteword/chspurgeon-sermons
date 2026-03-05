@@ -1,6 +1,5 @@
 # Sermon 54 | Christ Our Passover
 
-Sermon No. 54 - Delivered on Sabbath Evening, December 2, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > For even Christ our passover is sacrificed for us.    
 > 1 Corinthians 5:7.    

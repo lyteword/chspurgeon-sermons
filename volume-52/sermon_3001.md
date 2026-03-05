@@ -1,6 +1,5 @@
 # Sermon 3001 | The Vision of the Field
 
-(No. 3001)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 16, 1906.
 

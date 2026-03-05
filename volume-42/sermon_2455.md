@@ -1,6 +1,5 @@
 # Sermon 2455 | A Cure for a Weak Heart
 
-(No. 2455)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1896.
 

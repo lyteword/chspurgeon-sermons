@@ -1,6 +1,5 @@
 # Sermon 1678 | The Samaritan Woman and Her Mission
 
-(No. 1678)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 10, 1882,
 

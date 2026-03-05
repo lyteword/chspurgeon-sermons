@@ -1,6 +1,5 @@
 # Sermon 1263 | Hold Fast Your Shield
 
-(No. 1263)
 
 DELIVERED BY
 

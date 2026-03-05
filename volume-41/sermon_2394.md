@@ -1,6 +1,5 @@
 # Sermon 2394 | Love's Climax
 
-(No. 2394)
 
 INTENDED FOR READING ON LORD'S DAY, JANUARY 6, 1895.
 

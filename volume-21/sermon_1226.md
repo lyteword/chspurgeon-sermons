@@ -1,6 +1,5 @@
 # Sermon 1226 | The Secret Of Health
 
-(No. 1226)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1875,
 

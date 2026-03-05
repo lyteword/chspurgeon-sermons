@@ -1,6 +1,5 @@
 # Sermon 1765 | An Astounding Miracle
 
-(No. 1765)
 
 A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 10, 1884,
 

@@ -1,6 +1,5 @@
 # Sermon 1705 | The Hearing of Faith
 
-(No. 1705)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 11, 1883,
 

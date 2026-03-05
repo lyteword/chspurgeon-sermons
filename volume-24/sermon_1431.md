@@ -1,6 +1,5 @@
 # Sermon 1431 | The Message from the Lord's Mouth
 
-(No. 1431)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 1, 1878,
 

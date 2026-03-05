@@ -1,6 +1,5 @@
 # Sermon 2728 | The High Rock
 
-(No. 2728)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 26, 1901.
 

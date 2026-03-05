@@ -1,6 +1,5 @@
 # Sermon 134 | Elijah's Appeal to the Undecided
 
-Sermon No. 134 - Delivered on Sabbath Morning, May 31, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > How long halt ye between two opinions? If the Lord be God, follow him; if Baal, then follow him.    
 > 1 Kings 18:21.    

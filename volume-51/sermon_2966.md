@@ -1,6 +1,5 @@
 # Sermon 2966 | Resistance to Salvation
 
-(No. 2966)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1905.
 

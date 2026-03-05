@@ -1,6 +1,5 @@
 # Sermon 1360 | The Good Samaritan
 
-(No. 1360)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 17, 1877,
 

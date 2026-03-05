@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 342)
 
 Delivered at Tottenham Court Road Chapel, by the
 

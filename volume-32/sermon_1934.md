@@ -1,6 +1,5 @@
 # Sermon 1934 | "And We Are"--a Jewel from the Revised Version
 
-(No. 1934)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 19, 1886,
 

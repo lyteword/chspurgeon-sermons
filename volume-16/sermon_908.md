@@ -1,6 +1,5 @@
 # Sermon 908 | Assured Security In Christ
 
-(No. 908)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 2, 1870,
 

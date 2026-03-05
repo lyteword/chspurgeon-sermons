@@ -1,6 +1,5 @@
 # Sermon 1676 | Despair Denounced and Grace Glorified
 
-(No. 1676)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 27, 1882,
 

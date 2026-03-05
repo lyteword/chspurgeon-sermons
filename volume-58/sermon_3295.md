@@ -1,6 +1,5 @@
 # Sermon 3295 | Communion With Christ and His People
 
-(No. 3295)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 28, 1912.
 

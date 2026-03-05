@@ -1,6 +1,5 @@
 # Sermon 3098 | Needless Fears
 
-(No. 3098)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 25, 1908.
 

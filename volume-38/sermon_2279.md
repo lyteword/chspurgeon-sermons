@@ -1,6 +1,5 @@
 # Sermon 2279 | Joy Hindering Faith
 
-(No. 2279)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 23, 1892.
 

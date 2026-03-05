@@ -1,6 +1,5 @@
 # Sermon 2117 | The Father's Love to His Dying Son
 
-Sermon No. 2117 - Delivered on Sunday Morning, December 8th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Therefore does My Father love Me, because I lay down My life, that I might take it again."  
 > John 10:17  

@@ -1,6 +1,5 @@
 # Sermon 1485 | The Withered Hand
 
-(No. 1485)
 
 DELIVERED ON THURSDAY EVENING, MAY 22, 1879,
 

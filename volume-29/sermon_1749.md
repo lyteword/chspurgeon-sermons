@@ -1,6 +1,5 @@
 # Sermon 1749 | A Luther Sermon at the Tabernacle
 
-(No. 1749)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 11, 1883,
 

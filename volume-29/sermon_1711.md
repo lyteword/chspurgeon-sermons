@@ -1,6 +1,5 @@
 # Sermon 1711 | A Sermon to the Lord's Little Children
 
-(No. 1711)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 18, 1883,
 

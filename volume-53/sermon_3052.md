@@ -1,6 +1,5 @@
 # Sermon 3052 | Christ's Loneliness and Ours
 
-(No. 3052)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 8, 1907.
 

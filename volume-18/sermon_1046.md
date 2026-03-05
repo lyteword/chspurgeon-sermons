@@ -1,6 +1,5 @@
 # Sermon 1046 | Covenant Blessings
 
-(No. 1046)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 14, 1872,
 

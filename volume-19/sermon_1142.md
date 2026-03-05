@@ -1,6 +1,5 @@
 # Sermon 1142 | Free Pardon
 
-(No. 1142)
 
 DELIVERED BY
 

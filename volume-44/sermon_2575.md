@@ -1,6 +1,5 @@
 # Sermon 2575 | A Sermon of Personal Testimony
 
-(No. 2575)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 19, 1898.
 

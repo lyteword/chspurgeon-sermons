@@ -1,6 +1,5 @@
 # Sermon 1377 | Taking Hold of God
 
-(No. 1377)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 7, 1877,
 

@@ -1,6 +1,5 @@
 # Sermon 400 | Our Miseries, Messengers of Mercy
 
-Sermon No. 400 - Delivered on Sunday Morning, July the 14th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Come, and let us return unto the Lord: for he hath torn, and he will heal us; he hath smitten and he will bind us up. After two days he will revive us: in the third day he will raise us up, and we shall live in his sight."  
 > Hosea 6:1-2.  

@@ -1,6 +1,5 @@
 # Sermon 1582 | The Fruit of the Spirit--Joy
 
-(No. 1582)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 6, 1881,
 
@@ -106,7 +105,6 @@ You have only to lift a naughty, rebellions hand and you can shut out the light 
 
 put it in the right place. See where it lives. Look at my text--"The fruit of the Spirit is love, joy and peace." There joy stands in the center--"love" is on one side and "peace" on the other! Find a man who never loved anybody and you have found a joyless man. This man's religion begins and ends with looking to his own safety. The only point he longs to know is--is he saved? He never knows joy, poor creature, how can he? As to peace, where is it? He has none because wherever he goes he growls, grumbles, snarls and barks at everybody. There is no peace where he is! He is always quarrelling and then he says, "I have little joy."
 
-He does not live in the right house for joy! Joy dwells at No. 2. "Love" is No. 1--"joy" is No. 2--"peace" is No. 3 and if you pull down either of the houses on the side, No. 2, in the middle, will tumble down! Joy is the center of a triplet and you must have it so or not at all--"Love, joy, peace." Thus I have shown how the growth of joy can be checked. I pray you do not allow such an evil thing to be worked in your heart.
 
 But, lastly, IT OUGHT TO BE CAREFULLY CULTIVATED. There is an obligation upon a Christian to be happy. Let me say it again--there is a responsibility laid upon a Christian to be cheerful! It is not merely an invitation, but it is a command--"Be glad in the Lord and rejoice, you righteous." "Rejoice in the Lord always; and again I say, Rejoice." Gloomy Christians who do not resist despondency and strive against it, but who go about as if midnight had taken up its abode in their eyes and an everlasting frost had settled on their souls are not obeying the commands of God! The command to rejoice is as undoubted a precept of God as to love the Lord with all your heart. The vows of God are upon you, O Believer, and they bind you to be joyful!
 

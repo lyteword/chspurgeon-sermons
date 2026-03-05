@@ -1,6 +1,5 @@
 # Sermon 380 | Meeting Of Our Own Church
 
-Sermon No. 380 - Delivered on Monday Evening, April 8th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > ""  
 > e.  

@@ -1,6 +1,5 @@
 # Sermon 1356 | The Heavenly Wind
 
-(No. 1356)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 27, 1877,
 

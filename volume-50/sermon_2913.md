@@ -1,6 +1,5 @@
 # Sermon 2913 | David's First Victory
 
-(No. 2913)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 8, 1904.
 

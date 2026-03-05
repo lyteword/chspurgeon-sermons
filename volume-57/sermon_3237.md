@@ -1,6 +1,5 @@
 # Sermon 3237 | Our Lord's Preaching
 
-(No. 3237)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1911.
 

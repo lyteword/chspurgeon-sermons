@@ -1,6 +1,5 @@
 # Sermon 910 | Overwhelming Obligations
 
-(No. 910)
 
 DELIVERED BY C. H. SPURGEON,
 

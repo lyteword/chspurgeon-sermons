@@ -1,6 +1,5 @@
 # Sermon 2007 | Holding Fast the Faith
 
-Sermon No. 2007 - Delivered on Sunday Morning, February 5th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And to the angel of the Church in Pergamos write: These things says He which has the sharp sword with two edges. I know your works and where you dwell, even where Satan's seat is: and you holdfast My name and ha ve not denied My faith."  
 > Revelation 2:12,13.  

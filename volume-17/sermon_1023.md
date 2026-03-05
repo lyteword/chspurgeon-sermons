@@ -1,6 +1,5 @@
 # Sermon 1023 | Praises and Vows Accepted in Zion
 
-Sermon No. 1023 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Praise waiteth for thee, O God, in Sion: and unto thee shall the vow be performed. O thou that hearest prayer, unto thee shall all flesh more."  
 > Psalm 65:1-2.  

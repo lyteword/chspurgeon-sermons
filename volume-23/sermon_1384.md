@@ -1,6 +1,5 @@
 # Sermon 1384 | A Round of Delights
 
-(No. 1384)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 11, 1877,
 

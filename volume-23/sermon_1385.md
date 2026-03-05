@@ -1,6 +1,5 @@
 # Sermon 1385 | Jesus Interceding For Transgressors
 
-(No. 1385)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 18, 1877,
 

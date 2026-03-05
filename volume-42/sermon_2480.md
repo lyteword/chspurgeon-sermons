@@ -1,6 +1,5 @@
 # Sermon 2480 | The Tender Grapes
 
-(No. 2480)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 30, 1896.
 

@@ -1,6 +1,5 @@
 # Sermon 2699 | Examination Before Communion
 
-(No. 2699)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 4, 1900.
 

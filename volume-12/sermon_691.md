@@ -1,6 +1,5 @@
 # Sermon 691 | An Immovable Foundation
 
-Sermon No. 691 - Delivered on Sunday Evening, May 13th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "If the foundations are destroyed, what can the righteous do?"  
 > Psalm 11:3.  

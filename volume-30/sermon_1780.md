@@ -1,6 +1,5 @@
 # Sermon 1780 | The Sprinkling of the Blood of the Sacrifice
 
-(No. 1780)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 11, 1884,
 

@@ -1,6 +1,5 @@
 # Sermon 1438 | The Hope Laid Up In Heaven
 
-(No. 1438)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 13, 1878,
 

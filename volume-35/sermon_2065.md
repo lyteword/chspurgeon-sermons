@@ -1,6 +1,5 @@
 # Sermon 2065 | Our Great Shepherd Finding the Sheep
 
-Sermon No. 2065 - Delivered on Sunday, January 27th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Until he finds it. And when he has found it. And when he comes home."  
 > Luke 15:4,5, 6.  

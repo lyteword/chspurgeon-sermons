@@ -1,6 +1,5 @@
 # Sermon 1612 | The Minstrel
 
-Sermon No. 1612 - Delivered on Lord's-Day Morning, August 7th, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 The text is a somewhat singular one, but I hope it will suggest a profitable idea.
 

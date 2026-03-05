@@ -1,6 +1,5 @@
 # Sermon 845 | Consecration to God--Illustrated by Abraham's Circumcision
 
-Sermon No. 845 - Delivered on Lord's-Day Morning, December 13th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle,.
 
 > "And when Abram was ninety years old and nine, the Lord appeared to Abram, and said unto him, I am the Almighty God; walk before me, and be thou perfect. And I will make my covenant between me and thee, and will multiply thee exceedingly."  
 > Genesis 17:1-2.  

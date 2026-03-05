@@ -1,6 +1,5 @@
 # Sermon 1204 | The Reception of Sinners
 
-(No. 1204)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 22, 1874,
 

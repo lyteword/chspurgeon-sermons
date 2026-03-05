@@ -1,6 +1,5 @@
 # Sermon 572 | Laus Deo
 
-Sermon No. 572 - Delivered on Sunday Morning, May 29th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For of Him and through Him and to Him, are all things: to whom be glory forever. Amen."  
 > Romans 11:36.  

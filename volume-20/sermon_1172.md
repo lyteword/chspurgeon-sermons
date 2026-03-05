@@ -1,6 +1,5 @@
 # Sermon 1172 | The Savior You Need
 
-(No. 1172)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, MAY 10, 1874,
 

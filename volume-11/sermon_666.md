@@ -1,6 +1,5 @@
 # Sermon 666 | Holy Work For Christmas
 
-Sermon No. 666 - Delivered on Sunday Morning, December 24th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > And when they had seen it, they made known abroad the saying which was told them concerning this Child. And all they that heard it wondered at those things which were told them by the shepherds. But Mary kept all these things and pondered them in her heart. And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them.    
 > Luke 2:17-20.    

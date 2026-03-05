@@ -1,6 +1,5 @@
 # Sermon 2473 | An Awful Contrast
 
-(No. 2473)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 12, 1896.
 

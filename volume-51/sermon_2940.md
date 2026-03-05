@@ -1,6 +1,5 @@
 # Sermon 2940 | "He Must Reign"
 
-(No. 2940)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 15, 1905.
 

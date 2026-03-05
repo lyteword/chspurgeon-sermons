@@ -1,6 +1,5 @@
 # Sermon 2719 | True Learning
 
-(No. 2719)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 24, 1901.
 

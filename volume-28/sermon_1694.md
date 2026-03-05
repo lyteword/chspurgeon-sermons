@@ -1,6 +1,5 @@
 # Sermon 1694 | The Use of the Bow
 
-(No. 1694)
 
 DELIVERED AT THE THURSDAY EVENING LECTURE,
 

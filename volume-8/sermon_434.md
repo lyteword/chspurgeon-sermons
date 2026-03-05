@@ -1,6 +1,5 @@
 # Sermon 434 | Threefold Sanctification
 
-Sermon No. 434 - Delivered on Sunday Morning, February 9th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Sanctified by God the Father ... Sanctified in Christ Jesus."  
 > Jude 1:1 & 1 Corinthians 1:2.  

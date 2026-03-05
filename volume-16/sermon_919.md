@@ -1,6 +1,5 @@
 # Sermon 919 | The King Feasting in his Garden
 
-(No. 919)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 6, 1870,
 

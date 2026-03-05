@@ -1,6 +1,5 @@
 # Sermon 3285 | Good Cheer From Christ's Victory Over the World
 
-(No. 3285)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 18, 1912.
 

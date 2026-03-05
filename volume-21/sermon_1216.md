@@ -1,6 +1,5 @@
 # Sermon 1216 | To Souls In Agony
 
-(No. 1216)
 
 DELIVERED BY
 

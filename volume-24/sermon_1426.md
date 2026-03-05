@@ -1,6 +1,5 @@
 # Sermon 1426 | The Lifting Up of the Bowed Down
 
-(No. 1426)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 14, 1878,
 

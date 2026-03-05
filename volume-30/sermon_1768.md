@@ -1,6 +1,5 @@
 # Sermon 1768 | First, King of Righteousness, and after That, King of Peace
 
-(No. 1768)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 8, 1884,
 

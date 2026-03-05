@@ -1,6 +1,5 @@
 # Sermon 1258 | The Hand of God in the History of a Man
 
-(No. 1258)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10 1875,
 

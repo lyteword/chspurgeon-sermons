@@ -1,6 +1,5 @@
 # Sermon 3253 | Faith Hand in Hand With Fear
 
-(No. 3253)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 8, 1911.
 

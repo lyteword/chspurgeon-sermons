@@ -1,6 +1,5 @@
 # Sermon 3336 | Beauty for Ashes
 
-(No. 3336)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 9, 1913.
 

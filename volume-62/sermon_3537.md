@@ -1,6 +1,5 @@
 # Sermon 3537 | A Definite Challenge for Definite Prayer
 
-(No. 3537)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1916.
 

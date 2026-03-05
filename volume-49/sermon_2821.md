@@ -1,6 +1,5 @@
 # Sermon 2821 | "Until He Finds It"
 
-(No. 2821)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1903.
 

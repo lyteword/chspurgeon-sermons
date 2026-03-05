@@ -1,6 +1,5 @@
 # Sermon 3166 | "A Greater Than Solomon"
 
-(No. 3166)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 14, 1909.
 

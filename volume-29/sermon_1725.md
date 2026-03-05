@@ -1,6 +1,5 @@
 # Sermon 1725 | Imitators of God
 
-(No. 1725)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 10, 1883,
 

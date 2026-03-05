@@ -1,6 +1,5 @@
 # Sermon 726 | Life Eternal
 
-Sermon No. 726 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of My hand."  
 > John 10:28.  

@@ -1,6 +1,5 @@
 # Sermon 1887 | Pleading For Prayer
 
-(No. 1887)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 21, 1886,
 

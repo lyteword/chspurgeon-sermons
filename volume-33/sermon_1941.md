@@ -1,6 +1,5 @@
 # Sermon 1941 | Grace For Communion
 
-Sermon No. 1941 - Delivered on Sunday Afternoon, January 2nd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Awake, O north wind, and come, you south; blow upon my garden, that the spices thereof may flow out. Let my Belo ved come into His garden and eat His pleasant fruits."  
 > Song of Solomon 4:16.  

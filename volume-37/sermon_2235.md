@@ -1,6 +1,5 @@
 # Sermon 2235 | A Warrant for Your Apprehension
 
-(No. 2235)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1891,
 

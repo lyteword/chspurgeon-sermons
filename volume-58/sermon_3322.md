@@ -1,6 +1,5 @@
 # Sermon 3322 | Hiding Among the Stuff
 
-(No. 3322)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 3, 1912.
 

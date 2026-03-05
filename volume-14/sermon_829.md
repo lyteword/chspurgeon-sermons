@@ -1,6 +1,5 @@
 # Sermon 829 | The Perfuming of the Heart
 
-A Sermon (No. 829)
 
 Delivered on Lord's Day Morning, September 6 1868, by C. H. SPURGEON, at the [39]Metropolitan Tabernacle, Newington.
 

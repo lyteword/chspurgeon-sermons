@@ -1,6 +1,5 @@
 # Sermon 1943 | Love Joying In Love
 
-Sermon No. 1943 - Delivered on Sunday Afternoon, January 9th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice; Ihave eaten Myhoneycomb with Myhoney; Ihave drunk My wine with My milk: eat, O friends; drink, yes, drink abundantly, O Beloved."  
 > Song of Solomon 5:1.  

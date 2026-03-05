@@ -1,6 +1,5 @@
 # Sermon 2214 | Barriers Broken Down
 
-(No. 2214)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 26, 1891,
 

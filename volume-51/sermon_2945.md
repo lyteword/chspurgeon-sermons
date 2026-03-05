@@ -1,6 +1,5 @@
 # Sermon 2945 | Night--and Jesus Not There!
 
-(No. 2945)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 20, 1905.
 

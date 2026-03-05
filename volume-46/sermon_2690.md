@@ -1,6 +1,5 @@
 # Sermon 2690 | Meditation on God
 
-(No. 2690)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 2, 1900.
 

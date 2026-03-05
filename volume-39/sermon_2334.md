@@ -1,6 +1,5 @@
 # Sermon 2334 | Our Service For Christ Never Finished
 
-(No. 2334)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 12, 1893.
 

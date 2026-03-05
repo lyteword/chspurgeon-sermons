@@ -1,6 +1,5 @@
 # Sermon 2419 | Repentance after Conversion
 
-(No. 2419)
 
 INTENDED FOR READING ON LORD'S DAY, JUNE 30, 1895.
 

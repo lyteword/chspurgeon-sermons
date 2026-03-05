@@ -1,6 +1,5 @@
 # Sermon 947 | Seeking For Jesus
 
-(No. 947)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 21, 1870,
 

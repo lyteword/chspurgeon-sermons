@@ -1,6 +1,5 @@
 # Sermon 3329 | Goodness Going Before
 
-(No. 3329)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 21, 1912.
 

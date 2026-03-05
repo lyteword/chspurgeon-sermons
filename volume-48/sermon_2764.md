@@ -1,6 +1,5 @@
 # Sermon 2764 | The Cloud of Doves
 
-(No. 2764)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 2, 1902.
 

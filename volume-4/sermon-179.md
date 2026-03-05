@@ -1,6 +1,5 @@
 # Sermon 179 | The Great Reservoir
 
-Sermon No. 179 - Delivered on Sabbath Morning, February 21, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Keep thy heart with all diligence; for out of it are the issues of life.    
 > Proverbs 4:23.    

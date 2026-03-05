@@ -1,6 +1,5 @@
 # Sermon 2694 | Grace Preferred to Gifts
 
-(No. 2694)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3O, 1900.
 

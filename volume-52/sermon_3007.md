@@ -1,6 +1,5 @@
 # Sermon 3007 | Gadding About
 
-(No. 3007)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 27, 1906.
 

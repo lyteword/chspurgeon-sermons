@@ -1,6 +1,5 @@
 # Sermon 1349 | Faith Purifying the Heart
 
-(No. 1349)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 15, 1877,
 

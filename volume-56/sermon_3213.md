@@ -1,6 +1,5 @@
 # Sermon 3213 | Blessings Traced to Their Source
 
-(No. 3213)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 1, 1910.
 

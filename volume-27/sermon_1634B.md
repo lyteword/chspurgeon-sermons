@@ -1,6 +1,5 @@
 # Sermon 1634B | Loved and Loving
 
-(No. 1634B)
 
 AMONG THE GOLDEN APPLE TREES,
 

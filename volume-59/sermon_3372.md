@@ -1,6 +1,5 @@
 # Sermon 3372 | Conversion and Character
 
-(No. 3372)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 18, 1913.
 

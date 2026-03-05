@@ -1,6 +1,5 @@
 # Sermon 864 | Life's Ever-Springing Well
 
-Sermon No. 864 - Delivered on Lord's-day Morning, APRIL 4, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "The water that I shall give him shall be in him a well of water springing up into everlasting life."- John 4:14.

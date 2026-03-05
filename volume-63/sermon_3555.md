@@ -1,6 +1,5 @@
 # Sermon 3555 | With Golden Band Girded
 
-(No. 3555)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 15, 1917.
 

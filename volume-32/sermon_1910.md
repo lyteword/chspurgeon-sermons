@@ -1,6 +1,5 @@
 # Sermon 1910 | The Heart of The Gospel
 
-Sermon No. 1910 - Delivered on Lord's-day Morning, July 18th, 1886 the REV. C.H. SPURGEON at the [10]Metropolitan Tabernacle, Newington.
 
 > "Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him."  
 > 2 Corinthians v 20,21.  

@@ -1,6 +1,5 @@
 # Sermon 2984 | A Silly Dove
 
-(No. 2984)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 19, 1906.
 

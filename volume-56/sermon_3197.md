@@ -1,6 +1,5 @@
 # Sermon 3197 | The Sweetness of God's Word
 
-(No. 3197)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 12, 1910.
 

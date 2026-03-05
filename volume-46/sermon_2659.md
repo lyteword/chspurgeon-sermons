@@ -1,6 +1,5 @@
 # Sermon 2659 | Fallen Asleep
 
-(No. 2659)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 28, 1900.
 

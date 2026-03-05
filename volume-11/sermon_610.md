@@ -1,6 +1,5 @@
 # Sermon 610 | The Great Need--Or, The Great Salvation
 
-Sermon No. 610 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > O that you had hearkened to My commandments! Then your peace would ha ve been like a river and your righteousness as the waves of the sea.    
 > Isaiah 48:18.    

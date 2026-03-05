@@ -1,6 +1,5 @@
 # Sermon 1040 | What and Whence Are These?
 
-Sermon No. 1040 - Delivered on Lord's Day Morning, February 25th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 'And one of the elders answered, saying unto me, What are these which are arrayed in white robes? and whence came they? And I said unto him, Sir, thou knowest. And he said to me, These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.''Revelation 7:13-14.
 

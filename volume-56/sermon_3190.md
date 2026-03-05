@@ -1,6 +1,5 @@
 # Sermon 3190 | Christ in Gethsemane
 
-(No. 3190)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 24, 1910.
 

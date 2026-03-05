@@ -1,6 +1,5 @@
 # Sermon 2393 | A Comforting Message for the Closing Year
 
-(No. 2393)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 30, 1894.
 

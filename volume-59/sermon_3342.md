@@ -1,6 +1,5 @@
 # Sermon 3342 | Faith Seeing God's Glory
 
-(No. 3342)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 20, 1913.
 

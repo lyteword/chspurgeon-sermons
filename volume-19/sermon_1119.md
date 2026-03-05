@@ -1,6 +1,5 @@
 # Sermon 1119 | The Spur
 
-(No. 1119)
 
 DELIVERED BY
 

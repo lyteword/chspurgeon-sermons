@@ -1,6 +1,5 @@
 # Sermon 539 | Heavenly Lovesickness!
 
-Sermon No. 539 - Delivered on Sunday Morning, November 8th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I charge you, O daughters of Jerusalem, if you find my Beloved, that you tell Him that I am sick of love."  
 > Song of Solomon 5:8.  

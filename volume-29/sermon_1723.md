@@ -1,6 +1,5 @@
 # Sermon 1723 | "Knock!"
 
-(No. 1723)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 27, 1883,
 

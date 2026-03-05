@@ -1,6 +1,5 @@
 # Sermon 3439 | Man Transient--god's Word Eternal
 
-(No. 3439)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1914.
 

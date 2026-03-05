@@ -1,6 +1,5 @@
 # Sermon 2625 | The Dumb Singing
 
-(No. 2625)
 
 INTENDED FOR READING OR LORD'S-DAY, JUNE 4, 1899.
 

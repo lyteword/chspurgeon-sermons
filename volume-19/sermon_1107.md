@@ -1,6 +1,5 @@
 # Sermon 1107 | A Call To Worship
 
-(No. 1107)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 20, 1873,
 

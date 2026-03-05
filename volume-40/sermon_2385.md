@@ -1,6 +1,5 @@
 # Sermon 2385 | Another Lesson From Manasseh's Life
 
-(No. 2385)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 4, 1894.
 

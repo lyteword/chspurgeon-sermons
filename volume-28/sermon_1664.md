@@ -1,6 +1,5 @@
 # Sermon 1664 | "Jehovah-Rophi"
 
-(No. 1664)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 11, 1882,
 

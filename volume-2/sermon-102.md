@@ -1,6 +1,5 @@
 # Sermon 102 | False Professors Solemnly Warned
 
-Sermon No. 102 - Delivered on Sabbath Evening, August 24, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > For many walk, of whom I have told you often, and now tell you even weeping, that they are the enemies of the cross of Christ: Whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things.    
 > Philippians 3:18-19.    

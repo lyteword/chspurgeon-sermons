@@ -1,6 +1,5 @@
 # Sermon 2858 | Migratory Birds
 
-(No. 2858)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1903.
 

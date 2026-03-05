@@ -1,6 +1,5 @@
 # Sermon 2092 | God's Own Gospel Call
 
-Sermon No. 2092 - Delivered on Sunday, June 30, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Incline your ear and come unto Me: hear and your soul shall live. And I will make an Everlasting Covenant with you, even the sure mercies of David."  
 > Isaiah 55:3.  

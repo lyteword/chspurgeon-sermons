@@ -1,6 +1,5 @@
 # Sermon 2224 | "If You Can"--"If You Can"
 
-(No. 2224)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 4, 1891,
 

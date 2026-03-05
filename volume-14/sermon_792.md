@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 792)
 
 Delivered on Lord's-Day Morning, January 26, 1868, by
 

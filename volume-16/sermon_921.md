@@ -1,6 +1,5 @@
 # Sermon 921 | Nathanael And The Fig Tree
 
-(No. 921)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 20, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 1592 | The Common Salvation
 
-(No. 1592)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1881,
 

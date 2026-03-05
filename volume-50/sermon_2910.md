@@ -1,6 +1,5 @@
 # Sermon 2910 | The Harvest and the Vintage
 
-(No. 2910)
 
 A SERMON PUBLISHED ON TUESDAY, NOVEMBER 17, 1904.
 

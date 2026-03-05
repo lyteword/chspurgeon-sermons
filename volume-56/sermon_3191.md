@@ -1,6 +1,5 @@
 # Sermon 3191 | The True Aim of Preaching
 
-(No. 3191)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 31, 1910.
 

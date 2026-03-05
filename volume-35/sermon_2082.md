@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 2082)
 
 Intended for Reading on Lord's-day, May 5th, 1888.
 

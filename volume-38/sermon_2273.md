@@ -1,6 +1,5 @@
 # Sermon 2273 | Fickle Followers
 
-(No. 2273)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 11, 1892.
 

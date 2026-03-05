@@ -1,6 +1,5 @@
 # Sermon 2456 | The Lamb Our Leader
 
-(No. 2456)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1896.
 

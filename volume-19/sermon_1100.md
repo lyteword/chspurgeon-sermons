@@ -1,6 +1,5 @@
 # Sermon 1100 | Good News for the Lost
 
-(No. 1100)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 9, 1873,
 

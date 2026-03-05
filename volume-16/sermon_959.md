@@ -1,6 +1,5 @@
 # Sermon 959 | Right Replies To Right Requests
 
-(No. 959)
 
 DELIVERED ON LORDS-DAY MORNING, NOVEMBER 6, 1870,
 

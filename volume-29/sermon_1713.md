@@ -1,6 +1,5 @@
 # Sermon 1713 | Other Sheep and One Flock
 
-(No. 1713)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1883,
 

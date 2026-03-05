@@ -1,6 +1,5 @@
 # Sermon 1124 | God Beseeching Sinners by His Ministers
 
-(No. 1124)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 27, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 2749 | Rehoboam the Unready
 
-(No. 2749)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 20, 1901.
 

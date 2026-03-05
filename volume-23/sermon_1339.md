@@ -1,6 +1,5 @@
 # Sermon 1339 | Idols Abolished
 
-(No. 1339)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 1666 | The First Recorded Words of Jesus
 
-(No. 1666)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 25, 1882,
 

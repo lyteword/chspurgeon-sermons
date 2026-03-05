@@ -1,6 +1,5 @@
 # Sermon 2834 | Conceit Rebuked
 
-(No. 2834)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 17, 1903.
 

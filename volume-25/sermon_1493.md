@@ -1,6 +1,5 @@
 # Sermon 1493 | The Glory of God in the Face of Jesus Christ
 
-(No. 1493)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 7, 1879,
 

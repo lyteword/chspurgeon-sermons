@@ -1,6 +1,5 @@
 # Sermon 3214 | Two Wilderness Incidents
 
-(No. 3214)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 8, 1910.
 

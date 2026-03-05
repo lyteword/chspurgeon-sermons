@@ -1,6 +1,5 @@
 # Sermon 1647 | The Dream of Pilate's Wife
 
-(No. 1647)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 26, 1882,
 

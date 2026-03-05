@@ -1,6 +1,5 @@
 # Sermon 943 | The Spur
 
-(No. 943)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 31, 1870,
 

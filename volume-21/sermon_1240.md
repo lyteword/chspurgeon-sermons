@@ -1,7 +1,5 @@
 # Sermon 1240 | The Song of Songs
 
-Sermon No. 1240 - Delivered on Lord's-Day Morning, June 13th, 1875 the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington.
-(No. 1240)
 
 NO DOUBT THIS PROPHECY had a fulfillment in the restoration of the captive Jews from Babylon, in the rebuilding of the temple, and the completion of the walls of Jerusalem. This made the nation rejoice with unspeakable joy, and made them cry, "Sing together, ye waste places of Jerusalem; for the Lord hath comforted his people, he hath redeemed Jerusalem." This was a fulfillment, but not the fullest accomplishment of the soul-stirring prophecy before us, a larger blessing was yet to come, to make every word emphatic and to enlarge the area of the joy till all the earth and all the spheres of heaven should take part in it. I shall spend no time upon the minor meanings of the passage, but speak at once of that redemption, of which all the rest are but types, the redemption of the true Israel of God by Christ Jesus our Lord. To that redemption the words of our text are preeminently applicable. "Sing, O ye heavens; for the Lord hath done it: shout, ye lower parts of the earth: break forth into singing, ye mountains, O forest, and every tree therein: for the Lord hath redeemed Jacob, and glorified himself in Israel."
 

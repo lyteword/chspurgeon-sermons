@@ -1,6 +1,5 @@
 # Sermon 2130 | The Deceitfulness of Sin
 
-Sermon No. 2130 - Delivered on Sunday Morning, February 16th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But exhort one another daily, while it is called Today; lest any of you be hardened through the deceitfulness of sin."  
 > Hebrews 3:13.  

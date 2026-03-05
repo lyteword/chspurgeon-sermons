@@ -1,6 +1,5 @@
 # Sermon 2730 | The Secret of Love to God
 
-(No. 2730)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 9, 1901.
 

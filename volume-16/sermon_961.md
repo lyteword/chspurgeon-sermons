@@ -1,6 +1,5 @@
 # Sermon 961 | The Saint One With His Savior
 
-(No. 961)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 20, 1870,
 

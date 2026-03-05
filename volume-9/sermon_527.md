@@ -1,6 +1,5 @@
 # Sermon 527 | The Red Heifer
 
-Sermon No. 527 - Delivered on Sunday Morning, August 30th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "This is the ordinance of the la w, which the Lord has commanded, saying, Speak unto the children of Israel, that they bring you a red heifer without spot, wherein is no blemish and upon which never came yoke: and you shall give her unto Eleazar the priest, that he may bring her forth without the camp and one shall slay her before his face."  
 > Numbers 19:2,3.  

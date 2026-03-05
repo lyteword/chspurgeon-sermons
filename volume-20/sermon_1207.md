@@ -1,6 +1,5 @@
 # Sermon 1207 | A Solemn Impeachment of Unbelievers
 
-(No. 1207)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 13, 1874,
 

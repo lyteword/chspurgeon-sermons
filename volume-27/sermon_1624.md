@@ -1,6 +1,5 @@
 # Sermon 1624 | Welcome! Welcome!
 
-(No. 1624)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 16, 1881,
 

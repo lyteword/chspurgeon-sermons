@@ -1,6 +1,5 @@
 # Sermon 2649 | Girded for the Work
 
-(No. 2649)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 19, 1899.
 

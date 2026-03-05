@@ -1,6 +1,5 @@
 # Sermon 1567 | The Blood of the Covenant
 
-(No. 1567)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 14, 1880,
 

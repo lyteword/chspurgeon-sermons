@@ -1,6 +1,5 @@
 # Sermon 2400 | Number 2400--or, "Escape for Your Life!"
 
-(No. 2400)
 
 INTENDED FOR READING ON LORD'S DAY, FEBRUARY 17, 1895.
 

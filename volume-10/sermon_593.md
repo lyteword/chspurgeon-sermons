@@ -1,6 +1,5 @@
 # Sermon 593 | Inward Conflicts
 
-Sermon No. 593 - Delivered on Sunday Morning, October 9th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Return, return, O Shulamite; return, return, that we may look upon you. What will you see in the Shulamite? As it were the company of two armies."  
 > Song of Solomon 6:13.  

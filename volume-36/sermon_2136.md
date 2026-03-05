@@ -1,6 +1,5 @@
 # Sermon 2136 | Possessing Possessions
 
-Sermon No. 2136 - Delivered on Sunday Morning, March 23rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But upon Mount Zion shall be deliverance, and there shall be holiness; and the house of Jacob shall possess their possessions."  
 > Obadiah 1:17.  

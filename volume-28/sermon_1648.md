@@ -1,6 +1,5 @@
 # Sermon 1648 | Pilate and Ourselves Guilty of the Savior's Death
 
-(No. 1648)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 5, 1882,
 

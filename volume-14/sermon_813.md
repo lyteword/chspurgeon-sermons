@@ -1,6 +1,5 @@
 # Sermon 813 | The Privileged Man
 
-A Sermon (No. 813)
 
 Delivered on Sunday Morning, May 31, 1868, by C. H. SPURGEON, at the [23]Metropolitan Tabernacle, Newington.
 

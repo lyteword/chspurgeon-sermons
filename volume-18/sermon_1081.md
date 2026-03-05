@@ -1,6 +1,5 @@
 # Sermon 1081 | A Visit to the Tomb
 
-(No. 1081)
 
 DELIVERED
 

@@ -1,6 +1,5 @@
 # Sermon 25 | The Hope of Future Bliss
 
-Sermon No. 25 - Delivered on Sabbath Evening, May 20, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > As for me, I will behold thy face in righteousness; I shall be satisfied, when I awake, with thy likeness.    
 > Psalm 17:15.    

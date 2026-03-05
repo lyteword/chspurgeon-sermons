@@ -1,6 +1,5 @@
 # Sermon 3045 | Believers A Blessing
 
-(No. 3045)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 20, 1907.
 

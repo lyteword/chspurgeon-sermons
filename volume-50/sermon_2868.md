@@ -1,6 +1,5 @@
 # Sermon 2868 | "Ready, Yes, Ready!"
 
-(No. 2868)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1904.
 

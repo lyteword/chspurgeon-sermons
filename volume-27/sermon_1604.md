@@ -1,6 +1,5 @@
 # Sermon 1604 | Heart Disease Curable
 
-(No. 1604)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 19, 1881,
 

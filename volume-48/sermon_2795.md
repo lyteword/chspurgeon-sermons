@@ -1,6 +1,5 @@
 # Sermon 2795 | The Double Drawing Near
 
-(No. 2795)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 7, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 1689 | The General Convocation Around Mount Zion
 
-(No. 1689)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 5, 1882,
 

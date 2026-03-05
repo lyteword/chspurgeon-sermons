@@ -1,6 +1,5 @@
 # Sermon 1739 | Bankrupt Debtors Discharged
 
-(No. 1739)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 16, 1883,
 

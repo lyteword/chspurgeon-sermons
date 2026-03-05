@@ -1,6 +1,5 @@
 # Sermon 3093 | The Church of God and the Truth of God
 
-(No. 3093)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 21, 1908.
 

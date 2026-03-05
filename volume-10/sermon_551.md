@@ -1,6 +1,5 @@
 # Sermon 551 | Faith and Life
 
-Sermon No. 551 - Delivered on Sunday Morning, January 24th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Simon Peter, a servant and an apostle of Jesus Christ, to them that have obtained like precious faith with us through the righteousness of God and our Saviour Jesus Christ; grace and peace be multiplied unto you through the knowledge of God, and of Jesus our Lord, according as his divine power hath given unto us all things that pertain unto life and godliness, through the knowledge of him that hath called us to glory and virtue: whereby are given unto us exceeding great and precious promises: that by these ye might be partakers of the divine nature, having escaped the corruption that is in the world through lust."  
 > 2 Peter 1:1-4.  

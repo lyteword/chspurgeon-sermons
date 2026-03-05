@@ -1,6 +1,5 @@
 # Sermon 1735 | The Doctrines of Grace Do Not Lead to Sin
 
-Sermon No. 1735 - Delivered on Lord's Day Morning, August 19th, 1883 the REV. C.H. SPURGEON at Exeter-Hall.
 
 > "For sin shall not have dominion over you: for ye are not under the law, but under grace. What then? shall we sin, because we are not under the law, but under grace? God forbid."  
 > Romans 6:14, 15.  

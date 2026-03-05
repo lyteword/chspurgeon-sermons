@@ -1,6 +1,5 @@
 # Sermon 1589 | A Hasty Expression Penitently Retracted
 
-(No. 1589)
 
 DELIVERED BY
 

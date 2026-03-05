@@ -1,6 +1,5 @@
 # Sermon 2438 | "Two Immutable Things"
 
-(No. 2438)
 
 INTENDED FOR READING ON LORD'S DAY, NOVEMBER 10, 1895.
 

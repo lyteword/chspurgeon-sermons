@@ -1,6 +1,5 @@
 # Sermon 3330 | Two Choice Assurances
 
-(No. 3330)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 28, 1912.
 

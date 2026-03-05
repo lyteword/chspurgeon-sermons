@@ -1,6 +1,5 @@
 # Sermon 1736 | The King's Weighings
 
-(No. 1736)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 26. 1883,
 

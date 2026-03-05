@@ -1,6 +1,5 @@
 # Sermon 833 | The Lord's Name and Memorial
 
-A Sermon (No. 833)
 
 Delivered on Lord's-Day Morning, September 27, 1868, by C. H. SPURGEON, at the [42]Metropolitan Tabernacle, Newington.
 

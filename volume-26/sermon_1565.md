@@ -1,6 +1,5 @@
 # Sermon 1565 | Maschil Of Ethan, A Majestic Song
 
-(No. 1565)
 
 DELIVERED BY
 

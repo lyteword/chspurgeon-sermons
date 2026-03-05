@@ -1,6 +1,5 @@
 # Sermon 2855 | The Lesson of Uzza
 
-(No. 2855)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1903.
 

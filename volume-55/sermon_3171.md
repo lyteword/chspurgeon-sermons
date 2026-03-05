@@ -1,6 +1,5 @@
 # Sermon 3171 | A Voice With Four Messages
 
-(No. 3171)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 18, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 3357 | Heedful Hearing
 
-(No. 3357)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 5, 1913.
 

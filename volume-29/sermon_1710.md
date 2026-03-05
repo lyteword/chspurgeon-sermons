@@ -1,6 +1,5 @@
 # Sermon 1710 | Incense and Light
 
-(No. 1710)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 11, 1883,
 

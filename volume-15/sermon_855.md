@@ -1,6 +1,5 @@
 # Sermon 855 | Everyday Usefulness
 
-Sermon No. 855 - Delivered on Lord's-day Morning, FEBRUARY 14, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And he brought him to Jesus."- John 1:42.

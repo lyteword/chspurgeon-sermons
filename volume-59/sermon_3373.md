@@ -1,6 +1,5 @@
 # Sermon 3373 | Man's Scorn and God's Succor
 
-(No. 3373)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 25, 1913.
 

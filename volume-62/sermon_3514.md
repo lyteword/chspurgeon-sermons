@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 3514)
 
 Published on Thursday, June 1st, 1916.
 

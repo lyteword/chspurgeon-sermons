@@ -1,6 +1,5 @@
 # Sermon 3429 | "Accepted in the Beloved"
 
-(No. 3429)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 3245 | Our Position and Our Purpose
 
-(No. 3245)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 13, 1911.
 

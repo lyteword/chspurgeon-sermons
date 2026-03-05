@@ -1,6 +1,5 @@
 # Sermon 2871 | Anxiety, Ambition, Indecision
 
-(No. 2871)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 18, 1904.
 

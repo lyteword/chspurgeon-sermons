@@ -1,6 +1,5 @@
 # Sermon 1319 | The Sinner's Savior
 
-(No. 1319)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 1, 1876,
 

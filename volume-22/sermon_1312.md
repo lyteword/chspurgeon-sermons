@@ -1,6 +1,5 @@
 # Sermon 1312 | Good News for Seekers
 
-(No. 1312)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 3, 1876,
 

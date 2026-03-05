@@ -1,6 +1,5 @@
 # Sermon 1450 | The Immovability of the Believer
 
-(No. 1450)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 22, 1878,
 

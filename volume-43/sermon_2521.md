@@ -1,6 +1,5 @@
 # Sermon 2521 | Deadness and Quickning
 
-(No. 2521)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 13, 1897.
 

@@ -1,6 +1,5 @@
 # Sermon 3198 | What Christians Were and Are
 
-(No. 3198)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 19, 1910.
 

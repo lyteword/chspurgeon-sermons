@@ -1,6 +1,5 @@
 # Sermon 1760 | "He Shall Be Great"
 
-(No. 1760)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, DECEMBER 2, 1883,
 

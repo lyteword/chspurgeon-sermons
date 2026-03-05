@@ -1,6 +1,5 @@
 # Sermon 3312 | The Carpenter's Son and His Relations
 
-(No. 3312)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 25, 1912.
 

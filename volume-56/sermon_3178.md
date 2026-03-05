@@ -1,6 +1,5 @@
 # Sermon 3178 | The Preparatory Prayers of Christ
 
-(No. 3178)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 30TH, 1909,
 

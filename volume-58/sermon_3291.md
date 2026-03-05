@@ -1,6 +1,5 @@
 # Sermon 3291 | The Sea! the Sea! the Wide and Open Sea!
 
-(No. 3291)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 29, 1912.
 

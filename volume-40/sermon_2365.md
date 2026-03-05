@@ -1,6 +1,5 @@
 # Sermon 2365 | "Goodness, as a Morning Cloud"
 
-(No. 2365)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 17, 1894.
 

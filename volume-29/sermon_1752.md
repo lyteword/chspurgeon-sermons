@@ -1,6 +1,5 @@
 # Sermon 1752 | Mourners, Inquirers, Covenanters
 
-(No. 1752)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 25, 1883,
 

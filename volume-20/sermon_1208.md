@@ -1,6 +1,5 @@
 # Sermon 1208 | Infallibility--Where To Find It and How To Use It
 
-(No. 1208)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 20, 1874,
 

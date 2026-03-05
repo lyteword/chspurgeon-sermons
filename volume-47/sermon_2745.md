@@ -1,6 +1,5 @@
 # Sermon 2745 | Intercession and Supplication
 
-(No. 2745)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 22, 1901.
 

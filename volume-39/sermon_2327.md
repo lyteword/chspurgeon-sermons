@@ -1,6 +1,5 @@
 # Sermon 2327 | The Whole Machinery of Salvation
 
-(No. 2327)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 24, 1893.
 

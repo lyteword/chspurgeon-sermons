@@ -1,6 +1,5 @@
 # Sermon 2165 | The Serpent's Sentence
 
-Sermon No. 2165 - Delivered on Sunday Morning, September 21st the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And the Lord God said unto the serpent, Because you have done this, you are cursed above all cattle, and above every beast of the field. Upon your belly shall you go, and dust shall you eat all the days of your life: and I will put enmity between you and the woman, and between your seed and her Seed; it shall bruise your head, and you shall bruise His heel."  
 > Genesis 3:14,15.  

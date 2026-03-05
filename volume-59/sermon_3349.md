@@ -1,6 +1,5 @@
 # Sermon 3349 | "The Garment of Praise"
 
-(No. 3349)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 10, 1913.
 

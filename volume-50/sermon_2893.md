@@ -1,6 +1,5 @@
 # Sermon 2893 | An Instructive Truth
 
-(No. 2893)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 21, 1904.
 

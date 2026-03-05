@@ -1,6 +1,5 @@
 # Sermon 1358 | All the People at Work for Jesus
 
-(No. 1358)
 
 DELIVERED ON WEDNESDAY MORNING, MAY 9, 1877,
 

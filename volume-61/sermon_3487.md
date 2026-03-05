@@ -1,6 +1,5 @@
 # Sermon 3487 | The Honored Guest
 
-(No. 3487)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 25, 1915.
 

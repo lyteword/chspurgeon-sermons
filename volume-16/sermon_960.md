@@ -1,6 +1,5 @@
 # Sermon 960 | Iconoclast
 
-(No. 960)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 13, 1870,
 

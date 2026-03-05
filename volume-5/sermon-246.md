@@ -1,6 +1,5 @@
 # Sermon 246 | Mr. Fearing Comforted
 
-Sermon No. 246 - Delivered on Sabbath Morning, April 3rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > O thou of little faith, wherefore didst thou doubt?    
 > Matthew 14:31.    

@@ -1,6 +1,5 @@
 # Sermon 840 | Do Not Sin Against the Child
 
-A Sermon (No. 840)
 
 Delivered on Lord's-Day Morning, November 8, 1868, by C. H. SPURGEON, at the [48]Metropolitan Tabernacle Newington.
 

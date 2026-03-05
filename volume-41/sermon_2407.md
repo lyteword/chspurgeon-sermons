@@ -1,6 +1,5 @@
 # Sermon 2407 | Feeding On a Whole Christ
 
-(No. 2407)
 
 INTENDED FOR READING ON LORD'S DAY APRIL 7, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 2750 | A Door of Hope
 
-(No. 2750)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 27, 1901.
 

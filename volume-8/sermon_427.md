@@ -1,6 +1,5 @@
 # Sermon 427 | A Psalm For The New Year
 
-Sermon No. 427 - Delivered on Sunday Morning, January 5th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But grow in grace and in the knowledge of our Lord and Savior Jesus Christ. To Him be glory both now and forever. Amen."  
 > 2 Peter 3:18.  

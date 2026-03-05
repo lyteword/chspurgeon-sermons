@@ -1,6 +1,5 @@
 # Sermon 3028 | God's Glory Our Rereward
 
-(No. 3028)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 21, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 558 | A Bundle of Myrrh
 
-Sermon No. 558 - Delivered on Sunday Morning, February 28th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "A bundle of myrrh is my well-beloved unto me; he shall lie all night betwixt my breasts."  
 > Song of Solomon 1:13.  

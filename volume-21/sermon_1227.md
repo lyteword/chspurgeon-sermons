@@ -1,6 +1,5 @@
 # Sermon 1227 | Spiritual Appetite
 
-(No. 1227)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1875,
 

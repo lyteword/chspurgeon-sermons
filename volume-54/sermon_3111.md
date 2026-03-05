@@ -1,6 +1,5 @@
 # Sermon 3111 | Warning and Encouragement
 
-(No. 3111)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1908.
 

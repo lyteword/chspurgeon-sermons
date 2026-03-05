@@ -1,6 +1,5 @@
 # Sermon 2568 | Sabbath-work
 
-(No. 2568)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 1, 1898.
 

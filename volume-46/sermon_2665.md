@@ -1,6 +1,5 @@
 # Sermon 2665 | A Day to Be Remembered
 
-(No. 2665)
 
 INTENDED FOR READING ON LORD'S DAY, MARCH 11, 1900.
 

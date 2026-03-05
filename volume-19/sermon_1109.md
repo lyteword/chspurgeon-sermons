@@ -1,6 +1,5 @@
 # Sermon 1109 | The Light of the World
 
-(No. 1109)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1873,
 

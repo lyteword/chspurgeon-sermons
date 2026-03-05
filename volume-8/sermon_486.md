@@ -1,6 +1,5 @@
 # Sermon 486 | The Sinner's End
 
-Sermon No. 486 - Delivered on Sunday Morning, December 28th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Until I went into the sanctuary of God; then understood I their end. Surely thou didst set them in slippery places: thou castedst them down into destruction."  
 > Psalm 73:17, 18.  

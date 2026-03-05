@@ -1,6 +1,5 @@
 # Sermon 1593 | Rejecters Of The Gospel Admonished
 
-(No. 1593)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 17, 1881,
 

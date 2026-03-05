@@ -1,6 +1,5 @@
 # Sermon 1625 | Without Christ--Nothing
 
-(No. 1625)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 23, 1881,
 

@@ -1,6 +1,5 @@
 # Sermon 2218 | "Is the Spirit of the Lord Straitened?"
 
-(No. 2218)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 23, 1891,
 

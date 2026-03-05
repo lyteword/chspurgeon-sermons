@@ -1,6 +1,5 @@
 # Sermon 2762 | Taking Hold of God's Covenant
 
-(No. 2762)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 19, 1902.
 

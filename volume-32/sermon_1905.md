@@ -1,6 +1,5 @@
 # Sermon 1905 | Healing and Pardon
 
-(No. 1905)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 20, 1886,
 

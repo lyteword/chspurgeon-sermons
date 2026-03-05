@@ -1,6 +1,5 @@
 # Sermon 2618 | "Straightway"
 
-(No. 2618)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 16, 1899.
 

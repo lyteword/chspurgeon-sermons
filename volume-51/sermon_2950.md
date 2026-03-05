@@ -1,6 +1,5 @@
 # Sermon 2950 | True and Not True
 
-(No. 2950)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1905.
 

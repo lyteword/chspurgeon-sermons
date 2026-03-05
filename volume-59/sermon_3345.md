@@ -1,6 +1,5 @@
 # Sermon 3345 | Sunlight for Cloudy Days
 
-(No. 3345)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 13, 1913.
 

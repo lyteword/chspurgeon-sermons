@@ -1,6 +1,5 @@
 # Sermon 2919 | "Whose Goodness Never Fails"
 
-(No. 2919)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 19, 1905.
 

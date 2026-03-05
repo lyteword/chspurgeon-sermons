@@ -1,6 +1,5 @@
 # Sermon 2809 | Faith--life
 
-(No. 2809)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 14, 1902.
 

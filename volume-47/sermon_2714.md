@@ -1,6 +1,5 @@
 # Sermon 2714 | Those Who Desire
 
-(No. 2714)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 17, 1901.
 

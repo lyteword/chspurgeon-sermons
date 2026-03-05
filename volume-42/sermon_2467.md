@@ -1,6 +1,5 @@
 # Sermon 2467 | Christ and His Co-workers
 
-(No. 2467)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 31, 1896,
 

@@ -1,6 +1,5 @@
 # Sermon 3541 | A Memorable Interview
 
-(No. 3541)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1916.
 

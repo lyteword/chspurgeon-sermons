@@ -1,6 +1,5 @@
 # Sermon 1547 | Samuel and the Young Man Saul
 
-(No. 1547)
 
 DELIVERED BY
 

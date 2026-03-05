@@ -1,6 +1,5 @@
 # Sermon 1610 | A Miniature Portrait Of Joseph
 
-(No. 1610)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 24, 1881,
 

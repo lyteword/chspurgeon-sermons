@@ -1,6 +1,5 @@
 # Sermon 3315 | Joy in Harvest
 
-(No. 3315)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 16, 1912.
 

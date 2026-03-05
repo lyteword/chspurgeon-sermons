@@ -1,6 +1,5 @@
 # Sermon 1256 | The Old Man's Sermon
 
-(No. 1256)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 26, 1875,
 

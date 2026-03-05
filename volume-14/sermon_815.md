@@ -1,6 +1,5 @@
 # Sermon 815 | Daniel's Undaunted Courage
 
-A Sermon (No. 815)
 
 Delivered on Sunday Morning, June 14, 1868, by C. H. SPURGEON, at the [25]Metropolitan Tabernacle, Newington.
 

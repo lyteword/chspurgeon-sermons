@@ -1,6 +1,5 @@
 # Sermon 2503 | The Question Between the Plagues
 
-(No. 2503)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1897.
 

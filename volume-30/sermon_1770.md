@@ -1,6 +1,5 @@
 # Sermon 1770 | Recruits for King Jesus
 
-(No. 1770)
 
 A SERMON PREACHED ON LORD'S-DAY EVENING, FEBRUARY 17, 1884,
 

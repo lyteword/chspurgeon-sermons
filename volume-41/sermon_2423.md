@@ -1,6 +1,5 @@
 # Sermon 2423 | The Model Soul-winner
 
-(No. 2423)
 
 INTENDED FOR READING ON LORD'S DAY, JULY 28, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 1378 | The Righteous Father Known and Loved
 
-(No. 1378)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 14, 1877,
 

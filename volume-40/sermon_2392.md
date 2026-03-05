@@ -1,6 +1,5 @@
 # Sermon 2392 | The Birth Of Christ
 
-(No. 2392)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 23, 1891.
 

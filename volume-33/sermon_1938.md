@@ -1,6 +1,5 @@
 # Sermon 1938 | The Master Key--Opening the Gate of Heaven
 
-Sermon No. 1938 - Delivered on Sunday Evening, January 2nd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And You said, I will surely do you good."  
 > Genesis 32:12.  

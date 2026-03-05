@@ -1,6 +1,5 @@
 # Sermon 581 | Children Brought to Christ, and Not to the Font
 
-Sermon No. 581 - Delivered on Sunday Morning, July 24th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And they brought young children to him, that he should touch them: and his disciples rebuked those that brought them. But when Jesus saw it, he was much displeased, and said unto them, Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God. Verily I say unto you, whosoever shall not receive the kingdom of God as a little child, he shall not enter therein. And he took them up in his arms, put his hands upon them, and blessed them"  
 > Mark 10:13-16.  

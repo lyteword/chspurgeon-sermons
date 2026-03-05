@@ -1,6 +1,5 @@
 # Sermon 1860 | "Behold, He Prays"
 
-(No. 1860)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 20, 1885,
 

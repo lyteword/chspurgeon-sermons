@@ -1,6 +1,5 @@
 # Sermon 1155 | The Chariots Of Amminadib
 
-(No. 1155)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 2396 | Eternal Life!
 
-(No. 2396)
 
 INTENDED FOR READING ON LORD'S DAY, JANUARY 20, 1895,
 

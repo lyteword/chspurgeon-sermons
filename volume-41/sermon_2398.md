@@ -1,6 +1,5 @@
 # Sermon 2398 | Mediation of Moses
 
-(No. 2398)
 
 INTENDED FOR READING ON LORD'S DAY, FEBRUARY 3, 1895.
 

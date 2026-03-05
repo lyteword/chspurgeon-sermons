@@ -1,6 +1,5 @@
 # Sermon 601 | A Solemn Enquiry Concerning Our Families
 
-Sermon No. 601 - Delivered on Sunday Morning, November 20th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And the men said unto Lot, have you here any besides? Son-in-law and your sons, and your daughters and whatever you ha ve in the city, bring them out of this place."  
 > Genesis 19:12.  

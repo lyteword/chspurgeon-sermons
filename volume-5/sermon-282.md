@@ -1,6 +1,5 @@
 # Sermon 282 | Christ's Estimate of His People
 
-Sermon No. 282 - Delivered on Sabbath Evening, January 23rd, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > How fair is thy love, my sister, my spouse! how much better is thy love than wine! and the smell of thine ointments than all spices! Thy lips, O my spouse, drop as the honeycomb: honey and milk are under thy tongue, and the smell of thy garments is like the smell of Lebanon.    
 > Song of Solomon 4:10-11.    

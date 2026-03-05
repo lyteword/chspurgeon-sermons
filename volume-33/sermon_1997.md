@@ -1,6 +1,5 @@
 # Sermon 1997 | God's Longsuffering: An Appeal to the Conscience
 
-Sermon No. 1997 - Delivered on 1886 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And account that the longsuffering of our Lord is salvation."  
 > 2 Peter 3:15.  

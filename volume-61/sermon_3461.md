@@ -1,6 +1,5 @@
 # Sermon 3461 | The Welcome Visitor
 
-(No. 3461)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 3, 1915.
 

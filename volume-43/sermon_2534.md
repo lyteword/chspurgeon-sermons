@@ -1,6 +1,5 @@
 # Sermon 2534 | The Greatest Gift in Time or Eternity
 
-(No. 2534)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 12, 1897.
 

@@ -1,6 +1,5 @@
 # Sermon 3398 | Love's Great Reason
 
-(No. 3398)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 19, 1914.
 

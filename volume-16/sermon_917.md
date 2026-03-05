@@ -1,6 +1,5 @@
 # Sermon 917 | Precious, Honorable, Beloved
 
-(No. 917)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 20, 1870,
 

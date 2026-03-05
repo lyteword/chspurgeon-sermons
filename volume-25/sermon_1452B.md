@@ -1,6 +1,5 @@
 # Sermon 1452B | The Rider on the White Horse and the Armies with Him
 
-(No. 1452B)
 
 DELIVERED BY
 

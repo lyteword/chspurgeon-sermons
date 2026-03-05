@@ -1,6 +1,5 @@
 # Sermon 2849 | Remembering God's Works
 
-(No. 2849)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1903.
 

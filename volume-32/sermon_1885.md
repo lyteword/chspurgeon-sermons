@@ -1,6 +1,5 @@
 # Sermon 1885 | The Problem of the Age
 
-(No. 1885)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 7, 1886,
 

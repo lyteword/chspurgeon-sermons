@@ -1,6 +1,5 @@
 # Sermon 2942 | The Objective of the Lord's Supper
 
-(No. 2942)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 29, 1905.
 

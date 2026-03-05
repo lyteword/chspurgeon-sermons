@@ -1,6 +1,5 @@
 # Sermon 1848 | The Looking Glass
 
-(No. 1848)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 5, 1885,
 

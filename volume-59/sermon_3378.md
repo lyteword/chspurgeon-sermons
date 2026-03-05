@@ -1,6 +1,5 @@
 # Sermon 3378 | God's Prison, Warden and Prisoner
 
-(No. 3378)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 30, 1913.
 

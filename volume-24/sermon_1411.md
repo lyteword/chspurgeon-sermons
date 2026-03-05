@@ -1,6 +1,5 @@
 # Sermon 1411 | Under Constraint
 
-(No. 1411)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 28, 1878,
 

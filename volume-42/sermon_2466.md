@@ -1,6 +1,5 @@
 # Sermon 2466 | Unpurchasable Love
 
-(No. 2466)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 24, 1896.
 

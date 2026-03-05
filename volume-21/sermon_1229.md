@@ -1,6 +1,5 @@
 # Sermon 1229 | Decision--Illustrated by the Case of Joshua
 
-(No. 1229)
 
 A SERMON DELIVERED OF LORD'S-DAY MORNING, APRIL 18, 1875,
 

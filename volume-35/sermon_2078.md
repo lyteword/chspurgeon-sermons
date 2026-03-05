@@ -1,6 +1,5 @@
 # Sermon 2078 | The Believing Thief
 
-Sermon No. 2078 - Delivered on Lord's-day Morning, April 7th the REV. C.H. SPURGEON at [3]the Metropolitan Tabernacle, Newington.
 
 > "And he said unto Jesus, Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise."'Luke 23:42-43.  
 > "And he said unto Jesus, Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise."'Luke 23:42-43.  
@@ -99,4 +98,3 @@ PORTION OF SCRIPTURE READ BEFORE SERMON'Luke 23:27-49.
 
 HYMNS FROM "OUR OWN HYMN BOOK"'241, 288, 506.
 
-* No. 1881. "The Dying Thief in a New Light."

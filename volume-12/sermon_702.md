@@ -1,6 +1,5 @@
 # Sermon 702 | Peter's Three Calls
 
-Sermon No. 702 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The two disciples heard him speak, and they followed Jesus."  
 > John 1:37.  

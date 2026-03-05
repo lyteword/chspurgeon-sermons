@@ -1,6 +1,5 @@
 # Sermon 785 | Wanted, A Guest Chamber!
 
-Sermon No. 785 - Delivered on Lord's-day Morning, DECEMBER 15, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "The Master says, Where is the guest chamber, where I shall eat the Passover with My disciples."- Mark 14:14.

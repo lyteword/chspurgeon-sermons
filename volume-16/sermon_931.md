@@ -1,6 +1,5 @@
 # Sermon 931 | Three Precious Things
 
-(No. 931)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 8, 1870,
 

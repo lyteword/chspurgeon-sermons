@@ -1,6 +1,5 @@
 # Sermon 3048 | The Holy Spirit in the Covenant
 
-(No. 3048)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 11, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 3103 | A Pastoral Visit
 
-(No. 3103)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 30, 1908.
 

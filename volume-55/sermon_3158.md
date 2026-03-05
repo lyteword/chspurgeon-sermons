@@ -1,6 +1,5 @@
 # Sermon 3158 | The Fifth Beatitude
 
-(No. 3158)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 19, 1909.
 

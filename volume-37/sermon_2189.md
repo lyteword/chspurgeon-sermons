@@ -1,6 +1,5 @@
 # Sermon 2189 | A Call To Prayer and Testimony
 
-(No. 2189)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 8, 1891,
 

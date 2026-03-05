@@ -1,6 +1,5 @@
 # Sermon 1406 | Remember!
 
-(No. 1406)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 31, 1878,
 

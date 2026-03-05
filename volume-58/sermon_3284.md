@@ -1,6 +1,5 @@
 # Sermon 3284 | The Sequel to Divine Sovereignty
 
-(No. 3284)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1912.
 

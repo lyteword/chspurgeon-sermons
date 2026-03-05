@@ -1,6 +1,5 @@
 # Sermon 2584 | Place for the Word
 
-(No. 2584)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 21, 1898.
 

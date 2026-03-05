@@ -1,6 +1,5 @@
 # Sermon 2597 | A Prayer for Everybody
 
-(No. 2597)
 
 A SERMON DELIVERED BY
 

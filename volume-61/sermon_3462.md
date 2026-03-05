@@ -1,6 +1,5 @@
 # Sermon 3462 | To the Rescue
 
-(No. 3462)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 10, 1915.
 

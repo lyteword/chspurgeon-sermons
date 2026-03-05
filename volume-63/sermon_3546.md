@@ -1,6 +1,5 @@
 # Sermon 3546 | Assurance Sought
 
-(No. 3546)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1917.
 

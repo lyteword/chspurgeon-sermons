@@ -1,6 +1,5 @@
 # Sermon 2548 | Four Contrasts
 
-(No. 2548)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 19, 1897.
 

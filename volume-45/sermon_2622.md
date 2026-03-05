@@ -1,6 +1,5 @@
 # Sermon 2622 | Watching to See
 
-(No. 2622)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 14, 1899.
 

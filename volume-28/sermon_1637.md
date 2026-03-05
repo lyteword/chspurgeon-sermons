@@ -1,6 +1,5 @@
 # Sermon 1637 | The Beginning of Months
 
-(No. 1637)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 1, 1882.
 

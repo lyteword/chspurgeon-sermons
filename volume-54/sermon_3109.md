@@ -1,6 +1,5 @@
 # Sermon 3109 | Sowing and Reaping
 
-(No. 3109)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 10, 1908.
 

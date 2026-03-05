@@ -1,6 +1,5 @@
 # Sermon 322 | A Divine Challenge!
 
-Sermon No. 322 - Delivered on Sabbath Evening, April 22nd, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Thus says the Lord, let My people go, that they may serve Me.    
 > Exodus 8:1.    

@@ -1,6 +1,5 @@
 # Sermon 3484 | Daniel--a Pattern for Pleaders
 
-(No. 3484)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 4, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 2740 | What Is Essential in Coming to God?
 
-(No. 2740)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 18, 1901.
 

@@ -1,6 +1,5 @@
 # Sermon 2351 | Prayer, The Cure for Care
 
-(No. 2351)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 11, 1984.
 

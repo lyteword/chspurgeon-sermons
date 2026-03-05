@@ -1,6 +1,5 @@
 # Sermon 2411 | Why Some Seekers Are Not Saved
 
-(No. 2411)
 
 INTENDED FOR READING ON LORD'S DAY, MAY 5, 1895.
 

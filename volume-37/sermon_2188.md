@@ -1,6 +1,5 @@
 # Sermon 2188 | Entangled in the Land
 
-(No. 2188)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 8, 1891
 

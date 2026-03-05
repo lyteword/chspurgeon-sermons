@@ -1,6 +1,5 @@
 # Sermon 841 | Crowding to Touch the Savior
 
-A Sermon (No. 841)
 
 Delivered on Lord's-Day Morning, November 13, 1868, by C. H. SPURGEON, at Bloomsbury Chapel.
 

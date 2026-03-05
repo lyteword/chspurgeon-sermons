@@ -1,6 +1,5 @@
 # Sermon 3203 | Christ Made Sin
 
-(No. 3203)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 23, 1910.
 

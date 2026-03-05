@@ -1,6 +1,5 @@
 # Sermon 2881 | Feeble Faith Appealing to a Strong Savior
 
-(No. 2881)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 28, 1904.
 

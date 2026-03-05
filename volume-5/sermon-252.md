@@ -1,6 +1,5 @@
 # Sermon 252 | Holy Violence
 
-Sermon No. 252 - Delivered on Sabbath Morning, May 15th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > From the days of John the Baptist until now the kingdom of heaven suffereth violence, and the violent take it by force,    
 > Matthew 11:12.    

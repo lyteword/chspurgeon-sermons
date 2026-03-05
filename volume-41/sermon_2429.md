@@ -1,6 +1,5 @@
 # Sermon 2429 | Converts, and Their Confession of Faith
 
-(No. 2429)
 
 INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 8, 1895.
 

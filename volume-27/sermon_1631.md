@@ -1,6 +1,5 @@
 # Sermon 1631 | The Main Matter
 
-(No. 1631)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 6, 1881,
 

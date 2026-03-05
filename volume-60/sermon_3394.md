@@ -1,6 +1,5 @@
 # Sermon 3394 | "Who Is This?"
 
-(No. 3394)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 19, 1914.
 

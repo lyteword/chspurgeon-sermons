@@ -1,6 +1,5 @@
 # Sermon 2951 | With or Without Shedding of Blood
 
-(No. 2951)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 2454 | The Secret of Failure
 
-(No. 2454)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 1, 1896.
 

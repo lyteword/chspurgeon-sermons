@@ -1,6 +1,5 @@
 # Sermon 2903 | Sleepers Awakened
 
-(No. 2903)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 29, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 1621 | The Ark of the Covenant
 
-(No. 1621)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 25, 1881,
 

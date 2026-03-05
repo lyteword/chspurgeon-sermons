@@ -1,6 +1,5 @@
 # Sermon 1055 | Ingratitude of Man
 
-(No. 1055)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 9, 1872,
 

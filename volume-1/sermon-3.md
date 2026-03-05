@@ -1,6 +1,5 @@
 # Sermon 3 | The Sin of Unbelief
 
-Sermon No. 3 - Delivered on Sabbath Morning, January 14, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > And that lord answered the man of God, and said, Now, behold, if the Lord should make windows in heaven, might such a thing be? And he said, Behold, thou shalt see it with thine eyes but shalt not eat thereof    
 >     

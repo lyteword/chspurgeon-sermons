@@ -1,6 +1,5 @@
 # Sermon 1359 | Happiness--the Privilege and Duty of Christians
 
-(No. 1359)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 10, 1877,
 

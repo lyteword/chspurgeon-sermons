@@ -1,6 +1,5 @@
 # Sermon 838 | Sins of Omission
 
-A Sermon (No. 838)
 
 Delivered on Lord's-Day Morning, October 25, 1868, by C. H. SPURGEON, at the Metropolitan Tabernacle, Newington.
 

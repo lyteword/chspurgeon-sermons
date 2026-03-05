@@ -1,6 +1,5 @@
 # Sermon 2729 | Christ's Transfigured Face
 
-(No. 2729)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 2, 1901.
 

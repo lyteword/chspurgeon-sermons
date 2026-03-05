@@ -1,6 +1,5 @@
 # Sermon 2920 | Election--its Defenses and Evidences
 
-(No. 2920)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 26, 1905.
 

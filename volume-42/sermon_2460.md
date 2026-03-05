@@ -1,6 +1,5 @@
 # Sermon 2460 | God's Fire and Hammer
 
-(No. 2460)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1896.
 

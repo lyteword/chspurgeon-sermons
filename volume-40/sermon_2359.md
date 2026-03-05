@@ -1,6 +1,5 @@
 # Sermon 2359 | Personal and Effectual Calling
 
-(No. 2359)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 6, 1894.
 

@@ -1,6 +1,5 @@
 # Sermon 646 | In Whom Are You Trusting?
 
-Sermon No. 646 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Now in whom do you trust?    
 > Isaiah 36:5.    

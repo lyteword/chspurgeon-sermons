@@ -1,6 +1,5 @@
 # Sermon 2276 | Forgiveness, Freedom, Favor
 
-(No. 2276)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 2 1892.
 

@@ -1,6 +1,5 @@
 # Sermon 3473 | Household Sin and Sorrow
 
-(No. 3473)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 26, 1915.
 

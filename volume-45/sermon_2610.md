@@ -1,6 +1,5 @@
 # Sermon 2610 | A Witness and a Partaker
 
-(No. 2610)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 19, 1899.
 

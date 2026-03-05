@@ -1,6 +1,5 @@
 # Sermon 1827 | Exceeding Gladness
 
-(No. 1827)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1885,
 

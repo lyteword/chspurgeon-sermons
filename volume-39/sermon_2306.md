@@ -1,6 +1,5 @@
 # Sermon 2306 | Servitude Or Service--Which?
 
-(No. 2306)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 30, 1893.
 

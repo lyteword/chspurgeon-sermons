@@ -1,6 +1,5 @@
 # Sermon 2005 | The Hairs of Your Head Numbered
 
-Sermon No. 2005 - Delivered on 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But the very hairs of your head are all numbered."  
 > Matthew 10:30.  

@@ -1,6 +1,5 @@
 # Sermon 2650 | Characteristics of Christ's Disciples
 
-(No. 2650)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 26, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 2845 | Lacking Moisture
 
-(No. 2845)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1903.
 

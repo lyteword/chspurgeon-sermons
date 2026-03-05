@@ -1,6 +1,5 @@
 # Sermon 2095 | The Lamb In Glory
 
-Sermon No. 2095 - Delivered on Sunday, July 14, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And I beheld and, lo, in the midst of the Throne and of the four living creatures and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth. And He came and took the book out of the right hand of Him that sat upon the Throne."  
 > Revelation 5:6, 7.  

@@ -1,6 +1,5 @@
 # Sermon 166 | The Destroyer Destroyed
 
-Sermon No. 166 - Delivered on Sabbath Morning, December 6, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > That through death he might destroy him that had the power of death, that is the devil    
 > Hebrews 2:14.    

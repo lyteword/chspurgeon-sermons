@@ -1,6 +1,5 @@
 # Sermon 3412 | The Heavenly Rainbow
 
-(No. 3412)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 25, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 2952 | The Church--the World's Hope
 
-(No. 2952)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1905.
 

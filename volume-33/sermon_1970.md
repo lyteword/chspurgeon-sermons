@@ -1,6 +1,5 @@
 # Sermon 1970 | Loving Persuasion
 
-Sermon No. 1970 - Delivered on Sunday Morning, June 26th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Persuading them concerning Jesus."  
 > Acts 28:23.  

@@ -1,6 +1,5 @@
 # Sermon 1287 | Strengthening Words from the Savior's Lips
 
-(No. 1287)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL, 2, 1876,
 

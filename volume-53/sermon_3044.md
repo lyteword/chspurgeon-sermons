@@ -1,6 +1,5 @@
 # Sermon 3044 | Spiritual Transformations
 
-(No. 3044)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 13, 1907.
 

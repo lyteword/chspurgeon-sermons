@@ -1,6 +1,5 @@
 # Sermon 1346 | Guile Forsaken When Guilt Is Forgiven
 
-(No. 1346)
 
 DELIVERED ON LORD'S-DAY EVENING, MARCH 25, 1877,
 

@@ -1,6 +1,5 @@
 # Sermon 2675 | Jehovah's Challenge
 
-(No. 2675)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 20, 1900.
 

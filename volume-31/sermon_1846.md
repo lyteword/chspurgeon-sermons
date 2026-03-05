@@ -1,6 +1,5 @@
 # Sermon 1846 | The Purging of the Conscience
 
-(No. 1846)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 21, 1885,
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
 "For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?" Hebrews 9:13,14.
 
-SOME of you may remember that six years ago I preached from this text, principally dwelling upon the type of the red heifer. "The Red Heifer," No. 1481, Vol. 25. We then tried to show how, in these ashes of the heifer, laid by in store and applied to the unclean with water, God gave to His people in the wilderness a purification of the flesh whenever they had defiled themselves by touching any dead thing. This was the great instrument by which they were delivered from a ceremonial quarantine under which they were kept apart till they had been purified. I am not going to enlarge upon that type today. I felt, when preaching upon it, that I had not reserved due space for the latter and more important part of the text--it is my purpose to make amends this morning. May we be helped by the Spirit of God to yield our earnest attention to the deeply important subject now before us. The red cow may roam out of notice and the Christ of God shall, alone, be seen!
 
 "To serve the living God" is necessary to the happiness of a living man--for this end were we made--and we miss the design of our making if we do not honor our Maker. "Man's chief end is to glorify God and enjoy Him forever." If we miss that end, we are terrible losers. The service of God is the element in which, alone, we can fully live. If you had a fish here upon dry land, supposing it possible that it could exist, yet it would lead a very unhappy life--it would scarcely be a fish at all! You could not tell of what it was capable. It would be deprived of the opportunity of developing its true self. It is not until you put it into the stream that the fish becomes really a fish and enjoys its existence.
 

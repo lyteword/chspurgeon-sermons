@@ -1,6 +1,5 @@
 # Sermon 1269 | The New Fashion
 
-(No. 1269)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 2489 | Singing Saints
 
-(No. 2489)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 1, 1896.
 

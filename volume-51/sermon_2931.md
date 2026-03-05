@@ -1,6 +1,5 @@
 # Sermon 2931 | Return! Return!
 
-(No. 2931)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 13, 1905,
 

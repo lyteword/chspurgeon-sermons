@@ -1,6 +1,5 @@
 # Sermon 3235 | The Hope That Purifies
 
-(No. 3235)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 2, 1911.
 

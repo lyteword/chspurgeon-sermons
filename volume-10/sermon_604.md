@@ -1,6 +1,5 @@
 # Sermon 604 | The Man With The Measuring Line
 
-Sermon No. 604 - Delivered on Sunday Morning, December 11th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I lifted up my eyes again and looked and behold a man with a measuring line in his hand. So I said, Where are you going? And he said to me, To measure Jerusalem, to see what is its width and what is the length. And there was the angel who talked with me, going out; and another angel was coming out to meet him, who said to him, "Run, speak to this young man, saying, 'Jerusalem shall be inhabited as towns without walls because of the multitude of men and livestock in it. For I,' says the Lord, 'will be a wall of fire around her and I will be the glory in her midst.'"  
 > Zechariah 2:1-5.  

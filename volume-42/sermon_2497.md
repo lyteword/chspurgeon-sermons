@@ -1,6 +1,5 @@
 # Sermon 2497 | A New Leaf for the New Year
 
-(No. 2497)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 27, 1896.
 

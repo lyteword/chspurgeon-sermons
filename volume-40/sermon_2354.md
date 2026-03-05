@@ -1,6 +1,5 @@
 # Sermon 2354 | Scarlet Sinners Pardoned and Purified
 
-(No. 2354)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 1, 1894.
 

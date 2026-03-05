@@ -1,6 +1,5 @@
 # Sermon 892 | A Serious Reprimand
 
-Sermon No. 892 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "My father, if the Prophet had bid you do some great thing, would you not have done it? How much rather, then, when he says to you, Wash and be clean?"- 2 Kings 5:13.

@@ -1,6 +1,5 @@
 # Sermon 1577 | Sin Subdued
 
-(No. 1577)
 
 DELIVERED BY
 

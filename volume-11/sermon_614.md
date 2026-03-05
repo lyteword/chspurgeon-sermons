@@ -1,6 +1,5 @@
 # Sermon 614 | For Christ's Sake
 
-Sermon No. 614 - Delivered on Sunday Morning, February 12th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > For Christ's sake.    
 > Ephesians 4:32.    

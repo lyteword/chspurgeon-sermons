@@ -1,6 +1,5 @@
 # Sermon 2491 | Shame Leading to Salvation
 
-(No. 2491)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 15, 1896.
 

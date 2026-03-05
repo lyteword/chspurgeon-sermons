@@ -1,6 +1,5 @@
 # Sermon 3043 | Filling Up the Measure of Iniquity
 
-(No. 3043)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 6, 1907.
 

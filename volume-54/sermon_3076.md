@@ -1,6 +1,5 @@
 # Sermon 3076 | The Cause and Effect of Heart Trouble
 
-(No. 3076)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 23, 1908.
 

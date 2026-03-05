@@ -1,6 +1,5 @@
 # Sermon 1416 | The Faithful Saying
 
-(No. 1416)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 26, 1878,
 

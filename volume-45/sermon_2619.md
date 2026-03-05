@@ -1,6 +1,5 @@
 # Sermon 2619 | The Captain of Our Salvation
 
-(No. 2619)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1899.
 

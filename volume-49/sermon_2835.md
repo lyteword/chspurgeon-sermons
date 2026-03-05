@@ -1,6 +1,5 @@
 # Sermon 2835 | Patients for the Great Physician
 
-(No. 2835)
 
 A SERMON INTENDED FOR READING ON HOSPITAL SUNDAY.
 

@@ -1,6 +1,5 @@
 # Sermon 2992 | God's Writing Upon Man's Heart
 
-(No. 2992)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 14, 1906.
 

@@ -1,6 +1,5 @@
 # Sermon 1412 | Where True Prayer is Found
 
-(No. 1412)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 5, 1878,
 

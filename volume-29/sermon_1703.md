@@ -1,6 +1,5 @@
 # Sermon 1703 | Hands Full of Honey
 
-(No. 1703)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 28, 1883,
 

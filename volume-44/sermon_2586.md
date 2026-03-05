@@ -1,6 +1,5 @@
 # Sermon 2586 | A Far-reaching Promise
 
-(No. 2586)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 4, 1898.
 

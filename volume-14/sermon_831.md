@@ -1,6 +1,5 @@
 # Sermon 831 | The Alter
 
-A Sermon (No. 831)
 
 Delivered on Lord's Day Morning, September 20, 1868, by C. H. SPURGEON.
 

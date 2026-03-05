@@ -1,6 +1,5 @@
 # Sermon 3223 | Salvation As It Is Now Received
 
-(No. 3223)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 10, 1910.
 

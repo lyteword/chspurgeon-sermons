@@ -1,6 +1,5 @@
 # Sermon 2712 | Bonds Which Could Not Hold
 
-(No. 2712)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 3, 1901.
 

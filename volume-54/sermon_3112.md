@@ -1,6 +1,5 @@
 # Sermon 3112 | A Sermon and a Reminiscence
 
-(No. 3112)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1908.
 

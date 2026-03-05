@@ -1,6 +1,5 @@
 # Sermon 3216 | The Two Gatherings
 
-(No. 3216)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 22, 1910.
 

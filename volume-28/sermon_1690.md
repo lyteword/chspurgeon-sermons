@@ -1,6 +1,5 @@
 # Sermon 1690 | Chariots of Iron
 
-(No. 1690)
 
 DELIVERED ON THURSDAY EVENING, SEPTEMBER 28, 1882,
 

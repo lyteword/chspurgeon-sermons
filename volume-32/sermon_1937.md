@@ -1,6 +1,5 @@
 # Sermon 1937 | A Mingled Strain
 
-(No. 1937)
 
 A SERMON DELIVERED BY
 

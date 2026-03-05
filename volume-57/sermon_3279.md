@@ -1,6 +1,5 @@
 # Sermon 3279 | "Ever This Our War Cry--victory, Victory!"
 
-(No. 3279)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1911.
 

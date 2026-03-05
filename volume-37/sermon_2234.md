@@ -1,6 +1,5 @@
 # Sermon 2234 | The Best Donation
 
-(No. 2234)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 13, 1891,
 

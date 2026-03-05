@@ -1,6 +1,5 @@
 # Sermon 2664 | Things Unknown
 
-(No. 2664)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 4, 1900.
 

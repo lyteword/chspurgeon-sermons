@@ -1,6 +1,5 @@
 # Sermon 922 | Sincerity And Duplicity
 
-(No. 922)
 
 DELIVERED ON LORD'S-DAY EVENING, MARCH 6, 1870,
 

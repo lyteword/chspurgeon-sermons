@@ -1,6 +1,5 @@
 # Sermon 1854 | The Foundation and Its Seal--a Sermon for the Times
 
-(No. 1854)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 9, 1885,
 

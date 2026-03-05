@@ -1,6 +1,5 @@
 # Sermon 2645 | "The Time of Jacob's Trouble"
 
-(No. 2645)
 
 A SERMON INTENDED FOR READING ON LORD'S-DRY, OCTOBER 22, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 1459A | Satan's Punctuality, Power and Purpose
 
-(No. 1459A)
 
 WRITTEN AT MENTONE,
 

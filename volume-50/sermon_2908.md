@@ -1,6 +1,5 @@
 # Sermon 2908 | The Saint's Heritage and Watchword
 
-(No. 2908)
 
 A SERMON PUBLISHED 0N THURSDAY, NOVEMBER 3, 1904.
 

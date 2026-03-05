@@ -1,6 +1,5 @@
 # Sermon 2295 | God's People--or Not God's People
 
-(No. 2295)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 12, 1893.
 

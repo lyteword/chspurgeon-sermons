@@ -1,6 +1,5 @@
 # Sermon 3088 | The Storm and the Shower
 
-(No. 3088)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 16, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 2323 | Obedience Rewarded
 
-(No. 2323)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 27, 1893.
 

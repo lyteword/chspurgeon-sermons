@@ -1,6 +1,5 @@
 # Sermon 1308 | The Recorders
 
-(No. 1308)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 25, 1876,
 

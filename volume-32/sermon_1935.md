@@ -1,6 +1,5 @@
 # Sermon 1935 | "Where Are The Nine?"--or, Praise Neglected
 
-(No. 1935)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1886, DELIVERED
 

@@ -1,6 +1,5 @@
 # Sermon 3356 | David's Sublime Consolation
 
-(No. 3356)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 29, 1913.
 

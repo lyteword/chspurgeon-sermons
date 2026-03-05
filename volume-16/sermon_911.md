@@ -1,6 +1,5 @@
 # Sermon 911 | The Putting Away Of Sin
 
-(No. 911)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 16, 1870,
 

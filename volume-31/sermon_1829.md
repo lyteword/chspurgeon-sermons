@@ -1,6 +1,5 @@
 # Sermon 1829 | The Singular Origin of a Christian
 
-(No. 1829)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1885,
 

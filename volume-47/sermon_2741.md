@@ -1,6 +1,5 @@
 # Sermon 2741 | Salvation by Grace
 
-(No. 2741)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 25, 1901.
 

@@ -1,6 +1,5 @@
 # Sermon 3307 | Over the Mountains
 
-(No. 3307)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 20, 1912.
 

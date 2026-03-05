@@ -1,6 +1,5 @@
 # Sermon 2836 | Prayerful Importunity
 
-(No. 2836)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1903.
 

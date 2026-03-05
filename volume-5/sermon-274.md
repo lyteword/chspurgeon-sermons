@@ -1,6 +1,5 @@
 # Sermon 274 | Paul's Desire to Depart
 
-Sermon No. 274 - Delivered on Sabbath Morning, September 11th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Having a desire to depart and to be with Christ, which is far better.    
 > Philippians 1:23.    

@@ -1,6 +1,5 @@
 # Sermon 2368 | The Living Care of the Dying Christ
 
-(No. 2368)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 8, 1894.
 

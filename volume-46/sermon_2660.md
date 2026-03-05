@@ -1,6 +1,5 @@
 # Sermon 2660 | Suffering Outside the Camp
 
-(No. 2660)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 4, 1900.
 

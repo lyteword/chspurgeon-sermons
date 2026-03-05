@@ -1,6 +1,5 @@
 # Sermon 1879 | A Plain Man's Sermon
 
-(No. 1879)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 17, 1886,
 

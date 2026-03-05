@@ -1,6 +1,5 @@
 # Sermon 1858 | God Our Continual Resort
 
-(No. 1858)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 6, 1885,
 

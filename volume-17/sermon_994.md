@@ -1,6 +1,5 @@
 # Sermon 994 | The Prayer of Jabez
 
-Sermon No. 994 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Oh that thou wouldest bless me indeed!"  
 > 1 Chron. 4:10.  

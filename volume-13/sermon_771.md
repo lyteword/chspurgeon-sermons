@@ -1,6 +1,5 @@
 # Sermon 771 | Seeing Jesus
 
-Sermon No. 771 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "We see Jesus." Hebrews 2:9.

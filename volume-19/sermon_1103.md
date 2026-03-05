@@ -1,6 +1,5 @@
 # Sermon 1103 | The Conditions Of Power In Prayer
 
-(No. 1103)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 23,
 

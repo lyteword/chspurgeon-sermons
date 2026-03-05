@@ -1,6 +1,5 @@
 # Sermon 3361 | God's Valiant Right Hand
 
-(No. 3361)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 3, 1913.
 

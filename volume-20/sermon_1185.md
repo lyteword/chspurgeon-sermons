@@ -1,6 +1,5 @@
 # Sermon 1185 | An Earnest Warning about Lukewarmness
 
-Sermon No. 1185 - Delivered on Lord's-Day Morning, July 26th, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Unto the angel of the church of the Laodiceans write; These things saith the Amen, the faithful and true witness, the beginning of the creation of God; I know thy works, that thou art neither cold nor hot: I would thou wert cold or hot. So then because thou art lukewarm, and neither cold nor hot, I will spue thee out of my mouth. Because thou sayest, I am rich, and increased with goods, and have need of nothing; and knowest not that thou art wretched, and miserable, and poor, and blind, and naked: I counsel thee to buy of me gold tried in the fire, that thou mayest be rich; and white raiment, that thou mayest be clothed, and [that] the shame of thy nakedness do not appear; and anoint thine eyes with eyesalve, that thou mayest see. As many as I love, I rebuke and chasten: be zealous therefore, and repent. Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me. To him that overcometh will I grant to sit with me in my throne, even as I also overcame, and am set down with my Father in his throne.''Rev. 3:14-21
 

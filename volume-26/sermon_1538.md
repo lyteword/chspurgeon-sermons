@@ -1,6 +1,5 @@
 # Sermon 1538 | Divine Surprises
 
-(No. 1538)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 16, 1880,
 

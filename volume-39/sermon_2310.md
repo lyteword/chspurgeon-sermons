@@ -1,6 +1,5 @@
 # Sermon 2310 | Howling Changed To Singing
 
-(No. 2310)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 28, 1893.
 
@@ -83,7 +82,6 @@ and, when you have done that, sing another! And when you have finished that, sin
 
 There are the two photographs. Put them into your album and take care of them.
 
-But how came this change to take place? What are THE CONNECTING LINKS BETWEEN THE MAN COMPLAINING AND THE MAN SINGING? How did No. 1 get to be No. 2? How did this howler become a singer? What
 
 process did he pass through?
 

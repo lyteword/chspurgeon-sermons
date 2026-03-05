@@ -1,6 +1,5 @@
 # Sermon 2373 | The Weary Dove's Return
 
-(No. 2373)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 12, 1894.
 

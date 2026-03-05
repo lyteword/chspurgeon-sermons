@@ -1,6 +1,5 @@
 # Sermon 2689 | The Ever-Living Christ
 
-(No. 2689)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 26, 1900.
 

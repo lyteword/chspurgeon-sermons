@@ -1,6 +1,5 @@
 # Sermon 2925 | Reasons For Doubting Christ
 
-(No. 2925)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 2, 1905.
 

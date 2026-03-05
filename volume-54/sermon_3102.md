@@ -1,6 +1,5 @@
 # Sermon 3102 | The Forerunner
 
-(No. 3102)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 23, 1908.
 

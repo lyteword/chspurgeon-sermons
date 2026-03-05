@@ -1,6 +1,5 @@
 # Sermon 1481 | The Red Heifer
 
-(No. 1481)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 29, 1879,
 

@@ -1,6 +1,5 @@
 # Sermon 2528 | Eating the Sacrifice
 
-(No. 2528)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 1, 1897.
 

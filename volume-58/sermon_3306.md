@@ -1,6 +1,5 @@
 # Sermon 3306 | Satan, Self, Sin and the Savior
 
-(No. 3306)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 13, 1912.
 

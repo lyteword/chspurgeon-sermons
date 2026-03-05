@@ -1,6 +1,5 @@
 # Sermon 3231 | A New Year's Wish
 
-(No. 3231)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 5, 1911.
 

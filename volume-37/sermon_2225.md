@@ -1,6 +1,5 @@
 # Sermon 2225 | A Clarion Call to Saints and Sinners
 
-(No. 2225)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 11, 1891,
 

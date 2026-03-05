@@ -1,6 +1,5 @@
 # Sermon 3138 | Mocking the King
 
-(No. 3138)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 1, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 612 | Jesus Washing His Disciples' Feet
 
-Sermon No. 612 - Delivered on Sunday Morning, January 29th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Then He came to Simon Peter: and Peter said unto Him, Lord, do You wash my feet?    
 > John 13:6.    

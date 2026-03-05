@@ -1,6 +1,5 @@
 # Sermon 3135 | A Golden Sentence
 
-(No. 3135)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 11, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2388 | Once Dead, Now Alive
 
-(No. 2388)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 25, 1894.
 

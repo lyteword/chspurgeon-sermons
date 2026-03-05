@@ -1,6 +1,5 @@
 # Sermon 3080 | Two Ancient Proverbs
 
-(No. 3080)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 20, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 305 | Separating the Precious From the Vile
 
-Sermon No. 305 - Delivered on Sabbath Morning, March 25th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > That ye may know how that the Lord hath put a difference between the Egyptians and Israel,    
 > Exodus 11:7.    

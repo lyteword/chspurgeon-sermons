@@ -1,6 +1,5 @@
 # Sermon 1374 | "Forever With The Lord"
 
-(No. 1374)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 16, 1877,
 

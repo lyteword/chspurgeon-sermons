@@ -1,6 +1,5 @@
 # Sermon 1306 | Fat Things, Full of Marrow
 
-(No. 1306)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 23, 1876,
 

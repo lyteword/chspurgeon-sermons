@@ -1,6 +1,5 @@
 # Sermon 2370 | "Christ First, Me Last--Nothing Between But Love"
 
-(No. 2370)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 22, 1894.
 

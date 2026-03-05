@@ -1,6 +1,5 @@
 # Sermon 2470 | Jacob and Doubting Souls a Parallel
 
-(No. 2470)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1896,
 

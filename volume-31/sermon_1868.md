@@ -1,6 +1,5 @@
 # Sermon 1868 | Death and Life--the Wage and the Gift
 
-(No. 1868)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1885,
 

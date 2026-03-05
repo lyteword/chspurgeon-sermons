@@ -1,6 +1,5 @@
 # Sermon 3326 | The Wondrous Covenant
 
-(No. 3326)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 31, 1912.
 

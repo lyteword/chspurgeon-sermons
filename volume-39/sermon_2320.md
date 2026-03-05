@@ -1,6 +1,5 @@
 # Sermon 2320 | The Beloved Pastor's Plea for Unity
 
-(No. 2320)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 6, 1893.
 

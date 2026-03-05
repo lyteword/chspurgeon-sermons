@@ -1,6 +1,5 @@
 # Sermon 997 | Prosperity Under Persecution
 
-Sermon No. 997 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Come on let us deal wisely with them; lest they multiply, and it come to pass, that, when there falleth out any war, they join also unto our enemies, and fight against us, and so get them up out of the land. Therefore they did set over them taskmasters to afflict them with their burdens. And they built for Pharaoh treasure cities, Pithom and Raamses. But the more they afflicted them, the more they multiplied and grew."  
 > Exodus 1:10-12.  

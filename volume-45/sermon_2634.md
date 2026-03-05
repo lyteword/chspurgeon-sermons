@@ -1,6 +1,5 @@
 # Sermon 2634 | "Jesus Only" --a Communion Meditation
 
-(No. 2634)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 6, 1899.
 

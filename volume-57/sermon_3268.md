@@ -1,6 +1,5 @@
 # Sermon 3268 | The Savior's Silence
 
-(No. 3268)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1911.
 

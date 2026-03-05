@@ -1,6 +1,5 @@
 # Sermon 1413 | Underneath
 
-(No. 1413)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 12, 1878,
 

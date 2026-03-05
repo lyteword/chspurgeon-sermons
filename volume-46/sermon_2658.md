@@ -1,6 +1,5 @@
 # Sermon 2658 | Waking to See Christ's Glory
 
-(No. 2658)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 21, 1900.
 

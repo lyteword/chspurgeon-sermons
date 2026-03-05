@@ -1,6 +1,5 @@
 # Sermon 2442 | "My Beloved Is Mine"
 
-(No. 2442)
 
 INTENDED FOR READING ON LORD'S DAY, DECEMBER 8, 1895.
 

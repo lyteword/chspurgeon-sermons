@@ -1,6 +1,5 @@
 # Sermon 2472 | The Best of the Best
 
-(No. 2472)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1896.
 

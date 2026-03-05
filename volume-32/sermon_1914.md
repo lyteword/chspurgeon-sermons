@@ -1,6 +1,5 @@
 # Sermon 1914 | Secret Drawings Graciously Explained
 
-(No. 1914)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1886,
 

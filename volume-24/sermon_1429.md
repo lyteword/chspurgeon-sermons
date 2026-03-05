@@ -1,6 +1,5 @@
 # Sermon 1429 | Faith's Sure Foundation
 
-(No. 1429)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 18, 1878,
 

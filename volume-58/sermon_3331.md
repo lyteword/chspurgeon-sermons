@@ -1,6 +1,5 @@
 # Sermon 3331 | Knowing and Believing
 
-(No. 3331)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 5, 1912.
 

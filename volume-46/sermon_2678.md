@@ -1,6 +1,5 @@
 # Sermon 2678 | The Lesson of the Almond Tree
 
-(No. 2678)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 10, 1900.
 

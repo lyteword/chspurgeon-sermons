@@ -1,6 +1,5 @@
 # Sermon 2598 | Spiritual Revival--the Need of the Church
 
-(No. 2598)
 
 A SERMON
 

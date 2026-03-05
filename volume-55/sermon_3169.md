@@ -1,6 +1,5 @@
 # Sermon 3169 | The Believer's Present Rest
 
-(No. 3169)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 4, 1909.
 

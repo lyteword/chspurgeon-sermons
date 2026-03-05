@@ -1,6 +1,5 @@
 # Sermon 3192 | The Soul's Food and Drink
 
-(No. 3192)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 7, 1910.
 

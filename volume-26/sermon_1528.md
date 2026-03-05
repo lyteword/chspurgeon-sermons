@@ -1,6 +1,5 @@
 # Sermon 1528 | "They Were Tempted"
 
-(No. 1528)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 14, 1880,
 

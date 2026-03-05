@@ -1,6 +1,5 @@
 # Sermon 2118 | The Planter of the Ear Must Hear
 
-Sermon No. 2118 - Delivered on Sunday Morning, December 15th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He that planted the ear, shall He not hear? He that formed the eye, shall He not see?"  
 > Psalm 94:9  

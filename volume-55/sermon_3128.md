@@ -1,6 +1,5 @@
 # Sermon 3128 | Good Cheer From Christ's Real Presence
 
-(No. 3128)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 21, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 1205 | All For Jesus!
 
-(No. 1205)
 
 A SERMON DELIVERED OF LORD'S-DAY MORNING, NOVEMBER 29, 1874,
 

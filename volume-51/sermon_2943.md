@@ -1,6 +1,5 @@
 # Sermon 2943 | Restraining Prayer
 
-(No. 2943)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 6, 1905.
 

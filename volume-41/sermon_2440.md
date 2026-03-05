@@ -1,6 +1,5 @@
 # Sermon 2440 | Faithful Stewardship
 
-(No. 2440)
 
 INTENDED FOR READING ON LORD'S DAY, NOVEMBER 24, 1895.
 

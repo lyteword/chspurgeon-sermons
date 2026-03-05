@@ -1,6 +1,5 @@
 # Sermon 2895 | A Blessed Gospel Chain
 
-(No. 2895)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 4, 1904.
 

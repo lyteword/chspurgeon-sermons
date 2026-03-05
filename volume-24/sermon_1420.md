@@ -1,6 +1,5 @@
 # Sermon 1420 | The Headstone of the Corner
 
-(No. 1420)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 23, 1878,
 

@@ -1,6 +1,5 @@
 # Sermon 1160 | The Entreaty of the Holy Spirit
 
-(No. 1160)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 1, 1874,
 

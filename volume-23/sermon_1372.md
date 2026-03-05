@@ -1,6 +1,5 @@
 # Sermon 1372 | God Our Portion and His Word Our Treasure
 
-(No. 1372)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 2, 1877,
 

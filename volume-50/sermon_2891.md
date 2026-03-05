@@ -1,6 +1,5 @@
 # Sermon 2891 | A Sabbath Miracle
 
-(No. 2891)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 7, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 586 | The Child Samuel's Prayer
 
-Sermon No. 586 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Speak, Lord; for Your servant hears."  
 > 1 Samuel 3:9.  

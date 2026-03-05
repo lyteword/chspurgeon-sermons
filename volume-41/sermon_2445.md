@@ -1,6 +1,5 @@
 # Sermon 2445 | The Last Sermon for the Year
 
-(No. 2445)
 
 INTENDED FOR READING ON LORD'S DAY, DECEMBER 29, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 2215 | Young Man! A Prayer For You
 
-(No. 2215)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1891,
 

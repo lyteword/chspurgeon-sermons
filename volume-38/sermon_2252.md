@@ -1,6 +1,5 @@
 # Sermon 2252 | The Unknown Giver and the Misused Gifts
 
-(No. 2252)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 17, 1892.
 

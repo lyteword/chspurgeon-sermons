@@ -1,6 +1,5 @@
 # Sermon 1341 | Retreat Impossible
 
-(No. 1341)
 
 DELIVERED BY
 

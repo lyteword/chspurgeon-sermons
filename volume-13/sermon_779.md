@@ -1,6 +1,5 @@
 # Sermon 779 | God's Foreknowledge of Man's Sin
 
-Sermon No. 779 - Delivered on Lord's-day Morning, NOVEMBER 3, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Yes, you heard not; yes, you knew not; yes, from that time that your ear was not opened: for I knew that you would deal very treacherously, and were called a transgressor from the womb."- Isaiah 48:8.

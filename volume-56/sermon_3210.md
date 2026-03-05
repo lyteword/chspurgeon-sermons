@@ -1,6 +1,5 @@
 # Sermon 3210 | Clinging to Christ
 
-(No. 3210)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 11, 1910.
 

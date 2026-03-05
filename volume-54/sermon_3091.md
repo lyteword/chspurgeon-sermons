@@ -1,6 +1,5 @@
 # Sermon 3091 | Pedigree
 
-(No. 3091)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 7, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 2387 | Good Advice For Troublous Times
 
-(No. 2387)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 18, 1894.
 

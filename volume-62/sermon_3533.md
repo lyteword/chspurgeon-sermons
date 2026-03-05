@@ -1,6 +1,5 @@
 # Sermon 3533 | Recruits for the King
 
-(No. 3533)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 12, 1916.
 

@@ -1,6 +1,5 @@
 # Sermon 2186 | Our Expectation
 
-(No. 2186)
 
 DELIVERED BY
 

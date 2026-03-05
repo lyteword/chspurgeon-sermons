@@ -1,6 +1,5 @@
 # Sermon 3411 | Joining the Church
 
-(No. 3411)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 18, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 2884 | "Who Is on the Lord's Side?"
 
-(No. 2884)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 19, 1904.
 

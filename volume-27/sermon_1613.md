@@ -1,6 +1,5 @@
 # Sermon 1613 | Shut In Or Shut Out
 
-(No. 1613)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 14, 1881,
 

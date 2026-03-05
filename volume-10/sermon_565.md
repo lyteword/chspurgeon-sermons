@@ -1,6 +1,5 @@
 # Sermon 565 | The Great Liberator
 
-Sermon No. 565 - Delivered on Sunday Morning, April 17th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "If the Son therefore shall make you free, you shall be free, indeed."  
 > John 8:36.  

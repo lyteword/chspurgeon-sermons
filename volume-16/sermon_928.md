@@ -1,6 +1,5 @@
 # Sermon 928 | A New Song For New Hearts
 
-(No. 928)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 1, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 1294 | The Anchor
 
-(No. 1294)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 21, 1876,
 

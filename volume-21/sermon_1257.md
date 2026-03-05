@@ -1,6 +1,5 @@
 # Sermon 1257 | Love to Jesus the Great Test
 
-(No. 1257)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 3, 1875,
 

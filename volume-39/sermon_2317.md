@@ -1,6 +1,5 @@
 # Sermon 2317 | Obeying Christ's Orders
 
-(No. 2317)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 16, 1893.
 

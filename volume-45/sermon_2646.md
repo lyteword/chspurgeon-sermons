@@ -1,6 +1,5 @@
 # Sermon 2646 | The Baptist's Message
 
-(No. 2646)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 29, 1899.
 

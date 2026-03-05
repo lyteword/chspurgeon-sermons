@@ -1,6 +1,5 @@
 # Sermon 146 | The Good Man's Life and Death
 
-Sermon No. 146 - Delivered on Sabbath Morning, August 16, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > For to me to live is Christ, and to die is gain.    
 > Philippians 1:21.    

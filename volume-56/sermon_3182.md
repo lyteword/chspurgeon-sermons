@@ -1,6 +1,5 @@
 # Sermon 3182 | Boldness at the Throne
 
-(No. 3182)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 27, 1910.
 

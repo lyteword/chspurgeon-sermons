@@ -1,6 +1,5 @@
 # Sermon 2573 | Unparalleled Suffering
 
-(No. 2573)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 5, 1898.
 

@@ -1,6 +1,5 @@
 # Sermon 3154 | Concerning The Forbearance Of God
 
-(No. 3154)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 22, 1909.
 

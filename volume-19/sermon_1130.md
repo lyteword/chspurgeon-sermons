@@ -1,6 +1,5 @@
 # Sermon 1130 | The Christian's Great Business
 
-(No. 1130)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 7, 1873,
 

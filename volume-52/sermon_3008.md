@@ -1,6 +1,5 @@
 # Sermon 3008 | An All-important Question
 
-(No. 3008)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 4, 1906.
 

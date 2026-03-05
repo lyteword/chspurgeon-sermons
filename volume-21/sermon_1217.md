@@ -1,6 +1,5 @@
 # Sermon 1217 | Rightly Dividing the Word of Truth
 
-(No. 1217)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, DECEMBER 26, 1875,
 

@@ -1,6 +1,5 @@
 # Sermon 2810 | "Nevertheless at Your Word"
 
-(No. 2810)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 21, 1902.
 

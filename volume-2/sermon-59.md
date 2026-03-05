@@ -1,6 +1,5 @@
 # Sermon 59 | Watch-Night Service
 
-Sermon No. 59 - Delivered on Tuesday Night, December 31, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > If it be enquired why I held a Watch-night, let the answer be&mdash;because I hoped that the Lord would own the service, and thus souls might be saved. I have preached at all hours the gospel of Jesus, and I see no reason why I may not preach at midnight, if I can obtain hearers. I have not done it from imitation, but for the best of reasons&mdash;the hope of doing good, and the wish to be the means of gathering in the outcasts of Israel. God is my witness, I would preach every hour of the day, if body and mind were equal to the task. When I consider how souls are being damned and how few there are who mourn and cry over them, I am constrained to cry with Paul, "Woe is me if I preach not the gospel." Oh, that the new year may be far better than the last.    
 > I am almost sorry to see this service in print, and fear it will rob many of their week's food from the regular sermon; but as it is done, I pray the Lord to own it for Jesus' sake.    

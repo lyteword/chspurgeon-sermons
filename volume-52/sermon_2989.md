@@ -1,6 +1,5 @@
 # Sermon 2989 | Near the Kingdom, or in It?
 
-(No. 2989)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 24, 1906.
 

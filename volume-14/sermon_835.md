@@ -1,6 +1,5 @@
 # Sermon 835 | A Cheerful Giver is Beloved of God
 
-A Sermon (No. 835)
 
 Delivered on thursday evening, august 27, 1868, by C. H. SPURGEON, at the [44]Metropolitan Tabernacle, Newington.
 

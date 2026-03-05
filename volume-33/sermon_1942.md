@@ -1,6 +1,5 @@
 # Sermon 1942 | Salt For Sacrifice
 
-Sermon No. 1942 - Delivered on Sunday Morning, January 23rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And every oblation of your meat offering shall you season with salt; neither shall you suffer the salt of the Covenant of your God to be lacking from your meat offering: with all your offerings you shall offer salt."  
 > Leviticus 2:13.  

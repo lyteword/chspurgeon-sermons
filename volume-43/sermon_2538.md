@@ -1,6 +1,5 @@
 # Sermon 2538 | An Epistle Illustrated by a Psalm
 
-(No. 2538)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 10, 1897.
 

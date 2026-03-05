@@ -1,6 +1,5 @@
 # Sermon 1145 | The Great Jail--and How To Get Out Of It
 
-(No. 1145)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 30, 1873,
 

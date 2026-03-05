@@ -1,6 +1,5 @@
 # Sermon 1638 | Men Without Heart, Sight, or Hearing
 
-(No. 1638)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 8, 1882,
 

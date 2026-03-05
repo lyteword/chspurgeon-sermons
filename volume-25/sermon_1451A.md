@@ -1,6 +1,5 @@
 # Sermon 1451A | "This Year Also"
 
-(No. 1451A)
 
 FOR THE NEW YEAR - 1879.
 

@@ -1,6 +1,5 @@
 # Sermon 824 | The Heavan of Heavan
 
-A Sermon (No. 824)
 
 Delivered on lord's-day morning, august 9, 1868 by C. H. SPURGEON, at the [34]Metropolitan Tabernacle, Newington.
 

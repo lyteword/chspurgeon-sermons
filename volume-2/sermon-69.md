@@ -1,6 +1,5 @@
 # Sermon 69 | The Allegories of Sarah and Hagar
 
-Sermon No. 69 - Delivered on Sabbath Morning, March 2, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > These are the two covenants.    
 > Galatians 4:24.    

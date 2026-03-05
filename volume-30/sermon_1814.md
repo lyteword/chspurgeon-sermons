@@ -1,6 +1,5 @@
 # Sermon 1814 | Commendation for the Steadfast
 
-Sermon No. 1814 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 I know thy works: behold I have set before thee an open door, and no man can shut it: for thou hast a little strength, and hast kept my word, and hast not denied my name. Because thou hast kept the word of my patience, I will also keep thee from the hour of temptation, which shall come upon all the world, to try them that dwell upon the earth.'Revelation 3:8,10.
 

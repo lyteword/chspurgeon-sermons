@@ -1,6 +1,5 @@
 # Sermon 218 | Self-Examination
 
-Sermon No. 218 - Delivered on Sabbath Morning, October 10, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates.    
 > 2 Corinthians 13:5.    

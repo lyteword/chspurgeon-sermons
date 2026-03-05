@@ -1,6 +1,5 @@
 # Sermon 2374 | Blessed Discipline
 
-(No. 2374)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 19, 1894.
 

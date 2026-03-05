@@ -1,6 +1,5 @@
 # Sermon 3333 | God's King Magnified
 
-(No. 3333)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 19, 1912.
 

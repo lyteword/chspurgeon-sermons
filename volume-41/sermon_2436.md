@@ -1,6 +1,5 @@
 # Sermon 2436 | "How Good to Those Who Seek!"
 
-(No. 2436)
 
 INTENDED FOR READING ON LORD'S DAY, OCTOBER 27, 1895.
 

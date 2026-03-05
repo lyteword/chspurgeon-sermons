@@ -1,6 +1,5 @@
 # Sermon 290 | The Inexhaustible Barrel
 
-Sermon No. 290 - Delivered on Sabbath Morning, December 18th, 1859, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > And the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the Lord, which he spake by Elijah.    
 > 1 Kings 17:16.    

@@ -1,6 +1,5 @@
 # Sermon 1751 | Fathers In Christ
 
-(No. 1751)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 18, 1883,
 

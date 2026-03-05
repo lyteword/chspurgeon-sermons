@@ -1,6 +1,5 @@
 # Sermon 2789 | Perfect Justification and Perfect Pardon
 
-(No. 2789)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 27, 1902.
 

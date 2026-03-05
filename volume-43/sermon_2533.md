@@ -1,6 +1,5 @@
 # Sermon 2533 | The Ever-present Crisis
 
-(No. 2533)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 5, 1897.
 

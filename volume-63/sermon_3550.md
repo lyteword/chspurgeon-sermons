@@ -1,6 +1,5 @@
 # Sermon 3550 | An Earnest Entreaty
 
-(No. 3550)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1917.
 

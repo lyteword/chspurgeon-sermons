@@ -1,6 +1,5 @@
 # Sermon 3114 | God's Providence
 
-(No. 3114)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1908.
 

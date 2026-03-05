@@ -1,6 +1,5 @@
 # Sermon 2843 | The Seed by the Wayside
 
-(No. 2843)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 9, 1903.
 

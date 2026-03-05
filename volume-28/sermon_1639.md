@@ -1,6 +1,5 @@
 # Sermon 1639 | Acceptable Service
 
-(No. 1639)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 15, 1882,
 

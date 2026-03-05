@@ -1,6 +1,5 @@
 # Sermon 2716 | Christ's Poverty, Our Riches
 
-(No. 2716)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 3, 1901.
 

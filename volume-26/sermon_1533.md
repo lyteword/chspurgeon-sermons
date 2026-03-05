@@ -1,6 +1,5 @@
 # Sermon 1533 | Fear Not
 
-(No. 1533)
 
 DELIVERED ON TUESDAY EVENING, MARCH 9, 1880,
 

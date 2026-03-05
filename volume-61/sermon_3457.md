@@ -1,6 +1,5 @@
 # Sermon 3457 | All Are Guilty
 
-(No. 3457)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 6, 1915.
 

@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 2026)
 
 Intended for Reading on Lord's-day, June 3rd, 1888, by
 

@@ -1,6 +1,5 @@
 # Sermon 1210 | The Weaned Child
 
-(No. 1210)
 
 DELIVERED BY
 

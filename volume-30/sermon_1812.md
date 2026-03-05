@@ -1,6 +1,5 @@
 # Sermon 1812 | A Wonder Explained By Greater Wonders
 
-(No. 1812)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 7, 1884,
 

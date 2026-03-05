@@ -1,6 +1,5 @@
 # Sermon 279 | Come and Welcome
 
-Sermon No. 279 - Delivered on Sabbath Morning, October 16th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > And the Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely.    
 > Revelation 22:17.    

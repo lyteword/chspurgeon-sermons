@@ -1,6 +1,5 @@
 # Sermon 3553 | The Fullness and the Filling
 
-(No. 3553)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 1, 1917.
 

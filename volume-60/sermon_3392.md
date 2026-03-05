@@ -1,6 +1,5 @@
 # Sermon 3392 | Justification by Faith
 
-(No. 3392)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 5, 1914.
 

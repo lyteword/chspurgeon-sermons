@@ -1,6 +1,5 @@
 # Sermon 2428 | The Marriage Supper of the Lamb
 
-(No. 2428)
 
 INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 1, 1895.
 

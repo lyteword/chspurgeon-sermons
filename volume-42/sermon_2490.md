@@ -1,6 +1,5 @@
 # Sermon 2490 | The Danger of Carnal Security
 
-(No. 2490)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 8, 1896.
 

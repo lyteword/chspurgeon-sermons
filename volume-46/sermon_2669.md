@@ -1,6 +1,5 @@
 # Sermon 2669 | Comfort From Christ's Omniscience
 
-(No. 2669)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 8, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 697 | God's Cure For Man's Weakness
 
-Sermon No. 697 - Delivered on Sunday Morning, June 24th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Out of weakness were made strong."  
 > Hebrews 11:34.  

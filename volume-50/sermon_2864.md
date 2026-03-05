@@ -1,6 +1,5 @@
 # Sermon 2864 | God Has Spoken!-- Rejoice!
 
-(No. 2864)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1903.
 

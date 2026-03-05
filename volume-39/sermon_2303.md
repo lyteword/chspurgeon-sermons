@@ -1,6 +1,5 @@
 # Sermon 2303 | Three Arrows--or Six?
 
-(No. 2303)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 9, 1893.
 

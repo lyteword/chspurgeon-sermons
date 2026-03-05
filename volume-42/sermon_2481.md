@@ -1,6 +1,5 @@
 # Sermon 2481 | Faith Victorious
 
-(No. 2481)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 6, 1896.
 

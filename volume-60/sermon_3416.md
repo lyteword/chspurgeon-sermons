@@ -1,6 +1,5 @@
 # Sermon 3416 | Shall and Will
 
-(No. 3416)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 23, 1914.
 

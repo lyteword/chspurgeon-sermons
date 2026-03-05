@@ -1,6 +1,5 @@
 # Sermon 7 & 8 | Christ Crucified
 
-Sermon No. 7 & 8 - Delivered on Sabbath Morning, February 11, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > But we preach Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness; but unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.    
 > 1 Corinthians 1:23-24.    

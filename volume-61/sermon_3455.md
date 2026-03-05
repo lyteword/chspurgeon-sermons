@@ -1,6 +1,5 @@
 # Sermon 3455 | A Message From God
 
-(No. 3455)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 22, 1915.
 

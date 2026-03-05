@@ -1,6 +1,5 @@
 # Sermon 1489 | The Plague of the Heart
 
-(No. 1489)
 
 DELIVERED ON LORD'S-DAY EVENING, AUGUST 10, 1879,
 

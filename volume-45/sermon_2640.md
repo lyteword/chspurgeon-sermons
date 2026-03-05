@@ -1,6 +1,5 @@
 # Sermon 2640 | Comforted and Comforting
 
-(No. 2640)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 17, 1899,
 

@@ -1,6 +1,5 @@
 # Sermon 1038 | Another Royal Procession
 
-Sermon No. 1038 - Delivered on Lord's Day Morning, 3rd, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 'Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass.''Matthew 21:5.
 

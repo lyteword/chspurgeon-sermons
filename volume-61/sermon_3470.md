@@ -1,6 +1,5 @@
 # Sermon 3470 | An Earnest Entreaty
 
-(No. 3470)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 5, 1915.
 

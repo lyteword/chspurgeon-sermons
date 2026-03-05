@@ -1,6 +1,5 @@
 # Sermon 1762 | High Doctrine And Broad Doctrine
 
-(No. 1762)
 
 DELIVERED BY
 

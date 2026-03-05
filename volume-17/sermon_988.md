@@ -1,6 +1,5 @@
 # Sermon 988 | The Pastor's Parting Blessing
 
-Sermon No. 988 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 BEFORE LEAVING HOME FOR A JOURNEY
 

@@ -1,6 +1,5 @@
 # Sermon 2478 | Christ's Perfection and Precedence
 
-(No. 2478)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 16, 1896.
 

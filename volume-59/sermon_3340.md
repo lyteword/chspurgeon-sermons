@@ -1,6 +1,5 @@
 # Sermon 3340 | "Take Away the Frogs"
 
-(No. 3340)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 6, 1913.
 

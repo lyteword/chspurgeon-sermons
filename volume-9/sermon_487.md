@@ -1,6 +1,5 @@
 # Sermon 487 | A Tempted Savior--Our Best Succor
 
-Sermon No. 487 - Delivered on Sunday Morning, January 4th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For in that He Himself has suffered being tempted, He is able to succor them that are tempted."  
 > Hebrews 2:18.  

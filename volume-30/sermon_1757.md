@@ -1,6 +1,5 @@
 # Sermon 1757 | The New Year's Guest
 
-(No. 1757)
 
 A SERMON PREACHED ON LORDS-DAY AFTERNOON, DECEMBER 16, 1883,
 

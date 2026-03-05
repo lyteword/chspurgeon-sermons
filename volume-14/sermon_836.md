@@ -1,6 +1,5 @@
 # Sermon 836 | Sown Light
 
-A Sermon (No. 836)
 
 Delivered on Lord's-Day Morning, October 11, 1868, by C. H. SPURGEON, at the [45]Metropolitan Tabernacle, Newington.
 

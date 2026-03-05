@@ -1,6 +1,5 @@
 # Sermon 184 | The Glorious Gospel
 
-Sermon No. 184 - Delivered on Sabbath Morning, March 21, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > This is a faithful saying, and worthy of all acceptation that Christ Jesus came into the world to save sinners; of whom I am chief.    
 > 1 Timothy 1:15.    

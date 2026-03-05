@@ -1,6 +1,5 @@
 # Sermon 3535 | Safe, Though Surrounded By Sin
 
-(No. 3535)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1916.
 

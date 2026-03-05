@@ -1,6 +1,5 @@
 # Sermon 263 | The Story of God's Mighty Acts
 
-Sermon No. 263 - Delivered on Sabbath Morning, July 17th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > We have heard with our ears, O God, our fathers have told us, what work thou didst in their days, in the times of old.    
 > Psalm 44:1.    

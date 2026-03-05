@@ -1,6 +1,5 @@
 # Sermon 2194 | Between the Two Appearings
 
-(No. 2194)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 15, 1891,
 

@@ -1,6 +1,4 @@
-# Sermon 2571 | The Climax of God's Love No. 2571
 
-(No. 2571)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 22, 1898.
 

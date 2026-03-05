@@ -1,6 +1,5 @@
 # Sermon 2184 | A Private Enquiry
 
-(No. 2184)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 18, 1891,
 

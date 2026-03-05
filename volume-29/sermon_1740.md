@@ -1,6 +1,5 @@
 # Sermon 1740 | The Exeter-Hall Sermon to Young Men
 
-(No. 1740)
 
 DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 2, 1883,
 

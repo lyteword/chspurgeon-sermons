@@ -1,6 +1,5 @@
 # Sermon 548 | Forward! Forward! Forward!
 
-Sermon No. 548 - Delivered on Sunday Evening, October 18th 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And the Lord said unto Moses, Why cry you unto Me? Speak unto the children of Israel, that they go forward."  
 > Exodus 14:15.  

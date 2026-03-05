@@ -1,6 +1,5 @@
 # Sermon 2797 | The Need and Nature of Conversion
 
-(No. 2797)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 21, 1902.
 

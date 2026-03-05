@@ -1,6 +1,5 @@
 # Sermon 1927 | Our Sympathizing High Priest
 
-(No. 1927)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 31, 1886,
 

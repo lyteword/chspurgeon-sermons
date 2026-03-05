@@ -1,6 +1,5 @@
 # Sermon 1779 | Grappling Irons
 
-(No. 1779)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1884,
 

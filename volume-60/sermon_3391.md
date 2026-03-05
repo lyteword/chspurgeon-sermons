@@ -1,6 +1,5 @@
 # Sermon 3391 | Preparation for the Lord's Supper
 
-(No. 3391)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 29, 1914.
 

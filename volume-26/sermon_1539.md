@@ -1,6 +1,5 @@
 # Sermon 1539 | "The Disciple Whom Jesus Loved"
 
-(No. 1539)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 23, 1880,
 

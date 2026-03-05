@@ -1,6 +1,5 @@
 # Sermon 2632 | "What Shall the Harvest Be?"
 
-(No. 2632)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 23, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 2829 | Lowly Service
 
-(No. 2829)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 3, 1903.
 

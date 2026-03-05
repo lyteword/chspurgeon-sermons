@@ -1,6 +1,5 @@
 # Sermon 1267 | The God of Bethel
 
-(No. 1267)
 
 DELIVERED BY
 

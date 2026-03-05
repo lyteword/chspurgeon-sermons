@@ -1,6 +1,5 @@
 # Sermon 2093 | The Curse and the Curse for Us
 
-Sermon No. 2093 - Delivered on Sunday, May 26, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For as many as are of the works of the Law are under the curse; for itis written, Cursed is everyone who does not continue in all things which are written in the book of the law, to do them. But that no one is justified by the Law in the sight of God is evident, for the just shall live by faith. Yet the law is not of faith, but, the man who does them shall live by them. Christ has redeemed us from the curse of the law, having become a curse for us for itis written, Cursed is everyone who hangs on a tree, that the blessing of Abraham might come upon the Gentiles in Christ Jesus, that we might receive the promise of the Spirit through faith."  
 > Galatians 3:10-14.  

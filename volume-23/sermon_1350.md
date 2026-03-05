@@ -1,6 +1,5 @@
 # Sermon 1350 | Enlivening and Invigorating
 
-(No. 1350)
 
 DELIVERED BY
 

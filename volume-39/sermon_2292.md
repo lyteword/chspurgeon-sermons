@@ -1,6 +1,5 @@
 # Sermon 2292 | Abraham, A Pattern To Believers
 
-(No. 2292)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 22, 1893.
 

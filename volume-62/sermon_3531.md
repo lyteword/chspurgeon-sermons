@@ -1,6 +1,5 @@
 # Sermon 3531 | 'That Day' and Its Disclosure"
 
-(No. 3531)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1916.
 

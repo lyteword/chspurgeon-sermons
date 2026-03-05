@@ -1,6 +1,5 @@
 # Sermon 1743 | A Loving Entreaty
 
-(No. 1743)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 7, 1883,
 

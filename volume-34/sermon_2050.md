@@ -1,6 +1,5 @@
 # Sermon 2050 | A Paradox
 
-Sermon No. 2050 - Delivered on Lord's-Day Morning, November 4th, 1888 the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
 
 > "When I am weak, then am I strong."'2 Corinthians 12:10.  
 > "When I am weak, then am I strong."'2 Corinthians 12:10.  

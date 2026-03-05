@@ -1,6 +1,5 @@
 # Sermon 2567 | The Single-handed Conquest
 
-(No. 2567)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 24, 1898.
 

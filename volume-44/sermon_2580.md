@@ -1,6 +1,5 @@
 # Sermon 2580 | Partnership With Christ
 
-(No. 2580)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 24, 1898.
 

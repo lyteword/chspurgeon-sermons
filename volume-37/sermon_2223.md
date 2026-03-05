@@ -1,6 +1,5 @@
 # Sermon 2223 | Abraham's Trial--a Lesson for Believers
 
-(No. 2223)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 27, 1891,
 

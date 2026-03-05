@@ -1,6 +1,5 @@
 # Sermon 2662 | Some Marks of God's People
 
-(No. 2662)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 18, 1900.
 

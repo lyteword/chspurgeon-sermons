@@ -1,6 +1,5 @@
 # Sermon 520 | Confession With The Mouth
 
-Sermon No. 520 - Delivered on Sunday Morning, July 19th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "With the heart man believes unto righteousness. And with the mouth confession is made unto salvation."  
 > Romans 10:10.  

@@ -1,6 +1,5 @@
 # Sermon 2798 | Sweet Stimulants for the Fainting Soul
 
-(No. 2798)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 28, 1902.
 

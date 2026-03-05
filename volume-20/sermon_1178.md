@@ -1,6 +1,5 @@
 # Sermon 1178 | Glorying in the Lord
 
-(No. 1178)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 1507 | Soul Saving Our One Business
 
-(No. 1507)
 
 DELIVERED BY
 

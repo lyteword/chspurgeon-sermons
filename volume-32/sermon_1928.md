@@ -1,6 +1,5 @@
 # Sermon 1928 | Our Ascended Lord
 
-(No. 1928)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 7, 1886,
 

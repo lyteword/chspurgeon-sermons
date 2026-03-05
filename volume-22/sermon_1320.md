@@ -1,6 +1,5 @@
 # Sermon 1320 | Why Should I Weep?
 
-(No. 1320)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 22, 1876,
 

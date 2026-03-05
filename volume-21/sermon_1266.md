@@ -1,6 +1,5 @@
 # Sermon 1266 | Paul's Doxology
 
-(No. 1266)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1875,
 

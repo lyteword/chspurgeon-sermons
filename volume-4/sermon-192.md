@@ -1,6 +1,5 @@
 # Sermon 192 | The Sunday-School Teacher&mdash;A Steward
 
-Sermon No. 192 - Delivered on Tuesday Evening, May 4, 1858, by the REV. C.H. SPURGEON at Bloomsbury Chapel,.
 
 On behalf of the Sunday School Union
 

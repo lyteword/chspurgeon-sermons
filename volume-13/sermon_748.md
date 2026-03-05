@@ -1,6 +1,5 @@
 # Sermon 748 | Self-Humbling
 
-Sermon No. 748 - Delivered on Lord's-day Morning, MAY 5, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Because your heart was tender, and you humbled yourself before God when you heard His words against thisplace, and against the inhabitants, and you humbled yourself before Me, and you tore your clothes, and wept before Me; Ialso have heardyou, says the Lord."- 2 Chronicles 34:27.

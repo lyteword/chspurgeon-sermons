@@ -1,6 +1,5 @@
 # Sermon 2969 | Angelic Protection in Appointed Ways
 
-(No. 2969)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1906.
 

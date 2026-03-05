@@ -1,6 +1,5 @@
 # Sermon 3205 | Scales Taken From the Eyes
 
-(No. 3205)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 7, 1910.
 

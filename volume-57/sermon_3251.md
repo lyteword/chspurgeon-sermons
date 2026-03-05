@@ -1,6 +1,5 @@
 # Sermon 3251 | Christ the Tree of Life
 
-(No. 3251)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 25, 1911.
 

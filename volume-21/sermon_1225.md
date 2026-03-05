@@ -1,6 +1,5 @@
 # Sermon 1225 | Jesus, The Delight of Heaven
 
-(No. 1225)
 
 DELIVERED BY
 

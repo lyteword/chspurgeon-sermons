@@ -1,6 +1,5 @@
 # Sermon 531 | The Warrant of Faith
 
-Sermon No. 531 - Delivered on Sunday Morning, September 20th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And this is his commandment, That we should believe on the name of his Son Jesus Christ."  
 > 1 John 3:23.  

@@ -1,6 +1,5 @@
 # Sermon 3051 | Lessons From a Dovecot
 
-(No. 3051)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 1, 1907.
 

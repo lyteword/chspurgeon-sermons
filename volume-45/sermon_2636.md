@@ -1,6 +1,5 @@
 # Sermon 2636 | The Perpetuity of the Gospel
 
-(No. 2636)
 
 INTENDED FOR READING ON LORD'S DAY, AUGUST 20, 1899.
 

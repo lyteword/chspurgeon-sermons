@@ -1,6 +1,5 @@
 # Sermon 3297 | David and His Volunteers
 
-(No. 3297)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 11, 1912.
 

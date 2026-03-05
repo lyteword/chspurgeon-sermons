@@ -1,6 +1,5 @@
 # Sermon 2968 | "His Great Love"
 
-(No. 2968)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 29, 1905.
 

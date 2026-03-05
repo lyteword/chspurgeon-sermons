@@ -1,6 +1,5 @@
 # Sermon 1573 | Bad Lodgers and How To Treat Them
 
-(No. 1573)
 
 DELIVERED BY
 

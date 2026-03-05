@@ -1,6 +1,5 @@
 # Sermon 1645 | Our Lord before Herod
 
-(No. 1645)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 19, 1882,
 

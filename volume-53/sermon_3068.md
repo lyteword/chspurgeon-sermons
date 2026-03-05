@@ -1,6 +1,5 @@
 # Sermon 3068 | Unknown Depths and Heights
 
-(No. 3068)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 28, 1907.
 

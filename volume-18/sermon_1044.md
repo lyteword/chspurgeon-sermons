@@ -1,6 +1,5 @@
 # Sermon 1044 | Loosening The Sandal Strap
 
-(No. 1044)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 31, 1872,
 

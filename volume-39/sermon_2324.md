@@ -1,6 +1,5 @@
 # Sermon 2324 | The Followers of the Lamb
 
-(No. 2324)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3, 1893.
 

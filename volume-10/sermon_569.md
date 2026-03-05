@@ -1,6 +1,5 @@
 # Sermon 569 | The Arrows Of The Lord'S Deliverance
 
-Sermon No. 569 - Delivered on Sunday Morning, March 22nd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "You should have struck five or six times. Then had you struck Syria till you had consumed it: whereas now you shall strike Syria but thrice."  
 > 2 Kings 13:19.  

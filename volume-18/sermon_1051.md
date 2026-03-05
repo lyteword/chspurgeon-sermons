@@ -1,6 +1,5 @@
 # Sermon 1051 | Golden Bowls Full Of Incense
 
-(No. 1051)
 
 A SERMON DELIVERED ON SUNDAY MORNING, MAY 19, 1872,
 

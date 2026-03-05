@@ -1,6 +1,5 @@
 # Sermon 1847 | Before Sermon, At Sermon and After Sermon
 
-(No. 1847)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 28, 1885,
 

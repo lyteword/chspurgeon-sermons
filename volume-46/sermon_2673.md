@@ -1,6 +1,5 @@
 # Sermon 2673 | Christ Crucified
 
-(No. 2673)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 6, 1900.
 

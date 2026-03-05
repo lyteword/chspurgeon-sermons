@@ -1,6 +1,5 @@
 # Sermon 2174 | Fever and Its Cure
 
-Sermon No. 2174 - Delivered on Sunday Morning, November 23th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And He arose out of the synagogue, and entered into Simon's house. And Simon's wife's mother was taken with a great fever, and they besought Him for her. And He stood over her, and rebuked the fever; and it left her: and immediately she arose and ministered unto them."  
 > Luke 4:38,39.  
@@ -111,7 +110,6 @@ The Lord Jesus is a real Man and so He touches you in your feeble and suffering 
 
 We read that when our Lord had touched her, He rebuked the fever. Your feverishness deserves His rebuke. Oh, that He would bid it be gone! Oh, that He would say tonight, "Be gone unbelief! Be gone anxiety! Be gone fretfulness! Be gone doubt and fear"! The winds and the waves heard His rebuke and from their noise and clamor they hushed themselves to a great calm. Oh, that Jesus would come, now, and speak to your feverishness and you shall be as happy as the birds of Paradise!
 
-I had a great trouble last night--I will not tell you what it was--a great trouble to my heart. But this morning I had a great joy which I will tell you. It is this note--"Dear Sir, I feel so happy to tell you that the Lord has pardoned a poor outcast of society. I got into your place in a crowd, hoping nobody would see me. I had been out all night and was miserable. While you were preaching about the leper, [See Sermon No. 2162, "And Why Not Me?"] my whole life of sin rose up before me. I saw myself worse than the leper--cast away by everybody. There is not a sin I was not guilty of. As you went on I looked straight away to Jesus. A gracious answer came, 'Your sins, which are many, are forgiven.' I never heard any more of your sermon! I felt such joy to think that Jesus died even for a poor harlot! Long before you get this letter I trust to be on the way to my dear home I ran away from. Do please pray for me, that I may be kept by God's almighty power. I can never thank you enough for bringing me to Jesus"--and so on.
 
 If it had not been for that bit about going home, I might have had some doubt about it. But when a fallen girl goes home to her father and mother, it is a safe case! This gives me joy--do you wonder? To see souls saved is Heaven to me! I find that my Lord has a gracious way of laying on a plaster where He makes a sore. If the heart is heavy with grief, He can balance it with consolation.
 

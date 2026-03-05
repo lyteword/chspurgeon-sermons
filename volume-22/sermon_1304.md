@@ -1,6 +1,5 @@
 # Sermon 1304 | Enquire of the Lord
 
-(No. 1304)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 9, 1876,
 

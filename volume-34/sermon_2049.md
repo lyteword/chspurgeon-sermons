@@ -1,6 +1,5 @@
 # Sermon 2049 | Driving Out the Canaanites and Their Iron Chariots
 
-Sermon No. 2049 - Delivered on Thursday Evening July 12th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For you shall drive out the Canaanites, though they have iron chariots and though they are strong."  
 > Joshua 17:18.  

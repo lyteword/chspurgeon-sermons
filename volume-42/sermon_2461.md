@@ -1,6 +1,5 @@
 # Sermon 2461 | Rejoicing and Remembering
 
-(No. 2461)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1896.
 
@@ -68,7 +67,6 @@ Some of you, my dear venerable Brothers and Sisters, will soon be Home--come, we
 
 What a joy it adds to this festival when we see the young folk coming among us, the sons and daughters of God's people being brought into the Church! Do you not notice how dear Mr. William Olney, whenever he prays for a blessing upon our ministry, always breaks out into thanksgiving to God that all his family have been brought to Christ? There are many others of us who can praise the Lord for the same favor and it is a great joy to us! Yes, Lord, we will remember Your love--husband and wife, sons and daughters, and some of us can say grandchildren, too--we will all come clustering around Your Table and, together, we will remember Your sweet love to our fathers, to ourselves and to our children! We cannot help remembering it and rejoicing and being glad in it.
 
-I must give you just one more thought upon this point. It does not become us to gather at this Communion Table with a heavy heart when we remember that it is not only a commemoration, but an anticipation. We are to do this "till He comes." Did I not try, this morning, [Sermon No. 1894, Volume 32--"The Two Appearings and the Discipline of Grace" to sound the trumpet of His coming? It would not have startled me if He had come while we were assembled and I was speaking of "the glorious appearing of the great God and our Savior Jesus Christ." Nor should it startle any of you, if, in the dead of this very night, while you are in your beds, you should hear the cry, "Behold, the Bridegroom comes!" for He may come at any moment and He will come, "in such an hour as you think not." Let us leap up at the remembrance of this gladsome hope!
 
 We are coming to the Table, keeping up the memorial of our Lord's first appearing in the fond hope and sure belief of that second appearing when the righteous shall shine forth as the sun in the Kingdom of their Father. Therefore, let us keep the feast with high hope. With joyous notes, sound aloud the silver trumpet of the great jubilee and, as you come to the Table, let your hearts be glad in the Lord, whose love you especially remember at this hallowed festival!
 

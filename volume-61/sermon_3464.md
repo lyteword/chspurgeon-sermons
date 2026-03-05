@@ -1,6 +1,5 @@
 # Sermon 3464 | True Worship
 
-(No. 3464)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 24, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 2366 | "The Sure Mercies of David"
 
-(No. 2366)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 24, 1894.
 

@@ -1,6 +1,5 @@
 # Sermon 1479 | The Work of Grace the Warrant for Obedience
 
-(No. 1479)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 15, 1879,
 

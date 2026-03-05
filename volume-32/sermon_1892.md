@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 1892)
 
 Suggested by the death of CHARLES STANFORD, D.D.,
 

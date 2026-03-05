@@ -1,6 +1,5 @@
 # Sermon 2711 | The Sight of Iniquity
 
-(No. 2711)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY JANUARY 27, 1901.
 

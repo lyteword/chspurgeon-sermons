@@ -1,6 +1,5 @@
 # Sermon 3183 | Cheer for Despondency
 
-(No. 3183)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 3, 1910.
 

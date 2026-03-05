@@ -1,6 +1,5 @@
 # Sermon 3140 | The Glory of Our Strength
 
-(No. 3140)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 15, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 3219 | "He Blessed Him There"
 
-(No. 3219)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 13, 1910.
 

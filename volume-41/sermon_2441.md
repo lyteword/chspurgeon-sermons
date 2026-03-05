@@ -1,6 +1,5 @@
 # Sermon 2441 | The Lord's Knowledge, Our Safeguard
 
-(No. 2441)
 
 INTENDED FOR READING ON LORD'S DAY, DECEMBER 1, 1895.
 

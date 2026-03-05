@@ -1,6 +1,5 @@
 # Sermon 3545 | Our Glorious Leader
 
-(No. 3545)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1917.
 

@@ -1,6 +1,5 @@
 # Sermon 3092 | Knowing and Doing
 
-(No. 3092)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 14, 1908.
 

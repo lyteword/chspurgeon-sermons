@@ -1,6 +1,5 @@
 # Sermon 1895 | Love Abounding, Love Complaining, Love Abiding
 
-(No. 1895)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 11, 1886,
 

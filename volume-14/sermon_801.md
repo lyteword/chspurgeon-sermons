@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 801)
 
 Delivered on Lord's-Day Morning, March 22, 1868, by
 

@@ -1,6 +1,5 @@
 # Sermon 1894 | The Two Appearings and the Discipline of Grace
 
-(No. 1894)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1886,
 

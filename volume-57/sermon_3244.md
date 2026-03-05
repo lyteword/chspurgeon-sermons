@@ -1,6 +1,5 @@
 # Sermon 3244 | "Our Light Affliction"
 
-(No. 3244)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 6, 1911.
 

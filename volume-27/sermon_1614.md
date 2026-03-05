@@ -1,6 +1,5 @@
 # Sermon 1614 | Dressing In The Morning
 
-(No. 1614)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 21, 1881,
 

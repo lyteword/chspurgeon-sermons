@@ -1,6 +1,5 @@
 # Sermon 3523 | A Type and Its Teaching
 
-(No. 3523)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1916.
 

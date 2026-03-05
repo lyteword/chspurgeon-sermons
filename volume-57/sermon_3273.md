@@ -1,6 +1,5 @@
 # Sermon 3273 | A Sermon to Ministers and Other Tried Believers
 
-(No. 3273)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1911.
 

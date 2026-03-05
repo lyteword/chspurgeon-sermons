@@ -1,6 +1,5 @@
 # Sermon 1296 | Gone, Gone Forever
 
-(No. 1296)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 28, 1876,
 

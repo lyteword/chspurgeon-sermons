@@ -1,6 +1,5 @@
 # Sermon 2731 | Bringing Sinners to the Savior
 
-(No. 2731)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 16, 1901.
 

@@ -1,6 +1,5 @@
 # Sermon 706 | Fields White For Harvest
 
-Sermon No. 706 - Delivered on Sunday Evening, July 29th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Do you notsay, 'There are yet four months, and then comes the harvest'? Behold, Isay to you, Lift up your eyes and look at the fields for they are already white for harvest."  
 > John 4:35.  

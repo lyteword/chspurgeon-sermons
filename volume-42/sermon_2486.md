@@ -1,6 +1,5 @@
 # Sermon 2486 | Overcoming Christ
 
-(No. 2486)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 11, 1896.
 

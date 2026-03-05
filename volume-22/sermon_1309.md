@@ -1,6 +1,5 @@
 # Sermon 1309 | The Little Dogs
 
-(No. 1309)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 6, 1876,
 

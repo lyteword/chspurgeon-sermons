@@ -1,6 +1,5 @@
 # Sermon 934 | Bands Of Love
 
-(No. 934)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 5, 1870,
 

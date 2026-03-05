@@ -1,6 +1,5 @@
 # Sermon 118 | The Blood-Shedding
 
-Sermon No. 118 - Delivered on Sabbath Morning, February 22, 1857, by the REV. C.H. SPURGEON at The Music Hall, Royal Surrey Gardens.
 
 > Without shedding of blood is no remission.    
 > Hebrews 9: 22.    

@@ -1,6 +1,5 @@
 # Sermon 2386 | The Drawings Of Divine Love
 
-(No. 2386)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 11, 1894.
 

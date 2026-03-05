@@ -1,6 +1,5 @@
 # Sermon 1987 | "Behold the Lamb of God"
 
-Sermon No. 1987 - Delivered on Sunday Morning, October 16th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The next day John saw Jesus coming toward him, and said, Behold! The Lamb of God who takes away the sin of the world."  
 > John 1:29.  

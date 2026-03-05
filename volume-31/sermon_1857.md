@@ -1,6 +1,5 @@
 # Sermon 1857 | The Necessity of Growing Faith
 
-(No. 1857)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 30, 1885,
 

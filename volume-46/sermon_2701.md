@@ -1,6 +1,5 @@
 # Sermon 2701 | Jesus Joyfully Received
 
-(No. 2701)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 18, 1900.
 

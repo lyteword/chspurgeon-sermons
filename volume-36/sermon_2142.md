@@ -1,6 +1,5 @@
 # Sermon 2142 | Our Lord's Triumphant Ascension
 
-Sermon No. 2142 - Delivered on Sunday Morning, May 11th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "You have ascended on high, You have led captivity captive: You ha ve received gifts for men; yes, for the rebellious, also, that the Lord God might dwell among them."  
 > Psalm 68:18.  

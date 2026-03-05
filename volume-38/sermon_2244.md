@@ -1,6 +1,5 @@
 # Sermon 2244 | Members Of Christ
 
-(No. 2244)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 21, 1892.
 

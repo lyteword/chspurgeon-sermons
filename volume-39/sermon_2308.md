@@ -1,6 +1,5 @@
 # Sermon 2308 | Ten Wrong Kinds of Hearers
 
-(No. 2308)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 14, 1893.
 

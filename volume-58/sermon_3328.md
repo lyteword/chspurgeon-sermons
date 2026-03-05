@@ -1,6 +1,5 @@
 # Sermon 3328 | Guests for the Royal Feast
 
-(No. 3328)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 14, 1912.
 

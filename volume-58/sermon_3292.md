@@ -1,6 +1,5 @@
 # Sermon 3292 | The Almighty Warrior
 
-(No. 3292)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 7, 1912.
 

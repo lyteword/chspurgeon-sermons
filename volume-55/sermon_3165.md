@@ -1,6 +1,5 @@
 # Sermon 3165 | Witnesses for God
 
-(No. 3165)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1909.
 

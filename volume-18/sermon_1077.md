@@ -1,6 +1,5 @@
 # Sermon 1077 | The Lord Blessing His Saints
 
-(No. 1077)
 
 A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 26, 1872,
 

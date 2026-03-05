@@ -1,6 +1,5 @@
 # Sermon 1403 | God's Advocates Breaking Silence
 
-(No. 1403)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 17, 1878,
 

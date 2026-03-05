@@ -1,6 +1,5 @@
 # Sermon 1508 | The Philosophy of Promise
 
-(No. 1508)
 
 DELIVERED ON LORD'S-DAY EVENING, JUNE 29, 1879,
 

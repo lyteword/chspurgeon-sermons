@@ -1,6 +1,5 @@
 # Sermon 645 | The Blind Man's Earnest Cries
 
-Sermon No. 645 - Delivered on Sunday Morning, August 20th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > And when he heard that it was Jesus of Nazareth, he began to cry out and say, Jesus, Son of David, have mercy upon me! And many charged him that he should hold his peace: but he cried the more a great deal, Son of David, have mercy on me.    
 > Mark 10:47,48.    

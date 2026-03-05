@@ -1,6 +1,5 @@
 # Sermon 2682 | A Song and a Solace
 
-(No. 2682)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 8, 1900.
 

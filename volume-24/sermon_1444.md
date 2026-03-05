@@ -1,6 +1,5 @@
 # Sermon 1444 | The Moral of a Miracle
 
-(No. 1444)
 
 DELIVERED BY
 

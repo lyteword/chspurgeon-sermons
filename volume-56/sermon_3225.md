@@ -1,6 +1,5 @@
 # Sermon 3225 | Finding and Following Christ
 
-(No. 3225)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 24H, 1910.
 

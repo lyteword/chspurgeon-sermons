@@ -1,6 +1,5 @@
 # Sermon 253 | A Psalm of Remembrance
 
-Sermon No. 253 - Delivered on Sabbath Morning, May 22nd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > We have known and believed the love that God hath to us.    
 > 1 John 4:16.    

@@ -1,6 +1,5 @@
 # Sermon 3352 | A World Wide Welcome
 
-(No. 3352)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 1, 1913.
 

@@ -1,6 +1,5 @@
 # Sermon 3451 | Grand Glorying
 
-(No. 3451)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 25, 1915.
 

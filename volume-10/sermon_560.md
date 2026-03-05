@@ -1,6 +1,5 @@
 # Sermon 560 | Christ is Glorious--Let Us Make Him Known
 
-Sermon No. 560 - Delivered on Sunday Morning, March 20th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And he shall stand and feed in the strength of the Lord, in the majesty of the name of the Lord his God; and they shall abide: for now shall he be great unto the ends of the earth."  
 > Micah 5:4.  

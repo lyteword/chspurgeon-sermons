@@ -1,6 +1,5 @@
 # Sermon 71 | A Bottle in the Smoke
 
-Sermon No. 71 - Delivered on Sabbath Morning, March 23, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > For I am become like a bottle in the smoke; yet do I not forget they statutes.    
 > Psalm 119:83.    

@@ -1,6 +1,5 @@
 # Sermon 1611 | The Word of the Cross
 
-(No. 1611)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 31, 1881,
 

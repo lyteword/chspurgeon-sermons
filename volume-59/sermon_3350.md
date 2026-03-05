@@ -1,6 +1,5 @@
 # Sermon 3350 | "Stewards"
 
-(No. 3350)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 17, 1913.
 

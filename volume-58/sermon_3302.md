@@ -1,6 +1,5 @@
 # Sermon 3302 | Faith in Christ's Ability
 
-(No. 3302)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 16, 1912.
 

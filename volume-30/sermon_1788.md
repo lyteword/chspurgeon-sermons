@@ -1,6 +1,5 @@
 # Sermon 1788 | The Proof of Our Ministry
 
-(No. 1788)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 29, 1884,
 

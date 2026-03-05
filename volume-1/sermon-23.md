@@ -1,6 +1,5 @@
 # Sermon 23 | Thoughts on the Last Battle
 
-Sermon No. 23 - Delivered on Sabbath Evening, May 13, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > The sting of death is sin; and the strength of sin is the law. But, thanks be unto God, which giveth us the victory through our Lord Jesus Christ.    
 > 1 Corinthians 15:56-57.    

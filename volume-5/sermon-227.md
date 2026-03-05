@@ -1,6 +1,5 @@
 # Sermon 227 | Compel Them to Come In
 
-Sermon No. 227 - Delivered on Sabbath Morning, December 5th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Compel them to come in.    
 > Luke 14:23.    

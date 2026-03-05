@@ -1,6 +1,5 @@
 # Sermon 3071 | Idolatry Condemned
 
-(No. 3071)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 19, 1907.
 

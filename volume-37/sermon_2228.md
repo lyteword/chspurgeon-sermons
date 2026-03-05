@@ -1,6 +1,5 @@
 # Sermon 2228 | The Law's Failure and Fulfillment
 
-(No. 2228)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 1, 1891,
 

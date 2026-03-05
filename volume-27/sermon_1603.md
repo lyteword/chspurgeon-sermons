@@ -1,6 +1,5 @@
 # Sermon 1603 | What the Farm Laborers Can Do and What They Cannot Do
 
-(No. 1603)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 12, 1881,
 

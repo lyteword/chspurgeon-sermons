@@ -1,6 +1,5 @@
 # Sermon 3443 | Seeing Jesus
 
-(No. 3443)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1915.
 

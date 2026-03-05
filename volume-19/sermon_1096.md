@@ -1,6 +1,5 @@
 # Sermon 1096 | Divine Love and Its Gifts
 
-(No. 1096)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 16, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 1714 | Earnest Expostulation
 
-Sermon No. 1714 - Delivered on Lord's-Day Morning, April 1st, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Or despisest thou the riches of his goodness and forbearance and longsuffering; not knowing that the goodness of God leadeth thee to repentance?"  
 > Romans 2:4.  

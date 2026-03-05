@@ -1,6 +1,5 @@
 # Sermon 3366 | Deliverance From the Power of Darkness
 
-(No. 3366)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 7, 1913.
 

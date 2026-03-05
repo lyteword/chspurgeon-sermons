@@ -1,6 +1,5 @@
 # Sermon 3186 | Peter's Shortest Prayer
 
-(No. 3186)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 24, 1910.
 

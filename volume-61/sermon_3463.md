@@ -1,6 +1,5 @@
 # Sermon 3463 | Why Men Do Not Believe
 
-(No. 3463)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 17, 1915.
 

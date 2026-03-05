@@ -1,6 +1,5 @@
 # Sermon 2418 | "All of One"
 
-(No. 2418)
 
 INTENDED FOR READING ON LORD'S DAY, JUNE 23, 1895.
 

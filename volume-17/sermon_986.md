@@ -1,6 +1,5 @@
 # Sermon 986 | Victor Emmanuel, Emancipator
 
-Sermon No. 986 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house."-Isaiah 42:7.  
 > "To open the blind eyes, to bring out the prisoners from the prison, and them that sit in darkness out of the prison house."-Isaiah 42:7.  
@@ -77,4 +76,3 @@ This Work is the substance of many Libraries. It contains the essence of all the
 
 Published by PASSMORE & ALABASTER, Paternoster Row, and may be had of all Booksellers.
 
-*Metropolitan Tabernacle Pulpit, No. 915. "Sinners Bound with the Cords of Sin."

@@ -1,6 +1,5 @@
 # Sermon 212 | The New Heart
 
-Sermon No. 212 - Delivered on Sabbath Morning, September 5, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > A new heart also will I give you, and a new spirit will I put within you, and I will take away the stony heart out of your flesh, and I will give you an heart of flesh.    
 > Ezekiel 36:26.    

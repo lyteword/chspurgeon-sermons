@@ -1,6 +1,5 @@
 # Sermon 3289 | The Sealed Hand--a Winter Sermon
 
-(No. 3289)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1912.
 

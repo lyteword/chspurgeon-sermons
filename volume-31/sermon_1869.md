@@ -1,6 +1,5 @@
 # Sermon 1869 | Hagar at the Fountain
 
-(No. 1869)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 8, 1885,
 

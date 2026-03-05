@@ -1,6 +1,5 @@
 # Sermon 3086 | "Marvelous Things"
 
-(No. 3086)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 2, 1908.
 

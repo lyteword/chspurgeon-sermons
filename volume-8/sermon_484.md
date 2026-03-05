@@ -1,6 +1,5 @@
 # Sermon 484 | The Lord,--the Liberator
 
-Sermon No. 484 - Delivered on Sunday Morning, December 14th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The Lord looseth the prisoners."  
 > Psalm 146:7.  

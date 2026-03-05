@@ -1,6 +1,5 @@
 # Sermon 2336 | The Love Of Jonathan and the Love Of Jesus
 
-(No. 2336)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 26, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 909 | Voices from the Excellent Glory
 
-(No. 909)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 9, 1870,
 

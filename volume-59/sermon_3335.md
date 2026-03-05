@@ -1,6 +1,5 @@
 # Sermon 3335 | The Divine Discipline
 
-(No. 3335)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 2, 1913.
 

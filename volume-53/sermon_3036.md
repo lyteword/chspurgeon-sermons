@@ -1,6 +1,5 @@
 # Sermon 3036 | Proving God
 
-(No. 3036)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 18, 1907.
 

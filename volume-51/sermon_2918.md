@@ -1,6 +1,5 @@
 # Sermon 2918 | Facing the Wind
 
-(No. 2918)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 12, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 3258 | Stumbling at the Word
 
-(No. 3258)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 13, 1911.
 

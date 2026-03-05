@@ -1,6 +1,5 @@
 # Sermon 2474 | The Great Change
 
-(No. 2474)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1896.
 

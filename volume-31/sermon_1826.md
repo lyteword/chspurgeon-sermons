@@ -1,6 +1,5 @@
 # Sermon 1826 | The Horns of the Altar
 
-Sermon No. 1826 - Delivered on Delivered the REV. C.H. SPURGEON at [8]the Metropolitan Tabernacle, Newington,.
 
 On March 23rd, 1884,
 

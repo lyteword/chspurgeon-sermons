@@ -1,6 +1,5 @@
 # Sermon 3442 | "The Desire Of All Nations"
 
-(No. 3442)
 
 PUBLISHED ON THURSDAY, JANUARY 21 1915.
 

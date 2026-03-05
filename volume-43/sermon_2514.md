@@ -1,6 +1,5 @@
 # Sermon 2514 | Servus Servorum
 
-(No. 2514)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 25, 1897.
 

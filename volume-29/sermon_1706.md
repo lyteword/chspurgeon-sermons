@@ -1,6 +1,5 @@
 # Sermon 1706 | The Cast-Off Sash
 
-(No. 1706)
 
 DELIVERED AT THE THURSDAY EVENING LECTURE,
 

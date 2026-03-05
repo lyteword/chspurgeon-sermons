@@ -1,6 +1,5 @@
 # Sermon 1549 | Good News For Thirsty Souls
 
-(No. 1549)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 4, 1880,
 

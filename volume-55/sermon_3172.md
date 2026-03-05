@@ -1,6 +1,5 @@
 # Sermon 3172 | Bright Prospects for Young Believers
 
-(No. 3172)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 25, 1909.
 

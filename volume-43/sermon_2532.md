@@ -1,6 +1,5 @@
 # Sermon 2532 | God's Love Shamefully Questioned
 
-(No. 2532)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 29, 1897.
 

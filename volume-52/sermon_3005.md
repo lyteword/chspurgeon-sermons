@@ -1,6 +1,5 @@
 # Sermon 3005 | Silken Cords
 
-(No. 3005)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 13, 1906.
 

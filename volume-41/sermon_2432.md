@@ -1,6 +1,5 @@
 # Sermon 2432 | Kept From Iniquity
 
-(No. 2432)
 
 INTENDED FOR READING ON LORD'S DAY MORNING, SEPTEMBER 29, 1895.
 

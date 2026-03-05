@@ -1,6 +1,5 @@
 # Sermon 2922 | An Infallible Sign Of Revival
 
-(No. 2922)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 9, 1905.
 

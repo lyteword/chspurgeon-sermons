@@ -1,6 +1,5 @@
 # Sermon 3163 | Cumbered With Much Serving
 
-(No. 3163)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 23, 1909.
 

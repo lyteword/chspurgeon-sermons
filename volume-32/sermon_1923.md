@@ -1,6 +1,5 @@
 # Sermon 1923 | The Annual Atonement
 
-(No. 1923)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 3, 1886,
 

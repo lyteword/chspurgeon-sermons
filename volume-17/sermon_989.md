@@ -1,6 +1,5 @@
 # Sermon 989 | A Last Look-Out
 
-Sermon No. 989 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The time of my departure is at hand."  
 > 2 Timothy 4:6.  

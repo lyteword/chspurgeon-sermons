@@ -1,6 +1,5 @@
 # Sermon 1148 | The Parent's and Pastor's Joy
 
-(No. 1148)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 21 1873,
 

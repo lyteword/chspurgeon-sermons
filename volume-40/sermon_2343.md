@@ -1,6 +1,5 @@
 # Sermon 2343 | Faint--but Not Faint-Hearted
 
-(No. 2343)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 14, 1894.
 

@@ -1,6 +1,5 @@
 # Sermon 3113 | Gratitude for Great Deliverances
 
-(No. 3113)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1908.
 

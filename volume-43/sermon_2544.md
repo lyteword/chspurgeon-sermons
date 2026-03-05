@@ -1,6 +1,5 @@
 # Sermon 2544 | The One and the Many
 
-(No. 2544)
 
 INTENDED FOR READING ON LORD'S DAY, NOVEMBER 21, 1897.
 

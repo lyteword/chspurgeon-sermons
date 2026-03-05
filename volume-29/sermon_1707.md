@@ -1,6 +1,5 @@
 # Sermon 1707 | "Herein Is Love"
 
-(No. 1707)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 18, 1883,
 

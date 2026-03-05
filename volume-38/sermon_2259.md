@@ -1,6 +1,5 @@
 # Sermon 2259 | The Simplicity and Sublimity of Salvation
 
-(No. 2259)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 5, 1892.
 

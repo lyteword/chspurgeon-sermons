@@ -1,6 +1,5 @@
 # Sermon 1282 | Conversions Desired
 
-(No. 1282)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 5, 1876,
 

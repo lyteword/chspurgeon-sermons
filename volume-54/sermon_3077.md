@@ -1,6 +1,5 @@
 # Sermon 3077 | Death--a Sleep
 
-(No. 3077)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 30, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 1261 | Sow To Yourselves
 
-(No. 1261)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 24, 1875,
 

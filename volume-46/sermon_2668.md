@@ -1,6 +1,5 @@
 # Sermon 2668 | Communion With Christ--a Baptizing Sermon
 
-(No. 2668)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 1, 1900.
 

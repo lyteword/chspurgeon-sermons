@@ -1,6 +1,5 @@
 # Sermon 2311 | Our Lord's Last Cry from the Cross
 
-(No. 2311)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 4, 1893.
 

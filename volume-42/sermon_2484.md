@@ -1,6 +1,5 @@
 # Sermon 2484 | The Very Friend You Need
 
-(No. 2484)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 27, 1896.
 

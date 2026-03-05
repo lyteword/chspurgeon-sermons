@@ -1,6 +1,5 @@
 # Sermon 1813 | Jonah's Resolve--or, "Look Again!"
 
-(No. 1813)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 14, 1884,
 

@@ -1,6 +1,5 @@
 # Sermon 684 | Hope, Yet No Hope--No Hope, Yet Hope
 
-Sermon No. 684 - Delivered on Sunday Morning, April 8th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "You are wearied in the length of your way; yet you did not say, There is no Hope."  
 > Isaiah 57:10.  

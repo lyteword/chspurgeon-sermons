@@ -1,6 +1,5 @@
 # Sermon 1774 | God's Work Upon Minister and Convert
 
-(No. 1774)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 6, 1884,
 

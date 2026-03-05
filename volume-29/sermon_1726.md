@@ -1,6 +1,5 @@
 # Sermon 1726 | Buying Without Money
 
-(No. 1726)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 17, 1883,
 

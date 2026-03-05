@@ -1,6 +1,5 @@
 # Sermon 1550 | The Unspeakable Gift
 
-(No. 1550)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 25, 1880,
 

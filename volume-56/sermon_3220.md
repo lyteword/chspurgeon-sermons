@@ -1,6 +1,5 @@
 # Sermon 3220 | "A Time to Love"
 
-(No. 3220)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 20, 1910.
 

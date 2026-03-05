@@ -1,6 +1,5 @@
 # Sermon 2661 | A Marvelous Change
 
-(No. 2661)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1900.
 

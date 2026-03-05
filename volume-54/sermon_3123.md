@@ -1,6 +1,5 @@
 # Sermon 3123 | "The King of the Jews"
 
-(No. 3123)
 
 A SERMON PUBLISHED ON THURSDAY DECEMBER 17, 1908.
 

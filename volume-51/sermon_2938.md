@@ -1,6 +1,5 @@
 # Sermon 2938 | Jesus the Way
 
-(No. 2938)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 1, 1905.
 

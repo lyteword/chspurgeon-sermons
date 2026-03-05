@@ -1,6 +1,5 @@
 # Sermon 3090 | Loving the Law of the Lord
 
-(No. 3090)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 30, 1908.
 

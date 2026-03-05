@@ -1,6 +1,5 @@
 # Sermon 1554 | Redemption By Price
 
-(No. 1554)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1880,
 

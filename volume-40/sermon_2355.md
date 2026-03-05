@@ -1,6 +1,5 @@
 # Sermon 2355 | Christ's Negative and Positive Prayer
 
-(No. 2355)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 8, 1894.
 

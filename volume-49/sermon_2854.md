@@ -1,6 +1,5 @@
 # Sermon 2854 | Lame Sheep
 
-(No. 2854)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1903.
 

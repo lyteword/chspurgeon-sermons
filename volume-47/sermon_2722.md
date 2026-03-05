@@ -1,6 +1,5 @@
 # Sermon 2722 | The Education of Sons of God
 
-(No. 2722)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 14, 1901.
 

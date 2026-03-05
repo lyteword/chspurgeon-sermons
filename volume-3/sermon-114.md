@@ -1,6 +1,5 @@
 # Sermon 114 | Preaching for the Poor
 
-Sermon No. 114 - Delivered on Sabbath Morning, January 25, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > The poor have the gospel preached to them.    
 > Matt. 11:5.    

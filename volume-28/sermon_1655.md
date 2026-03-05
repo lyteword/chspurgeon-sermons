@@ -1,6 +1,5 @@
 # Sermon 1655 | The Blessed Guest Detained
 
-(No. 1655)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 23, 1882,
 

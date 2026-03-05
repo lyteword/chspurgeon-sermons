@@ -1,6 +1,5 @@
 # Sermon 2083 | One Lost Sheep
 
-Sermon No. 2083 - Delivered on Sunday, April 28th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "How think you? If a man has an hundred sheep and one of them is gone astray, does he not lea ve the ninety and nine and go into the mountains and seek that which is gone astray? And if he should find it, verily I say unto you, he rejoices more of that sheep, than of the ninety and nine which went not astray."  
 > Matthew 18:12,13.  

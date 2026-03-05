@@ -1,6 +1,5 @@
 # Sermon 676 | Man's Thoughts And God's Thoughts
 
-Sermon No. 676 - Delivered on Sunday Morning, February 18th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For My thoughts are not your thoughts, Nor are your ways My ways," says the Lord. "For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts."  
 > Isaiah 55:8,9.  

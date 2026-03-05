@@ -1,6 +1,5 @@
 # Sermon 1201 | Providence--as Seen in the Book of Esther
 
-(No. 1201)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1874,
 

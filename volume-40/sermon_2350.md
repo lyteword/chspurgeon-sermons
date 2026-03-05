@@ -1,6 +1,5 @@
 # Sermon 2350 | "Take, Eat"
 
-(No. 2350)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 4, 1894.
 

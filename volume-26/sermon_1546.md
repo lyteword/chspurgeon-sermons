@@ -1,6 +1,5 @@
 # Sermon 1546 | Men Bewitched
 
-(No. 1546)
 
 DELIVERED BY
 

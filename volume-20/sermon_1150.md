@@ -1,6 +1,5 @@
 # Sermon 1150 | Life More Abundant
 
-(No. 1150)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 4, 1874,
 

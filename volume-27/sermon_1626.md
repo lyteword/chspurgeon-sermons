@@ -1,6 +1,5 @@
 # Sermon 1626 | The Principal Wheat
 
-(No. 1626)
 
 DELIVERED ON THURSDAY EVENING, AUGUST 25, 1881,
 

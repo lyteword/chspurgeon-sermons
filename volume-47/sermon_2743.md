@@ -1,6 +1,5 @@
 # Sermon 2743 | Mistaken Notions About Repentance
 
-(No. 2743)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 8, 1901.
 

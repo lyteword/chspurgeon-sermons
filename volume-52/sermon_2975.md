@@ -1,6 +1,5 @@
 # Sermon 2975 | Forgetting God
 
-(No. 2975)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1906.
 

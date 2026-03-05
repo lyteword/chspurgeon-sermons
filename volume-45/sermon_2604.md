@@ -1,6 +1,5 @@
 # Sermon 2604 | Open Praise and Public Confession
 
-(No. 2604)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 8, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 3341 | "The Oil of Joy for Mourning"
 
-(No. 3341)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 13, 1913.
 

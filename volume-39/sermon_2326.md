@@ -1,6 +1,5 @@
 # Sermon 2326 | Satan Departing, Angels Ministering
 
-(No. 2326)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 17, 1893.
 

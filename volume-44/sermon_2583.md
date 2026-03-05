@@ -1,6 +1,5 @@
 # Sermon 2583 | Rain and Grace--a Parallel
 
-(No. 2583)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 14, 1898.
 

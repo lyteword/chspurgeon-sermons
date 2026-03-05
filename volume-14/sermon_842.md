@@ -1,6 +1,5 @@
 # Sermon 842 | The Angelic Life
 
-A Sermon (No. 842)
 
 Delivered on Lord's-Day Morning, November 22, 1868, by C. H. SPURGEON, at the [49]Metropolitan Tabernacle, Newington.
 

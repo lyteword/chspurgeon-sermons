@@ -1,6 +1,5 @@
 # Sermon 2964 | "Trust in the Living God"
 
-(No. 2964)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1905.
 

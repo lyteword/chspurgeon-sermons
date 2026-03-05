@@ -1,6 +1,5 @@
 # Sermon 2773 | For or Against?
 
-(No. 2773)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 6, 1902.
 

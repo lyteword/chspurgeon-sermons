@@ -1,6 +1,5 @@
 # Sermon 1097 | Good Cause for Great Zeal
 
-(No. 1097)
 
 A SERMON DELIVERED
 

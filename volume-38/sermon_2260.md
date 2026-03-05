@@ -1,6 +1,5 @@
 # Sermon 2260 | Christ's Hospital
 
-(No. 2260)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 12, 1892.
 

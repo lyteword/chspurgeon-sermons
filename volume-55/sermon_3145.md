@@ -1,6 +1,5 @@
 # Sermon 3145 | Paul in the Tempest
 
-(No. 3145)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 20, 1909.
 

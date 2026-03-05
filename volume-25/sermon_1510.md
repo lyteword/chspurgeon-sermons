@@ -1,6 +1,5 @@
 # Sermon 1510 | The Hunger-Bite
 
-(No. 1510)
 
 DELIVERED BY
 

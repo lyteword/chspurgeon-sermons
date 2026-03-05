@@ -1,6 +1,5 @@
 # Sermon 123 | Particular Election
 
-Sermon No. 123 - Delivered on Sabbath Morning, March 22, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fail: For so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ.    
 > 2 Peter 1:10-11.    

@@ -1,6 +1,5 @@
 # Sermon 2439 | Five Links in a Golden Chain
 
-(No. 2439)
 
 INTENDED FOR READING ON LORD'S DAY, NOVEMBER 17, 1895,
 

@@ -1,6 +1,5 @@
 # Sermon 2852 | Comfort for the Fearful
 
-(No. 2852)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1903.
 

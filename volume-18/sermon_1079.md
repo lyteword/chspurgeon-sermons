@@ -1,6 +1,5 @@
 # Sermon 1079 | The Secret Food And The Public Name
 
-(No. 1079)
 
 A SERMON DELIVERED
 

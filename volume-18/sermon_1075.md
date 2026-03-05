@@ -1,6 +1,5 @@
 # Sermon 1075 | A Root Out Of A Dry Ground
 
-(No. 1075)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 13, 1872,
 

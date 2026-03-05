@@ -1,6 +1,5 @@
 # Sermon 2557 | A Vexed Soul Comforted
 
-(No. 2557)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 20, 1898.
 

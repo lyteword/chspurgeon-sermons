@@ -1,6 +1,5 @@
 # Sermon 3468 | Consolation for Poor Petitioners
 
-(No. 3468)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 22, 1915.
 

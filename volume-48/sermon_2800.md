@@ -1,6 +1,5 @@
 # Sermon 2800 | "Pray, Always Pray"
 
-(No. 2800)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 12, 1902.
 

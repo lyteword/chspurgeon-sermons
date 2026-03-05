@@ -1,6 +1,5 @@
 # Sermon 875 | "Things To Come"
 
-Sermon No. 875 - Delivered on Sunday Morning, JUNE 13, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Things to come, all are yours."- 1 Corinthians 3:22.

@@ -1,6 +1,5 @@
 # Sermon 3293 | "The Blood of the Testament"
 
-(No. 3293)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 14, 1912.
 

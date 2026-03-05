@@ -1,6 +1,5 @@
 # Sermon 2457 | Job's Resignation
 
-(No. 2457)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1896.
 

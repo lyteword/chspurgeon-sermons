@@ -1,6 +1,5 @@
 # Sermon 2232 | Christ's Motive and Ours
 
-(No. 2232)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 29, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 2270 | Two "I Wills" In Isaiah 41
 
-(No. 2270)
 
 INTENDED FOR READING ON LORD'S-DAY AUGUST 21, 1892.
 

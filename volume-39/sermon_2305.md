@@ -1,6 +1,5 @@
 # Sermon 2305 | No Fixity Without Faith
 
-(No. 2305)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1893.
 

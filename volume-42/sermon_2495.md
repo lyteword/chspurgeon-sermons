@@ -1,6 +1,5 @@
 # Sermon 2495 | Defiled and Defiling
 
-(No. 2495)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 13, 1896.
 

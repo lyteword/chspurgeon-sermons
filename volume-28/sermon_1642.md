@@ -1,6 +1,5 @@
 # Sermon 1642 | "Verily, Verily"
 
-(No. 1642)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 29, 1882,
 

@@ -1,6 +1,5 @@
 # Sermon 1337 | Love's Medicines and Miracles
 
-(No. 1337)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 21, 1877,
 

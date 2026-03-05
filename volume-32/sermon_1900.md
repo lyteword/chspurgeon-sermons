@@ -1,6 +1,5 @@
 # Sermon 1900 | Rejoice Evermore
 
-(No. 1900)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 23, 1886,
 

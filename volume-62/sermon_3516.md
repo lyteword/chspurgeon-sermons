@@ -1,6 +1,5 @@
 # Sermon 3516 | Love and Jealousy
 
-(No. 3516)
 
 A SERMON PUBLISHED ON THURSDAY JUNE 15, 1916.
 

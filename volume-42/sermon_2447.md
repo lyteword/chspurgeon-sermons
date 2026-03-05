@@ -1,6 +1,5 @@
 # Sermon 2447 | "God, and Not Man"--What Does It Mean?
 
-(No. 2447)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 12, 1896.
 

@@ -1,6 +1,5 @@
 # Sermon 399 | A Peal of Bells
 
-Sermon No. 399 - Delivered on Sunday Morning, July the 7th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "In that day shall there be upon the bells of the horses, HOLINESS UNTO THE LORD."  
 > Zechariah 14:20.  

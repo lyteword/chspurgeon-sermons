@@ -1,6 +1,5 @@
 # Sermon 2221 | The First, Last--And the Last, First
 
-(No. 2221)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 13, 1891,
 

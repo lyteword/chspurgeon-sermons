@@ -1,6 +1,5 @@
 # Sermon 1569 | The Golden Lamp and Its Goodly Lessons
 
-(No. 1569)
 
 DELIVERED BY
 

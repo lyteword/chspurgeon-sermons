@@ -1,6 +1,5 @@
 # Sermon 2934 | Great Changes
 
-(No. 2934)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 4, 1905.
 

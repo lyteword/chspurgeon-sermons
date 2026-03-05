@@ -1,6 +1,5 @@
 # Sermon 1948 | The Hedge of Thorns and the Plain Way
 
-Sermon No. 1948 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The way of the slothful man is as a hedge of thorns: but the way of the righteous is made plain."  
 > Proverbs 15:19.  

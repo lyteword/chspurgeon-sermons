@@ -1,6 +1,5 @@
 # Sermon 2667 | A Pressed Man Yielding to Christ
 
-(No. 2667)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 25, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 2635 | Depths and Heights
 
-(No. 2635)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 13, 1899.
 

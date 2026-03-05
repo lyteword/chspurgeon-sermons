@@ -1,6 +1,5 @@
 # Sermon 2291 | "Dare To Be a Daniel"
 
-(No. 2291)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 15, 1893.
 

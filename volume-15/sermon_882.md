@@ -1,6 +1,5 @@
 # Sermon 882 | The Old Man Crucified
 
-Sermon No. 882 - Delivered on Sunday Evening, APRIL 11, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Knowing this, that our old man is crucified with Him." - Romans 6:6.

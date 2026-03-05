@@ -1,6 +1,5 @@
 # Sermon 1177 | Fearful Of Coming Short
 
-(No. 1177)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 7, 1874,
 

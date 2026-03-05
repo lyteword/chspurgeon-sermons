@@ -1,6 +1,5 @@
 # Sermon 1833 | A Proclamation from the King of Kings
 
-(No. 1833)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1885,
 

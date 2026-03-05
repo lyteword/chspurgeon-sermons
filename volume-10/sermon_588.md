@@ -1,6 +1,5 @@
 # Sermon 588 | The Prodigal's Reception
 
-Sermon No. 588 - Delivered on Sunday Morning, September 4th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And he arose and came to his father. But when he was yet a great way off, his father saw him and had compassion, and ran and fell on his neck and kissed him."  
 > Luke 15:20.  

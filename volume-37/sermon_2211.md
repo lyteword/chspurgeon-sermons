@@ -1,6 +1,5 @@
 # Sermon 2211 | God Rejoicing in the New Creation
 
-(No. 2211)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1891,
 

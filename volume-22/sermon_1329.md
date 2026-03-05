@@ -1,6 +1,5 @@
 # Sermon 1329 | Christ the Destroyer of Death
 
-(No. 1329)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, DECEMBER 17, 1876,
 

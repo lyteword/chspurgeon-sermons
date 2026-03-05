@@ -1,6 +1,5 @@
 # Sermon 3081 | The Gracious Lips of Jesus
 
-(No. 3081)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 27, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 3327 | Our Lord's Heroic Endurance
 
-(No. 3327)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 7, 1912.
 

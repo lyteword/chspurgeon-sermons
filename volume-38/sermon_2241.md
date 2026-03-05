@@ -1,6 +1,5 @@
 # Sermon 2241 | A Stanza of Deliverance
 
-(No. 2241)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 31, 1892,
 

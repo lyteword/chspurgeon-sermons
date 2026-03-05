@@ -1,6 +1,5 @@
 # Sermon 3218 | Preaching Christ Crucified
 
-(No. 3218)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 6, 1910.
 

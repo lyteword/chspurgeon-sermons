@@ -1,6 +1,5 @@
 # Sermon 1709 | The Best War Cry
 
-(No. 1709)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 4, 1883,
 

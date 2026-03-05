@@ -1,6 +1,5 @@
 # Sermon 1338 | Work For Jesus
 
-(No. 1338)
 
 DELIVERED BY
 

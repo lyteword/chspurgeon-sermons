@@ -1,6 +1,5 @@
 # Sermon 3309 | Christ the Seeker and Savior of the Lost
 
-(No. 3309)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 4, 1912.
 

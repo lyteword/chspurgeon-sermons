@@ -1,6 +1,5 @@
 # Sermon 2253 | The Perseverance of Faith
 
-(No. 2253)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 24, 1892.
 

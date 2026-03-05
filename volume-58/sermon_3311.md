@@ -1,6 +1,5 @@
 # Sermon 3311 | The Water and the Blood
 
-(No. 3311)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 18, 1912.
 

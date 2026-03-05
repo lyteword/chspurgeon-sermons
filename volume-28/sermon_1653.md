@@ -1,6 +1,5 @@
 # Sermon 1653 | The Resurrection of Our Lord Jesus
 
-(No. 1653)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 9, 1882,
 

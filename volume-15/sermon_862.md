@@ -1,6 +1,5 @@
 # Sermon 862 | Winnowing Time
 
-Sermon No. 862 - Delivered on Thursday Evening, JANUARY 17, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "What is the chaff to the wheat? says the Lord."- Jeremiah 23:28.

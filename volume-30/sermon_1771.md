@@ -1,6 +1,5 @@
 # Sermon 1771 | Putting the Hand Upon the Head of the Sacrifice
 
-(No. 1771)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 16, 1884,
 

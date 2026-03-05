@@ -1,6 +1,5 @@
 # Sermon 2949 | Our Lord's Posture in Ascension
 
-(No. 2949)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1905.
 

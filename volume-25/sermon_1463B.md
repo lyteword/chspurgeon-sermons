@@ -1,6 +1,5 @@
 # Sermon 1463B | The Rising Sun
 
-(No. 1463B)
 
 DELIVERED BY
 

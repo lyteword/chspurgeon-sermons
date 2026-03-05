@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 499)
 
 By the
 

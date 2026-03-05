@@ -1,6 +1,5 @@
 # Sermon 3208 | The Faithful Olive Tree
 
-(No. 3208)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 28, 1910.
 

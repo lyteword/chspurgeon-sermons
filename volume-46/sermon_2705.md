@@ -1,6 +1,5 @@
 # Sermon 2705 | Why Some Sinners Are Not Pardoned
 
-(No. 2705)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 16, 1900.
 

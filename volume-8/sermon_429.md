@@ -1,6 +1,5 @@
 # Sermon 429 | Grace Exalted--Boasting Excluded
 
-Sermon No. 429 - Delivered on Sunday Morning, January 19th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Where is boasting then? It is excluded. By what law? Of works? No, but by the law of faith."--Romans 3:27.
 

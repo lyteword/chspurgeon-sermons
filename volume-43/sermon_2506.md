@@ -1,6 +1,5 @@
 # Sermon 2506 | God's Law in Man's Heart
 
-(No. 2506)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 28, 1897.
 

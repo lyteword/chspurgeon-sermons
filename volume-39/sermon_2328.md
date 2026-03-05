@@ -1,6 +1,5 @@
 # Sermon 2328 | Micah's Message for Today
 
-(No. 2328)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 1, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 2255 | God Justified, Though Man Believes Not
 
-(No. 2255)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 8, 1892.
 

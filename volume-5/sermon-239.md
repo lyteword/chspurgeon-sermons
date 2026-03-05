@@ -1,6 +1,5 @@
 # Sermon 239 | Jacob and Esau
 
-Sermon No. 239 - Delivered on Sabbath Morning, January 16th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Jacob have I loved, but Esau have I hated.    
 > Romans 9:15.    

@@ -1,6 +1,5 @@
 # Sermon 2416 | Adorning the Gospel
 
-(No. 2416)
 
 INTENDED FOR READING ON LORD'S DAY, JUNE 9, 1895.
 

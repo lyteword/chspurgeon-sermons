@@ -1,6 +1,5 @@
 # Sermon 1536 | Sentence Of Death, The Death Of Self-trust
 
-(No. 1536)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 2, 1880,
 

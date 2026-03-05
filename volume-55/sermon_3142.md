@@ -1,6 +1,5 @@
 # Sermon 3142 | Established Work
 
-(No. 3142)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 29, 1909.
 

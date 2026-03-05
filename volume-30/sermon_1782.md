@@ -1,6 +1,5 @@
 # Sermon 1782 | The First Fruit of the Spirit
 
-(No. 1782)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1884,
 

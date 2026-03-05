@@ -1,6 +1,5 @@
 # Sermon 1888 | The Blood of Sprinkling
 
-Sermon No. 1888 - Delivered on Lord's-day Morning, February 28th, 1886 the REV. C.H. SPURGEON at [1]the Metropolitan Tabernacle, Newington.
 
 And to Jesus the mediator of the new covenant, and to the blood of sprinkling, that speaketh better things than that of Abel. See that ye refuse not him that speaketh. For if they escaped not who refused him that spake on earth, much more shall not we escape, if we turn away from him that speaketh from heaven."--Hebrews 12:24, 25.
 

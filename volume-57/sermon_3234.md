@@ -1,6 +1,5 @@
 # Sermon 3234 | Strangers and Sojourners
 
-(No. 3234)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 26, 1911.
 

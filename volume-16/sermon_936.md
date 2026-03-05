@@ -1,6 +1,5 @@
 # Sermon 936 | A Blessed Wonder
 
-(No. 936)
 
 DELIVERED ON LORD'S-DAY EVENING, JUNE 12, 1870,
 

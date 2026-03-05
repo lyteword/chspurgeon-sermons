@@ -1,6 +1,5 @@
 # Sermon 3476 | Holy Song From Happy Saints
 
-(No. 3476)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 16, 1915.
 

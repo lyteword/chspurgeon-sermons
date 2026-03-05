@@ -1,6 +1,5 @@
 # Sermon 2208 | The Statute of David for the Sharing of the Spoil
 
-(No. 2208)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 7, 1891,
 

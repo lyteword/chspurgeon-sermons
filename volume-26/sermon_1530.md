@@ -1,6 +1,5 @@
 # Sermon 1530 | Following the Risen Christ
 
-(No. 1530)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 28, 1880,
 

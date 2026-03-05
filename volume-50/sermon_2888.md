@@ -1,6 +1,5 @@
 # Sermon 2888 | "Christ Is All"
 
-(No. 2888)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 16, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 3023 | John Mark--or, Haste in Religion
 
-(No. 3023)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 17, 1907.
 

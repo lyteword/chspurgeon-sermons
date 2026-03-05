@@ -1,6 +1,5 @@
 # Sermon 1364 | Nevertheless, Hereafter
 
-(No. 1364)
 
 DELIVERED BY
 

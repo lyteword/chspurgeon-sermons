@@ -1,6 +1,5 @@
 # Sermon 3310 | Prompt Obedience
 
-(No. 3310)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 11H, 1912.
 

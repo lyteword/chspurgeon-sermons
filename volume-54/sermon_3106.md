@@ -1,6 +1,5 @@
 # Sermon 3106 | Freedom Through Christ's Blood
 
-(No. 3106)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 20, 1908.
 

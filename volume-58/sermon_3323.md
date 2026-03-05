@@ -1,6 +1,5 @@
 # Sermon 3323 | The Believer's Glad Prospects
 
-(No. 3323)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 10, 1912.
 

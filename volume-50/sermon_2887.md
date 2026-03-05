@@ -1,6 +1,5 @@
 # Sermon 2887 | A Dire Disease Strangely Cured
 
-(No. 2887)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 9, 1904.
 

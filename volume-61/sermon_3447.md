@@ -1,6 +1,5 @@
 # Sermon 3447 | A Present Helper
 
-(No. 3447)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25, 1915.
 

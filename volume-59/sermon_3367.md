@@ -1,6 +1,5 @@
 # Sermon 3367 | Paul As a Pattern Convert
 
-(No. 3367)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 14, 1913.
 

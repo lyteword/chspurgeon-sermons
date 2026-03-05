@@ -1,6 +1,5 @@
 # Sermon 3492 | God's Word Not to Be Refused
 
-(No. 3492)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 30, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 958 | Dei Gratia
 
-(No. 958)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 30, 1870,
 

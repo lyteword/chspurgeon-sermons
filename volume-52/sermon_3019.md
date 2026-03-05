@@ -1,6 +1,5 @@
 # Sermon 3019 | The Hungry Filled, the Rich Emptied
 
-(No. 3019)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 20, 1906.
 

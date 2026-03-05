@@ -1,6 +1,5 @@
 # Sermon 3317 | A Sweet Bow
 
-(No. 3317)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1912.
 

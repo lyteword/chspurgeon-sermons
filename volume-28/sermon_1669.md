@@ -1,6 +1,5 @@
 # Sermon 1669 | Teaching for the Outer and Inner Circles
 
-(No. 1669)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 16, 1882,
 

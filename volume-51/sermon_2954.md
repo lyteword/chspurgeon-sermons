@@ -1,6 +1,5 @@
 # Sermon 2954 | The Big Gates Wide Open
 
-(No. 2954)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1905.
 

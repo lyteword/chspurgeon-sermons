@@ -1,6 +1,5 @@
 # Sermon 847 | Joyful Transformations
 
-A Sermon (No. 847)
 
 Delivered on Lord's-Day Morning, December 27, 1868, by C. H. SPURGEON, at the [52]Metropolitan Tabernacle, Newington.
 

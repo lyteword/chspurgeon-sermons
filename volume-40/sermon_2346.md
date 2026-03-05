@@ -1,6 +1,5 @@
 # Sermon 2346 | Earth's Vanities and Heaven's Verities
 
-(No. 2346)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 4, 1894.
 

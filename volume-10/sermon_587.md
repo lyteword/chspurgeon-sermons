@@ -1,6 +1,5 @@
 # Sermon 587 | God's Strange Choice
 
-Sermon No. 587 - Delivered on Sunday Morning, August 28th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For you see your calling, Brethren, how that not many wise men after the flesh, not many mighty, not many noble, are called. But God has chosen the foolish things of the world to confuse the wise, and God has chosen the weak things of the world to confuse the things which are mighty. And base things of the world and things which are despised has God chosen, yes, and things which are not, to bring to nothing things that are: that no flesh should glory in His Presence."  
 > 1 Corinthians 1:26-29.  

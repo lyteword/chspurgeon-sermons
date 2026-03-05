@@ -1,6 +1,5 @@
 # Sermon 2648 | Sacred Memories
 
-(No. 2648)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 12, 1899.
 

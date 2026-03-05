@@ -1,6 +1,5 @@
 # Sermon 1010 | Light for Those Who Sit in Darkness
 
-Sermon No. 1010 - Delivered on Lord's-day Morning, September 10, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The land of Zabulon, and the land of Nephthalim, by the way of the sea, beyond Jordan, Galilee of the Gentiles; the people which sat in darkness saw great light; and to them which sat in the region and shadow of death light is sprung up,"  
 > Matthew 4:15-16.  

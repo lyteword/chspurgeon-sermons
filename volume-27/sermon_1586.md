@@ -1,6 +1,5 @@
 # Sermon 1586 | Holy Longings
 
-(No. 1586)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27, 1881,
 

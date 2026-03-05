@@ -1,6 +1,5 @@
 # Sermon 1157 | Shiloh
 
-(No. 1157)
 
 DELIVERED BY
 

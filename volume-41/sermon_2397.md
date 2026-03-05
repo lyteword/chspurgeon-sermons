@@ -1,6 +1,5 @@
 # Sermon 2397 | "Out of Darkness Into Light"
 
-(No. 2397)
 
 INTENDED FOR READING ON LORD'S DAY, JANUARY 27, 1895.
 

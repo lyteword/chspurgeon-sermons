@@ -1,6 +1,5 @@
 # Sermon 2462 | The Known and the Unknown
 
-(No. 2462)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 26, 1896.
 

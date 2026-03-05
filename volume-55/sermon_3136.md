@@ -1,6 +1,5 @@
 # Sermon 3136 | Lessons From the Malta Fire
 
-(No. 3136)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1909.
 

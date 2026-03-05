@@ -1,6 +1,5 @@
 # Sermon 603 | Now
 
-Sermon No. 603 - Delivered on Sunday Morning, December 4th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For He says, I have heard You in a time accepted and in the day of salvation have I succored You: behold, nowis the accepted time; behold, nowis the day of salvation."  
 > 2 Corinthians 6:2.  

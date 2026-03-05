@@ -1,6 +1,5 @@
 # Sermon 1324 | Unwillingness to Come to Christ
 
-(No. 1324)
 
 A SERMON DELIVERED ON THURSDAY EVENING, NOVEMBER 2, 1876,
 

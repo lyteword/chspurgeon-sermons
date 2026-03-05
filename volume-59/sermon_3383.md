@@ -1,6 +1,5 @@
 # Sermon 3383 | The Plowman
 
-(No. 3383)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 4, 1913.
 

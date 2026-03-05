@@ -1,6 +1,5 @@
 # Sermon 2576 | Zion's Prosperity
 
-(No. 2576)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1898.
 

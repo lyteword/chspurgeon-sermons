@@ -1,6 +1,5 @@
 # Sermon 1211 | The Hospital of Waiters Visited with the Gospel
 
-(No. 1211)
 
 DELIVERED BY
 

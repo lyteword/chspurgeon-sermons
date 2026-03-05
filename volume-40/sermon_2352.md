@@ -1,6 +1,5 @@
 # Sermon 2352 | Great Joy In the City
 
-(No. 2352)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 18, 1894.
 

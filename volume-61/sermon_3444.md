@@ -1,6 +1,5 @@
 # Sermon 3444 | Keeping the Soul Alive
 
-(No. 3444)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1915.
 

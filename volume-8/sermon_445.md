@@ -1,6 +1,5 @@
 # Sermon 445 | Resurrection--Christ The First Fruits
 
-Sermon No. 445 - Delivered on Sunday Morning, April 20th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But now is Christ risen from the dead and become the first fruits of them that slept."  
 > 1 Corinthians 15:20.  

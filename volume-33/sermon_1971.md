@@ -1,6 +1,5 @@
 # Sermon 1971 | The Blood Shed For Many
 
-Sermon No. 1971 - Delivered on Sunday Morning, July 3rd, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For this is My blood of the new testament, which is shed for many for the remission of sins."  
 > Matthew 26:28.  

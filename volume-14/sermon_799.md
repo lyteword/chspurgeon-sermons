@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 799)
 
 Delivered on Lord's-Day Morning, March 8, 1868, by
 

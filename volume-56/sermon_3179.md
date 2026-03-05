@@ -1,6 +1,5 @@
 # Sermon 3179 | A Comprehensive Benediction
 
-(No. 3179)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 6, 1910.
 

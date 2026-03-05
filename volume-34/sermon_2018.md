@@ -1,6 +1,5 @@
 # Sermon 2018 | Cured At Last!
 
-Sermon No. 2018 - Delivered on Sunday Morning, April 8th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And a woman having an issue of blood twelve years, which had spent all her living upon physicians, neither could be healed of any, came behind Him and touched the border of His garment: and immediately her issue of blood stanched."  
 > Luke 8:43, 44.  

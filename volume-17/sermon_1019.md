@@ -1,6 +1,5 @@
 # Sermon 1019 | Household Salvation
 
-Sermon No. 1019 - Delivered on Lord's-day Morning, November 5th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And they spake unto him the word of the Lord, and to all that were in his house. And he took them the same hour of the night, and washed their stripes, and was baptized, he and all his, straightway. And when he had brought them into his house, he set meat before them, and rejoiced, believing in God with all his house."  
 > Acts 16:32-34.  

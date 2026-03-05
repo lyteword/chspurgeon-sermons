@@ -1,6 +1,5 @@
 # Sermon 3059 | The Poor Man's Friend
 
-(No. 3059)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 26, 1907.
 

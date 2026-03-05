@@ -1,6 +1,5 @@
 # Sermon 2249 | Even Now
 
-(No. 2249)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1892.
 

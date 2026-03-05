@@ -1,6 +1,5 @@
 # Sermon 3070 | A Visit to Christ's Hospital
 
-(No. 3070)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER I2, 1907.
 

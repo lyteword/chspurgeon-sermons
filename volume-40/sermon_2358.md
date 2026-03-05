@@ -1,6 +1,5 @@
 # Sermon 2358 | The Unchangeable Christ
 
-(No. 2358)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 29, 1894.
 

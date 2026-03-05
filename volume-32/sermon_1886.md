@@ -1,6 +1,5 @@
 # Sermon 1886 | God's Remembrance of His Covenant
 
-(No. 1886)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, FEBRUARY 14, 1886,
 

@@ -1,6 +1,5 @@
 # Sermon 1126 | A Song Concerning Loving Kindnesses
 
-(No. 1126)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 10, 1873,
 

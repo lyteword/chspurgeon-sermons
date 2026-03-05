@@ -1,6 +1,5 @@
 # Sermon 927 | Martha And Mary
 
-(No. 927)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 24, 1870,
 

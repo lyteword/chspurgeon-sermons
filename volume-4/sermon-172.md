@@ -1,6 +1,5 @@
 # Sermon 172 | Search the Scriptures
 
-Sermon No. 172 - Delivered on Sabbath Morning, January 17, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > To the law and to the testimony; if they speak not according to this word, it is because there is no light in them.    
 > Isaiah 8:20.    

@@ -1,6 +1,5 @@
 # Sermon 677 | Faith Versus Sight
 
-Sermon No. 677 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For we walk by faith, not by sight."  
 > 2 Corinthians 5:7.  

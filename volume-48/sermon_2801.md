@@ -1,6 +1,5 @@
 # Sermon 2801 | A Fear to Be Desired
 
-(No. 2801)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 19, 1902.
 

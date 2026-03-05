@@ -1,6 +1,5 @@
 # Sermon 1755 | The Top of the Ladder
 
-(No. 1755)
 
 DELIVERED ON THURSDAY EVENING, OCTOBER 25, 1883,
 

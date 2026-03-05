@@ -1,6 +1,5 @@
 # Sermon 2872 | The Lord's Supper
 
-(No. 2872)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25,1904.
 

@@ -1,6 +1,5 @@
 # Sermon 2823 | One Trophy for Two Exploits
 
-(No. 2823)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1903.
 

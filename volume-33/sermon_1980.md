@@ -1,6 +1,5 @@
 # Sermon 1980 | Folly of Unbelief
 
-Sermon No. 1980 - Delivered on Sunday Morning, August 28th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Then he said unto them, O fools, and slow of heart to believe all that the prophets have spoken."--Luke 24:25.
 

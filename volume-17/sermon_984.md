@@ -1,6 +1,5 @@
 # Sermon 984 | The Church As She Should Be
 
-Sermon No. 984 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Thou art beautiful, O my love as Tirzah, comely as Jerusalem, terrible as an army with banners."  
 > Song of Solomon 6:4.  

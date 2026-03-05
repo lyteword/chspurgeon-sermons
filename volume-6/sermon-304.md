@@ -1,6 +1,5 @@
 # Sermon 304 | Memento Mori
 
-Sermon No. 304 - Delivered on Sabbath Morning, March 18th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Oh that they were wise, that they understood this, that they would consider their latter end.    
 > Deuteronomy 32:29.    

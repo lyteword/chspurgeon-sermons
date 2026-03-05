@@ -1,6 +1,5 @@
 # Sermon 683 | Divine Gentleness Acknowledged
 
-Sermon No. 683 - Delivered on Sunday Morning, April 1st, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Your gentleness has made me great."  
 > Psalm 18:35.  

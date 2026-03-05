@@ -1,6 +1,5 @@
 # Sermon 1151 | A Revival Promise
 
-(No. 1151)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 11, 1874,
 

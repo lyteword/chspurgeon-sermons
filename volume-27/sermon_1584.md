@@ -1,6 +1,5 @@
 # Sermon 1584 | The Heroic In Christianity
 
-(No. 1584)
 
 DELIVERED ON LORD'S-DAY-MORNING, FEBRUARY 20, 1881,
 

@@ -1,6 +1,5 @@
 # Sermon 1390 | Brief, Silent Prayer
 
-(No. 1390)
 
 DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 9, 1877,
 

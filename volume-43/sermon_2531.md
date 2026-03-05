@@ -1,6 +1,5 @@
 # Sermon 2531 | A Boundless Benediction
 
-(No. 2531)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 22, 1897.
 

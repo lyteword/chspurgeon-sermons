@@ -1,6 +1,5 @@
 # Sermon 3441 | God's Memorial Of His People
 
-(No. 3441)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1915.
 

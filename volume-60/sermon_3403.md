@@ -1,6 +1,5 @@
 # Sermon 3403 | The Multitude Before the Throne
 
-(No. 3403)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 23, 1914.
 

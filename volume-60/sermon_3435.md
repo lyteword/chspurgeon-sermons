@@ -1,6 +1,5 @@
 # Sermon 3435 | Sanctified Sorrow
 
-(No. 3435)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1914.
 

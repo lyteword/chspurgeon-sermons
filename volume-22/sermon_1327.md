@@ -1,6 +1,5 @@
 # Sermon 1327 | Christ the Overcomer of the World
 
-(No. 1327)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, DECEMBER 3, 1876,
 

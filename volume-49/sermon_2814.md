@@ -1,6 +1,5 @@
 # Sermon 2814 | Abraham's Great Reward
 
-(No. 2814)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 18, 1903.
 

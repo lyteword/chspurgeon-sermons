@@ -1,6 +1,5 @@
 # Sermon 3554 | Our Magnificent Savior
 
-(No. 3554)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 8, 1917.
 

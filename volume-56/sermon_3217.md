@@ -1,6 +1,5 @@
 # Sermon 3217 | An Earnest Warning Against Unbelief
 
-(No. 3217)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 29, 1910.
 

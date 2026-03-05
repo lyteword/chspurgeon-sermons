@@ -1,6 +1,5 @@
 # Sermon 2630 | What Jesus Would Do
 
-(No. 2630)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 9, 1899.
 

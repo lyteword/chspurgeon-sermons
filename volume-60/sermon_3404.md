@@ -1,6 +1,5 @@
 # Sermon 3404 | A Gross Indignity
 
-(No. 3404)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 30, 1914.
 

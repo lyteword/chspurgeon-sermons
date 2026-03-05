@@ -1,6 +1,5 @@
 # Sermon 1562 | Harvest Past, Summer Ended and Men Unsaved
 
-(No. 1562)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 17, 1880,
 

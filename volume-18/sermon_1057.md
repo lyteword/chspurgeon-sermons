@@ -1,6 +1,5 @@
 # Sermon 1057 | Untrodden Ways
 
-(No. 1057)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 23, 1872,
 

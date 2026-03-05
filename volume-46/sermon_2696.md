@@ -1,6 +1,5 @@
 # Sermon 2696 | Wordless Prayers Heard in Heaven
 
-(No. 2696)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 14, 1900.
 

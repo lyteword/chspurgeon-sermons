@@ -1,6 +1,5 @@
 # Sermon 3481 | Visits From the Lord
 
-(No. 3481)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 14, 1915.
 

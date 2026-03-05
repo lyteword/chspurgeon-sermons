@@ -1,6 +1,5 @@
 # Sermon 2912 | Comfort for Tried Believers
 
-(No. 2912)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 1, 1904.
 

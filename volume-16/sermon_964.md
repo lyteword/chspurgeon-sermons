@@ -1,6 +1,5 @@
 # Sermon 964 | The Essence Of The Gospel
 
-(No. 964)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 4, 1870,
 

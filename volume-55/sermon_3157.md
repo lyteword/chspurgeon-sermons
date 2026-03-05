@@ -1,6 +1,5 @@
 # Sermon 3157 | The Fourth Beatitude
 
-(No. 3157)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 12, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 751 | More Than Conquerors
 
-Sermon No. 751 - Delivered on Lord's-day Morning, MAY 19, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "No, in all these things we are more than conquerors through Him that loved us."- Romans 8:37.

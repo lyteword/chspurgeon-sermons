@@ -1,6 +1,5 @@
 # Sermon 3405 | Confession of Christ
 
-(No. 3405)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 7, 1914.
 

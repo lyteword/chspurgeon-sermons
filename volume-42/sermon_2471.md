@@ -1,6 +1,5 @@
 # Sermon 2471 | The Best of All--god Is With Us
 
-(No. 2471)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 23, 1896.
 

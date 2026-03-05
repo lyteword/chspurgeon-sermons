@@ -1,6 +1,5 @@
 # Sermon 661 | The Great Arbitration Case
 
-Sermon No. 661 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Neither is there any mediator between us, that might lay his hand upon us both.    
 > Job 9:33.    

@@ -1,6 +1,5 @@
 # Sermon 1279 | Amazing Grace
 
-(No. 1279)
 
 A SERMON DELIVERED
 

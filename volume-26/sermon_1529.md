@@ -1,6 +1,5 @@
 # Sermon 1529 | A Powerful Reason For Coming To Christ
 
-(No. 1529)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 21, 1880,
 

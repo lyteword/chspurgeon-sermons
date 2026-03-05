@@ -1,6 +1,5 @@
 # Sermon 2463 | Why Men Reject Christ
 
-(No. 2463)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 3, 1896.
 

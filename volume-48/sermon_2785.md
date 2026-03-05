@@ -1,6 +1,5 @@
 # Sermon 2785 | Christ's Love for His Vineyard
 
-(No. 2785)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 29, 1902.
 

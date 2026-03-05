@@ -1,6 +1,5 @@
 # Sermon 1747 | Marvelous! Marvelous!
 
-(No. 1747)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 28, 1883,
 

@@ -1,6 +1,5 @@
 # Sermon 1321 | Why May I Rejoice?
 
-(No. 1321)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 29, 1876,
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
 "Not withstanding in this rejoice not, that the spirits are subject unto you; but rather rejoice, because your names are written in Heaven." Luke 10:20.
 
-You will remember that last Lord's-Day we saw our Lord correcting a very natural grief and supplying its place by a more necessary sorrow, as He said to the women, "Weep not for Me, but weep for yourselves, and for your children." [See No. 1320--"Why Should I Weep?"] Now, this morning we shall see Him correcting a very natural joy and directing its gladness into a more elevated channel. "Notwithstanding in this rejoice not, that the spirits are subject unto you; but rather rejoice, because your names are written in Heaven." If we commit ourselves to Him, He will guide us aright in all things and teach us to sanctify, alike, our grief and our gladness.
 
 We shall commence our discourse by saying that our Lord did not blame or upbraid the 70 for rejoicing that the devils were subject to them. It would have been a very strange thing if they were not joyous on the occasion of so great a success. They had been sent forth upon their Lord's errand. They had gone forward unhesitatingly in His name, girded with His strength. And His power had been revealed so that His name had been glorified--should they not rejoice? It was the Kingdom of God which they had proclaimed--should they not be joyful? It was their Lord's enemy, as well as their own, who had "fallen like lightning from Heaven"--should they not exult? It was not likely, therefore, that the Lord Jesus was angry at their joy when they returned, saying, "Lord, even the spirits are subject unto us through Your name."
 

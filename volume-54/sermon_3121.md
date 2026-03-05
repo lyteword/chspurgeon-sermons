@@ -1,6 +1,5 @@
 # Sermon 3121 | The Necessity of Regeneration
 
-(No. 3121)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1908.
 

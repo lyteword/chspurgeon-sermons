@@ -1,6 +1,5 @@
 # Sermon 2554 | The Spiritual Resurrection
 
-(No. 2554)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 30, 1898.
 

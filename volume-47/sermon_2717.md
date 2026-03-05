@@ -1,6 +1,5 @@
 # Sermon 2717 | Man's Extremity, God's Opportunity
 
-(No. 2717)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 10, 1901.
 

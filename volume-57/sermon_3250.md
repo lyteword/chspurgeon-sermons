@@ -1,6 +1,5 @@
 # Sermon 3250 | The Growth of Faith
 
-(No. 3250)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 18, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 2990 | The Believer Not An Orphan
 
-(No. 2990)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 31, 1906.
 

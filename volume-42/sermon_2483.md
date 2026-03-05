@@ -1,6 +1,5 @@
 # Sermon 2483 | The Objective of Christ's Death
 
-(No. 2483)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 20, 1896.
 

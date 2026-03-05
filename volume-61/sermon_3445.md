@@ -1,6 +1,5 @@
 # Sermon 3445 | Strong Faith in a Faithful God
 
-(No. 3445)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1915.
 

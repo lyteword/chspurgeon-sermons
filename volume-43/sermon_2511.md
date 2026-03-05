@@ -1,6 +1,5 @@
 # Sermon 2511 | Brought Out to Be Brought In
 
-(No. 2511)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 4, 1897.
 

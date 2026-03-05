@@ -1,6 +1,5 @@
 # Sermon 1465B | The Royal Prerogative
 
-(No. 1465B)
 
 DELIVERED BY
 

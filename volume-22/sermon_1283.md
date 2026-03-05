@@ -1,6 +1,5 @@
 # Sermon 1283 | Conversions Encouraged
 
-(No. 1283)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 12, 1876,
 

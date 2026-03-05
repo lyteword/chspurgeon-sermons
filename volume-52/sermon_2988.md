@@ -1,6 +1,5 @@
 # Sermon 2988 | Great Pardon for Great Sin
 
-(No. 2988)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 17, 1906.
 

@@ -1,6 +1,5 @@
 # Sermon 1449 | A Vile Weed and a Fair Flower
 
-(No. 1449)
 
 DELIVERED BY
 

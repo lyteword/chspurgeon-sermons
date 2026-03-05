@@ -1,6 +1,5 @@
 # Sermon 827 | The Faculty Baffled, The Great Physician Successful
 
-A Sermon (No. 827)
 
 Delivered on Lord's Day Morning, August 23, 1868, by C. H. SPURGEON at the [37]Metropolitan Tabernacle, Newington.
 

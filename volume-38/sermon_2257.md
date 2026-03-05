@@ -1,6 +1,5 @@
 # Sermon 2257 | Inexcusable Irreverence and Ingratitude
 
-(No. 2257)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 22, 1892.
 

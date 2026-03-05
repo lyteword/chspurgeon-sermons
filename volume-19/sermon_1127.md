@@ -1,6 +1,5 @@
 # Sermon 1127 | Harvest Men Needed
 
-(No. 1127)
 
 A SERMON DELIVERED OF LORD'S-DAY MORNING, AUGUST 17 1873,
 

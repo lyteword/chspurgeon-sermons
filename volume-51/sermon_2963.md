@@ -1,6 +1,5 @@
 # Sermon 2963 | Unmitigated Prosperity
 
-(No. 2963)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 1904 | The Personal Pentecost and the Glorious Hope
 
-(No. 1904)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 13, 1886,
 

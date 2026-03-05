@@ -1,6 +1,5 @@
 # Sermon 1609 | Faith--What Is It? How Can It Be Obtained?
 
-(No. 1609)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 17, 1881,
 

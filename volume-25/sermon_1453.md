@@ -1,6 +1,5 @@
 # Sermon 1453 | Eternal Faithfulness Unaffected By Human Unbelief
 
-(No. 1453)
 
 DELIVERED BY
 

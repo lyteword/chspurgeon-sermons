@@ -1,6 +1,5 @@
 # Sermon 3054 | Pardon and Justification
 
-(No. 3054)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 22, 1907.
 

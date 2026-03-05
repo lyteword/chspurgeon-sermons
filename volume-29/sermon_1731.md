@@ -1,6 +1,5 @@
 # Sermon 1731 | Accepted of the Great Father
 
-(No. 1731)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 15, 1883,
 

@@ -1,6 +1,5 @@
 # Sermon 3456 | "Peace Be Unto You"
 
-(No. 3456)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 29, 1915.
 

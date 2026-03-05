@@ -1,6 +1,5 @@
 # Sermon 608 | A Discourse For A Revival Season
 
-Sermon No. 608 - Delivered on Sunday Morning, January 8th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Behold the voice of the cry of the daughter of My people because of them that dwell in a far country, Is not the Lord in Zion? Is not her King in her? Why have they provoked Me to anger with their graven images and with strange vanities? The harvest is past, the summer is ended and we are not saved.    
 > Jeremiah 8:19,20.    

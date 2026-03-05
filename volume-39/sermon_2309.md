@@ -1,6 +1,5 @@
 # Sermon 2309 | God's Works Made Manifest
 
-(No. 2309)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 2906 | Honor for Honor
 
-(No. 2906)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 20, 1904.
 

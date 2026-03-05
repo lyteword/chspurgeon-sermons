@@ -1,6 +1,5 @@
 # Sermon 1162-3 | Saving Faith
 
-Sermon No. 1162-3 - Delivered on Lord's Day Morning, March 15, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Thy faith hath saved thee.'Luke 7:50; and Luke 18:42.
 

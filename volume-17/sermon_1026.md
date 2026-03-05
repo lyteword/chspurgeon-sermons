@@ -1,6 +1,5 @@
 # Sermon 1026 | Joy Born at Bethlehem
 
-Sermon No. 1026 - Delivered on Lord's-Day Morning, December 24th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And the angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people. For unto you is born this day in the city of David a Saviour, which is Christ the Lord. And this shall be a sign unto you; Ye shall find the babe wrapped in swaddling clothes, lying in a manger."  
 > Luke 2:10-12.  

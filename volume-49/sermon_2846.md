@@ -1,6 +1,5 @@
 # Sermon 2846 | "No Root in Themselves"
 
-(No. 2846)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1903.
 

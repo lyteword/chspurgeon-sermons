@@ -1,6 +1,5 @@
 # Sermon 393 | The Church--Conservative And Aggressive
 
-Sermon No. 393 - Delivered on Sunday Morning, May 19th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The Church of the living God, the pillar and ground of the Truth."  
 > 1 Timothy 3:15.   

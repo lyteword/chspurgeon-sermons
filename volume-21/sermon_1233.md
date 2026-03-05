@@ -1,6 +1,5 @@
 # Sermon 1233 | Healing Leaves
 
-(No. 1233)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 9, 1875,
 

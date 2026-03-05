@@ -1,6 +1,5 @@
 # Sermon 1717 | The Marvelous Magnet
 
-(No. 1717)
 
 DELIVERED BY
 

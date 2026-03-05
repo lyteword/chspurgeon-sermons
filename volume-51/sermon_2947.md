@@ -1,6 +1,5 @@
 # Sermon 2947 | Royal Emblems for Loyal Subjects
 
-(No. 2947)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1905.
 

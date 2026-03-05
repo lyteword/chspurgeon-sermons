@@ -1,6 +1,5 @@
 # Sermon 914 | Work in Us and Work by Us
 
-(No. 914)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 6, 1870,
 

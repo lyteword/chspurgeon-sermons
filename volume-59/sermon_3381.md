@@ -1,6 +1,5 @@
 # Sermon 3381 | The Broken Fence
 
-(No. 3381)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 20, 1913.
 

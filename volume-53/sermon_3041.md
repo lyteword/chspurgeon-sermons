@@ -1,6 +1,5 @@
 # Sermon 3041 | The Sparrow and the Swallow
 
-(No. 3041)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 23, 1907.
 

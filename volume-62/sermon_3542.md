@@ -1,6 +1,5 @@
 # Sermon 3542 | A Precious Promise for a Pure People
 
-(No. 3542)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1916.
 

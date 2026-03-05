@@ -1,6 +1,5 @@
 # Sermon 3347 | Things to Be Remembered
 
-(No. 3347)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 27, 1913.
 

@@ -1,6 +1,5 @@
 # Sermon 2688 | "Good Judgment"
 
-(No. 2688)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 19, 1900.
 

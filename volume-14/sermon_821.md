@@ -1,6 +1,5 @@
 # Sermon 821 | Hope in Hopeless Cases
 
-A Sermon (No. 821)
 
 Delivered on Lord's-Day Morning, July 19, 1868, by C. H. SPURGEON, at the [31]Metropolitan Tabernacle, Newington.
 

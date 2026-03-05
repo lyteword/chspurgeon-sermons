@@ -1,6 +1,5 @@
 # Sermon 2751 | "A Prepared Place for a Prepared People"
 
-(No. 2751)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 3, 1901.
 

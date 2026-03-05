@@ -1,6 +1,5 @@
 # Sermon 2965 | Prepared to Meet God
 
-(No. 2965)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1905.
 

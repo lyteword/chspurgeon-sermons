@@ -1,6 +1,5 @@
 # Sermon 2939 | A Stir--and What Came of It
 
-(No. 2939)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 8, 1905.
 

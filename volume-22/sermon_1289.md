@@ -1,6 +1,5 @@
 # Sermon 1289 | The Heart Full and the Mouth Closed
 
-(No. 1289)
 
 DELIVERED BY
 

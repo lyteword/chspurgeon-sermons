@@ -1,6 +1,5 @@
 # Sermon 415 | The Fullness Of Christ--Received!
 
-Sermon No. 415 - Delivered on Sunday Morning, October 20th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And of His fullness have all we received.'"  
 > John 1:16.   

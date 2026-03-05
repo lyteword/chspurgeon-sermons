@@ -1,6 +1,5 @@
 # Sermon 1671 | The Value and Rank of the Believer
 
-(No. 1671)
 
 DELIVERED BY
 

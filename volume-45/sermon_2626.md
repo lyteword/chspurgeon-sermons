@@ -1,6 +1,5 @@
 # Sermon 2626 | "Peace in Believing"
 
-(No. 2626)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 11, 1899.
 

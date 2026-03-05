@@ -1,6 +1,5 @@
 # Sermon 1254 | Jesus In Our Midst
 
-(No. 1254)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1875,
 

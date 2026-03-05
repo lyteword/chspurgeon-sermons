@@ -1,6 +1,5 @@
 # Sermon 1215 | Solemn Pleadings for Revival
 
-(No. 1215)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 3, 1875,
 

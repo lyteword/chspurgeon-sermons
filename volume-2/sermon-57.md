@@ -1,6 +1,5 @@
 # Sermon 57 | The Incarnation and Birth of Christ
 
-Sermon No. 57 - Delivered on Sabbath Morning, December 23rd, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > But thou, Beth-lehem Ephratah, though thou be little among the thousands of Judah, yet out of thee shall he come forth unto me that is to be ruler in Israel; whose goings forth have been from of old, from everlasting.    
 > Micah 5:2.    

@@ -1,6 +1,5 @@
 # Sermon 325 | Constraining Love
 
-Sermon No. 325 - Delivered on Sabbath Evening, June 3rd, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Oh love the Lord, all you His saints.    
 > Psalm 31:23.    

@@ -1,6 +1,5 @@
 # Sermon 2013 | The Infallibility of Scripture
 
-Sermon No. 2013 - Delivered on Sunday Morning, March 11th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The mouth of the Lord has spoken it."  
 > Isaiah 1:20.  

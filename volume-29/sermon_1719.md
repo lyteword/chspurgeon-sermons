@@ -1,6 +1,5 @@
 # Sermon 1719 | The Tent Dissolved and the Mansion Entered
 
-(No. 1719)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 6, 1883,
 

@@ -1,6 +1,5 @@
 # Sermon 654 | Memory--The Handmaid Of Hope
 
-Sermon No. 654 - Delivered on Sunday Morning, October 15th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > This I recall to my mind, therefore ha ve I hope.    
 > Lamentations 3:21.    

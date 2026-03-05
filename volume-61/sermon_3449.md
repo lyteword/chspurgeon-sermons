@@ -1,6 +1,5 @@
 # Sermon 3449 | Buying the Truth
 
-(No. 3449)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 11, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 2362 | The King and His Court
 
-(No. 2362)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 27, 1894.
 

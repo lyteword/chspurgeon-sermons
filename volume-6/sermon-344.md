@@ -1,6 +1,5 @@
 # Sermon 344 | Tender Words Of Terrible Apprehension!
 
-Sermon No. 344 - Delivered on Sabbath Morning, November 4th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > The wicked shhall be turned into Hell, and all the nations that forget God.    
 > Psalm 9:17.    

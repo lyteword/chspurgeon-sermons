@@ -1,6 +1,5 @@
 # Sermon 3299 | Ho! Ho!
 
-(No. 3299)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 25, 1912.
 

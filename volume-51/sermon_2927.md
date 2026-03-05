@@ -1,6 +1,5 @@
 # Sermon 2927 | Love at Leisure
 
-(No. 2927)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 16, 1905.
 

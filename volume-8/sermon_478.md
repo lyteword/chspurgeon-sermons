@@ -1,6 +1,5 @@
 # Sermon 478 | Christ--Perfect Through Sufferings
 
-Sermon No. 478 - Delivered on Sunday Morning, November 2nd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For it became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings." Hebrews 2:10.  
 > "For it became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings." Hebrews 2:10.  

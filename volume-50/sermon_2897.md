@@ -1,6 +1,5 @@
 # Sermon 2897 | The Source
 
-(No. 2897)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 18, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 2806 | "Jesus Our Lord"
 
-(No. 2806)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 23, 1902.
 

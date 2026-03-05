@@ -1,6 +1,5 @@
 # Sermon 1615 | Singing in the Ways of the Lord
 
-(No. 1615)
 
 DELIVERED ON THURSDAY EVENING, AUGUST 11, 1881,
 

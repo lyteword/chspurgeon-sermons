@@ -1,6 +1,5 @@
 # Sermon 3413 | God's Mercy Going Before
 
-(No. 3413)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 2, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 2782 | Love's Lamentation
 
-(No. 2782)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 8, 1902.
 

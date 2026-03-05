@@ -1,6 +1,5 @@
 # Sermon 1259 | There Go The Ships
 
-(No. 1259)
 
 DELIVERED BY
 

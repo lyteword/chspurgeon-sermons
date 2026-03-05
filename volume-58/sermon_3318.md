@@ -1,6 +1,5 @@
 # Sermon 3318 | How to Read the Bible
 
-(No. 3318)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 5, 1912.
 

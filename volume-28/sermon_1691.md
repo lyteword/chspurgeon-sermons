@@ -1,6 +1,5 @@
 # Sermon 1691 | Christ's Word with You
 
-(No. 1691)
 
 DELIVERED ON LORD'S-DAY EVENING JUNE 12 1881,
 

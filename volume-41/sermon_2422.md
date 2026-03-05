@@ -1,6 +1,5 @@
 # Sermon 2422 | "There Is Forgiveness"
 
-(No. 2422)
 
 INTENDED FOR READING ON LORD'S DAY, JULY 21, 1895.
 

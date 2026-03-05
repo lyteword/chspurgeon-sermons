@@ -1,6 +1,5 @@
 # Sermon 3129 | The King's Mowings
 
-(No. 3129)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1909.
 

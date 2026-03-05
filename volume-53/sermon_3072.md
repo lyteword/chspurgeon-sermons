@@ -1,6 +1,5 @@
 # Sermon 3072 | An Observation of the Preacher
 
-(No. 3072)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1907.
 

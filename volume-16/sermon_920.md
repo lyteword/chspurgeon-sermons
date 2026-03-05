@@ -1,6 +1,5 @@
 # Sermon 920 | Backsliding Healed
 
-(No. 920)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 13, 1870,
 

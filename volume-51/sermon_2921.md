@@ -1,6 +1,5 @@
 # Sermon 2921 | An Old-fashioned Remedy
 
-(No. 2921)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 2, 1905.
 

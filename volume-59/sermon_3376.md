@@ -1,6 +1,5 @@
 # Sermon 3376 | God's Answer to Persistent Prayer
 
-(No. 3376)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 16, 1913.
 

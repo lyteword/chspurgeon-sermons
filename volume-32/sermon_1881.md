@@ -1,6 +1,5 @@
 # Sermon 1881 | The Dying Thief in a New Light
 
-(No. 1881)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 31, 1886,
 

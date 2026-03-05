@@ -1,6 +1,5 @@
 # Sermon 3420 | Could He Not? Ah! But He Would Not
 
-(No. 3420)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 20, 1914.
 

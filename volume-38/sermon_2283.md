@@ -1,6 +1,5 @@
 # Sermon 2283 | Christ's One Sacrifice for Sin
 
-(No. 2283)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 20, 1892.
 

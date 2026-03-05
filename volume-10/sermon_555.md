@@ -1,6 +1,5 @@
 # Sermon 555 | Nothing But Leaves
 
-Sermon No. 555 - Delivered on Sunday Morning, February 21st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He found nothing but leaves."  
 > Mark 11:13.  

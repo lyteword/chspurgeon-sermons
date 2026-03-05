@@ -1,6 +1,5 @@
 # Sermon 2804 | Disobedience to the Gospel
 
-(No. 2804)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 9, 1902.
 

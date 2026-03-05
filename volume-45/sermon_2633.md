@@ -1,6 +1,5 @@
 # Sermon 2633 | The Two Pivots
 
-(No. 2633)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 30 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 3382 | Our Lord's Transcendent Greatness
 
-(No. 3382)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 27, 1913.
 

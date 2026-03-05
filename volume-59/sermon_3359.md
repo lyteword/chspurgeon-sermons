@@ -1,6 +1,5 @@
 # Sermon 3359 | Penitence, Pardon and Peace
 
-(No. 3359)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 19, 1913.
 

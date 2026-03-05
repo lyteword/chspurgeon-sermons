@@ -1,6 +1,5 @@
 # Sermon 2509 | The Sinful Made Sinless
 
-(No. 2509)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 21, 1897.
 

@@ -1,6 +1,5 @@
 # Sermon 939 | The Pilgrim's Grateful Recollections
 
-(No. 939)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 3, 1870,
 

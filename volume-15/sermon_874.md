@@ -1,6 +1,5 @@
 # Sermon 874 | The Overflowing Cup
 
-Sermon No. 874 - Delivered on Sunday Morning, JUNE 6, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "My cup runs over."- Psalm 23:5.

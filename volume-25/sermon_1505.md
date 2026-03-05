@@ -1,6 +1,5 @@
 # Sermon 1505 | Prayer to God in Trouble an Acceptable Sacrifice
 
-(No. 1505)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 9, 1879
 

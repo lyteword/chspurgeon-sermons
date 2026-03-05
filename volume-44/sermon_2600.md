@@ -1,6 +1,5 @@
 # Sermon 2600 | A Strange Yet Gracious Choice
 
-(No. 2600)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 11, 1898.
 

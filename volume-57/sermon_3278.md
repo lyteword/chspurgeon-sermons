@@ -1,6 +1,5 @@
 # Sermon 3278 | The Wordless Book
 
-(No. 3278)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1911.
 

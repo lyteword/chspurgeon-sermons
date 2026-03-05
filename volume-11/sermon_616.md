@@ -1,6 +1,5 @@
 # Sermon 616 | The Special Call And The Unfailing Result
 
-Sermon No. 616 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > God is faithful, by whom you were called unto the fellowship of His Son Jesus, Christ our Lord.    
 > 1 Corinthians 1:9.    

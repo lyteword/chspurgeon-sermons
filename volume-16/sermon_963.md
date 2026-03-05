@@ -1,6 +1,5 @@
 # Sermon 963 | Our King, Our Joy
 
-(No. 963)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 27, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 3521 | A Searching Test
 
-(No. 3521)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 20, 1916.
 

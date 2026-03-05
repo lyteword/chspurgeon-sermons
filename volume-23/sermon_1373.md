@@ -1,6 +1,5 @@
 # Sermon 1373 | Our Last Journey
 
-(No. 1373)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 9, 1877,
 

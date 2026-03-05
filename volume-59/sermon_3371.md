@@ -1,6 +1,5 @@
 # Sermon 3371 | Two Choice Benedictions
 
-(No. 3371)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 11, 1913.
 

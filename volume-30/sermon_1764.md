@@ -1,6 +1,5 @@
 # Sermon 1764 | The Rocky Fortress and Its Inhabitant
 
-(No. 1764)
 
 A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 3, 1884,
 

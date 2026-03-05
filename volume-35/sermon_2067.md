@@ -1,6 +1,5 @@
 # Sermon 2067 | The Spirit and the Wind
 
-Sermon No. 2067 - Delivered on Thursday Evening, Feb 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The wind blows where it wishes and you hear the sound of it but cannot tell from where it comes and where it goes. So is everyone that is born of the Spirit."  
 > John 3:8.  

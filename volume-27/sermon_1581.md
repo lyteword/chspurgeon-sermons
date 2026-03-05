@@ -1,6 +1,5 @@
 # Sermon 1581 | Silver Sockets--Redemption the Foundation!
 
-(No. 1581)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 30, 1881,
 

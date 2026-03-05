@@ -1,6 +1,5 @@
 # Sermon 3475 | The Soul's Great Crisis
 
-(No. 3475)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 9, 1915.
 

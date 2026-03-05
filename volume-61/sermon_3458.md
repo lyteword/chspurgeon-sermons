@@ -1,6 +1,5 @@
 # Sermon 3458 | Redeeming the Unclean
 
-(No. 3458)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 13, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 2847 | Barriers Obliterated
 
-(No. 2847)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1903.
 

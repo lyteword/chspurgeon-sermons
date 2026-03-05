@@ -1,6 +1,5 @@
 # Sermon 2679 | Christ's Indwelling Word
 
-(No. 2679)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 17, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 49 | The God of Peace
 
-Sermon No. 49 - Delivered on Sabbath Morning, November 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Now the God of peace be with you all. Amen,    
 > Romans 15:33.    

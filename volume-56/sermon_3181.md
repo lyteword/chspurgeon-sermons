@@ -1,6 +1,5 @@
 # Sermon 3181 | A Sermon for a Winter's Evening
 
-(No. 3181)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 20, 1910.
 

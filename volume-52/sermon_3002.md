@@ -1,6 +1,5 @@
 # Sermon 3002 | The Best Thing in the Best Place
 
-(No. 3002)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 23, 1906.
 

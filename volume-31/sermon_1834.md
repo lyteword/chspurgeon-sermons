@@ -1,6 +1,5 @@
 # Sermon 1834 | To Lovers of Jesus--an Example
 
-(No. 1834)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1885,
 

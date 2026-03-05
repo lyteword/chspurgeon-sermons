@@ -1,6 +1,5 @@
 # Sermon 3547 | Simple Fact and Simple Faith
 
-(No. 3547)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 18 1917.
 

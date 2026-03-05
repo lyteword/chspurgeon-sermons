@@ -1,6 +1,5 @@
 # Sermon 2262 | Christ's Curate In Decapolis
 
-(No. 2262)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1892.
 

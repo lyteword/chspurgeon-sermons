@@ -1,6 +1,5 @@
 # Sermon 2900 | How God Comes to Man
 
-(No. 2900)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 8, 1904.
 

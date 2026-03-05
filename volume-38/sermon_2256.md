@@ -1,6 +1,5 @@
 # Sermon 2256 | Daniel's Band
 
-(No. 2256)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 15, 1892.
 

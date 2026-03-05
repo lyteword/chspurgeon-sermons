@@ -1,6 +1,5 @@
 # Sermon 3012 | God Comforting His People
 
-(No. 3012)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 1, 1906.
 
@@ -34,7 +33,6 @@ These same people, too, are especially called by the Spirit of God. Again, to ke
 
 These, then, are the Lord's people--especially loved, especially redeemed and especially called.
 
-Besides that, they are especially cared for in the world. God's Providential care extends not only to the righteous, but also to the wicked--yes, and not only to the wicked among men, but to the very beasts of the field. You know what I said to you, the other Sabbath morning, about the God who makes the grass to grow for the cattle. [See Sermon No. 767, Volume
 
 13--IN THE HAY FIELD] It is the same great Provider who feeds the
 

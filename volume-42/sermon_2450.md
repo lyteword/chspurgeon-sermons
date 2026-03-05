@@ -1,6 +1,5 @@
 # Sermon 2450 | The Joy of Redemption
 
-(No. 2450)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 2, 1896.
 

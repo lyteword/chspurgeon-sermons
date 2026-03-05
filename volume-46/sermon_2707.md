@@ -1,6 +1,5 @@
 # Sermon 2707 | An Antidote to Satan's Devices
 
-(No. 2707)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 30, 1900.
 

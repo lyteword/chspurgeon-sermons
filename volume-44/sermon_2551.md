@@ -1,6 +1,5 @@
 # Sermon 2551 | God's Knowledge of Sin
 
-(No. 2551)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 9, 1898.
 

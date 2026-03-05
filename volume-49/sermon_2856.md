@@ -1,6 +1,5 @@
 # Sermon 2856 | Our Hiding Place
 
-(No. 2856)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1903.
 

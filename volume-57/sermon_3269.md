@@ -1,6 +1,5 @@
 # Sermon 3269 | A Frail Leaf
 
-(No. 3269)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1911.
 

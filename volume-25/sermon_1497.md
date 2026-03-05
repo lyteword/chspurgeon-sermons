@@ -1,6 +1,5 @@
 # Sermon 1497 | Self-righteousness--a Smoldering Heap of Rubbish
 
-(No. 1497)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 28, 1879,
 

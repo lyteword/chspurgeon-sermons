@@ -1,6 +1,5 @@
 # Sermon 2639 | Our Heavenly Father's Pity
 
-(No. 2639)
 
 INTENDED FOR READING ON LORD'S-DAY SEPTEMBER 10, 1899.
 

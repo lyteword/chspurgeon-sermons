@@ -1,6 +1,5 @@
 # Sermon 1487 | The Prophet Like Unto Moses
 
-(No. 1487)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 3, 1879,
 

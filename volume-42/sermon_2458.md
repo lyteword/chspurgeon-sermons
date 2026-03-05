@@ -1,6 +1,5 @@
 # Sermon 2458 | Reasons for a Singular Question
 
-(No. 2458)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1896.
 

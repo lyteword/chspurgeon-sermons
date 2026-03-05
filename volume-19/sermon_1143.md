@@ -1,6 +1,5 @@
 # Sermon 1143 | Death for Sin and Death to Sin
 
-(No. 1143)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 16, 1873,
 

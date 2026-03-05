@@ -1,6 +1,5 @@
 # Sermon 3232 | Facts and Inferences
 
-(No. 3232)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 12, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 2840 | Laying the Hand on the Sacrifice
 
-(No. 2840)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1903.
 

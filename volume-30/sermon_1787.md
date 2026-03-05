@@ -1,6 +1,5 @@
 # Sermon 1787 | Humility, the Friend of Prayer
 
-(No. 1787)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 22, 1884,
 

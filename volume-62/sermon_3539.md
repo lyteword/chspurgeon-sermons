@@ -1,6 +1,5 @@
 # Sermon 3539 | Fine Pleading
 
-(No. 3539)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1916.
 

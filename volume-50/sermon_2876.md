@@ -1,6 +1,5 @@
 # Sermon 2876 | Christ's Crowning Glory
 
-(No. 2876)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 24, 1904.
 

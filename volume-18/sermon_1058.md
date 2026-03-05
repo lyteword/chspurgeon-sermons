@@ -1,6 +1,5 @@
 # Sermon 1058 | No Quarter
 
-(No. 1058)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 30, 1872,
 

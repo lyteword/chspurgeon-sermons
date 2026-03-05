@@ -1,6 +1,5 @@
 # Sermon 1925 | Jesus and the Children
 
-(No. 1925)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 17, 1886,
 

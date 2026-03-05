@@ -1,6 +1,5 @@
 # Sermon 33 | A Wise Desire
 
-Sermon No. 33 - Delivered on Sabbath Morning, July 8, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > He shall choose our inheritance for us.    
 > Psalm 47:4.    

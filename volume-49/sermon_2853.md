@@ -1,6 +1,5 @@
 # Sermon 2853 | Observing the King's Word
 
-(No. 2853)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1903.
 

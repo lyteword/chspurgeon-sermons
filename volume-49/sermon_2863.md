@@ -1,6 +1,5 @@
 # Sermon 2863 | Great Forgiveness for Great Sin
 
-(No. 2863)
 
 A WATCH-NIGHT SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1903.
 

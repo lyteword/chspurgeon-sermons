@@ -1,6 +1,5 @@
 # Sermon 2198 | The Census of Israel
 
-(No. 2198)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 5, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 2363 | Comfort and Constancy
 
-(No. 2363)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY JUNE 3, 1894.
 

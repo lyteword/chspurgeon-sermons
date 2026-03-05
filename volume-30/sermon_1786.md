@@ -1,6 +1,5 @@
 # Sermon 1786 | Our Sanctuary
 
-(No. 1786)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 15, 1884,
 

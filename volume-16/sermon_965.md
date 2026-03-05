@@ -1,6 +1,5 @@
 # Sermon 965 | Purging Out the Leaven
 
-(No. 965)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 11, 1870,
 

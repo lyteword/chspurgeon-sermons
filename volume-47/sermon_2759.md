@@ -1,6 +1,5 @@
 # Sermon 2759 | The Pleasures of Piety
 
-(No. 2759)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 29, 1901.
 

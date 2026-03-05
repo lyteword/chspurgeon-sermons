@@ -1,6 +1,5 @@
 # Sermon 2180 | A Mediator
 
-Sermon No. 2180 - Delivered on Sunday Evening, February 23rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Now a mediator is not a mediator of one, but God is one."  
 > Galatians 3:20.  

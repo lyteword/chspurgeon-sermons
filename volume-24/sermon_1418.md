@@ -1,6 +1,5 @@
 # Sermon 1418 | The Holdfast
 
-(No. 1418)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 9, 1878,
 

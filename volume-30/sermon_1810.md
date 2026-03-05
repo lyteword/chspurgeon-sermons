@@ -1,6 +1,5 @@
 # Sermon 1810 | The Lion and the Bear--Trophies Hung Up
 
-(No. 1810)
 
 A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 25, 1884,
 

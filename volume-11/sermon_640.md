@@ -1,6 +1,5 @@
 # Sermon 640 | The Gospel's Power In A Christian'S Life
 
-Sermon No. 640 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Only let your conversation be as it becomes the Gospel of Christ    
 > Philippians 1:27.    

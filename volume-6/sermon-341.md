@@ -1,6 +1,5 @@
 # Sermon 341 | The High Priest Standing Between the Dead and the Living
 
-Sermon No. 341 - Delivered on Sabbath Morning, October 21st, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > And Aaron took as Moses commanded, and ran into the midst of the congregation; and behold, the plague was begun among the people: and he put on incense, and made an atonement for the people. And he stood between the dead and the living; and the plague was stayed.    
 > Numbers 16:47-48.    

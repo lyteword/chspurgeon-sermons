@@ -1,6 +1,5 @@
 # Sermon 72 | Israel at the Red Sea
 
-Sermon No. 72 - Delivered on Sabbath Morning, March 30, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > He rebuked the Red Sea also, and it was dried up: so he led them through the depths, as through the wilderness.    
 > Psalm 106:9.    

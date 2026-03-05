@@ -1,6 +1,5 @@
 # Sermon 2617 | Shining Christians
 
-(No. 2617)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 9, 1899.
 

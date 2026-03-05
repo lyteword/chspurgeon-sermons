@@ -1,6 +1,5 @@
 # Sermon 1556 | The Waterpots at Cana
 
-Sermon No. 1556 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Jesus saith unto them, Fill the waterpots with water. And they filled them up to the brim.'John 2:7.
 

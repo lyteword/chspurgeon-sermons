@@ -1,6 +1,5 @@
 # Sermon 1769 | Before Daybreak with Christ
 
-(No. 1769)
 
 A SERMON DELIVERED ON THURSDAY EVENING, FEBRUARY 14, 1884,
 

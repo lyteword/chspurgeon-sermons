@@ -1,6 +1,5 @@
 # Sermon 3288 | Why the Gospel Is Hidden
 
-(No. 3288)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1912.
 

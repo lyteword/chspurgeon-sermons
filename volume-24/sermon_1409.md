@@ -1,6 +1,5 @@
 # Sermon 1409 | The Shortest of the Seven Cries
 
-Sermon No. 1409 - Delivered on Lord's-Day Morning, April 14th, 1878 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "After this, Jesus knowing that all things were now accomplished, that the scripture might be fulfilled, saith, I thirst."  
 > John 19:28.  

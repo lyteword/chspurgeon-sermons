@@ -1,6 +1,5 @@
 # Sermon 1427 | A Wilderness Cry
 
-(No. 1427)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 4, 1878,
 

@@ -1,6 +1,5 @@
 # Sermon 2796 | A Man of God Alone With God
 
-(No. 2796)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 14, 1902.
 

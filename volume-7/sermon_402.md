@@ -1,6 +1,5 @@
 # Sermon 402 | The Joint Heirs and Their Divine Portion
 
-Sermon No. 402 - Delivered on Sunday Morning, July the 28th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Joint heirs with Christ."  
 > Romans 8:17.  

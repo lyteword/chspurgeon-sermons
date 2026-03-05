@@ -1,6 +1,5 @@
 # Sermon 2281 | Our Lord in the Valley of Humiliation
 
-(No. 2281)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 6, 1892.
 

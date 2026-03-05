@@ -1,6 +1,5 @@
 # Sermon 2998 | The Rule of Christ
 
-(No. 2998)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 26, 1906.
 

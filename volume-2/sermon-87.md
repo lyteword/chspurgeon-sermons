@@ -1,6 +1,5 @@
 # Sermon 87 | The Majestic Voice
 
-Sermon No. 87 - Delivered on Sabbath Morning, June 22, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > The voice of the Lord is full of majesty.    
 > Psalm 29:4.    

@@ -1,7 +1,5 @@
 # Sermon 1792 | Understandest Thou What Thou Readest?
 
-Sermon No. 1792 - Delivered on Lord's-Day Evening, May 11th, 1884 the REV. C.H. SPURGEON at Exeter-Hall.
-(No. 1792)
 
 HOW THIS NEGRO CHAMBERLAIN of the Queen of Ethiopia came to be a proselyte we do not know. The book which he was so fond of reading may have been the means of leading him to worship the God of Abraham, certainly it has answered that purpose thousands of times. At any rate, he followed the light he had, and though he had not yet come to the full glory of Christianity, it was more than probable that he would do so, because he was evidently prepared to follow truth wherever her flaming torch should lead the way. Oh, that there were more candour among men in these latter days, and less of the prejudice which puts scales upon the eyes of the mind!
 

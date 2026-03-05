@@ -1,6 +1,5 @@
 # Sermon 1680 | Bochim--Or, the Weepers
 
-(No. 1680)
 
 DELIVERED ON THURSDAY EVENING, AUGUST 10, 1882,
 

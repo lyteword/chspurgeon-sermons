@@ -1,6 +1,5 @@
 # Sermon 1437 | Others To Be Gathered In
 
-(No. 1437)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 6, 1878,
 

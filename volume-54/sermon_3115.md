@@ -1,6 +1,5 @@
 # Sermon 3115 | Sin and Grace
 
-(No. 3115)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1908.
 

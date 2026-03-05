@@ -1,6 +1,5 @@
 # Sermon 395 | Jehovah Tsidkenu: The Lord Our Righteousness
 
-Sermon No. 395 - Delivered on Sunday Morning, June 2nd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "This is his name whereby he shall be called, The Lord our Righteousness."  
 > Jeremiah 23:6.  

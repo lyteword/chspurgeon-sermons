@@ -1,6 +1,5 @@
 # Sermon 1368 | The God of Peace and Our Sanctification
 
-(No. 1368)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 5, 1877,
 

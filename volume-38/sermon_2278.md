@@ -1,6 +1,5 @@
 # Sermon 2278 | Feeding on the Word
 
-(No. 2278)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 16, 1892.
 

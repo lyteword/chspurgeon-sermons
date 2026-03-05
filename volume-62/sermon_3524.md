@@ -1,6 +1,5 @@
 # Sermon 3524 | "Do I Love the Lord or Not?"
 
-(No. 3524)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1916.
 

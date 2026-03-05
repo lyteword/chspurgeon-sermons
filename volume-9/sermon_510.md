@@ -1,6 +1,5 @@
 # Sermon 510 | Peace By Believing
 
-Sermon No. 510 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Therefore, beingjustified by faith, we havepeace with God through ourLord Jesus Christ."  
 > Romans 5:1.  

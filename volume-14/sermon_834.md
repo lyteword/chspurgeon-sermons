@@ -1,6 +1,5 @@
 # Sermon 834 | The Universal Remedy
 
-A Sermon (No. 834)
 
 Delivered on Lord's-Day Morning, October 4, 1868, by C. H. SPURGEON, at the [43]Metropolitan Tabernacle, Newington.
 

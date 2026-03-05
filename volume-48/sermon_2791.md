@@ -1,6 +1,5 @@
 # Sermon 2791 | A High Day in Heaven
 
-(No. 2791)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 10, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 3519 | A Gospel Promise
 
-(No. 3519)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 6, 1916.
 

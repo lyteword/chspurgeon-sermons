@@ -1,6 +1,5 @@
 # Sermon 2097 | The Mediator'The Interpreter
 
-Sermon No. 2097 - Delivered on Lord's-day Morning, July 28th, 1889 the REV. C.H. SPURGEON at [5]the Metropolitan Tabernacle, Newington.
 
 And all the people saw the thunderings, and the lightnings, and the noise of the trumpet, and the mountain smoking: and when the people saw it, they removed, and stood afar off. And they said unto Moses, Speak thou with us, and we will hear: but let not God speak with us, lest we die. And Moses said unto the people, Fear not: for God is come to prove you, and that His fear may be before your faces, that ye sin not."'Exodus 20:18-20.
 

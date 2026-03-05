@@ -1,6 +1,5 @@
 # Sermon 2627 | The Best Friend
 
-(No. 2627)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 18, 1899.
 

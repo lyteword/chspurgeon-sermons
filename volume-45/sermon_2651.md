@@ -1,6 +1,5 @@
 # Sermon 2651 | The Christian's Service and Honor
 
-(No. 2651)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 3, 1899.
 

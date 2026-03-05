@@ -1,6 +1,5 @@
 # Sermon 1619 | The Pentecostal Wind and Fire
 
-(No. 1619)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 18, 1881,
 

@@ -1,6 +1,5 @@
 # Sermon 1370 | Sheep Among Wolves
 
-(No. 1370)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 19, 1877,
 

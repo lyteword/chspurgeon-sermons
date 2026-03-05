@@ -1,6 +1,5 @@
 # Sermon 1031 | How Can I Obtain Faith?
 
-Sermon No. 1031 - Delivered on Lord's Day Morning, January 21st, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 'So then faith cometh by hearing, and hearing by the word of God.''Romans 10:17.
 

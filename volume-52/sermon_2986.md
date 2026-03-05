@@ -1,6 +1,5 @@
 # Sermon 2986 | One Aspect of Christ's Death
 
-(No. 2986)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 3, 1906.
 

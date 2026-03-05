@@ -1,6 +1,5 @@
 # Sermon 2289 | The Right Keynote for the New Year
 
-(No. 2289)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 1, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 1181 | Thinking and Turning
 
-(No. 1181)
 
 ASERMON DELIVERED ON LORD'S-DAY MORNING, JULY 5, 1874,
 

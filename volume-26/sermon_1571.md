@@ -1,6 +1,5 @@
 # Sermon 1571 | The Joy Of Jesus
 
-(No. 1571)
 
 DELIVERED ON SUNDAY MORNING, DECEMBER 5, 1880,
 

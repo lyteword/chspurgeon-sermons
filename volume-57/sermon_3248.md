@@ -1,6 +1,5 @@
 # Sermon 3248 | Gathering Without Planting
 
-(No. 3248)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 4, 1911.
 

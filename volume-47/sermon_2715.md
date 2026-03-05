@@ -1,6 +1,5 @@
 # Sermon 2715 | Christian Resignation
 
-(No. 2715)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 24, 1901.
 

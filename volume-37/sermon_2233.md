@@ -1,6 +1,5 @@
 # Sermon 2233 | Both Sides of the Shield
 
-(No. 2233)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 6, 1891,
 

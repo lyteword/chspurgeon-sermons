@@ -1,6 +1,5 @@
 # Sermon 2599 | A Visit From the Lord
 
-(No. 2599)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 4, 1898.
 

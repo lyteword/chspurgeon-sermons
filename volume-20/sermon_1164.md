@@ -1,6 +1,5 @@
 # Sermon 1164 | Now, A Sermon for Young Men and Young Women
 
-(No. 1164)
 
 DELIVERED ON THURSDAY EVENING, MARCH 19, 1874,
 

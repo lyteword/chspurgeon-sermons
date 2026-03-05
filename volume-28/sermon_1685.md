@@ -1,6 +1,5 @@
 # Sermon 1685 | God's Non-Remembrance of Sin
 
-(No. 1685)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 22, 1882,
 

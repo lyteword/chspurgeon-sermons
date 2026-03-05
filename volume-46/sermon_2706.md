@@ -1,6 +1,5 @@
 # Sermon 2706 | Feeding on the Bread of Life
 
-(No. 2706)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 23, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 3241 | A Painful and Puzzling Question
 
-(No. 3241)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 16, 1911.
 

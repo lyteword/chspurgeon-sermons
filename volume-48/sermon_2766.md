@@ -1,6 +1,5 @@
 # Sermon 2766 | The Sluggard's Reproof
 
-(No. 2766)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 16, 1902.
 

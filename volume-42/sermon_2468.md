@@ -1,6 +1,5 @@
 # Sermon 2468 | Solitude, Silence, Submission
 
-(No. 2468)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 7, 1896.
 

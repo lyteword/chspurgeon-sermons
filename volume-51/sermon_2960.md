@@ -1,6 +1,5 @@
 # Sermon 2960 | "Where Are the Nine?" Where?
 
-(No. 2960)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1905.
 

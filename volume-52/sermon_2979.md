@@ -1,6 +1,5 @@
 # Sermon 2979 | Our Banner
 
-(No. 2979)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 29, 1905.
 

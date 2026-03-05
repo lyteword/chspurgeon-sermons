@@ -1,6 +1,5 @@
 # Sermon 1392 | A Catechism for the Proud
 
-(No. 1392)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 6, 1878,
 

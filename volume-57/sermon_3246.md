@@ -1,6 +1,5 @@
 # Sermon 3246 | God's Thoughts and Ours
 
-(No. 3246)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 20, 1911.
 

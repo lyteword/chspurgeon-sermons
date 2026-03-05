@@ -1,6 +1,5 @@
 # Sermon 3486 | God's Desire for Us, and His Work in Us
 
-(No. 3486)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 18, 1915.
 

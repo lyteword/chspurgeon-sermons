@@ -1,6 +1,5 @@
 # Sermon 2657 | All the Promises
 
-(No. 2657)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 14, 1900.
 

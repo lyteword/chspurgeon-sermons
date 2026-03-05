@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 800)
 
 Delivered on Lord's-Day Morning, March 15, 1868, by
 

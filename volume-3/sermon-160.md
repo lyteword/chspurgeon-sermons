@@ -1,6 +1,5 @@
 # Sermon 160 | Light at Evening Time
 
-Sermon No. 160 - Delivered on Sabbath Morning, October 25, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > It shall come to pass that at evening time it shall be light.    
 > Zechariah 14:7.    

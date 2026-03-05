@@ -1,6 +1,5 @@
 # Sermon 2802 | Lukewarmness
 
-(No. 2802)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 26, 1902.
 

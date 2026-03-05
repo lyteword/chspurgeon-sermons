@@ -1,6 +1,5 @@
 # Sermon 2426 | A Prayer for Revival
 
-(No. 2426)
 
 INTENDED FOR READING ON LORD'S DAY, AUGUST 18, 1895.
 

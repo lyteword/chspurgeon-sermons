@@ -1,6 +1,5 @@
 # Sermon 747 | "Make This Valley Full of Ditches"
 
-Sermon No. 747 - Delivered on Lord's-day Morning, APRIL 28, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And he said, Thus says the Lord, Make this valley full of ditches. For thus says the Lord, You shall not see wind, neither shall you see rain yet that valley shall be filled with water, that you may drink both you, and your cattle, and your beasts. And this is but a light thing in the sight of the Lord: He will deliver the Moabites also into your hand."- 2 Kings 3:16-18.

@@ -1,6 +1,5 @@
 # Sermon 2543 | Good Reasons for a Good Resolution
 
-(No. 2543)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 11, 1897.
 

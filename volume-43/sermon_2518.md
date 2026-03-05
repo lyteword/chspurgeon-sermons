@@ -1,6 +1,5 @@
 # Sermon 2518 | A Sad Interior and a Cheery Messenger
 
-(No. 2518)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 23, 1897.
 

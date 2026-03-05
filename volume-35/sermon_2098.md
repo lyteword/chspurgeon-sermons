@@ -1,6 +1,5 @@
 # Sermon 2098 | Where Go You?
 
-Sermon No. 2098 - Delivered on Sunday, August 4, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But He knows the way that I take: when He has tried me, I shall come forth as gold."  
 > Job 23:10  

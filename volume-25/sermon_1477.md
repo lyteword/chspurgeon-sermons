@@ -1,6 +1,5 @@
 # Sermon 1477 | Jesus Admired In Them That Believe
 
-(No. 1477)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1879,
 

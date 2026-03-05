@@ -1,6 +1,5 @@
 # Sermon 1722 | The First Setting Up of the Bronze Serpent
 
-(No. 1722)
 
 DELIVERED ON THURSDAY EVENING, MAY 10, 1883,
 

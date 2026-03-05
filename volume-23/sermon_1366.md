@@ -1,6 +1,5 @@
 # Sermon 1366 | The Danger of Unconfessed Sin
 
-(No. 1366)
 
 DELIVERED
 

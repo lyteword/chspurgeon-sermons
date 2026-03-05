@@ -1,6 +1,5 @@
 # Sermon 1828 | How "The Unspeakable" is Spoken of
 
-(No. 1828)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1885,
 

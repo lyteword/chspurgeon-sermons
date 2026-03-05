@@ -1,6 +1,5 @@
 # Sermon 1673 | Who Is This?
 
-(No. 1673)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 6, 1882,
 

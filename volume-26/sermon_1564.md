@@ -1,6 +1,5 @@
 # Sermon 1564 | Desires Towards God--a Sermon For The Weak
 
-(No. 1564)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 24, 1880,
 

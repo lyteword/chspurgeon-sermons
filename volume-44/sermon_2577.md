@@ -1,6 +1,5 @@
 # Sermon 2577 | Living on the Word
 
-(No. 2577)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 3, 1898.
 

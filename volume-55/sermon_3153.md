@@ -1,6 +1,5 @@
 # Sermon 3153 | Paul Cheered in Prison by His Lord
 
-(No. 3153)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 15, 1909.
 

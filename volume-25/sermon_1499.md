@@ -1,6 +1,5 @@
 # Sermon 1499 | The Lessons of the Foot-washing
 
-(No. 1499)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1879,
 

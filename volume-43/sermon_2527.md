@@ -1,6 +1,5 @@
 # Sermon 2527 | David's Five-stringed Harp
 
-(No. 2527)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 25, 1897.
 

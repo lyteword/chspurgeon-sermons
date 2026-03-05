@@ -1,6 +1,5 @@
 # Sermon 2206 | "Am I A Sea, Or A Whale?"
 
-(No. 2206)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 31, 1891,
 

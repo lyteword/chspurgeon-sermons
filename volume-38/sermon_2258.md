@@ -1,6 +1,5 @@
 # Sermon 2258 | Where Is the Lord?
 
-(No. 2258)
 
 NTENDED FOR READING ON LORD'S-DAY, MAY 29, 1892.
 

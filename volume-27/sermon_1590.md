@@ -1,6 +1,5 @@
 # Sermon 1590 | The Barrier
 
-(No. 1590)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 27, 1881,
 

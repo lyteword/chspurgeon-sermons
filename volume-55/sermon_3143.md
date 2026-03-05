@@ -1,6 +1,5 @@
 # Sermon 3143 | Shoes for Pilgrims and Warriors
 
-(No. 3143)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 6, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2524 | Fearing and Hoping
 
-(No. 2524)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 4, 1897.
 

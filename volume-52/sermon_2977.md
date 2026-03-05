@@ -1,6 +1,5 @@
 # Sermon 2977 | Plowing Rock
 
-(No. 2977)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1906.
 

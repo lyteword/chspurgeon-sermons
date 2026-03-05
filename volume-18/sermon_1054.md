@@ -1,6 +1,5 @@
 # Sermon 1054 | "Waters To Swim In"
 
-(No. 1054)
 
 A SERMON DELIVERED ON THURSDAY EVENING, APRIL 25, 1872,
 

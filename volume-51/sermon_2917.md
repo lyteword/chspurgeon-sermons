@@ -1,6 +1,5 @@
 # Sermon 2917 | The Doors of the Shadow of Death
 
-(No. 2917)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 5, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 1048 | The Sin-Offering for the Common People
 
-(No. 1048)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 28, 1872,
 

@@ -1,6 +1,5 @@
 # Sermon 2296 | Saints Guarded From Stumbling
 
-(No. 2296)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 19, 1893.
 

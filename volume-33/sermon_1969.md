@@ -1,6 +1,5 @@
 # Sermon 1969 | Pleading Prayer
 
-Sermon No. 1969 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Remember the Word unto Your servant upon which You have caused me to hope."  
 > Psalm 119:49.  

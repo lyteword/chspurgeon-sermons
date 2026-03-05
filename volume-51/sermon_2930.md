@@ -1,6 +1,5 @@
 # Sermon 2930 | "Hiding in You!"
 
-(No. 2930)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 6, 1905.
 

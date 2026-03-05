@@ -1,6 +1,5 @@
 # Sermon 1442 | Sorrow at the Cross Turned into Joy
 
-(No. 1442)
 
 DELIVERED ON LORD'S-DAY MORNING NOVEMBER 3, 1878,
 

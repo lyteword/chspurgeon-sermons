@@ -1,6 +1,5 @@
 # Sermon 1214 | Strengthening Medicine For God's Servants
 
-(No. 1214)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 3304 | Grace Abounding
 
-(No. 3304)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 30, 1912.
 

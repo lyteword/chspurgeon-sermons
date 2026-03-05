@@ -1,6 +1,5 @@
 # Sermon 2247 | Praise for the Gift of Gifts
 
-(No. 2247)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 13, 1892.
 

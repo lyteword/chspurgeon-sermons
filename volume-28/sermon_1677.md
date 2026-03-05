@@ -1,6 +1,5 @@
 # Sermon 1677 | A Great Mistake and the Way to Rectify It
 
-(No. 1677)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 3, 1882,
 

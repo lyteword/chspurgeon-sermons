@@ -1,6 +1,5 @@
 # Sermon 1724 | Supposing Him to Have Been in the Company
 
-(No. 1724)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 3, 1883,
 

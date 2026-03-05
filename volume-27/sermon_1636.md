@@ -1,6 +1,5 @@
 # Sermon 1636 | Chastened Happiness
 
-(No. 1636)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER. 25, 1881,
 

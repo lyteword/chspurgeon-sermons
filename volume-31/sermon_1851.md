@@ -1,6 +1,5 @@
 # Sermon 1851 | Ruth's Reward--or, Cheer for Converts
 
-(No. 1851)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 29, 1885,
 

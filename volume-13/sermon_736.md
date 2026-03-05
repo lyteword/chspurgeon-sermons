@@ -1,6 +1,5 @@
 # Sermon 736 | A Happy Christian
 
-Sermon No. 736 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And the Lord shall guide you continually, and satisfy your soul in drought, and make fat your bones; and you shall be like a watered garden, and like a spring of water, whose waters fail not."- Isaiah 58:11

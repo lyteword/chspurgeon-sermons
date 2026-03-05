@@ -1,6 +1,5 @@
 # Sermon 1596 | Hearken and Look; or, Encouragement for Believers
 
-Sermon No. 1596 - Delivered on Wednesday, April 27th, 1881 the REV. C.H. SPURGEON at Exeter Hall.
 
 (The Annual Sermon on behalf of the Baptist Missionary Society)
 

@@ -1,6 +1,5 @@
 # Sermon 1101 | An Old-Fashioned Conversion
 
-(No. 1101)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 16, 1873,
 

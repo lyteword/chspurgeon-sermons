@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 319)
 
 Delivered on Sabbath Evening, January 15th, 1860, by the
 

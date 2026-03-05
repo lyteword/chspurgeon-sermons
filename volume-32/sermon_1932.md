@@ -1,6 +1,5 @@
 # Sermon 1932 | Love's Law and Life
 
-(No. 1932)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 5, 1886,
 

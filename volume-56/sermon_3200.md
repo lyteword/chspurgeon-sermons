@@ -1,6 +1,5 @@
 # Sermon 3200 | Faith Justifying Speech
 
-(No. 3200)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 2, 1910.
 

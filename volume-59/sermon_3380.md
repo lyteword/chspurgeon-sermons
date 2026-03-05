@@ -1,6 +1,5 @@
 # Sermon 3380 | Our Lord's Voluntary Poverty
 
-(No. 3380)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 13, 1913.
 

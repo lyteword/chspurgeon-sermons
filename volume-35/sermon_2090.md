@@ -1,6 +1,5 @@
 # Sermon 2090 | A Delicious Experience
 
-Sermon No. 2090 - Delivered on Sunday, June 16, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For we which have believed do enter into rest, as He said, As I have sworn in My wrath, if they shall enter into My rest."  
 > Hebrews 4:3.  

@@ -1,6 +1,5 @@
 # Sermon 1978 | Trust
 
-Sermon No. 1978 - Delivered on Sunday Morning, August 21st, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "That we should be to the praise of His glory, who first trusted in Christ. In whom you also trusted, after you heard the Word of truth, the Gospel of your salvation."  
 > Ephesians 1:12,13.  

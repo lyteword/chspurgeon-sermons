@@ -1,6 +1,5 @@
 # Sermon 1620 | Is It Nothing To You?
 
-(No. 1620)
 
 DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 11, 1881,
 

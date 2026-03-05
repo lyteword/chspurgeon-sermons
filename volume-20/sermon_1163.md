@@ -1,6 +1,5 @@
 # Sermon 1163 | Redemption and Its Claims
 
-(No. 1163)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, MARCH 8, 1874,
 

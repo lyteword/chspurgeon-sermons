@@ -1,6 +1,5 @@
 # Sermon 1583 | Choice Food for Pilgrims to Canaan
 
-(No. 1583)
 
 DELIVERED BY
 

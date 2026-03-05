@@ -1,6 +1,5 @@
 # Sermon 2391 | The Keeper of the Vineyard
 
-(No. 2391)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 16, 1894.
 

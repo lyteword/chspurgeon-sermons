@@ -1,6 +1,5 @@
 # Sermon 2799 | The Church Encouraged and Exhorted
 
-(No. 2799)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 5, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 247 | The Best of Masters
 
-Sermon No. 247 - Delivered on Sabbath Morning, April 10th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Peace I leave with you; my peace l give unto you; not as the world giveth, I give unto you.    
 > John 14:27.    

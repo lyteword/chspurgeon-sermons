@@ -1,6 +1,5 @@
 # Sermon 2981 | The Safeguards of Forgiveness
 
-(No. 2981)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 29, 1906.
 

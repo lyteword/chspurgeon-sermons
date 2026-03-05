@@ -1,6 +1,5 @@
 # Sermon 2069 | My Own Personal Holdfast
 
-Sermon No. 2069 - Delivered on Sunday, February 10th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "My God will hear me."  
 > Micah 7:7.  

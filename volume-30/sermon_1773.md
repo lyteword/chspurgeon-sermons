@@ -1,6 +1,5 @@
 # Sermon 1773 | What Is Your Life?
 
-(No. 1773)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 30, 1884,
 

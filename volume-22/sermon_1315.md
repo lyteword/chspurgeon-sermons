@@ -1,6 +1,5 @@
 # Sermon 1315 | Untitled Sermon
 
-(No. 1315)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, JULY 16, 1876,
 

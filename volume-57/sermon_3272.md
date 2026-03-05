@@ -1,6 +1,5 @@
 # Sermon 3272 | How to Become Full of Joy
 
-(No. 3272)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1911.
 

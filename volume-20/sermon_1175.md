@@ -1,6 +1,5 @@
 # Sermon 1175 | Stephen's Death
 
-(No. 1175)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 24, 1874,
 

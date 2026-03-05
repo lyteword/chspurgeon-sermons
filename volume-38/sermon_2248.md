@@ -1,6 +1,5 @@
 # Sermon 2248 | Sad Fasts Changed To Glad Feasts
 
-(No. 2248)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 20, 1892.
 

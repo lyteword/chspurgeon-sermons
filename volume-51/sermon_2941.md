@@ -1,6 +1,5 @@
 # Sermon 2941 | Mary's Magnificat
 
-(No. 2941)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 22, 1905.
 

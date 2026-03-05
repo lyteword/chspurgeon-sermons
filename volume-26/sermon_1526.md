@@ -1,6 +1,5 @@
 # Sermon 1526 | The Fair Portrait of a Saint
 
-(No. 1526)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 7, 1880,
 

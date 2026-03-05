@@ -1,6 +1,5 @@
 # Sermon 1064 | Salvation All of Grace
 
-(No. 1064)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 4, 1872,
 

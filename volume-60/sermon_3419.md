@@ -1,6 +1,5 @@
 # Sermon 3419 | God, the Husband of His People
 
-(No. 3419)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1914.
 

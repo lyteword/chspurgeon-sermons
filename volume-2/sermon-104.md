@@ -1,6 +1,5 @@
 # Sermon 104 | Love's Commendation
 
-Sermon No. 104 - Delivered on Sabbath Morning, November 23, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.    
 > Romans 5:8.    

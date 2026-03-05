@@ -1,6 +1,5 @@
 # Sermon 2642 | The Flight to Zoar
 
-(No. 2642)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 1, 1899.
 

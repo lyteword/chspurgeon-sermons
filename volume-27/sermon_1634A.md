@@ -1,6 +1,5 @@
 # Sermon 1634A | The Bride and Her Ornaments--the Sin of Forgetting God
 
-(No. 1634A)
 
 DELIVERED ON THURSDAY EVENING, AUGUST 4, 1881,
 

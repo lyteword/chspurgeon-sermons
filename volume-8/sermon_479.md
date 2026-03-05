@@ -1,6 +1,5 @@
 # Sermon 479 | Christian Sympathy
 
-Sermon No. 479 - Delivered on Sunday Morning, November 9th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Did not I weep for him that was in trouble? was not my soul grieved for the poor?"  
 > Job 30:25.  

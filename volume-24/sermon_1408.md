@@ -1,6 +1,5 @@
 # Sermon 1408 | The Reason Why Many Cannot Find Peace
 
-(No. 1408)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 7, 1878,
 

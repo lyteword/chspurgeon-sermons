@@ -1,6 +1,5 @@
 # Sermon 1959 | The Watchword For Today--"Stand Fast"
 
-Sermon No. 1959 - Delivered on Sunday Morning, April 17th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For our citizenship is in Heaven, from where, also, we look for the Savior, the Lord Jesus Christ, who shall change our vile body, that it may be fashioned like unto His glorious body according to the working whereby He is able even to subdue all things unto Himself. Therefore, my brethren, dearly beloved and longed for, my joy and crown, standfast in the Lord my dearly beloved."  
 > Philippians 3:20,21; 4:1.  

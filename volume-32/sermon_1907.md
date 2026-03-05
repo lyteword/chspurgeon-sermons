@@ -1,6 +1,5 @@
 # Sermon 1907 | "The Tender Mercy of Our God"
 
-Sermon No. 1907 - Delivered on Lord's-day Morning, June 27th, 1886 the REV. C.H. SPURGEON at [8]the Metropolitan Tabernacle, Newington.
 
 > "To give knowledge of salvation unto his people by the remission of their sins through the tender mercy of our God; whereby the dayspring from on high hath visited us, to give light to them that sit in darkness and in the shadow of death to guide our feet into the way of peace."  
 > Luke 1:77-79.  

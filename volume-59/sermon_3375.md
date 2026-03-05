@@ -1,6 +1,5 @@
 # Sermon 3375 | Standing and Singing
 
-(No. 3375)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 9, 1913.
 

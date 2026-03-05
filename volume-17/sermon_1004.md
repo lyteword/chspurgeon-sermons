@@ -1,6 +1,5 @@
 # Sermon 1004 | "Bought with a Price"
 
-Sermon No. 1004 - Delivered on Lord's-day Morning, August 6th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Ye are not your own: for ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's."  
 > 1 Corinthians 6:19-20.  

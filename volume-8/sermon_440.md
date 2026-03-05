@@ -1,6 +1,5 @@
 # Sermon 440 | Cheer For The Faint-Hearted
 
-Sermon No. 440 - Delivered on Sunday Evening January 26th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But his wife said unto him, If the Lord werepleased to kill us, He would not have received a burnt offering and a meat offering at our hands, neither would He have showed us all these things, nor would as at this time have told us such things as these."  
 > Judges 13:23.  

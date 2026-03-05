@@ -1,6 +1,5 @@
 # Sermon 2830 | A Good Man in An Evil Case
 
-(No. 2830)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 10, 1903.
 

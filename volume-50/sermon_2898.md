@@ -1,6 +1,5 @@
 # Sermon 2898 | The Search Warrant
 
-(No. 2898)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 25, 1904.
 

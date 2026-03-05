@@ -1,6 +1,5 @@
 # Sermon 1730 | A Cure For Unsavory Meats--or, Salt for the White of an Egg
 
-(No. 1730)
 
 DELIVERED ON THURSDAY EVENING, JULY 5, 1883,
 

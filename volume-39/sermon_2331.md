@@ -1,6 +1,5 @@
 # Sermon 2331 | Christ's Pastoral Prayer for His People
 
-(No. 2331)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 22, 1893.
 

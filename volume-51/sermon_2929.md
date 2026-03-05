@@ -1,6 +1,5 @@
 # Sermon 2929 | A Challenge and War Cry
 
-(No. 2929)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 30, 1905.
 

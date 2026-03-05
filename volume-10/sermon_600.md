@@ -1,6 +1,5 @@
 # Sermon 600 | The Centurion--Or An Exhortation To The Virtuous
 
-Sermon No. 600 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And when they came to Jesus, they besought Him instantly, saying, That he was worthy for whom He should do this: for he loves our nation and he has built us a synagogue. Then Jesus went with them. And when He was now not far from the house, the centurion sent friends to Him, saying unto Him, Lord, trouble not Yourself: for I am not worthy that You should enter under my roof: why neither thought I myself worthy to come unto You: but say in a word and my servant shall be healed. For I also am a man set under authority, having under me soldiers and I say unto one, Go and he goes. And to another, Come and he comes. And to my servant, Do this and he does it. When Jesus heard these things, He marveled at him and turned Him about and said unto the people that followed Him, I say unto you, I have not found so great faith, no, not in Israel."  
 > Luke 7:4-9.  

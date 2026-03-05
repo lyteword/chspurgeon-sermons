@@ -1,6 +1,5 @@
 # Sermon 3402 | The Nail in a Sure Place
 
-(No. 3402)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 16, 1914.
 

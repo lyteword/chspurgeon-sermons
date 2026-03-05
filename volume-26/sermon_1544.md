@@ -1,6 +1,5 @@
 # Sermon 1544 | Mahanaim--or, Hosts Of Angels
 
-(No. 1544)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 20, 1880,
 

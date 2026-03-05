@@ -1,6 +1,5 @@
 # Sermon 1070 | Wrecked, But Not reckless
 
-(No. 1070)
 
 A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 9, 1872,
 

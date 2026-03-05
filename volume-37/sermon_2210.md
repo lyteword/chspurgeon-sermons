@@ -1,6 +1,5 @@
 # Sermon 2210 | The Agreement Of Salvation By Grace With Walking In Good Works
 
-(No. 2210)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 28, 1891,
 

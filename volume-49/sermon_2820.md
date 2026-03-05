@@ -1,6 +1,5 @@
 # Sermon 2820 | Christ Before Annas
 
-(No. 2820)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 1, 1903.
 

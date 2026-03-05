@@ -1,6 +1,5 @@
 # Sermon 439 | The Danger Of Doubting
 
-Sermon No. 439 - Delivered on Sunday Morning, March 16th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And David said in his heart, I shall now perish one day by the hand of Saul.'"  
 > 1 Samuel 27:1.   

@@ -1,6 +1,5 @@
 # Sermon 3101 | A Plain Talk Upon An Encouraging Topic
 
-(No. 3101)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 16, 1908.
 

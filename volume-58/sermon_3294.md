@@ -1,6 +1,5 @@
 # Sermon 3294 | The Lord's Eternal Rest
 
-(No. 3294)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 21, 1912.
 

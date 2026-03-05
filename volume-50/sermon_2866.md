@@ -1,6 +1,5 @@
 # Sermon 2866 | Good News
 
-(No. 2866)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1904.
 

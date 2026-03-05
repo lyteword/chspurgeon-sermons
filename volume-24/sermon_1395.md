@@ -1,6 +1,5 @@
 # Sermon 1395 | Family Reformation--or, Jacob's Second Visit to Bethel
 
-(No. 1395)
 
 DELIVERED BY
 

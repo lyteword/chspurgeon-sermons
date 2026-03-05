@@ -1,6 +1,5 @@
 # Sermon 2591 | Pride the Destroyer
 
-(No. 2591)
 
 A SERMON DELIVERED BY
 

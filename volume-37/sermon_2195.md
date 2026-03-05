@@ -1,6 +1,5 @@
 # Sermon 2195 | The Obedience of Faith
 
-(No. 2195)
 
 A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 21, 1890,
 

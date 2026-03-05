@@ -1,6 +1,5 @@
 # Sermon 2808 | The Disowned
 
-(No. 2808)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 7, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 1170 | "By All Means, Save Some"
 
-(No. 1170)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 26, 1874,
 

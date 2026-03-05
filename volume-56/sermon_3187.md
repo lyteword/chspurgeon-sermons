@@ -1,6 +1,5 @@
 # Sermon 3187 | The Great Pot and the Twenty Loaves
 
-(No. 3187)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 3, 1910.
 

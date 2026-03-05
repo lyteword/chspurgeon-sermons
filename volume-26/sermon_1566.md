@@ -1,6 +1,5 @@
 # Sermon 1566 | Cheer for the Worker and Hope for London
 
-(No. 1566)
 
 DELIVERED ON THURSDAY EVENING, OCTOBER 28, 1880,
 

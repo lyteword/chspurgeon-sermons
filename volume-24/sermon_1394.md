@@ -1,6 +1,5 @@
 # Sermon 1394 | The Day of Salvation
 
-(No. 1394)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 13, 1878,
 

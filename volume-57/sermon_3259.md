@@ -1,6 +1,5 @@
 # Sermon 3259 | Faith's Way of Approach
 
-(No. 3259)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 20, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 3204 | The Saints' Riches
 
-(No. 3204)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1910.
 

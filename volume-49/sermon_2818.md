@@ -1,6 +1,5 @@
 # Sermon 2818 | Jesus and His Forerunner
 
-(No. 2818)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 15, 1903.
 

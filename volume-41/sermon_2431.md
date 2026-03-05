@@ -1,6 +1,5 @@
 # Sermon 2431 | The Double Cleansing
 
-(No. 2431)
 
 INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 22, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 2663 | A Leap Year Sermon
 
-(No. 2663)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 25, 1900.
 

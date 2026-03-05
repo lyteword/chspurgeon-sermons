@@ -1,6 +1,5 @@
 # Sermon 3139 | A Promise for the Blind
 
-(No. 3139)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 8, 1909.
 

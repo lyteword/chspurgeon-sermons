@@ -1,6 +1,5 @@
 # Sermon 489 | Broad Rivers And Streams
 
-Sermon No. 489 - Delivered on Sunday Morning, January 18th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Look upon Zion, the city of our solemnities: your eyes shall see Jerusalem a quiet habitation, a tabernacle that shall not be taken down. Not one of the stakes thereof shall ever be removed, neither shall any of the cords thereof be broken. But there the glorious Lord will be unto us a place of broad rivers and streams; wherein shall go no galley with oars, neither shall gallant ship pass thereby. For the Lord is our Judge, the Lord is our Lawgiver, the Lord is our King. He will save us. Your tacklings are loosed, they could not well strengthen their mast, they could not spread the sail: then is the prey of a great spoil divided, the lame take the prey."  
 > Isaiah 33:20-23.  

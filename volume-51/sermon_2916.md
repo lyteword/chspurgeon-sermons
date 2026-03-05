@@ -1,6 +1,5 @@
 # Sermon 2916 | A Memorable Milestone
 
-(No. 2916)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 29, 1904.
 

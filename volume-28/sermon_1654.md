@@ -1,6 +1,5 @@
 # Sermon 1654 | "At Your Word"
 
-(No. 1654)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 16, 1882,
 

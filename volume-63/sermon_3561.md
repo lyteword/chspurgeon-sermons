@@ -1,6 +1,5 @@
 # Sermon 3561 | The Drawings of Love
 
-(No. 3561)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 26, 1917.
 

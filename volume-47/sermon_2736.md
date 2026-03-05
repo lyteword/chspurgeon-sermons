@@ -1,6 +1,5 @@
 # Sermon 2736 | The Great Miracle Worker
 
-(No. 2736)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 21, 1901.
 

@@ -1,6 +1,5 @@
 # Sermon 3332 | The Dumb Become Singers
 
-(No. 3332)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 12, 1912.
 

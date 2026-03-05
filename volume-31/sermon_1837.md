@@ -1,7 +1,5 @@
 # Sermon 1837 | A Great Gospel for Great Sinners
 
-Sermon No. 1837 - Delivered on Delivered the REV. C.H. SPURGEON at the [10]Metropolitan Tabernacle, Newington.
-(No. 1837)
 
 On June 2nd, 1884,
 

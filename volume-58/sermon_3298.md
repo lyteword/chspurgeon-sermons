@@ -1,6 +1,5 @@
 # Sermon 3298 | Lessons From Christ's Baptism
 
-(No. 3298)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 18, 1912.
 

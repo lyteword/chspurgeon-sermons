@@ -1,6 +1,5 @@
 # Sermon 2479 | Spices, Flowers, Lilies and Myrrh
 
-(No. 2479)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 23, 1896.
 

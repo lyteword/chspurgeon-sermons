@@ -1,6 +1,5 @@
 # Sermon 2535 | A Singular Plea in Prayer
 
-(No. 2535)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 19, 1897.
 

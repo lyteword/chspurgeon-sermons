@@ -1,6 +1,5 @@
 # Sermon 2335 | Three Texts, But One Subject-- Faith
 
-(No. 2335)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 19, 1893.
 

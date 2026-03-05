@@ -1,6 +1,5 @@
 # Sermon 3319 | The Well-beloved's Vineyard
 
-(No. 3319)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 12, 1912.
 

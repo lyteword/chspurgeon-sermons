@@ -1,6 +1,5 @@
 # Sermon 3379 | Rough, But Friendly
 
-(No. 3379)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 6, 1913.
 

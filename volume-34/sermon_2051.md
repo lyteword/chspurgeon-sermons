@@ -1,6 +1,5 @@
 # Sermon 2051 | Setting Jesus at Nothing--Treating Him with Contempt
 
-Sermon No. 2051 - Delivered on Sunday Evening, September 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And Herod with his men of war set Him at nothing."  
 > Luke 23:11.  

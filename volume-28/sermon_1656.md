@@ -1,6 +1,5 @@
 # Sermon 1656 | My Solace in My Affliction
 
-(No. 1656)
 
 DELIVERED BY
 

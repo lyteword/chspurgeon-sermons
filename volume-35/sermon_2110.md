@@ -1,6 +1,5 @@
 # Sermon 2110 | The Mustard Seed: A Sermon for the Sabbath-School Teacher
 
-Sermon No. 2110 - Delivered on Lord's-day Morning, October 20th, 1889 the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
 
 > "Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it? It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it."'Luke 13:18-19.  
 > "Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it? It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it."'Luke 13:18-19.  

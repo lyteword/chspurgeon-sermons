@@ -1,6 +1,5 @@
 # Sermon 3417 | Our Youth Renewed
 
-(No. 3417)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 30, 1914.
 

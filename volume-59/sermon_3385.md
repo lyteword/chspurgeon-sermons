@@ -1,6 +1,5 @@
 # Sermon 3385 | The Savior's Thirst
 
-(No. 3385)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 18, 1913.
 

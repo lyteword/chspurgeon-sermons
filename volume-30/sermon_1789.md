@@ -1,6 +1,5 @@
 # Sermon 1789 | Joseph of Arimathaea
 
-(No. 1789)
 
 A SERMON PREACHED ON LORD'S-DAY MORNING, JULY 6, 1884,
 

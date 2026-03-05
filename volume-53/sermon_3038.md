@@ -1,6 +1,5 @@
 # Sermon 3038 | Justice Vindicated And Righteousness Exemplified
 
-(No. 3038)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 2, 1907.
 

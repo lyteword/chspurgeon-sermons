@@ -1,6 +1,5 @@
 # Sermon 2813 | Life, and the Path to It
 
-(No. 2813)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 11, 1903,
 

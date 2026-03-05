@@ -1,6 +1,5 @@
 # Sermon 1796 | Concerning Saints
 
-(No. 1796)
 
 A SERMON PREACHED ON A THURSDAY EVENING IN THE SUMMER OF 1884,
 

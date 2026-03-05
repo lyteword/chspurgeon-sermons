@@ -1,6 +1,5 @@
 # Sermon 3480 | Fragrant Graces
 
-(No. 3480)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1915.
 

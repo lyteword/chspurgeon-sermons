@@ -1,6 +1,5 @@
 # Sermon 1195 | Abundant Pardon
 
-(No. 1195)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 27, 1874,
 

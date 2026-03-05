@@ -1,6 +1,5 @@
 # Sermon 1936 | The Unkept Vineyard--or, Personal Work Neglected
 
-(No. 1936)
 
 A SERMON DELIVERED ON LORD'S DAY EVENING, SEPTEMBER 19, 1886,
 

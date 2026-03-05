@@ -1,6 +1,5 @@
 # Sermon 2197 | Christ's Resurrection and Our Newness Of Life
 
-(No. 2197)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 29, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 2044 | All At It
 
-Sermon No. 2044 - Delivered on Sunday Morning, September 16th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Therefore they that were scattered abroad went everywhere preaching the Word. Then Philip went down to the city of Samaria, and preached Christ unto them."  
 > Acts 8:4,5.  

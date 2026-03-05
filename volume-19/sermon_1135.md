@@ -1,6 +1,5 @@
 # Sermon 1135 | Signs Of The Times
 
-(No. 1135)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 1189 | The Turning Point
 
-Sermon No. 1189 - Delivered on Lord's-Day Morning, August 23rd, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 And he arose, and came to his father.'Luke 15:20.
 

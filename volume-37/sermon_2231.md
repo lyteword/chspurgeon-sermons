@@ -1,6 +1,5 @@
 # Sermon 2231 | An Urgent Request for an Immediate Answer
 
-(No. 2231)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 22, 1891,
 

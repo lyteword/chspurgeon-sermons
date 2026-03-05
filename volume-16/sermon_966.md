@@ -1,6 +1,5 @@
 # Sermon 966 | Joseph's Bones
 
-(No. 966)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 18, 1870,
 

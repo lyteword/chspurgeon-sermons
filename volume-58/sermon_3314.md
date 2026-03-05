@@ -1,6 +1,5 @@
 # Sermon 3314 | God in Nature and in Revelation
 
-(No. 3314)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 8, 1912.
 

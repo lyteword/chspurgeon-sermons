@@ -1,6 +1,5 @@
 # Sermon 2294 | The Memory Of Christ's Love
 
-(No. 2294)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 5, 1893.
 

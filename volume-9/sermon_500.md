@@ -1,6 +1,5 @@
 # Sermon 500 | Ebenezer!
 
-Sermon No. 500 - Delivered on Sunday Morning, March 15th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Then Samuel took a stone, and set it between Mizpeh and Shen, and called the name of it Eben-ezer, saying, Hitherto hath the Lord helped us."  
 > 1 Samuel 7:12.  

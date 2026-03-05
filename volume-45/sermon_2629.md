@@ -1,6 +1,5 @@
 # Sermon 2629 | God's Work in Man
 
-(No. 2629)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 2, 1899.
 

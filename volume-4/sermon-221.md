@@ -2,7 +2,6 @@
 
 This sermon was originally printed together with a pastoral letter from C. H. S.
 
-Sermon No. 221 - Delivered on Sabbath Evening, September 21, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Comfort ye, comfort ye my people, saith your God.    
 > Isaiah 40:1.    

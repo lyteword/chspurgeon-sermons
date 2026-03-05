@@ -1,6 +1,5 @@
 # Sermon 1478 | Greater Things Yet Who Shall See Them?
 
-(No. 1478)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1879,
 

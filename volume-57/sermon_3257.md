@@ -1,6 +1,5 @@
 # Sermon 3257 | Thoughts and Their Fruit
 
-(No. 3257)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 6, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 1213 | Faith, And The Witness Upon Which It Is Founded
 
-(No. 1213)
 
 DELIVERED BY
 

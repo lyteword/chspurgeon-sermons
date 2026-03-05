@@ -1,6 +1,5 @@
 # Sermon 1222 | The Overflowing Cup
 
-(No. 1222)
 
 DELIVERED BY
 

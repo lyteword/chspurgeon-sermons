@@ -1,6 +1,5 @@
 # Sermon 1728 | The Works of the Devil Destroyed
 
-(No. 1728)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 1, 1883,
 

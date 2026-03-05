@@ -1,6 +1,5 @@
 # Sermon 2238 | "You Are Now the Blessed of the Lord"
 
-(No. 2238)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 10, 1892,
 

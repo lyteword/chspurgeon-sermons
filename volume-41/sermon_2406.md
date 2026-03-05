@@ -1,6 +1,5 @@
 # Sermon 2406 | An Appeal to Children of Godly Parents
 
-(No. 2406)
 
 INTENDED FOR READING ON LORD'S DAY, MARCH 31, 1895.
 

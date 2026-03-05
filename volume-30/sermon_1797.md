@@ -1,6 +1,5 @@
 # Sermon 1797 | How To Meet the Doctrine of Election
 
-(No. 1797)
 
 A SERMON DELIVERED ON THURSDAY EVENING, JULY 31, 1884,
 

@@ -1,6 +1,5 @@
 # Sermon 1759 | The Spirit of Bondage and Adoption
 
-(No. 1759)
 
 DELIVERED BY
 

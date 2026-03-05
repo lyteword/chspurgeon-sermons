@@ -1,6 +1,5 @@
 # Sermon 2579 | Waiting, Hoping, Watching
 
-(No. 2579)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 17, 1898.
 

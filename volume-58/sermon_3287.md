@@ -1,6 +1,5 @@
 # Sermon 3287 | The Only Door
 
-(No. 3287)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1912.
 

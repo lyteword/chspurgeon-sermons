@@ -1,6 +1,5 @@
 # Sermon 2819 | A Caution for Sin-sick Souls
 
-(No. 2819)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 22, 1903.
 

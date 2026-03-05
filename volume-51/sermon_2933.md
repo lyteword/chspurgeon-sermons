@@ -1,6 +1,5 @@
 # Sermon 2933 | Dead, Yet Alive
 
-(No. 2933)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 27, 1905.
 

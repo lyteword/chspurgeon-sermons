@@ -1,6 +1,5 @@
 # Sermon 1115 | The Good Shepherdess
 
-(No. 1115)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1873,
 

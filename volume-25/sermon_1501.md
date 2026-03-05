@@ -1,6 +1,5 @@
 # Sermon 1501 | Refuges of Lies and What Will Become of Them
 
-(No. 1501)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 26, 1879,
 

@@ -1,6 +1,5 @@
 # Sermon 839 | The Head of the Church
 
-A Sermon (No. 839)
 
 Delivered on Lord's-Day Morning, November 1, 1868, by C. H. SPURGEON, at the [47]Metropolitan Tabernacle, Newington.
 

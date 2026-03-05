@@ -1,6 +1,5 @@
 # Sermon 2974 | A Wafer of Honey
 
-(No. 2974)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1906.
 

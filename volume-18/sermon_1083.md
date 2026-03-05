@@ -1,6 +1,5 @@
 # Sermon 1083 | Living Temples for the Living God
 
-(No. 1083)
 
 DELIVERED
 

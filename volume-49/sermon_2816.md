@@ -1,6 +1,5 @@
 # Sermon 2816 | Invitation to a Conference
 
-(No. 2816)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 1, 1903.
 
@@ -20,7 +19,6 @@ Why should it not come now? I would not like, even for a single moment, to be sl
 
 Some texts need to be preached upon very often because they contain such vital Truths of God, Truths of the very highest importance which it is not easy to get into our hearers' minds and hearts. The carpenter is not blamed because he strikes a nail many times on the head, nor because he strikes the same nail with the same hammer, for he has to drive it into the wood, somehow or other, and to clinch it on the other side. So, if one stroke is not sufficient, he must not leave his work incomplete, but must strike the nail again and again until it is driven home. We shall do well to act in the same way. If we have preached from these words before and, I daresay some of us have done so many times--[Brother Spurgeon
 
-preached the following sermons on Isaiah 1:18--No. 366, Vol. 7--THE SILVER TRUMPET; No. 1278, Vol. 22--REASONS FOR PARTING WITH SIN and No. 2354, Vol. 40--SCARLET SINNERS PARDONED AND PURIFIED. --Read/download them, free of charge at http://www.spurgeons.ore:--and we feel quite justified in
 
 doing so again.
 

@@ -1,6 +1,5 @@
 # Sermon 1602 | Farm Laborers
 
-(No. 1602)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 5, 1881,
 

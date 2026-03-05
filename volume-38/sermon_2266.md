@@ -1,6 +1,5 @@
 # Sermon 2266 | Blessing for Blessing
 
-(No. 2266)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 24, 1892.
 

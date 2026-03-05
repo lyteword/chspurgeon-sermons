@@ -1,6 +1,5 @@
 # Sermon 1515 | A Woman of a Sorrowful Spirit
 
-(No. 1515)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 846 | Good Cheer for Christians
 
-A Sermon (No. 846)
 
 delivered on Lord's-Day Morning, December 20, 1868, by C. H. SPURGEON, at the [51]Metropolitan Tabernacle, Newington.
 

@@ -1,6 +1,5 @@
 # Sermon 2613 | Sonship Questioned
 
-(No. 2613)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 12, 1899.
 

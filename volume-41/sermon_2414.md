@@ -1,6 +1,5 @@
 # Sermon 2414 | The Prodigal's Climax
 
-(No. 2414)
 
 INTENDED FOR READING ON LORD'S DAY, MAY 26, 1895.
 

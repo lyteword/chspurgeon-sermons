@@ -1,6 +1,5 @@
 # Sermon 37 | Law and Grace
 
-Sermon No. 37 - Delivered on Sabbath Morning, August 26, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound.    
 > Romans 5:20.    

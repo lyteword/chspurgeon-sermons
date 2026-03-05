@@ -1,6 +1,5 @@
 # Sermon 2825 | Majesty in Misery
 
-(No. 2825)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1903.
 

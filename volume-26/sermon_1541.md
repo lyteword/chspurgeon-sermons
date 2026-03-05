@@ -1,6 +1,5 @@
 # Sermon 1541 | Unprofitable Servants
 
-(No. 1541)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 6, 1880,
 

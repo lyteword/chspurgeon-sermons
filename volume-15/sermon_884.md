@@ -1,6 +1,5 @@
 # Sermon 884 | Help for Seekers of the Light
 
-Sermon No. 884 - Delivered on Sunday Morning, AUGUST 8, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "We look for light, but behold obscurity; for brightness, but we walk in darkness."- Isaiah 59:9.

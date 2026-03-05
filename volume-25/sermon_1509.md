@@ -1,6 +1,5 @@
 # Sermon 1509 | The Best of All Sights
 
-(No. 1509)
 
 WRITTEN AT MENTONE,
 

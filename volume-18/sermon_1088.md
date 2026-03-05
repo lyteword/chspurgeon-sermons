@@ -1,6 +1,5 @@
 # Sermon 1088 | The Essence of Simplicity
 
-(No. 1088)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 29, 1872,
 

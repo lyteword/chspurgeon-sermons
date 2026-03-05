@@ -1,6 +1,5 @@
 # Sermon 2417 | First Forgiveness, Then Healing
 
-(No. 2417)
 
 INTENDED FOR READING ON LORD'S DAY, JUNE 16, 1895.
 

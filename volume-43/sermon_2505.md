@@ -1,6 +1,5 @@
 # Sermon 2505 | Deliverance From the Pit
 
-(No. 2505)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 21, 1897.
 

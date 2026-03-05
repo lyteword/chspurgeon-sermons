@@ -1,6 +1,5 @@
 # Sermon 2116 | The Unchanging God Cheering Jacob in His Change of Dwelling Place
 
-Sermon No. 2116 - Delivered on Sunday Morning, December 1st, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And Israel took his journey with all that he had and came to Beersheba, and offered sacrifices unto the God of his father Isaac. And God spoke unto Israel in the visions of the night and said, Jacob, Jacob. And he said, Here am I. And He said, I am God, the God of your father: fear not to go down into Egypt. For I will there make of you a great nation: I will go down with you into Egypt. And I will also surely bring you up again: and Joseph shall put his hand upon your eyes."  
 > Genesis 46:1-4.  

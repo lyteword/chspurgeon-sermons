@@ -1,6 +1,5 @@
 # Sermon 949 | The Unconquerable King
 
-(No. 949)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 4, 1870,
 

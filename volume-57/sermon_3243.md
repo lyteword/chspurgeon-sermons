@@ -1,6 +1,5 @@
 # Sermon 3243 | The Vine of Israel
 
-(No. 3243)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 30, 1911.
 

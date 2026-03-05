@@ -1,6 +1,5 @@
 # Sermon 3031 | "The Shadow of a Great Rock"
 
-(No. 3031)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 14, 1907.
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 18, 1869.
 
 "A man shall be as the shadow of a great rock in a weary land." Isaiah 32:2.
 
-[Other Sermons by Mr. Spurgeon on previous portions of this verse, are as follows--No. 2856, Volume 49--OUR HIDING PLACE and No. 1243, Volume 21--RIVERS OF WATER IN A DRY PLACE.]
 
 EVEN in our usually temperate climate, we sometimes complain of the great heat, which is coolness itself compared with the terrible burning of Oriental lands. A journey through the Sahara Desert might make us long for even the heat of our hottest summer, unbearable though it seems to us to be. With the hot sand beneath his feet from day to day, with not a tree and scarcely so much as a bush within sight. With the sun pouring down torrents of heat as though he were full of wrath against the wayfarer, with water exceedingly scarce and what is to be obtained about as nauseous as one can conceive, the traveler through the wilderness finds it to be a "weary land," indeed, and longs for the time when he shall once again see the cultivated fields and the lands that flow with brooks and rivers!
 

@@ -1,6 +1,5 @@
 # Sermon 404 | Intercessory Prayer
 
-Sermon No. 404 - Delivered on Sunday Morning, August the 11th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And the Lord turned the captivity of Job, when he prayed for his friends."  
 > Job 42:10.  

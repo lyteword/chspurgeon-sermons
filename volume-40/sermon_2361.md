@@ -1,6 +1,5 @@
 # Sermon 2361 | Hopeful, Yet Doubtful
 
-(No. 2361)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 20, 1894.
 

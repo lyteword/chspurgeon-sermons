@@ -1,6 +1,5 @@
 # Sermon 2879 | The Wide-open Mouth Filled
 
-(No. 2879)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 14, 1904.
 

@@ -1,6 +1,5 @@
 # Sermon 453 | Compassion For The Multitude
 
-Sermon No. 453 - Delivered on Sunday Morning, June 1st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And they say unto Him, We have here but five loaves and two fishes. He said, Bring them here to Me."  
 > Matthew 14:17,18.  

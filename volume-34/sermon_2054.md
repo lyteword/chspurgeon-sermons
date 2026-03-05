@@ -1,6 +1,5 @@
 # Sermon 2054 | Judgments and No Repentance--Repentance and No Salvation
 
-Sermon No. 2054 - Delivered on Thursday Evening, August 25th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "They repented not to give Him glory."  
 > Revelation 16:9.  

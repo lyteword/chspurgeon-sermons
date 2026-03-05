@@ -1,6 +1,5 @@
 # Sermon 3164 | The Mission of Affliction
 
-(No. 3164)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 30, 1909.
 

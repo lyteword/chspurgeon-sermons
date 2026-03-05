@@ -1,6 +1,5 @@
 # Sermon 714 | A Savior Such As You Need
 
-Sermon No. 714 - Delivered on Sunday Evening, October 7th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But the Holy Spirit also witnesses to us: for after He had said before, This is the covenant thatI willmake with them after those days, says the Lord, I will put My laws into their hearts, and in their minds will I write them, then He adds, Their sins and iniquities I will remember no more. Now where there is remission of these, there is no longer an offering for sin."  
 > Hebrews 10:15-18.  

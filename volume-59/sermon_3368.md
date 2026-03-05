@@ -1,6 +1,5 @@
 # Sermon 3368 | Fathomless
 
-(No. 3368)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 21, 1913.
 

@@ -1,6 +1,5 @@
 # Sermon 2435 | The Everlasting Arms
 
-(No. 2435)
 
 INTENDED FOR READING ON LORD'S DAY, OCTOBER 20, 1895.
 

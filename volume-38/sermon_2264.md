@@ -1,6 +1,5 @@
 # Sermon 2264 | Sowing in the Wind, Reaping Under Clouds
 
-(No. 2264)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 10, 1892.
 

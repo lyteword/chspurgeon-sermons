@@ -1,6 +1,5 @@
 # Sermon 1404 | Over Against the Sepulcher
 
-(No. 1404)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 24, 1878,
 

@@ -1,6 +1,5 @@
 # Sermon 168 | The First Christmas Carol
 
-Sermon No. 168 - Delivered on Sabbath Morning, December 20, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Glory to God in the highest, and on earth peace, good will toward men.    
 > Luke 2:14.    

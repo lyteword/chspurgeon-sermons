@@ -1,6 +1,5 @@
 # Sermon 2356 | The Truth Of God's Salvation
 
-(No. 2356)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 15, 1894.
 

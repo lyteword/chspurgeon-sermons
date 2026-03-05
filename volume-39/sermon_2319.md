@@ -1,6 +1,5 @@
 # Sermon 2319 | The Lord's Chosen Ministers
 
-(No. 2319)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 30, 1893.
 

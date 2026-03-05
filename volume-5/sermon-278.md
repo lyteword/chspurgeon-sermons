@@ -1,6 +1,5 @@
 # Sermon 278 | Grieving the Holy Spirit
 
-Sermon No. 278 - Delivered on Sabbath Morning, October 9th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > And grieve not the Holy Spirit of God, whereby ye are sealed unto the day of redemption.    
 > Ephesians 4:30.    

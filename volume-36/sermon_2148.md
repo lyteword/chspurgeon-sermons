@@ -1,6 +1,5 @@
 # Sermon 2148 | The Tenderness of Jesus
 
-Sermon No. 2148 - Delivered on Sunday Morning, June 8th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "We have not a High Priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin."  
 > Hebrews 4:15.  

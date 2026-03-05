@@ -1,6 +1,5 @@
 # Sermon 58 | Canaan on Earth
 
-Sermon No. 58 - Delivered on Sabbath Morning, December 30, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > For the land whither thou goest in to possess it, is not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst it with thy foot, as a garden of herbs; but the land whither ye go to possess it, is a land of hills and valleys, and drinketh water of the rain of heaven; a land which the Lord thy God careth for; the eyes of the Lord thy God are always upon it, from the beginning of the year, even unto the end of the year.    
 > Deuteronomy 11:10-12.    

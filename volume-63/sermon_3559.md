@@ -1,6 +1,5 @@
 # Sermon 3559 | The Pierced Heart of Jesus
 
-(No. 3559)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 12, 1917.
 

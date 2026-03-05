@@ -1,6 +1,5 @@
 # Sermon 1915 | The Ever-Living Priest
 
-(No. 1915)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1886,
 

@@ -1,6 +1,5 @@
 # Sermon 865 | Deep Calls Unto Deep
 
-Sermon No. 865 - Delivered on Lord's-day Morning, APRIL 11, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Deep calls unto deep."- Psalm 42:7.

@@ -1,6 +1,5 @@
 # Sermon 481 | A Drama in Five Acts
 
-Sermon No. 481 - Delivered on Sunday Morning, November 23rd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But this I say, brethren, the time is short: it remaineth, that both they that have wives be as though they had none; And they that weep, as though they wept not; and they that rejoice, as though they rejoiced not; and they that buy, as though they possessed not; And they that use this world, as not abusing it: for the fashion of this world passeth away."  
 > 1 Corinthians 7:29-31.  

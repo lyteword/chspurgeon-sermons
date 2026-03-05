@@ -1,6 +1,5 @@
 # Sermon 709 | Kicking Against The Pricks
 
-Sermon No. 709 - Delivered on Sunday Evening, September 9th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "It is hard for you to kick against the pricks."  
 > Acts 9:5.  

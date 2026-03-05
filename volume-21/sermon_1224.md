@@ -1,6 +1,5 @@
 # Sermon 1224 | Jesus, The Stumbling Stone Of Unbelievers
 
-(No. 1224)
 
 DELIVERED BY
 

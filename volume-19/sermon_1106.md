@@ -1,6 +1,5 @@
 # Sermon 1106 | "The Lord Is Risen, Indeed"
 
-(No. 1106)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 1268 | The Story of a Runaway Slave
 
-(No. 1268)
 
 DELIVERED BY
 

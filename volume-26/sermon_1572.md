@@ -1,6 +1,5 @@
 # Sermon 1572 | Untitled Sermon
 
-(No. 1572)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 12, 1880,
 

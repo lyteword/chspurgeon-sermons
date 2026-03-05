@@ -1,6 +1,5 @@
 # Sermon 1014 | "Nunc Dimittis"
 
-Sermon No. 1014 - Delivered on Lord's-day Morning, October 8th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Lord, now lettest thou thy servant depart in peace, according to thy word: for mine eyes have seen thy salvation."  
 > Luke 2:29-30.  

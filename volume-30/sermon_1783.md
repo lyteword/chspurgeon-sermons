@@ -1,6 +1,5 @@
 # Sermon 1783 | Pentecost
 
-(No. 1783)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1884,
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
 "The day of Pentecost." Acts 2:1.
 
-[Sermon No. 511, Volume 9, is also entitled, "Pentecost." Its Scripture verses are Acts 2:1-4.]
 
 LOOKING into a silversmith's window on Thursday last, I observed a notice card upon which was printed as follows--"This shop will be closed this evening and will not be re-opened until Tuesday evening." I looked at the name over the window and observed that it belonged to one of the house of Israel. I had forgotten till that moment that we have now reached the Levitical feast of Pentecost which contains, among its regulations, that no servile work is to be done--and hence all business is laid aside by the faithful Jew. Surely, the Jews, in their care to observe their law, deserve much praise. At what an expense must large trading firms suspend their business! They send a lesson to many professed Christians who seem to have little regard for the Lord's Day, break in upon its rest in a thousand frivolous ways and half regret that they cannot pursue their earthly callings throughout the whole seven days of the week.
 

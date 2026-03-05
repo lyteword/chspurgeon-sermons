@@ -1,6 +1,5 @@
 # Sermon 3423 | Beholding God's Church
 
-(No. 3423)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 10, 1914.
 

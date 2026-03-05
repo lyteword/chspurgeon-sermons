@@ -1,6 +1,5 @@
 # Sermon 2220 | Three Decisive Steps
 
-(No. 2220)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 6, 1891,
 

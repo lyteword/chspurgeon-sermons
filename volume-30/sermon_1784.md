@@ -1,6 +1,5 @@
 # Sermon 1784 | Unbelief Condemned and Faith Commended
 
-(No. 1784)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1884,
 

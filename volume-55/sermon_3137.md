@@ -1,6 +1,5 @@
 # Sermon 3137 | Soul Satisfaction
 
-(No. 3137)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 25, 1909.
 

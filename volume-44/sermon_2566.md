@@ -1,6 +1,5 @@
 # Sermon 2566 | A Test for True Seekers
 
-(No. 2566)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 17, 1898.
 

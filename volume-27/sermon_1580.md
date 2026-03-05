@@ -1,6 +1,5 @@
 # Sermon 1580 | An Indictment with Four Counts
 
-(No. 1580)
 
 DELIVERED BY
 

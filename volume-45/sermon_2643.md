@@ -1,6 +1,5 @@
 # Sermon 2643 | The Honored Servant
 
-(No. 2643)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 8, 1899.
 

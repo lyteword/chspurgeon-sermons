@@ -1,6 +1,5 @@
 # Sermon 1588 | The Believer's Death Day Better Than His Birthday
 
-(No. 1588)
 
 DELIVERED ON THURSDAY EVENING, MARCH 3, 1881,
 

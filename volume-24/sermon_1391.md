@@ -1,6 +1,5 @@
 # Sermon 1391 | A Golden Prayer
 
-(No. 1391)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 30, 1877,
 

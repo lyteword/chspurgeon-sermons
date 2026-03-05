@@ -1,6 +1,5 @@
 # Sermon 3240 | The Blood of Christ's Covenant
 
-(No. 3240)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 9, 1911.
 

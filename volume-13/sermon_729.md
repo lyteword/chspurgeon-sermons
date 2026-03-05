@@ -1,6 +1,5 @@
 # Sermon 729 | Cheering Words and Solemn Warnings
 
-Sermon No. 729 - Delivered on Lord's-day Morning, JANUARY 13, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Say you to the righteous that it shall be well with them, for they shall eat the fruit of their doings. Woe to the wicked! It shall be ill with him, for the reward of his hands shall be given him."- Isaiah 3:10,11.

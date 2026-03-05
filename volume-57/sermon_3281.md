@@ -1,6 +1,5 @@
 # Sermon 3281 | The Broad Wall
 
-(No. 3281)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1911.
 

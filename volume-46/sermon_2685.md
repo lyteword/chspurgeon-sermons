@@ -1,6 +1,5 @@
 # Sermon 2685 | The Oft-Repeated Invitation
 
-(No. 2685)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 29, 1900.
 

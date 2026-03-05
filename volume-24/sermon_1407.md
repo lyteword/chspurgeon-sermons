@@ -1,6 +1,5 @@
 # Sermon 1407 | Compassion on the Ignorant
 
-(No. 1407)
 
 DELIVERED BY
 

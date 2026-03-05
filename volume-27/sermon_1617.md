@@ -1,6 +1,5 @@
 # Sermon 1617 | Love's Labours
 
-Sermon No. 1617 - Delivered on Lord's-Day Morning, September 4th, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Charity beareth all things, believeth all things, hopeth all things, endureth all things.''1 Corinthians 13:7.
 

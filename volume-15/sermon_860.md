@@ -1,6 +1,5 @@
 # Sermon 860 | Mourning at the Sight of the Crucified
 
-Sermon No. 860 - Delivered on Lord's-day Morning, MARCH 14, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "And all the people that came together to that sight, beholding the things which were done, smote their breasts and returned."- Luke 23:48.

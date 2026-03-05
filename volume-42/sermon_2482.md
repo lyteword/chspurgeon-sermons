@@ -1,6 +1,5 @@
 # Sermon 2482 | An Unparalleled Cure
 
-(No. 2482)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 13, 1896.
 

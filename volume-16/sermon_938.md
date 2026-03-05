@@ -1,6 +1,5 @@
 # Sermon 938 | A Good Soldier Of Jesus Christ
 
-(No. 938)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 26, 1870,
 

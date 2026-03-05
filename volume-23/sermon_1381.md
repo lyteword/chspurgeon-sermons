@@ -1,6 +1,5 @@
 # Sermon 1381 | A Sunday School Sermon
 
-(No. 1381)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 28, 1877,
 

@@ -1,6 +1,5 @@
 # Sermon 2132 | Christ Put On
 
-Sermon No. 2132 - Delivered on Sunday Morning, February 23rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But put you on the Lord Jesus Christ, and make not provision for the flesh, to fulfill the lusts thereof."  
 > Romans 13:14.  

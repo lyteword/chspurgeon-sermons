@@ -1,6 +1,5 @@
 # Sermon 2877 | Trials Expected and Conquered
 
-(No. 2877)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 31, 1904.
 

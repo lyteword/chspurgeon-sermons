@@ -1,6 +1,5 @@
 # Sermon 3168 | The Scarlet Line in the Window
 
-(No. 3168)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 28, 1909.
 

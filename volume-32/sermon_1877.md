@@ -1,6 +1,5 @@
 # Sermon 1877 | Our Own Dear Shepherd
 
-(No. 1877)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1886,
 

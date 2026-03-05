@@ -1,6 +1,5 @@
 # Sermon 641 | Confession Of Sin Illustrated by the Cases of Dr. Pritchard and Constance Kent
 
-Sermon No. 641 - Delivered on Sunday Morning, July 23rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > I acknowledged my sin unto thee, and mine iniquity have I not hid. I said, I will confess my transgressions unto the Lord; and thou forgavest the iniquity of my sin.    
 > Psalm 32:5.    

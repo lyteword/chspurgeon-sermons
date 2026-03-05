@@ -1,6 +1,5 @@
 # Sermon 1640 | The Touch
 
-(No. 1640)
 
 DELIVERED ON LORD'S-DAY EVENING, JANUARY 8, 1882,
 

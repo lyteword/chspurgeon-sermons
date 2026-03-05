@@ -1,6 +1,5 @@
 # Sermon 1209 | A Grateful Summary of Twenty Volumes
 
-(No. 1209)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 27, 1874,
 

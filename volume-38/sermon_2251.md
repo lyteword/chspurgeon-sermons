@@ -1,6 +1,5 @@
 # Sermon 2251 | Our Compassionate High Priest
 
-(No. 2251)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 10, 1892.
 

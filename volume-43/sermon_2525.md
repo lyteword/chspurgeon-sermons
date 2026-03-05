@@ -1,6 +1,5 @@
 # Sermon 2525 | Joy in Place of Sorrow
 
-(No. 2525)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 11, 1897.
 

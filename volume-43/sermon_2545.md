@@ -1,6 +1,5 @@
 # Sermon 2545 | The Greatest Folly in the World
 
-(No. 2545)
 
 INTENDED FOR READING ON LORD'S DAY, NOVEMBER 28, 1897.
 

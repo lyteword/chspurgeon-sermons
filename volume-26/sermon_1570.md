@@ -1,6 +1,5 @@
 # Sermon 1570 | The Lamentations of Jesus
 
-(No. 1570)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 28, 1880,
 

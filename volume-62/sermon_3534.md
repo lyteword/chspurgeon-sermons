@@ -1,6 +1,5 @@
 # Sermon 3534 | The Light of the World
 
-(No. 3534)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1916.
 

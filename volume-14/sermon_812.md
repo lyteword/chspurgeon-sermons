@@ -1,6 +1,5 @@
 # Sermon 812 | The Deep-Seated Character of Sin
 
-A Sermon (No. 812)
 
 Delivered on Sunday Morning, May 17, 1868, by C. H. SPURGEON, at the [22]Metropolitan Tabernacle, Newington.
 

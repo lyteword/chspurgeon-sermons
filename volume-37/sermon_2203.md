@@ -1,6 +1,5 @@
 # Sermon 2203 | "Lo, I Come"--Application
 
-(No. 2203)
 
 A SERMON DELIVERED ON LORD'S DAY MORNING, MAY 3, 1891,
 

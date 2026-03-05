@@ -1,6 +1,5 @@
 # Sermon 2880 | New Tokens of Ancient Love
 
-(No. 2880)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 21, 1904.
 

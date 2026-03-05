@@ -1,6 +1,5 @@
 # Sermon 929 | The Model Home Mission and the Model Home Missionary
 
-(No. 929)
 
 DELIVERED ON THURSDAY EVENING, APRIL 14, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 2693 | Priest and Victim
 
-(No. 2693)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 23, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 3459 | More and More
 
-(No. 3459)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 20, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 3276 | Christ's Glory Turned to Shame
 
-(No. 3276)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1911.
 

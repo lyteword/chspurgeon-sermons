@@ -1,6 +1,5 @@
 # Sermon 671 | The Reward Of The Righteous
 
-Sermon No. 671 - Delivered on Sunday Morning, January 21st, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "When the Son of Mian shall come in His glory, and all the holy angels with Him, then He will sit upon the throne of His glory. All the nations will be gathered before Him, and He will separate them one from another, as a shepherd divides his sheep from the goats. And He willset the sheep on His righthand, but the goats on the left. Then the King will say to them on His right hand, Come, you blessed of My Father, inherit the kingdom prepared for you from the foundation of the world: for I was hungry, and you ga ve Me food; I was thirsty, and you gave Me drink; I was a stranger, and you took Me in; I was naked, and you clothed Me; was sick, and you visited Me; I was in prison, and you came to Me."  
 > Matthew 25:31-36.  

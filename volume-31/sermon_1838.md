@@ -1,6 +1,5 @@
 # Sermon 1838 | The Good Ananias--a Lesson for Believers
 
-(No. 1838)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 26, 1885,
 

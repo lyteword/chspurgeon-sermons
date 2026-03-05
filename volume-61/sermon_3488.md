@@ -1,6 +1,5 @@
 # Sermon 3488 | Justification, Propitiation, Declaration
 
-(No. 3488)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 2, 1915.
 

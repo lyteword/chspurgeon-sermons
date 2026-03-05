@@ -1,6 +1,5 @@
 # Sermon 1166 | Marrow and Fatness
 
-(No. 1166)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 29, 1874,
 

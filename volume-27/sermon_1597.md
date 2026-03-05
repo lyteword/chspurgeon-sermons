@@ -1,6 +1,5 @@
 # Sermon 1597 | The Priest Ordained by the Oath of God
 
-(No. 1597)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 1, 1881,
 

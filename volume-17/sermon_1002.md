@@ -1,6 +1,5 @@
 # Sermon 1002 | Now, and Then
 
-Sermon No. 1002 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For now we see through a glass, darkly; but then face to face."  
 > 1 Corinthians 13:12.  

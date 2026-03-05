@@ -1,6 +1,5 @@
 # Sermon 1336 | A Family Sermon
 
-(No. 1336)
 
 DELIVERED BY
 

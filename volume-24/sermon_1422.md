@@ -1,6 +1,5 @@
 # Sermon 1422 | The Chief Physician and the Centurion's Servant
 
-(No. 1422)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 30, 1878,
 

@@ -1,6 +1,5 @@
 # Sermon 3159 | The Sixth Beatitude
 
-(No. 3159)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 26, 1909.
 

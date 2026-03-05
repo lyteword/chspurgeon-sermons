@@ -1,6 +1,5 @@
 # Sermon 2297 | Sealed and Open Evidences
 
-(No. 2297)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 26, 1893.
 

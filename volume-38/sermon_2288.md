@@ -1,6 +1,5 @@
 # Sermon 2288 | The Empty Place--a Christmas Day Sermon
 
-(No. 2288)
 
 INTENDED ON READING ON LORD'S-DAY, DECEMBER 25, 1892.
 

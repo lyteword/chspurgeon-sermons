@@ -1,6 +1,5 @@
 # Sermon 2781 | Jesus Calling
 
-(No. 2781)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 1, 1902.
 

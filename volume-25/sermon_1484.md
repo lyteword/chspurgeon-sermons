@@ -1,6 +1,5 @@
 # Sermon 1484 | Our Motto
 
-(No. 1484)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1879,
 

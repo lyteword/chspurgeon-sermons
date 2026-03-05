@@ -1,6 +1,5 @@
 # Sermon 1840 | The Bond of the Covenant
 
-(No. 1840)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 10, 1885,
 

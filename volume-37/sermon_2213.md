@@ -1,6 +1,5 @@
 # Sermon 2213 | "Honey In The Mouth!"
 
-(No. 2213)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 2023 | The Blessing of Full Assurance
 
-Sermon No. 2023 - Delivered on Lord's-day Morning, May 13th, 1888 the REV. C.H. SPURGEON at [4]the Metropolitan Tabernacle, Newington.
 
 > "These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God."'1 John 5:13.  
 > "These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God."'1 John 5:13.  

@@ -1,6 +1,5 @@
 # Sermon 2754 | Strange Dispensations and Matchless Consolations
 
-(No. 2754)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 24, 1901.
 

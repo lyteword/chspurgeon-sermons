@@ -1,6 +1,5 @@
 # Sermon 2434 | "A Man Under Authority"
 
-(No. 2434)
 
 INTENDED FOR READING ON LORD'S DAY, OCTOBER 13, 1895.
 

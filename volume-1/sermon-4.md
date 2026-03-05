@@ -1,6 +1,5 @@
 # Sermon 4 | The Personality of the Holy Ghost
 
-Sermon No. 4 - Delivered on Sabbath Morning, January 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.    
 > John 14:16-17.    

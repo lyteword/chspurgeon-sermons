@@ -1,6 +1,5 @@
 # Sermon 1641 | Great Spoil
 
-(No. 1641)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 22, 1882,
 

@@ -1,6 +1,5 @@
 # Sermon 596 | Praying And Waiting
 
-Sermon No. 596 - Delivered on Sunday Morning, October 23rd 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "These things have I written unto you that believe on the name of the Son of God; that you may know that you have eternal life and that you may believe on the name of the Son of God. And this is the confidence that we have in Him, that, if we ask anything according to His will, He hears us: and if we know that He hears us, whatever we ask, we know that we have the petitions that we desired of Him."  
 > 1 John 5:13-15.  

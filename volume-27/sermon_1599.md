@@ -1,6 +1,5 @@
 # Sermon 1599 | Everyday Religion
 
-(No. 1599)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 22, 1881,
 

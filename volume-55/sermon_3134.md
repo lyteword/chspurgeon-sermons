@@ -1,6 +1,5 @@
 # Sermon 3134 | The Spirit's Work in the New Creation
 
-(No. 3134)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 4, 1909.
 

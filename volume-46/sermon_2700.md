@@ -1,6 +1,5 @@
 # Sermon 2700 | Growth in Grace
 
-(No. 2700)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 11, 1900.
 

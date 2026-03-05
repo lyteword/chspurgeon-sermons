@@ -1,6 +1,5 @@
 # Sermon 971 | The Open Fountain
 
-Sermon No. 971 - Delivered on Lord's-day Morning, January 22nd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem for sin and for uncleanness."  
 > Zechariah 13:1.  

@@ -1,6 +1,5 @@
 # Sermon 1400 | With the King for His Work!
 
-(No. 1400)
 
 DELIVERED ON THURSDAY EVENING, NOVEMBER 1, 1877,
 

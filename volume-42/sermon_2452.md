@@ -1,6 +1,5 @@
 # Sermon 2452 | Hope for the Worst Backsliders
 
-(No. 2452)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 16, 1896.
 

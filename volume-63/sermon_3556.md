@@ -1,6 +1,5 @@
 # Sermon 3556 | Absconding and Apostasy
 
-(No. 3556)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 22, 1917
 

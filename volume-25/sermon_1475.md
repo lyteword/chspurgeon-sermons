@@ -1,6 +1,5 @@
 # Sermon 1475 | Crowning Blessings Ascribed to God
 
-(No. 1475)
 
 DELIVERED ON LORD'S-DAY EVENING, MAY 18, 1879,
 

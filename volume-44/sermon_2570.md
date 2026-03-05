@@ -1,6 +1,5 @@
 # Sermon 2570 | Jesus Sitting on the Well
 
-(No. 2570)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 15, 1898.
 

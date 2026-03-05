@@ -1,6 +1,5 @@
 # Sermon 1362 | Mourning For Christ
 
-(No. 1362)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 1, 1877,
 

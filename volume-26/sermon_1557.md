@@ -1,6 +1,5 @@
 # Sermon 1557 | Walking Humbly With God
 
-(No. 1557)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1880,
 

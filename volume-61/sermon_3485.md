@@ -1,6 +1,5 @@
 # Sermon 3485 | The Dejected Lover
 
-(No. 3485)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 11, 1915.
 

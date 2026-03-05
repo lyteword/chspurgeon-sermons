@@ -1,6 +1,5 @@
 # Sermon 2405 | Joy, a Duty
 
-(No. 2405)
 
 INTENDED FOR READING ON LORD'S DAY, MARCH 24, 1895.
 

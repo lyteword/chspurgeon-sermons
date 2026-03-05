@@ -1,6 +1,5 @@
 # Sermon 2655 | Decided Ungodliness
 
-(No. 2655)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 31, 1899.
 

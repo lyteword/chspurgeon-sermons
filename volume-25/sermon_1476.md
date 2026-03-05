@@ -1,6 +1,5 @@
 # Sermon 1476 | Jesus, the Judge
 
-(No. 1476)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1879,
 

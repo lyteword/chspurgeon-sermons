@@ -1,6 +1,5 @@
 # Sermon 1457A | Seekers Directed and Encouraged
 
-(No. 1457A)
 
 DELIVERED BY
 

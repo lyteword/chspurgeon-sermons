@@ -1,6 +1,5 @@
 # Sermon 1174 | The Ear Bored With An Awl
 
-(No. 1174)
 
 DELIVERED BY
 

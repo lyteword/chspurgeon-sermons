@@ -1,6 +1,5 @@
 # Sermon 763 | Songs of Deliverance
 
-Sermon No. 763 - Delivered on Lord's-Day Morning, July 28TH, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "They that are delivered from the noise of archers in the places of drawing water, there shall they rehearse the righteous acts of the Lord, even the righteous acts toward the inhabitants of his villages in Israel: then shall the people of the Lord go down to the gates."  
 > Judges 5:11.  

@@ -1,6 +1,5 @@
 # Sermon 1535 | Christ's Universal Kingdom and How It Comes
 
-(No. 1535)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 25, 1880,
 

@@ -1,6 +1,5 @@
 # Sermon 1606 | Ziklag--or David Encouraging Himself In God
 
-(No. 1606)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 26, 1881,
 

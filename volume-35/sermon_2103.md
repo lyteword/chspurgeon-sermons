@@ -1,6 +1,5 @@
 # Sermon 2103 | The Hunger and Thirst Which Are Blessed
 
-Sermon No. 2103 - Delivered on Sunday, September 8, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Blessed are they which do hunger and thirst after righteousness: for they shall be filled."  
 > Matthew 5:6.  

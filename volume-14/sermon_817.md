@@ -1,6 +1,5 @@
 # Sermon 817 | The Widow of Sarepta
 
-A Sermon. (No. 817)
 
 Delivered on Lord's-Day Morning, June 21, 1868, BY C. H. SPURGEON, at the [27]Metropolitan Tabernacle, Newington.
 

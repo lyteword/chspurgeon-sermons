@@ -1,6 +1,5 @@
 # Sermon 1815 | The Great Birthday and Our Coming of Age
 
-(No. 1815)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 21, 1884,
 

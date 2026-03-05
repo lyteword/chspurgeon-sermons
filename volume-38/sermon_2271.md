@@ -1,6 +1,5 @@
 # Sermon 2271 | Alone, Yet Not Alone
 
-(No. 2271)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 28, 1892.
 

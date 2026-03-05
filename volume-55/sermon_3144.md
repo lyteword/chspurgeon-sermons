@@ -1,6 +1,5 @@
 # Sermon 3144 | "The True Sayings of God"
 
-(No. 3144)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 13, 1909.
 

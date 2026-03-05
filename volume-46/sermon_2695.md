@@ -1,6 +1,5 @@
 # Sermon 2695 | Christian Conversation
 
-(No. 2695)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 7, 1900.
 

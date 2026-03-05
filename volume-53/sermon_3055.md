@@ -1,6 +1,5 @@
 # Sermon 3055 | Accomplices in Sin
 
-(No. 3055)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1907.
 

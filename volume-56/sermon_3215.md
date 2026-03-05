@@ -1,6 +1,5 @@
 # Sermon 3215 | Black Clouds and Bright Blessings
 
-(No. 3215)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 15, 1910.
 

@@ -1,6 +1,5 @@
 # Sermon 2408 | Christ the Cure for Troubled Hearts
 
-(No. 2408)
 
 INTENDED FOR READING ON LORD'S DAY, APRIL 14, 1895.
 

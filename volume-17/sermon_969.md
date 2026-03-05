@@ -1,6 +1,5 @@
 # Sermon 969 | Rest, Rest
 
-Sermon No. 969 - Delivered on Lord's-day Morning, January 8th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Come unto me, all ye that labor and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart; and ye shall find rest unto your souls. For my yoke is easy, and my burden is light."  
 > Matthew 11:28-30.  

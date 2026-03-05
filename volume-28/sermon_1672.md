@@ -1,6 +1,5 @@
 # Sermon 1672 | The Voice Behind Thee
 
-Sermon No. 1672 - Delivered on Lord's-Day Morning, July 23rd, 1882 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 And thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.'Isaiah 30:21.
 

@@ -1,6 +1,5 @@
 # Sermon 1929 | To Those Who Are Angry With Their Godly Friends
 
-(No. 1929)
 
 DELIVERED BY
 

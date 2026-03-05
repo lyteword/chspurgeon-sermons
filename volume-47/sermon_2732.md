@@ -1,6 +1,5 @@
 # Sermon 2732 | Believers Tested by Trials
 
-(No. 2732)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 23, 1901.
 

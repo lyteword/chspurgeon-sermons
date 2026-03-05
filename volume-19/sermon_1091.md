@@ -1,6 +1,5 @@
 # Sermon 1091 | Prayer Certified Of Success
 
-(No. 1091)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 19, 1873,
 

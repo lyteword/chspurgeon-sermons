@@ -1,6 +1,5 @@
 # Sermon 657 | Satanic Hindrances
 
-Sermon No. 657 - Delivered on Sunday Morning, October 29nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Satan hindered us.    
 > 1 Thessalonians 2:18.    

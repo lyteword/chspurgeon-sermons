@@ -1,6 +1,5 @@
 # Sermon 357 | The Christ of Patmos
 
-Sermon No. 357 - Delivered on Sabbath Morning, January 27th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > "And I turned to see the voice that spoke with me. And being turned, I saw seven golden candlesticks; and in the midst of the seven candlesticks One like unto the Son of Man, clothed with a garment down to the feet and girt about the chest with a golden band. His head and hair were white like wool, as white as snow; and His eyes were as a flame offre; His feet like unto fine brass, as if refined in a furnace; and His voice as the sound of many waters. And He had in His right hand seven stars: and out of His mouth went a sharp two-edged sword: and His countenance was like the sun shining in its strength. And when I saw Him, I fell at His feet as dead. And He laid His right hand upon me, saying unto me, Fear not; I am the First and the Last."  
 > Revelation 1:12-17.  

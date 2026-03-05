@@ -1,6 +1,5 @@
 # Sermon 2523 | Abraham's Double Blessing
 
-(No. 2523)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 27, 1897.
 

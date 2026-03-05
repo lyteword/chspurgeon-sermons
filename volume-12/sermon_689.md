@@ -1,6 +1,5 @@
 # Sermon 689 | Temptations On The Pinnacle
 
-Sermon No. 689 - Delivered on Sunday Morning, May 6th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Then the devil took Him up into the holy city, set Him on the pinnacle of the temple, and said to Him, If You are the Son of God, throw Yourself down, for it is written, 'He shall give His angels charge over You,' and, 'in their hands they shall bear You up, lest at any time You dash Your foot against a stone.' Jesus said to him, 'It is written again, You shall not tempt the Lord your God.'"  
 > Matthew 4:5-7.  

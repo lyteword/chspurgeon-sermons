@@ -1,6 +1,5 @@
 # Sermon 952 | Negotiations For Peace
 
-(No. 952)
 
 DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 18, 1870,
 

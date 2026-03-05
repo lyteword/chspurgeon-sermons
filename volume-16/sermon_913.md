@@ -1,6 +1,5 @@
 # Sermon 913 | Method and Music, Or the Art of Holy and Happy Living
 
-(No. 913)
 
 DELIVERED ON LORD'S-DAY MORNING, JANUARY 30, 1870,
 

@@ -1,6 +1,5 @@
 # Sermon 2280 | God's Handwriting Upon David
 
-(No. 2280)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 30, 1892.
 

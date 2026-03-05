@@ -1,6 +1,5 @@
 # Sermon 648 | Degrees Of Power Attending The Gospel
 
-Sermon No. 648 - Delivered on Sunday Morning, September 3rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > For our Gospel came not unto you in word only, but also inpower, and in the Holy Spirit and in much assurance; as you know what manner of men we were among you for your sake.    
 > 1 Thessalonians 1:5.    

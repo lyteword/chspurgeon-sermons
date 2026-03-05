@@ -1,6 +1,5 @@
 # Sermon 629 | Jericho Captured
 
-Sermon No. 629 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > And the Lord said unto Joshua, See, I ha ve given into your hands Jericho and the king thereof and the mighty men of valor. And you shall compass the city, all you men of war and go round about the city once. Thus shall you do six days.    
 > Joshua 6:2,3.    

@@ -1,6 +1,5 @@
 # Sermon 3528 | A Promise and a Providence
 
-(No. 3528)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1916.
 

@@ -1,6 +1,5 @@
 # Sermon 3149 | The Commissariat of the Universe
 
-(No. 3149)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 17, 1909.
 

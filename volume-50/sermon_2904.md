@@ -1,6 +1,5 @@
 # Sermon 2904 | The Plumb Line
 
-(No. 2904)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 6, 1904.
 

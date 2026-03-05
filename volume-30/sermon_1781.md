@@ -1,6 +1,5 @@
 # Sermon 1781 | Two Pauls and a Blinded Sorcerer
 
-(No. 1781)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1884,
 

@@ -1,6 +1,5 @@
 # Sermon 2487 | Ordered Steps
 
-(No. 2487)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 18, 1896.
 

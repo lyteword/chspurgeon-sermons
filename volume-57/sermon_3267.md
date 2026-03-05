@@ -1,6 +1,5 @@
 # Sermon 3267 | Under His Shadow
 
-(No. 3267)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1911.
 

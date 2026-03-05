@@ -1,6 +1,5 @@
 # Sermon 3266 | The Priesthood of Believers
 
-(No. 3266)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 3066 | The Everlasting Counselor
 
-(No. 3066)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 14, 1907.
 

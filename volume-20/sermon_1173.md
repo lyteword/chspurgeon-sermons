@@ -1,6 +1,5 @@
 # Sermon 1173 | "I Thought"
 
-(No. 1173)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1874,
 

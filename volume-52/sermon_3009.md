@@ -1,6 +1,5 @@
 # Sermon 3009 | Our Champion
 
-(No. 3009)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 11, 1906.
 

@@ -1,6 +1,5 @@
 # Sermon 2687 | Too Good to Be Saved!
 
-(No. 2687)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 12, 1900.
 

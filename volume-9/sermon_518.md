@@ -1,6 +1,5 @@
 # Sermon 518 | The Bridgeless Gulf
 
-Sermon No. 518 - Delivered on Sunday Morning, July 5th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Beside all this, between us and you there is a great gulf fixed: so that they which would pass from here to you cannot; neither can they pass to us, that would come from there."  
 > Luke 16:26.  

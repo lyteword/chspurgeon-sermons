@@ -1,6 +1,5 @@
 # Sermon 3131 | The Fainting Hero
 
-(No. 3131)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1909.
 

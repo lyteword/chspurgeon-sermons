@@ -1,6 +1,5 @@
 # Sermon 1382 | The Touch
 
-(No. 1382)
 
 DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 4, 1877,
 

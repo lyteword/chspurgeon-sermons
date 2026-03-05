@@ -1,6 +1,5 @@
 # Sermon 1415 | Great Difference
 
-(No. 1415)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 19, 1878,
 

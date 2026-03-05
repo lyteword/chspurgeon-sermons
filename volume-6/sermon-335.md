@@ -1,6 +1,5 @@
 # Sermon 335 | A Single Eye And Simple Faith
 
-Sermon No. 335 - Delivered on Sabbath Morning, September 16th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > The light of the body is the eye: if therefore your eye is good, your whole body will be full of light. But if your eye is evil, your whole body shall be full of darkness.    
 > Matthew 6:22,23.    

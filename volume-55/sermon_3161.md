@@ -1,6 +1,5 @@
 # Sermon 3161 | Positivism
 
-(No. 3161)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 9, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2623 | How Faith Comes
 
-(No. 2623)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1899.
 

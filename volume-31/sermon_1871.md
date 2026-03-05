@@ -1,6 +1,5 @@
 # Sermon 1871 | Love's Transformations--a Communion Meditation
 
-(No. 1871)
 
 DELIVERED BY
 

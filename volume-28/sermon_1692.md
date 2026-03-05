@@ -1,6 +1,5 @@
 # Sermon 1692 | "Without Carefulness"
 
-(No. 1692)
 
 DELIVERED AT THE THURSDAY EVENING LECTURE,
 

@@ -1,6 +1,5 @@
 # Sermon 1542 | Free Grace a Motive for Free Giving
 
-(No. 1542)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 13, 1880,
 

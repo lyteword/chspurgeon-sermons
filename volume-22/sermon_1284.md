@@ -1,6 +1,5 @@
 # Sermon 1284 | The Sealing of the Spirit
 
-(No. 1284)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 19, 1876,
 

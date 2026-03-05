@@ -1,6 +1,5 @@
 # Sermon 3360 | Pleading With the Indifferent
 
-(No. 3360)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 26, 1913.
 

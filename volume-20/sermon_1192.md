@@ -1,6 +1,5 @@
 # Sermon 1192 | Hindrances to Prayer
 
-(No. 1192)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 13, 1874,
 

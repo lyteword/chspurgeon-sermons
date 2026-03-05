@@ -1,6 +1,5 @@
 # Sermon 3529 | More Room for More People
 
-(No. 3529)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1916.
 

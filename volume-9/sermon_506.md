@@ -1,6 +1,5 @@
 # Sermon 506 | Strong Meat
 
-Sermon No. 506 - Delivered on Sunday Evening, April 19th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But strong meat belongs to them that are of full age, even those who by reason of use have their senses exercised to discern both good and evil.'"  
 > Hebrews 5:14.  

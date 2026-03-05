@@ -1,6 +1,5 @@
 # Sermon 1616 | Saved In Hope
 
-(No. 1616)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 28, 1881,
 

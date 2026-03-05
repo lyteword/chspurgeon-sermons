@@ -1,6 +1,5 @@
 # Sermon 2496 | Joyful Anticipation of the Second Advent
 
-(No. 2496)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1896.
 

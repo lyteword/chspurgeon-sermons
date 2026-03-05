@@ -1,6 +1,5 @@
 # Sermon 2681 | Covenant Blessings
 
-(No. 2681)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 1, 1900.
 

@@ -1,6 +1,5 @@
 # Sermon 3264 | God's Care of Elijah
 
-(No. 3264)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1911.
 

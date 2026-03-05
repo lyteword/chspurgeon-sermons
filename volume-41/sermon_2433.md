@@ -1,6 +1,5 @@
 # Sermon 2433 | Heman's Sorrowful Psalm
 
-(No. 2433)
 
 INTENDED FOR READING ON LORD'S DAY, OCTOBER 6, 1895.
 

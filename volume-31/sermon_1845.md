@@ -1,6 +1,5 @@
 # Sermon 1845 | The Pity of the Lord--the Comfort of the Afflicted
 
-(No. 1845)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 14, 1885,
 

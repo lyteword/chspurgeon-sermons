@@ -1,6 +1,5 @@
 # Sermon 2498 | A Portrait No Artist Can Paint
 
-(No. 2498)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1897.
 

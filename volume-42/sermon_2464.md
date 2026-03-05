@@ -1,6 +1,5 @@
 # Sermon 2464 | The Power of a Sigh
 
-(No. 2464)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 10, 1896.
 

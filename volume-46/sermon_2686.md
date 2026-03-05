@@ -1,6 +1,5 @@
 # Sermon 2686 | The Deceived Heart
 
-(No. 2686)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 5, 1900.
 

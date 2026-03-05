@@ -1,6 +1,5 @@
 # Sermon 3324 | Turning From Death
 
-(No. 3324)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 17, 1912.
 

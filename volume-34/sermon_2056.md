@@ -1,6 +1,5 @@
 # Sermon 2056 | Idols Found Wanting, But Jehovah Found Faithful
 
-Sermon No. 2056 - Delivered on Thursday Evening, September 27th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Belbows down, Nebo stoops, theiridols were upon the beasts and upon the cattle:your carriages were heavyloaded. They are a burden to the weary beast. They stoop, they bow down together. They could not deliver the burden but themselves are gone into captivity. Hearken unto Me, O house of Jacob and all the remnant of the house of Israel, which are borne by Me from the belly, which are carried from the womb. And even to your old age I am He. And even to hoar hairs will I carry you: I have made and I will bear. Even I will carry and will deliver you." Isaiah 46:1-4.  
 > "Belbows down, Nebo stoops, theiridols were upon the beasts and upon the cattle:your carriages were heavyloaded. They are a burden to the weary beast. They stoop, they bow down together. They could not deliver the burden but themselves are gone into captivity. Hearken unto Me, O house of Jacob and all the remnant of the house of Israel, which are borne by Me from the belly, which are carried from the womb. And even to your old age I am He. And even to hoar hairs will I carry you: I have made and I will bear. Even I will carry and will deliver you." Isaiah 46:1-4.  

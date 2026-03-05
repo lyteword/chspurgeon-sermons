@@ -1,6 +1,5 @@
 # Sermon 2628 | "All Hail!"
 
-(No. 2628)
 
 INTENDED FOR READING ON LORD'S DAY, JUNE 25, 1899.
 

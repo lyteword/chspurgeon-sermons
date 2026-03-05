@@ -1,6 +1,5 @@
 # Sermon 2594 | "The Offense of the Cross"
 
-(No. 2594)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 30, 1898.
 

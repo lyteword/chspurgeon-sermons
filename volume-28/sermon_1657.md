@@ -1,6 +1,5 @@
 # Sermon 1657 | My Hourly Prayer
 
-(No. 1657)
 
 DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 26, 1882,
 

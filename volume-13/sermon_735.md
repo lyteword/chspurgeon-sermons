@@ -1,6 +1,5 @@
 # Sermon 735 | Loving Advice for Anxious Seekers
 
-Sermon No. 735 - Delivered on Lord's-day Morning, February 17th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him."  
 > James 1:5.  

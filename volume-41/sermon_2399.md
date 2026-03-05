@@ -1,6 +1,5 @@
 # Sermon 2399 | "Your First Love"
 
-(No. 2399)
 
 INTENDED FOR READING ON LORD'S DAY, FEBRUARY 10, 1895.
 

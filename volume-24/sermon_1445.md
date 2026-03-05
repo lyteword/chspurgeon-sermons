@@ -1,6 +1,5 @@
 # Sermon 1445 | Wake Up! Wake Up!
 
-(No. 1445)
 
 DELIVERED BY
 

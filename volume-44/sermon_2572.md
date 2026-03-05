@@ -1,6 +1,5 @@
 # Sermon 2572 | Fellowship With Christ
 
-(No. 2572)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 29, 1893.
 

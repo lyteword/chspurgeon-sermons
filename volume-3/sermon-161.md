@@ -1,6 +1,5 @@
 # Sermon 161 | The Security of the Church
 
-Sermon No. 161 - Delivered on Sabbath Morning, November 1, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > As the mountains are round about Jerusalem, so the Lord is round about his people from henceforth even for ever.    
 > Psalm 125:2.    

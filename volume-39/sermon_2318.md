@@ -1,6 +1,5 @@
 # Sermon 2318 | God's Pupil, God's Preacher--an Autobiography
 
-(No. 2318)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 23, 1893.
 

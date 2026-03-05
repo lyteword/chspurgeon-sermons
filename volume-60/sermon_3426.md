@@ -1,6 +1,5 @@
 # Sermon 3426 | A Sore Grievance
 
-(No. 3426)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 2684 | Two Arguments Against Sin
 
-(No. 2684)
 
 A SERMON INTENDED FOR READING ON LORDS-DAY, JULY 22, 1900.
 

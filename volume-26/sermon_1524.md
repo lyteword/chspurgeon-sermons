@@ -1,6 +1,5 @@
 # Sermon 1524 | Your Personal Salvation
 
-(No. 1524)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1880,
 

@@ -1,6 +1,5 @@
 # Sermon 1012 | The Unbeliever's Unhappy Condition
 
-Sermon No. 1012 - Delivered on Lord's-day Morning, September 24th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He that believed, not the Son shall not see life; but the wrath of God abideth on him."  
 > John 3:36.  

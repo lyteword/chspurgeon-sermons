@@ -1,6 +1,5 @@
 # Sermon 3418 | An Unalterable Law
 
-(No. 3418)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 6, 1914.
 

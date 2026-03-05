@@ -1,6 +1,5 @@
 # Sermon 3061 | The Rule of Grace
 
-(No. 3061)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 10, 1907.
 

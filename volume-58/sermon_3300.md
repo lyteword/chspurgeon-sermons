@@ -1,6 +1,5 @@
 # Sermon 3300 | Titles of Honor
 
-(No. 3300)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 2, 1912.
 

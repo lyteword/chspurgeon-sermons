@@ -1,6 +1,5 @@
 # Sermon 717 | Pray For Jesus
 
-Sermon No. 717 - Delivered on Sunday Evening, October 21th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Prayer also shall be made for Him continually."  
 > Psalm 72:15.  

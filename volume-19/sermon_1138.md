@@ -1,6 +1,5 @@
 # Sermon 1138 | Morning And Evening Songs
 
-(No. 1138)
 
 DELIVERED BY
 

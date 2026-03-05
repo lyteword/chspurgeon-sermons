@@ -1,6 +1,5 @@
 # Sermon 1375 | "Now Then, Do It"
 
-(No. 1375)
 
 DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 23, 1877,
 

@@ -1,6 +1,5 @@
 # Sermon 1011 | Job's Regret and Our Own
 
-Sermon No. 1011 - Delivered on Lord's-day Morning, September 17th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Oh that I were as in months past, as in the days when God preserved me when his candle shined upon my head, and when by his light I walked through darkness; as I was in the days of my youth, when the secret of God was upon my tabernacle."  
 > Job 29:2,3,4.  

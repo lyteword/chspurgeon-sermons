@@ -1,6 +1,5 @@
 # Sermon 2501 | All and All in All
 
-(No. 2501)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 24, 1897.
 

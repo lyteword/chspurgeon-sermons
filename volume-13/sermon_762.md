@@ -1,6 +1,5 @@
 # Sermon 762 | The Relationship of Marriage
 
-Sermon No. 762 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Turn, O backsliding children, says the Lord; for I am married unto you."- Jeremiah 3:14.

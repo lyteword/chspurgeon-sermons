@@ -1,6 +1,5 @@
 # Sermon 1168 | The Crown of Thorns
 
-(No. 1168)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 12, 1874,
 

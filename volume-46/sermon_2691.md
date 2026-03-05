@@ -1,6 +1,5 @@
 # Sermon 2691 | Sorrow and Sorrow
 
-(No. 2691)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 9, 1900.
 

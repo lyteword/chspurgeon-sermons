@@ -1,6 +1,5 @@
 # Sermon 3407 | Peter's Prayer
 
-(No. 3407)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 21, 1914.
 

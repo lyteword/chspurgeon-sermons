@@ -1,6 +1,5 @@
 # Sermon 1090 | For The Troubled
 
-(No. 1090)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 12, 1873,
 

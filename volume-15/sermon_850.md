@@ -1,6 +1,5 @@
 # Sermon 850 | Soul-winning
 
-Sermon No. 850 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "He that wins souls is wise."- Proverbs 11:30.

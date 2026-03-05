@@ -1,6 +1,5 @@
 # Sermon 2449 | The Rule and Reward of Serving Christ
 
-(No. 2449)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 26, 1896.
 

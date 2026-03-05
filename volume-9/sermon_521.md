@@ -1,6 +1,5 @@
 # Sermon 521 | The Power Of Aaron's Rod
 
-Sermon No. 521 - Delivered on Sunday Morning, July 26th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But Aaron's rod swallowed up their rods."  
 > Exodus 7:12.  

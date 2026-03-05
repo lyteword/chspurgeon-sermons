@@ -1,6 +1,5 @@
 # Sermon 3354 | The Old Testament "Prodigal"
 
-(No. 3354)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 15, 1913.
 

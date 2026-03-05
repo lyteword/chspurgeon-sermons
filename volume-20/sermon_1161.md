@@ -1,6 +1,5 @@
 # Sermon 1161 | Without Money and Without Price
 
-(No. 1161)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 8, 1874,
 

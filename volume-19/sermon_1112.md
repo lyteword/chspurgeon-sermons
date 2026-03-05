@@ -1,6 +1,5 @@
 # Sermon 1112 | Soul-satisfying Bread
 
-(No. 1112)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1873,
 

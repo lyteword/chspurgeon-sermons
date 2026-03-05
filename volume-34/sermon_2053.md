@@ -1,6 +1,5 @@
 # Sermon 2053 | Concerning Prayer
 
-Sermon No. 2053 - Delivered on Sunday Morning, November 25th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Give ear, O Lord, unto my prayer and attend to the voice of my supplications. In the day of my trouble I will call upon You: for You will answer me."  
 > Psalm 86:6, 7.  

@@ -1,6 +1,5 @@
 # Sermon 2946 | A Procession of Cross-bearers
 
-(No. 2946)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 27, 1905.
 

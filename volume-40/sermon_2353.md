@@ -1,6 +1,5 @@
 # Sermon 2353 | "Out Of The Depths"
 
-(No. 2353)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 25, 1894.
 

@@ -1,6 +1,5 @@
 # Sermon 2824 | Mocked of the Soldiers
 
-(No. 2824)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1903.
 

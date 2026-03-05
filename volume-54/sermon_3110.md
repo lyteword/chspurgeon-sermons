@@ -1,6 +1,5 @@
 # Sermon 3110 | Faintness and Refreshing
 
-(No. 3110)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1908.
 

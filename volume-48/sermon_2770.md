@@ -1,6 +1,5 @@
 # Sermon 2770 | "Go in Peace"
 
-(No. 2770)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 16, 1902.
 

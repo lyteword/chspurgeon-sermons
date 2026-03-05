@@ -1,6 +1,5 @@
 # Sermon 1633 | Sarah and Her Daughters
 
-(No. 1633)
 
 DELIVERED ON THURSDAY EVENING, APRIL 28, 1881,
 
@@ -12,7 +11,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
 "Even as Sara obeyed Abraham, calling him lord: whose daughters you are, as long as you do well, and are not afraid with any amazement." 1 Peter3:6.
 
-I DESIRE to thank God for having had the privilege of preaching in Exeter Hall, yesterday, to a large congregation from the whole of the second verse of the 51st of Isaiah--"Look unto Abraham your father, and unto Sarah that bore you: for I called him alone, and blessed him, and increased him." [See No. 1596, HEARKEN AND LOOK--OR, ENCOURAGEMENT FOR BELIEVERS preached on behalf of the Baptist Missionary Society on the morning of April 27,1881.] On that occasion I confined my remarks to Abraham and tried to make prominent the facts that God called him while he was a heathen man, one man and a lone man--and yet He blessed him and made him the founder of His people, multiplying his seed as the stars and as the sand of the seashore. I devoutly beseech the Lord to accept my testimony to His power and to increase the faith of the many of His servants to whom I spoke on that occasion. His Holy Spirit gave me the word--may He cause His saints to feed upon it!
 
 Now, I never like to do an injustice to anybody and I feel that I did not, in that sermon, speak sufficiently about Sarah, though I did not quite forget her. Let us make up for our omissions. If we had Abraham at Exeter Hall yesterday morning, we will have Sarah at the Tabernacle, tonight, and maybe we shall learn a lesson from her holy character as well as from that of her husband. And the two lessons combined may go to the perfecting of each other. May our great Teacher, the Holy Spirit, now instruct us! To begin with, let us note what a happy circumstance it is when a godly, gracious man has an equally godly and gracious wife.
 

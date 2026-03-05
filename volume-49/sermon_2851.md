@@ -1,6 +1,5 @@
 # Sermon 2851 | Unseasonable Prayer
 
-(No. 2851)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1903.
 

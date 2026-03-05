@@ -1,6 +1,5 @@
 # Sermon 3408 | Not Boasting, But Trusting
 
-(No. 3408)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 28, 1914.
 

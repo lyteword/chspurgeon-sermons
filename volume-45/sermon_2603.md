@@ -1,6 +1,5 @@
 # Sermon 2603 | Comfort for the Tempted
 
-(No. 2603)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 1, 1899.
 

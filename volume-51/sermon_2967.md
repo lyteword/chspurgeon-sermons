@@ -1,6 +1,5 @@
 # Sermon 2967 | The Church's Probation
 
-(No. 2967)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1905.
 

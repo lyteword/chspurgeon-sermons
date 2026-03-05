@@ -1,6 +1,5 @@
 # Sermon 2513 | How to Please God
 
-(No. 2513)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 18, 1897.
 

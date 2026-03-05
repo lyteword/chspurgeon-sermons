@@ -1,6 +1,5 @@
 # Sermon 3037 | Christians Kept From Sin
 
-(No. 3037)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 25, 1907.
 

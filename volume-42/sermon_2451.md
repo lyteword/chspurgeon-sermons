@@ -1,6 +1,5 @@
 # Sermon 2451 | "Blessed in Him"
 
-(No. 2451)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 9, 1896.
 

@@ -1,6 +1,5 @@
 # Sermon 1247 | The Special Prayer Meeting
 
-(No. 1247)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1875,
 

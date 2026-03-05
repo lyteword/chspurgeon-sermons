@@ -1,6 +1,5 @@
 # Sermon 2624 | Secondhand
 
-(No. 2624)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 28, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 1520 | Pressing Questions of an Awakened Mind
 
-(No. 1520)
 
 DELIVERED BY
 

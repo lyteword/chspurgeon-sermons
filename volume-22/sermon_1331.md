@@ -1,6 +1,5 @@
 # Sermon 1331 | The Two "Comes"
 
-(No. 1331)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 31, 1876,
 

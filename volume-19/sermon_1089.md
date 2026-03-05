@@ -1,6 +1,5 @@
 # Sermon 1089 | The Man Greatly Beloved
 
-(No. 1089)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 5, 1873,
 

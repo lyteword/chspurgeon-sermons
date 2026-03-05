@@ -1,6 +1,5 @@
 # Sermon 3389 | The Soul's Awakening
 
-(No. 3389)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 15, 1914.
 

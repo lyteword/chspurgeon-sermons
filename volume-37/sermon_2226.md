@@ -1,6 +1,5 @@
 # Sermon 2226 | "Lay Hold on Eternal Life!"
 
-(No. 2226)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 18, 1891,
 

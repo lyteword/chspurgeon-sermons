@@ -1,6 +1,5 @@
 # Sermon 256 | The Believer's Challenge
 
-Sermon No. 256 - Delivered on Sabbath Morning, June 5th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us    
 > Romans 8:34.    

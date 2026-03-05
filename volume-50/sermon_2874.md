@@ -1,6 +1,5 @@
 # Sermon 2874 | Precepts and Promises
 
-(No. 2874)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 10, 1904.
 

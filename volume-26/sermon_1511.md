@@ -1,6 +1,5 @@
 # Sermon 1511 | Questions Which Ought To Be Asked
 
-Sermon No. 1511 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 (This was followed by a farewell address from his son, Thomas Spurgeon.)
 

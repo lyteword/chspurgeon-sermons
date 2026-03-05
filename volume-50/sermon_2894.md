@@ -1,6 +1,5 @@
 # Sermon 2894 | The Sinner's Only Alternative
 
-(No. 2894)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 28, 1904.
 

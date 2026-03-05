@@ -1,6 +1,5 @@
 # Sermon 162 | The First and Great Commandment
 
-Sermon No. 162 - Delivered on Sabbath Morning, November 8, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment.    
 > Mark 12:30.    

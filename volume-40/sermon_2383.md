@@ -1,6 +1,5 @@
 # Sermon 2383 | Seeing and Testifying
 
-(No. 2383)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 21,1894.
 

@@ -1,6 +1,5 @@
 # Sermon 1650 | God's Fatherly Pity
 
-(No. 1650)
 
 DELIVERED ON THURSDAY EVENING, MARCH 2, 1882,
 

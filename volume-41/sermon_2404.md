@@ -1,6 +1,5 @@
 # Sermon 2404 | "A People Prepared for the Lord"
 
-(No. 2404)
 
 INTENDED FOR READING ON LORD'S DAY, MARCH 17, 1895.
 

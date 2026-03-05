@@ -1,6 +1,5 @@
 # Sermon 2071 | Trembling at the Word of the Lord
 
-Sermon No. 2071 - Delivered on 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "To this man will I look, even to him that is poor and of a contrite spirit and trembles at My Word."  
 > Isaiah 66:2.  

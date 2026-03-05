@@ -1,6 +1,5 @@
 # Sermon 2996 | Enquiring of God
 
-(No. 2996)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 12, 1906.
 

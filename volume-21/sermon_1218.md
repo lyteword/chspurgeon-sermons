@@ -1,6 +1,5 @@
 # Sermon 1218 | The Miracle of the Loaves
 
-(No. 1218)
 
 DELIVERED BY
 

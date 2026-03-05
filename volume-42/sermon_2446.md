@@ -1,6 +1,5 @@
 # Sermon 2446 | Carte Blanche
 
-(No. 2446)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 5, 1896.
 

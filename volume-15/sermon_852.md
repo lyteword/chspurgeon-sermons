@@ -1,6 +1,5 @@
 # Sermon 852 | Constancy And Inconstancy--a Contrast
 
-Sermon No. 852 - Delivered on Lord's-day Morning, JANUARY 24, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Then shall we know, if we follow on to know the Lord: His going forth is prepared as the morning; and He shall come unto us as the rain, as the latter and former rain unto the earth. O Ephraim, what shall I do unto you? O Judah, what shall I do unto you? For your goodness is as a morning cloud and as the early dew it goes away."- Hosea 6:3,4.

@@ -1,6 +1,5 @@
 # Sermon 1443 | A Clear Conscience
 
-(No. 1443)
 
 DELIVERED BY
 

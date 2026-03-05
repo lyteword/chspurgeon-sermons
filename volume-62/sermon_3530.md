@@ -1,6 +1,5 @@
 # Sermon 3530 | A Sad Confession
 
-(No. 3530)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1916.
 

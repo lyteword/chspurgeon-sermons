@@ -1,6 +1,5 @@
 # Sermon 1253 | The Lion-slayer--the Giant-killer
 
-(No. 1253)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 5, 1875,
 

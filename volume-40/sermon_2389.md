@@ -1,6 +1,5 @@
 # Sermon 2389 | Guidance To Grace and Glory
 
-(No. 2389)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 2, 1894.
 

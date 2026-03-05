@@ -1,6 +1,5 @@
 # Sermon 1754 | The Blind Man's Eyes Opened--or, Practical Christianity
 
-(No. 1754)
 
 DELIVERED ON LORD'S-DAY EVENING, AUGUST 12, 1883,
 

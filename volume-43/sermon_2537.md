@@ -1,6 +1,5 @@
 # Sermon 2537 | A Warning to Waverers
 
-(No. 2537)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 3, 1897.
 

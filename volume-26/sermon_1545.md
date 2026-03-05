@@ -1,6 +1,5 @@
 # Sermon 1545 | God Glorified By Children's Mouths
 
-(No. 1545)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 27, 1880,
 

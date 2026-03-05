@@ -1,6 +1,5 @@
 # Sermon 1761 | The Lord with Two or Three
 
-(No. 1761)
 
 A SERMON DELIVERED ON THURSDAY EVENING, OCTOBER 4, 1883,
 

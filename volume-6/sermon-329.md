@@ -1,6 +1,5 @@
 # Sermon 329 | Christ's First and Last Subject
 
-Sermon No. 329 - Delivered on Sabbath Morning, August 19th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > From that time Jesus began to preach, and to say, Repent: for the kingdom of heaven is at hand    
 > Matthew 4:17.    

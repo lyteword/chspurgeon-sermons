@@ -1,6 +1,5 @@
 # Sermon 3261 | The Covenant
 
-(No. 3261)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1911.
 

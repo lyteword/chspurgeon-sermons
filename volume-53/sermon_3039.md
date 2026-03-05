@@ -1,6 +1,5 @@
 # Sermon 3039 | The King's Sharp Arrows
 
-(No. 3039)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 9, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 2339 | Baptism Essential To Obedience
 
-(No. 2339)
 
 INTENDED FOR READING ON LORDS'S-DAY, DECEMBER 17, 1893.
 

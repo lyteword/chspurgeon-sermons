@@ -1,6 +1,5 @@
 # Sermon 3150 | "Never, No Never, No Never"
 
-(No. 3150)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 24, 1909.
 

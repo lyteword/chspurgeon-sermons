@@ -1,6 +1,5 @@
 # Sermon 1303 | The Believer in the Body and Out of the Body
 
-(No. 1303)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 2, 1876,
 

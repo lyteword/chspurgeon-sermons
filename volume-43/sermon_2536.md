@@ -1,6 +1,5 @@
 # Sermon 2536 | The Ethiopian
 
-(No. 2536)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 26, 1897.
 

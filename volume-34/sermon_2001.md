@@ -1,6 +1,5 @@
 # Sermon 2001 | A Little Sanctuary
 
-Sermon No. 2001 - Delivered on Sunday Morning, January 8th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Therefore say, Thus saith the Lord God; Although I have cast them far off among the heathen, and although I have scattered them among the countries, yet will I be to them, as a little sanctuary in the countries where they shall come."  
 > Ezekiel 11:16.  

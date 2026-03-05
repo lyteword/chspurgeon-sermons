@@ -1,6 +1,5 @@
 # Sermon 3424 | Meat Indeed, and Drink Indeed
 
-(No. 3424)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1914.
 

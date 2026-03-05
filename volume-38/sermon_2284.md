@@ -1,6 +1,5 @@
 # Sermon 2284 | "Clear Shining After Rain"
 
-(No. 2284)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 27, 1892.
 

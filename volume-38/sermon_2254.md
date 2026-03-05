@@ -1,6 +1,5 @@
 # Sermon 2254 | The Two Guards Praying and Watching
 
-(No. 2254)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 1, 1892.
 

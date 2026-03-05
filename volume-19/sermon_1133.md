@@ -1,6 +1,5 @@
 # Sermon 1133 | A Fatal Deficiency
 
-(No. 1133)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1873,
 

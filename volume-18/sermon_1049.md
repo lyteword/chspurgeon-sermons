@@ -1,6 +1,5 @@
 # Sermon 1049 | Intercessory Prayer
 
-(No. 1049)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 5, 1872,
 

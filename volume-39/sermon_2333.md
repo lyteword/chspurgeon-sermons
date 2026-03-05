@@ -1,6 +1,5 @@
 # Sermon 2333 | The Whole Band Against Christ
 
-(No. 2333)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 5, 1893.
 

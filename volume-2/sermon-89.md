@@ -1,6 +1,5 @@
 # Sermon 89 | Hatred Without Cause
 
-Sermon No. 89 - Delivered on Sabbath Morning, June 29, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > They hated me without a cause.    
 > John 15:25.    

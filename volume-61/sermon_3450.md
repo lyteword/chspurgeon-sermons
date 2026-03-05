@@ -1,6 +1,5 @@
 # Sermon 3450 | Dangerous Lingering
 
-(No. 3450)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1915.
 

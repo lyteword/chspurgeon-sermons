@@ -1,6 +1,5 @@
 # Sermon 3491 | The Savior's Charity
 
-(No. 3491)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 23, 1915.
 

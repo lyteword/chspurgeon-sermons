@@ -1,6 +1,5 @@
 # Sermon 2637 | The Place of Prayer and Pardon
 
-(No. 2637)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 27, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 2680 | Ruth Deciding for God
 
-(No. 2680)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 24, 1900.
 

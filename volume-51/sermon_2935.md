@@ -1,6 +1,5 @@
 # Sermon 2935 | Christ's Joy and Ours
 
-(No. 2935)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 11, 1905.
 

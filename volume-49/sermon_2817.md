@@ -1,6 +1,5 @@
 # Sermon 2817 | Jacob's Fear and Faith
 
-(No. 2817)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 8, 1903.
 

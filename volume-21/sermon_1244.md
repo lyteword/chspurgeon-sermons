@@ -1,6 +1,5 @@
 # Sermon 1244 | Faith's Ultimatum
 
-(No. 1244)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 18 1875,
 

@@ -1,6 +1,5 @@
 # Sermon 187 | Providence
 
-Sermon No. 187 - Delivered on Sabbath Morning, April 11, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > But the very hairs of your head are all numbered.    
 > Matthew 10:30.    

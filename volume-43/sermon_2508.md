@@ -1,6 +1,5 @@
 # Sermon 2508 | "Beautiful Forever"
 
-(No. 2508)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 14, 1897.
 

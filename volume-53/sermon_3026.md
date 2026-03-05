@@ -1,6 +1,5 @@
 # Sermon 3026 | Vanity Deprecated
 
-(No. 3026)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 7, 1907.
 

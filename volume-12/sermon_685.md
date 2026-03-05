@@ -1,6 +1,5 @@
 # Sermon 685 | Heedlessness In Religion
 
-Sermon No. 685 - Delivered on Sunday Morning, April 15th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But Jehu took no heed to walk in the Law of the Lord God of Israel with all his heart: for he departed not from the sins of Jeroboam, which made Israel to sin."  
 > 2 Kings 10:31.  

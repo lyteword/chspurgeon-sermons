@@ -1,6 +1,5 @@
 # Sermon 1893 | Jesus Angry with Hard Hearts
 
-Sermon No. 1893 - Delivered on Lord's-day Morning, March 28th, 1886 the REV. C.H. SPURGEON at [6]the Metropolitan Tabernacle, Newington.
 
 > "And when he had looked round about on them with anger, being grieved for the hardness of their hearts, he saith unto the man, Stretch forth thine hand."  
 > Mark 3:5.  

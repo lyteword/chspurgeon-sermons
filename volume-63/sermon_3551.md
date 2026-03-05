@@ -1,6 +1,5 @@
 # Sermon 3551 | The Gospel in Power
 
-(No. 3551)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1917.
 

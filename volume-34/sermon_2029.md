@@ -1,6 +1,5 @@
 # Sermon 2029 | Let Him Deliver Him Now
 
-Sermon No. 2029 - Delivered on Sunday Morning, June 17th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "He trusted in God; let him deliver him now; if he will have him: for he said, I am the Son of God."  
 > Matthew 27:43.  

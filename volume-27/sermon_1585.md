@@ -1,6 +1,5 @@
 # Sermon 1585 | Truthfulness
 
-(No. 1585)
 
 DELIVERED BY
 

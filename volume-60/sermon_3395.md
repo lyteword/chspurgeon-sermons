@@ -1,6 +1,5 @@
 # Sermon 3395 | The Savior's Precious Blood
 
-(No. 3395)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 26, 1914.
 

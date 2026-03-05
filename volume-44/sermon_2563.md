@@ -1,6 +1,5 @@
 # Sermon 2563 | Grace for the Guilty
 
-(No. 2563)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1898.
 

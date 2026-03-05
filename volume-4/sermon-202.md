@@ -1,6 +1,5 @@
 # Sermon 202 | The Conversion of Saul of Tarsus
 
-Sermon No. 202 - Delivered on Sabbath Morning, June 27, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > And when we were all fallen to the earth, I heard a voice speaking unto me, and saying in the Hebrew tongue, Saul, Saul, why persecutest thou me? it is hard for thee to kick against the pricks.    
 > Acts 26:14.    

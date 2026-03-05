@@ -1,6 +1,5 @@
 # Sermon 2760 | A King Sent in Love
 
-(No. 2760)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 5, 1902.
 

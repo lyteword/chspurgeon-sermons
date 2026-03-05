@@ -1,6 +1,5 @@
 # Sermon 3252 | "By Water and Blood"
 
-(No. 3252)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 1, 1911.
 

@@ -1,6 +1,5 @@
 # Sermon 1798 | Sight For Those Who See Not
 
-(No. 1798)
 
 A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 14, 1884,
 

@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 351)
 
 Delivered at Exeter Hall, Strand, by the
 

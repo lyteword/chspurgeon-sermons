@@ -1,6 +1,5 @@
 # Sermon 1865 | The Nobleman's Faith
 
-(No. 1865)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 11, 1885,
 

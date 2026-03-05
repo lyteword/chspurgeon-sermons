@@ -1,6 +1,5 @@
 # Sermon 3209 | The Priceless Prize
 
-(No. 3209)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 4, 1910.
 

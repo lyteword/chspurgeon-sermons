@@ -1,6 +1,5 @@
 # Sermon 2593 | A Welcome for Jesus
 
-(No. 2593)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 23, 1898.
 

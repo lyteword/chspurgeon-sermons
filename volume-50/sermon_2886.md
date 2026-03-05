@@ -1,6 +1,5 @@
 # Sermon 2886 | Restless! Peaceless!
 
-(No. 2886)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 2, 1904.
 

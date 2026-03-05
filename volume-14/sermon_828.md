@@ -1,6 +1,5 @@
 # Sermon 828 | Dying Daily
 
-A Sermon (No. 828)
 
 Delivered on lord's day morning, august 30, 1868, by C. H. SPURGEON, at the [38]Metropolitan Tabernacle, Newington.
 

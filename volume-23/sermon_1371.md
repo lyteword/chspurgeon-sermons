@@ -1,6 +1,5 @@
 # Sermon 1371 | Brave Waiting
 
-(No. 1371)
 
 DELIVERED ON LORDS-DAY MORNING, AUGUST 26, 1877,
 

@@ -1,6 +1,5 @@
 # Sermon 3388 | Soul-threshing
 
-(No. 3388)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 8, 1914.
 

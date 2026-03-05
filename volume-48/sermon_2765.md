@@ -1,6 +1,5 @@
 # Sermon 2765 | Marvelous Light
 
-(No. 2765)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 9, 1902.
 

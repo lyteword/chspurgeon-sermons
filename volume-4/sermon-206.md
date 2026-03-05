@@ -1,6 +1,5 @@
 # Sermon 206 | Everybody's Sermon
 
-Sermon No. 206 - Delivered on Sabbath Morning, July 25, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > I have multiplied visions, and used similitudes.    
 > Hosea 12:10.    

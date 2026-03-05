@@ -1,6 +1,5 @@
 # Sermon 3099 | The Double Forget-me-not
 
-(No. 3099)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 2, 1908.
 

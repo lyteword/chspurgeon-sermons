@@ -1,6 +1,5 @@
 # Sermon 2552 | "Take Heed, Brethren"
 
-(No. 2552)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 16, 1898.
 

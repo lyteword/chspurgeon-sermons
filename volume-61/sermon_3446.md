@@ -1,6 +1,5 @@
 # Sermon 3446 | "Christ Is All"
 
-(No. 3446)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 18, 1915.
 

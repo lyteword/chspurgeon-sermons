@@ -1,6 +1,5 @@
 # Sermon 832 | The Best Cloak
 
-A Sermon (No. 832)
 
 Delivered by C. H. SPURGEON at the [41]Metropolitan Tabernacle, Newington.
 

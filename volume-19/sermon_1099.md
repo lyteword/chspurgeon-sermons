@@ -1,6 +1,5 @@
 # Sermon 1099 | The Man Of Sorrows
 
-(No. 1099)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 2, 1873,
 

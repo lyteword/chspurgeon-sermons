@@ -1,6 +1,5 @@
 # Sermon 2299 | Thorns and Thistles
 
-(No. 2299)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 12, 1893.
 

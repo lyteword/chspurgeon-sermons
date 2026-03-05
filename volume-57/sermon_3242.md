@@ -1,6 +1,5 @@
 # Sermon 3242 | Unparalleled Loving Kindnesses
 
-(No. 3242)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 23, 1911.
 

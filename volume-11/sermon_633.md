@@ -1,6 +1,5 @@
 # Sermon 633 | Two Loving Invitations
 
-Sermon No. 633 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Come and see. ... Come and dine.    
 > John 1:39 & John 21:12.    

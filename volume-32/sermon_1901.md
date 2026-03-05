@@ -1,6 +1,5 @@
 # Sermon 1901 | Mysterious Meat
 
-(No. 1901)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 23, 1886,
 

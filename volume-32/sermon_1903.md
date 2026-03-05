@@ -1,6 +1,5 @@
 # Sermon 1903 | Who Found It Out?
 
-(No. 1903)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 6, 1886,
 

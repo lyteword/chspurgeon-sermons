@@ -1,6 +1,5 @@
 # Sermon 1555 | The Glories of Forgiving Grace
 
-(No. 1555)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 29, 1880,
 

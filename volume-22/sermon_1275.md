@@ -1,7 +1,5 @@
 # Sermon 1275 | One Greater Than the Temple
 
-Sermon No. 1275 - Delivered on Lord's-Day Morning, January 23rd, 1876 the REV. C.H. SPURGEON at the [5]Metropolitan Tabernacle, Newington.
-(No. 1275)
 
 OUR LORD INTENDED, of course, to assert that he himself was greater than the temple, but he used the most modest form of putting it. When in the interests of truth he is obliged to speak of himself his meekness and lowliness are always apparent in the mode in which he makes the personal allusion, and every one can see that he does not seek his own glory, or desire the praise of man. In the instance before us he says, "In this place is one," or, as some read it, "is something greater than the temple." He who is truly meek and lowly is not afraid to speak the truth about himself, for he has no jealousy about his reputation for humility, and is quite willing to be thought proud by the ungenerous, for he knows that he only speaks of himself in order to glorify God or promote truth. There is a native peculiarity in true lowliness which shows itself in the very form of its utterances, and wards off the imputation of boasting.
 

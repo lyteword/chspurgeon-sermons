@@ -1,6 +1,5 @@
 # Sermon 2493 | "A Man Named Matthew"
 
-(No. 2493)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 29, 1896.
 

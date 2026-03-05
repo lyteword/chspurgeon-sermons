@@ -1,6 +1,5 @@
 # Sermon 3053 | Jesus Christ's Idiom
 
-(No. 3053)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 15, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 1042 | A Persuasive to Steadfastness
 
-Sermon No. 1042 - Delivered on Thursday Evening, February 29th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 'For we are made partakers of Christ, if we hold the beginning of our confidence steadfast unto the end.''Hebrews 3:14.
 

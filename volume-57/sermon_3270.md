@@ -1,6 +1,5 @@
 # Sermon 3270 | The Truly Blessed Man
 
-(No. 3270)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1911.
 

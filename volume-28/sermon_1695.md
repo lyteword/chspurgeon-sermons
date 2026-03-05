@@ -1,6 +1,5 @@
 # Sermon 1695 | The Orphan's Father
 
-(No. 1695)
 
 DELIVERED AT THE THURSDAY EVENING LECTURE,
 

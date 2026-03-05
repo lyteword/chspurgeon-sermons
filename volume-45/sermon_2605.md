@@ -1,6 +1,5 @@
 # Sermon 2605 | Death and Its Sentence Abolished
 
-(No. 2605)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 15, 1899.
 

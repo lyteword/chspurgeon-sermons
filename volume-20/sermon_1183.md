@@ -1,6 +1,5 @@
 # Sermon 1183 | Is Conversion Necessary?
 
-(No. 1183)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 19, 1874,
 

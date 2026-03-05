@@ -1,6 +1,5 @@
 # Sermon 1696 | The Bird Escaped from the Snare
 
-(No. 1696)
 
 DELIVERED AT THE THURSDAY EVENING LECTURE,
 

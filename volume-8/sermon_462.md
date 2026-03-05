@@ -1,6 +1,5 @@
 # Sermon 462 | Creation--An Argument For Faith
 
-Sermon No. 462 - Delivered on Sunday Morning, July 27th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Ah Lord God, behold, You have made the Heaven and the earth by Your great power and stretched out arm, and there is nothing too hard for You."  
 > Jeremiah 32:17.  

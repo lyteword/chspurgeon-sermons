@@ -1,6 +1,5 @@
 # Sermon 653 | A Blow For Puseyism
 
-Sermon No. 653 - Delivered on Sunday Morning, October 8th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > It is the spirit that quickens. The flesh profits nothing: the words that I speak unto you, they are spirit and they are life.    
 > John 6:63.    

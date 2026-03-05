@@ -1,6 +1,5 @@
 # Sermon 1659 | A Feast for the Upright
 
-(No. 1659)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 14, 1882,
 

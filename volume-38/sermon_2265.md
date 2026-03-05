@@ -1,6 +1,5 @@
 # Sermon 2265 | Harvest Joy
 
-(No. 2265)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 17, 1892.
 

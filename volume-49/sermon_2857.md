@@ -1,6 +1,5 @@
 # Sermon 2857 | God's Goodness Leading to Repentance
 
-(No. 2857)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1903.
 

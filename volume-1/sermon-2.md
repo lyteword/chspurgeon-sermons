@@ -1,6 +1,5 @@
 # Sermon 2 | The Remembrance of Christ
 
-Sermon No. 2 - Delivered on Sabbath Evening, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > This do in remembrance of me.    
 > 1 Corinthians 11:24.    

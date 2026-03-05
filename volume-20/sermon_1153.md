@@ -1,6 +1,5 @@
 # Sermon 1153 | The Matchless Mystery
 
-(No. 1153)
 
 DELIVERED BY
 

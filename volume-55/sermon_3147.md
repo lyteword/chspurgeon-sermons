@@ -1,6 +1,5 @@
 # Sermon 3147 | God's Glory in the Building Up of Zion
 
-(No. 3147)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 3, 1909.
 

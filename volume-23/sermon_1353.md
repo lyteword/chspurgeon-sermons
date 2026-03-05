@@ -1,6 +1,5 @@
 # Sermon 1353 | Ecce Rex
 
-(No. 1353)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 6, 1877,
 

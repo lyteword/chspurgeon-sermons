@@ -1,6 +1,5 @@
 # Sermon 483 | Life And Walk Of Faith
 
-Sermon No. 483 - Delivered on Sunday Morning, December 7th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "As you have therefore received Christ Jesus the Lord, so walkyou in Him."  
 > Colossians 2:6.   

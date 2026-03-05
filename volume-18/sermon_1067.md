@@ -1,6 +1,5 @@
 # Sermon 1067 | The Resurrection Credible
 
-(No. 1067)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 25, 1872,
 

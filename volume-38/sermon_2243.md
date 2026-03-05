@@ -1,6 +1,5 @@
 # Sermon 2243 | His Own Funeral Sermon*
 
-(No. 2243)
 
 INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 14, 1892.
 

@@ -1,6 +1,5 @@
 # Sermon 55 | The Exodus
 
-Sermon No. 55 - Delivered on Sabbath Morning, December 9, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > And it came to pass at the end of the four hundred and thirty years, even the selfsame day it came to pass, that all the hosts of the Lord went out from the land of Egypt.    
 > Exodus 12:41.    

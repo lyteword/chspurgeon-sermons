@@ -1,6 +1,5 @@
 # Sermon 2325 | The Far-off, Near--the Near, Far Off
 
-(No. 2325)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 10, 1893.
 

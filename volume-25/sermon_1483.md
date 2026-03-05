@@ -1,6 +1,5 @@
 # Sermon 1483 | The Present Crisis
 
-(No. 1483)
 
 DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1879,
 

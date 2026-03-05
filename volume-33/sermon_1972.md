@@ -1,6 +1,5 @@
 # Sermon 1972 | A Bit of History for Old and Young
 
-Sermon No. 1972 - Delivered on Sunday Morning, July 10th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And he blessed Joseph and said, God, before whom my fathers Abraham and Isaac did walk, the God which fed me all my life long unto this day, the Angel which redeemed me from all evil, bless the lads."  
 > Genesis 48:15,16.  

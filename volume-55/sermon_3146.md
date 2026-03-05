@@ -1,6 +1,5 @@
 # Sermon 3146 | The Power of Christ's Presence
 
-(No. 3146)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 27, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 2268 | A Question for Communicants
 
-(No. 2268)
 
 INTENDED FOR READING ON LORD'S-DAY AUGUST 7, 1892.
 

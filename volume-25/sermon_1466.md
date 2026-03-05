@@ -1,6 +1,5 @@
 # Sermon 1466 | The Three Whats
 
-(No. 1466)
 
 DELIVERED BY
 

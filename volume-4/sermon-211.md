@@ -1,6 +1,5 @@
 # Sermon 211 | The Voice of the Blood of Christ
 
-Sermon No. 211 - Delivered on Sabbath Morning, August 29, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > The blood of sprinkling, that speaketh better things than that of Abel.    
 > Hebrews 12:24.    

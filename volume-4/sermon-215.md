@@ -1,6 +1,5 @@
 # Sermon 215 | His Name&mdash;The Counsellor
 
-Sermon No. 215 - Delivered on Sabbath Morning, September 26, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor.    
 > Isaiah 9:6.    

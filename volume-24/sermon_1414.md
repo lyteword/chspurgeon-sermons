@@ -1,6 +1,5 @@
 # Sermon 1414 | No Difference
 
-(No. 1414)
 
 DELIVERED ON LORD'S-DAY EVENING, MAY 12, 1878,
 

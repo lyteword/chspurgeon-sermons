@@ -1,6 +1,5 @@
 # Sermon 2301 | Marah Better Than Elim
 
-(No. 2301)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 26, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 2961 | "Heirs of God"
 
-(No. 2961)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1905.
 

@@ -1,6 +1,5 @@
 # Sermon 2196 | Hosanna!
 
-(No. 2196)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 22, 1891,
 

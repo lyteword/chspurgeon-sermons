@@ -1,6 +1,5 @@
 # Sermon 3185 | "A Song of My Beloved"
 
-(No. 3185)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 17, 1910.
 

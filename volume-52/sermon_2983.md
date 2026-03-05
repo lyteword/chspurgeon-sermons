@@ -1,6 +1,5 @@
 # Sermon 2983 | A Wonderful Transformation
 
-(No. 2983)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 12,1906.
 

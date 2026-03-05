@@ -1,6 +1,5 @@
 # Sermon 3014 | A Sermon From a Sick Preacher
 
-(No. 3014)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 15, 1906.
 
@@ -10,7 +9,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, IN THE YEAR 18
 
 "Therefore, to you who believe, He is precious." 1 Peter 2:7.
 
-[Not only was this the first text from which Mr. Spurgeon preached, but it was his theme on many subsequent occasions. Two of these discourses bear the same title-- CHRIST PRECIOUS TO BELIEVERS although one of them is No. 242, Volume 5 in the New Park Street Pulpit and the other is No. 2137, Volume 36]
 
 MY Brothers and Sisters, I am quite out of order for addressing you tonight. I feel extremely unwell, excessively heavy and exceedingly depressed, and yet I could not deny myself the pleasure of trying to say a few words to you. I have taken a text upon which I think I could preach in my sleep and I believe that if I were dying, and were graciously led into the old track, I could, with my last expiring breath, pour out a heartfelt of utterance upon the delightful verse which I have selected. It happens to be the passage from which I first essayed to speak in public when I was but a boy of sixteen years of age and I am sure it contains the marrow of what I have always taught in the pulpit from that day until now. The words are in the Second Chapter of the First Epistle of Peter, and the seventh verse--" Therefore, to you who believe, He is precious."
 

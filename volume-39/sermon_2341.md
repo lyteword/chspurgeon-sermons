@@ -1,6 +1,5 @@
 # Sermon 2341 | The Underlying Gospel for the Dying Year
 
-(No. 2341)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 31, 1893.
 

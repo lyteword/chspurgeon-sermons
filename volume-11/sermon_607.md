@@ -1,6 +1,5 @@
 # Sermon 607 | True Unity Promoted
 
-Sermon No. 607 - Delivered on Sunday Morning, January 1st, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Endeavoring to keep the unity of the Spirit in the bond of peace.    
 > Ephesians 4:3.    

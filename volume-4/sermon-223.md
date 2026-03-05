@@ -1,6 +1,5 @@
 # Sermon 223 | The Evil and Its Remedy
 
-Sermon No. 223 - Delivered on Sabbath Morning, November 14th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > The iniquity of the house of Israel and Judah is exceeding great.    
 > Ezekiel 9:9.    

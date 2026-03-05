@@ -1,6 +1,5 @@
 # Sermon 2250 | Words To Rest On
 
-(No. 2250)
 
 INTENDED FOR READING ON LORD'S-DAY, APRIL 3, 1892.
 

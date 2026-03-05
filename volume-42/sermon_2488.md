@@ -1,6 +1,5 @@
 # Sermon 2488 | Christ's Love to His Spouse
 
-(No. 2488)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 25, 1896.
 

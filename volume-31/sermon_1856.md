@@ -1,6 +1,5 @@
 # Sermon 1856 | The History of Little-Faith
 
-(No. 1856)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 23, 1885,
 

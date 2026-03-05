@@ -1,6 +1,5 @@
 # Sermon 2914 | A Mournful Defection
 
-(No. 2914)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 15, 1904.
 

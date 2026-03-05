@@ -1,6 +1,5 @@
 # Sermon 1343 | The Jewel of Peace
 
-(No. 1343)
 
 DELIVERED ON LORD'S-DAY MORNING, MARCH 18, 1877,
 

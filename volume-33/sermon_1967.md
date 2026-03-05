@@ -1,6 +1,5 @@
 # Sermon 1967 | Plain Gospel For Plain People
 
-Sermon No. 1967 - Delivered on Sunday Morning, June 12th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "For this commandment which I command you this day, it is not hidden fromyou, neither is it far off. It is not in Heaven, that you should say, Who shall go up for us to Heaven and bringit unto us, that we may hear it and do it? Neither is it beyond the sea, that you should say, Who shall go over the sea for us and bring it unto us, that we may hear it and do it? But the Word is very near unto you, in your mouth, and in your heart, that you may do it."  
 > Deuteronomy 30:11-14  

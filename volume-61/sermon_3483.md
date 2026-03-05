@@ -1,6 +1,5 @@
 # Sermon 3483 | The Family Likeness
 
-(No. 3483)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 28, 1915.
 

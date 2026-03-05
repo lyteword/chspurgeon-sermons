@@ -1,6 +1,5 @@
 # Sermon 2615 | The Anxious Enquirer
 
-(No. 2615)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 26, 1899.
 

@@ -1,6 +1,5 @@
 # Sermon 2372 | A Page From a Royal Diary
 
-(No. 2372)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 5, 1894.
 

@@ -1,6 +1,5 @@
 # Sermon 2412 | A Special Benediction
 
-(No. 2412)
 
 INTENDED FOR READING ON LORD'S DAY, MAY 12, 1895.
 

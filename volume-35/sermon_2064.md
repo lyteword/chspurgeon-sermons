@@ -1,6 +1,5 @@
 # Sermon 2064 | Essential Points In Prayer
 
-Sermon No. 2064 - Delivered on Sunday, January 20th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The Lord appeared to Solomon the second time, as He had appeared unto him at Gibeon. And the Lord said unto him, I have heard your prayer and your supplication, that you have made before Me: I have hallowed this house, which you have built, to put My name there forever. And My eyes and My heart shall be there perpetually."  
 > 1 Kings 9:2,3.  

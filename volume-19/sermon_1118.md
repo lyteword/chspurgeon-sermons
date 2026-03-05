@@ -1,6 +1,5 @@
 # Sermon 1118 | The Way To Honor
 
-(No. 1118)
 
 DELIVERED BY
 

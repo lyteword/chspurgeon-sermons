@@ -1,6 +1,5 @@
 # Sermon 859 | The Old Way of the Wicked
 
-Sermon No. 859 - Delivered on Lord's-day Morning, MARCH 7, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "Have you marked the old way which wicked men have trod? Which were cut down out of time, whose foundation was swept away with a flood: Which said unto God, Depart from us: and what can the Almighty do for them?"- Job 22:15-17.

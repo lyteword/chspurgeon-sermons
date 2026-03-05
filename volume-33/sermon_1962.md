@@ -1,6 +1,5 @@
 # Sermon 1962 | The Friend of God
 
-Sermon No. 1962 - Delivered on Sunday Morning, May 8th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "You, Israel, are My servant, Jacob whom I have chosen, the seed of Abraham My friend."  
 > Isaiah 41:8.  

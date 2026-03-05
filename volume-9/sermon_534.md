@@ -1,6 +1,5 @@
 # Sermon 534 | The Mighty Power Which Creates And Sustains Faith
 
-Sermon No. 534 - Delivered on Sunday Morning, October 11th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The exceeding greatness of His power to us-ward who believe, according to the working of His mighty power, which He worked in Christ, when He raised Him from the dead and set Him at His own right hand in the hea venly places, far above all principality and power and might and dominion and every name that is named, not only in this world, but also in that which is to come. And has put all things under His feet and gave Him to be the head over all things to the Church, which is His body, the fullness of Him that fills all in all."  
 > Ephesians 1:19-23.  

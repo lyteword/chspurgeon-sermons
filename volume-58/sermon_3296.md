@@ -1,6 +1,5 @@
 # Sermon 3296 | Praise for Jesus
 
-(No. 3296)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 4, 1912.
 

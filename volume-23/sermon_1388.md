@@ -1,6 +1,5 @@
 # Sermon 1388 | Jesus Christ Himself
 
-(No. 1388)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 9, 1877,
 

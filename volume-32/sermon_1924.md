@@ -1,6 +1,5 @@
 # Sermon 1924 | A Cheering Incident at Bethabara
 
-(No. 1924)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10, 1886,
 

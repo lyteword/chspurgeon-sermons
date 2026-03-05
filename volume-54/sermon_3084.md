@@ -1,6 +1,5 @@
 # Sermon 3084 | Paul's Parenthesis
 
-(No. 3084)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 19, 1908.
 

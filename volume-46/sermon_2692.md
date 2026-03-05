@@ -1,6 +1,5 @@
 # Sermon 2692 | Church Increase
 
-(No. 2692)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 16, 1900.
 

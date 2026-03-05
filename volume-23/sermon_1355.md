@@ -1,6 +1,5 @@
 # Sermon 1355 | Our Lord's Question to the Blind Men
 
-(No. 1355)
 
 DELIVERED ON LORD'S-DAY EVENING, MAY 13, 1877,
 

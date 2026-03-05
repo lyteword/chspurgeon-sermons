@@ -1,6 +1,5 @@
 # Sermon 3089 | A Sermon on a Grand Old Text
 
-(No. 3089)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 23, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 746 | The End of the Righteous Desired
 
-Sermon No. 746 - Delivered on Lord's-day Morning, APRIL 21, 1867 the REV. C.H. SPURGEON at the Agricultural Hall, Newington.
 A sermon
 
 "Let me die the death of the righteous, and let my last end be like his."- Numbers 23:10.

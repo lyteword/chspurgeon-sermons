@@ -1,6 +1,5 @@
 # Sermon 2656 | The Death of Christ for His People
 
-(No. 2656)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 7, 1900.
 

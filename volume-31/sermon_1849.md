@@ -1,6 +1,5 @@
 # Sermon 1849 | Coming Judgment of the Secrets of Men
 
-Sermon No. 1849 - Delivered on Lord's Day Morning, July 12th, 1885 the REV. C.H. SPURGEON at the [13]Metropolitan Tabernacle, Newington.
 
 > "The day when God shall judge the secrets of men by Jesus Christ according to my gospel."  
 > Romans 2:16.  

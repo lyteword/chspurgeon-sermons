@@ -1,6 +1,5 @@
 # Sermon 2499 | Christopathy
 
-(No. 2499)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 10, 1897.
 

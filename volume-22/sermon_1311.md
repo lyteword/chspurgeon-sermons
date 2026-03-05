@@ -1,6 +1,5 @@
 # Sermon 1311 | God of the Hills and God of the Valleys
 
-(No. 1311)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 27, 1876,
 

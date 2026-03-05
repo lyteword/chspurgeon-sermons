@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 550)
 
 Delivered on Sunday Evening, November 8th, 1863, on the
 

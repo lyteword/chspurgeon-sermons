@@ -1,6 +1,5 @@
 # Sermon 814 | Life by Faith
 
-A Sermon (No. 814)
 
 Delivered on Sunday Morning, June 7, 1868, by C. H. SPURGEON, at the [24]Metropolitan Tabernacle, Newington.
 

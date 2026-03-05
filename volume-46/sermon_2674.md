@@ -1,6 +1,5 @@
 # Sermon 2674 | Learning in Private What to Teach in Public
 
-(No. 2674)
 
 INTENDED FOR READING ON LORD'S-DAY, MAY 13, 1900.
 

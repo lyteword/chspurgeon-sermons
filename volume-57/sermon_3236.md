@@ -1,6 +1,5 @@
 # Sermon 3236 | The Gospel Cordial
 
-(No. 3236)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 9, 1911.
 

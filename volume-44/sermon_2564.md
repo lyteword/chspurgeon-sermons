@@ -1,6 +1,5 @@
 # Sermon 2564 | Strange Ways of Love
 
-(No. 2564)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, ARPIL 3, 1898.
 

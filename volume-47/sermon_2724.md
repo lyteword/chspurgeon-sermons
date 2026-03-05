@@ -1,6 +1,5 @@
 # Sermon 2724 | The Dew of Christ's Youth
 
-(No. 2724)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 28, 1901.
 

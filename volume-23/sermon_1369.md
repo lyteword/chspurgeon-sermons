@@ -1,6 +1,5 @@
 # Sermon 1369 | Proclamation of Acceptance and Vengeance
 
-(No. 1369)
 
 DELIVERED ON LORD'S DAY MORNING, AUGUST 12, 1877,
 

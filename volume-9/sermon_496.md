@@ -1,6 +1,5 @@
 # Sermon 496 | The New Song
 
-Sermon No. 496 - Delivered on Sunday Evening, December 28th, 1862, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "O sing unto the Lord a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory."  
 > Psalm 98:1.  

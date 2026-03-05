@@ -1,6 +1,5 @@
 # Sermon 1316 | Why the Heavenly Robes are White
 
-(No. 1316)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 24, 1876,
 

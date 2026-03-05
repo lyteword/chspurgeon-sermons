@@ -1,6 +1,5 @@
 # Sermon 3401 | Sharing Christ's Life
 
-(No. 3401)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 9, 1914.
 

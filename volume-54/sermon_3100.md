@@ -1,6 +1,5 @@
 # Sermon 3100 | Homage Offered to the Great King
 
-(No. 3100)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 9, 1908.
 

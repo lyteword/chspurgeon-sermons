@@ -1,6 +1,5 @@
 # Sermon 553 | Election no Discouragement to Seeking Souls
 
-Sermon No. 553 - Delivered on Sunday Morning, February 7th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I will be gracious upon whom I will be gracious, and will show mercy upon whom I will show mercy."  
 > Exodus 33:19.  

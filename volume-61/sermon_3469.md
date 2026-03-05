@@ -1,6 +1,5 @@
 # Sermon 3469 | Martha and Mary
 
-(No. 3469)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 29, 1915.
 

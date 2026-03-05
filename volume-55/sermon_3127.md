@@ -1,6 +1,5 @@
 # Sermon 3127 | A Promise and Precedent
 
-(No. 3127)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 1753 | Blessed Promises For Dying Outcasts
 
-(No. 1753)
 
 DELIVERED ON LORD'S-DAY MORNING, DECEMBER 2, 1883,
 

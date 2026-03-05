@@ -1,6 +1,5 @@
 # Sermon 585 | A Mystery! Saints Sorrowing and Jesus Glad!
 
-Sermon No. 585 - Delivered on Sunday Morning, August 7th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Then said Jesus unto them plainly, Lazarus is dead. And I am glad for your sakes that I was not there, to the intent ye may believe; nevertheless let us go unto him"  
 > John 11:14-15.  

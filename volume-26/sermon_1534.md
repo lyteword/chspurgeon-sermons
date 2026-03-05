@@ -1,6 +1,5 @@
 # Sermon 1534 | Salvation By Works, A Criminal Doctrine
 
-(No. 1534)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 18, 1880,
 

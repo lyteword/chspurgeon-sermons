@@ -1,6 +1,5 @@
 # Sermon 2261 | One Worker Preparing For Another
 
-(No. 2261)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 19, 1892.
 

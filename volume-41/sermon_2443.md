@@ -1,6 +1,5 @@
 # Sermon 2443 | The Determination of Christ to Suffer for His People
 
-(No. 2443)
 
 INTENDED FOR READING ON LORD'S DAY, DECEMBER 15, 1895.
 

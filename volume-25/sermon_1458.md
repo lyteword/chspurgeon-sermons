@@ -1,6 +1,5 @@
 # Sermon 1458 | A Sermon Upon One Nothing by Another Nothing
 
-(No. 1458)
 
 DELIVERED BY
 

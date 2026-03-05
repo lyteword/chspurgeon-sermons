@@ -1,6 +1,5 @@
 # Sermon 3478 | Go Back? Never!
 
-(No. 3478)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 30, 1915.
 

@@ -1,6 +1,5 @@
 # Sermon 1063 | Moses' Decision
 
-(No. 1063)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 28, 1872,
 

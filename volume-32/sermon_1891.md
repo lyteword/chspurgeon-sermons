@@ -1,6 +1,5 @@
 # Sermon 1891 | The Sermon of the Seasons
 
-Sermon No. 1891 - Delivered on Lord's-day Morning, March 14th, 1886 the REV. C.H. SPURGEON at [4]the Metropolitan Tabernacle, Newington.
 
 > "While the earth remaineth, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease."  
 > Genesis 8:22.  

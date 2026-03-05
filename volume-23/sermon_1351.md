@@ -1,6 +1,5 @@
 # Sermon 1351 | The Divine Call for Missionaries
 
-(No. 1351)
 
 DELIVERED ON LORD'S-DAY MORNING APRIL 22, 1877,
 

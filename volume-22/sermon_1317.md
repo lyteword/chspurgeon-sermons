@@ -1,6 +1,5 @@
 # Sermon 1317 | Overcome Evil With Good
 
-(No. 1317)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 8, 1876,
 

@@ -1,6 +1,5 @@
 # Sermon 1818 | The Song of a City, and the Pearl of Peace
 
-Sermon No. 1818 - Delivered on Lord's Day Morning, January 4th, 1885 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
 
 > "Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee."  
 > Isaiah 26:3  

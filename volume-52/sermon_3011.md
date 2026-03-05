@@ -1,6 +1,5 @@
 # Sermon 3011 | Faith First, Confession Following
 
-(No. 3011)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 25, 1906.
 

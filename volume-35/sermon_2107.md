@@ -1,6 +1,5 @@
 # Sermon 2107 | The Withered Fig Tree
 
-Sermon No. 2107 - Delivered on Lord's-day Morning, September 29th, 1889 the REV. C.H. SPURGEON at the [7]Metropolitan Tabernacle, Newington.
 
 > "And he left them, and went out of the city into Bethany; and he lodged there. Now in the morning as he returned into the city, he hungered. And when he saw a fig tree in the way, he came to it, and found nothing thereon, but leaves only, and said unto it, Let no fruit grow on thee henceforward for ever. And presently the fig tree withered away. And when the disciples saw it, they marvelled, saying, How soon is the fig tree withered away!"'Matthew 21:17-20.  
 > "And he left them, and went out of the city into Bethany; and he lodged there. Now in the morning as he returned into the city, he hungered. And when he saw a fig tree in the way, he came to it, and found nothing thereon, but leaves only, and said unto it, Let no fruit grow on thee henceforward for ever. And presently the fig tree withered away. And when the disciples saw it, they marvelled, saying, How soon is the fig tree withered away!"'Matthew 21:17-20.  

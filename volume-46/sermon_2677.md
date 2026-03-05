@@ -1,6 +1,5 @@
 # Sermon 2677 | Spiritual Religion
 
-(No. 2677)
 
 INTENDED FOR READING ON LORD'S-DAY, JUNE 3, 1900.
 

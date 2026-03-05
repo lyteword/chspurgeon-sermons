@@ -1,6 +1,5 @@
 # Sermon 1141 | Good News for the Destitute
 
-(No. 1141)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 9, 1873,
 

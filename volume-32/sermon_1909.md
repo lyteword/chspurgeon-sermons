@@ -1,6 +1,5 @@
 # Sermon 1909 | A Seasonable Exhortation
 
-(No. 1909)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 11, 1886,
 

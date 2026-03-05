@@ -1,6 +1,5 @@
 # Sermon 2862 | The Way of Wisdom
 
-(No. 2862)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 17, 1903.
 

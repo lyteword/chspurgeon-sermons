@@ -1,6 +1,5 @@
 # Sermon 3396 | Experiencing Confirming Testimony
 
-(No. 3396)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 5, 1914.
 

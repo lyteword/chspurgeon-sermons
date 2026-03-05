@@ -1,6 +1,5 @@
 # Sermon 1807 | A Call to the Lord's Own Flock
 
-(No. 1807)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1884,
 

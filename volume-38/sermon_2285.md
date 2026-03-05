@@ -1,6 +1,5 @@
 # Sermon 2285 | Paul, the Ready
 
-(No. 2285)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 4, 1892.
 

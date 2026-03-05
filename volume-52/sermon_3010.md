@@ -1,6 +1,5 @@
 # Sermon 3010 | Jacob's Model Prayer
 
-(No. 3010)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 18, 1906.
 

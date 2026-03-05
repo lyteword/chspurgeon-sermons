@@ -1,6 +1,5 @@
 # Sermon 589 | Jesus Meeting His Warriors
 
-Sermon No. 589 - Delivered on Sunday Morning, September 11th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 11, 1864, BY C. H. SPURGEON,
 

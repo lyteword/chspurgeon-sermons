@@ -1,6 +1,5 @@
 # Sermon 3334 | Lovely, But Lacking
 
-(No. 3334)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1912.
 

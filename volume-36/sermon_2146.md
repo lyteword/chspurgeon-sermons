@@ -1,6 +1,5 @@
 # Sermon 2146 | Joy, Joy Forever
 
-Sermon No. 2146 - Delivered on Sunday Morning, May 25th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "But let all those that put their trust in You rejoice: let them always shout for joy, because You defend them: let those also that love Your name be joyful in You."  
 > Psalm 5:11.  

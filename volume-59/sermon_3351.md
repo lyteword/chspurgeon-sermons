@@ -1,6 +1,5 @@
 # Sermon 3351 | The Queen of Sheba
 
-(No. 3351)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 24, 1913.
 

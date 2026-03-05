@@ -1,6 +1,5 @@
 # Sermon 2424 | The New Song On Earth
 
-(No. 2424)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 4, 1895.
 

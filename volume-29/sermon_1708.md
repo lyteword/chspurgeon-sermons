@@ -1,6 +1,5 @@
 # Sermon 1708 | The Holy Spirit's Threefold Conviction of Men
 
-(No. 1708)
 
 DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 25, 1883,
 

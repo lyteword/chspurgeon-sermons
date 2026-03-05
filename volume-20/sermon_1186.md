@@ -1,6 +1,5 @@
 # Sermon 1186 | The Blood of the Covenant
 
-Sermon No. 1186 - Delivered on Lord's-Day Morning, August 2nd, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Now the God of peace, that brought again from the dead our Lord Jesus, that great Shepherd of the sheep, through the blood of the everlasting covenant, make you perfect in every good work to do his will, working in you that which is well-pleasing in his sight, through Jesus Christ; to whom be glory for ever and ever. Amen.''Hebrews 13:20-21.
 

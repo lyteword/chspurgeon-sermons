@@ -1,6 +1,5 @@
 # Sermon 107 | Faith
 
-Sermon No. 107 - Delivered on Sabbath Morning, December 14, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Without faith it is impossible to please God.    
 > Hebrews 11:6.    

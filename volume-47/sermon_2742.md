@@ -1,6 +1,5 @@
 # Sermon 2742 | Question and Exclamation
 
-(No. 2742)
 
 A SERMON INTENDED FOR READING ON LORD'S-BAY, SEPTEMBER 1, 1901.
 

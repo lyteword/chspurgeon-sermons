@@ -1,6 +1,5 @@
 # Sermon 265 | The Meek and Lowly One
 
-Sermon No. 265 - Delivered on Sabbath Morning, July 31st, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart; and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.    
 > Matthew 11:28-30.    

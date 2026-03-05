@@ -1,6 +1,5 @@
 # Sermon 1675 | Out Of Egypt
 
-(No. 1675)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 20, 1882,
 

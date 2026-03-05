@@ -1,6 +1,5 @@
 # Sermon 3107 | Christ and His Table Companions
 
-(No. 3107)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 2330 | Witnessing Better Than Knowing the Future
 
-(No. 2330)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 15, 1893.
 

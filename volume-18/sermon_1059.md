@@ -1,6 +1,5 @@
 # Sermon 1059 | To The Thoughtless
 
-(No. 1059)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 7, 1872,
 

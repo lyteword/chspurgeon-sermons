@@ -1,6 +1,5 @@
 # Sermon 2430 | Christians, and Their Communion With God
 
-(No. 2430)
 
 INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 15, 1895.
 

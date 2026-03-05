@@ -1,6 +1,5 @@
 # Sermon 286 | A Woman's Memorial
 
-Sermon No. 286 - Delivered on Sabbath Morning, November 27th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Verily I say unto you, Wheresoever this gospel shall be preached in the whole world, there shall also this, that this woman hath done, be told for a memorial of her.    
 > Matthew 26:13.    

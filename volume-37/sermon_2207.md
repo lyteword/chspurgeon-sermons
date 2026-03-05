@@ -1,6 +1,5 @@
 # Sermon 2207 | Redemption Through Blood--The Gracious Forgiveness Of Sins
 
-(No. 2207)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 7, 1891,
 

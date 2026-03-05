@@ -1,6 +1,5 @@
 # Sermon 1396 | Reasons for Turning to the Lord
 
-(No. 1396)
 
 DELIVERED ON LORD'S-DAY EVENING, JANUARY 13, 1878,
 

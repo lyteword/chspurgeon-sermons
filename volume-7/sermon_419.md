@@ -1,6 +1,5 @@
 # Sermon 419 | The Roaring Lion
 
-Sermon No. 419 - Delivered on Sunday Morning, May 17th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Be sober, be vigilant, because your adversary the devil, as a roaring lion, walks about, seeking whom he may devour: whom resist steadfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world."  
 > 1 Peter 5:8,9.  

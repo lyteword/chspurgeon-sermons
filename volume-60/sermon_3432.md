@@ -1,6 +1,5 @@
 # Sermon 3432 | "The Zeal of the Lord"
 
-(No. 3432)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1914.
 

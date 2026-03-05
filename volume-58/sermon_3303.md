@@ -1,6 +1,5 @@
 # Sermon 3303 | A Very Early Bible Society
 
-(No. 3303)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 23, 1912.
 

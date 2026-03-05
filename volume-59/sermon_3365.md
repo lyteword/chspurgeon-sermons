@@ -1,6 +1,5 @@
 # Sermon 3365 | Pictures of Happiness
 
-(No. 3365)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 31, 1913.
 

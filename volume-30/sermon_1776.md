@@ -1,6 +1,5 @@
 # Sermon 1776 | Unbinding Lazarus
 
-(No. 1776)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 20, 1884,
 

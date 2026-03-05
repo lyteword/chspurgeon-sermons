@@ -1,6 +1,5 @@
 # Sermon 364 | The Shulamite's Choice Prayer
 
-Sermon No. 364 - Delivered on Sabbath Evening, February 24th, 1861, by the REV. C.H. SPURGEON at New Park Street, Southwark.
 
 > "Set me as a seal upon Your heart, as a seal upon Your arm: for love is strong as death; jealousy is cruel as the grave: its flames are flames of fire, a most vehement flame. Many waters cannot quench Your love, nor can the floods drown it."  
 > Song of Solomon 8:6,7.  

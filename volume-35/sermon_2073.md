@@ -1,6 +1,5 @@
 # Sermon 2073 | Two Essential Things
 
-Sermon No. 2073 - Delivered on Lord's-day Morning, March 3rd the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
 
 > "Testifying both to the Jews, and also to the Greeks, repentance toward God, and faith toward our Lord Jesus Christ."'Acts 20:21  
 > "Testifying both to the Jews, and also to the Greeks, repentance toward God, and faith toward our Lord Jesus Christ."'Acts 20:21  

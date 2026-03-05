@@ -1,6 +1,5 @@
 # Sermon 721 | The Last Enemy Destroyed
 
-Sermon No. 721 - Delivered on Sunday Morning, November 18th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The last enemy that shall be destroyed is death."  
 > 1 Corinthians 15:26.  

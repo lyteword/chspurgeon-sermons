@@ -1,6 +1,5 @@
 # Sermon 2948 | Stephen and Saul
 
-(No. 2948)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1905.
 

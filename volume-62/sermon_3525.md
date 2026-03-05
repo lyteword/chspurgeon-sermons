@@ -1,6 +1,5 @@
 # Sermon 3525 | God's Overtaking Mercy
 
-(No. 3525)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1916.
 

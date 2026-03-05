@@ -1,6 +1,5 @@
 # Sermon 2345 | Moses' Dying Charge to Israel
 
-(No. 2345)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 28, 1894.
 

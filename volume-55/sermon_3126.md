@@ -1,6 +1,5 @@
 # Sermon 3126 | Pictures of Life
 
-(No. 3126)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 7, 1909.
 

@@ -1,6 +1,5 @@
 # Sermon 3119 | Mistakes Concerning God
 
-(No. 3119)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 1137 | To Sunday School Teachers And Other Soul-winners
 
-(No. 1137)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 19, 1873,
 

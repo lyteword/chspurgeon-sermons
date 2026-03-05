@@ -1,6 +1,5 @@
 # Sermon 1594 | The Candle
 
-(No. 1594)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 24, 1881,
 

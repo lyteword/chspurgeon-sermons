@@ -1,6 +1,5 @@
 # Sermon 2713 | Walking in the Light of the Lord
 
-(No. 2713)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 10, 1901.
 

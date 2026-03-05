@@ -1,6 +1,5 @@
 # Sermon 1171 | The Lord Chiding His People
 
-(No. 1171)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 3, 1874, BY
 

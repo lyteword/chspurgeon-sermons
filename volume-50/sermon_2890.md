@@ -1,6 +1,5 @@
 # Sermon 2890 | Unbelievers Upbraided
 
-(No. 2890)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1904.
 

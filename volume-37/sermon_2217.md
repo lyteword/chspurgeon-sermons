@@ -1,6 +1,5 @@
 # Sermon 2217 | Three Names High on the Muster Roll
 
-(No. 2217)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 16, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 3562 | Peter Walking on the Sea
 
-(No. 3562)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 3, 1917.
 

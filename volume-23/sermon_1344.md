@@ -1,6 +1,5 @@
 # Sermon 1344 | The Student's Prayer
 
-(No. 1344)
 
 DELIVERED BY
 

@@ -1,6 +1,5 @@
 # Sermon 1129 | The Heart Of Flesh
 
-(No. 1129)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 31, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 1944 | Might Have Been, or May Be
 
-Sermon No. 1944 - Delivered on Sunday Afternoon, January 30th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And some of them said, Couldnot thisMan, which opened the eyes ofthe blind, have caused that even this man should not have died?"  
 > John 11:37.  

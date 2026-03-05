@@ -1,6 +1,5 @@
 # Sermon 222 | The Christian's Heaviness and Rejoicing
 
-Sermon No. 222 - Delivered on Sabbath Morning, November 7th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations.    
 > 1 Peter 1:6.    

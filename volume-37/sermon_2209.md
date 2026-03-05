@@ -1,6 +1,5 @@
 # Sermon 2209 | The Best Strengthening Medicine
 
-(No. 2209)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1891,
 

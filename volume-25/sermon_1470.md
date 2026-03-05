@@ -1,6 +1,5 @@
 # Sermon 1470 | A Question for Hard-hearted Hearers
 
-(No. 1470)
 
 DELIVERED BY
 

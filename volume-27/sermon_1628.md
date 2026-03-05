@@ -1,6 +1,5 @@
 # Sermon 1628 | Till We Meet Again
 
-(No. 1628)
 
 DELIVERED BY
 

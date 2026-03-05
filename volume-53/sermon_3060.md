@@ -1,6 +1,5 @@
 # Sermon 3060 | The Good Shepherd
 
-(No. 3060)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 3, 1907.
 

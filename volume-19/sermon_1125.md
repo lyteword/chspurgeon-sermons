@@ -1,6 +1,5 @@
 # Sermon 1125 | The World On Fire
 
-(No. 1125)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 3, 1873,
 

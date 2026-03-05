@@ -1,6 +1,5 @@
 # Sermon 2978 | Power With God
 
-(No. 2978)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 8TH, 1906.
 

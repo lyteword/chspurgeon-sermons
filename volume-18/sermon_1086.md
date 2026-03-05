@@ -1,6 +1,5 @@
 # Sermon 1086 | Jesus, The King of Truth
 
-(No. 1086)
 
 A SERMON DELIVERED ON THURSDAY EVENING, DECEMBER 19, 1872,
 

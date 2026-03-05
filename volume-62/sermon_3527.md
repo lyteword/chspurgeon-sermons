@@ -1,6 +1,5 @@
 # Sermon 3527 | The Divided Heart
 
-(No. 3527)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1916,
 

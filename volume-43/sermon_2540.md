@@ -1,6 +1,5 @@
 # Sermon 2540 | Declaring the Works of the Lord
 
-(No. 2540)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 24, 1897.
 

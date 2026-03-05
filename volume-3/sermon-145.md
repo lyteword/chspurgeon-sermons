@@ -1,6 +1,5 @@
 # Sermon 145 | Love Thy Neighbour
 
-Sermon No. 145 - Delivered on Sabbath Morning, August 9th, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Thou shalt love thy neighbour as thyself    
 > Matthew 19:19.    

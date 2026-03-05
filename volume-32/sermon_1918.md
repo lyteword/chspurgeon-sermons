@@ -1,6 +1,5 @@
 # Sermon 1918 | The Abiding of the Spirit the Glory of the Church
 
-Sermon No. 1918 - Delivered on Lord's-day Morning, September 5th, 1886 the REV. C.H. SPURGEON at the [11]Metropolitan Tabernacle, Newington.
 
 > "Yet now be strong, O Zerubbabel, saith the Lord; and be strong, O Joshua, son of Josedech, the high priest; and be strong, all ye people of the land, saith the Lord, and work: for I am with you, saith the Lord of hosts: according to the word that I covenanted with you when ye came out of Egypt, so my spirit remaineth among you: fear ye not."  
 > Haggai 2:4-5.  

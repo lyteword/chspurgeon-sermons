@@ -1,6 +1,5 @@
 # Sermon 2574 | "Persecuted, But Not Forsaken"
 
-(No. 2574)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 12, 1898.
 

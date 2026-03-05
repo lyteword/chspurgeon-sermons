@@ -1,6 +1,5 @@
 # Sermon 2787 | Christ's Triple Character
 
-(No. 2787)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 13, 1902.
 

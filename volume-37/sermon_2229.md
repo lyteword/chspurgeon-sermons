@@ -1,6 +1,5 @@
 # Sermon 2229 | God's Glorious and Everlasting Name
 
-(No. 2229)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 8, 1891,
 

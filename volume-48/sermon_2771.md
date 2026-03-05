@@ -1,6 +1,5 @@
 # Sermon 2771 | Peter's Fall and Restoration
 
-(No. 2771)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 23, 1902.
 

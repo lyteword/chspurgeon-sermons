@@ -1,6 +1,5 @@
 # Sermon 2183 | A Gracious Dismissal
 
-(No. 2183)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 11, 1891,
 

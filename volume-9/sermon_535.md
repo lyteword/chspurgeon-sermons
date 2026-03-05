@@ -1,6 +1,5 @@
 # Sermon 535 | Ben-Hadad's Escape--An Encouragement For Sinners
 
-Sermon No. 535 - Delivered on Sunday Evening, October 11th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And his servants said unto him, behold now, we have heard that the kings of the house of Israel are merciful kings: let us, I pray you, put sackcloth on our loins and ropes upon our heads and go out to the king of Israel: perhaps he will save your life. So they girded sackcloth on their loins and put ropes on their heads and came to the king of Israel and said, your servant Ben-Hadad says, I pray you, let me live. And he said, is he yet alive? He is my brother. Now the men did diligently observe whether anything would come from him and did hastily catch it: and they said, your brother Ben-Hadad. Then he said, go you, bring him. Then Ben-Hadad came forth to him. And he caused him to come up into the chariot. And Ben-Hadad said unto him, the cities, which my father took from your father, I will restore. And you shall make streets for you in Damascus, as my father made in Samaria. Then said Ahab, I will send you away with this covenant. So he made a covenant with him and sent him away."  
 > 1 Kings 20:31-34.  

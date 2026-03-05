@@ -1,6 +1,5 @@
 # Sermon 326 | Everywhere And Yet Forgotten
 
-Sermon No. 326 - Delivered on Sabbath Evening, July 29th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Who knows not in all these that tie hand of the Lord has worked this? In whose hand is the soul of every living thing and the breath of all mankind.    
 > Job 12:9,10.    

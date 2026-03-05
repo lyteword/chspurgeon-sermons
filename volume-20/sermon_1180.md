@@ -1,6 +1,5 @@
 # Sermon 1180 | Jesus Near but Unrecognized
 
-(No. 1180)
 
 A SERMON DELIVERED BY
 

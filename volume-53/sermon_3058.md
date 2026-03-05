@@ -1,6 +1,5 @@
 # Sermon 3058 | The Joy of Harvest
 
-(No. 3058)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 19, 1907.
 

@@ -1,6 +1,5 @@
 # Sermon 739 | The Sin Offering
 
-Sermon No. 739 - Delivered on Lord's-day Morning, MARCH 10, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "If the anointed priest sins, bringing guilt on the people; then let him bring for his sin, which he has sinned, a young bull without blemish unto the Lord for a sin offering."- Leviticus 4:3.

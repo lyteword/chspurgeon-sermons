@@ -1,6 +1,5 @@
 # Sermon 2192 | The Joyous Return
 
-(No. 2192)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 1, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 2222 | Lydia, the First European Convert
 
-(No. 2222)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 20, 1891,
 

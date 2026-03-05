@@ -1,6 +1,5 @@
 # Sermon 740 | Stephen's Martyrdom
 
-Sermon No. 740 - Delivered on Lord's-day Morning, MARCH 17, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "But he, being full of the Holy Spirit, looked up steadfastly into Heaven, and saw the glory of God, and Jesus standing at the right hand of God, and said, Behold, I see the heavens opened, and the Son of Man standing at the right hand of God."- Acts 7:55,56.

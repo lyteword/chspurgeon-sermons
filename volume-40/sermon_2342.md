@@ -1,6 +1,5 @@
 # Sermon 2342 | A New Year's Retrospect And Prospect
 
-(No. 2342)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 7, 1894.
 

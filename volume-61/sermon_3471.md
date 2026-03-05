@@ -1,6 +1,5 @@
 # Sermon 3471 | The Three Hours' Darkness
 
-(No. 3471)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 12, 1915.
 

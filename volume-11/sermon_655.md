@@ -1,6 +1,5 @@
 # Sermon 655 | The Great Itinerant
 
-Sermon No. 655 - Delivered on Sunday Morning, October 22nd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > Who went about doing good.    
 > Acts 10:38.    

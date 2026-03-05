@@ -1,6 +1,5 @@
 # Sermon 2547 | "Return! Return!"
 
-(No. 2547)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 12, 1897,
 

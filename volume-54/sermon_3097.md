@@ -1,6 +1,5 @@
 # Sermon 3097 | A Suitable Watchword
 
-(No. 3097)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 18, 1908.
 

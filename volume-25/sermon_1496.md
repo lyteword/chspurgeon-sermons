@@ -1,6 +1,5 @@
 # Sermon 1496 | Among Lions
 
-(No. 1496)
 
 DELIVERED ON THURSDAY EVENING, SEPTEMBER 4, 1879,
 

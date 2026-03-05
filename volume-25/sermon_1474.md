@@ -1,6 +1,5 @@
 # Sermon 1474 | The Middle Passage
 
-(No. 1474)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1879,
 

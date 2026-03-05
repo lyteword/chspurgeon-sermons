@@ -1,6 +1,5 @@
 # Sermon 1264 | The Man of One Subject
 
-(No. 1264)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 31, 1875,
 

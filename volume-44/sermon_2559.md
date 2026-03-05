@@ -1,6 +1,5 @@
 # Sermon 2559 | Co-workers With God
 
-(No. 2559)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 6, 1898.
 

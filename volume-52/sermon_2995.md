@@ -1,6 +1,5 @@
 # Sermon 2995 | Very Singular
 
-(No. 2995)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 5, 1906.
 

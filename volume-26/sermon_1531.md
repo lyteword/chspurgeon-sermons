@@ -1,6 +1,5 @@
 # Sermon 1531 | On Whose Side Are You?
 
-(No. 1531)
 
 DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1880,
 

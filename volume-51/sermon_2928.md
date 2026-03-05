@@ -1,6 +1,5 @@
 # Sermon 2928 | Sham Conversion
 
-(No. 2928)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 23, 1905.
 

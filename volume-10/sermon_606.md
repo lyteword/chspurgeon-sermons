@@ -1,6 +1,5 @@
 # Sermon 606 | Mary's Song
 
-Sermon No. 606 - Delivered on Sunday Morning, December 25th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savior.'"  
 > Luke 1:46, 47.  

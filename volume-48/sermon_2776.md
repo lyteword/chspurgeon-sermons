@@ -1,6 +1,5 @@
 # Sermon 2776 | The Church a Mother
 
-(No. 2776)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 27, 1902.
 

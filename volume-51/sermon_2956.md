@@ -1,6 +1,5 @@
 # Sermon 2956 | A Handkerchief
 
-(No. 2956)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1905.
 

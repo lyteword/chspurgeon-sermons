@@ -1,6 +1,5 @@
 # Sermon 3454 | Circumcision and Uncircumcision
 
-(No. 3454)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 15, 1915.
 

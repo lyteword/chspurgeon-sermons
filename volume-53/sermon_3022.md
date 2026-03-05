@@ -1,6 +1,5 @@
 # Sermon 3022 | God's Innumerable Mercies
 
-(No. 3022)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 10, 1907.
 
@@ -173,7 +172,6 @@ Volume 53 www.spurgeongems.org 7
 
 works and my evil works from one another, but I have found the task too great for me--so I have thrown them all overboard and now I will float to Heaven upon the righteousness of Jesus Christ alone."
 
-O God, You have taught me from my youth: and until now have I declared Your wondrous works. [Mr. Spurgeon delivered a remarkable discourse upon this text, illustrating the theme from his own early experience. See Sermon No. 2318, Volume 39-- GOD'S PUPIL, GOD'S PREACHER--AN AUTOBIOGRAPHY--Read/download the entire sermon, free of charge, at http://www.spurgeongems.org. ] I pray very earnestly for you young people, and I beg you to pray for yourselves, that you may have the great privilege of being able to say with the Psalmist, "O God, You have taught me from my youth." They make good scholars who go to school early and keep at school long--and have such a blessed Schoolmaster as the Psalmist had--"O God, You have taught me." David's mother taught him much that was good, but it was still better for him to have God as his Teacher. Then, after being a scholar, he became a pupil-teacher. He still went on learning, but he also began to teach--"Until now have I declared Your wondrous works." All God's scholars ought to be pupil-teachers, always learning more and more from Him, and then teaching others all that they learn.
 
 Now also when I am old and gray-headed, O God, forsake me not; until I have shown Your strength unto this generation, and Your power to everyone that is to come. Old men ought to tell younger men what God has done for them. There is great weight in the testimony of a godly man of ripe experience. Full of years, he speaks of what he knows, and testifies of what he has seen, tasted and handled of the Truth of God. We need many a Nestor in the camp of Christ, whose valor in former times and whose experience in days of battling for the right may inspire with valor the younger men to whom he speaks!
 

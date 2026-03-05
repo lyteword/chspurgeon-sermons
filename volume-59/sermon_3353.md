@@ -1,6 +1,5 @@
 # Sermon 3353 | The Great Teacher and Remembrancer
 
-(No. 3353)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 8, 1913.
 

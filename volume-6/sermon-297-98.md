@@ -1,6 +1,5 @@
 # Sermon 297-98 | Mr. Evil-Questioning Tried and Executed
 
-Sermon No. 297-98 - Delivered on Sabbath Morning, February 5th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Are not Abana and Pharpar, rivers of Damascus, better than all the waters of Israel? may I not wash in them, and be clean?    
 > 2 Kings 5:12.    

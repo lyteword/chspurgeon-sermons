@@ -1,6 +1,5 @@
 # Sermon 1802 | Thought-Reading Extraordinary
 
-(No. 1802)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1884,
 

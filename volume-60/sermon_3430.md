@@ -1,6 +1,5 @@
 # Sermon 3430 | Chiding and Cheering
 
-(No. 3430)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1914.
 

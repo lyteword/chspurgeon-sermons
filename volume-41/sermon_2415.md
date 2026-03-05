@@ -1,6 +1,5 @@
 # Sermon 2415 | The Believer's Heritage of Joy
 
-(No. 2415)
 
 INTENDED FOR READING ON LORD'S DAY, JUNE 2, 1895.
 

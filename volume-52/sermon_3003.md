@@ -1,6 +1,5 @@
 # Sermon 3003 | A Vivid Contrast
 
-(No. 3003)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 30, 1906.
 

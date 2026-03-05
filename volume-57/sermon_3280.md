@@ -1,6 +1,5 @@
 # Sermon 3280 | Christ's Prayer and Plea
 
-(No. 3280)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1911.
 

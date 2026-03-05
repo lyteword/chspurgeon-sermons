@@ -1,6 +1,5 @@
 # Sermon 2832 | Christ's Yoke and Burden
 
-(No. 2832)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 24, 1903.
 

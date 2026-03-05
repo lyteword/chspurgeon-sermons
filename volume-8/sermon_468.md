@@ -1,6 +1,5 @@
 # Sermon 468 | Ezekiel's Deserted Infant
 
-Sermon No. 468 - Delivered on Sunday Morning, September 7th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "None eye pitied you, to do any of these unto you, to ha ve compassion upon you. But you were cast out into the open field to the loathing of your person, in the day that you were born. And when I passed by you and saw you polluted in your own blood, I said unto you when you were in your blood, Live; yes, I said unto you when you were in your blood, Live."  
 > Ezekiel 16:5, 6.  

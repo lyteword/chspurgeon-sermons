@@ -1,6 +1,5 @@
 # Sermon 2962 | Diamond Hinges--"as" and "so"
 
-(No. 2962)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1905.
 

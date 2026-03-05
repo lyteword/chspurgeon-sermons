@@ -1,6 +1,5 @@
 # Sermon 1193 | Girding on the Harness
 
-(No. 1193)
 
 A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 6, 1874,
 

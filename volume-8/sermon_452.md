@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 452)
 
 Delivered on Sunday Evening April 27th, 1862, by
 
@@ -34,7 +33,6 @@ But that wonder is totally eclipsed by another, namely, that God should love suc
 
 O God, how is it that You could have chosen the debased, depraved, rebellious, hard-hearted creature called man? Why did You look upon such an one and bring him into Your favor? What is man, that You are mindful of him, or the son of man that You visit him? This enquiry we cannot answer and therefore, no more curious to solve this mystery, we will weave it into our everlasting song, and we will sing of Your Sovereign Grace before Your throne forever. 'Twas of Your Divine Grace, of Your own will and good pleasure, that You have lifted us up from the dunghill and made us to sit among princes.
 
-It is not for us to know why the Lord has His people so highly in estimation, for we cannot search to the bottom of this Divine mystery. But, Brethren, God's love, which at first came to [See No. 447 Metropolitan Tabernacle Pulpit] us freely, has so ennobled us in Christ, that God's present esteem of us in Jesus is not without reason and justification. Love without cause has now imparted and imputed such loveliness to its objects, that in Christ they are fitting subjects for love's embrace.
 
 Know you not that the saints are the masterpieces of His workmanship? God has shown His wisdom in balancing the clouds and guiding the stars in their orbits. Infinite wisdom is discoverable in every flower and in every living thing. But the wisdom and the skill of God are far more clearly to be seen in the Believer than in any other work of the Divine hand. Man, born the first time, was fearfully and wonderfully made, but newly-created and regenerated, he is far more full of marvels than he was before.
 

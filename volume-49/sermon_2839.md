@@ -1,6 +1,5 @@
 # Sermon 2839 | "Prisoners of Hope"
 
-(No. 2839)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 12, 1903.
 

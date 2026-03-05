@@ -1,6 +1,5 @@
 # Sermon 2861 | "The Time Is Short"
 
-(No. 2861)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1903.
 

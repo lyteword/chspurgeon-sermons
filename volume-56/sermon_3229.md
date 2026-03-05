@@ -1,6 +1,5 @@
 # Sermon 3229 | The Royal Savior
 
-(No. 3229)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 22, 1910.
 

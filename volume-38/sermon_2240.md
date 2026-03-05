@@ -1,6 +1,5 @@
 # Sermon 2240 | A Challenge and a Shield
 
-(No. 2240)
 
 INTENDED FOR READING ON LORD'S-DAY, JANUARY 24, 1892,
 

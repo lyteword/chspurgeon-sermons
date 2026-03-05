@@ -1,6 +1,5 @@
 # Sermon 1683 | The Great Cross-bearer and His Followers
 
-(No. 1683)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 8, 1882,
 

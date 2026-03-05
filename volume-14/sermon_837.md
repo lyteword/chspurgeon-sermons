@@ -1,6 +1,5 @@
 # Sermon 837 | "All These Things"--A Sermon with Three Texts
 
-A Sermon (No. 837)
 
 Delivered on Sunday Morning, October 18, 1868, by C. H. SPURGEON, at the [46]Metropolitan Tabernacle, Newington.
 

@@ -1,6 +1,5 @@
 # Sermon 1139 | The Minister's Plea
 
-(No. 1139)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1873,
 

@@ -1,6 +1,5 @@
 # Sermon 3263 | Intelligent Obedience
 
-(No. 3263)
 
 A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1911.
 

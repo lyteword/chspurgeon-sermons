@@ -1,6 +1,5 @@
 # Sermon 1132 | The Seed Upon Stony Ground
 
-(No. 1132)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 14, 1873,
 

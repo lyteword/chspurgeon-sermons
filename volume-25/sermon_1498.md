@@ -1,6 +1,5 @@
 # Sermon 1498 | Mistrust of God Deplored and Denounced
 
-(No. 1498)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1879,
 

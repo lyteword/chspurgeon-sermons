@@ -1,6 +1,5 @@
 # Sermon 945 | Ripe Fruit
 
-(No. 945)
 
 DELIVERED ON LORD'S-DAY MORNING, AUGUST 14, 1870,
 

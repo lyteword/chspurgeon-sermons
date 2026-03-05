@@ -1,6 +1,5 @@
 # Sermon 96 | The Christian, A Debtor
 
-Sermon No. 96 - Delivered on Sabbath Evening, August 10, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > Therefore, brethren, we are debtors.    
 > Romans 8:12.    

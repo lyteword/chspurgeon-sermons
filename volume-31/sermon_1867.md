@@ -1,6 +1,5 @@
 # Sermon 1867 | Untitled Sermon
 
-(No. 1867)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 25, 1885,
 

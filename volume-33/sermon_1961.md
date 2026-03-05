@@ -1,6 +1,5 @@
 # Sermon 1961 | S. S.--or, the Sinner Saved
 
-Sermon No. 1961 - Delivered on Sunday Morning, May 1st, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "What shall we say then? That the Gentiles, which followed not after righteousness, have attained to righteousness, even the righteousness which is of faith? But Israel, which followed after the law of righteousness, has not attained to the law of righteousness. Why? Because they sought it not by faith, but as it were, by the works of the law. For they stumbled at that stumbling stone; as it is written, Behold, I lay in Zion a stumbling stone and rock of offense: and whoever believes on Him shall not be ashamed."  
 > Romans 9:30-33.  

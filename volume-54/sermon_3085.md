@@ -1,6 +1,5 @@
 # Sermon 3085 | An Exciting Enquiry
 
-(No. 3085)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 26, 1908.
 

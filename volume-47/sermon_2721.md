@@ -1,6 +1,5 @@
 # Sermon 2721 | Faith Without Sight
 
-(No. 2721)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 7, 1904.
 

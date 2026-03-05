@@ -1,6 +1,5 @@
 # Sermon 2638 | The Right Observance of the Lord's Supper
 
-(No. 2638)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3, 1899.
 

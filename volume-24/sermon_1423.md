@@ -1,6 +1,5 @@
 # Sermon 1423 | A Sacred Solo
 
-(No. 1423)
 
 DELIVERED BY
 

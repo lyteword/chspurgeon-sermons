@@ -1,6 +1,5 @@
 # Sermon 2202 | "Lo, I Come"--Exposition
 
-(No. 2202)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING. APRIL 26, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 3030 | A Consistent Walk for Time to Come
 
-(No. 3030)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 7, 1907.
 

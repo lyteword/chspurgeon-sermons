@@ -1,6 +1,5 @@
 # Sermon 1334 | Coming--Always Coming
 
-(No. 1334)
 
 DELIVERED BY
 

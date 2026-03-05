@@ -1,6 +1,5 @@
 # Sermon 3118 | What Had Become of Peter?
 
-(No. 3118)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1908.
 

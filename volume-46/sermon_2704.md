@@ -1,6 +1,5 @@
 # Sermon 2704 | "Flee From the Wrath to Come"
 
-(No. 2704)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 9, 1900.
 

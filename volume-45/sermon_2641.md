@@ -1,6 +1,5 @@
 # Sermon 2641 | God's Heart the Source of All Blessing
 
-(No. 2641)
 
 INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 24, 1899.
 

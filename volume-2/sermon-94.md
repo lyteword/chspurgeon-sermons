@@ -1,6 +1,5 @@
 # Sermon 94 | Tomorrow
 
-Sermon No. 94 - Delivered on Monday Afternoon, August 25, 1856, by the REV. C.H. SPURGEON at Maberley Chapel, Kingsland, on Behalf of the Metropolitan Benefit Societies' Asylum, Ball's Pond Road, Islington.
 
 > Boast not thyself of to-morrow; for thou knowest not what a day may bring forth.    
 > Proverbs 27:1.    

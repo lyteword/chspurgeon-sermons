@@ -1,6 +1,5 @@
 # Sermon 3410 | Christ and His Hearers
 
-(No. 3410)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 11, 1914.
 

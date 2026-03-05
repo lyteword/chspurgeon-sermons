@@ -1,6 +1,5 @@
 # Sermon 1095 | The Monster Dragged to Light
 
-(No. 1095)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 9, 1873,
 

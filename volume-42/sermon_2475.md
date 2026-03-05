@@ -1,6 +1,5 @@
 # Sermon 2475 | "My Garden"--"His Garden"
 
-(No. 2475)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 26, 1896.
 

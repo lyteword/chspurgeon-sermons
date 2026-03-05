@@ -1,6 +1,5 @@
 # Sermon 1078 | The Saints Blessing The Lord
 
-(No. 1078)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 20, 1872,
 

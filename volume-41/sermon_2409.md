@@ -1,6 +1,5 @@
 # Sermon 2409 | A Great Sermon by the Greatest Preacher
 
-(No. 2409)
 
 INTENDED FOR READING ON LORD'S DAY, APRIL 21, 1895.
 

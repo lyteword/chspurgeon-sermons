@@ -1,6 +1,5 @@
 # Sermon 444 | The Portion Of The Ungodly
 
-Sermon No. 444 - Delivered on Sunday Morning, April 13th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Behold, they shall be as stubble. The fire shall burn them. They shall not deliver themselves from the power of the flame: it shall not be a coal to be warmed by, nor a fire to sit before."  
 > Isaiah 47:14.  

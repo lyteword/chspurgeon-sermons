@@ -1,6 +1,5 @@
 # Sermon 3422 | A Call to the Depressed
 
-(No. 3422)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1914.
 

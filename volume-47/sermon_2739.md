@@ -1,6 +1,5 @@
 # Sermon 2739 | "I Have Enough"
 
-(No. 2739)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 11, 1901.
 

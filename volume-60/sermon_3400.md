@@ -1,6 +1,5 @@
 # Sermon 3400 | The Day of Atonement
 
-(No. 3400)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 2, 1914.
 

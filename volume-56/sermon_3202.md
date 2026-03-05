@@ -1,6 +1,5 @@
 # Sermon 3202 | "It Pleased God"
 
-(No. 3202)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 16, 1910.
 

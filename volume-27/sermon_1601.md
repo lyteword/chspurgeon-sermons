@@ -1,6 +1,5 @@
 # Sermon 1601 | The Judgment Seat Of God
 
-(No. 1601)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 29, 1881,
 

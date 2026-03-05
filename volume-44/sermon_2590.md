@@ -1,6 +1,5 @@
 # Sermon 2590 | Hearing, Seeking, Finding
 
-(No. 2590)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 2, 1898.
 

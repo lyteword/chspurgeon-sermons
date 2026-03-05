@@ -1,6 +1,5 @@
 # Sermon 2530 | "A Peculiar People"
 
-(No. 2530)
 
 INTENDED FOR READING ON LORD'S-DAY, AUGUST 15, 1897.
 

@@ -1,6 +1,5 @@
 # Sermon 287 | Dilemma and Deliverance
 
-Sermon No. 287 - Delivered on Sabbath Morning, December 4th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Thou, Lord, hast not forsaken them that seek thee.    
 > Psalm 9:10.    

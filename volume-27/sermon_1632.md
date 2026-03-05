@@ -1,6 +1,5 @@
 # Sermon 1632 | The Nazarene and the Sect of the Nazarenes
 
-(No. 1632)
 
 DELIVERED ON THURSDAY EVENING, JUNE 9, 1881,
 

@@ -1,6 +1,5 @@
 # Sermon 1053 | Testimony And Experience
 
-(No. 1053)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 2, 1872,
 

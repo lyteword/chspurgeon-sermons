@@ -1,6 +1,5 @@
 # Sermon 2601 | Small Things Not to Be Despised
 
-(No. 2601)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 18, 1898.
 

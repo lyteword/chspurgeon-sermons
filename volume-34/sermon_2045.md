@@ -1,6 +1,5 @@
 # Sermon 2045 | Further Afield
 
-Sermon No. 2045 - Delivered on Sunday Morning, September 23rd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Then Paul and Barnabas waxed bold and said, It was necessary that the Word of God should first have been spoken to you: but seeing you put it from you and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles. For so has the Lord commanded us, saying, I have set you to be a light of the Gentiles, that you should be for salvation unto the ends of the earth. And when the Gentiles heard this, they were glad and glorified the Word of the Lord: and as many as were ordained to eternal life believed."  
 > Acts 13:46-48.  

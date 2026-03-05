@@ -1,6 +1,5 @@
 # Sermon 731 | A Word in Season
 
-Sermon No. 731 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "When men are cast down, then you shall say, There is lifting up; and He shall save the humble person."- Job 22:29.

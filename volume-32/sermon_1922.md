@@ -1,6 +1,5 @@
 # Sermon 1922 | Concerning Death
 
-(No. 1922)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 26, 1886,
 

@@ -1,6 +1,5 @@
 # Sermon 2427 | "The Ark of His Covenant"
 
-(No. 2427)
 
 INTENDED FOR READING ON LORD'S DAY MORNING, AUGUST 25, 1895.
 

@@ -1,6 +1,5 @@
 # Sermon 1464 | A Refreshing Promise
 
-(No. 1464)
 
 BY C. H. SPURGEON.
 

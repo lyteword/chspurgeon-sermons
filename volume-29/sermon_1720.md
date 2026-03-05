@@ -1,6 +1,5 @@
 # Sermon 1720 | Christ in You
 
-(No. 1720)
 
 DELIVERED ON LORDS-DAY MORNING, MAY 13, 1883,
 

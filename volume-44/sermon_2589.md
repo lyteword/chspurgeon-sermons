@@ -1,6 +1,5 @@
 # Sermon 2589 | The Christian's Glorious Inventory
 
-(No. 2589)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 25, 1898.
 

@@ -1,6 +1,5 @@
 # Sermon 2902 | Holiness Demanded
 
-(No. 2902)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 22, 1904.
 

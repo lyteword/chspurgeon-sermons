@@ -1,6 +1,5 @@
 # Sermon 1662 | The Indwelling and Outflowing of the Holy Spirit
 
-(No. 1662)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 28, 1882,
 

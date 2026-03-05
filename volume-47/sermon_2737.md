@@ -1,6 +1,5 @@
 # Sermon 2737 | Who Should Be Baptized?
 
-(No. 2737)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 28, 1901.
 

@@ -1,6 +1,5 @@
 # Sermon 3078 | God-Guided Men
 
-(No. 3078)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 6, 1908.
 

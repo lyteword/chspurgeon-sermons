@@ -1,6 +1,5 @@
 # Sermon 3277 | Good Cheer From Christ's Call and From Himself
 
-(No. 3277)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1911.
 

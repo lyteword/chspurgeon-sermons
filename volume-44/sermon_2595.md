@@ -1,6 +1,5 @@
 # Sermon 2595 | What the Lord's Supper Sees and Says
 
-(No. 2595)
 
 A SERMON
 

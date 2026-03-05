@@ -1,6 +1,5 @@
 # Sermon 1756 | Renewing Strength
 
-(No. 1756)
 
 SUITABLE FOR THE CLOSE OF THE YEAR, DELIVERED
 

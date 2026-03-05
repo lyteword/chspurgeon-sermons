@@ -1,6 +1,5 @@
 # Sermon 1199 | The Agony in Gethsemane
 
-(No. 1199)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING. OCTOBER 18, 1874,
 

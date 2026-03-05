@@ -1,6 +1,5 @@
 # Sermon 1298 | Gathering to the Center
 
-(No. 1298)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 4, 1876,
 

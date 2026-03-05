@@ -1,6 +1,5 @@
 # Sermon 2976 | Order Is Heaven's First Law
 
-(No. 2976)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1906.
 

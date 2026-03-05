@@ -1,6 +1,5 @@
 # Sermon 2263 | Christ's Plea for Ignorant Sinners
 
-(No. 2263)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 3, 1892.
 

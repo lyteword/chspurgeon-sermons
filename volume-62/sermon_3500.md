@@ -2,7 +2,6 @@
 
 A Sermon
 
-(No. 3500)
 
 Published on Thursday, February 24th, 1916.
 

@@ -1,6 +1,5 @@
 # Sermon 2376 | "I Will," Yet, "Not As I Will"
 
-(No. 2376)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 2, 1894.
 

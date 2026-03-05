@@ -1,6 +1,5 @@
 # Sermon 2831 | Burden-bearing
 
-(No. 2831)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 17, 1903.
 

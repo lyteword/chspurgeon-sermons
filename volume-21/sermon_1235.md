@@ -1,6 +1,5 @@
 # Sermon 1235 | How A Man's Conduct Comes Home To Him
 
-(No. 1235)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 16, 1875,
 

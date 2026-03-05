@@ -1,6 +1,5 @@
 # Sermon 3399 | Good Talk
 
-(No. 3399)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 26, 1914.
 

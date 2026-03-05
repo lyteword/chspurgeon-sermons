@@ -1,6 +1,5 @@
 # Sermon 2777 | The Queen of Sheba, a Sign
 
-(No. 2777)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 4, 1902.
 

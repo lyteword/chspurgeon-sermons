@@ -1,6 +1,5 @@
 # Sermon 3056 | The Guilt and the Cleansing
 
-(No. 3056)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 5, 1907.
 

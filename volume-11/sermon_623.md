@@ -1,6 +1,5 @@
 # Sermon 623 | Satan Considering the Saints
 
-Sermon No. 623 - Delivered on Sunday Morning, April 9th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > And the Lord said unto Satan, Hast thou considered my servant Job.    
 > Job 1:8.    

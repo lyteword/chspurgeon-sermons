@@ -1,6 +1,5 @@
 # Sermon 2985 | Messages to Sinners and Saints
 
-(No. 2985)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 26, 1906.
 

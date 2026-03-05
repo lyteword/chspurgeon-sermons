@@ -1,6 +1,5 @@
 # Sermon 2792 | A Psalmist's Question and Answer
 
-(No. 2792)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 17, 1902.
 

@@ -1,6 +1,5 @@
 # Sermon 1665 | The Exceeding Riches of Grace
 
-(No. 1665)
 
 DELIVERED ON LORD'S-DAY MORNING, JUNE 18, 1882,
 

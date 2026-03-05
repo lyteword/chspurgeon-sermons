@@ -1,6 +1,5 @@
 # Sermon 3308 | Gathering in the Chosen
 
-(No. 3308)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 27, 1912.
 

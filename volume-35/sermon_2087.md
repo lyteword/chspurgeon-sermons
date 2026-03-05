@@ -1,6 +1,5 @@
 # Sermon 2087 | Grace For Grace
 
-Sermon No. 2087 - Delivered on Sunday, May 19th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Now we have received, not the spirit of the world but the spirit which is of God, that we might know the things that are freely given to us of God."  
 > 1 Corinthians 2:12.  

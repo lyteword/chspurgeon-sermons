@@ -1,6 +1,5 @@
 # Sermon 1114 | Onward!
 
-(No. 1114)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1873,
 

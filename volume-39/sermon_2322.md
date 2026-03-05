@@ -1,6 +1,5 @@
 # Sermon 2322 | When Can We Find Comforters?
 
-(No. 2322)
 
 INTENDED FOR, READING ON LORD'S-DAY, AUGUST 20, 1893.
 

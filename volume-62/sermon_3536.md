@@ -1,6 +1,5 @@
 # Sermon 3536 | A Threefold Slogan
 
-(No. 3536)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1916.
 

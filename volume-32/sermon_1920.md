@@ -1,6 +1,5 @@
 # Sermon 1920 | Believers as Blessed as the Blessed Virgin
 
-(No. 1920)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 19, 1886,
 

@@ -1,6 +1,5 @@
 # Sermon 75 | Final Perseverance
 
-Sermon No. 75 - Delivered on Sabbath Morning, March 23, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > For it is impossible for those who were once enlightened, and have tasted of the heavenly gift, and were made partakers of the Holy Ghost, And have tasted the good word of God, and the powers of the world to come, If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame.    
 > Hebrews 6:4-6.    

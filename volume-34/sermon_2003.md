@@ -1,6 +1,5 @@
 # Sermon 2003 | Young Man, Is This For You?
 
-Sermon No. 2003 - Delivered on Sunday Morning, January 15th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And it came to pass the day after, that He went into a city called Nain; and many of His disciples went with Him and much people. Now when He came near to the gate of the city, behold, there was a dead man carried out, the only son of his mother and she was a widow: and much people of the city was with her. And when the Lord saw her, He had compassion on her and said unto her, Weep not. And He came and touched the bier: and they that bare him stood stiil. And He said, Young man I say unto you, Arise. And he that was dead sat up and began to speak. And He delivered him to his mother. And there came a fear on all: and they glorified God, saying, That a great prophet is risen up among us; and, That God has visited His people. And this rumor of Him went forth throughout all Judea and throughout all the region round about."  
 > Luke 7:11-17.  

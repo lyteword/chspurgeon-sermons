@@ -1,6 +1,5 @@
 # Sermon 3467 | A New Creation
 
-(No. 3467)
 
 A SERMON PUBLISHED ON THURSDAY, JULY 15, 1915.
 

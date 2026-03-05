@@ -1,6 +1,5 @@
 # Sermon 3325 | Solace for Sad Hearts
 
-(No. 3325)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 24, 1912.
 

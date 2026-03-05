@@ -1,6 +1,5 @@
 # Sermon 2329 | The Lamb Of God In Scripture
 
-(No. 2329)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 8, 1893.
 

@@ -1,6 +1,5 @@
 # Sermon 1045 | Joy in a Reconciled God
 
-(No. 1045)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 7, 1872,
 

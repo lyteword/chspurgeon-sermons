@@ -1,6 +1,5 @@
 # Sermon 704 | Hezekiah And The Ambassadors--Or, Vainglory Rebuked
 
-Sermon No. 704 - Delivered on Sunday Morning, August 5th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "At that time Berodach-Baladan, the son of Baladan, king of Babylon, sent letters and a present unto Hezekiah, for he heard that Hezekiah had been sick. And Hezekiah was attentive to them, and showed them all the house of his treasures; the silver and gold, and the spices and precious ointment, and all his armory; all that was found among his treasures. There was nothingin his house or all his dominion that Hezekiah did not show them."  
 > 2 Kings 20:12,13.  

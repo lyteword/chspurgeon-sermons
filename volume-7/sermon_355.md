@@ -1,6 +1,5 @@
 # Sermon 355 | Portraits Of Christ
 
-Sermon No. 355 - Delivered on Sabbath Morning, January 13th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > "For whom He did foreknow, He also did predestinate to be conformed to the image of His Son."  
 > Romans 8:29.  

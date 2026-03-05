@@ -1,6 +1,5 @@
 # Sermon 1472 | The Glory, Unity and Triumph of the Church
 
-(No. 1472)
 
 DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1879,
 

@@ -1,6 +1,5 @@
 # Sermon 724 | His Name--The Everlasting Father
 
-Sermon No. 724 - Delivered on Sunday Morning, December 9th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "The Everlasting Father."  
 > Isaiah 9:6.  

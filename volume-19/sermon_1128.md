@@ -1,6 +1,5 @@
 # Sermon 1128 | Love's Crowning Deed
 
-(No. 1128)
 
 A SERMON DELIVERED OF LORD'S-DAY MORNING, AUGUST 24, 1873,
 

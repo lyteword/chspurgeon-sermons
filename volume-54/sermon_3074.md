@@ -1,6 +1,5 @@
 # Sermon 3074 | Danger. Safety. Gratitude.
 
-(No. 3074)
 
 A SERMON PUBLISHED ON THURSDAY, JANUARY 9, 1908,
 

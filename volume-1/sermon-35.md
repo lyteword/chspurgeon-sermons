@@ -1,6 +1,5 @@
 # Sermon 35 | God's People in the Furnace
 
-Sermon No. 35 - Delivered on Sabbath Morning, August 12, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > I have chosen thee in the furnace of affliction.    
 > Isaiah 48:10.    

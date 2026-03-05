@@ -1,6 +1,5 @@
 # Sermon 3255 | The Pearl of Patience
 
-(No. 3255)
 
 A SERMON PUBLISHED ON THURSDAY, JUNE 22, 1911.
 

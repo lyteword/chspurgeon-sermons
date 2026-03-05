@@ -1,6 +1,5 @@
 # Sermon 1093 | Questions of the Day and THE Question of the Day
 
-(No. 1093)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 26, 1873,
 

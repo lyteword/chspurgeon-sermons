@@ -1,6 +1,5 @@
 # Sermon 3438 | The Compassion of Jesus
 
-(No. 3438)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 956 | Think Well And Do Well
 
-(No. 956)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 23, 1870,
 

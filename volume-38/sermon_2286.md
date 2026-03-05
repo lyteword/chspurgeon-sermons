@@ -1,6 +1,5 @@
 # Sermon 2286 | An Ancient Question Modernized
 
-(No. 2286)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 11, 1892.
 

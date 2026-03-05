@@ -1,6 +1,5 @@
 # Sermon 1281 | "Do You Love Me?"
 
-(No. 1281)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27 1876,
 

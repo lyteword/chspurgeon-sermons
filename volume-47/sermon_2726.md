@@ -1,6 +1,5 @@
 # Sermon 2726 | Fourfold Satisfaction
 
-(No. 2726)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 12, 1901.
 

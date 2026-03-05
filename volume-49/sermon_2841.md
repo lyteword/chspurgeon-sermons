@@ -1,6 +1,5 @@
 # Sermon 2841 | Prayer--Its Discouragements and Encouragements
 
-(No. 2841)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1903.
 

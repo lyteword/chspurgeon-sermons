@@ -1,6 +1,5 @@
 # Sermon 2162 | And Why Not Me?
 
-Sermon No. 2162 - Delivered on Sunday Morning, September 7th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Behold, there came a leper and worshipped Him, saying, Lord, if You will, You can make me clean. And Jesusput forth His hand and touched him, saying, I will, be you clean. And immediately his leprosy was cleansed."  
 > Matthew 8:2,3.  

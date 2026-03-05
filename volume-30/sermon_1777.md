@@ -1,6 +1,5 @@
 # Sermon 1777 | Esther's Exaltation--or, Who Knows?
 
-(No. 1777)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1884,
 

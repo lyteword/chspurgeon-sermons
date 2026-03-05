@@ -1,6 +1,5 @@
 # Sermon 2702 | "Marvelous Loving Kindness"
 
-(No. 2702)
 
 INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 25, 1900.
 

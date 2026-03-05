@@ -1,6 +1,5 @@
 # Sermon 2756 | Saving the Lost
 
-(No. 2756)
 
 A SERMON INTENDED FOR READING ON, LORD'S-DAY, DECEMBER 8, 1901.
 

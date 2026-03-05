@@ -1,6 +1,5 @@
 # Sermon 2541 | "Mr. Moody's Text"
 
-(No. 2541)
 
 INTENDED FOR READING ON LORD'S-DAY, OCTOBER 31, 1897.
 

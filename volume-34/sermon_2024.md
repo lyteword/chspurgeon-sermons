@@ -1,6 +1,5 @@
 # Sermon 2024 | What Is the Wedding Garment?
 
-Sermon No. 2024 - Delivered on Sunday Morning, May 20th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "And when the king came in to see the guests he saw there a man which had not on a wedding garment: and he said unto him, Friend, how came you in here not having a wedding garment? And he was speechless. Then said the king to the servants, Bind him hand and foot and take him away and cast him into outer darkness; there shall be weeping and gnashing of teeth."  
 > Matthew 22:11-13.  

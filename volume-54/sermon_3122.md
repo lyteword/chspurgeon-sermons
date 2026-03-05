@@ -1,6 +1,5 @@
 # Sermon 3122 | Craving the Best Things
 
-(No. 3122)
 
 A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1908.
 

@@ -1,6 +1,5 @@
 # Sermon 3117 | Eyes Opened
 
-(No. 3117)
 
 A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1908.
 

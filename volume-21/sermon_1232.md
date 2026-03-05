@@ -1,6 +1,5 @@
 # Sermon 1232 | Solomon's Plea
 
-(No. 1232)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 2, 1875,
 

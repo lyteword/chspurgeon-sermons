@@ -1,6 +1,5 @@
 # Sermon 2360 | Come, My Beloved!
 
-(No. 2360)
 
 A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 13, 1984.
 

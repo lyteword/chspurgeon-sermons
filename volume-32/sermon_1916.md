@@ -1,6 +1,5 @@
 # Sermon 1916 | The Great Sin Of Doing Nothing
 
-(No. 1916)
 
 A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 5, 1886,
 

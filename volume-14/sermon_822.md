@@ -1,6 +1,5 @@
 # Sermon 822 | The Panting Deer
 
-A Sermon (No. 822)
 
 Delivered on Lord's-Day Morning, July 20, 1868, by C. H. SPURGEON, at the [32]Metropolitan Tabernacle, Newington.
 

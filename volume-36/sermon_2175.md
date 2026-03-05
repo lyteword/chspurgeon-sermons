@@ -1,6 +1,5 @@
 # Sermon 2175 | "So It Is"
 
-Sermon No. 2175 - Delivered on Sunday Morning, November 30th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "Lo this, we have searched it, so it is; hear it, and know you it for your good."  
 > Job 5:27.  

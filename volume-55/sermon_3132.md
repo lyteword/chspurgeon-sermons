@@ -1,6 +1,5 @@
 # Sermon 3132 | A Question for You
 
-(No. 3132)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 18, 1909.
 

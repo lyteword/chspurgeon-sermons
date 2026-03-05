@@ -1,6 +1,5 @@
 # Sermon 91 | Christ Exalted
 
-Sermon No. 91 - Delivered on Sabbath Morning, July 6th, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > This man, after he had offered on sacrifice for sins for ever, sat down on the right hand of God; From henceforth expecting till his enemies be made his footstool.    
 > Hebrews 10:12-13.    

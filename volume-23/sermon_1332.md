@@ -1,6 +1,5 @@
 # Sermon 1332 | Our Urgent Need of the Holy Spirit
 
-(No. 1332)
 
 DELIVERED ON LORD'S DAY MORNING, JANUARY 7, 1877,
 

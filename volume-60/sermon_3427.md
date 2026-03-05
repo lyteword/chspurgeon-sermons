@@ -1,6 +1,5 @@
 # Sermon 3427 | The Blessed Christ
 
-(No. 3427)
 
 A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1914.
 

@@ -1,6 +1,5 @@
 # Sermon 2267 | Life From the Dead
 
-(No. 2267)
 
 INTENDED FOR READING ON LORD'S-DAY, JULY 31, 1892.
 

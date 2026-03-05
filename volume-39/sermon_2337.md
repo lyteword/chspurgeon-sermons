@@ -1,6 +1,5 @@
 # Sermon 2337 | The Physician Pardons His Palsied Patient
 
-(No. 2337)
 
 INTENDED FOR READING ON LORD'S-DAY, DECEMBER 3, 1893.
 

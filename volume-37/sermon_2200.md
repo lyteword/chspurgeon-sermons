@@ -1,6 +1,5 @@
 # Sermon 2200 | The Covenant Promise of the Spirit
 
-(No. 2200)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1891,
 

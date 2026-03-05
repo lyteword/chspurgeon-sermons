@@ -1,6 +1,5 @@
 # Sermon 1441 | The Prosperous Man's Reminder
 
-(No. 1441)
 
 DELIVERED ON LORD'S-DAY MORNING, OCTOBER 27, 1878,
 

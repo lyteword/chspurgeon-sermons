@@ -1,6 +1,5 @@
 # Sermon 895 | A Summons To Battle
 
-Sermon No. 895 - Delivered on Lord's-day Morning, OCTOBER 10, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 A sermon
 
 "The time when kings go forth to battle."- 2 Samuel 11:1.

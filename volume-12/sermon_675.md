@@ -1,6 +1,5 @@
 # Sermon 675 | Spring In The Heart
 
-Sermon No. 675 - Delivered on Sunday Morning, February 11th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "You water the ridges abundantly: You settle the furrows: You make it soft with showers: You bless its growth."  
 > Psalm 65:10.  

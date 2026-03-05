@@ -1,6 +1,5 @@
 # Sermon 2269 | Impotence and Omnipotence
 
-(No. 2269)
 
 INTENDED FOR READING ON LORD'S-DAY AUGUST 14, 1892.
 

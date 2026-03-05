@@ -1,6 +1,5 @@
 # Sermon 1560 | The Plain Man's Pathway To Peace
 
-(No. 1560)
 
 DELIVERED BY
 

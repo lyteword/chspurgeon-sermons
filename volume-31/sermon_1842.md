@@ -1,6 +1,5 @@
 # Sermon 1842 | The Private Tutor
 
-(No. 1842)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 24, 1885,
 

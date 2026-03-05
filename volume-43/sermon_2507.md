@@ -1,6 +1,5 @@
 # Sermon 2507 | He Ran, and He Ran
 
-(No. 2507)
 
 INTENDED FOR READING ON LORD'S-DAY, MARCH 7, 1897.
 

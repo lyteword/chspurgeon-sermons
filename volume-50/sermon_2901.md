@@ -1,6 +1,5 @@
 # Sermon 2901 | Mourning at the Cross
 
-(No. 2901)
 
 A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 15, 1904.
 

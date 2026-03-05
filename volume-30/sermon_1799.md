@@ -1,6 +1,5 @@
 # Sermon 1799 | Though He Were Dead
 
-Sermon No. 1799 - Delivered on Lord's-Day Morning, September 14th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 Martha saith unto Him, I know that he shall rise again in the resurrection at the last day. Jesus said unto her, I am the resurrection, and the life: he that believeth in Me, though he were dead, yet shall he live: and whosoever liveth and believeth in Me shall never die. Believest thou this?'John 11:24-26.
 

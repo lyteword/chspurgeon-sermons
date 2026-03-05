@@ -1,6 +1,5 @@
 # Sermon 2581 | Perfection in Christ
 
-(No. 2581)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 31, 1898.
 

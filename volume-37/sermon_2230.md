@@ -1,6 +1,5 @@
 # Sermon 2230 | Loved and Washed
 
-(No. 2230)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 15, 1891,
 

@@ -1,6 +1,5 @@
 # Sermon 3397 | A Timely Expostulation
 
-(No. 3397)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 12, 1914.
 

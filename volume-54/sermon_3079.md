@@ -1,6 +1,5 @@
 # Sermon 3079 | A Searching Question
 
-(No. 3079)
 
 A SERMON PUBLISHED ON THURSDAY, FEBRUARY 13, 1908.
 

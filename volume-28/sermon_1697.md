@@ -1,6 +1,5 @@
 # Sermon 1697 | The Word of a King
 
-(No. 1697)
 
 DELIVERED BY C. H. SPURGEON.
 

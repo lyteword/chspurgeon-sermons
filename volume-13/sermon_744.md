@@ -1,6 +1,5 @@
 # Sermon 744 | Jesus At Bethesda--or, Waiting Changed for Believing
 
-Sermon No. 744 - Delivered on Lord's-day Morning, APRIL 7, 1867 the REV. C.H. SPURGEON at the Agricultural Hall, Newington.
 A sermon
 
 "After this there was a feast of the Jews; and Jesus went up to Jerusalem. Now there is at Jerusalem by the sheep market, a pool which is called in the Hebrew tongue Bethesda, having five porches. In these lay a great multitude of impotent folk, of blind, halt, withered, waiting for the moving of the water. For an angel went down at a certain season into the pool and troubled the water: whoever then first after the troubling of the water stepped in was made whole of whatever disease he had. And a certain man was there, which had an infirmity thirty-and-eight years. When Jesus saw him lying there, and knew that he had been now a long time in that case, He said unto him, Willyou be made whole? The impotent man answered him, Sir, I have no man, when the water is troubled, to putme into thepool: but while Iam coming, another steps down before me. Jesus said unto him, Rise, take up your bed, and walk. And immediately the man was made whole, and took up his bed, and walked: and on the same day was the Sabbath."- John 5:1-9.

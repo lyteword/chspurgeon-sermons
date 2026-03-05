@@ -1,6 +1,5 @@
 # Sermon 1292 | The Soul-Winner
 
-(No. 1292)
 
 A SERMON DELIVERED ON THURSDAY EVENING, JANUARY 20, 1876,
 

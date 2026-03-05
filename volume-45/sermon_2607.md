@@ -1,6 +1,5 @@
 # Sermon 2607 | Foretastes of the Heavenly Life
 
-(No. 2607)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 29, 1899, (C. H. SPURGEON MEMORIAL SABBATH).
 

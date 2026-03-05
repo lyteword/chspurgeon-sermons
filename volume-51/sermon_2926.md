@@ -1,6 +1,5 @@
 # Sermon 2926 | The Love of Our Espousals
 
-(No. 2926)
 
 A SERMON PUBLISHED ON THURSDAY, MARCH 9, 1905.
 

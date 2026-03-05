@@ -1,6 +1,5 @@
 # Sermon 1912 | The Holy Road
 
-(No. 1912)
 
 A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1886,
 

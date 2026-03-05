@@ -1,6 +1,5 @@
 # Sermon 2815 | Good Cheer for Many That Fear
 
-(No. 2815)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY, 25, 1903.
 

@@ -1,6 +1,5 @@
 # Sermon 217 | Declension from First Love
 
-Sermon No. 217 - Delivered on Sabbath Evening, September 26, 1858, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > Nevertheless I have somewhat against thee, because thou hast left thy first love.    
 > Revelation 2:4.    

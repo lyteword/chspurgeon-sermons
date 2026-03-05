@@ -1,6 +1,5 @@
 # Sermon 3452 | Belief in the Resurrection
 
-(No. 3452)
 
 A SERMON PUBLISHED ON THURSDAY, APRIL 1, 1915.
 

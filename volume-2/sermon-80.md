@@ -1,6 +1,5 @@
 # Sermon 80 | God Alone the Salvation of his People
 
-Sermon No. 80 - Delivered on Sabbath Morning, May 18, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
 
 > He only is my rock and my salvation.    
 > Psalm 92:2.    

@@ -1,6 +1,5 @@
 # Sermon 2647 | Preparation Necessary for the Communion
 
-(No. 2647)
 
 A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 5, 1899.
 

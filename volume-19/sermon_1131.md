@@ -1,6 +1,5 @@
 # Sermon 1131 | Clearing the Road to Heaven
 
-(No. 1131)
 
 DELIVERED BY
 

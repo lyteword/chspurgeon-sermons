@@ -1,6 +1,5 @@
 # Sermon 1007 | North and South
 
-Sermon No. 1007 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
 
 > "I will say to the north, Give up; and to the south, keep not back."  
 > Isaiah 43:6.  

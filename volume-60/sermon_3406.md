@@ -1,6 +1,5 @@
 # Sermon 3406 | Fullness of Joy Our Privilege
 
-(No. 3406)
 
 A SERMON PUBLISHED ON THURSDAY, MAY 14, 1914.
 
