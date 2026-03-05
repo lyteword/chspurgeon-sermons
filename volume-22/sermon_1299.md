@@ -1,12 +1,5 @@
 # Sermon 1299 | Love's Birth and Parentage
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 11, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "We love Him, because He first loved us." 1 John 4:19.
 
 VERY simple words, but very full of meaning. I think I might say of this sentence what the poet says of prayer--it is "the simplest form of speech that infant lips can try"--and yet it is one of the "most sublime strains that reach the Majesty on high." Take a little believing child and ask her why she loves the Savior, and she will reply at once, "Because He loved me and died for me." Then ascend to Heaven where the saints are perfect in Christ Jesus and put the same question and with united breath the whole choir of the redeemed will reply, "He has loved us and washed us from our sins in His own blood." When we begin to love Christ, we love Him because He first loved us. And when we grow in Grace till we are capable of the very highest degree of spiritual understanding and affection, we still have no better reason for loving Him than this, "Because He first loved us."

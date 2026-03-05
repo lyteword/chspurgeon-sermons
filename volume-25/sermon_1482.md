@@ -1,12 +1,5 @@
 # Sermon 1482 | Our Change of Masters
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 6, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Being then made free from sin, you became the servants of righteousness." Romans 6:18.
 
 MAN was made to rule. In the Divine original he was intended for a king who should have dominion over the beasts of the field, the fowl of the air and the fish of the sea. He was designed to be the lord-lieutenant of this part of creation and the form of his body and the dignity of his countenance indicated it. He walks erect among the animals, while they move upon all fours. He subjugates and tames them to perform his will and the fear and dread of him is upon all creatures, for they know their sovereign.

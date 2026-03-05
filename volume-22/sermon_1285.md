@@ -1,12 +1,5 @@
 # Sermon 1285 | Sihon and Og, or Mercies in Detail
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To Him which smote great kings: for His mercy endures fore ver: and slew famous kings: for His mercy endures forever: Sihon king of the Amorites: for His mercy endures forever: and Og the king of Bashan: for His mercy endures forever: and ga ve their land for a heritage: for His mercy endures forever: even a heritage unto Israel His servant: for His mercy endures forever." Psalm 136:17-22.
 
 THESE six verses iterate and reiterate the same fact. They rehearse and repeat the same reflection. Is the tautology tedious? Do the chimes weary you with their monotony? No. And this is a veritable charm in poetry. When the poet touches upon some important theme which illuminates his soul and kindles his nobler passions to a flame, he is very apt to dwell upon it with enthusiasm, inclined to pursue it with eagerness, to follow it up with feeling and echo it over and over again with strong and yet stronger emotion. Nobody feels that repetition is out of place in poetry, because in weal or woe, with pleasure or with pathos, we dwell on the theme which awakens our sympathy.

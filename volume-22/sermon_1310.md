@@ -1,12 +1,5 @@
 # Sermon 1310 | The Blind Befriended
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, MARCH 9, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will bring the blind by a way that they knew not: I will lead them in paths that they have not known; I will make darkness light before them, and crooked things straight. These things will I do unto them, and not forsake them." Isaiah 42:16.
 
 This promise is not made to every blind man, or to all sorts of blind people, for there are some blind people whom God does not lead. There is only a peculiar sort of blind people to whom this promise is given, that He will guide them and not forsake them. If you go outside the Tabernacle, take the first turn on the left and walk down what is called the St. George's Road till you come to the end, you may see asylums built for three sorts of blind people. On your right hand you will have the Blind School. That is for the physically blind--those who have lost the sight of these outward eyes. On the left hand you will see the Bethlehem Hospital. That is for the mentally blind, who have lost the inner sight and are in the more unhappy state of lunacy. Then straight before you, you will see the St. George's Roman Catholic Cathedral. That is for the spiritually blind, whose case is all the more pitiable, because these blind people have blind leaders, and their deluded souls are prescribed for by physicians who foster their delusions.

@@ -1,12 +1,5 @@
 # Sermon 1303 | The Believer in the Body and Out of the Body
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 2, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now He that has prepared us for the same thing is God, who also has given unto us the earnest of the Spirit. Therefore we are always confident, knowing that, while we are at home in the body, we are absent from the Lord, (for we walk by faith, not by sight). We are confident, I say, and willing rather to be absent from the body, and to be present with the Lord. Therefore we labor, that, whether present or absent, we may be accepted of Him. For we must all appear before the Judgment Seat of Christ, that everyone may receive the things done in his body, according to that he has done, whether it is good or bad." 2 Corinthians 5:5-10.
 
 IT is quite clear that the Apostle did not consider his body to be himself. He speaks of it as being the frail tent or tabernacle in which he dwelt and, again, as the garment with which, for a while, he was clothed. That tent or tabernacle he expected to see dissolved. And that garment he expected to put off. He distinguished between the outward man which would perish and the inward man, which was his true self, which he speaks of as, "renewed day by day." The Apostle reckoned upon rising here in the body, according to the Divine will, till he had finished the work which was given him to do. And then he expected to put off his mortal flesh and to be an unclothed and disembodied spirit.

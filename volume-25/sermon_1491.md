@@ -1,12 +1,5 @@
 # Sermon 1491 | Remember Lot's Wife
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 24, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "RememberLot's wife." Luke 17:32.
 
 IT was the purpose of God always to maintain a testimony for truth and righteousness in the midst of this ungodly world. For this end of old He set apart for Himself a chosen family with whom He had fellowship. Abraham was the man whom God chose, that in him and in his household the witness might be preserved. This chosen family was called out and separated from its ancestors and led to dwell apart as wayfaring men in the land of Canaan. They were not to go into the cities and mingle with other races, but to dwell in tents, as a separate tribe, lest their character should become polluted and their testimony should be silenced. It was the Lord's intent that the people should dwell alone and not be numbered among the nations.

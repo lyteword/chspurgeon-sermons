@@ -1,12 +1,5 @@
 # Sermon 1329 | Christ the Destroyer of Death
 
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, DECEMBER 17, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The last enemy that shall be destroyed is death." 1 Corinthians 15:26.
 
 DURING four previous Sabbaths we have been following our Lord and Master through His great achievements. We have seen Him as the end of the Law, as the Conqueror of Satan, as the Overcomer of the world, as the Creator of all things new. And now we behold Him as the Destroyer of death. In this and in all His other glorious deeds, let us worship Him with all our hearts! May the Spirit of God lead us into the full meaning of this, which is one of the Redeemer's grandest Characters. How wonderfully is our Lord Jesus one with man! For when the Psalmist David had considered "the heavens, the work of God's fingers," He said, "Lord, what is man--that You are mindful of him, or the son of man that You visit him?"

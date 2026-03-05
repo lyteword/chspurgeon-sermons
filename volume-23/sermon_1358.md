@@ -1,14 +1,5 @@
 # Sermon 1358 | All the People at Work for Jesus
 
-
-DELIVERED ON WEDNESDAY MORNING, MAY 9, 1877,
-
-BY C. H. SPURGEON, AT
-
-CHRIST CHURCH, WESTMINSTER BRIDGE ROAD.
-
-[On Behalf of the London Missionary Society.]
-
 I HAVE taken two texts from two successive chapters of the book of Joshua. The first is from Joshua the seventh, at the third verse. The spies who were sent to Ai returned to Joshua and said to him, "Let not all the people go up; but let about two or three thousand men go up and smite Ai." This policy led to a disastrous defeat and our other text gives us the Lord's command concerning the new attack. You will find it in the eighth of Joshua and the first verse--"The Lord said unto Joshua, Fear not, neither be dismayed: take all the people of war with you, and arise, go up to Ai; see, I have given into your hand the king of Ai, and his people, and his city, and his land."
 
 The two texts may be condensed into--first, the advice of the spies, to employ only a part of the people in the assault upon Ai--"Let not all the people go up." And, secondly, the command of God to let every fighting man go forth to the war--"Take all the people of war with you." Brethren, like Israel, we are called to war and we have a greater than Joshua at our head, in whose name we conquer! There is an inheritance which as yet has been held by the adversary and in the name of God we have to drive him out. We are likely to experience difficulties very similar to those which were met with by the tribes and I doubt not that their history, (is it not written for our learning?), will prove exceedingly interesting to us if we have a mind to consider it.

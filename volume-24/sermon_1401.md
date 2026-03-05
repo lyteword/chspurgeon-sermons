@@ -1,12 +1,5 @@
 # Sermon 1401 | Jacob Worshipping on His Staff
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By faith Jacob, when he was dying, blessed both the sons of Joseph, and worshiped, leaning on the top of his staff." Hebrews 11:21.
 
 "When he was dying." Death is a thorough test of faith. Beneath the touch of the skeleton finger shams dissolve into thin air and only truth remains unless, indeed, a strong delusion has been given--and then the spectacle of a presumptuous sinner passing away in his iniquities is one which might make angels weep. It is hard, very hard, to maintain a lie in the presence of the last solemnities. The end of life is usually the close of self-deception. There is a mimic faith, a false assurance, which lasts under all ordinary heats of trial, but this evaporates when the fires of death surround it.

@@ -1,12 +1,5 @@
 # Sermon 1379 | The Magnanimity of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 21, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, God is mighty, and despises not any: He is mighty in strength and wisdom" (or, in strength of heart) Job 36:5.
 
 WE cannot wonder that, in the extreme bitterness of his soul, Job was driven to utter some expressions which he would not, afterwards, have attempted to justify. Among the rest Job had thought and almost said that God had despised him. In the 10th chapter, at the 3rd verse, he appealed to Him thus, "Is it good unto You that You should oppress, that You should despise the work of Your hands?" Elihu, in his zeal to vindicate the righteousness of his Maker, fixes his mind, as I think, upon that expression of Job and meets it with a positive denial, proving his point from the might and the great-heartedness of the Lord. He had promised to fetch his argument from afar and, therefore, he does not argue against God's despising any from His mercy or goodness.

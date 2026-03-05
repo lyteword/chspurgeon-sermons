@@ -1,12 +1,5 @@
 # Sermon 1341 | Retreat Impossible
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have given my word to the Lord, and I cannot go back." Judges 11:35.
 
 IN Jephtha case there were good reasons for going back. He had made a rash vow and such things are much better broken than kept. If a man makes a vow to commit a crime, his vow to do so is, in itself, a sin. The carrying out of his vow will be doubly sinful. If a man's vowing to do a thing made it necessary and right for him to do it, then the whole moral law might be suspended by the mere act of vowing, for a man might vow to steal, to commit adultery, or to murder--and then say--"I was right in all those acts because I vowed to do them." This is self-evidently absurd and to admit such a principle would be to destroy all morality!

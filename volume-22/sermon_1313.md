@@ -1,12 +1,5 @@
 # Sermon 1313 | A Second Word to Seekers
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 10, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And you shall seek Me, and find Me, when you shall search for Me with all your heart." Jeremiah 29:13.
 
 

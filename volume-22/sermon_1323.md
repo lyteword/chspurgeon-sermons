@@ -1,12 +1,5 @@
 # Sermon 1323 | And Why Not?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 12, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said unto the disciples, The days will come when you shall desire to see one of the days of the Son of Man, and you shall not see it" Luke 17:22.
 
 WHILE the Lord was yet on earth the days of the Son of Man were but lightly esteemed. The Pharisees spoke of them with a sneer and demanded when the kingdom of God should come. As much as to say, "Is this the coming of your promised kingdom? Are these fishermen and peasants your courtiers? Are these the days for which Prophets and kings waited so long?" "Yes," Jesus tells them, "these are the very days. The kingdom of God is set up within men's hearts and is among you even now. And the time will come when you will wish for these days back again. And even those who best appreciate them, shall, before long, confess that they thought too little of them, and sigh in their hearts for their return."

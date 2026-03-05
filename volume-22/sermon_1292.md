@@ -1,12 +1,5 @@
 # Sermon 1292 | The Soul-Winner
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, JANUARY 20, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The fruit of the righteous is a tree of life; and he that wins souls is wise." Proverbs 11:30.
 
 I HAD very great joy last night--many of you know why, but some do not. We held our annual meeting of the Church and it was a very pleasant sight to see so many Brothers and Sisters knit together in the heartiest love, welded together as one mass by common sympathies, and holding firmly to, "one Lord, one faith, and one baptism." Think of a Church with 4,900 members! Such a community has seldom been gathered in any age and in the present century it is without parallel. "O Lord, You have multiplied the people and increased the joy. They joy before You as the joy of harvest."

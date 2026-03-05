@@ -1,12 +1,5 @@
 # Sermon 1423 | A Sacred Solo
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord is my strength and my shield; my heart trusted in Him, and I am helped, therefore my heart greatly rejoices and with my song will I praise Him." Psalm 28:7.
 
 THIS passage has, to my mind, a peculiar charm. I do not know whether it breaks on your ears with like pathos and power. To me it seems charged with softness and sweetness, like some gentle strain of tender music. Let us read it again. "The Lord is my strength and my shield; my heart trusted in Him, and I am helped, therefore my heart greatly rejoices and with my song will I praise Him." I think I see a battle raging furiously, yet he whom it most concerns, after having displayed his prowess and fought valiantly, steps aside and, sitting down in a quiet place, bomb-proof and almost out of sound of the cannons' roar, thus talks with his heart. He forgets the raging strife--he is expecting a joyful victory! He knows his weaknesses, but he has caught a glimpse of the Divine strength which is guaranteed to him.

@@ -1,12 +1,5 @@
 # Sermon 1312 | Good News for Seekers
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 3, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They shall praise the Lord that seek Him." Psalm 22:26.
 
 THESE are the words of Jesus on the Cross, which the inspired Prophet wrote beforehand concerning Him. When the Savior uttered this sentence, He had just passed through the experience of a seeker as far as it was possible for Him to do so. He had been engaged in earnest, fervent, pleading prayer on account of His having been left without His Father's Presence. He had cried, "Be not You far from Me, O Lord: O My Strength, hasten You to help Me." With strong crying and tears He had implored salvation from the lion's mouth. He had, at last, been heard and delivered, and He exclaimed with joy, "He has not despised nor abhorred the affliction of the Afflicted, neither has He hid His face from Him; but when He cried unto Him He heard. My praise shall be of You in the great congregation: I will pay My vows before them that fear Him."

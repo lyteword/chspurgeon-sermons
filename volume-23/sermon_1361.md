@@ -1,12 +1,5 @@
 # Sermon 1361 | The Final Perseverance of the Saints
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 24, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The righteous, also, shall hold on his way." Job 17:9.
 
 THE man who is righteous before God has a way of his own. It is not the way of the flesh, nor the way of the world. It is a way marked out for him by the Divine command in which he walks by faith. It is the King's highway of holiness-- the unclean shall not pass over it--only the ransomed of the Lord shall walk there and these shall find it a path of separation from the world. Once entered upon the way of life, the pilgrim must persevere in it or perish, for thus says the Lord, "If any man draw back, My soul shall have no pleasure in him." Perseverance in the path of faith and holiness is a necessity of the Christian, for only, "He that endures to the end, the same shall be saved." It is in vain to spring up quickly like the seed that was sown upon the rock and then, by-and-by, to wither when the sun is up. That would but prove that such a plant has no root in itself.

@@ -1,10 +1,5 @@
 # Sermon 1454A | The Empty Seat
 
-
-WRITTEN WHEN AWAY FROM HIS PEOPLE,
-
-BY C. H. SPURGEON.
-
 "David's place was empty." 1 Samuel 20:27.
 
 IT was quite right that David's place should be empty because Saul sought to slay him and he could not safely sit in the presence of an enemy who had twice before cast a javelin at him to "smite him even to the wall with it." Self-preservation is a law of Nature which we are bound to obey--no man should needlessly expose himself to sudden death. It were well if many a seat were empty for this reason, for there are places exceedingly dangerous to the soul from which men should rise and flee at once. Where Satan sits at the head of the table, no man should tarry. There is the seat of the scorner, of which the Psalmist spoke--God grant that those who have occupied it may leave it in trembling haste. There is the settle of the drunkard, the chair of the presumptuous and the bench of the sluggard from each of which it were wisdom to depart.

@@ -1,12 +1,5 @@
 # Sermon 1317 | Overcome Evil With Good
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 8, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be not overcome of evil, but overcome evil with good." Romans 12:21.
 
 THIS is a very meaty verse and the form of it greatly assists the memory. It is worthy to be called a Christian Proverb. I would recommend every Christian to learn it by heart and have it ready for use, for there are a great many Proverbs which convey a very different sense and these are often quoted to give the weight of authority to unchristian principles. Here is an Inspired Proverb--carry it with you and use it as a weapon with which to parry the thrusts of the world's wisdom. "Be not overcome of evil, but overcome evil with good." Observe that the text appears to give us a choice between two things and bids us choose the better one. You must either be overcome of evil, or you must, yourself, overcome evil--one of the two.

@@ -1,12 +1,5 @@
 # Sermon 1364 | Nevertheless, Hereafter
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus said unto him, You have said (or said so), nevertheless, I say unto you, Hereafter shall you see the Son of Man sitting on the right hand of the Power, and coming on the clouds of Heaven." Matthew 26:64.
 
 Our Lord, before His enemies, was silent in His own defense, but He faithfully warned and boldly avowed the Truth of God. His was the silence of patience, not of indifference--of courage, not of cowardice. It is written that "before Pontius Pilate He witnessed a good confession," and that statement may, also, be well applied to His utterances before Caiaphas, for there He was not silent when it came to confession of necessary Truths of God. If you will read the chapter now open before us, you will notice that the High Priest commanded Him to speak the truth, saying, "Are You the Christ, the Son of God?" to which He replied at once, "You have said it."

@@ -1,12 +1,5 @@
 # Sermon 1449 | A Vile Weed and a Fair Flower
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let your con versation be without co vetousness; and be content with such things as you ha ve: for He has said, I will never leave you, nor forsake you. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do to me." Hebrews 13:5, 6.
 
 IS it not deeply humiliating, beloved Friends, that the best of Christians should need to be cautioned against the worst of sins? May the consecrated become covetous? Is it possible that the regenerate may drivel into misers? Alas, what perils surround us, what tendencies are within us! Although a man may be a sincere Believer in the self-sacrificing Jesus, yet it is necessary to say to him, "Let your conversation be without covetousness." Covetousness is a vice of a very degrading kind and it is, therefore the more surprising that those who have a renewed nature and in whom the Spirit of God dwells should require to be warned against bowing down their souls before it. But such is the necessity that once and again the saints are warned against "covetousness, which is idolatry."

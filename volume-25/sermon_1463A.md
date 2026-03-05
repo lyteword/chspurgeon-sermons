@@ -1,10 +1,5 @@
 # Sermon 1463A | The Gazelles and the Deer
 
-
-WRITTEN AT MENTONE
-
-BY C. H. SPURGEON.
-
 "By the gazelles, and by the deer of the field." Solomon's Song 2:7.
 
 THE spouse was in the full enjoyment of fellowship with her Beloved. Her joy was so great as almost to overpower her and yet so nearly does fear tread upon the heels of joy, she was filled with dread lest her bliss should come to an end. She feared lest others should disturb her Lord, for if He were grieved, she would be grieved, also, and if He departed, the banquet of her delight would be over. She was afraid even of her friends, the daughters of Jerusalem. She knew that the best can interrupt fellowship as well as the worst and, therefore, she entreated even Zion's daughters not to sin against Zion's King. Had they awakened her Beloved and broken His sacred peace, she would not have found a recompense in their company, but would rather have regarded them with scorn for having robbed her of her chief delight.

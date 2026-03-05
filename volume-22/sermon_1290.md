@@ -1,12 +1,5 @@
 # Sermon 1290 | Godly Fear and Its Goodly Consequence
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In the fear of the Lord is strong confidence and His children shall ha ve a place of refuge." Proverbs 14:26.
 
 IN the Book of Proverbs you meet with sentences of brief wisdom, which, to all appearances, belong entirely to this world and pertain to the economy of the life that now is. I do not know whether it is true, but it was said that years ago our friends in Scotland had a little book widely circulated and read by all their children which consisted of the Proverbs of Solomon. They say that it was the means of making the Scots, as a generation, more canny, shrewd and wiser in business than any other people. If it is so, I should suggest that such a book be scattered throughout England as well and, indeed, anywhere and everywhere!

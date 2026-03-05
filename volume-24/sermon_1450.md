@@ -1,12 +1,5 @@
 # Sermon 1450 | The Immovability of the Believer
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 22, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They that trust in the Lord shall be as Mount Zion, which cannot be removed, but abides forever." Psalm 125:1.
 
 THIS is the first verse of one of the Songs of degrees. These Songs were probably sung by the pilgrims as they went up to Jerusalem, when they halted at the various stations or passed certain places of interest. It is very possible that this Psalm burst forth from joyful lips at the moment when Zion first came into sight and the worshippers gazed upon the city of their solemnities. Happy pilgrims! They had left behind them many a dreary glen and dangerous wood and now they saw in their full view their journey's end and, therefore, they sang with all the gathered joy of days gone by. They could not have so exulted if they had not previously sorrowed. The same truth may be learned from the use of the term, "Song of degrees"--it warns us that this Psalm rises out of that which preceded it, as one step of a staircase rises above its fellow.

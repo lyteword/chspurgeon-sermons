@@ -1,12 +1,5 @@
 # Sermon 1504 | The Swift Camels
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Judah and Israel were many, as the sand which is by the sea in multitude, eating and drinking, and making merry. And Solomon reigned over all kingdoms from the river unto the land of the Philistines, and unto the border of Egypt: they brought presents, and served Solomon all the days of his life. And Solomon's provision for one day was thirty measures of fine flour, and threescore measures of meal, ten fat oxen, and twenty oxen out of the pastures, and an hundred sheep, beside harts, and roebucks, and fallow deer, and fatted fowl. For he had dominion over all the region on this side the river, from Tiphsah even to Azzah, over all the kings on this side the river: and he had peace on all sides round about him. And Judah and Israel dwelt safely, every man under his vine and under his fig tree, from Dan even to Beersheba, all the days of Solomon. And Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen. And those officers provided victuals for King Solomon, and for all that came unto King Solomon's table, every man in his month: they lacked nothing. Barley also and straw for the horses and camels brought they unto the place where the officers were, every man according to his charge." 1 Kings 4:20-28.
 
 We will read a few verses first, and at the close of them you will find the text.

@@ -1,12 +1,5 @@
 # Sermon 1425 | Concern For Other Men's Souls
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I say the truth in Christ, I lie not, my conscience also bearing me witness in the Holy Spirit, that I have great hea viness and continual sorrow in my heart. For I could wish that I were accursed from Christ for my brethren, my kinsman according to the flesh, who are Israelites, to whom pertains the adoption, and the glory, and the covenants, and the giving of the Law, and the service of God, and the promises; whose are the fathers, and of whom as concerning the flesh Christ came, who is over all, God blessed forever. Amen." Romans 9:1-5.
 
 WHAT an intense man Paul was! Once convince him and his whole nature moved in the direction which he judged to be right. He was whole-hearted when he persecuted the Church of God and he was equally whole-hearted when, afterwards, he labored with all his might to build up the Church which he had sought to destroy! I would to God we were all as thorough-going in the service of our Lord! The pity is that so many professing Christians appear to have no heart, while others borrow a heart for some occasions but do not seem to keep one permanently beating in their own bosoms. O for a warm, engine-like heart all consecrated and forever pulsing mightily!

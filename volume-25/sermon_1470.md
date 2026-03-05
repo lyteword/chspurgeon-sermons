@@ -1,12 +1,5 @@
 # Sermon 1470 | A Question for Hard-hearted Hearers
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Shall horses run upon the rock? Will one plow there with oxen?" Amos 6:12.
 
 THESE expressions are proverbs, probably taken from the familiar adages of the country, but, anyhow, right worthy to be used as proverbs. The wiser men become, the more sententious are their utterances, the more terse and full of meaning are their sayings and, therefore, the wisdom of the wise condenses into proverbs and the language of Prophets is sure to abound in them. But a proverb is generally a sword with two edges, or, if such a metaphor might be tolerated, it has many edges, or is all edge and hence it may be turned this way and that way and its back stroke will be as sharp as its direct cut, for every part of it will have force and point. A proverb has often many bearings and you cannot always tell what was the precise meaning of him who uttered it, except by the connection.

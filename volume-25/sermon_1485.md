@@ -1,12 +1,5 @@
 # Sermon 1485 | The Withered Hand
 
-
-DELIVERED ON THURSDAY EVENING, MAY 22, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
-
 "And, behold, there was a man which hadhis hand withered... Then says He to the man, Stretch forth your hand. And he stretched it forth; and it was restored whole, like as the other." Matthew 12:10,13.
 
 NOTE well the expression. Jesus "went into their synagogue and, behold, there was a man which had his hand withered." A mark is set, as it were, in the margin, as if it were a notable fact. That word, "behold" is a sort of note of exclamation to draw attention to it. "Behold, there was a man which had his hand withered." In many congregations, if there should step in one of the great and mighty of the land, people would say, "Behold, there was a duke, an earl, or a bishop there." And although there were, occasionally, some great ones in our Savior's congregation, I find no notes of admiration about their presence, no, "beholds," inserted by the Evangelists as if to call attention to their appearance. No doubt if there were, in a congregation, some person of known intelligence and great learning who had earned a high degree, there are persons who would say, "Did you know that Professor Science or Doctor Classic was present at the service?" There would be a, "behold," put to that in the memories of many!

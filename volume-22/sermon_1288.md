@@ -1,12 +1,5 @@
 # Sermon 1288 | Truly Eating the Flesh of Jesus
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 9, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then Jesus said unto them, Verily, verily, I say unto you, Except you eat the flesh of the Son of Man and drink His blood, you have no life in you. Whoever eats My flesh and drinks My blood has eternal life, and I will raise him up at the last day. For My flesh is meat, indeed, and My blood is drink indeed. He that eats My flesh, and drinks My blood, dwells in Me, and I in him." John 6:53-56.
 
 OUR Lord Jesus did not, in this passage, allude to the Lord's Supper, as some, desiring to maintain their sacramental superstitions, have dared to affirm! I will not dwell upon the argument that there was no Lord's Supper at the time to allude to, though there is certainly some force in it, but I will rather remind you that with such an interpretation this passage would not be true. It must be confessed, even by the most ardent advocate of the sacramental meaning, that the expressions used by our Lord are not universally and, without exception, true if used in that sense, for it is not true that those who have never eaten the Lord's Supper have no life in them, since it is confessed on all hands that hundreds and thousands of children dying in childhood are, undoubtedly saved, and yet they have never eaten the flesh of Christ nor drank His blood, if the Lord's Supper is here meant.

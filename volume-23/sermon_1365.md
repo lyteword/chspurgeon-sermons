@@ -1,12 +1,5 @@
 # Sermon 1365 | The Trees in God's Courts
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Those that are planted in the house of the Lord shall flourish in the courts of our God. They shall still bring forth fruit in old age; they shall be fat and flourishing; to show that the Lord is upright; He is my rock, and there is no unrighteousness in Him." Psalm 92:13-15.
 
 THESE verses occur at the close of a Psalm for the Sabbath over which there rests a Sabbatic glory of perfect calm, of hallowed peace. Amidst the business and bustle of daily life the great trouble of the Psalmist was the prosperity of the wicked, but it does not trouble him at all when he enters the sanctuary to keep the holy day. He then looks upon the ungodly who prosper in the world as so much flowering grass in their beauty and he beholds them cut down and utterly destroyed. And it is meet that a Psalm for the Sabbath should be calm and peaceful, cloudless and far-seeing. If on any day we see things in their right light and our views extend farther than at other times, surely it should be on the day of sacred rest.

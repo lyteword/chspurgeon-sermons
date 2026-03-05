@@ -1,12 +1,5 @@
 # Sermon 1419 | Encouragement to Trust and Pray
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 16, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He will be very gracious unto you at the voice of your cry; when He shall hear it, He will answer you." Isaiah 30:19.
 
 THE great sin of man is his alienation from God. He has said in his heart, "No God," and in his life he labors to escape from the Divine Presence. The journey into the far country is not only made for the sake of the riotous living, but that he may get away from the Father's house. One would have thought man would turn unto the Lord in the day of trouble, even as Hosea said, "In their affliction they will seek Me early." But this, alas, is not in truth and sincerity, for too often the sinner follows the example of Ahaz, of whom it is written, "In the time of his distress did he trespass yet more against the Lord: this is that King Ahaz."

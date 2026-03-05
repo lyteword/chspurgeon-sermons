@@ -1,12 +1,5 @@
 # Sermon 1458 | A Sermon Upon One Nothing by Another Nothing
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Though I am nothing." 2 Corinthians 12:11.
 
 THE Divine discipline had succeeded well with the Apostle Paul. There was danger of his being exalted above measure by the abundance of the Revelation which he received and, therefore, there was given him a thorn in the flesh, a messenger of Satan to buffet him--this trial fully answered its purpose and Paul remained a lowly-minded servant of Jesus Christ. His humility comes out in the incident before us. He was compelled to defend himself and prove his Apostleship and this he does very thoroughly but very modestly. In the midst of strong expressions of self-assertion, every one of them truthful and none of them exaggerated, his true humility is as manifest as if he had been unveiling his inward faults, or writing his, "Confessions."

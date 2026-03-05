@@ -1,12 +1,5 @@
 # Sermon 1460 | The Meat and Drink of the New Nature
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For My flesh is meat, indeed, and My blood is drink, indeed." John 6:55.
 
 WE know that the Savior spoke of spiritual, not carnal things, and He spoke of Himself not as being in any sense meat for our bodies--that could not be--but as being food for our souls. This statement is very plain to us, but those who heard it at the first, found it very difficult to understand. Nor need we wonder, for men of the schools who play with letters, words and phrases, frequently meet with difficulties where none exist. The Jews of our Lord's day had fallen into the foolish habit of taking words to pieces and dwelling upon the syllables and letters until they seemed to have lost all power of getting at the plain meaning which ordinary language was intended to convey. They blinded their own eyes with the pretense of superior wisdom; made puzzles and riddles out of plain words; raised a lot of dust and sat down in it blinded to the end.

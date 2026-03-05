@@ -1,12 +1,5 @@
 # Sermon 1328 | Christ the Maker of All Things New
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 10, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore if any man is in Christ, he is a new creature: old things are passed away; behold, all things are become new." 2 Corinthians, 5:17.
 
 WE shall try to preach, this morning, of Christ as the Author of the new creation and may we be enabled by the Holy Spirit to speak to His Glory. To create all things new is one of His most famous achievements! May we not only gaze upon it but be partakers in it. What says Solomon in the Book of Ecclesiastes? Does he not tell us, there, that "the thing that has been shall be, and that which is done is that which shall be done, and there is no new thing under the sun"? No doubt Solomon was correct in this declaration, but he wrote of this world and not of the world to come of which we speak. For, behold, in the world to come, that is to say, in the kingdom of our Lord Jesus Christ, all things are new!

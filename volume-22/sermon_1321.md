@@ -1,12 +1,5 @@
 # Sermon 1321 | Why May I Rejoice?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 29, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Not withstanding in this rejoice not, that the spirits are subject unto you; but rather rejoice, because your names are written in Heaven." Luke 10:20.
 
 

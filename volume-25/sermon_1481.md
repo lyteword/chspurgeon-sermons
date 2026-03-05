@@ -1,12 +1,5 @@
 # Sermon 1481 | The Red Heifer
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 29, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the Eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?" Hebrews 9:13,14.
 
 BELOVED Brothers and Sisters in Christ, you dwell in great nearness to God. He calls you "a people near unto Him." His Grace has made you His sons and daughters and He is a Father unto you. In you is His Word fulfilled, "I will dwell in them and walk in them, and I will be their God, and they shall be My people." Remember that your favored position as children of God has placed you under a peculiar discipline, for now God deals with you as with sons--and sons are under household law. The Lord will be sanctified in them that come near to Him. Special favor involves special rules. There were no strict laws made as to the behavior of the Amalekites, Amorites and Egyptians because they were far off from God and the times of their ignorance He winked at.

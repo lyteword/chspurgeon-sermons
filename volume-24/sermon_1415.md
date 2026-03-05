@@ -1,12 +1,5 @@
 # Sermon 1415 | Great Difference
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 19, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Where is the God of Judgment?" Malachi 2:17.
 
 "Then shall you return, and discern between the righteous and the wicked, between him that serves God and him that serves Him not." Malachi 3:18.

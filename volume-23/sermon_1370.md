@@ -1,12 +1,5 @@
 # Sermon 1370 | Sheep Among Wolves
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 19, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, I send you forth as sheep in the midst of wolves: be you therefore wise as serpents, and harmless as doves." Matthew 10:16.
 
 WELL may the text begin with a, "Behold," for it contains some special wonders such as can be seen nowhere else. First, here is a tender and loving Shepherd sending His sheep into the most dangerous position--"I send you forth as sheep in the midst of wolves." It is the part of a shepherd to protect his sheep from the wolves, not to send them into the very midst of those ravenous beasts! And yet, here is the Good Shepherd, "that Great Shepherd of the sheep," actually undertaking and carrying out this extraordinary experiment of conducting His sheep into the very midst of wolves. How strange it seems to poor carnal sense. Be astonished, but be not unbelieving--stand still awhile and study the reason.

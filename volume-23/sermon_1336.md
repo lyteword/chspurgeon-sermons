@@ -1,12 +1,5 @@
 # Sermon 1336 | A Family Sermon
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the Lord said unto Noah, Come you and all your house into the ark...And Noah went in, and his sons, and his wife, and his sons' wives with him, into the ark, because of the waters of the flood." Genesis 7:1, 7.
 
 GOD in infinite Grace had entered into Covenant with Noah that He would preserve him and his family alive. The tenor of that Covenant you will find in the 18th verse of the 6th chapter. "With you will I establish My Covenant; and you shall come into the ark, you, and your sons, and your wife, and your sons' wives with you." There was a positive foretelling of Noah's coming into the ark and finding safety. The thing was fixed and ordained so to be, and yet, when the time came, Noah was not carried into the ark by force, nor lifted into it against his will by a benevolent violence. He was bid to come into the ark in the most natural manner possible and he entered it voluntarily and cheerfully. He and his family left their houses to find a home in the ark, and so they were saved.

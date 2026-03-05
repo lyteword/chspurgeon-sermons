@@ -1,12 +1,5 @@
 # Sermon 1495 | The King-Priest
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He shall sit and rule on His throne; and He shall be a priest on His throne: and the counsel of peace shall be between them both." Zechariah 6:13.
 
 LET us first look at the historical setting of this passage. It would seem that three Jews of the captivity had come from Babylon with a contribution towards the building of the temple at Jerusalem under Zerubbabel and Joshua. Their names are given in the 10th verse of the chapter before us. Now, the Jews at Jerusalem had become exceedingly exclusive and, in some measure, rightly so. They would not accept help for the building of the Temple from Samaritans because they were a mixed race. They had said to them, "You have nothing to do with us to build a house unto our God, but we ourselves together will build unto the Lord God of Israel."

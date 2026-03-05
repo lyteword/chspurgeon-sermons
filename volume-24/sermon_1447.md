@@ -1,12 +1,5 @@
 # Sermon 1447 | Three Crosses
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But God forbid that I should glory, save in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world." Galatians 6:14.
 
 WHENEVER we rebuke other people we should be prepared to clear ourselves of their offense. The Apostle had been rebuking those who wished to glory in the flesh. In denouncing false teachers and upbraiding their weak-minded followers, he used sharp language while he appealed to plain facts and maintained his ground with strong arguments. And this he did without fear of being met by a flank movement and being charged with doing the same things himself. Very fitly, therefore, does he contrast his own determined purpose with their plausible falseness. They were for making a fair show in the flesh, but he shrunk not from the deepest shame of the Christian profession. So far from shrinking, he even counted it honor to be scorned for Christ's sake, exclaiming, "God forbid that I should glory, save in the Cross of our Lord Jesus Christ."

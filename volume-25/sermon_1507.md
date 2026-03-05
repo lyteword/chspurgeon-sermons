@@ -1,12 +1,5 @@
 # Sermon 1507 | Soul Saving Our One Business
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I am made all things to all men, that I might by all means save some." 1 Corinthians 9:22.
 
 IT is a grand thing to see a man thoroughly possessed with one master passion. Such a man is sure to be strong and if the master principle is excellent, he is sure to be excellent, too. The man of one objective is a man, indeed. Lives with many aims are like water trickling through innumerable streams, none of which is wide enough or deep enough to float the merest cockleshell of a boat. But a life with one objective is like a mighty river flowing between its banks, bearing to the ocean a multitude of ships and spreading fertility on either side. Give me a man not only with a great objective in his soul, but thoroughly possessed by it--his powers all concentrated and he on fire with vehement zeal for his supreme objective--and you have put before me one of the greatest sources of power which the world can produce!

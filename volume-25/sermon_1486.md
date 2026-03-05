@@ -1,6 +1,5 @@
 # Sermon 1486 | The Shame and Spitting
 
-
 > "I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting."  
 > Isaiah 50:6.  
 

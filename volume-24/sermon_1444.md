@@ -1,12 +1,5 @@
 # Sermon 1444 | The Moral of a Miracle
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus answering said unto them, Have faith in God." Mark 11:22.
 
 THIS exhortation stands in connection with the miracle of the withering of the fig tree that was clad with leaves but bore no fruit. The peculiarity of the parable calls for a few words of explanation, before we proceed, to enforce the moral appended to it. To many readers it seems strange and inconsistent that as it was not the time for figs, our Lord should have expected to find figs upon the tree at all. They wonder how it was that He should blame the fig tree for not having figs when the time of figs was not yet come. But it is because we do not live in the land of fig trees that we do not understand this, for, according to the natural order of production, the fig fruit precedes the foliage. The fig tree, first of all, puts forth its figs at the end of the shoots--the little knobs beginning to form in the early spring and the figs becoming very fairly developed before any leaves appear--so that if a fig tree has leaves upon it, it ought to have figs in a considerable state of ripeness.

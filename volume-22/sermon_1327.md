@@ -1,12 +1,5 @@
 # Sermon 1327 | Christ the Overcomer of the World
 
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, DECEMBER 3, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
-
 "Be of good cheer; I have overcome the world." John 16:33.
 
 WHEN these words were spoken, our Savior was about to leave His disciples to go to His death for their sakes. His great anxiety was that they might not be too much cast down by the trials which would come upon them. He desired to prepare their minds for the heavy sorrows which awaited them, while the powers of darkness and the men of the world worked their will upon Him. Now observe, Beloved, that our Lord Jesus, in whom dwells infinite wisdom, knew all the secret springs of comfort and all the hallowed sources of consolation in Heaven and under Heaven, and yet in order to console His disciples He spoke not of heavenly mysteries nor of secrets hidden in the breast of God, but He spoke concerning Himself.

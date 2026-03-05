@@ -1,12 +1,5 @@
 # Sermon 1403 | God's Advocates Breaking Silence
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 17, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Suffer me a little and I will show you that I have yet to speak on God's behalf." Job 36:2.
 
 ELIHU was sufficiently severe with Job, but as this arose from his honest conviction that Job had spoken amiss, we cannot blame him. The style of his address is, in some points, highly commendable. We admire the courtesy which moved him to say, "Suffer me a little." It shows some little consideration for his audience. It is to be feared that under our preaching our people suffer greatly and we do not sympathize with their sense of weariness--otherwise we might often apologize in the terms of Elihu, saying, "Suffer me a little." I admire Elihu's attempt at brevity. I call it an attempt, for I am not quite sure that he succeeded, for he filled two more chapters! Yet he said, "Suffer me a little" and thereby promised to make his oration as short as he could.

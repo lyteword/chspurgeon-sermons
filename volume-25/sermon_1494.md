@@ -1,12 +1,5 @@
 # Sermon 1494 | The One Foundation
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 14, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For no other Foundation can anyone lay than that which is laid, which is Jesus Christ." 1 Corinthians 3:11.
 
 BUILDING is very important, but the first question must always concern the foundation. However quickly, however cleverly a man may build, if the foundation is unsound, he is a foolish builder. And however slowly, however laboriously a man may proceed, his building will not put him to shame if he has set his walls erect upon a firm basis. This is emphatically true in spiritual things, for there, the foundation is of the utmost importance. The hearer of the Word of God who is not a doer, also, comes to a fatal end because, as the Savior says, he has built upon sand and, therefore, his fabric in the day of storm and flood is swept away. But he who hears the Word and does it is secure because he digs deep and lays his foundation upon a rock and, therefore, his building survives the rains of trial from above, the floods of persecution from without and the mysterious winds of Satanic temptation which howl from every quarter.

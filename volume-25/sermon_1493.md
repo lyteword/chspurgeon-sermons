@@ -1,12 +1,5 @@
 # Sermon 1493 | The Glory of God in the Face of Jesus Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 7, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For God, who commanded the light to shine out of darkness, has shined in our hearts, to give the light of the knowledge of the Glory of God in the face of Jesus Christ." 2 Corinthians 4:6.
 
 THE Apostle is explaining the reason for his preaching Christ with so much earnestness--he had received Divine light and he felt bound to spread it. One great motive power of a true ministry is trusteeship. The Lord has put us in trust with the Gospel; He has filled us with a treasure with which we are to enrich the world. The text explains in full what it is with which the Lord has entrusted us--He has bestowed upon us the light of the knowledge of the Glory of God in the face of Jesus Christ and it is ours to reflect the light, to impart the knowledge, to manifest the Glory, to point to the Savior's face and to proclaim the name of Jesus Christ our Lord. Having such a work before us, we faint not, but press onward with our whole heart.

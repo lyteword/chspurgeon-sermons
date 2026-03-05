@@ -1,12 +1,5 @@
 # Sermon 1376 | The True Priesthood, Temple and Sacrifice
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 30, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To whom coming, as unto a living stone, disallowed, indeed, of men, but chosen of God, and precious, you also, as living stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ." 1 Peter 2:4,5.
 
 AT the outset I call your special attention to the connection of the two verses. "To whom coming, as unto a living stone...you also, as living stones, are built up." Or, "To whom coming...are built up...an holy priesthood." Everywhere throughout Scripture the connection between the saints and their Head is perpetually mentioned. "In Christ" is the very symbol of New Testament writers. Whatever choice and good things are mentioned concerning the saints, their privileges and honors, we are always reminded that they are only enjoyed in connection with the Lord Jesus, according as the Father has blessed us in Him and made us to be accepted in the Beloved.

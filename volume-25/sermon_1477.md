@@ -1,12 +1,5 @@
 # Sermon 1477 | Jesus Admired In Them That Believe
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When He shall come to be glorified in His saints, and to be admired in all them that believe (because our testimony among you was believed) in that day." 2 Thessalonians 1:10.
 
 WHAT a difference between the first and second comings of our Lord! When He shall come a second time it will be to be glorified and admired, but when He came the first time it was to be despised and rejected of men. He comes a second time to reign with unexampled splendor, but the first time He came to die in circumstances of shame and sorrow. Lift up your eyes, you sons of Light, and anticipate the change which will be as great for you as for your Lord--for now you are hidden even as He was hidden and misunderstood even as He was misunderstood when He walked among the sons of men! "We know that when He shall appear, we shall be like He; for we shall see Him as He is." His manifestation will be our manifestation and in the day in which He is revealed in Glory, then shall His saints be glorified with Him.

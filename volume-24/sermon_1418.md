@@ -1,12 +1,5 @@
 # Sermon 1418 | The Holdfast
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 9, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Take fast hold of instruction; let her not go: keep her; for she is your life." Proverbs 4:13.
 
 FAITH may be well described as taking hold upon Divine instruction. God has condescended to teach us and it is ours to hear with attention and receive His words. And while we are hearing, faith comes, even that faith which saves the soul. To take "fast hold" is an exhortation which concerns the strength, the reality, the heartiness and the truthfulness of faith--and the more of these the better. If to take hold is good, to take fast hold is better! Even a touch of the hem of Christ's garment causes healing to come to us, but if we want the full riches which are treasured up in Christ, we must not only touch but take hold. And if we would know from day to day the very uttermost of the fullness of His Grace, we must take fast hold and so maintain a constant and close connection between our souls and the eternal Fountain of Life.

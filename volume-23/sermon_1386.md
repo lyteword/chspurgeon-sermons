@@ -1,12 +1,5 @@
 # Sermon 1386 | Sins Of Ignorance
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 25, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And if a soul sins and commits any of these things which are forbidden to be done by the commandments of the Lord; though he knew it not, yet is he guilty, and shall bear his iniquity. And he shall bring a ram without blemish out of the flock, with your estimation, for a trespass offering, unto the priest: and the priest shall make an atonement for him concerning his ignorance wherein he erred and knew it not, and it shall be forgiven him." Leviticus 5:17,18.
 
 IT is supposed in our text that men might commit forbidden things without knowing it. No, it is not merely supposed, but it is taken for granted and provided for. The Levitical law had special statutes for sins of ignorance and one of its sections begins with these words, "If a soul shall sin through ignorance against any of the commandments of the Lord." If you will, at your leisure, read the 4th and 5th chapters of Leviticus, you will find, first of all, it is supposed that a priest may sin. They knew nothing of infallible priests and infallible popes under the Mosaic Law! It was known and recognized that priests might sin and sin through ignorance, too.

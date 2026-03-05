@@ -1,12 +1,5 @@
 # Sermon 1350 | Enlivening and Invigorating
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Quicken me according to Your Word." Psalm 119:25.
 
 You will frequently find David uttering this petition. It is a favorite prayer of his, "Quicken me, O Lord!" And, as David was like the rest of us--indeed, his experience is the mirror of the experience of all Believers--you may depend upon it, we all have a great need to pray as he did, "Quicken me, O Lord!" If he felt a coldness and deadness frequently stealing over him, so do we. Did he find it hard to endure such a wretched state? So ought we, also, to loathe and abhor it. And as he cried to the Strong for strength and knew that quickening must come from God, we ought to know--I trust we know--the same resource under the same necessity. Therefore, let it be our prayer now and let the prayer be repeated often--"Quicken me, O Lord, according to Your Word."

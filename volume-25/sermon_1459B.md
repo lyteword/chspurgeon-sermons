@@ -1,12 +1,5 @@
 # Sermon 1459B | The Dual Nature and the Duel Within
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin, which is in my members." Romans 7:23.
 
 I QUESTION whether any man understands himself and I am quite certain that no Christian does. "Great is the mystery of godliness" in more senses than one! The Believer is a great riddle to those who observe him--"he is discerned of no man." He is equally an enigma to himself. The frequency of books like Venning's, "Orthodox Paradoxes," and good Ralph Erskine's, "Believer's Riddle," is not at all amazing, for a thousand riddles may be made about the Christian since he is a paradox from beginning to end. As Plato used to say of each man that he was two men, so may we with emphasis say of each Christian that he is two men in one.

@@ -1,12 +1,5 @@
 # Sermon 1404 | Over Against the Sepulcher
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 24, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Sitting over against the sepulcher." Matthew 27:61.
 
 MARY MAGDALENE and the other Mary were last at the Savior's grave. They had associated themselves with Joseph and Nicodemus in the sad but loving task of placing the body of their Lord in the silent tomb. After the holy men had gone home they lingered near the grave. Sitting down, perhaps upon some seat in the garden, or on some projection of the rock, they waited in mournful solitude. They had seen where and how the body was laid and so had done their utmost, but yet they still sat watching--love has never done enough, it is hungry to render service. They could scarcely take their eyes away from the spot which held their most precious Treasure, nor leave, till they were compelled to do so, the sacred relics of their Best Beloved.

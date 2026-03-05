@@ -1,12 +1,5 @@
 # Sermon 1377 | Taking Hold of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 7, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "There is none that calls upon Your name, that stirs up himself to take hold of You." Isaiah 64:7.
 
 ISAIAH, in the chapter before us, describes a very mournful condition of the people of God. He feels the case to be so desperate that he sighs for a Divine interposition--"Oh that You would rend the heavens, that You would come down." He perceives that the people are so steeped in slumber, so utterly under the power of their sins that unless God, Himself, shall descend with all the power and terror of Sinai, the nation will utterly perish through its iniquity, even as withered leaves are blown away by the fierce winds. He longed for a melting fire to dissolve their hard hearts--for a swift flame such as burns the brushwood on the mountain's side to make a speedy end of their false confidences--and for a burning heat, such as makes waters boil, to remove the lukewarmness of those who professed to worship the Lord.

@@ -1,12 +1,5 @@
 # Sermon 1410 | Believers Free from the Dominion of Sin
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 21, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For sin shall not have dominion over you: for you are not under the Law, but under Grace." Romans 6:14.
 
 OUR constant hearers will remember that a Sabbath or so ago we spoke upon, "Submit yourselves unto God." [#1408, The Reason Why Many Cannot Find Peace.] It is both the way to peace and the way of peace to submit one's whole self unto God. Nor is it an irksome task to a true Believer, but the desire of his heart, the pleasure of his life. He shudders at the idea of yielding his members as instruments of unrighteousness unto sin, but according to the language of the verse which precedes our text, he yields himself unto God as one who has been made alive from the dead and his members as instruments of righteousness unto God. Complete consecration of every faculty of mind and body unto the Lord is our soul's deepest wish. We can sing most sincerely that sweet consecration hymn--

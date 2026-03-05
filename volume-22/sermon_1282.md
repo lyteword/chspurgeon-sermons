@@ -1,12 +1,5 @@
 # Sermon 1282 | Conversions Desired
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 5, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the hand of the Lord was with them: and a great number believed, and turned unto the Lord." Acts 11:21.
 
 THE Brethren who had dwelt together in Church fellowship at Jerusalem were scattered abroad by persecution which arose about Stephen. Their Master had told them that when they were persecuted in one city they were to flee to another. They obeyed His command and in the course of escape from persecution they took very long journeys--very long journeys, indeed, for that age of the world, when travel was exceedingly difficult. But wherever they found themselves, they began, at once, to preach Jesus Christ, so that the scattering of the disciples was also a scattering of good Seed in broader fields. The malice of Satan was made the instrument of the mercy of God.

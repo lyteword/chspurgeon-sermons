@@ -1,12 +1,5 @@
 # Sermon 1408 | The Reason Why Many Cannot Find Peace
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 7, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Submit yourselves therefore to God. Resist the devil, and he will flee fromyou. Drawnear to God, and He will drawnear to you. Cleanse your hands, you sinners; and purify your hearts, you double-minded. Be afflicted, and mourn, and weep! Let your laughter be turned to mourning, and your joy to heaviness. Humble yourselves in the sight of the Lord, and He shall lift you up." James 4:7-10.
 
 WE frequently meet with persons who tell us that they cannot find peace with God. They have been bidden to believe in the Lord Jesus, but they misunderstand the command and, while they think they are obeying it, they are really unbelievers and, therefore, they miss the way of peace. They attempt to pray, but their petitions are not answered and their supplications yield them no comfort whatever, for neither their faith nor their prayer is accepted of the Lord. Such persons are described by James in the 3rd verse of the chapter now open before us--"You ask, and receive not, because you ask amiss." We cannot be content to see seekers in this wretchedness and, therefore, we endeavor to comfort them, instructing them, again and again, in the great Gospel precept, "Believe and live."

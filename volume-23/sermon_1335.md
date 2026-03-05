@@ -1,12 +1,5 @@
 # Sermon 1335 | A Cheery Word in Troublous Times
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me." Acts 27:25.
 
 THE presence of a brave man in the hour of danger is a very great comfort to his companions. It is a grand thing to observe Paul so bold, so calm in the midst of all the hurly-burly of the storm. He was talking so cheerfully and so encouragingly to the crew and to the soldiers and to the prisoners. You must have seen, in many events in history, that it is the one man, after all, that wins the battle. All the rest play their parts well when the one heroic spirit lifts the standard. Every now and then we hear some simpleton or other talking against a "one-man ministry," when it has been a one-man ministry from the commencement of the world to the present day! And whenever you try to have any other form of ministry, except that of each individual saint discharging his own ministry, and doing it thoroughly and heartily and independently and bravely in the sight of God, you very soon run upon quicksand.

@@ -1,12 +1,5 @@
 # Sermon 1506 | Choice Comfort for a Young Believer
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord will perfect that which concerns me: Your mercy, O Lord, endures forever: forsake not the works of Your own hands." Psalm 138:8.
 
 CONTINUALLY I am clearing the ground and laying the foundation of eternal salvation in the Grace of God which was manifested in Christ Jesus when He came into the world to save sinners. This I did this morning and the Lord has set His seal thereon right speedily, which is to me a sure proof that the frequent preaching of the foundation Truths of God is according to the mind of God. That necessary work cannot be done too often, for men need to hear the true Gospel as often as they hear the striking of the hour and even then, they forget it. Yet do not all forget. There are a few, like those who were saved with Noah, who seek the Ark of salvation and live.

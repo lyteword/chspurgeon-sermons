@@ -1,12 +1,5 @@
 # Sermon 1473 | Forts Demolished and Prisoners Taken
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 11, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Casting down imaginations, and every high thing that exalts itself against the knowledge of God, and bringing into captivity every thought to the obedience of Christ." 2 Corinthians 10:5.
 
 THIS chapter presents the remarkable spectacle of a minister of the Gospel of Peace going forth to war! At first sight we wonder how the meek and gentle Paul should speak about warring and talk of pulling down strongholds and "having a readiness to revenge all disobedience." The surprise is all the greater because he is going to war in the Church--a shepherd entering the fold with a sword! One would not so much marvel that he carried his weapons against the outside world, but on this occasion it is within the Church at Corinth that he is about to commence a campaign! Yet observe how earnestly he deprecates the conflict; how he beseeches them by the meekness and gentleness of Christ to spare him a task which was so unpleasant to his feelings as to deal sternly with those whom he would far rather have commended.

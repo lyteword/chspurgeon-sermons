@@ -1,12 +1,5 @@
 # Sermon 1463B | The Rising Sun
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth, and grow up as calves of the stall." Malachi 4:2.
 
 THE Jews expected that the coming of the Messiah would exalt every one of the Israelite race. Their expectations were great, but they were also carnal and sensuous since they looked for an earthly king who would make the despised nation victorious over all its enemies and enrich every man of Abraham's race. The Scriptures gave them no ground for such universal expectations, but quite the reverse. In the chapter which is now before us the Prophet explains that the coming of Christ would certainly be like the rising of the sun, full of glory and of brightness, but the results would not be the same to all. To those who thought that they were righteous and despised others, but who were wicked in their conversation--the rising of that sun would bring a burning, withering day.

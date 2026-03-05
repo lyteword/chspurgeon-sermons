@@ -1,12 +1,5 @@
 # Sermon 1389 | A Gospel Sermon To Outsiders
 
-
-DELIVERED ON LORD'S-DAY EVENING, AUGUST 19, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be of good comfort, rise; He calls you." Mark 10:49.
 
 Preached on a night when the Tabernacle was free to all comers, the regular congregation having vacated their seats.

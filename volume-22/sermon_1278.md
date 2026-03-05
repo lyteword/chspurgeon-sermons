@@ -1,12 +1,5 @@
 # Sermon 1278 | Reasons For Parting With Sin
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 13, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Isaiah 1:18.
 
 IT is the great joy of our heart that we do not labor in vain nor spend our strength for nothing. God is calling out from the congregations which gather here a people unto Himself who shall show forth His praise. Our heart is filled with adoring joy while we find company after company coming forward and saying, "We have found the Lord, because the Lord, in mercy, has found us." Unto the name of the Ever Merciful be praise forever and ever because His hand is stretched out, still, and the Spirit of the living God is not restrained among us! Still there is a bass to this music--there are some, and these not a few, who remain unblest where others are saved--this plot of ground is rained upon and another is not rained upon! The sun shines and hearts, like wax, are melted, but other hearts, like clay, are hardened.

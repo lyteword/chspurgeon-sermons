@@ -1,12 +1,5 @@
 # Sermon 1467B | Two Sorts Of Hearers
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But be you doers of the Word, and not hearers only, deceiving yourselves. For if any is a hearer of the Word, and not a doer, he is like unto a man beholding his natural face in a glass: For he beholds himself, and goes his way, and straightway forgets what manner of man he was. But whoever looks into the perfect Law of liberty, and continues therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed." James 1:22-25.
 
 JAMES has no speculations. "By their fruits you shall know them," seems to have taken possession of his mind and he is always demanding practical holiness. He is not satisfied with the buds of hearing--he wants the fruits of obedience! We need more of his practical spirit in this age, for there are certain ministers who are not content with sowing the old seed, the same seed which, from the hand of Apostles, confessors, fathers, reformers and martyrs produced a harvest unto God. They spend their time in speculating as to whether the seed of tares grown under certain circumstances may not bring forth wheat--whether, at any rate, good wheat would not be the better for the admixture of just a little sprinkling of tare seed!

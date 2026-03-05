@@ -1,12 +1,5 @@
 # Sermon 1466 | The Three Whats
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON
-
 "The eyes of your understanding being enlightened; hat you may know whiat is he hiope of His calling, and whiat are he richies of he glory of His inhieritance in he saints, and whiat is he exceeding greatness of Hispower toward us who believe, according to the working of His mighty power, which He worked in Christ, when He raised Him from the dead, and set Him at His own right hand in the hea venly places." Ephesians 1:18-20.
 
 [On a night when the Tabernacle was thrown open to all comers, the ordinary hearers vacating their seats for the occasion.]

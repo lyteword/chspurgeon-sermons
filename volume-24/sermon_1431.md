@@ -1,12 +1,5 @@
 # Sermon 1431 | The Message from the Lord's Mouth
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 1, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Son of man I have made you a watchman for the house of Israel: therefore hear the word from My mouth, and give them warning from Me." Ezekiel 3:17.
 
 IN most places the seasons in the Church are the reverse of those of Nature. Our wintry season generally comes when our hearers are busy in the fields, or resting in their summer retreats. And our harvest time for the ingathering of souls comes to us in the winter when, during the long evenings, the people can come together and special meetings for prayer and exhortation can be held. Just now, as the damp of autumn begins to fall and the days are sensibly shortening, we ought to take note of the signs of the times and begin sharpening our sickles for a plenteous harvest. The time when kings go forth to battle is coming on and we must muster the host. The season when we can, with special ease, gather the people and hopefully labor for their conversion is now at our doors and it is well that we gird up our loins for it!

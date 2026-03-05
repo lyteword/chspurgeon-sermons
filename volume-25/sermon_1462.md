@@ -1,12 +1,5 @@
 # Sermon 1462 | The Yoke Removed and the Lord Revealed
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They shall know that I am the Lord when I ha ve broken the bars of their yoke." Ezekiel 34:27.
 
 BUT do not all men know that God is the Lord? They should know it, for He is clearly to be seen in the works of Nature. Even where no Revelation has come, yet Heaven and earth and sea and the rain which brings with it fruitful seasons--filling men's hearts with food and gladness--all proclaim the Most High! But man, by wisdom, knows not God. He shuts his eyes to evidences brighter than the sun and in his willful blindness he sets up an image of wood or stone or gold or silver--bows before it and calls that his God! This is the sin of the nations, that they changed the Glory of the incorruptible God into an image made like to corruptible man and to birds and four-footed beasts and creeping things.

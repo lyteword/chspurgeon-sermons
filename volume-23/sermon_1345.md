@@ -1,12 +1,5 @@
 # Sermon 1345 | For Whom Is The Gospel Meant?
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance." Mark 2:17.
 
 "Christ died for the ungodly." Romans 5:6.

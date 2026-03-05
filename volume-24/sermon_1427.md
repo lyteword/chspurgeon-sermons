@@ -1,12 +1,5 @@
 # Sermon 1427 | A Wilderness Cry
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 4, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O God, You are my God; early will I seek You: my soul thirsts for You, my flesh longs for You in a dry and thirsty land, where there is no water; to see Your power and Your Glory, so as I have seen You in the sanctuary." Psalm 63:1,2.
 
 CHRYSOSTOM tells us that among the primitive Christians it was decreed and ordained that no day should pass without the public singing of this Psalm and, certainly, if we do not follow the ancient custom and actually sing the words every day, it is not because they are unsuitable or because their spirit has died out among us. This Psalm may be said or sung all the year round. Have we joyous days? Let us sing of the loving kindness which is better than love! Do the clouds return after the rain? Let us sound forth His praise whose right hand upholds us! Is it summertime with our souls? Then we may express the full assurance of our faith by joyfully crying, "O God, You are my God; early will I seek You!" Have we fallen upon the drought of autumn? Do the long hot days parch our spirits? Then may we chant the desire of our longing heart, "My soul thirsts for You, my flesh longs for You in a dry and thirsty land, where no water is."

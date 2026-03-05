@@ -1,12 +1,5 @@
 # Sermon 1373 | Our Last Journey
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 9, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When a few years are come, then I shall go the way from where I shall not return." Job 16:22.
 
 THE season of the year may well remind us of our mortality. The corn, which a few weeks ago was green and vigorous, has now, for the most part, yielded to the sickle. Many flowers which adorned our gardens have exchanged their bloom for ripening seed. The year has commenced to die--its glory and prime have gone. The dews of evening are heavy and the mists linger in the morning, for the summer heat is declining. The leaves are just upon the turn and the fall of the year is close at hand. These are Creation's warnings, reminding us that the Lord has set a harvest for us and that we all fade as a leaf.

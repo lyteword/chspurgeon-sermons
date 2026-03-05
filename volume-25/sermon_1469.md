@@ -1,6 +1,5 @@
 # Sermon 1469 | Prayer Perfumed with Praise
 
-
 > "In every thing by prayer and supplication with thanksgiving let your requests be made known unto God."  
 > Philippians 4:6.  
 

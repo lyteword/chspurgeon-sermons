@@ -1,12 +1,5 @@
 # Sermon 1468 | The Philosophy and Propriety of Abundant Praise
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness." Psalm 145:7.
 
 THIS is called "David's Psalm of praise" and you will see that all through it he is inflamed by a strong desire that God may be greatly magnified. Hence he uses a variety of expressions and repeats himself in his holy vehemence. Run your eyes down the Psalm and notice such words as these--"I will extol You." "I will bless Your name." "Every day will I bless You." "I will praise Your name forever and ever." "Great is the Lord and greatly to be praised." "One generation shall praise Your works to another." "I will speak of the glorious honor of Your majesty." "Men shall speak of the might of Your terrible acts" and other words of the same meaning down to the last verse--"My mouth shall speak the praise of the Lord: and let all flesh bless His holy name forever and ever."

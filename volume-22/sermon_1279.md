@@ -1,12 +1,5 @@
 # Sermon 1279 | Amazing Grace
 
-
-A SERMON DELIVERED
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have seen his ways, and will heal him: I will lead him also, and restore comfort unto him and to his mourners." Isaiah 57:18.
 
 THERE are a few objects in Nature which never cease to astonish the beholder. I think Humboldt said he could never look upon the rolling prairies without astonishment. And I suppose some of us will never be able to look upon the ocean, or to see the sun rise or set without feeling that we have before us something always fresh and always new. Now, I have been, not only for the love of it, but because of my calling of preaching it, a constant reader of Holy Scripture and yet after these 25 years and more I frequently alight upon well known passages which astonish me as much as ever. As if I had never heard them before, they come upon me, not merely with freshness, but even so as to cause amazement in my soul!

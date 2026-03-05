@@ -1,12 +1,5 @@
 # Sermon 1487 | The Prophet Like Unto Moses
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 3, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord your God will raise up unto you a Prophet from the midst of you, of your brethren, like unto me; unto Him you shall hearken; according to all that you desired of the Lord your God in Horeb in the day of the assembly, saying, Let me not hear again the voice of the Lord my God, neither let me see this great fire any more, that I die not. And the Lord said unto me, They have well spoken that which they have spoken. I will raise them up a Prophet from among their brethren, like unto you, and will put My words in His mouth; and He shall speak unto them all that I shall command Him. And it shall come to pass, that whoever will not hearken unto My words which He shall speak in My name, I will require it of him." Deuteronomy 18:15-19.
 
 MAN, the creature, may well desire communion with his Creator. When we are right-minded we cannot bear to be like fatherless children, born into the world by a parent of whom we know nothing whatever. We long to hear our father's voice. Of old time, before sin had entered into the world, the Lord God was on the most intimate terms with His creature, man. He communed with Adam in the garden. In the cool of the day He made the evening to be seven-fold refreshing by the shadow of His own Presence. There was no cloud between unfallen man and the Ever-Blessed One-- they could commune together, for no sin had set up a middle wall of partition.

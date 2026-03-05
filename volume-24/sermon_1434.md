@@ -1,12 +1,5 @@
 # Sermon 1434 | Jesus!
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 15 1878,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And she shall bring forth a Son, and you shall call His name JESUS: for He shall save His people from their sins." Matthew 1:21.
 
 BERNARD has delightfully said that the name of Jesus is honey in the mouth, melody in the ear and joy in the heart. I rejoice in that expression on my own account, for it gives me my share of the delight and leads me to hope that while I am speaking, the sweetness of the precious name of Jesus may fill my own mouth. Here, also, is a portion for you who are listening--it is melody in the ears! If my voice should be harsh and my words discordant, you will yet have music of the choicest order, for the name itself is essential melody and my whole sermon will ring with its silver note! May both speaker and hearer join in the third word of Bernard's sentence and may we all find it to be joy in our hearts, a jubilee within our souls! Jesus is the Way to God, therefore will we preach Him! He is the Truth, therefore will we hear of Him! He is the Life, therefore shall our hearts rejoice in Him! So inexpressibly fragrant is the name of Jesus that it imparts a delicious perfume to everything which comes in connection with it.

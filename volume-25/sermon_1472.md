@@ -1,12 +1,5 @@
 # Sermon 1472 | The Glory, Unity and Triumph of the Church
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the Glory which You gave Me, I have given them; that they may be one, even as We are One: fin them, and You in Me, that they may be made perfect in one; and that the world may know that You ha ve sent Me and ha ve lo ved them, as You have loved Me." John 17:22-3.
 
 SOME words serve many uses and have many meanings. We are very apt to make mistakes if we give the same sense in all places to the same word. The word, "world," throughout Scripture is used with a very remarkable variety of meaning and one had need to have his wits about him and to read carefully in order to know what is the precise force of the term in each place where it occurs. In the text before us it is evident that Christ had a view to the world--He desired that the world might know that the Father had sent Him and might know, also, that God had loved His people even as He had loved His Son. From the somewhat altered expression in the 21st verse, we feel convinced that our Lord did not limit His desires for the world to its having a bare knowledge of these facts, but wished that it should also believe them, for thus runs the verse--"That the world may believe that You have sent Me."

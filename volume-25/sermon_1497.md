@@ -1,12 +1,5 @@
 # Sermon 1497 | Self-righteousness--a Smoldering Heap of Rubbish
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 28, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Which say, Stand by yourself, come not near to me; for I am holier than you. These are a smoke in My nose, a fire that burns all the day." Isaiah 65:5.
 
 THE Apostle Paul shall be our interpreter here. You remember how in the 10th chapter of his Epistle to the Romans he quotes from this chapter and says, "Isaiah is very bold and says, I was found of them that sought Me not; I was made manifest unto them that asked not after Me. But to Israel He says, all day long I have stretched forth My hands unto a disobedient and gainsaying people"? Isaiah was very bold to speak the Gospel so plainly, when a legal spirit prevailed, and very bold to defy the enmity of his own nation by declaring that they would be rejected for their sins, while the far-off heathen would be brought in by Sovereign Grace. He was bold to denounce hypocrites to their faces and to smite a proud nation with the threats of the Lord. Perhaps it was for this boldness that he suffered a cruel death by the hands of Manasseh.

@@ -1,12 +1,5 @@
 # Sermon 1339 | Idols Abolished
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Ephraim shallsay, Whathave I to do anymore with idols?" Hosea 14:8.
 
 IDOLATRY was the great sin of the 10 tribes represented by Ephraim. Indeed, it is the sin of the entire human race! When we speak of idolatry we need not think of blocks of wood and stone and men bowing down before them, for our native land swarms with idolaters. Neither need you go into the streets to find them. Stay where you are and look into your own hearts--you will find idols there. This is the one easily besetting sin of our nature--to turn aside from the living God and to make unto ourselves idols in some fashion or another. The essence of idolatry is this--to love anything better than God, to trust anything more than God, to wish to have a god other than we have, or to have some signs and wonders by which we may see Him, some outward symbol or manifestation that can be seen with the eyes or heard with the ears rather than to rest in an invisible God and believe the faithful promise of Him whom eye has not seen nor ear heard.

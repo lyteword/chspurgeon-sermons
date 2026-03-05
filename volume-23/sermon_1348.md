@@ -1,12 +1,5 @@
 # Sermon 1348 | The Great House and the Vessels In It
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 8, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But in a great house there are not only vessels of gold and of silver, but, also, of wood and of earth; and some to honor and some to dishonor. If a man, therefore, purges himself from these, he shall be a vessel unto honor, sanctified, and meet for the Master's use, and prepared unto every good work." 2 Timothy 2:20,21.
 
 ONE of the most serious calamities which can befall a Church is to have her own ministers teaching heresy. Yet this is no new thing--it has happened from the beginning. Paul and Peter and James and John, in their Epistles, had to speak of seducers in the Churches, even in those primitive days, and ever since then there have arisen in the very midst of the House of God those who have subverted the faith of many and led them away from the fundamental Truths of God into errors of their own inventing.

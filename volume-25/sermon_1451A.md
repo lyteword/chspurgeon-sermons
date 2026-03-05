@@ -1,10 +1,5 @@
 # Sermon 1451A | "This Year Also"
 
-
-FOR THE NEW YEAR - 1879.
-
-FROM THE SICK CHAMBER OF C. H. SPURGEON.
-
 "This year also." Luke 13:6.
 
 AT the opening of another year and at the commencement of another volume of sermons, we earnestly desire to utter the word of exhortation, but alas, at this present, the preacher is a prisoner and must speak from his pillow instead of his pulpit! Let not the few words which we can put together come with diminished power from a sick man, for the musket fired by a wounded soldier sends forth the bullet with none the less force. Our desire is to speak with living words, or not at all. He who enables us to sit up and compose these trembling sentences is entreated to clothe them with His Spirit, that they may be according to His own mind.

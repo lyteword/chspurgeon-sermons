@@ -1,12 +1,5 @@
 # Sermon 1347 | How Is Salvation Received?
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 1, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore it is of faith, that it might be by Grace; to the end the promise might be sure to all the seed; not to that only which is of the Law, but to that, also, which is of the faith of Abraham; who is the father of us all." Romans 4:16.
 
 WE shall turn during yet another Sabbath morning to one of the great vital Truths of the Gospel. I feel it to be more and more important to bring forward the fundamental doctrines since they are, in certain quarters, placed so much in the background. I met with a remark the other day that even the evangelical pulpit needs to be evangelized--I am afraid it is too true and, therefore, we will give such prominence to the Gospel and to its central Doctrine of Justification by Faith, that no such remark shall be applicable to us. We have heard it said that if an instrument could be invented which would serve the same purpose towards sermons as the lactometer does towards milk, you would, with great difficulty, be able to discover any trace of the unadulterated milk of the Word of God in large numbers of modern discourses.

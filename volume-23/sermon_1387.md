@@ -1,12 +1,5 @@
 # Sermon 1387 | God's Thoughts and Ways Far Above Ours
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 2, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the hea vens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts." Isaiah 55:8,9.
 
 VERY often must the great Truth of God expressed by this Scripture have forced itself upon every thoughtful mind. Though we think and are so far like God because, being intelligent beings, we have thoughts of our own, yet our thoughts must forever be weak and fragmentary as compared with His thoughts. And though, as free agents, we have ways of our own choice--in some of which we move with great show of wisdom--yet our ways are upon the earth and cannot attain to the ways of the Lord which are far above us. This is true as to His proceedings in Providence. God's designs are vast and far-reaching and His methods are frequently strange and inscrutable, though always wise.

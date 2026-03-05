@@ -1,12 +1,5 @@
 # Sermon 1490 | Contention Ended and Grace Reigning
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 17, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For I will not contend forever, neither will I always be angry; for the spirits would fail before Me, and the souls which I have made. For the iniquity of his covetousness was I angry, and smote him: I hid and was angry, and he went on backsliding in the way of his heart. I have seen his ways, and will heal him: I will also lead him, and restore comforts to him and to his mourners." Isaiah 57:16-18.
 
 The high and holy One that inhabits eternity is here speaking with Himself concerning Israel. The Lord is holding high soliloquy. He is not so much addressing the sons of men, bidding them do this or that, as speaking to Himself of what He intends to do among them. He allows His Prophet to stand where he can hear the sacred soliloquy of the great Supreme. And he hears it and then, under the dictate of the Divine Spirit, he records it in the Inspired Book where it remains to this day for our instruction. Hear, then, these words of the living God and let your hearts be satisfied concerning the secret purposes of Jehovah!

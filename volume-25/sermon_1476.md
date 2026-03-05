@@ -1,12 +1,5 @@
 # Sermon 1476 | Jesus, the Judge
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He commanded us to preach unto the people and to testify that it is He which was ordained of God to be the Judge of the quick and the dead." Acts 10:42.
 
 You will notice throughout this short address by Peter how very careful he is to speak not at all upon his own authority, but wholly upon the authority of the Most High. He commences his conversation by saying that God had shown him that it would be right for him, as a Jew, to commune with Gentiles. God had shown it to him--he had not, therefore, broken through Jewish law as the result of his own judgment, but under Divine direction. He goes on to commence his sermon by saying, "The Word which God sent unto the children of Israel." He had come, therefore, not with a Word of his own inventing, but with a Word of God's sending. "That Word, I say, you know." Then he speaks of Jesus of Nazareth Himself as anointed with the Holy Spirit and with power. And he speaks of himself and his fellow Apostles as "witnesses," bearing testimony to what the Lord Jesus had done.

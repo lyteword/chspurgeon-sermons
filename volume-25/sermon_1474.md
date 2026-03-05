@@ -1,12 +1,5 @@
 # Sermon 1474 | The Middle Passage
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O Lord, I have heard Your speech, and was afraid; O Lord, revive Your work in the midst of the years, in the midst of the years make known; in wrath remember mercy." Habakkuk 3:2.
 
 (In commemoration of the completion of the 25th year of his Ministry over the Church meeting in the Tabernacle).

@@ -1,12 +1,5 @@
 # Sermon 1390 | Brief, Silent Prayer
 
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 9, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "So I prayed to the God of Heaven." Nehemiah 2:4.
 
 Nehemiah had made inquiry as to the state of the city of Jerusalem and the tidings he heard caused him bitter grief. "Why should not my countenance be sad," he said, "when the city, the place of my fathers' sepulchers, lies waste and the gates thereof are consumed with fire?" He could not endure that it should be a mere ruinous heap--that city which was once beautiful and the joy of the whole earth! Laying the matter to heart, he did not begin to speak to other people about what they would do, nor did he draw up a wonderful scheme about what might be done if so many thousand people joined in the enterprise.

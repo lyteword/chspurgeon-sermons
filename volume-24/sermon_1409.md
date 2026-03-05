@@ -1,6 +1,5 @@
 # Sermon 1409 | The Shortest of the Seven Cries
 
-
 > "After this, Jesus knowing that all things were now accomplished, that the scripture might be fulfilled, saith, I thirst."  
 > John 19:28.  
 

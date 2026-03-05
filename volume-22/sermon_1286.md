@@ -1,12 +1,5 @@
 # Sermon 1286 | A Weighty Charge
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 26 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Keep yourselves in the love of God." Jude 1:21.
 
 JUDE gives a very terrible picture of what will happen in the last days. He describes apostates and paints them in the blackest colors. And he then informs us that there will come, in the last time, mockers and with them separatists and sensualists, all of whom will assail the Church of the living God. It feels very natural, that after foretelling our adversaries and describing them, and so bidding us view the hosts assembled for the war, he should next instruct us how to prepare our defenses and set our forces in battle array. In the 20th and 21st verses of his epistle, Jude mentions the great Christian Quadrilateral, the four forts which must be well manned and carefully maintained if we would battle the advancing foe.

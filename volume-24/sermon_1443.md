@@ -1,12 +1,5 @@
 # Sermon 1443 | A Clear Conscience
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then shall I not be ashamed, when I ha ve respect unto all Your commandments." Psalm 119:6.
 
 ANY attempt to keep the Law of God with the view of being saved thereby is sure to end in failure. So contrary is it to the express warnings of the Divine Lawgiver and so much does it run counter to the whole Gospel, that he who ventures to seek justification by his own merits ought to be ashamed of his presumption. When God tells us that salvation is not by the works of the Law, are you not ashamed of trying to procure it by your obedience to its precepts? When He declares that by the works of the Law there shall no flesh be justified in His sight, are you not ashamed to go and seek after justification where He tells you it never can be found? When He, over and over again, declares that salvation is by faith and that it is a matter of Grace to be received, do you not blush for yourself that you should give the lie to God and propound a righteousness of your own conceit in which you have vainly tried to keep up a respectable appearance, screening the palpable delinquencies of your life under a thin veil of piety toward God and charity toward men?

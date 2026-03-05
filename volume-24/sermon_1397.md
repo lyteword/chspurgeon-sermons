@@ -1,12 +1,5 @@
 # Sermon 1397 | The Peace of God
 
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 6, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the peace of God, which passes all understanding, shall keep your hearts and minds through Christ Jesus." Philippians 4:7.
 
 "PEACE" is a heavenly word. When at the advent of our Lord angels came to sing among men a midnight sonnet, their second note was "Peace on earth." Would God the shining ones would chant that song again till yonder Balkans heard the strain and shook off the sulfurous cloud which now hangs around them. Those who have ever seen war, or even come near the trail of its bloody march, will be thankful to God for peace. I am almost of his mind who said that the worst peace is preferable to the very best war that was ever waged--if best there can be where all is bad as bad can be. Peace is most pleasant when religion sits beneath its shade and offers her joyful vows to Heaven.

@@ -1,12 +1,5 @@
 # Sermon 1502 | Satan in a Rage
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Woe to the inhibitors of the earth and of the sea! For the devil has come down to you, having great wrath, because he knows that he has but a short time." Revelation 12:12.
 
 THE great battle in the heavenlies has been fought--our glorious Michael has forever overthrown the dragon and cast him down. In the highest regions the great principle of evil has received a total defeat through the life and death of our Lord Jesus. Atonement has been made for human sin and the great quarrel between God and man has come to a happy end. Everlasting righteousness has been brought in and the peace of God reigns in Heaven. The conflict, from now on, rages here below and in these inferior regions the Prince of this world is warring mightily against the cause of God and truth. Much woe does this cause to the sons of men--woe which will never end till his power is altogether taken away.

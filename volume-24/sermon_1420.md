@@ -1,12 +1,5 @@
 # Sermon 1420 | The Headstone of the Corner
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 23, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The stone which the builders refused is become the headstone of the corner. This is the Lord's doing; itis marvelous in our eyes. This is the day which the Lordhas made; we willrejoice and be glad in it, Save now, I beseech You, O Lord: O Lord, I beseech You, send now prosperity." Psalm 118:22-25.
 
 It would be difficult, if not impossible, to fix with certainty the occasion which first suggested this Psalm. It has even been thought to be purely prophetic and rather foretelling history than narrating it. I rather incline to the opinion that some Israelite hero, chosen of God to high office in the midst of his people, had been rejected by the rulers, had passed through many struggles--some of them of the most violent kind--and at last, notwithstanding the rejection of his people and their leaders, had attained to a prominent position, no, to a chief place in the midst of the nation!

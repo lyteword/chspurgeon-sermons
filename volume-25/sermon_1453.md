@@ -1,12 +1,5 @@
 # Sermon 1453 | Eternal Faithfulness Unaffected By Human Unbelief
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "If we believe not, yet He abides faithful: He cannot deny Himself." 2 Timothy 2:13.
 
 THIS is one of the five faithful sayings which the Apostle mentions. All those faithful sayings are weighty and important. I suppose that they may have come into the possession of the Church by having been uttered by some of those Prophets who were raised up to cherish the infancy of the Church, such as Agabus and the daughters of Philip and others. These may have been some of their more remarkable sayings which laid hold upon the minds of good men; were quoted by the preachers and teachers and so became current throughout the Church. Such golden sayings were minted into proverbs and passed from hand to hand, enriching all who received them. To the saints they became "familiar in their mouths as household words" and were specially named faithful or true sayings.

@@ -1,10 +1,5 @@
 # Sermon 1509 | The Best of All Sights
 
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
-
 "But we see Jesus." Hebrews 2:9.
 
 IN Holy Scripture faith is placed in opposition to the sight of the eyes and yet it is frequently described as looking and seeing. It is opposed to carnal sight because it is spiritual sight--a discernment which comes not of the body, but arises out of the strong belief of the soul, worked in us by the Holy Spirit. Faith is sight in the sense of being a clear and vivid perception, a sure and indisputable discovery, a realizing and unquestionable discernment of fact. We see Jesus, for we are sure of His Presence. We have unquestionable evidence of His existence and we have an intelligent and intimate knowledge of His Person. Our soul has eyes far stronger than the dim optics of the body and with these we actually see Jesus. We have heard of Him and upon the witness of that hearing we have believed--and through believing there has come to us a new life which rejoices in new light and in opened eyes--and "we see Jesus." In the old sense of sight we speak of Him as of one "whom having not seen we love," but in the new sense, "we see Jesus."

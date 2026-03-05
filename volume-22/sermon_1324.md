@@ -1,12 +1,5 @@
 # Sermon 1324 | Unwillingness to Come to Christ
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, NOVEMBER 2, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And you will not come to Me, that you might have life." John 5:40.
 
 OUR Lord was addressing Himself to the unbelieving Jews. He told them that they had received abundant evidence of His being the Sent One of God, but yet they had rejected Him, and He solemnly charged this home upon their consciences. If you read the passage at home you will see that in the 36th verse He reminded them that He had received the witness of John, and all men believed John to be a Prophet. He had come as the herald of Christ, the promised Elijah, and he had borne witness, saying, "Behold the Lamb of God, which takes away the sin of the world." Yet this clear testimony they had despised and trod under foot.

@@ -1,12 +1,5 @@
 # Sermon 1496 | Among Lions
 
-
-DELIVERED ON THURSDAY EVENING, SEPTEMBER 4, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My soul is among lions." Psalm 57:4.
 
 SOME of you cannot say this and you ought to be very thankful that you are not obliged to do so. Happy are you young people who have godly parents and who dwell in Christian families. You ought to grow like the flowers in a conservatory, where killing frosts and biting blasts are unknown. You live under very favorable circumstances. Your soul, I might almost say, is among angels, for you dwell where God is worshipped, where family prayer is not forgotten, where you can have a kindly guidance in the hour of difficulty and comfort in the time of trial. You dwell where angels come and go and God, Himself, deigns to dwell! Happy should young people be in such circumstances! How grateful and how holy you ought to be!

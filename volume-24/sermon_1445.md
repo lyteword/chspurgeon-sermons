@@ -1,12 +1,5 @@
 # Sermon 1445 | Wake Up! Wake Up!
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That, knowing the time, that now it is high time to awake out of sleep: for now is our salvation nearer than when we believed." Romans 13:11.
 
 THIS exhortation, as you will readily perceive, is not addressed to the ungodly. These words are not spoken to those who are dead in sin, but to those who are alive unto God, though somewhat given to slumber. There are many expostulations and admonitions which appeal to the willful and wicked, to the indifferent and unbelieving, to those who err and are out of the way, but this is not one of them. Here we have a special charge to disciples of Jesus who know the time and also know that their salvation draws near. They are represented as being asleep and needing to awake from their present sluggishness. But they are not described as those who had ceased to be Christians, or whose salvation was in jeopardy. Though it is admitted that it is high time for them to awake out of sleep, their salvation is never questioned, but on the contrary they are reminded that now it is nearer than when they believed.

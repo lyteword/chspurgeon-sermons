@@ -1,12 +1,5 @@
 # Sermon 1385 | Jesus Interceding For Transgressors
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 18, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And made intercession for the transgressors." Isaiah 53:12.
 
 Our blessed Lord made intercession for transgressors in so many words while He was being crucified, for He was heard to say, "Father, forgive them, for they know not what they do." It is generally thought that He uttered this prayer at the moment when the nails were piercing His hands and feet and the Roman soldiers were roughly performing their duty as executioners. At the very commencement of His passion He begins to bless His enemies with His prayers. As soon as the Rock of our salvation was smitten, there flowed forth from Him a blessed stream of intercession. Our Lord fixed His eyes upon that point in the character of His persecutors which was most favorable to them, namely, that they knew not what they did.

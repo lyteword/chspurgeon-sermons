@@ -1,12 +1,5 @@
 # Sermon 1455 | Every Man's Necessity
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You must be born again." John 3:7.
 
 WHEN men are perishing all around you it would be cruel to waste time in attempting to interest their minds or to amuse their fancies. We must do something more practical and give earnest heed to their pressing necessities. Is it famine which slays them? Let us feed them. Is it cold? Let us supply them with covering. Is it disease? Let us administer medicine. When the case is urgent, we confine ourselves to necessities and attend with our whole heart to that which must have our attention. That which may can wait, but that which must demands our immediate care.

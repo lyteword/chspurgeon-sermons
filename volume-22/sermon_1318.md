@@ -1,12 +1,5 @@
 # Sermon 1318 | Increased Faith the Strength of Peace Principles
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 15, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Apostle said unto the Lord, increase our faith." Luke 17:5.
 
 THE sermon of last Sabbath morning, [#1317, Overcome Evil with Good] in which I earnestly endeavored to inculcate the doctrine of overcoming evil with good and the frank and full forgiveness of all injuries for Christ's sake, has raised much discussion. I know that it startled a great many of you and that you have a great many questions among yourselves as to whether such precepts are practicable by ordinary Christians. At that I am not at all surprised, because when our Lord preached the same doctrine, His disciples were so astonished that the Apostles exclaimed in surprise, "Lord, increase our faith."

@@ -1,12 +1,5 @@
 # Sermon 1412 | Where True Prayer is Found
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 5, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore has Your servant found in his heart to pray this prayer to You." 2 Samuel 7:27.
 
 DAVID had first found it in his heart to build a house for God. Sitting in his house of cedar, he resolved that the Ark of God should no longer abide under curtains, but should be more suitably housed. The Lord, however, did not design that David should build His Temple, though He accepted his pious intentions and declared that it was well that it was in his heart. From which we may learn that our intentions to serve the Lord in a certain manner may be thoroughly good and acceptable and yet we may not be permitted to carry them out. We may have the will but not the power--the aspiration but not the qualification. We may have to stand aside and see another do the task which we had chosen for ourselves--and yet we may be none the less pleasing to the Lord who, in His great love, accepts the will for the deed.

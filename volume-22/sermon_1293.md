@@ -1,12 +1,5 @@
 # Sermon 1293 | The Unknown Ways of Love
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 14, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus answered and said unto him, What I do you know not now; but you shall know hereafter." John 13:7.
 
 THESE words of our Lord were spoken in answer to Peter's exclamation of surprise, "Lord, do You wash my feet?" It was a very natural expression of astonishment and one which deserved no censure, but, at the same time it was not a very wise remark, for, although it was a marvelously condescending act for the Lord Jesus to wash His disciples' feet, He had already performed a greater condescension by coming upon the earth, at all, in the form of a man. For the Son of the Highest to dwell among mortals in a human body, capable of being girt about with a towel and able to take a basin and pour water into it, is a far greater marvel than that He should, being a Man, leave the supper table and act as a menial servant by washing His disciples' feet.

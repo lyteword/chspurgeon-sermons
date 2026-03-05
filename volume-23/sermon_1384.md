@@ -1,12 +1,5 @@
 # Sermon 1384 | A Round of Delights
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 11, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now the God of Hope fill you with all joy and peace in believing, that you may abound in hope, through the power of the Holy Spirit." Romans 15:13.
 
 THIS is one of the richest passages in the Word of God. It is so full of instruction that I cannot hope to bring out even so much as a tenth of its teaching. The Apostle desired that the Roman Christians might be in the most delightful state of mind, that they should be filled with joy and peace and that this should lead on to yet further expectations and create an abundance of hope in their souls. See, dear Friends, the value of prayer, for if Paul longs to see his friends attain the highest possible condition, he prays for them! What will prayer not do? Whatever you desire for yourself or for another, let your desire be prepared like sweet spices and compounded into a supplication--then present it to God and the benediction will come.

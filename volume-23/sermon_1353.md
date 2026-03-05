@@ -1,12 +1,5 @@
 # Sermon 1353 | Ecce Rex
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 6, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He said unto the Jews, Behold your King." John 19:14.
 
 PILATE said much more than he meant and, therefore, we shall not restrict our consideration of his words to what he intended. John tells us considering Caiaphas, "and this spoke he not of himself," and we may say the same of Pilate. Everything said or done in connection with the Savior during the day of His Crucifixion was full of meaning, far fuller of meaning than the speakers or actors were aware. Transformed by the Cross, even the commonplace becomes solemn and weighty!

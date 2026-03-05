@@ -1,12 +1,5 @@
 # Sermon 1402 | "Lead Us Not Into Temptation"
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Lead us not into temptation." Matthew 6:13.
 
 LOOKING over a book of addresses to young people the other day, I met with the outline of a discourse which struck me as being a perfect gem. I will give it to you. The text is the Lord's prayer and the exposition is divided into most instructive heads. "Our Father which are in Heaven"--a child away from home. "Hallowed be Your name"--a worshipper. "Your kingdom come"--a subject. "Your will be done in earth, as it is in Heaven"--a servant. "Give us this day our daily bread"--a beggar. "And forgive us our debts as we forgive our debtors"--a sinner. "And lead us not into temptation, but deliver us from evil"-- a sinner in danger of being a still greater sinner.

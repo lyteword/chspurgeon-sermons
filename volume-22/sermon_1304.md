@@ -1,12 +1,5 @@
 # Sermon 1304 | Enquire of the Lord
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 9, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Thus says the Lord God, I will yet for this be enquired of by the house of Israel, to do it for them; I will increase them with men like a flock. As the holy flock, as the flock of Jerusalem in her solemn feasts; so shall the waste cities be filled with flocks of men: and they shall know that I am the Lord." Ezekiel 36:37,38.
 
 MULTIPLICATION is a very ancient form of blessing. The first benediction pronounced upon man was of this sort, for we read in the first chapter of Genesis, "And God blessed them, and God said unto them: Be fruitful and multiply and replenish the earth." That same blessing was pronounced, again, when God accepted His servant Noah, and entered into covenant with him. We read in Genesis 9:1 that "God blessed Noah and his sons and said unto them, Be fruitful and multiply and replenish the earth." This also constituted a main part of the blessing promised to faithful Abraham. In Genesis 22:17, and many other places, we read to this effect, "In blessing I will bless you, and in multiplying I will multiply your seed as the stars of Heaven, and as the sand which is upon the seashore, and your seed shall possess the gate of his enemies."

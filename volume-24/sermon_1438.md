@@ -1,12 +1,5 @@
 # Sermon 1438 | The Hope Laid Up In Heaven
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 13, 1878,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the hope which is laid up for you in Heaven, of which you heard before in the Word of the Truth of the Gospel." Colossians 1:5.
 
 THREE Divine Graces should be always conspicuous in Christians--faith, love and hope. They are each mentioned by Paul in the opening verses of the Epistle from which our text is taken. These lovely Graces should be so conspicuous in every Believer as to be spoken of and, consequently, heard of even by those who have never seen us. These flowers should yield so sweet a perfume that their fragrance may be perceived by those who have never gazed upon them. So was it with the saints at Colosse. Paul says, "We give thanks to God and the Father of our Lord Jesus Christ, praying always for you, since we heard of your faith in Christ Jesus and of the love which you have to all the saints, for the hope which is laid up for you in Heaven."

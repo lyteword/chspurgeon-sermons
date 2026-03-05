@@ -1,10 +1,5 @@
 # Sermon 1457B | The Numbered People
 
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
-
 "According to the commandment of the Lord they were numbered by the hand of Moses, everyone according to his service and according to his burden: thus were they numbered by him, as the Lord commanded Moses." Numbers 4:49.
 
 ISRAEL in the wilderness is admitted, in some respects, to have been a type of the Church in its present condition. The tribe of Levi was, in a peculiar and inner sense, the type of that peculiar people who under the great High Priest are set apart for the service of the Lord and His Church. To them the transport of the holy vessels from place to place was committed, each family of the tribe being made responsible for the safe and reverent transport of a certain part of the sacred furniture. Since nothing in the service of the God of order may be left to hazard, but everything is in order, those persons who in hackneyed phrase cry out against, "system," ought to be told that the Lord has always had a system, not only in Nature and Providence, but also in His own courts.

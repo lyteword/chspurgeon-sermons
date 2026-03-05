@@ -1,12 +1,5 @@
 # Sermon 1505 | Prayer to God in Trouble an Acceptable Sacrifice
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 9, 1879
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And call upon Me in the day of trouble; I will deliver you, and you shall glorify Me." Psalm 50:15.
 
 THE Lord God in this Psalm is described as having a controversy with His people. He summons Heaven and earth to hear Him while He utters His reproof. This indictment will show us what it is that the Lord sets the greatest store by, for His complaint will evidently touch upon that point. We are informed most plainly that the Lord had no controversy with His people concerning the externals of His worship. He does not reprove them for their sacrifices and burnt offerings. He even speaks of these symbolic sacrifices and says--"I will take no bullock out of your house, nor he goats out of your folds." His complaint was not concerning visible ceremony and outward ritual and this shows that He does not attach so much importance to outward things as most men suppose Him to do.

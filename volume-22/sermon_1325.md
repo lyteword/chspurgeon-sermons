@@ -1,6 +1,5 @@
 # Sermon 1325 | Christ the End of the Law
 
-
 > "For Christ is the end of the law for righteousness to every one that believeth."  
 > Romans 10:4.  
 

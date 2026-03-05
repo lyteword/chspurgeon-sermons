@@ -1,12 +1,5 @@
 # Sermon 1367 | Strong Faith
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 15, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But was strong in faith, giving glory to God." Romans 4:20.
 
 ABRAHAM is the father of the faithful. When children have a noble father it is a good thing for them to be fully conversant with his character and, therefore, we shall do well to consider the life of the great Patriarch, especially marking that grand excellence which makes him the father of Believers, namely, his faith. Nor should we fail to observe the strength of his faith, for in him it reached a very high degree. He was not only a Believer, but he was an unstaggering Believer. He did not only trust God, but he trusted God most firmly in the teeth of all contradiction--not so much as considering the difficulties--but believing in God without questioning.

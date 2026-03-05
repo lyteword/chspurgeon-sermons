@@ -1,12 +1,5 @@
 # Sermon 1375 | "Now Then, Do It"
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 23, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You sought for David in times past to be king over you: now then, do it: for the Lord has spoken of David, saying, By the hand of My servant David I will save My people Israel out of the hand of the Philistines, and out of the hand of all their enemies." 2 Samuel 3:17,18.
 
 You know the circumstances under which these words were spoken. God had cast off Saul because he had not been faithful and He had appointed David to be his successor, anointing him by the hand of Samuel. Yet when Saul was slain in battle, Israel seemed determined to choose her own king by selecting one of Saul's family--and under the leadership of Abner, the majority of the tribes set up Ishbosheth, son of Jonathan, to be king. Then commenced a civil war between the two parties and we read that the house of David waxed stronger and stronger, but the house of Saul grew weaker and weaker. In process of time Abner, the commander-in-chief and prime minister who was at the head of Saul's party, because it served his own purposes, changed his mind and resolved that David should become king over the whole land.

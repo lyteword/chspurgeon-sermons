@@ -1,12 +1,5 @@
 # Sermon 1362 | Mourning For Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 1, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications. And they shall look upon Me whom they have pierced, and they shall mourn for Him, as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his firstborn." Zechariah 12:10.
 
 Look, Beloved, from where every good thing flows--"I will pour upon the house of David the Spirit of Grace." The starting point is the Lord's sovereign act in giving the Spirit! Every work of Grace begins with God! No gracious thought or act ever originates in the free will of unregenerate man. The Lord is first in all things which are acceptable in His sight. It is God that "works in us to will and to do of His own good pleasure." "You have worked all our works in us." Then notice how exceedingly effectual the work of the Lord is. Men may persuade and even inspired Prophets may warn without effect, but when the Lord puts His hand to the work, He never fails! As soon as He says, "I will pour," the next sentence is, "and they shall look."

@@ -1,12 +1,5 @@
 # Sermon 1346 | Guile Forsaken When Guilt Is Forgiven
 
-
-DELIVERED ON LORD'S-DAY EVENING, MARCH 25, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Blessed is the man unto whom the Lord imputes not iniquity, and in whose spirit there is no guile." Psalm 32:2.
 
 THE only blessing the Law can give, it bestows on those who do no iniquity and walk perfectly in God's ways--the Gospel, alone, has a blessing for the guilty. Upon their believing in Jesus, it pronounces the benediction, "Blessed is he whose transgression is forgiven, and whose sin is covered. Blessed is the man unto whom the Lord imputes not iniquity." To be "blessed" is to be in the most desirable state--at peace with God, happy in yourself and full of Divine favor. A man cannot be more than blessed, or, what if I say, doubly blessed since the benediction is pronounced twice? Nor is it a stinted blessing, for no limiting word is put before it or after it to mark an inferior benediction.

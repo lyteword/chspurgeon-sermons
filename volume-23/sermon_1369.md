@@ -1,12 +1,5 @@
 # Sermon 1369 | Proclamation of Acceptance and Vengeance
 
-
-DELIVERED ON LORD'S DAY MORNING, AUGUST 12, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To proclaim the acceptable year of the Lord, and the day of vengeance of our God; to comfort all that mourn." Isaiah 61:2.
 
 We know that this Scripture speaks concerning the Lord Jesus Christ. We don't say this as if we relied upon our own opinion. We know it, for sure, from the Lord's own lips, for, reading this passage in the synagogue at Nazareth, He said, "This day is this Scripture fulfilled in your ears." It is Jesus of Nazareth whom the Lord has anointed to preach deliverance to the captives and recovering of sight to the blind! And our text tells us that He was, also, sent to make a proclamation which should usher in the year of acceptance and the day of vengeance. Notice well the expression, "to proclaim," because a proclamation is the message of a king--and where the word of a king is, there is power.

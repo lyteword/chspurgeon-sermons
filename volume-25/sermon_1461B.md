@@ -1,12 +1,5 @@
 # Sermon 1461B | Eyes Opened
 
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And God opened her eyes." Genesis 21:19.
 
 THERE was a well of water close to Hagar, all the while, though she saw it not. God did not cleave the earth and cause new waters to gush forth, nor was there need. The well was already there, but for all practical purposes it might not have been there, for she could not see it. The water was gone in her bottle, her child was dying of thirst and she was ready to faint--and yet the cool spring was bubbling up hard by the spot! It was necessary that she should see the well, quite as necessary as that the well should be there and, therefore, the Lord, in great compassion, led her to see it, or, as the text puts it, "God opened her eyes."

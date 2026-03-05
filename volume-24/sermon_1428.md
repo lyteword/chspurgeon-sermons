@@ -1,12 +1,5 @@
 # Sermon 1428 | The True Position of the Witness Within
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 11, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that believes on the Son of God has the witness in himself." 1 John 5:10.
 
 SOME time ago I tried to set forth the manner of the witness and sealing of the Spirit and I have no doubt that the subject will still remain upon the memory of many of you. But I am led to refer to it again and to go over the same ground because I meet with so many instances in which mistakes are made in reference to it--mistakes which cause great sorrow and much sin. The letter which I will now read I received yesterday and it is one of many of the same subject. "Dear Mr. Spurgeon--May I ask your prayers and the prayers of your congregation, to God, that He will, by the Holy Spirit, reveal Himself to me. I have for a long time past, I may say, years, been trying to serve Him and have a strong desire openly to join with His people, but I have not the witness in myself that I am saved and until then I dare not take the step."

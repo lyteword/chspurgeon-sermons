@@ -1,12 +1,5 @@
 # Sermon 1417 | "Your Salvation"
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 2, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then took he Him up in his arms, and blessed God, and said, Lord, now let Your servant depart in peace, according to Your word: for my eyes have seen Your salvation." Luke 2:28-30.
 
 

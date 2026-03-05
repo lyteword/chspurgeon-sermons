@@ -1,12 +1,5 @@
 # Sermon 1457A | Seekers Directed and Encouraged
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And you shall seek Me and find Me, when you shall search for Me with all your heart." Jeremiah 29:13.
 
 THIS was a part of the direction which God gave by His servant to the captives in Babylon. They were to remain quiet in Babylon until the set time came for their deliverance and then there would be granted to them a gracious visitation from God which would move them to repentance and incite them to prayer. Then might they be quite sure that the time had come for their deliverance, when they sought the Lord with their whole heart. It is a general principle that a blessing is about to come from the All-Merciful One when we are moved to pray for it with all our heart. The Lord of Grace may send us blessings before we search for them, for He is a Sovereign and often far outstrips what we might have expected, but His promise runs, "Seek and you shall find it," and it is with the promise that we have most to do. A cheering assurance is given to those who seek in hearty earnest and to this requirement of heartiness we must give earnest need.

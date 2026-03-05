@@ -1,12 +1,5 @@
 # Sermon 1315 | Untitled Sermon
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JULY 16, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And it came to pass, as Peter passed throughout all quarters, he came down, also, to the saints which dwelt at Lydda. And there he found a certain man named Aeneas, which had kept his bed eight years, and was sick of the palsy. And Peter said unto him, Aeneas, Jesus Christ makes you whole: arise, and make your bed. And he arose immediately. And all that dwelt in Lydda and Saron saw him, and turned to the Lord." Acts 9:32-35.
 
 Upon the occasion of the regular hearers vacating their seats to allow strangers to fill the house.

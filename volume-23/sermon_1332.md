@@ -1,12 +1,5 @@
 # Sermon 1332 | Our Urgent Need of the Holy Spirit
 
-
-DELIVERED ON LORD'S DAY MORNING, JANUARY 7, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Through the po wer of the Holy Spirit." Romans 15:13.
 
 "By the power of the Spirit of God." Romans 15:19.

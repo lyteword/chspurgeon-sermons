@@ -1,12 +1,5 @@
 # Sermon 1334 | Coming--Always Coming
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To whom coming." 1 Peter 2:4.
 
 THE Apostle is speaking of the Lord Jesus, of whom he had previously said, "If indeed you have tasted that the Lord is gracious," and He follows that sentence up with this, "To whom coming as unto a living stone." Now, I want to call your special attention to this present participle--this act of coming--for there is much to counsel and to comfort us in the fact and the reflections it suggests. The Christian life is begun, continued and perfected altogether in connection with the Lord Jesus Christ! This is a very great blessing for us. Sometimes when you go on a journey, you travel so far under the protection of a certain Company--but then you have to change and the rest of your journey may be performed under very different circumstances--upon quite another kind of line.

@@ -1,12 +1,5 @@
 # Sermon 1357 | A Business-Like Account
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 3, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But what things were gain to me, those I counted loss for Christ. Yet indeed, I also count all things loss for the excellency of the knowledge of Christ Jesus my Lord, for whom I have suffered the loss of all things, and count them but dung, that Imay win Christ, and be found in Him, not having my own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith." Philippians 3:7-9.
 
 OUR Savior's advice to those who wished to be His disciples was, "Count the cost." He did not wish to entice any man to enlist in His army by keeping him in ignorance as to the requirements of His service. Again and again He tested professed converts Himself--and He frequently exhorted men to try themselves, lest they should begin a profession and be unable to maintain it. True religion is a matter of enthusiasm, but at the same time its Truths and precepts can endure the severest examination. The exercise of our judgments upon the Gospel is invited, yes, required! It is true that many persons are brought to Christ in earnest assemblies, where they are addressed in fervent language. But also, a man may sit down in his study or his counting house with his pen in his hand, and in the coolest possible manner he may calculate and, if under the Holy Spirit's guidance, he shall be led to calculate truthfully--he will come to the conclusion that the cause of the Lord Jesus is worthiest and best.

@@ -1,12 +1,5 @@
 # Sermon 1371 | Brave Waiting
 
-
-DELIVERED ON LORDS-DAY MORNING, AUGUST 26, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Wait on the Lord: be of good courage and He shall strengthen your heart: wait, I say, on the Lord." Psalm 27:14.
 
 THE Christian's life is no child's play. All who have gone on pilgrimage to the Celestial City have found a rough road, sloughs of despond and hills of difficulty, giants to fight and tempters to shun. Hence there are two perils to which Christians are exposed--the one is that under heavy pressure they should stay away from the path which they ought to pursue--the other is lest they should grow fearful of failure and so become faint-hearted in their holy course. Both these dangers had evidently occurred to David and in the text he is led by the Holy Spirit to speak about them. "Do not," he seems to say, "do not think that you are mistaken in keeping to the way of faith. Do not turn aside to crooked policy. Do not begin to trust in an arm of flesh, but wait upon the Lord."

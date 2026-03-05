@@ -1,12 +1,5 @@
 # Sermon 1305 | The Secret of a Happy Life
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 16, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have set the Lord always before Me: because He is at My right hand, I shall not be moved." Psalm 16:8.
 
 IN the preceding verses we read, "The lines are fallen unto Me in pleasant places; yes, I have a goodly heritage." The speaker, therefore, is a very contented and happy man. It is not the most usual thing in the world to find persons extolling their lot and manifesting a conspicuous emphasis of satisfaction. Far more common is it to hear men surrounded with favors lamenting the hardness of their case! Contented minds are almost as scarce as snowflakes in harvest. The man who rejoices in his goodly heritage deserves attention and we shall do well to learn his secret. How is it that he is able to feel so happy? Let us seek out the way by which he arrived at this peace and discover the silken clue which led him into such a bower of delight. Perhaps his road may fit our feet and, by following it, we may become as perfectly content as he was. O Lord and Giver of peace, help us in the search!

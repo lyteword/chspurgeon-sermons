@@ -1,12 +1,5 @@
 # Sermon 1501 | Refuges of Lies and What Will Become of Them
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 26, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Judgment also will I lay to the line, and righteousness to the plummet: and the hail shall sweep away the refuge of lies, and the waters shall overflow the hiding place." Isaiah 28:17.
 
 OVER against amazing mercy, the Holy Spirit sets awakening judgment. The acceptable year of the Lord is also the day of vengeance of our God and the sentence which shall confirm the righteous in his righteousness is attended by another which says, "He that is unjust let him be unjust still." When the Lord shall come to be glorified in His saints, He will, at the same time, take vengeance in flaming fire upon those that know Him not. In the present instance, in the 16th verse of this chapter, the Lord declares "Behold I lay in Zion for a foundation a stone, a tried stone" and then, immediately in our text, He speaks of another laying--"Judgment also will I lay to the line, and righteousness to the plummet."

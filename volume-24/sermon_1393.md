@@ -1,12 +1,5 @@
 # Sermon 1393 | Speak For Yourself--a Challenge!
 
-
-DELIVERED ON LORD'S-DAY EVENING, DECEMBER 9, 1877,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He is of age; ask him: he shall speak for himself." John 9:21
 
 

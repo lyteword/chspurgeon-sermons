@@ -1,12 +1,5 @@
 # Sermon 1382 | The Touch
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 4, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "She said, If I may touch but His clothes, I shall be whole." Mark 5:28.
 
 THE miracle of the healing of this woman occurred while our Savior was on the road to the house of Jairus to raise his daughter and I have not much doubt that although, in itself, it was a very remarkable miracle, it was not meant to stand quite alone, but had a relation to the Lord's dealings with Jairus. If I read the narrative rightly, the ruler of the synagogue was about to have his faith severely tried. He had come to the Savior saying that his daughter was lying at the point of death. He beseeched Jesus to come and heal her, but before He had reached the house, other messengers came to say, "Your daughter is dead; why do you trouble the Master any further?"

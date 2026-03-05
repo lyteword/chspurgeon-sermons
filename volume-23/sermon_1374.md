@@ -1,12 +1,5 @@
 # Sermon 1374 | "Forever With The Lord"
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 16, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "So shall we be forever with the Lord." 1 Thessalonians 4:17.
 
 WE know that these words are full of consolation, for the Apostle says in the next verse, "Therefore comfort one another with these words." The very words, it appears, were dictated by the Holy Spirit, the Comforter, to be repeated by the saints to each other with the view of removing sorrow from the minds of the distressed. The comfort is intended to give us hope in reference to those who have fallen asleep. Look over the list of those beloved in the Lord who have departed from you, to your utmost grief, and let the words of our text be a handkerchief for your tears.

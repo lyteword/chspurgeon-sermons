@@ -1,12 +1,5 @@
 # Sermon 1308 | The Recorders
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 25, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To record, and to thank and praise the Lord God of Israel." 1 Chronicles 16:4.
 
 DAVID took care of every part of Divine worship. He saw to it that nothing was neglected in the service of the God in whom he delighted. Let this stand as an example to us to be careful about everything which concerns the honor of God. Do not allow any of the duties of your holy faith to be forgotten, but seek to exhibit harmonious and entire obedience to the Divine will. Do not merely attend to what are called religious duties, but with equal religiousness regard your social duties and present to the Lord, as far as you can, a complete service. Such David desired to do.

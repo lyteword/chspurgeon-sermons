@@ -1,12 +1,5 @@
 # Sermon 1296 | Gone, Gone Forever
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 28, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And as your servant was busy here and there, he was gone." 1 Kings 20:40.
 
 THE parable which the Prophet acted before Ahab was simple and natural. A soldier in the heat of the fight was charged by an officer to take care of an important prisoner. "Keep this man," he said, "and if you allow him to escape, your life shall answer for it, or you shall pay a talent of silver." The soldier's one business from that moment was to look after his captive. He had received command to do so from his superior officer and his first and last work was to see that the prisoner was safely kept. However, he had other things to do belonging to himself--his family and the like--and turning his thoughts in that direction, he forgot his charge, and the prisoner very naturally seized the opportunity to escape. And so the soldier exclaims, "While I was busy here and there, he was gone."

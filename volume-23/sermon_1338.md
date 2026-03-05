@@ -1,12 +1,5 @@
 # Sermon 1338 | Work For Jesus
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Son, go work today in My vineyard." Matthew 21:28.
 
 I AM not going to confine myself to the connection of these words, nor to use them strictly after the manner in which they were first spoken. I may, perhaps, explain the parable very briefly at the close, but I take leave to withdraw these words from their immediate context and use them as a voice which, I believe, sounds often in the ears of God's people, and sometimes sounds in vain--"Son, go work today in My vineyard." It is certain that God still speaks to us. He has spoken to us in His Word. There are His precepts and promises, His statutes and testimonies. He that has ears to hear let him hear these sacred oracles!

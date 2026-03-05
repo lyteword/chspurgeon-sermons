@@ -1,6 +1,5 @@
 # Sermon 1503 | How to Read the Bible
 
-
 > "Have ye not read?...Have ye not read?...If ye had known what this meaneth."  
 > Matthew 12:3-7.  
 

@@ -1,12 +1,5 @@
 # Sermon 1306 | Fat Things, Full of Marrow
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 23, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For a small moment have I forsaken you, but with great mercies will I gather you. In a little wrath I hid My face from you for a moment, but with everlasting kindness will I have mercy on you, says the Lord your Redeemer. For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go o ver the earth, so have I sworn that I would not be angry with you nor rebuke you. For the mountains shall depart, and the hills be removed; but My kindness shall not depart from you, neither shall the Co venant of My peace be remo ved, says the Lord that has mercy on you." Isaiah 54:7-10.
 
 THIS precious passage is the property of all true Believers in the Lord Jesus Christ. We might not have ventured to say this if it were not for the last verse of the chapter, which assures us that it is so. "This is the heritage of the servants of the Lord, and their righteousness is of Me, says the Lord." The matchless promises and assurances of this chapter do not belong to the Jews, alone, nor only to the Gentile Church, nor even exclusively to the whole Church considered as a community--they are the property of all who are sons and servants of the living God. Isaiah speaks of both sonship and service. "This is the heritage," or portion obtained by heirship, which implies sonship. The promise, then, is ours, if we have been born into the family of Grace.

@@ -1,12 +1,5 @@
 # Sermon 1498 | Mistrust of God Deplored and Denounced
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "How long will it be before they believe Me?" Numbers 14:11.
 
 THE children of Israel were very prone to unbelief. They wanted something visible to worship and to trust. They could not learn the lesson of faith in the one great Invisible and, therefore, they were one day bowing before an idol and the next they were murmuring against the true God. Their life was according to the flesh, after the sight of the eyes and the hearing of the ears and so they praised God when Pharaoh was drowned and when manna lay round about their camp, but the moment they were in need or difficulty and saw no supply or relief, they could not trust in God, but began to mistrust and murmur. With what wonderful longsuffering the Lord bore with them! His mercy seemed to outrun their unbelief!

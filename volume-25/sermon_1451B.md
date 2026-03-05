@@ -1,12 +1,5 @@
 # Sermon 1451B | The Covenant Pleaded
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Have respect unto the Covenant." Psalm 74:20.
 
 HE will succeed in prayer who understands the science of pleading with God. "Put Me in remembrance: let us plead together," is a Divine command. "Come now, let us reason together" is a sacred invitation. "Bring forth your strong reasons, says the Lord," is a condescending direction as to the way of becoming victorious in supplication. Pleading is wrestling--arguments are the grips, the feints, the throes, the struggles with which we hold and vanquish the Covenant Angel! The humble statement of our needs is not without its value, but to be able to give reasons and arguments why God should hear us is to offer potent, prevalent prayer.

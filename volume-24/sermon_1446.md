@@ -1,6 +1,5 @@
 # Sermon 1446 | The Best Beloved
 
-
 > "Yea, he is altogether lovely."  
 > Solomons Song 5:16.  
 

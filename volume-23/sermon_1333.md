@@ -1,12 +1,5 @@
 # Sermon 1333 | "Rest in the Lord"
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 14, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Rest in the Lord." Psalm 37:7.
 
 THE occurrence of our text in the Psalm before us is an instance of the great rule that the Lord does nothing by halves. In this priceless Psalm, the Lord found His servant, in the first verse, liable to fretfulness and envy--and He exhorted him to cease from fretting. Then, in verse three, He taught him to trust. In verse four He led him on to delight. In verses five and six He conducted him into a peaceful committing of his way unto God and He did not stay the operation of His Grace till He had perfected that which concerned him and brought him up to the elevated point of our text, "Rest in the Lord, and wait patiently for Him." God does not merely cure the evil in us, but He confers unspeakable good! He takes away the disfiguring wound, but He imparts, also, comeliness and beauty.

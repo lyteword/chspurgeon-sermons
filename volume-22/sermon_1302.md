@@ -1,12 +1,5 @@
 # Sermon 1302 | Good Cheer For Outcasts
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, JUNE 15, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He gathers together the outcasts of Israel." Psalm 147:2.
 
 DOES not this show us the great gentleness and infinite mercy of God? And as we know most of God in the Person of our Lord, Jesus Christ, should it not charm us to remember that when He came on earth He did not visit kings and princes, but He came unto the humble and simple folk? He did not seek out Pharisees, wrapped up in their own supposed righteousness, but He sought out the guilty, for He said, "They that are whole have no need of the physician, but they that are sick."

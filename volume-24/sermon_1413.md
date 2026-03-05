@@ -1,12 +1,5 @@
 # Sermon 1413 | Underneath
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 12, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Underneath are the everlasting arms." Deuteronomy 33:27.
 
 GOD surrounds His children on all sides--they dwell in Him. The passage before us shows that the Lord is above, for we read, "There is none like unto the God of Jeshurun, who rides upon the Heaven to help you, and in His excellency on the sky." Assuredly He is around them, for, "The eternal God is your refuge." And He is before them, for, "He shall thrust out the enemy from before you; and shall say, Destroy them." Here, according to the text, the Lord is also under His saints, for, "Underneath are the everlasting arms." "Lord, You have been our dwelling place in all generations," and by You we are surrounded everywhere, as the earth is by the atmosphere--

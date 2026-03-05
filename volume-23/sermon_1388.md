@@ -1,12 +1,5 @@
 # Sermon 1388 | Jesus Christ Himself
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 9, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus Christ Himself." Ephesians 2:20.
 
 "Jesus Christ Himself is to occupy all our thoughts this morning. What an ocean opens up before me! Here is room in the sea for the largest ship! In which direction shall I turn your thoughts? I am embarrassed with riches. I know not where to begin--and when I once begin, where shall I end? Assuredly we need not go abroad for joys this morning, for we have a feast at home! The words are few, but the meaning vast--"Jesus Christ Himself." Beloved, the religion of our Lord Jesus Christ contains in it nothing so wonderful as Himself. It is a mass of marvels, but He is THE miracle of it! The wonder of wonders is "The Wonderful" Himself!

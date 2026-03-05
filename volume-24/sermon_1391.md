@@ -1,12 +1,5 @@
 # Sermon 1391 | A Golden Prayer
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 30, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Father, glorify Your name." John 12:28.
 
 IN the first part of my discourse this morning I shall strictly keep to my text, as the words of our Lord Jesus Christ, and endeavor to show what it teaches us with regard to Him. These are His own words and it would be robbery to borrow them until first we have seen what they meant as they fell from His lips. Their most golden meaning must be seen in the light of His sacred Countenance. Then, in the second part of my sermon, I shall try to point out how the petition before us may be used by ourselves. I pray that Divine Grace may be given us that it may be engraved upon our hearts and that each one of us may be taught by the Holy Spirit daily to say for himself, "Father, glorify Your name."

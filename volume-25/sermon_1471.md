@@ -1,12 +1,5 @@
 # Sermon 1471 | Concealing the Words of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have not concealed the Words of the Holy One." Job 6:10.
 
 (On behalf of the Baptist Missionary Society).

@@ -1,12 +1,5 @@
 # Sermon 1368 | The God of Peace and Our Sanctification
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 5, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now the God of Peace, that brought again from the dead our Lord Jesus, that Great Shepherd of the sheep, through the blood of the Everlasting Co venant, make you perfect in every good work to do His will, working in you that which is well-pleasing in His sight, through Jesus Christ; to whom be glory forever and ever. Amen." Hebrews 13:20,21.
 
 THE Apostle, in the 18th verse, had been earnestly asking for the prayers of the Lord's people. On the behalf of all his Brethren he said, "Pray for us." And for himself he added, "I beseech you the rather to do this, that I may be restored to you the sooner." If the Apostle needed the prayers of his Brethren, how much more do we who are so greatly inferior to him in all respects? We may, indeed, even with tears, appeal to you who are our Brothers and Sisters in Christ and entreat you to be earnest in your supplications to God on our behalf. What can we do without your prayers? They link us with the Omnipotence of God! Like the lightning rod, they pierce the clouds and bring down the mighty and mysterious power from on high.

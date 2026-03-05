@@ -1,12 +1,5 @@
 # Sermon 1291 | The Best Burden for Young Shoulders
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "It is good for a man that he bear the yoke in his youth." Lamentations 3:27.
 
 YOKE-BEARING is not pleasant, but it is good. It is not every pleasant thing that is good, nor every good thing that is pleasant. Sometimes the goodness may be just in proportion to the unpleasantness. Now, it is childish to be always craving for sweets--those, who by reason of use have had their senses exercised, should prefer the wholesome to the palatable. It ought to reconcile us to that which is unsavory when we are informed that it is good! A little child is not easily reconciled that way, because, as yet, he cannot think and judge. But the man of God ought to find it very easy to quiet every murmur and complaint as soon as he perceives that, though unpleasant, the thing is good.

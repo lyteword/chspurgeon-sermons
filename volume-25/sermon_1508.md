@@ -1,12 +1,5 @@
 # Sermon 1508 | The Philosophy of Promise
 
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 29, 1879,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "New things do I declare: before they spring forth I tell you of them." Isaiah 42:9.
 
 GOD has often foretold things to come by the lips of His Prophets. I need not give you even a single specimen of the multitudes of instances in which events which could not have been guessed at--which, indeed, were highly improbable and unlikely--were nevertheless foretold by the Spirit of God through the Prophets and actually came to pass. The Lord claims this as a proof of His Godhead. It is His special prerogative to possess Omniscience, the knowledge of everything and, therefore, Prescience, or the knowledge of that which will happen in years to come. These are attributes of God, alone, and often He challenges idols to produce instances in which they have exercised foresight and predicted things to come. They had their oracles, which were the mimicry of prophecy, but they continually failed, whereas Jehovah's Word stood fast even in jots and tittles and thus His eternal Godhead was proven.

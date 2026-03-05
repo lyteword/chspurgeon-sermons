@@ -1,12 +1,5 @@
 # Sermon 1280 | An Objection and an Answer
 
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For in Jesus Christ neither circumcision avails anything, nor uncircumcision; but faith which works by love." Galatians 5:6.
 
 THE most prominent doctrine in Paul's teaching was that of Justification by Faith. He taught it so very plainly, so very boldly--I had almost said so very baldly--that it seemed necessary to the Holy Spirit that James should bear testimony to the necessity of holiness as the result of faith. Hence the Epistle of James is put into the sacred canon lest any should wrest and twist the language of Paul from its proper meaning. His great teaching--anybody can see this with half an eye--the great teaching of Paul is that we are saved by the Grace of God through faith in Jesus Christ. This doctrine has always been taught in the Church of God and it is, as Luther well put it, the standing or falling article--the test of a standing or a falling Church.

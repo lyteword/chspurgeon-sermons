@@ -1,6 +1,5 @@
 # Sermon 1432 | Divine Interpositions
 
-
 "He sent from above, he took me, he drew me out of many waters."Psalm 18:16.
 
 I DO not know how you feel, my brethren, at this time, but as for myself, a heavy cloud seems to hang over me all the day. The overwhelming calamity of last Tuesday, so crushing and so far reaching, of which we must have spoken to each other, I suppose, every hour during the past week, cannot be removed from the thoughts of our minds or from the affections of our hearts. The whole of London may well be likened to that ancient city of which we read"The city Shushan was perplexed." Every man has been asking his fellow, "Have you lost a friend?" and no man wonders when the answer is, "Alas, I have been sorely bereaved." In our own immediate circle we have borne a special share of the grief, for five, at least, of those who are in church membership with us have been removed from our midst, and we can scarcely speak with any of our brethren without discovering that they have lost some connection or friend. Alas, that unhappy vessel has sunk with a more precious freight than ever loaded Spanish galleon, and her wreck has brought a greater loss to our city than if she had carried untold gold. We cannot help thinking of this dire affliction, and, therefore, we had better think of it with some practical purpose.

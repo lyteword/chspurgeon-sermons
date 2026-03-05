@@ -1,12 +1,5 @@
 # Sermon 1465A | The Son Glorified by the Father and the Father Glorified by the Son
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "These words spoke Jesus, and lifted up His eyes to Heaven, and said, Father, the hour is come; glorify Your Son, that Your Son also may glorify You." John 17:1.
 
 THIS was a prayer after a sermon. These words Jesus spoke and then He lifted up His eyes to Heaven in supplication. No discourse should be unattended by prayer, for how can we expect a blessing on what we have heard or spoken unless we ask it of the Lord? The sower should water with many a supplication the seed that he has sown and the hearer should diligently seek the favor of Him who gives bread to the eater as well as seed to the sower. It was a prayer in connection with the Lord's Supper. Surely above all things, prayer should mix with every part of our attendance at the sacred table. Dare we come to the sacred feast without prayer? Can we sit there without prayer? Can we retire without prayer? If so, let us not wonder if the ordinance should be a mere form and unrefreshing to our souls. With sermon and with sacrament let us mingle the salt of supplication without prescribing how much.

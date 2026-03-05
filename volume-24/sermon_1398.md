@@ -1,12 +1,5 @@
 # Sermon 1398 | Offended Because of Christ?
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And blessed is he who is not offended because of Me." Matthew 11:6.
 
 THE connection of the passage assists us in feeling its force. John had sent his disciples to ask the Master whether He was, indeed, the Messiah. The Savior, after giving abundant proof that He was the Sent One who had long been promised, then adds, "And blessed is he who is not offended because of Me." Had John begun to suspect a stumbling block in reference to the Nazarene? Did he question if so lowly a Person could, indeed, be the promised Christ? Had he expected Messiah to be a glorious prince with an earthly kingdom? Was he staggered to find himself in prison under Herod's power? Was John, himself in doubt and did the Savior, therefore, say, "Blessed is he who is not made to stumble concerning anything about Me"?

@@ -1,12 +1,5 @@
 # Sermon 1383 | The Cause And Cure Of Weariness In Sunday School Teachers
 
-
-DELIVERED ON THURSDAY EVENING, NOVEMBER 8, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON,
-
 "Let us not be weary in doing good: for in due season we shall reap, if we faint not." Galatians 6:9.
 
 [AT A CONVENTION OF THE SUNDAY SCHOOL UNION.]

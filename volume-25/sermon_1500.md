@@ -1,12 +1,5 @@
 # Sermon 1500 | Number 1500, Or Lifting Up the Bronze Serpent
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 19, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Moses made a serpent of brass, and putit upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived." Numbers 21:9.
 
 THIS discourse, when it shall be printed, will make 1,500 of my sermons which have been published regularly, week after week. This is certainly a remarkable fact. I do not know of any instance in modern times in which 1,500 sermons have thus followed each other from the press from one person and have continued to command a large circle of readers. I desire to utter most hearty thanksgivings to God for Divine help in thinking out and uttering these sermons, sermons which have not merely been printed, but have been read with eagerness and have also been translated into foreign tongues. These sermons are publicly being read on this very Sabbath in hundreds of places where a minister cannot be found. These sermons God has blessed to the conversion of multitudes of souls.

@@ -1,12 +1,5 @@
 # Sermon 1392 | A Catechism for the Proud
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 6, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For who makes you to differ from another? And what have you that you did not receive? Now if you did receive it, why do you glory, as if you had not received it?" 1 Corinthians 4:7.
 
 THE Corinthian Church was exceedingly gifted. Perhaps no other Church of the period had in it so many persons of education and talent. The Apostle says of them, "In everything you are enriched, in all utterance and in all knowledge, so that you come behind in no gift." Alas, its Divine Grace was not in proportion to its gifts and, consequently, a proud spirit was developed in the Church which manifested itself in divisions and contentions. Parties were formed. One said, "I am of Paul," and probably prided himself on the depth of his thought. "I am of Apollos," said another, and probably gloried in the brilliant eloquence of his language. "I am of Cephas," cried a third, and boasted in the plain, unvarnished practicality of Peter's teaching.

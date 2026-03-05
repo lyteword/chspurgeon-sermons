@@ -1,12 +1,5 @@
 # Sermon 1439 | Receiving the Kingdom of God as a Little Child
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 20, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Verily I say unto you, Whoever shall not receive the kingdom of God as a little child shall by no means enter it." Luke 18:17.
 
 WHEN our Lord blessed the little children He was making His last journey to Jerusalem. It was thus a farewell blessing which He gave to the little ones and it reminds us of the fact that among His parting words to His disciples, before He was taken up, we find the tender charge, "Feed My lambs." The ruling passion was strong upon the great Shepherd of Israel, "who gathers the lambs with His arms and carries them in His bosom." And it was fitting that while He was making His farewell journey He should bestow His gracious benediction upon the children. Beloved, our Lord Jesus Christ is not here among us in Person, but we know where He is and we know that He is clothed with all power in Heaven and in earth with which to bless His people.

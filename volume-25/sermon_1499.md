@@ -1,12 +1,5 @@
 # Sermon 1499 | The Lessons of the Foot-washing
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus knowing that the Father had given all things into His hands, and that He was come from God, and went to God; He rose from supper, and laid aside His garments; and took a towel, and girded Himself. After that He poured water into a basin, and began to wash the disciples 'feet, and to wipe them with the towel with which He was girded." John 13:3-5.
 
 IT seems to me that the true text of this enacted sermon of the foot-washing is to be found in the first verse of the chapter--"Having loved His own which were in the world, He loved them unto the end." Our Lord washed the feet of His disciples to show that to the last moment of His communion with them He was full of the deepest and truest love to them and was willing to perform the most menial action for their good. Nor was this all, for we may regard that one condescending act as the pledge and type of His daily kindness towards all His own which are in the world. Those deeds of love, which the foot-washing sets forth, are continuous among us and are the sure tokens of His abiding love to us.

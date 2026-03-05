@@ -1,12 +1,5 @@
 # Sermon 1340 | Manoah's Wife and Her Excellent Argument
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Manoah said unto his wife, We shall surely die, because we have seen God. But his wife said unto him, If the Lord were pleased to kill us, He would not have received a burnt offering and a meat offering at our hands, neither would He have showed us all these things, nor would He at this time ha ve told us such things as these." Judges 13:22,23.
 
 The first remark arising out of the story of Manoah and his wife is this--that oftentimes we pray for blessings which will make us tremble when we receive them. Manoah had asked that he might see the Angel and he saw Him--in answer to His request the Wonderful One condescended to reveal Himself a second time, but the consequence was that the good man was filled with astonishment and dismay. And turning to His wife, he exclaimed, "We shall surely die, because we have seen God."

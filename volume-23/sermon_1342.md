@@ -1,12 +1,5 @@
 # Sermon 1342 | Dagon's Ups and Downs
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When the Philistines took the Ark of God, they brought it into the house of Dagon, and set it by Dagon. And when they of Ashdod arose early on the morrow, behold, Dagon was fallen upon his face to the earth before the Ark of the Lord. And they took Dagon, and set him in his place again. And when they arose early on the morrow morning, behold, Dagon was fallen upon his face to the ground before the Ark of the Lord; and the head of Dagon and both the palms of his hands were cut off upon the threshold; only the stump of Dagon was left to him." 1 Samuel 5:2-4.
 
 The Ark of the Lord was captured by the Philistines though it was guarded by all the men of arms that Israel could muster for the battle. It came to no hurt when it was surrounded by unarmed priests--although the times were exceedingly disturbed and perilous all through the dreary period of the Judges, yet never was the Ark a captive till it was protected by carnal weapons. When those whom God had ordained to take care of the Ark of the Covenant had it in their charge, it was safe enough. But when the proud banners of the State and the warlike array of the nation formed the bodyguard of the sacred shrine, the Ark of God was taken. When the civil power was joined with the spiritual, and the arm of flesh came in to patronize and to take into connection with itself the arm of God's strength, then it was that the Ark was borne away in triumph by its foes!

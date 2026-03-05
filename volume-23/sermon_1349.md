@@ -1,12 +1,5 @@
 # Sermon 1349 | Faith Purifying the Heart
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 15, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Purifying their hearts by faith." Acts 15:9.
 
 THE Jewish or Pharisaic party violently opposed the Gospel from without. Wherever the Apostles went, the Jews who believed not, being moved with envy, stirred up the people against them. They could not endure to hear of the salvation of the Gentiles by Grace through faith! It grated on their ears, for they thought that this doctrine was contrary to the Law of Moses in which they boasted. They were children of the bondwoman under the old Covenant of Works and they could not endure that the children of the promise should come to the inheritance. They struggled and rebelled against the Gospel of salvation by Grace, for it went against their natural pride and their national exclusiveness.

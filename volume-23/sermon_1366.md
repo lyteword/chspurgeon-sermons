@@ -1,12 +1,5 @@
 # Sermon 1366 | The Danger of Unconfessed Sin
 
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When I kept silence, my bones waxed old through my roaring all the daylong." Psalm 32:3.
 
 IT is well known that in ordinary cases grief which is kept within the bosom grows more and more intense. It is a very great relief to shed tears--it gives a vent to the heart. We sometimes pity those who weep, but there is a grief too deep for tears which is far more worthy of compassion--we ought most to pity those who cannot weep. A dry sorrow is a terrible one, but clear shining often follows the rain of tears. Tears are hopeful things. They are the dewdrops of the morning foretelling the coming day. So is it, also, a very great consolation to tell your story to a friend. I do not know whether it would not be a comfort, even, to speak it to a little child, even if the child could not understand you.

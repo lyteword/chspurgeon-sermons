@@ -1,12 +1,5 @@
 # Sermon 1456 | Peace--a Fact and a Feeling
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore being justified by faith, we have peace with God through our Lord Jesus Christ." Romans 5:1.
 
 WONDERFUL is the power of faith. In the Epistle to the Hebrews our Apostle tells us of the marvelous exploits which it has worked in subduing kingdoms and obtaining promises, in quenching the violence of fire and stopping the mouths of lions, in braving perils and doing deeds of prowess. Still, to us personally, one of the most wonderful of its effects is that it brings us justification and consequent peace. "Being justified by faith, we have peace with God." If we know the justifying power of faith and the way in which, like a hand, it puts upon us the matchless garment of the Savior's righteousness, we shall value that faith as our first parents did the gracious hand of God which made coats of skins and covered their nakedness. The little faith we have will make us crave for more! And every need we feel will make us long to prove its virtue in our own souls to meet our own personal case by the operation of the Holy Spirit.

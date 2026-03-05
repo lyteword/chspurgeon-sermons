@@ -1,12 +1,5 @@
 # Sermon 1314 | The Mighty Arm
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 17, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You have a mighty arm: strong is Your hand, and high is Your right hand." Psalm 89:13.
 
 WHEN the soul is perfectly reconciled to God and comes to delight in Him, it rejoices in all His attributes. At the first, perhaps, it dwells almost exclusively upon His love and His mercy, but it afterwards proceeds to find joy in the sterner attributes and especially delights itself in His holiness and in His power. It is a mark of the growth of Christian knowledge when we begin to distinguish the attributes and to rejoice in God in each one of them. It betokens meditation and thought when we are able to discern the things of God and to give to the Lord a Psalm of praise for each one of His glories. And it also indicates a growingly intimate communion with the great Father when we begin to perceive His adorable Character and to rejoice so much in all that He is, that we can take the attributes in detail and bless, praise and magnify Him on account of each one of them.

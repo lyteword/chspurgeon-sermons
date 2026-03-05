@@ -1,12 +1,5 @@
 # Sermon 1436 | What The Church Should Be
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 29, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That you may know how you ought to beha ve yourself in the house of God, which is the Church of the living God, the pillar and basement of the Truth." 1 Timothy 3:15.
 
 PAUL'S design in this Epistle was to instruct young Timothy how he should behave himself in the Church of God, so as to discharge his office as minister, evangelist and pastor with honor to himself and profit to the people. He reminds him that the Church is the house of God and in God's own house a man ought to be upon his best behavior, for it is no light thing to draw near unto the Lord. A poor man who is called to visit a prince or king will anxiously enquire how he ought to act. We, poor creatures that we are, when we are admitted into the Church which is the house of God, should enquire what conduct will be decorous and comely in those who are admitted into the Presence of the great King and permitted to dwell within His palace gates.

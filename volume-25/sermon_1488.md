@@ -1,12 +1,5 @@
 # Sermon 1488 | More and More, or Less and Less
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 10, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For whoever has, to him shall be given, and he shall have more abundance: but whoever has not, from him shall be taken away even what he has." Matthew 13:12.
 
 Two great general principles are conspicuous in the Gospel. The first is that God gives of His Grace to the empty-- "He has filled the hungry with good things, and the rich He has sent away empty." The second principle is that where God has given a measure of Grace He is known to give more--"He gives more Grace." There is no stint with the Lord of Love and no limit to the abundance of Divine Grace which those who come to Him may receive. He gives Grace to those who have none and more Grace to those whom He has already favored. These two principles do not contradict each other, but help to make each more complete.

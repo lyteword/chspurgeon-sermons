@@ -1,12 +1,5 @@
 # Sermon 1307 | Enoch
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 30, 1876,
-
-BY C. H.SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Enoch lived sixty and five years, and begat Methuselah: and Enoch walked with God, after he begat Methuselah, three hundred years, and begat sons and daughters: and all the days of Enoch were three hundred sixty and five years: and Enoch walked with God: and he was not; for God took him." Genesis 5:21-24.
 
 "By faith Enoch was translated that he should not see death, and was not found because God had translated him: for before his translation he had this testimony, that he pleased God. But without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him." Hebrews 11:5, 6.

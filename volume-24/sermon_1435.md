@@ -1,6 +1,5 @@
 # Sermon 1435 | Adoption--The Spirit and the Cry
 
-
 > "And because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father."  
 > Galatians 4:6.  
 

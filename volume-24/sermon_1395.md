@@ -1,12 +1,5 @@
 # Sermon 1395 | Family Reformation--or, Jacob's Second Visit to Bethel
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And God said unto Jacob, Arise, go up to Bethel and dwell there." Genesis 35:1.
 
 THERE are critical times in most families--times when much decision of character will be needed on the part of the father to guide things aright. They say there is a skeleton in every closet and, if so, I would add that occasionally the unquiet spirit takes to troubling the household and needs to be laid low. There are times when the evil in the hearts of the children and in the nature of the parents becomes especially energetic and brings about difficulties and perplexities, so that if a wrong turn were taken, the most fearful mischief would ensue. And yet, if there is Divine Grace in the hearts of some or all of the family, a strong and gracious hand at the helm of the ship may steer it right gallantly through the broken waters and bring it safely out of its dangers to pursue its journey much more happily in the future.

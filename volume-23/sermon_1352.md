@@ -1,12 +1,5 @@
 # Sermon 1352 | Strong Consolation for the Lord's Refugees
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 29, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That by two immutable things, in which it was impossible for God to lie, we might ha ve a strong consolation, who have fled for refuge to lay hold upon the hope set before us." Hebrews 6:18.
 
 WHEN we read such a choice verse as this we are apt, at once, to conclude that it "belongs to them that are of full age, even to those who by reason of use have had their senses exercised to discern both good and evil." We set this aside as a choice morsel reserved for those who have worn well and borne the burden and heat of the day--for those who have attained to full assurance of faith and, therefore, are able to lay hold upon rich Covenant provisions. Let us at once correct this mistake, for the passage belongs to a very early form of Christian experience! It relates, indeed, to the lowest degree of Christian Grace!

@@ -1,6 +1,5 @@
 # Sermon 1480 | Constant, Instant, Expectant
 
-
 > "Continuing instant in prayer."  
 > Romans 12:12.  
 

@@ -1,12 +1,5 @@
 # Sermon 1394 | The Day of Salvation
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 13, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, now is the day of salvation." 2 Corinthians 6:2.
 
 NONE can change the outward features of a day. The kings of the earth cannot command for themselves bright days nor inflict upon their enemies days of tempest. It belongs to a higher than they to command the morning and cause the daystar to know its place. It is little they can do in reference to the light, the sun, the clouds or the rain. They cannot bind the sweet influences of the Pleiades nor loose the bands of Orion. Still, rulers and governors and kings have accomplished much in shaping the social character of the days of their subjects. Sometimes, like the king of Nineveh, they have proclaimed days of fasting and their subjects have been clothed in sackcloth. On other occasions they have exercised the prerogative to ordain days of feasting, as Ahasuerus did at the palace of Shushan, when for 180 days, "He showed the riches of his glorious kingdom and the honor of his excellent majesty," by filling the capital with feasting.

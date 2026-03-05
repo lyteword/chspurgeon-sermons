@@ -1,12 +1,5 @@
 # Sermon 1363 | Sudden Sorrow
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 8, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON
-
 "Suddenly are my tents spoiled, and my curtains in a moment." Jeremiah 4:20.
 
 "And when you are spoiled, what will you do?" Jeremiah 4:30.

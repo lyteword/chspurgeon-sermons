@@ -1,12 +1,5 @@
 # Sermon 1489 | The Plague of the Heart
 
-
-DELIVERED ON LORD'S-DAY EVENING, AUGUST 10, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Whatever prayer and supplication is made by anyone, or by all Your people Israel, which shall know every man the plague of his own heart, and spread forth his hands toward this house: then hear in Heaven, Your dwelling place, and pardon, and do, and give to every man according to his ways, whose heart You know; (for You, even You only, know the hearts of all the children of men) that they may fear You all the days that they live in the land which You gave unto our fathers." 1Kings 8:38-40.
 
 (When the regular congregation unanimously left their seats to be occupied by strangers, who crowded the building to its utmost capacity).

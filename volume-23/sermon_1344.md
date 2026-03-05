@@ -1,12 +1,5 @@
 # Sermon 1344 | The Student's Prayer
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Make me to understand the way of Your precepts: so shall I talk of Your wondrous works." Psalm 119:27.
 
 WHEN we seek any good thing from God, we ought, also, to consider how we may use it for His Glory. It is right that desires for good things should flow from good motives. When the heart is not only gracious but grateful, it will turn to God with doable purpose, desiring the mercy and desiring to use it to His praise. The Grace of God, which brings salvation, marvelously whets the appetite for good things--it does more, it provokes an intense anxiety to glorify God's name in the world--even before it has imparted the ability to do any good thing. Vehement passion and abject helplessness meeting together and struggling in the breast, often lead to despondency, but they ought far rather to stimulate prayer.

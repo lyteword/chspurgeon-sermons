@@ -1,12 +1,5 @@
 # Sermon 1399 | Am I My Brother's Keeper?
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Am I my brother's keeper?" Genesis 4:9.
 
 To what a shameful pitch of presumptuous impudence had Cain arrived when he could thus insult the Lord God! If it had not been on record in the pages of Inspiration, we might almost have doubted whether a man could speak so impudently when actually conscious that God Himself was addressing Him. Men blaspheme frightfully, but it is usually because they forget God and ignore His Presence. But Cain was conscious that God was speaking to him. He heard Him say, "Where is Abel your brother?" and yet he dared, with the coolest impertinence, to reply to God, "I know not. Am I my brother's keeper?" As much as to say--"Do You think that I have to keep him as he keeps his sheep? Am I also a shepherd as he was and am I to take as much care of him as he did of a lame lamb?"

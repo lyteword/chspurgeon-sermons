@@ -1,12 +1,5 @@
 # Sermon 1343 | The Jewel of Peace
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 18, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now the Lord of Peace Himself give you peace always by all means. The Lord be with you all." 2 Thessalonians 3:16.
 
 WHEN the heart is full of love it finds the hand too feeble for its desires. Therefore it seeks relief in intercession and benediction--wishing, praying and blessing where it cannot actually effect its loving purpose. The Apostle would have done for the Thessalonians all the good that was conceivable had it been in his power, but his wishes far outstripped his abilities and, therefore, he betook himself to interceding for them and to invoking upon them the blessing of the Lord and Master whom he served. Here is a lesson for us in the art of doing good--as we lengthen the eyesight with the telescope, as we send our words afar by the telegraph--so let us extend our ability to do good by the constant use of intercessory prayer.

@@ -1,12 +1,5 @@
 # Sermon 1510 | The Hunger-Bite
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "His strength shall be starved." Job 18:12.
 
 Bildad was declaring the history of the hypocritical, presumptuous and wicked man. And he intended, no doubt, to insinuate that Job was just such a person--that he had been a deceiver and that, therefore, God's Providence had at last revealed him and was visiting him for his sins. In this, Bildad was guilty of great injustice to his friend. All the three miserable comforters of Job were mistaken in the special aim of their discourses and yet, concerning the speeches of each one, it may be said that their general statements were, for the most part, true. They uttered truths, but they drew mistaken inferences and they were ungenerous in the imputations which they cast upon Job. It is true that, sooner or later, either in this world or the next, all conceivable curses fall upon the hypocrite and the ungodly man, but it is not true that when a Christian is in trouble, we are to judge that he is suffering for his sin! It would be both cruel and wicked for us to think so.

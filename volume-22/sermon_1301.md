@@ -1,12 +1,5 @@
 # Sermon 1301 | A Prince and a Savior
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 25, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Him has God exalted with His right hand to be a Prince and a Savior, for to give repentance to Israel and forgiveness of sins." Acts 5:31.
 
 THE same fact appears very differently to different people. Our Lord Jesus, having risen from the dead, was exalted with the right hand of God. To the Jewish priests and rulers this was a dreadful announcement. They could not endure to hear that Jesus, whom they slew and hanged on a tree, was yet alive. As the murderer is startled at the apparition of the ghost of the man he has slain, so were these rulers altogether dismayed at the idea that Jesus of Nazareth, whom they had nailed to the Cross, was risen from the grave. And they were astounded at the very thought that He, whom they had put to death with all the shame that they could devise, was with the full might and majesty of God exalted to the highest heavens. They were cut to the heart by the announcement as though a sword had cut them in two, dividing their very bones. Full of indignation, they consulted how they could compass the death of those who had brought such evil tidings to their ears.

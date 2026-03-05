@@ -1,12 +1,5 @@
 # Sermon 1311 | God of the Hills and God of the Valleys
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 27, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there came a man of God, and spoke unto the king of Israel, and said, Thus says the Lord, Because the Syrians have said, The Lord is God of the hills, butHe is not God of the valleys, therefore will I deliver all this great multitude into your hand, and you shall know that I am the Lord." 1 Kings 20:28.
 
 THE Syrians had been defeated by the Israelites whom they despised. This victory had been achieved by so small a number of men over so vast a host that the Syrians were driven to the conclusion that there was something supernatural about it and they ascribed their defeat to the God of Israel. They were right in doing so. Brothers and Sisters, let not these heathen shame us! They knew to whom the crown of the victory belonged and, little as they understood Jehovah, yet they recognized that His right hand and His holy arm had gotten for His people the victory. Now, if the Lord has prospered you, if in your souls peace and joy are reigning, or if you have enjoyed success in Christian service, take heed that you do not lift up your horn on high and take honor to yourselves!

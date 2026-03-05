@@ -1,12 +1,5 @@
 # Sermon 1354 | All Things Are Ready, Come
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 13, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Come, for all things are now ready." Luke 14:17.
 
 THIS invitation was first of all made to the Jews, but it seems to me to have a peculiar appropriateness to ourselves. It is later in the day than when first the Lord was here and, therefore, the supper time is evidently closer at hand. The shadows lengthen, the sun of the present dispensation is nearing its setting--by nearly 1,900 years has its day been shortened since first the Lord sent forth His servants at supper time. The fullness of time for the marriage supper of the Lamb must speedily arrive and, therefore, it behooves us to be more than ever earnest in delivering the message to the invited guests. And if all things could be said to be ready, even in our Savior's day, we may say it with still greater emphasis now, for when He delivered this parable, the Holy Spirit was not yet given.

@@ -1,12 +1,5 @@
 # Sermon 1465B | The Royal Prerogative
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "See now that I, even I, am He, and there is no god with Me: I kill, and I make alive; I wound, and I heal." Deuteronomy 32:39.
 
 THERE is but one God--Jehovah is His name--the "I AM." That one God will not endure a rival. Why should He? He made all things and sustains all things. Should a creature that His own hands have made be set up in rivalry with Him? If it is a great man like Nebuchadnezzar, if he says, "Behold this great Babylon which I have built," God will send him to eat grass among the bulls and make him to know that no man is great in the sight of God! What a provocation it must be to God to see men bowing down before idols fashioned by their own hands! What a degradation to man that he should worship gold, or silver, or wood, or stone--and what a grievous dishonor to the great God of all! And it seems to me to be the worst of all dishonors when God sees the image of His own dear Son made into an idol and men prostrate themselves to worship the representation of the Cross on which redemption was lifted on high!

@@ -1,12 +1,5 @@
 # Sermon 1322 | Rest For The Laboring
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, OCTOBER 22, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Come unto Me, all you that labor and are heavy laden, and I willgiveyou rest. Take My yoke upon you, and learn of Me; for I am meek and lowly in heart: and you shall find rest unto your souls. For My yoke is easy, and My burden is light." Matthew 11:28-30.
 
 [The Tabernacle was on this night thrown open to strangers, all the regular congregation kindly vacating their seats.]

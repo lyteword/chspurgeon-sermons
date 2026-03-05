@@ -1,12 +1,5 @@
 # Sermon 1405 | A Distinction with a Difference
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Zacharias said unto the angel, How shall I know this?" Luke 1:18.
 
 "Then said Mary unto the angel, How shall this be?" Luke 1:34.

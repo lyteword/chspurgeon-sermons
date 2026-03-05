@@ -1,12 +1,5 @@
 # Sermon 1381 | A Sunday School Sermon
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 28, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He shall gather the lambs with His arm, and carry them in His bosom." Isaiah 40:11.
 
 MINISTERS all over England have been specially requested to assist in exciting a spirit of prayer in connection with Sunday schools, today, and I feel that the training of the young is so important a part of Church work that it would be almost sinful to decline the seasonable request of the Sunday school Union. Therefore have I selected this subject this morning in the hope that God the Holy Spirit may bless it, not only to those who are teachers, but to those who ought to be, and afterwards to those of us who may be otherwise occupied in the Master's vineyard, that we, also, may be led more earnestly to pray for our Brothers and Sisters who are watching over the lambs of the flock.

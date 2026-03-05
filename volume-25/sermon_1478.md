@@ -1,12 +1,5 @@
 # Sermon 1478 | Greater Things Yet Who Shall See Them?
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus answered and said unto him, Because I said unto you, I saw you under the fig tree, do you believe? You shall see greater things than these. And He said unto him, Verily, verily, I say unto you, Henceforth you shall see Heaven open, and the angels of God ascending and descending upon the Son of Man." John 1:50,51.
 
 WE cannot help making a few remarks upon the narrative before we proceed to the distinct subject of discourse. Certain catch words are exceedingly worthy of notice since they are abundantly full of instruction. When Nathanael had doubts as to whether the Messiah could come from Nazareth, Philip answered Him, "Come and see." Now, those were the precise words which the Lord Jesus had Himself used to His earliest disciples when they began to follow Him--He said to them, "Come and see." It is always safe for us to use over again words which God has blessed. Did the Master say, "Come and see"? Then we cannot do better than say what Jesus said and use, as near as possible, the Inspired expressions.

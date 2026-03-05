@@ -1,6 +1,5 @@
 # Sermon 1448 | Forgiveness Made Easy
 
-
 > "Forgiving one another, even as God for Christ's sake hath forgiven you."  
 > Ephesians 4:82.  
 

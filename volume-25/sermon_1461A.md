@@ -1,10 +1,5 @@
 # Sermon 1461A | The Seven Sneezes
 
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
-
 "The child sneezed seven times." 2 Kings 4:35.
 
 THE child was dead. Although he had been the special gift of Divine promise and was therefore doubly prized by his parents, yet the little lad was not secure from the common hazards of life. He was in the harvest field in the heat of the day and a sunstroke struck him down. His father bade one of his young men carry him home and he died on his mother's knees. The brave woman was heartbroken, but, being full of energy and spirit, she rode off to Elisha, the man of God, to tell him her sorrow and to upbraid him with the short-lived blessing which had come to her through his prayers. She clung to the Prophet in the hour of her bitter sorrow and he, with his whole heart, sympathized in her motherly grief.

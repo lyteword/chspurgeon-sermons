@@ -1,12 +1,5 @@
 # Sermon 1421 | The Hiding of Moses by Faith
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By faith Moses, when he was born, was hid three months by his parents, because they sa w he was a proper child; and they were not afraid of the king's commandment." Hebrews 11:23.
 
 As I observed to you in the exposition, the stress in these passages of sacred biography should be laid upon the words, "by faith." The mighty deeds of heroes and the obedient acts of pilgrim fathers are only told to us because they spring out offaith.. It is to commend the root that the fruits are mentioned. The children are named one by one that the mother may have the praise, for faith is the mother of all virtues. According to this Book, God estimates men by their faith and "without faith it is impossible to please God." Faith is well-pleasing to the Most High, but it is in proportion to its strength, for there are cases in which weakness of faith has evidently been followed by chastisement and other cases in which strength of faith has been abundantly honored.

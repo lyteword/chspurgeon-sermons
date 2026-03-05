@@ -1,12 +1,5 @@
 # Sermon 1284 | The Sealing of the Spirit
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 19, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In whom you also trusted, after that you heard the word of truth, the Gospel of your salvation: in whom also after that you believed, you were sealed with that Holy Spirit of promise, which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of His glory." Ephesians 1:13,14.
 
 I HAVE taken the whole passage for the sake of completing the sense, but I have no intention whatever of preaching upon all of it. Practically I only need for the topic of this morning the following words--"In whom also after that you believed, you were sealed with that Holy Spirit of promise." The sealing of the Holy Spirit will be the subject of our meditation. There are many who have believed in the Lord Jesus Christ who are extremely anxious to obtain some token for good, some witness from God which shall render them quite sure that they are saved. They have not yet reached the full assurance of faith and they feel uneasy till they attain it. They feel that these matters are too important to be left at all uncertain and they, therefore, pine for some sure witness or seal.

@@ -1,12 +1,5 @@
 # Sermon 1330 | The Great Birthday
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 24, 1876.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people." Luke 2:10.
 
 THERE is no reason upon earth, beyond that of ecclesiastical custom, why the 25th of December should be regarded as the birthday of our Lord and Savior Jesus Christ anymore than any other day from the first of January to the last day of the year. And yet some persons regard Christmas with far deeper reverence than the Lord's-Day. You will often hear it asserted that, "The Bible and the Bible, alone, is the religion of Protestants," but it is not so! There are Protestants who have absorbed a great deal beside the Bible into their religion and among other things they have accepted the authority of what they call, "the Church," and by that door all sorts of superstitions have entered. There is no authority whatever, in the Word of God, for the keeping of Christmas at all! And there is certainly no reason for keeping it just now except that the most superstitious section of Christendom has made a rule that December 25th shall be observed as the birthday of the Lord and the Church, established by State Law in this land, has agreed to follow in the same track.

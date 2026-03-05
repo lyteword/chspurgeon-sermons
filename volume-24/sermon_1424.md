@@ -1,12 +1,5 @@
 # Sermon 1424 | A Great Bargain
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Again, the kingdom of Hea ven is like unto a merchant, seeking good pearls: Who, when he had found one pearl of great price, went and sold all that he had, and bought it." Matthew 13:45, 46.
 
 A MERCHANT endeavors to trade so as to make a profit. Whether he deals in pearls or in grain, he does not hope to obtain riches by labor. He leaves that to those who eat their bread in the sweat of their face. He tries to get his by the sweat of his brain. He is dependent not so much upon labor as upon knowledge, upon skill, upon the advantage which superior acquaintance with the article which he deals in gives him. Now, this merchant is, at the very commencement, in some measure, a picture of the seeker after Christ. Christ and His salvation are not to be earned--they are not to be procured as the result of labor. Christ is to be had by knowledge. What says the Scripture? "By his knowledge shall My righteous servant justify many," that is, through their knowing Christ they become justified.

@@ -1,12 +1,5 @@
 # Sermon 1372 | God Our Portion and His Word Our Treasure
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 2, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You are my portion, O Lord: I have said that I would keep Your Words." Psalm 119:57.
 
 OBSERVE the close connection between privilege and duty. "You are my portion, O Lord." This is an unspeakable happiness. "I have said that I would keep Your Words"--this is the fitting return for such a blessing. Every mercy given us by the Lord brings with it a claim which we ought, in gratitude, to recognize. Notice very carefully the order in which the privilege and the duty are arranged. The blessing of Grace is first and the fruit of gratitude next. The Grace given is the root and the resolve is the fruit growing out of it. It is not, "I have said that I would keep Your Words, that You may be my portion, O Lord." No, first the portion is enjoyed by faith and then the resolution is formed. "You are my portion, O Lord, I have You already in present possession. Therefore will I, as You shall help me, keep Your Words."

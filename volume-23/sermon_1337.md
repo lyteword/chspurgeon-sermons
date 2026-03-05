@@ -1,12 +1,5 @@
 # Sermon 1337 | Love's Medicines and Miracles
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 21, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, for peace I had great bitterness: but You have, in love to my soul, delivered it from the pit of corruption: for You have cast all my sins behind Your back" Isaiah 38:17.
 
 HEZEKIAH'S recovery is a notable encouragement to prayer. If ever there was a case in the world where it seemed impossible that prayer could be of any use, it was that of Hezekiah. It was perceivable by everybody around him that he was sick unto death. Why, then, think of prayer? The case was fatal. Would it not expose prayer to derision if such a matter were taken before the Mercy Seat? Moreover, God's own Word, spoken by His servant the Prophet, had been given--"Set your house in order, for you shall die, and not live." What could be the use of prayer after that? Might it not be regarded as an impertinent interference with the known will of the Lord?

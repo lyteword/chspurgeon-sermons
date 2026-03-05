@@ -1,12 +1,5 @@
 # Sermon 1355 | Our Lord's Question to the Blind Men
 
-
-DELIVERED ON LORD'S-DAY EVENING, MAY 13, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when Jesus departed from there, two blind men followed Him, crying and saying, Son of David, ha ve mercy on us. And when He was come into the house, the blind men came to Him: and Jesus said unto them, Do you believe that I am able to do this? They said unto Him, Yes, Lord. Then touched He their eyes, saying, According to your faith be it unto you. And their eyes were opened." Matthew 9:27-30.
 
 [On this occasion the Members of the regular Congregation left their seats to strangers.)

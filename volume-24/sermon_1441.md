@@ -1,12 +1,5 @@
 # Sermon 1441 | The Prosperous Man's Reminder
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 27, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I knew you in the wilderness, in the land of great drought. According to their pasture, so were they filled; they were filled, and their heart was exalted; therefore have they forgotten Me. Therefore I wiil be unto them as a lion: as a leopard by the way will I observe them: I will meet them as a bear that is bereaved of her whelps, and will rend the cage of their heart, and there will I devour them like a lion: the wild beast shall tear them." Hosea 13:5-8.
 
 OUR text will lead me at this time to speak upon the perils of prosperity and, as those who are prospering in worldly circumstances make up a comparatively slender portion of any congregation, the sermon must mainly aim at a small class. Still, it is my duty to speak to these, for every word of Scriptural warning should have its tongue in a complete ministry and every condition of soul must be duly met by a watchful pastor. May the Holy Spirit enable me to make full proof of my ministry by declaring the whole counsel of God to all characters. Suffer me, however, to observe that if the subject should seem to take a narrow range, it is in your power to alter it very rapidly, for, while those who are prospering will kindly take note of the voice of God's Word to themselves, those of you who are not prospering may be profited by becoming the more contented with your lowly lot since it will be plain to you that had you succeeded in life you might have fallen into the sins denounced in our text.

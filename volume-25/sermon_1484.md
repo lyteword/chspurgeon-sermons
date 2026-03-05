@@ -1,12 +1,5 @@
 # Sermon 1484 | Our Motto
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "With goodwill doing service, as to the Lord, and not to men." Ephesians 6:7.
 
 THIS sentence was expressly addressed, in the first place, to "servants," which term includes and, first of all intends, those who unhappily were slaves. There were many slaves in the Roman Empire and the form of bondage which then existed was of the bitterest kind. I can imagine a slave becoming a Christian and so finding peace as to his former guilt and obtaining renewal of heart--and then, although rejoicing in the Lord, I can well conceive that he would often be downcast in view of his sad condition as a slave. I see him sitting down and moaning to himself, "I am a bondsman under a tyrant master. I have already endured many cruelties and may expect many more. I would be free, but there is no hope of escape, since there is no place to which I can flee, for Caesar's arm is long and would reach me at the very ends of the earth. I cannot purchase my liberty, nor earn it by long years of faithful servitude.

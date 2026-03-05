@@ -1,12 +1,5 @@
 # Sermon 1396 | Reasons for Turning to the Lord
 
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 13, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight." Hosea 6:1,2.
 
 [Mr. Spurgeon was exceedingly unwell and his voice painfully weak, hence the pause in the middle of the sermon, during which the congregation sang part of a hymn to enable the preacher to gain strength enough to resume his discourse. This was the last sermon before Mr. Spurgeon's departure from home to obtain needed rest. It has been revised by Mr. Spurgeon at Mentone. The sermons are continued regularly every week.]

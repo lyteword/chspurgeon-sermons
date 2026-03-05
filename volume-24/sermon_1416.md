@@ -1,12 +1,5 @@
 # Sermon 1416 | The Faithful Saying
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 26, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." 1 Timothy 1:15.
 
 IT is worthy of notice that Paul, in the passage before us, as, indeed, in all his writings, exhibits great sensitiveness with regard to sin. The sin which he had, himself, committed against the Lord Jesus, looked at from some points of view, might have been greatly extenuated on account of the honest, although mistaken, motive which lay at the bottom of it. But Paul, after allowing for his ignorance, declares that of sinners he had been chief and that he obtained mercy that in him, first, Jesus Christ might show forth all long-suffering for a pattern to them which should hereafter believe on Him to life everlasting. He describes himself as having been "a blasphemer, a persecutor and injurious" and, he is evidently lost in grateful astonishment that he should have been saved.

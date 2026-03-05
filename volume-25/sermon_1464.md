@@ -1,8 +1,5 @@
 # Sermon 1464 | A Refreshing Promise
 
-
-BY C. H. SPURGEON.
-
 "I will water it every moment," Isaiah 27:3.
 
 WHEN the Lord is most intent on justice He is, at the same time, earnest in His love. The day of vengeance of our God is also the acceptable year of the Lord. In the Scripture before us, the Prophet says, "Behold, the Lord comes out of His place to punish the inhabitants of the earth for their iniquity," (Isa. 26:21), and he foretells that the Lord will come forth as one armed with a great and strong sword to smite the fiercest of His enemies with a deadly wound (Isa. 27:1). Yet before He had bared His arm for the battle, He prepared chambers of refuge for His people that they might dwell as within closed doors until the tempest of indignation was past (Isa. 26:20). The shouts of war did not prevent the Lord from remembering His beloved and His song of love concerning her, for He says, "In that day sing you unto her, a vineyard of red wine. I the Lord do keep it; I will water it every moment."

@@ -1,12 +1,5 @@
 # Sermon 1378 | The Righteous Father Known and Loved
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 14, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O righteous Father, the world has not known You. But Ihave known You, and these have known that You have sent Me. And Ihave declared unto them Your name, and will declare it; that the love with which You have loved Me may be in them, and I in them." John 17:25,26.
 
 THESE are the last sentences of our Lord's most wonderful prayer. May they not be regarded as the flower and crown of the whole intercession? Minds usually burn and glow and reach their highest fervor as they proceed and it will not be wrong to conceive of the Savior as having here reached the climax of His pleading, the summit of His supplication. He has kept the best wine until now and brings forth His richest sentences last. How, then, shall our slender ability attain to "the height of this great argument"?

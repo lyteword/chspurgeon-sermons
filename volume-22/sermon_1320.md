@@ -1,12 +1,5 @@
 # Sermon 1320 | Why Should I Weep?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 22, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there followed Him a great company of people, and of women, which also bewailed and lamented Him. But Jesus turning unto them said, Daughters of Jerusalem, weep not for Me, but weep for yourselves, and for your children. For behold, the days are coming in which they shall say, Blessed are the barren, and the wombs that never bare, and the paps which never gave suck. Then shall they begin to say to the mountains, Fall on us; and to the hills, Cover us. For if they do these things in a green tree, what shall be done in the dry?" Luke 23:27-31.
 
 CAN you picture the scene? Jesus is given up by Pilate to the Jews that they may do their will with Him and, led by a small band of soldiers, He is conducted into the public street, bearing His Cross upon His shoulders. Perhaps they judged Him to be weary with His night of watching and worn with His suffering from the scourge, and they feared lest He might die upon the road and, therefore, with a cruel mercy, they laid hold upon one in the crowd who had too loudly expressed His sympathy, impressed him into military service and compelled him to assist in carrying the instrument of execution. You see the haughty scribes and the ribald throng--but the center of the spectacle, and the cause of it all was our Lord Himself--Jesus of Nazareth, the King of the Jews.

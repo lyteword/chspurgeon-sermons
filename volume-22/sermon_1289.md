@@ -1,12 +1,5 @@
 # Sermon 1289 | The Heart Full and the Mouth Closed
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I will establish My Covenant with you; and you shall know that I am the Lord: That you may remember, and be ashamed, and never open your mouth anymore because of your shame, when I am pacified toward you for all that you have done, said the Lord God." Ezekiel 16:62, 63.
 
 A VERY extraordinary chapter this 16th of Ezekiel! A minister could scarcely read it in public--he certainly would not like to explain its metaphors to a general audience, nor are we called upon to do so. To read it in private is another thing. And to have it read for you by the Holy Spirit and to be made to see and to feel its meaning, not merely as describing the Israelites, but as very much setting forth yourself, is a very different matter. Believe me, it is a lesson which, if it is well learned, will never be forgotten. It is a part of the Holy Spirit's business to convict us of sin and when He takes a chapter like this and puts us through our paces, verse by verse, and makes us eat the bitter herbs which each verse con-tains--and as He makes us feel as if we were drinking the water into which the dust of our idols had been cast when they had been broken and ground down, like the golden calf of the Israelites--when He makes us feel the grit between our teeth in every drop we drink, I say it is a lesson well worth receiving and one that is likely to stick by us all our days.

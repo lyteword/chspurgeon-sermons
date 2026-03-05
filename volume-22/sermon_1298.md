@@ -1,12 +1,5 @@
 # Sermon 1298 | Gathering to the Center
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 4, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They came to Him from every quarter." Mark 1:45.
 
 THE fact as it stands is well worthy of our notice and offers considerable encouragement to us. The multitudes came to hear our Lord and to see His miracles. He could not be hidden--wherever He appeared a congregation soon assembled. Indeed, the crowds became too large and too pressing, "insomuch that they trod one upon another." Few preachers suffer from our Lord's difficulty, but it was a frequent necessity with Him to use means to diminish the crowds and, therefore, He repaired to desert places, or took boats and crossed the sea. I gather from this, dear Friends, that notwithstanding the holiness of our Lord's doctrine and the way in which it runs counter to the desires of the carnal heart. Notwithstanding the plainness of His rebukes and the way in which He lays pride in the dust, there is a remarkable attractiveness to all kinds of men in the teaching of the Lord Jesus.

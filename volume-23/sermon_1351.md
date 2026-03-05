@@ -1,12 +1,5 @@
 # Sermon 1351 | The Divine Call for Missionaries
 
-
-DELIVERED ON LORD'S-DAY MORNING APRIL 22, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Also I heard the voice of the Lord, saying, Whom shall I send, and who will go for Us? Then said I, Here am I; send me." Isaiah 6:8.
 
 BROTHERS AND SISTERS, the heathen are perishing and there is but one way of salvation for them, for there is but one name given under Heaven among men whereby they must be saved. God, in the glorious unity of His Divine Nature is calling for messengers who shall proclaim to men the way of life. Out of the thick darkness my ears can hear that sound mysterious and Divine, "Whom shall I send?" If you will but listen with the ear of faith you may hear it in this house today--"Whom shall I send?" While the world lies under the curse of sin, the living God, who wills not that any should perish but that they should come to repentance, is seeking heralds to proclaim His mercy. He is asking, even in pleading terms, for some who will go forth to the dying millions and tell the wondrous story of His love--"Whom shall I

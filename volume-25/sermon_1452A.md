@@ -1,12 +1,5 @@
 # Sermon 1452A | The Sick Man Left Behind
 
-
-FROM THE SICK ROOM OF
-
-H. SPURGEON.
-
-JANUARY 12, 1879.
-
 "But Trophimus have I left at Miletum sick." 2 Timothy 4:20.
 
 THESE are among the last words of Paul the Apostle, for we find them in the closing verses of the last of his Epistles. The chapter reminds us of a dying man's final adieu to his best friend, in the course of which he calls to mind the associates of his life. Among his memories of love we find Paul recollecting Trophimus who had frequently shared with him the perils of rivers and perils of robbers which so largely attended the Apostle's career. He had left the good man ill at Miletum and as Timothy at Ephesus was within an easy journey of him, there was no need to add a hint that he should visit him, for he would be sure to do it.

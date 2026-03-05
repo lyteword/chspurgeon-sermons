@@ -1,12 +1,5 @@
 # Sermon 1283 | Conversions Encouraged
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 12, 1876,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But if from there you shall seek the Lord your God, you shall find Him, if you seek Him with all your heart and with all your soul. When you are in tribulation, and all these things are come upon you, even in the latter days, if you turn to the Lord your God, and shall be obedient unto His voice; (for the Lord your God is a merciful God); He will not forsake you, neither destroy you, nor forget the Covenant of your fathers which He swore unto them." Deuteronomy 4:29-31.
 
 LAST Lord's-Day the title of my discourse was, "Conversions Desired" and my earnest prayer to God has been that the effect of this morning's sermon may be conversions accomplished. I cannot be happy unless I indulge the hope that some will, this morning, turn to God with full purpose of heart, led to do so by the power of Divine Grace. For this I sought the Lord and at this I resolved to aim. I asked myself, "What is the most likely subject in the hand of the Holy Spirit to lead men to the Lord? Shall I preach the terrors of the Lord, or shall I proclaim the sweetness of Divine mercy? Each of these has its proper use, but which will be most likely to answer our design today?"

@@ -1,12 +1,5 @@
 # Sermon 1295 | Our Lord's Humanity a Sweet Source of Comfort
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then there came again and touched me one like the appearance of a man, and he strengthened me." Daniel 10:18.
 
 WE are not able, as yet, to bear the full revelation of Divine things. If any intellect had been strong enough, if any heart had been pure enough to see the exceeding glory of the Covenant angel, surely Daniel possessed such a head and heart. But even he fell upon his face and was cast into a dead swoon, for he was unable to bear the sight of the man clothed in linen, whose "body was like the beryl, and his face as the appearance of lightning." We ought to be thankful that our God has revealed no more. The Word of God is as excellent in its darkness as in its brightness. Had it unveiled more, its discoveries would have been no more beneficial--perhaps they had been less profitable. As it is, there is far more within this Book than you and I have seen as yet, and we need not wish that more had been written. If we entertain such a desire, our loving Lord may silence us with the words, "I have many things to show unto you, but you cannot bear them now."

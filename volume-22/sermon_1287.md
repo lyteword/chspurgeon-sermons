@@ -1,12 +1,5 @@
 # Sermon 1287 | Strengthening Words from the Savior's Lips
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL, 2, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said unto me, My Grace is sufficient for you: for My strength is made perfect in weakness. Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may rest upon me." 2 Corinthians 12:9.
 
 PAUL, when buffeted by the messenger of Satan, addressed his prayer to the Lord Jesus Christ and not, as he usually did, to the heavenly Father. This is a somewhat remarkable fact, but it is clear from the passage before us. He says, "For this thing I besought the Lord thrice," and that the Lord, here, is the Lord Jesus is pretty clear from the fact that he says in the next verse, "that the power of Christ may rest upon me." His prayer was not directed to God, absolutely considered, nor does he speak of the power of God, but his prayer was directed to the Lord Jesus Christ and it was the power of the Lord Jesus Christ which he desired to rest upon him. It is an Infallible proof of our Lord's divinity, that He may be addressed in prayer! And this is one instance, with several others, which show us that we may legitimately present our petitions, not only to the ever-blessed Father, but also to His Son Jesus Christ.
