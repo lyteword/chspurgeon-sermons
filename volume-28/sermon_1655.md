@@ -1,12 +1,5 @@
 # Sermon 1655 | The Blessed Guest Detained
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 23, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then they drew near unto the village where they were going, and He made as though He would have gone further. But they constrained Him, saying, Abide with us, for it is toward evening, and the day is far spent. And He went in to stay with them." Luke 24:28,29.
 
 WHAT a blessed walk was that from Jerusalem to Emmaus! Were they not highly favored men to have such a companion as the Lord Jesus, to hear Him converse upon such a subject and to feel their hearts burning within them with so Divine a flame? Brothers and Sisters, these are not the only men who have walked with the Lord Jesus. I trust I look into the eyes of full many who can say, "We, too, have communed with the Son of the Highest. The eyes of our faith have seen Him and our ears have heard His voice. We have known that Jesus, Himself, drew near, and we have heard the Words of Holy Scripture as though they fell fresh from His lips, and thus they have, by the power of the Holy Spirit, burned in our hearts and made our hearts to burn like coals of juniper which have a most vehement flame."

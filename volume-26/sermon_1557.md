@@ -1,12 +1,5 @@
 # Sermon 1557 | Walking Humbly With God
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He has shown you, O man, what is good; and what does the Lord require of you, but to do justly and to love mercy and to walk humbly with your God?" Micah 6:8.
 
 WE shall chiefly dwell upon the last line--"To walk humbly with your God." Man asks, "Why should I come before the Lord and bow myself before the high God?" and, as if he must set himself to answer his own question, he farther enquires, "Shall I come before Him with burnt offerings, with calves of a year old? Will the Lord be pleased with thousands of rams, or with ten thousands of rivers of oil?" Sacrifice of some sort is his idea--he supposes that he must supply the sacrifice himself and would gladly know what it should be. The answer which is given him chides him for the supposition that he is to answer his own question, for it begins thus--"He has shown you, O man, what is good; and what does the Lord require of you."

@@ -1,12 +1,5 @@
 # Sermon 1694 | The Use of the Bow
 
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And David lamented with this lamentation over Saul and over Jonathan his son: (Also he bade them teach the children of Judah the use of the bow: behold, it is written in the book of Jasher)." 2 Samuel 1:17,18
 
 THE translators have acted very properly in inserting the words, "the use of," for that is what the passage means. But if you read it without those words, the sense is still the same-- "He bade them teach the children of Judah the bow," that is to say, how to use the bow. In modern times, critics have said that by the expression, "the bow," is meant the song which David composed. And to sustain their notion, they quote from the Koran of Mahomet in which they tell us that there is a certain chapter called, "the Bow," and, therefore, David called his song, "the bow," as if so late an instance of oriental usage was at all to the point. I declare that there is nothing whatever in Scripture to justify the statement that the words, "the bow," can be applied to David's lament!

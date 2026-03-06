@@ -1,12 +1,5 @@
 # Sermon 1636 | Chastened Happiness
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER. 25, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They shall fear and tremble for all the goodness and for all the prosperity that I procure unto it." Jeremiah 33:9.
 
 GOD'S ancient people sadly provoked Him with their idolatries from age to age. He was longsuffering to them to the last degree, but at length He grew weary of them and, according to His own words, "He abhorred His own inheritance." He caused them to be carried away into captivity and their land became a desert, or the heritage of strangers. Israel became a scattered people on the brink of national extinction, for their iniquities had hidden the face of the Lord from them. Yet the Lord, even Jehovah, had entered into a Covenant concerning them with Abraham, His friend, which Covenant He had afterwards renewed with His servant David.

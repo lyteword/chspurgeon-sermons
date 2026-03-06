@@ -1,12 +1,5 @@
 # Sermon 1677 | A Great Mistake and the Way to Rectify It
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 3, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Because you say, I am rich, and increased with goods, and have need of nothing; and know not that you are wretched, and miserable, and poor, and blind, and naked: I counsel you to buy of Me gold tried in the fire, that you may be rich; and white raiment, that you may be clothed, and that the shame of your nakedness does not appear; and anoint your eyes with eye salve, that you may see." Revelation 3:17,18.
 
 THESE words were spoken, not to the outside world, but to the Church of Laodicea. They relate to persons who were in a Church state, who had been baptized on confession of their faith in Christ and who were thought to be in a fine spiritual condition. They had a singularly high opinion of themselves and probably considered that of all the seven Churches in Asia, they were the first in power and influence. The words before us are as sharp as they are true--and they demand the earnest attention of all professors of our holy faith--for to persons like ourselves they were addressed and, moreover, we have the special note of attention--"He that has an ear, let him hear what the Spirit says unto the Churches." Here the axe is laid to the root, not of the oaks of the forest or the pines of the mountainside, but to the root of the trees of the vineyard and the choice trees of the garden of the Lord. By this, the Lord showed His love to the true ones in Laodicea, according as He says, "As many as I love I rebuke and chasten."

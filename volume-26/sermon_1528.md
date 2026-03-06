@@ -1,12 +1,5 @@
 # Sermon 1528 | "They Were Tempted"
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 14, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They were tempted." Hebrews 11:37.
 
 LAST Lord's-Day I tried to draw the fair portrait of a believing man [Sermon #1526, The Fair Portrait of a Saint] putting his feet into God's steps and keeping God's way even unto the end. This morning we shall show in what circumstances such men were produced. We shall discover that they were not nursed upon the lap of ease, but were born and reared and perfected amid storms of opposition. We shall again see "the lily among thorns." The gracious characters of which we read in Scripture were not created by favorable circumstances--they owed nothing to their position or age-- their character was formed from within. Their faith was not produced by the tenderness of Providence--they were not put into a conservatory like fair flowers which cannot endure the frost--we might rather say that they were helped to their robustness by the rough winter blasts which swept over them.

@@ -1,12 +1,5 @@
 # Sermon 1561 | Asleep and Yet Awake--a Riddle
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I sleep, but my heart is awake: it is the voice of my Beloved that knocks." Song of Solomon 5:2.
 
 WE are glad to perceive in this Song the varied experience of the bride. She was the well-beloved of the heavenly Bridegroom, but she was not without her faults. Though the "fairest among women," she was human and, therefore, she had not reached angelical perfection. She was not perfect, to begin with, for at the outset she confessed, "I am black, because the sun has looked upon me: they made me the keeper of the vineyards; but my own vineyard have I not kept." She was not perfect even in the exhibition of her love to Him who had chosen her, for she has to acknowledge, as upon the occasion before us, that she treated Him in an unworthy manner. She kept Him waiting at her door in the chilly night and grieved Him so that He withdrew. She was not perfect, even, to the end of the chapter, for she could not hear her Lord's voice so clearly as certain of her companions and she cried in the last chapter of her Song, "Cause me to hear it."

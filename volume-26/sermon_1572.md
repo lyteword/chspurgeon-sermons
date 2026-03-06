@@ -1,12 +1,5 @@
 # Sermon 1572 | Untitled Sermon
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 12, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The righteousness of Your testimonies is everlasting: give me understanding and I shall live." Psalm 119:144.
 
 YESTERDAY afternoon I was the subject of a somewhat singular circumstance. An esteemed friend and relative came over to my house, evidently laboring under great disturbance of mind and having enquiries to make of a very important order. I was, at the time, walking in the garden, so that I did not see him and he appeared to have great difficulty in mentioning the subject of his concern to my wife. At last it came out that he had seen a gentleman who had informed him that it was generally rumored that I had been taken ill with heart disease and had died in a very short time. My friend came to the point by cautious degrees and asked at length if I was seriously ill. "No," was the joyful reply of my beloved, "he is much the same as usual."

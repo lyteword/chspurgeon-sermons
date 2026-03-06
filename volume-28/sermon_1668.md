@@ -1,12 +1,5 @@
 # Sermon 1668 | The Still Small Voice
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 9, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice. So it was when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entrance of the ca ve. And, behold, there came a voice unto him, and said, What are you doing here, Elijah?" 1 Kings 19:12,13.
 
 ELIJAH, no doubt, expected that after the wonderful display of God's power on Carmel the nation would give up its idols and would turn unto the only living and true God. Had they not confessed as with a voice of thunder, "Jehovah, He is the God! Jehovah, He is the God!"? The Prophet trusted that the heart of Ahab might, perhaps, be touched and possibly, through him, the heart of Jezebel. If she did not become converted, at least the manifest interposition of Jehovah might check her hand from future persecution. The Prophet hoped that by an influence thus established over the king and queen, the whole land would speedily glide back to its allegiance to Jehovah. Then would his stern heart have been glad before the Lord.

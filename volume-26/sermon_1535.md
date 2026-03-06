@@ -1,12 +1,5 @@
 # Sermon 1535 | Christ's Universal Kingdom and How It Comes
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 25, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Ask of Me and I shall give You the heathen for Your inheritance and the uttermost parts of the earth for Your possession. You shall break them with a rod of iron; You shall dash them in pieces like a potter's vessel." Psalms 2:8,9.
 
 OBSERVE, dear Friends, the wonderful contrast between the violent excitement of the enemies of the Lord and the sublime serenity of God Himself. He is not disturbed though the heathen so furiously rage and their kings and mighty ones set themselves in battle array. He smiles at them--He has them in derision. You and I are often downcast and depressed and our forebodings are dark and dismal, but God sits in His eternal peacefulness and serenely overrules tumult and rebellion. The Lord reigns and His Throne is not moved, nor His rest broken whatever may be the noise and turmoil down below. Notice the sublimity of this Divine calm. While the heathen and their princes are plotting and planning how to break His bands asunder and cast His cords from them, He has already defeated their devices and He says to them, "Yet have I set My king upon My holy hill of Zion." "You will not have My Son to reign over you, but nevertheless He reigns. While you have been raging I have crowned Him. Your imaginations are, indeed, vain, for I have forestalled you and established Him upon His Throne. Hear Him as He proclaims My decree and asserts His filial sovereignty."

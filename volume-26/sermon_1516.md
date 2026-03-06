@@ -1,6 +1,5 @@
 # Sermon 1516 | Salvation by Knowing the Truth
 
-
 God our Savior; who will have all men to be saved, and to come unto the knowledge of the truth.'1 Timothy 2:3, 4.
 
 MAY GOD THE HOLY GHOST guide our meditations to the best practical result this evening, that sinners may be saved and saints stirred up to diligence. I do not intend to treat my text controversially. It is like the stone which makes the corner of a building, and it looks towards a different side of the gospel from that which is mostly before us. Two sides of the building of truth meet here. In many a village there is a corner where the idle and the quarrelsome gather together; and theology has such corners. It would be very easy indeed to set ourselves in battle array, and during the next half-hour to carry on a very fierce attack against those who differ from us in opinion upon points which could be raised from this text. I do not see that any good would come of it, and, as we have very little time to spare, and life is short, we had better spend it upon something that may better tend to our edification. May the good Spirit preserve us from a contentious spirit, and help us really to profit by his word.

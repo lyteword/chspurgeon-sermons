@@ -1,12 +1,5 @@
 # Sermon 1696 | The Bird Escaped from the Snare
 
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Our soul is escaped as a bird out of the snare of the fowlers; the snare is broken, and we are escaped." Psalm 124:7.
 
 THIS text describes a soul-matter. The Psalmist is not speaking of a temporal deliverance, although, even in that sense, an escape from death would be a theme worthy of his sweetest song. He says, "Our soul is escaped as a bird out of the snare of the fowlers," thus denoting a spiritual rescue. The man's soul is the soul of the man and though some give all their attention to the body, their folly is great. It is as though a man should spend all his substance upon his house and have no bread for himself to eat. Do I speak to any who never think about their souls? Do you really believe that you will die like dogs and horses? I cannot believe that you have such brutal views of yourself! Believe me, you have within you an immortal spirit which will outlive the sun! If you have, up to now, been careless of your nobler part, may God's Spirit teach you wisdom. I pray that you may so think of your soul that our text may become deeply interesting to you, so that you may join in its song of deliverance.

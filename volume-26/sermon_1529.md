@@ -1,12 +1,5 @@
 # Sermon 1529 | A Powerful Reason For Coming To Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 21, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A great multitude, when they had heard what great things He did, came unto Him." Mark 3:8.
 
 THE opposition of the great ones of the earth did not, after all, hinder the cause of Christ. The Pharisees, who were the leaders of religious thought, combined with the Herodians, who were the court party, to destroy Jesus, but at the very moment when their wrath had reached its highest pitch the crowd about the Savior's Person was greater than ever. Let us not, therefore, dear Friends, be at all dismayed if great men and learned men and nominally religious men, should oppose the simple Gospel of Christ! All the world is not bound up in a Pharisee's phylactery, nor held in chains by a philosopher's new fancy. If some will not have our Savior, others will--God's eternal purpose will stand and the kingdom of His Anointed shall come.

@@ -1,12 +1,5 @@
 # Sermon 1619 | The Pentecostal Wind and Fire
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 18, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And suddenly there came a sound from Heaven, as of a rushing mighty wind, and it filed all the house where they were sitting. And there appeared unto them cloven tongues like as of fire, and it sat upon each of them. And they were all filed with the Holy Spirit, and began to speak with other tongues, as the Spirit gave them utterance." Acts 2:2-4.
 
 FROM the descent of the Holy Spirit at the beginning we may learn something concerning His operations at the present time. Remember at the outset that whatever the Holy Spirit was at the first, He is that now, for as God, He remains forever the same--whatever He did then He is able to do still, for His power is by no means diminished. As says the Prophet Micah, "O you that are named the house of Jacob, is the Spirit of the Lord straitened?" We would greatly grieve the Holy Spirit if we supposed that His might was less, today, than in the beginning. Although we may not expect and need not desire the miracles which came with the gift of the Holy Spirit, so far as they were physical, yet we may both desire and expect that which was intended and symbolized by them--and we may reckon to see the same spiritual wonders performed among us at this day.

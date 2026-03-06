@@ -1,12 +1,5 @@
 # Sermon 1673 | Who Is This?
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 6, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For who is this that engaged His heart to approach unto Me? says the Lord." Jeremiah 30:21.
 
 I MENTIONED in the reading that there is a very remarkable change of tone in the Book of Jeremiah, at the 30th chapter. You read on through the 29 chapters and you hear nothing but "a weeping and wailing," while the Prophet stands before you, girt with sackcloth, bidding Israel, "lament and howl: for the fierce anger of the Lord is not turned back from us." When you come to the middle of the 30th chapter, all is changed--you have left the dungeon for the pleasant meads and you hear "thanksgiving and the voice of them that make merry." Here flowers of promise glorify the fields and birds of praise sweeten the air with music. The people are first made to tremble and fear on account of sin and all faces are turned into paleness--and then the Lord declares His immeasurable Grace, saying, "I am with you to save you: though I make a full end of all nations where I have scattered you, yet will I not make a full end of you."

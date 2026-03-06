@@ -1,12 +1,5 @@
 # Sermon 1676 | Despair Denounced and Grace Glorified
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 27, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then He said unto me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried, and our hope is lost: we are cut off for our parts. Therefore prophesy and say unto them, Thus says the Lord God, Behold, O My people, I will open your graves, and cause you to come up out of your graves, and bring you into the land of Israel. And you shall know that I am the Lord, when I have opened your graves, O My people, and brought you up out of your graves." Ezekiel 37:11,12,13.
 
 I HAVE read to you the vision of the resurrection of the dry bones. Keep it in your minds, that you may understand the text. The figure is a very apt, instructive and impressive one. It is not, however, a mere figure--it is a parable based upon a remarkable representation of the resurrection of the dead. Although the children of Israel, at that time, knew little enough concerning the resurrection, yet the Lord, the Holy Spirit, knew all about it and He used it as a striking picture of the salvation of Israel from that national death which had come upon them. We may, with equal accuracy, see in it, a vivid representation of the work of Grace upon the hearts of all those who are quickened into spiritual life by the power of Divine Grace. Men, by nature, are dead in sin till they hear the voice of God and feel the quickening breath of the Spirit--and are made to live according to that Word of God--"He that believes in Me, though he were dead, yet shall he live: and whoever lives and believes in Me shall never die."

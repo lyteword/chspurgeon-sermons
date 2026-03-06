@@ -1,12 +1,5 @@
 # Sermon 1591 | Honey From A Lion
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But the free gift is not like the offense For if through the offense of one, many are dead, much more the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many." Romans 5:15.
 
 THIS text affords many openings for controversy. It can be made to bristle with difficulties. For instance--there might be a long discussion as to the manner in which the fall of Adam can justly be made to affect the condition of his posterity. When this is settled, there might arise a question as to the exact way in which Adam's fault is connected with ourselves--whether by imputation of its sin, or in some other form. And then there might be further dispute as to the limit of the evil resulting from our first parents' offense and the full meaning of the Fall, original sin, natural depravity and so forth. There would be another splendid opportunity for a great battle over the question of the extent of the redeeming work of the Lord Jesus Christ--whether it covers, as to persons, the whole area of the rain of the Fall or whether, in fact, full atonement has been made for all mankind or only for the elect.

@@ -1,12 +1,5 @@
 # Sermon 1665 | The Exceeding Riches of Grace
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 18, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through Christ Jesus." Ephesians 2:7.
 
 FROM this verse it is clear that Paul fully expected the Gospel of the Grace of God to be preached in the ages to come. He had no notion of a temporary Gospel to develop into a better, but he was assured that the same Gospel would be preached to the end of the dispensation. Nor this alone, for as I take it, he looked to the perpetuity of the Gospel, not only through the ages which have already elapsed since the first Advent of our blessed Lord, but throughout the ages after He shall have come a second time. Eternity, itself will not improve upon the Gospel. When all the saints shall be gathered Home they shall still talk and speak of the wonders of Jehovah's love in Christ Jesus! And in the golden streets they shall stand up and tell what the Lord has done for them to listening crowds of angels, principalities and powers.

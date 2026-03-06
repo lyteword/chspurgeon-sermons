@@ -1,12 +1,5 @@
 # Sermon 1626 | The Principal Wheat
 
-
-DELIVERED ON THURSDAY EVENING, AUGUST 25, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The principal wheat." Isaiah 28:25.
 
 THE whole passage runs on this wise--"Give you ear, and hear my voice; hearken, and hear my speech. Does the plowman plow all day to sow? Does he open and break the clods of his ground? When he has made plain the face thereof, does he not cast abroad the fitches, and scatter the cummin, and cast in the principal wheat and the appointed barley and the spelt in its place? For his God does instruct him to discretion, and does teach him. For the fitches are not threshed with a threshing instrument, neither is a cart wheel turned about upon the cummin; but the fitches are beaten out with a staff, and the cummin with a rod. Bread corn is bruised; because he will not ever be threshing it, nor break it with the wheel of his cart, nor bruise it with his horsemen. This also comes forth from the Lord of Hosts, which is wonderful in counsel, and excellent in working."

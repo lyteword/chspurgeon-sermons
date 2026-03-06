@@ -1,12 +1,5 @@
 # Sermon 1688 | Stand Fast
 
-
-DELIVERED ON LORD'S-DAY EVENING, AUGUST 27, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be not moved away from the hope of the Gospel." Colossians 1:23.
 
 

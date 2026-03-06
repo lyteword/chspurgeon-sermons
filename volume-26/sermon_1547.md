@@ -1,12 +1,5 @@
 # Sermon 1547 | Samuel and the Young Man Saul
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And as they were going down to the end of the city, Samuel said to Saul, Bid the servant pass on before us, (and he passed on), but stand still awhile, that I may announce to you the Word of God." 1 Samuel 9:27.
 
 THIS was Samuel's third interview with this goodly young man. He had spoken with him and entertained him in his parlor, giving him the place of honor. He had afterwards spent the evening with him in quiet on the housetop and now, that they were about to part, he took a fresh opportunity of speaking to him. This time he spoke to him with great closeness of personal application, sending Saul's servant away that he might say things to Saul which nobody else might hear. He tried to speak to the young man's inmost soul. The Prophet felt a deep solemnity--his whole heart saying every word that fell from his lips. He knew that this young man was about to be made a king, to take upon him very heavy responsibilities and he might either be a great curse to Israel or a great blessing and, therefore, the man of God, with all the gravity of his years and all the earnestness of his loving spirit, said, "Stand still awhile, that I may announce to you the Word of God."

@@ -1,6 +1,5 @@
 # Sermon 1672 | The Voice Behind Thee
 
-
 And thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.'Isaiah 30:21.
 
 ON the Sabbath before last we spoke concerning the still small voice.' After the thunder and the fire and the earthquake had passed away, for the Lord was not in them, there came a still small voice unto Elijah, which reached the prophet's heart, and brought him back to his former condition of communion with God. This hopeful morning we shall hear that same still small voice' actually speaking a warning and teaching word, and we shall see how it operates upon the sinner, reaching both his ear and his heart. God calls to the rebellious, and by his gentle word they are brought to his feet with repentance, turned from their evil wandering, and led in the way of obedience.

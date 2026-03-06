@@ -1,6 +1,5 @@
 # Sermon 1513 | Cheer Up, My Comrades!
 
-
 And Josiah set the priests in their charges, and encouraged them to the service of the house of the Lord'2 Chronicles 35:2.
 
 JOSIAH, as you remember, in the early part of his reign set his face against the idolatries that prevailed, to root them out of the land. He then bent his thoughts upon repairing and beautifying the temple. After that it was his heart's aim to restore the sacred services, to observe the solemn feasts, and to revive the worship of God after the due order, according to the words of the book of the covenant that was found in the house of the Lord. Our text tells us something of the method with which he went to work; and it may well serve us as a model.

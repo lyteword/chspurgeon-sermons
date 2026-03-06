@@ -1,12 +1,5 @@
 # Sermon 1691 | Christ's Word with You
 
-
-DELIVERED ON LORD'S-DAY EVENING JUNE 12 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
-
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 
 WHEN THE REGULAR CONGREGATION LEFT THEIR SEATS TO BE OCCUPIED BY STRANGERS.

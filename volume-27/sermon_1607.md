@@ -1,12 +1,5 @@
 # Sermon 1607 | The Swiftly Running Word
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "His Word runs very swiftly." Psalms 147:15.
 
 A WORD is the expression of the mind. What a man has thought may live and die within himself, but when he wishes his thought to live in the outer world, he embodies it in a word and thus his thought is made known. Thought without expression is as an arm uplifted, working nothing, though it is the mainspring of action. But according to the ability of the man, his thought is carried out into fact if he is able to speak a powerful word of command. Hence, as the garment of thought and the accomplishment of wish, a word is a very important thing. A word is the manifestation of a man. Dry-den says--

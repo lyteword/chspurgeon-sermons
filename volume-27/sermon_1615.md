@@ -1,12 +1,5 @@
 # Sermon 1615 | Singing in the Ways of the Lord
 
-
-DELIVERED ON THURSDAY EVENING, AUGUST 11, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Yes, they shall sing in the ways of the Lord: for great is the glory of the Lord." Psalm 138:5.
 
 ACCORDING to the context, this is spoken of kings. "All the kings of the earth shall praise You, O Lord, when they hear the words of Your mouth. Yes, they shall sing in the ways of the Lord." It will be a novel spectacle to see kings singing in the ways of the Lord! As a rule, they have not much troubled themselves with singing, but they have often troubled those who love the ways of God and opposed them, both by their laws and by their example. There will yet be another order of things in the earth! These days will be shortened for the elect's sake and the time shall come when kings shall fall down before the King of kings and all people shall call Jesus blessed! Oh that the time may speedily arrive when a choir of kings shall, with loud voices, magnify the name of the Lord!

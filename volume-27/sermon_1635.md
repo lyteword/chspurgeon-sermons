@@ -1,12 +1,5 @@
 # Sermon 1635 | Only Trust Him! Only Trust Him!
 
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 26, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And as He entered into a certain village, there met Him ten men that were lepers, which stood afar off: and they lifted up their voices and said, Jesus, Master, have mercy on us. And when He sa w them, He said unto them, Go show yourselves unto the priests. And it came to pass, that, as they went, they were cleansed." Luke 17:12-14.
 
 SEVERAL interesting topics might fairly be found in these verses. We see here the abounding fruit of sin, for here were 10 lepers in a group and the abundance of Divine power to meet it, for they were all cleansed. So, also, we see how Christ must come first and ceremonies second--first the work of Grace--and then the outward showing of it. The Lord's tenderness toward outcasts, His attention to prayers from a distance and His regard for the ceremonial Law so long as it was in force, might, each one, yield an instructive meditation. I have, however, only one thought which I wish to bring under your notice and to press upon you, perhaps, almost to repetition and monotony. That thought I would engrave as with an iron pen upon the hearts and minds of all here present who desire to find eternal salvation. May the Holy Spirit imprint it upon every living soul!

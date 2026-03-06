@@ -1,12 +1,5 @@
 # Sermon 1605 | Jesus Knew What He Would Do
 
-
-DELIVERED ON THURSDAY EVENING, JUNE 23, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "This He said to test him: for He Himself knew what He would do." John 6:6.
 
 OBSERVE, dear Friends, how careful the Holy Spirit is that we should not make a mistake about our Lord Jesus Christ. He knew that men are liable to think too little of the ever-blessed Son of God and that some, who call themselves Christians, nevertheless deny Christ's Deity and are always ready to forge an argument against the true and real Deity of the Savior out of anything which appears to limit His power or knowledge. Here is an instance of the care of the Spirit to prevent our falling into an erroneous conclusion. Our Lord consults with Philip, asking this poor disciple, "Where shall we buy bread, that these may eat?" Some might, therefore, have inferred that Jesus did not know what to do and felt embarrassed. From this they would argue that Jesus cannot be Almighty God, for, surely, embarrassment is inconsistent with Omnipotence! Why should Jesus consult with Philip, if He knows all things?

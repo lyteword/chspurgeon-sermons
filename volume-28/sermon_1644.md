@@ -1,12 +1,5 @@
 # Sermon 1644 | Our Lord's First Appearance before Pilate
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 12, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Pilate said unto them, I find in Him no fault at all." John 18:38.
 
 I SHOULD like, if God spares us, to present to you on Sabbath mornings the full story of our Savior's sufferings. We began last Lord's Day by going with Him to the hall of Caiaphas and it was a sadly solemn time when we beheld the Prince of Peace a prisoner, heard Him falsely accused and unjustly condemned. And then we saw Him abused till servants and subjects did spit in His face and make a mockery of Him. I hope that you will not be wearied with this subject. If so, it will be the fault of the preacher, for the subject is always full and fresh. Or if the preacher is not to blame, there will be something of censure due to his hearers. If we grow tired of the story of the Cross it will be a sad indication of secret soul-sickness and it will be well to observe the symptom and hasten to the great Physician for healing.

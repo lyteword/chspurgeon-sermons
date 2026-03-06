@@ -1,12 +1,5 @@
 # Sermon 1660 | The Perpetuity of the Law of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 21, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For verily I say unto you, Till Heaven and earth pass, one jot or one tittle shall in no wise pass from the Law till all is fulfilled." Matthew 5:18.
 
 IT has been said that he who understands the two Covenants is a theologian and this is, no doubt, true. I may also say that the man who knows the relative positions of the Law and of the Gospel has the keys of the situation in the matter of doctrine. The relationship of the Law to myself and how it condemns me--the relationship of the Gospel to myself and how, if I am a Believer, it justifies me--these are two points which every Christian man should clearly understand. He should not "see men as trees walking" in this department, or else he may cause himself great sorrow and fall into errors which will be grievous to his heart and injurious to his life. To form a mingle-mangle of Law and Gospel is to teach that which is neither Law nor Gospel, but the opposite of both. May the Spirit of God be our teacher and the Word of God be our lesson book--and then we shall not err.

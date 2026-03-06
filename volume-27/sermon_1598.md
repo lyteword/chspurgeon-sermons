@@ -1,12 +1,5 @@
 # Sermon 1598 | The Substance Of True Religion
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 15, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But you should say, Why persecute we him, seeing the root of the matter is found in me?" Job 19:28.
 
 You will always understand a passage of Scripture better if you carefully attend to its connection. The habit of picking out portions from the Bible and separating them from their context may be carried a great deal too far and in the process the reader may miss the mind of the Spirit and force upon the words a meaning of his own. If we were to treat men's books as we do God's Book we would, probably, be judged to be insane! It is, indeed, a wonderful Book to bear such mangling! Every sensible person will see that it must always be wise to study the context, for it is likely enough to cast a light upon the passage in hand.

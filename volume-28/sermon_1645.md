@@ -1,12 +1,5 @@
 # Sermon 1645 | Our Lord before Herod
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 19, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when Herod saw Jesus, he was exceedingly glad: for he was desirous to see Him for a long season, because he had heard many things of Him; and he hoped to ha ve seen some miracle done by Him. Then he questioned Him in many words; but He answered him nothing." Luke 23:8.9.
 
 AFTER Pilate had declared to the chief priests and scribes that he found no fault at all in Jesus, they were afraid that their victim would escape and, therefore, their fury was raised to the highest pitch and they cried out the more vehemently against Him. In the course of their outcries they made use of the word, "Galilee," going, as it seems to me, a little out of their way in order to drag in the name--"He stirs up the people, teaching throughout all Jewry, beginning from Galilee to this place." Galilee was a region held in very great contempt and they mentioned it to cast a slur upon our Lord, as if He were a mere boor from among the clowns of Galilee. To Pilate, they thought that the mention of the name would, perhaps, act like the proverbial red rag held before an infuriated bull, for he appears to have been troubled by seditious persons from that province.

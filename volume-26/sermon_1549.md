@@ -1,12 +1,5 @@
 # Sermon 1549 | Good News For Thirsty Souls
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 4, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will give unto him that is thirsty of the fountain of the water of life freely." Revelation 21:6.
 
 SALVATION is no small thing. It filled the heart and hands of the Son of God and, therefore, it ought not to be neglected by us. The precious promise before us concerns the gift of eternal salvation and it is set forth as the personal Word of the Lord Jesus Christ, Himself. The Apostle is very careful to make this clear, for he inserts the words, "And He said unto me," as if John knew that poor, troubled hearts might doubt so large a promise were they not assured that Jesus, Himself, had expressly given it. John is a faithful and true witness. In this, as in another case, he could have written, "He knows what He says is true." He declares to us that He who is Alpha and Omega, Himself, gave to him this word of promise. So especially careful was our Lord that the Gospel of Grace should be published correctly and without fail, that He delivered it, Himself, to John and also said to him, "Write: for these words are true and faithful."

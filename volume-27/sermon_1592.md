@@ -1,12 +1,5 @@
 # Sermon 1592 | The Common Salvation
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The common salvation." Jude 1:3.
 
 JUDE says, "Beloved, when I gave all diligence to write unto you of the common salvation, it was necessary for me to write unto you." The Apostle did not write for writing's sake and in this he sets us an example--we are not to speak for speaking's sake, nor even to preach for preaching's sake. When we take upon ourselves to write concerning Divine things, it ought to be because it is necessary for us to write. And when we speak in the name of God, it should be because we have something to say which is necessary to be said. Unless a man feels an imperative necessity to speak, he will not speak as an ambassador of God.

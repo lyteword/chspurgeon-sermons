@@ -1,10 +1,5 @@
 # Sermon 1634B | Loved and Loving
 
-
-AMONG THE GOLDEN APPLE TREES,
-
-BY C. H. SPURGEON.
-
 "My Beloved is mine, and I am His: He feeds among the lilies." Song of Solomon 2:16.
 
 "MY BELOVED"--this is a sweet name which our love takes liberty to apply to the Lord Jesus. His inexpressible beauty has won our affection and we cannot help loving Him whatever may come of it--whether He is ours or not and whether He smiles upon us or frowns--we love Him and cannot do otherwise. We are carried away by the torrent of His goodness and have no longer the control of our affections. As long as we live, we must and will love the Altogether Lovely One. Yes, He is and must be to me, "My Beloved."

@@ -1,6 +1,5 @@
 # Sermon 1667 | Love and I' A Mystery
 
-
 I have declared unto them thy name, and will declare it: that the love wherewith thou hast loved me may be in them, and I in them.'John 17:26.
 
 FOR SEVERAL SABBATH MORNINGS my mind has been directed into subjects which I might fitly call the deep things of God. I think I have never felt my own incompetence more fully than in trying to handle such subjects. It is a soil into which one may dig and dig as deep as ever you will, and still never exhaust the golden nuggets which lie within it. I am, however, comforted by this fact, that these subjects are so fruitful that even we who can only scratch the surface of them shall yet get a harvest from them. I read once of the plains of India, that they were so fertile that you had only to tickle them with a hoe and they laughed with plenty, and surely such a text as this may be described as equally fruitful, even under our feeble husbandry. Pearls lie on the surface here as well as in the depth. We have only to search its surface, and stir the soil a little, and we shall be astonished at the plenitude of spiritual wealth which lies before us. Oh, that the Spirit of God may help us to enjoy the blessed truths which are herein set forth! Here is the priceless treasure, but it lies hid till he reveals it to us.

@@ -1,12 +1,5 @@
 # Sermon 1540 | The Mediator--Judge And Savior
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 30, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He commanded us to preach unto the people and to testify that it is He which was ordained of God to be the Judge of the quick and the dead. To Him all the prophets witness that, through His name, whoever believes in Him shall receive remission of sins." Acts 10:42,43.
 
 THESE two verses are an extract from a very remarkable sermon, a sermon preached by Peter in the house of Cornelius upon the occasion of the Gentile Pentecost. I think we are entitled to call the event by that name, for then the gift of the Holy Spirit was poured out upon the Gentiles. Peter preached at the first Pentecost, when the Holy Spirit fell upon the company of Jewish Believers and it is remarkable that he should be the preacher at the second Pentecost, when the Holy Spirit descended upon those of the uncircumcision while they were listening to the Gospel. Philip was at Caesarea and might have been called in, but God had determined that the strict Peter, the minister of the circumcision, should himself open the door of faith to the Gentiles.

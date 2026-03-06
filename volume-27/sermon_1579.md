@@ -1,12 +1,5 @@
 # Sermon 1579 | Roads Cleared
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Cast you up, cast you up, prepare the way, take up the stumbling block out of the way of My people." Isaiah 57:14.
 
 (Preached on an evening when the Tabernacle was left to strangers).

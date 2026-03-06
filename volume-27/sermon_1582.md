@@ -1,12 +1,5 @@
 # Sermon 1582 | The Fruit of the Spirit--Joy
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 6, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But the fruit of the Spirit is joy." Galatians 5:22.
 
 OBSERVE, "the fruit of the Spirit," for the product of the Spirit of God is one. As some fruits are easily divisible into several parts, so you perceive that the fruit of the Spirit, though it is but one, is threefold, no, it makes three times three--"love, joy, peace; longsuffering, gentleness, goodness; faith, meekness, temperance"--all one! Perhaps "love" is put first not only because it is a right royal virtue, nearest akin to the Divine perfection, but because it is a comprehensive Grace and contains all the others. All the commandments are fulfilled in one word and that word is "love." And all the fruits of the Spirit are contained in that one most sweet, most blessed, most heavenly, most God-like Grace of love. See that you abound in love to the great Father and all His family, for if you fail in the first point, how can you succeed in the second? Above all things, put on love, which is the bond of perfectness.

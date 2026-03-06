@@ -1,12 +1,5 @@
 # Sermon 1554 | Redemption By Price
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You are not your own: for you are bought with a price." 1 Corinthians 6:19,20.
 
 ATTACKS have often been made upon the central doctrine of the Gospel, namely, the doctrine of Redemption or Atonement, for it is well-known to be the crux of the Gospel. These onslaughts have, in many instances, been very craftily made. They have professed to be mere corrections of our phraseology, but were essentially assaults upon the Truth of God itself. We believe that in and through the blood of Jesus we have redemption and that we have been ransomed from destruction by the Mediator's death, the Lord Jesus having bought us by the suit and service which He rendered in our place and on our behalf.

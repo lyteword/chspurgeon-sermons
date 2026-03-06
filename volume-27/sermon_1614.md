@@ -1,12 +1,5 @@
 # Sermon 1614 | Dressing In The Morning
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 21, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And that, kno wing the time, that now it is high time to awake out of sleep: for now is our salvation nearer than when we first believed. The nightis far spent, the day is athand: let us therefore cast off the works of darkness, and let us put on the armor of light. Let us walk honestly, as in the day; not in rioting and drunkenness, not in chambering and wantonness, not in strife and envying. But put you on the Lord Jesus Christ, and make not provision for the flesh, to fulfill the lusts thereof." Romans 13:11-14.
 
 THIS passage is a piece of holy teaching set forth under the parable of rising in the morning and preparing for the work of the day. May the Holy Spirit help me to place it before you in a clear light. It is a great mistake in a man's life when he does not know the times in which he lives and how to act in them--and when he does not know the time as to the day of his own life, so as to apply his heart unto wisdom. The Apostle speaks of his Roman brethren as "knowing the time." What, then, is the time of day with the Christian? It is no longer the dead of the night with us, but, "the night is far spent, the day is at hand." A little while ago the dense darkness of ignorance was about us, but the Gospel has made us light in the Lord. We were asleep in the gloom of sin--like a thick cloud it enveloped all our powers--but God has brought us out of darkness into His marvelous Light.

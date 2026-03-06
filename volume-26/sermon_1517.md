@@ -1,6 +1,5 @@
 # Sermon 1517 | For the Candid and Thoughtful
 
-
 And when Jesus saw' ['saw him,' so it should be] that he answered discreetly, he said unto him, Thou art not far from the kingdom of God.'Mark 12:34.
 
 THIS MAN BEGAN with Christ as a foe, and he ended as a friend. It does not quite appear from Mark, but it is plainly stated by Matthew, that the scribe asked a question of the Savior tempting him.' He was, therefore, an enemy. Put the mildest sense you like on the word tempt' and it will retain the idea of an unfriendly testing; yet nothing could be more hearty in the end than the verdict with which he commended our Lord's answer, Well, Master, thou hast said the truth.' Our Lord Jesus Christ has an almighty power over men's minds; he possesses irresistible charms by which he turns adversaries into advocates. He has a secret key which fits the wards of human hearts, and he can open that which seems to be the most securely closed against him. Never man spake like this man,' for in his voice, even in his humiliation, there were traces of the eternal fiat which of old spake the primeval midnight into noon.

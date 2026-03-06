@@ -1,12 +1,5 @@
 # Sermon 1533 | Fear Not
 
-
-DELIVERED ON TUESDAY EVENING, MARCH 9, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE SHOREDITCH TABERNACLE, ERECTED FOR THE CONGREGATION OF PASTOR W. CUFF.
-
 "Fear not." Revelation 1:17.
 
 "FEAR not" is a plant which grows very plentifully in God's garden. If you look through the lily beds of Scripture you will continually find, by the side of other flowers, the sweet, "Fear nots" peering out from doctrines and precepts even as violets look up from their hiding among places of green leaves. "Fear nots" bloomed in the old times at the feet of Abraham when he returned from fighting with the kings. Melchisedec blessed him and the Lord comforted him. The Patriarch might have been half afraid that he would always lead a troubled life, now that he had once drawn the sword. But the Lord came to him in vision and said, "Fear not, Abram. I am your shield and your exceedingly great reward." If he had to undergo a soldier's toils, he should have a soldier's shield and a soldier's pay and both should be exceedingly great, for he should find them both in God!

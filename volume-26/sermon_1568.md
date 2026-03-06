@@ -1,12 +1,5 @@
 # Sermon 1568 | The Believer Catechized
 
-
-DELIVERED ON SUNDAY MORNING, NOVEMBER 21, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Do you believe this?" John 11:26.
 
 THE Savior said to Martha, "I am the resurrection and the life: He that believes in Me, though he were dead, yet shall he live: and whoever lives and believes in Me shall never die. DO YOU BELIEVE THIS?" When Believers are sorrowful, they may be assured that a consolation is provided exactly adapted to their cases. For every lock that God has made, He has provided a key. As every blade of grass has its own drop, so every grief has its comfort. I doubt not that for every pain which racks this mortal frame there is a pain reliever among the herbs of the fields and for every disease there is a remedy in God's wondrous laboratory if we could but find it.

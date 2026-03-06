@@ -1,12 +1,5 @@
 # Sermon 1593 | Rejecters Of The Gospel Admonished
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 17, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To whom He said, This is the rest with which you may cause the weary to rest; and this is the refreshing: yet they would not hear." Isaiah 28:12.
 
 ASSUREDLY Isaiah was one of the most eloquent of preachers and yet he could not win the ears and hearts of those to whom he spoke, for it is written, "they would not hear." Beyond all question he was thoroughly evangelical, for, as Dr. Watts truly says, he spoke more of Jesus Christ than all the rest of the Prophets and yet the message of love was treated as though it were an idle tale. His doctrine was clear as daylight and yet men would not see it, so that he had to ask with sorrow, "Who has believed our report? And to whom is the arm of the Lord revealed?" It was not the fault of the preacher that Israel rejected his warnings--all the fault lay with that disobedient and gainsaying nation.

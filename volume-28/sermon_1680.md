@@ -1,12 +1,5 @@
 # Sermon 1680 | Bochim--Or, the Weepers
 
-
-DELIVERED ON THURSDAY EVENING, AUGUST 10, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And it came to pass, when the Angel of the Lord spoke these words unto all the children of Israel, that the people lifted up their voice, and wept. And they called the name of that place Bochim: and they sacrificed there unto the Lord." Judges 2:4, 5
 
 LET me give an outline of the chapter, that we may put the text into its proper setting. God had brought His people out of Egypt and divided Jordan that they might march through, dry-shod, into the land which He had promised to their fathers. He charged them to drive out the Canaanites, a race that had become so loathsome in God's sight that He decreed their destruction and appointed the tribes of Israel to be their executioners. It was for the good of the universal world that this pest-house should be broken up and that the filthy races should be destroyed--and God gave His people that charge to carry out.

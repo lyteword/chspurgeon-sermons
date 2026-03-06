@@ -1,12 +1,5 @@
 # Sermon 1643 | Our Lord's Trial before the Sanhedrin
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they all condemned Him to be guilty of death." Mark 14:64.
 
 THIS one sentence is selected because custom demands a text. But in reality we shall follow the entire narrative of our Lord's trial before the High Priests. We shall see how the Sanhedrin arrived at their unrighteous sentence and what they did afterwards, and so, in a sense, we shall be keeping to our text. We have just been reading three passages--John 23:12- 24; Mark 14:53-65 and Luke 22:66-71. Please carry these in your minds while I rehearse the mournful story. The narrative of our Lord's grief, if it is carefully studied, is harrowing in the extreme. One cannot long think of it without tears. In fact, I have personally known what it is to be compelled to leave my meditations upon it from excess of emotion.

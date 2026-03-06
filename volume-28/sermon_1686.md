@@ -1,12 +1,5 @@
 # Sermon 1686 | With the Disciples on the Lake of Galilee
 
-
-DELIVERED ON THURSDAY EVENING, OCTOBER 6, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The men marveled, saying, What manner of Man is this, that even the winds and the sea obey Him!" Matthew 8:27.
 
 "And they feared exceedingly, and said one to another, What manner of Man is this, that even the wind and the sea obey Him?" Mark 4:41.

@@ -1,12 +1,5 @@
 # Sermon 1524 | Your Personal Salvation
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Receiving the end of your faith--the salvation of your souls. Of this salvation the Prophets have inquired and searched diligently, who prophesied of the Grace that would come to you, searching what, or what manner of time the Spirit of Christ which was in them did indicating, when He testified beforehand the sufferings of Christ and the glories that would follow. To whom it was revealed, that not to themselves, but to us they did minister the things which are now reported to you by them that have preached the Gospel to you by the Holy Spirit sent down from Heaven--which things angels desire to look into." 1 Peter 1:9-12.
 
 "Let Your mercies come also unto me, O Lord, even Your salvation, according to Your Word."

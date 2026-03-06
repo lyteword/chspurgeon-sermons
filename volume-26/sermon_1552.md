@@ -1,12 +1,5 @@
 # Sermon 1552 | The Friends Of Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 8, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You are My friends if you do whatever I command you." John 15:14.
 
 OUR Lord Jesus Christ is beyond all comparison the best of friends--a friend in need, a friend indeed. "Friend!" said Socrates, "there is no friend!" But Socrates did not know our Lord Jesus, or he would have added, "except the Savior." In the heart of our Lord Jesus there burns such friendship towards us that all other forms of it are as dim candles to the sun. "Greater love has no man than this, that he lay down his life for his friend." An ordinary man has gone as far as he can when he has died for his friend and yet he would have died anyway, so that in dying for his friend he does but pay, somewhat beforehand, a debt which must inevitably be discharged a little further on. With Christ there was no necessity to die at all and this, therefore, places His love and His friendship by itself.

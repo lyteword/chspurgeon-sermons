@@ -1,12 +1,5 @@
 # Sermon 1647 | The Dream of Pilate's Wife
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 26, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When he was set down on the judgment seat, his wife sent unto him, saying, Have you nothing to do with thatjust Man: for I have suffered many things this day in a dream because of Him." Matthew 27:19.
 
 I EARNESTLY wished to pursue the story of our Savior's trials previous to His Crucifixion, but when I sat down to study the subject I found myself altogether incapable of the exercise. "When I thought to know this, it was too painful for me." My emotions grew so strong and my sense of our Lord's grief became so extremely vivid that I felt I must waive the subject for a time. I could not watch with Him another hour and yet I could not leave the hallowed scene! It was, therefore, a relief to meet with the episode of Pilate's wife and her dream. It enables me to continue the thread of my narrative and yet to relax the extreme tension of the feelings caused by a near view of the Master's grief and shame.

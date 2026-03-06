@@ -1,12 +1,5 @@
 # Sermon 1631 | The Main Matter
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 6, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Many other signs truly did Jesus in the presence of His disciples, which are not written in this book: but these are written that you might believe that Jesus is the Christ, the Son of God, and that, believing, you might have life through His name." John 20:30,31.
 
 THE public life of our most blessed Lord Jesus Christ was brief. Few suppose it to have exceeded three and a half years but yet, what a full life it was! It had in it not only enough to compose the four Gospels, each one of which is sufficient to lead men to saving faith, but so much remained over and above that, the Apostle John makes this remarkable statement--"And there are also many other things which Jesus did, the which, if they should be written, every one, I suppose that even the world itself could not contain the books that should be written." Our Lord's life was as ample as His own festivals--it feeds thousands--and with the fragments that remain many baskets might be filled!

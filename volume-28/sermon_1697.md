@@ -1,10 +1,5 @@
 # Sermon 1697 | The Word of a King
 
-
-DELIVERED BY C. H. SPURGEON.
-
-AT THE OPENING OF A NEW BAPTIST CHAPEL, TRINITY ROAD, UPPER TOOTING.
-
 "Where the word of a king is, there is power." Ecclesiastes 8:4.
 
 KINGS in Solomon's day had a vast amount of power, for their word was absolute. They did according to their own will and none could check them, for, as Solomon said, "the king's wrath is as the roaring of a lion: whoever provokes him to anger sins against his own soul." When such a monarch happened to be wise and good, it was a great blessing to the people, for, "a king that sits in the throne of judgment scatters away all evil with his eyes." But if he was of a hard, tyrannical nature, his subjects were mere slaves and groaned beneath a yoke of iron. We do not sufficiently give thanks for the blessings of a constitutional government, but if we were, for a season, put beneath the power of a grinding despotism, we should set more store by those liberties for which we have to thank our Puritan ancestors. Mercies are seldom appreciated till they are taken away. May we not prove ungrateful under free institutions, for if so, we shall be more brutish than any men.

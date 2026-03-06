@@ -1,12 +1,5 @@
 # Sermon 1530 | Following the Risen Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 28, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "If you then are risen with Christ, seek those things which are above, where Christ sits at the right hand of God. Set your affection on things abo ve, not on things on the earth." Colossians 3:1,2.
 
 THE resurrection of our Divine Lord from the dead is the cornerstone of Christian doctrine. Perhaps I might more accurately call it the keystone of the arch of Christianity, for if that fact could be disproved, the whole fabric of the Gospel would fall to the ground. If Jesus Christ is not risen, then is our preaching in vain and your faith is also in vain--you are yet in your sins. If Christ is not risen, then they which have fallen asleep in Christ have perished and we, ourselves, in missing so glorious a hope as that of Resurrection, are, of all men, the most miserable! Because of the great importance of His Resurrection, our Lord was pleased to give many Infallible proofs of it, by appearing again and again in the midst of His followers.

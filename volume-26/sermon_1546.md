@@ -1,12 +1,5 @@
 # Sermon 1546 | Men Bewitched
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O foolish Galatians, who has bewitched you, that you should not obey the truth, before whose eyes Jesus Christ has been evidently set forth, crucified among you?" Galatians 3:1.
 
 WITH very great enthusiasm the Galatians received the Gospel when Paul preached it to them. They seem to have been a very warm-hearted but fickle people and Paul found to his great grief that while he was away from them, certain false teachers came in and turned them aside from the Gospel which he had delivered to them. He spoke out very plainly about the matter. In this verse he uses very strong terms, while he says to them--"O foolish Galatians, who has bewitched you, that you should not obey the truth?" I do not know that any such witchery has fallen upon any of you, but I do know that, being men, we are all subject to the same dangers and I know, also, that there is a witchery in the very air at this time so that many are to be found throughout the Churches of this land to whom these words might be justly spoken.

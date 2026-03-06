@@ -1,12 +1,5 @@
 # Sermon 1538 | Divine Surprises
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 16, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When You did terrible things which we looked not for, You came down, the mountains flowed down at Your Presence." Isaiah 64:3.
 
 THE people of God were in a very sad state when this chapter described them. Isaiah pictures them as brought into the lowest degree of fear and sorrow. He pleads with God to return to His chosen people and restore their former peace and prosperity. He makes use of the past as an argument for the future and recites the wonderful acts of God in days gone by as an encouragement to expect that He would do the same again. If it were not that God is unchangeable, no inference could be drawn from His past behavior toward us, but inasmuch as He is immutably the same, yesterday, today and forever, we may safely infer that what He has done He will do again.

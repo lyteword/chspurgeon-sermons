@@ -1,12 +1,5 @@
 # Sermon 1634A | The Bride and Her Ornaments--the Sin of Forgetting God
 
-
-DELIVERED ON THURSDAY EVENING, AUGUST 4, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Can a maid forget her ornaments, or a bride her attire? Yet My people have forgotten Me days without number." Jeremiah 2:32.
 
 IT is a clear proof of the great love of God to His people that He will not lose their love without earnest expostulation. When you do not care at all for a person, he may love you or hate you, it is all the same to you. But when you have great love for him, then you earnestly desire to possess his heart in return. This, then, is clear proof that God greatly loves His people, since, whenever their hearts wander from Him, He is greatly grieved. And He rebukes them and earnestly pleads with them, setting the coldness of their hearts in a true light and striving to bring them back to warm affection towards Himself. Not only are God's rebukes proofs of His love, but when He goes farther and deals out blows as well as words, there is love in every stroke of His hand. Most truly does He say, "As many as I love I rebuke and chasten," since rebukes and chastening are proofs that He will not lose our hearts without a struggle for them.

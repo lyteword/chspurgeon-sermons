@@ -1,12 +1,5 @@
 # Sermon 1560 | The Plain Man's Pathway To Peace
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
-
 "And when Jesus departed from there, two blind men followed Him, crying and saying, You son of Da vid, have mercy on us! And when He was come into the house, the blind men came to Him: and Jesus said unto them, Do you believe that I am able to do this? They said unto Him, Yes, Lord. Then He touched their eyes, saying, According to your faith be it unto you. And their eyes were opened; and Jesus straitly charged them, saying, See that no one knows it." Matthew 9:27-30.
 
 I AM not about to expound this incident, nor to draw illustrations from it, but only to direct your attention to one single point in it and that is, its extreme simplicity. There are other cases of blind men and we have various incidents connected with them, such as, in one instance, the making of clay and the sending of the patient to wash at the pool of Siloam and so forth. But here the cure is extremely simple--the men are blind, they cry to Jesus, they come near, they confess their faith and they receive their sight straightway! In many other cases of miracles that were worked by Christ there were circumstances of difficulty. In one case a man is let down through the roof, being borne of four; in a second case a woman comes behind Him in the press and touches the hem of His garment with great effort.

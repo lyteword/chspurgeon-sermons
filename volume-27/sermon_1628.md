@@ -1,12 +1,5 @@
 # Sermon 1628 | Till We Meet Again
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Grace of our Lord Jesus Christ be with you all. Amen." Revelation 22:21.
 
 THE first saints could never be long without speaking of their Lord and Savior. He filled their hearts and, therefore, they must necessarily speak of Him. How ingeniously they bring Him in! When they commence an Epistle, the salutation will be sure to bear His name. When they are in the midst of a letter, they lay down their pen and offer a prayer. And when they begin, again, it is with a benediction in which His name is prominent, or with a doxology ascribing glory unto Him, with the Father and with the Holy Spirit. John's Book of Revelation is full of Christ. Its opening verse rings out the precious name and the closing line, which is now before us, repeats the heavenly music! Is not the Lord Jesus the sum and substance, the Glory of every vision seen in Patmos? May I not say of the Apocalypse, as John said of the New Jerusalem, "the Lamb is the light thereof?

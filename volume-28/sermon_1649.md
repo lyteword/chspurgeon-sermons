@@ -1,12 +1,5 @@
 # Sermon 1649 | Freshness
 
-
-DELIVERED ON THURSDAY EVENING, FEBRUARY 16, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My glory was fresh in me, and my bow was renewed in my hand." Job 29:20.
 
 "I shall be anointed with fresh oil." Psalm 92:10.

@@ -1,12 +1,5 @@
 # Sermon 1518 | Beloved, and yet Afflicted
 
-Notes of a Sermon
-
-
-PREACHED BEFORE AN AUDIENCE OF INVALID LADIES AT MENTONE, BY
-
-H. SPURGEON,
-
 Lord, behold, he whom Thou lovest is sick.'John 11:3.
 
 THAT DISCIPLE WHOM JESUS LOVED is not at all backward to record that Jesus loved Lazarus too: there are no jealousies among those who are chosen by the Well-beloved. Jesus loved Mary, and Martha, and Lazarus: it is a happy thing where a whole family live in the love of Jesus. They were a favoured trio, and yet, as the serpent came into Paradise, so did sorrow enter their quiet household at Bethany. Lazarus was sick. They all felt that if Jesus were there disease would flee at his presence; what then should they do but let him know of their trial? Lazarus was near to death's door, and so his tender sisters at once reported the fact to Jesus, saying, Lord, behold, he whom thou lovest is sick.' Many a time since then has that same message been sent to our Lord, for in full many a case he has chosen his people in the furnace of affliction. Of the Master it is said, himself took our infirmities, and bare our sicknesses,' and it is, therefore, no extraordinary thing for the members to be in this matter conformed to their Head.

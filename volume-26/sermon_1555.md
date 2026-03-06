@@ -1,12 +1,5 @@
 # Sermon 1555 | The Glories of Forgiving Grace
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 29, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In whom we have redemption through His blood, the forgiveness of sins, according to the riches of His Grace." Ephesians 1:7.
 
 LAST Sunday morning the subject was redemption, "You are not your own: you are bought with a price." The sequel to redemption is pardon--the text gives us that doctrine, for it tells us that redemption through the blood of Jesus involves the forgiveness of sins. Our subject, at this time, shall be the forgiveness of sin, the measure, mode, medium and manifestation of it as set forth in the words before us. May the Holy Spirit sweetly open up to us the glories of our sin-forgiving God and cause us to exult in the riches of His Grace.

@@ -1,12 +1,5 @@
 # Sermon 1563 | The Duty of the Present Hour
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Break up your fallow ground: for it is time to seek the Lord, till He comes and rains righteousness upon you." Hosea 10:12.
 
 "BREAK up your fallow ground." Nature at its largest is but a small farm and we had need to get a harvest out of every acre of it, for our needs are great. Have we left any part of our small allotment uncultivated? If so, it is time to look into the matter and see if we cannot improve this wasteful state of things. What part of our small allotment have we left fallow? We should think very poorly of a farmer who, for many years, allowed the best and the richest part of his farm to lie altogether neglected and untilled. An occasional fallow has its benefits in the world of Nature, but if the proprietor of rich and fruitful land allowed the soil to continue fallow year after year, we would judge him to be out of his wits! The wasted acres ought to be taken from him and given to another farmer who would worthily cherish the generous fields and encourage them to yield their harvests. Bad is the man who neglects to cultivate his farm, but what shall be said of the sluggard who fails to cultivate himself. If it is wrong to leave untended a part of our estate, how much worse must it be to disregard a portion of ourselves!

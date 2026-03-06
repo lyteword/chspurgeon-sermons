@@ -1,12 +1,5 @@
 # Sermon 1570 | The Lamentations of Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 28, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When He had come near, He beheld the city and wept over it." Luke 19:41.
 
 ON three occasions we are told that Jesus wept. You know them well, but it may be worth while to refresh your memories. The first was when our Lord was about to raise Lazarus from the dead. He saw the sorrow of the sisters and He meditated upon the fruit of sin in the death and corruption of the body and He groaned in spirit and it is written that "Jesus wept." Those who divided the chapters did well to make a separate verse of that simple sentence. It stands alone, the smallest and yet, in some respects, the greatest verse in the whole Bible! It shines as a diamond of the first water. It contains a world of healing balm condensed into a drop. Here we have much in little--a wealth of meaning in two words.

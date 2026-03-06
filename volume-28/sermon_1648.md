@@ -1,12 +1,5 @@
 # Sermon 1648 | Pilate and Ourselves Guilty of the Savior's Death
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When Pilate saw that he could prevail nothing, but that rather a tumult was made, he took water, and washed his hands before the multitude, saying, I am innocent of the blood of this just Person: see you to it. Then answered all thepeople, and said, His blood be on us, and on our children." Matthew 27:24,25.
 
 THE Crucifixion of Christ was the crowning sin of our race. In His death we shall find all the sins of mankind uniting in foul conspiracy. Envy and pride and hate are there, with covetousness, falsehood and blasphemy eager to rush on to cruelty, revenge, and murder! The devil awakened around the Seed of the woman the iniquities of us all--they compassed the Lord about, yes, they compassed Him about like bees. All the evils of human hearts of all ages were concentrated around the Cross, even as all the rivers run into the sea and as all the clouds empty themselves upon the earth, so did all the crimes of man gather to the slaying of the Son of God! It seemed as if Hell held a formal reception and all the various forms of sin came flocking to the rendezvous--army upon army they hastened to the battle!

@@ -1,12 +1,5 @@
 # Sermon 1525 | The Lily Among Thorns
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 29, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As the lily among thorns, so is My love among the daughters." Song of Solomon 2:2.
 
 WE shall not enter into any profitless discussion this morning. We take it for granted that the Song of Solomon is a sacred marriage song between Christ and His Church and that it is the Lord Jesus who is here speaking of His Church and, indeed, of each individual member, saying, "As the lily among thorns, so is My love among the daughters." I will not even enter into any study as to what particular flower is here intended by the word translated, "lily," for it would be very difficult to select a plant from the Holy Land about which travelers and botanists would agree. The lily, which we should most naturally fix upon, is, as I have gathered from books on travel, not at present found in that country, though we may not, therefore, be sure that it was never there, or may not yet be discovered. Several other fair and beautiful forms, according to the fancies of various travelers, have been preferred to occupy the place of the plant intended by the original Hebrew, but none of them quite come up to the ideal suggested to an English reader by our translation.

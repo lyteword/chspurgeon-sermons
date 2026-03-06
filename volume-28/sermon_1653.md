@@ -1,12 +1,5 @@
 # Sermon 1653 | The Resurrection of Our Lord Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 9, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Remember that Jesus Christ of the seed of David was raised from the dead according to my Gospel." 2 Timothy 2:8.
 
 FROM long sickness my mind is scarcely equal to the work before me. Certainly, if I had ever sought after brilliance of thought or language, I should have failed, today, for I am almost at the lowest stage of incapacity. I have only been comforted in the thought of preaching to you this morning by the reflection that it is the doctrine, itself, which God blesses, and not the way in which it may be spoken--for if God had made the power to depend upon the speaker and his style, He would have chosen that the Resurrection, grandest of all the Truths of God, would have been proclaimed by angels rather than by men! Yet He set aside the seraph for the humbler creature.

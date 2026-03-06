@@ -1,12 +1,5 @@
 # Sermon 1684 | "Feed My Lambs"--a Sunday School Sermon
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 15, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "So when they had dined, Jesus said to Simon Peter, Simon, son of Jonas, do you love Me more than these? He said unto Him, Yes, Lord; You know that I love You. He said unto him, Feed My lambs." John 21:15.
 
 READ the whole chapter and observe the change of scene. First, they are on the lake fishing, casting their nets at Christ's command, and dragging to land a multitude of great fishes. They have all come on shore and when they have breakfasted, their faces are not turned to the sea, but to the pastures on the hillside. These are clothed with flocks and the Master says no more about fishermen and fish, but speaks of shepherds and sheep. Herein lies a parable--the servants of the Lord Jesus are first, fishermen, and then shepherds. The first work of Christ's servants is comprised in that commission, "Go you into all the world and preach the Gospel to every creature," or, "Launch out into the deep and let down your nets for a draught."

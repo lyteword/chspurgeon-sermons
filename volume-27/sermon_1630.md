@@ -1,12 +1,5 @@
 # Sermon 1630 | Four Choice Sentences
 
-
-DELIVERED ON THURSDAY EVENING, FEBRUARY 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold I am with you." Genesis 28:15.
 
 "I will be with you." Genesis 31:3.

@@ -1,12 +1,5 @@
 # Sermon 1569 | The Golden Lamp and Its Goodly Lessons
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the angel that talked with me came again and awakened me, as a man that is wakened out of his sleep and said unto me, What do you see? And I said, I have looked and behold a candlestick all of gold, with a bowl upon the top of it and it has seven lamps thereon and seven pipes to the seven lamps, which are upon the top: and two olive trees by it, one upon the right side of the bowl and the other upon the left side. And I answered again and said unto him, What are these two olive branches which through the two golden pipes empty the golden oil out of themselves? And he answered me and said, Don't you know what these are? And I said, No, my lord. Then he said, These are the two anointed ones that stand by the Lord of the whole earth." Zechariah 4:1-3; 12-14.
 
 THE Prophet, as he tells us in the introduction to His vision, had to be awakened by the angel as one is awakened out of his sleep. His mind was dull and heavy. Perhaps he was weary and worn out. Do you not often feel a similar lethargy from which you need to be awakened before your mind is equal to the study of those Truths which God is revealing to your soul? May it not, then, be well, at the commencement of our meditation, to pray the Lord to awaken us as a man is awakened out of his sleep? A divinely mysterious power can brood over us and quicken us out of lethargy. Have you ever felt it? "Or ever I was aware my soul made me like the chariots of Amminadib." I had been slow before, but when the Spirit came, then was fulfilled that ancient proverb, "Draw me and I will run after You."

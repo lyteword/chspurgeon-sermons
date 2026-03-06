@@ -1,8 +1,5 @@
 # Sermon 1637 | The Beginning of Months
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 1, 1882.
-
 "And the Lord spoke unto Moses and Aaron in the land of Egypt, saying, this month shall be unto you the beginning of months: it shall be the first month of the year to you." Exodus 12:1,2.
 
 In all probability up to that time the year had been supposed to begin in the autumn. The question has been raised at what season of the year did God create man and it has been decided by many that it must have been in autumn, so that when Adam was placed in the garden he might at once find fruits ripe and ready for his use. It has not seemed probable that he would have begun his career while as yet all fruits were raw and green--therefore many have concluded that the first year of human history began in the time of harvest--when fruits were mellowed for man's food. For this reason, perhaps, in the old times the new year began when the feast of harvest had been celebrated.

@@ -1,12 +1,5 @@
 # Sermon 1543 | The Sheep Before The Shearers
 
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 20, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As a sheep before her shearers is dumb, so He opens not His mouth." Isaiah 53:7.
 
 It is very suggestive of the way in which our Lord Jesus took the sinner's place that we are here, in the context, compared to sheep--"All we like sheep have gone astray," and then He who comes to take our place is also compared to a sheep--"As a sheep before her shearers is dumb." It is wonderful how complete was the interchange of positions between Christ and His people so that what they were He became in order that what He is they may become! See how closely He became like His brethren? I can very well understand how we should be compared to the sheep and He to the shepherd, but I should never have dared to coin the comparison which likens Him to a sheep! I dare try to explain, but I should never have dared to utter it if I had not found it here.

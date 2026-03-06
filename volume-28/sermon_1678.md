@@ -1,12 +1,5 @@
 # Sermon 1678 | The Samaritan Woman and Her Mission
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 10, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And upon this came His disciples, and marveled that He talked with the woman, yet no man said, What do You seek? or, Why are You talking with her? The woman then lefther waterpot, and went her way into the city, and said to the men, Come, see a Man which told me all things that ever I did: is not this the Christ? Then they went out of the city, and came unto Him." John 4:27-30.
 
 Behold our Lord and Master with divinely skillful art seeking after a single soul! We must have large Congregations or we are disinclined for soul-winning. The habit of the age is to do nothing but what is ostentatious--every work must be with beat of drum or sound of tambourine! I pray that the Lord may work in us the steadfast desire to do good on the quiet, by stealth, when no one looks on, when not a single disciple is near. Oh that we may have such an estimate of the value of a single soul that we count whole days well spent to bring one fallen woman or one drunk to the Savior's feet! Blessed is he who works on though he is never heard of and looks for his reward from his Master.

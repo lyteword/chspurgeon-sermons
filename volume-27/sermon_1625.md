@@ -1,12 +1,5 @@
 # Sermon 1625 | Without Christ--Nothing
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 23, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Without Me you can do nothing." John 15:5.
 
 THIS is not the language of a man of ordinary mold. No saint, no Prophet, no Apostle would ever have addressed a company of faithful men and have said to them, "Without me you can do nothing." Had Jesus Christ been, as some say, a good man and nothing more, such language as this would have been unseemly and inconsistent. Among the virtues of a perfect man we must certainly reckon modesty, but this from a mere man would have been shamelessly immodest! It is impossible to conceive that Jesus of Nazareth, had He not been more than man, could ever have uttered the sentence, "Without Me you can do nothing." My Brothers and Sisters, I hear, in this sentence, the voice of that Divine Person without whom was not anything made that was made! The majesty of the words reveals the Godhead of Him that uttered them. The "I Am" comes out in the personal word, "Me," and the claim of all power unveils the Omnipotent!

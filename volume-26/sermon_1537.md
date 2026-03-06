@@ -1,12 +1,5 @@
 # Sermon 1537 | Samuel--an Example of Intercession
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 9, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Moreover as for me, God forbid that I should sin against the Lord in ceasing to pray for you: but I will teach you the good and the right way." 1 Samuel 12:23.
 
 It is a very great privilege to be permitted to pray for our fellow men. Prayer in each man's case must necessarily begin with personal petition, for until the man is, himself, accepted with God, he cannot act as an intercessor for others. And herein lies part of the excellence of intercessory prayer, for it is to the man who exercises it aright a mark of inward Grace and a token for good from the Lord. You may be sure that your King loves you when He will permit you to speak a word to Him on behalf of your friends. When the heart is enlarged in believing supplication for others, all doubts about personal acceptance with God may cease. He who prompts us to love has certainly given us that love and what better proof of His favor do we desire?

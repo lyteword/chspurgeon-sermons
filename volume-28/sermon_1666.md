@@ -1,12 +1,5 @@
 # Sermon 1666 | The First Recorded Words of Jesus
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 25, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when they saw Him, they were amazed; and His mother said unto Him, Son, why have You thus dealt with us? Look, Your father and I have sought You sorrowing. And He said unto them, How is it that you sought Me? Know you not that I must be about My Father's business?" Luke 2:48, 49.
 
 THESE words are very interesting because they are the first recorded utterances of our Divine Lord. No doubt He said much that was very admirable while yet a Child, but the Holy Spirit has not seen fit to record anything except these two questions, as if to teach us that childhood should be retiring and modest--a stage of preparation rather than of observation. We hear little of a Holy Child, for modesty is a precious part of its character. We ought, therefore, to give all the more earnest heed to these words because they stand at the very forefront of our Lord's teaching and are, in some respects, the announcement of His whole life.

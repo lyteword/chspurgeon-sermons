@@ -1,12 +1,5 @@
 # Sermon 1675 | Out Of Egypt
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 20, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When he arose, he took the young Child and His mother by night, and departed into Egypt: and was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the Prophet, saying, Out of Egypt have I called My Son." Matthew 2:14,15.
 
 "When Israel was a Child, then I loved Him, and called My Son out of Egypt." Hosea 11:1.

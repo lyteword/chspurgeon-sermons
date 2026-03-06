@@ -1,12 +1,5 @@
 # Sermon 1562 | Harvest Past, Summer Ended and Men Unsaved
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 17, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The harvest is past, the summer is ended and we are not saved." Jeremiah 8:20.
 
 THIS is a very mournful chapter, especially if we include in it, as we rightly should, the first verse of the ninth chapter: "O that my head were waters." The passage is full of lamentation and woe and yet it is somewhat amazing that the chief mourner is not one who was likely to be in trouble. Jeremiah was under the special protection of God and he escaped in the evil day. Even when Nebuchadnezzar was exercising his utmost rage, Jeremiah was in no danger, for the heart of the fierce monarch was kindly towards him. "Now Nebuchadnezzar, king of Babylon, gave charge concerning Jeremiah to Nebuzar-adan the captain of the guard, saying, take him and look well to him and do him no harm; but do unto him even as he shall say unto you."

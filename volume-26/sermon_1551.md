@@ -1,12 +1,5 @@
 # Sermon 1551 | Today! Today! Today!
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Today if you will hear His voice, harden not your heart." Psalm 95:7,8.
 
 THIS Psalm is a burst of praise. It resounds with the joyful noise of hearty thanksgiving unto Jehovah and yet before it closes you hear the solemn tones of exhortation to men to hearken to the voice of their God. Alas that it should be true, but true it is, that the Canaanite still dwells in the midst of Israel! In every gathering of the faithful there is a mixture of those who know not the ways of God. When Israel came out of Egypt, a mixed multitude came forth with the people of God--that mixed multitude did them great damage and often brought them under great sin and consequent sorrow, but they were always there. And they are always here, too, in the Church and around it, dishonoring us by their evil behavior. Not only in the great congregations, but even in little gatherings of Believers we meet with the unworthy ones. Scarcely are 12 met together without a Judas in the midst of them.

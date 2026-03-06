@@ -1,8 +1,5 @@
 # Sermon 1578 | Taught That We May Teach
 
-
-DELIVERED BY C. H. SPURGEON, AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the Man said to me, Son of man, behold with your eyes, and hear with your ears, and set your heart upon all that I shall show you; for to the intent that I might show them unto you are you brought here: declare all that you see to the house of Israel." Ezekiel 40:4.
 
 WE learn from this text something concerning Ezekiel himself. He was certainly one of the greatest of the Prophets. His visions remind us of those of John, both for their brightness, splendor and number--and yet this eminent Prophet was, nevertheless, styled, "son of man." He is continually called by that name. The title is used over and over again throughout the book of his prophecies--"son of man" to remind him that even the Seer, the Prophet, the Inspired, the man who was indulged with vision upon vision--was still only a man. The best of men are men at the best! Those eyes that are strengthened to behold the cherubim and to gaze upon the stupendous wheels of Providence are still only the eyes of a son of man!

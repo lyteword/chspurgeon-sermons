@@ -1,12 +1,5 @@
 # Sermon 1621 | The Ark of the Covenant
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 25, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And it shall come to pass, when you are multiplied and increased in the land, in those days, says the Lord, they shall say no more, The ark of the co venant of the Lord: neither shall it come to mind: neither shall they remember it; neither shall they visit it; neither shall that be done any more." Jeremiah 3:16.
 
 THIS text speaks concerning the material ark. I should like to append to that another which speaks of the ark spiritually and tells us where its antitype is to be found--

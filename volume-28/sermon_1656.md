@@ -1,12 +1,5 @@
 # Sermon 1656 | My Solace in My Affliction
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Forever, O Lord, Your Word is settled in Heaven. Your faithfulness is unto all generations: You have established the earth and it abides. They continue this day according to Your ordinances: for all are Your servants. Unless Your Law had been my delights, I should then ha ve perished in my affliction." Psalm119:89-92.
 
 EVEN in those Psalms which are not associated with any particular chapter of history, we can often trace out the trail of the writer's experience and track his soul through its wanderings. His reflections become vivid with intense reality. The meditation now before us is evidently prompted by some event deeply carved on the writer's memory. "Unless Your Law had been my delights, I should then have perished in my affliction." We know nothing of the time or circumstance when the heart was terrified, when the nerves were shaken, when the weakness of nature asserted itself--the veil is wisely drawn over the sharp pains or sullen griefs that bowed the sufferer down and we are simply solaced with a song celebrating his deliverance out of all his troubles and fears. Possibly his affliction was long, but certainly it reached a crisis so perilous that his life then trembled in the balance! He was then ripe for destruction, ready to have perished.

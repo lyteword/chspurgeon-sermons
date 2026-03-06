@@ -1,12 +1,5 @@
 # Sermon 1597 | The Priest Ordained by the Oath of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 1, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And inasmuch as not without an oath He was made Priest, (for those priests were made without an oath; but this with an oath by Him that said unto Him, The Lord swore and will not repent, You are a Priest forever after the order of Melchisedec), by so much more was Jesus made a surety of a better Testament." Hebrews 7:20-22.
 
 THOSE Of you who read Scripture carefully will have noticed that the word, "better," is one of the key words of the Epistle to the Hebrews. You are constantly meeting with it. In the opening chapter we read that our Lord Jesus Christ is "made so much better than the angels, as He has by inheritance obtained a more excellent name than they." Look a little further and you are taught that He is better than Moses, inasmuch as Moses was faithful as a servant in the Lord's house, but Christ, as a Son over His own house. Further on we find our blessed Lord described as better than Aaron, while His blood is mentioned as speaking better things than that of Abel. And He is declared, in our text, to be the Surety of a better Testament, of which it is said that it is established upon better promises.

@@ -1,12 +1,5 @@
 # Sermon 1520 | Pressing Questions of an Awakened Mind
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who are You, Lord?...What will You have me to do?" Acts 9:5, 6.
 
 PAUL fell to the ground overcome by the brightness of the light which outshone the midday sun and as he lay there he cried, "Who are You, Lord?" After receiving an answer to his first question, he humbly asked another, "Lord, what will You have me to do?" This morning I spent all my strength and I scarcely have any remaining for this evening, but the subject was well worthy of the greatest exhaustion. I tried to show that we must receive the kingdom of Heaven as little children, or else we could not in any way enter into it. I wanted, if I could, to add a sort of practical tailpiece to that subject, something that would enable me, yet more fully, to explain the childlike spirit which comes at conversion and which is absolutely necessary as one of the first marks and consequences of the work of the Spirit of God upon the heart. I cannot find a better illustration of the childlike spirit than this which is now before us.

@@ -1,12 +1,5 @@
 # Sermon 1521 | A Plain Answer to an Important Enquiry
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus answered and said unto them, This is the work of God, that you believe on Him whom He has sent." John 6:29.
 
 NOTICE the connection or you will miss the meaning of the words, for, at first sight it looks as if our Savior taught us that it is the work of God for us to believe on Him. Now, that would be quite true and it is very plainly taught in other parts of Scripture that faith is the work of God, but that is not the teaching in this particular instance, as will be very plain if you look at the context. First, our Savior said to the people, "See how you labor after the bread of your bodies. You have been running all round the coast to find Me in order that I might feed you again with loaves and fishes. Now," He says, "let your labor run after something better. Labor not for the meat that perishes, but for that which endures to life eternal."

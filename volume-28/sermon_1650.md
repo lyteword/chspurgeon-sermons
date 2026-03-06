@@ -1,12 +1,5 @@
 # Sermon 1650 | God's Fatherly Pity
 
-
-DELIVERED ON THURSDAY EVENING, MARCH 2, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As a father pities his children, so the Lord pities them that fear Him." Psalm 103:13.
 
 IN the former part of this Psalm, the Psalmist sang of God's deeds of love, His gifts, His benefits and His acts of kindness. But here he goes deeper into the Divine motive and, therefore, he finds sweeter incentives to devout gratitude. There is a fullness of consolation in the fact that the heart of God is towards His people. He not only dispenses blessings--so does the sun, so do the clouds, so do the fruitful fields--but He takes a warm interest in our welfare and has a feeling towards us of kindly, gentle affection. And that of such intensity that one of the highest forms of earthly love is here used as a figure to set forth the tender mercy of our God towards us. I have always been taught as an axiom in theology that God has no griefs--that He is "without parts or passions"--I think was the definition. But I have often inwardly objected to such statements. They seemed to me so inconsistent with the tone and tenor of Scripture, for He appears to take pleasure in His people and to be "grieved" with their ill manners.

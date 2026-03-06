@@ -1,12 +1,5 @@
 # Sermon 1558 | Rare Fruit
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I create the fruit of the lips: Peace, peace." Isaiah 57:19.
 
 "THE fruit of the lips"! The lips are neither trees of the orchard nor herbs of the garden. What fruit can they bear? The scattering of Babel came of human speech when languages were multiplied and the united race split up into fragments. Wars and fighting and hatred and bloodshed have sprung of talk and bluster--these are deadly fruits, the very mention of which brings pain to the heart--surely it is in vain to look for much that is worth gathering from mouths and tongues! Great talkers are proverbially little doers and the more talk, the less work. We may come for years looking for fruit on this fig tree and find none. "Nothing but leaves" will be gathered by those who look to the lips for a harvest to fill the barn. This is most true. It you let the lips alone, they produce mischief and trouble and not much else.

@@ -1,12 +1,5 @@
 # Sermon 1519 | At School
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Teach me to do Your will; for You are my God." Psalm 143:10.
 
 THIS is a prayer about doing, but it is perfectly free from legal taint. The man who offered it had no idea of being saved by his doings, for in the second verse of the Psalm he had said, "Enter not into judgment with Your servant: for in Your sight shall no man living be justified." This is not the prayer of a sinner seeking salvation, for salvation is not by doing the will of God but by believing in Christ. It is the prayer of the man who is already saved and who, being saved, devotes himself to the service of God and wishes to be taught in the fear of the Lord. "Teach me to do Your will, O God." The connection leads us to make the remark that David looked upon the doing of God's will as his best escape from his enemies.

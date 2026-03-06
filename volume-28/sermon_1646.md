@@ -1,12 +1,5 @@
 # Sermon 1646 | A Home Question and a Right Answer
 
-
-DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "From that time many of His disciples went back and walkedno more with Him. Then said Jesus unto the twelve, Will you, also, go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life. And we believe and are sure that You are the Christ, the Son of the living God." John 6:66-69.
 
 BROTHERS AND SISTERS, we believe that the righteous shall hold on his way and he that has clean hands shall wax stronger and stronger. We also believe that he that believes in Christ "has everlasting life" and, consequently, must live forever. The living water which Christ gives a man shall be in him a well of water springing up unto everlasting life. Our Lord has said of His sheep that they shall never perish, neither shall any pluck them out of His hands. Yet we know that if any man draws back, the Lord will have no pleasure in him, and we are sure that, "without holiness no man shall see the Lord." Therefore we very heartily sing the verse in one of our hymns--

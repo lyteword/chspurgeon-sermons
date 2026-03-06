@@ -1,6 +1,5 @@
 # Sermon 1627 | Baptism--A Burial
 
-
 Know ye not, that so many of us as were baptized into Jesus Christ were baptized into his death? Therefore we are buried with him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life.''Romans 6:3-4.
 
 I SHALL not enter into controversy over this text, although over it some have raised the question of infant baptism or believers' baptism, immersion or sprinkling. If any person can give a consistent and instructive interpretation of the text, otherwise than by assuming believers' immersion to be Christian baptism, I should like to see them do it. I myself am quite incapable of performing such a feat, or even of imagining how it can be done. I am content to take the view that baptism signifies the burial of believers in water in the name of the Lord, and I shall so interpret the text. If any think not so, it may at least interest them to know what we understand to be the meaning of the baptismal rite, and I trust that they may think none the less of the spiritual sense because they differ as to the external sign. After all, the visible emblem is not the most prominent matter in the text. May God the Holy Spirit help us to reach its inner teaching.

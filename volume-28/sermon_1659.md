@@ -1,12 +1,5 @@
 # Sermon 1659 | A Feast for the Upright
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 14, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the Lord God is a sun and shield: the Lord will give Grace and Glory: no good thing will He withhold from those who walk uprightly. O Lord of Hosts, blessed is the man that trusts in You!" Psalm 84:11,12.
 
 IN this sweet Sabbatic Psalm the writer rejoices in the House of God. He evidently loves the place of godly assembly, the place where prayer and praise were offered by the united tribes of his people. But, Brothers and Sisters, there was no superstition in this love. He loved the House of God because he loved the God of the house! His heart and flesh cried out, not for the altar and the candlestick, but for his God. True, his soul fainted for the courts of the Lord, but the reason was that he cried out for the living God, saying, "When shall I come and appear before God?" Brethren, it is well to take an interest in the place where you gather for worship. I am always glad when Brothers and Sisters are moved to contribute towards the necessary maintenance of the building and the provision for its cleanliness and propriety. I hate that God should be served in a slovenly way. Even the place where we meet to worship should show some sign of reverence for His name.

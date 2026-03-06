@@ -1,10 +1,5 @@
 # Sermon 1606 | Ziklag--or David Encouraging Himself In God
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 26, 1881,
-
-BY C. H. SPURGEON, AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And David was greatly distressed; for the people spoke of stoning him because the soul of all the people was grieved, every man for his sons and for his daughters. But Da vid encouraged himself in the Lord his God."
 
 "And David enquired of the Lord, saying, Shall I pursue after this troop? Shall I overtake them? And He answered him, Pursue, for you shall surely overtake them and without fail recover all."

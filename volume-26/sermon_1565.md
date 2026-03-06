@@ -1,12 +1,5 @@
 # Sermon 1565 | Maschil Of Ethan, A Majestic Song
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will sing of the mercies of the Lord forever: with my mouth will I make known Your faithfulness to all generations. ForIhave said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens." Psalm 89:1,2.
 
 THIS Psalm is one of the very choicest songs in the night. Midst a stream of troubled thoughts there stands a fair island of rescue and redemption which supplies standing room for wonder and worship while the music of the words, like the murmuring of a river, sounds sweetly in our ears! Read the Psalm carefully and it will awaken your sympathy, for he who wrote it was bearing bitter reproach and was almost broken-hearted by the grievous calamities of his nation. Yet his faith was strong in the faithfulness of God and so he sang of the stability of the Divine Covenant when the outlook of circumstances was dark and cheerless. Nor did he ever sing more sweetly than he sang in that night of his sorrow. Greatly does it glorify God for us to sing His high praises in storms of adversity and on beds of affliction. It magnifies His mercy if we can bless and adore Him when He takes, as well as when He gives.

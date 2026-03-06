@@ -1,12 +1,5 @@
 # Sermon 1588 | The Believer's Death Day Better Than His Birthday
 
-
-DELIVERED ON THURSDAY EVENING, MARCH 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A good name is better than precious ointment; and the day of death than the day of one's birth." Ecclesiastes 7:1.
 
 IN this part of the world, we can hardly understand how much the Easterns thought of perfumes. When Solomon speaks of "precious ointment," he speaks of a luxury highly appreciated by those who heard him. Orientals delighted to anoint themselves with fragrant oil and to pour upon their heads salves full of perfume. We do not--at any rate, not to the same lavish extent. But among the luxuries of eastern life was that of delighting the nostrils with sweet smells. The figure is easy to understand as it is here used to set forth the excellence of a good name. A man who is perfumed and who has put upon his head precious ointment is sweet and pleasant to himself. It gives him joy and so does a good name afford pleasure to its possessor. Besides that, the perfumed person was agreeable to other people--those who were round about him were refreshed by the fragrance--and so a noble character is agreeable to all who come near it.

@@ -1,12 +1,5 @@
 # Sermon 1639 | Acceptable Service
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 15, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore, since we are receiving a kingdom which cannot be moved, let us have Grace, by which we may serve God acceptably with reverence and godly fear. For our God is a consuming fire." Hebrews 12:28,29.
 
 As a congregation you have of late been diligently engaged in the service of God by endeavoring to provide a home for fatherless children. I have been astonished and delighted at the liberality which has been shown by all sorts of persons in this good and gracious work. I felt, sometimes, like the king of old, who said, "Who am I, and what is my people, that we should be able to offer so willingly after this sort?" I am sure you have well earned all the commendation that your fellow Christians can give to you, for the work has been so well and so heartily done that we all rejoice together! But, now that it is all over, careful thoughts arise in my mind. It is but a small thing that you and I should be accepted of one another--the great matter is that we should be accepted of the Lord. I, who am but as the doorkeeper of my Master's house, not only approve, but abundantly commend my fellow servants, but what of that? The great point is that the King, Himself, should say, "Well done, good and faithful servant."

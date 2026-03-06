@@ -1,12 +1,5 @@
 # Sermon 1581 | Silver Sockets--Redemption the Foundation!
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 30, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the Lord spoke unto Moses, saying, When you take the sum of the children of Israel after their number, then shall they give every man a ransom for his soul unto the Lord, when you number them; that there be no plague among them, when you number them. This they shall give, everyone that passes among them that are numbered, half a shekel after the shekel of the sanctuary: (a shekel is twenty gerahs): an half shekel shall be the offering of the Lord. Everyone that passes among them that are numbered, from twenty years old and above, shall give an offering unto the Lord. The rich shall not give more, and the poor shall not give less than half a shekel, when they give an offering unto the Lord, to make an atonement for their souls. And you shall take the atonement money of the children of Israel, and shall appoint it for the service of the Tabernacle of the congregation; that it may be a memorial unto the children of Israel before the Lord, to make an atonement for their souls." Exodus 30:11-16.
 
 "A bekah for every man, that is, half a shekel, after the shekel of the sanctuary, for that went to be numbered, from twenty years old and upward, for six hundred and three thousand and five hundred and fifty men. And of the hundred talents of silver were cast the sockets of the sanctuary, and the sockets of the veil; an hundred sockets ofthe hundred talents, a talent for a socket."

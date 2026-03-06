@@ -1,12 +1,5 @@
 # Sermon 1603 | What the Farm Laborers Can Do and What They Cannot Do
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 12, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said, The kingdom of God is as if a man should cast seed into the ground and should sleep and rise night and day and the seed should spring and grow up, he kno ws not how. For the earth brings forth fruit of herself; first the blade, then the ear, after that the full corn in the ear. But when the fruit is brought forth, immediately he puts in the sickle, because the harvest is come." Mark 4:26-29.
 
 LAST Lord's-Day morning our subject was the laborers upon God's farm and their great Master. And then we tried to show how far human agency was necessary in the work of the Gospel. We also saw how thoroughly all holy results depend upon God, for neither he that sows nor he that waters is anything, but God who gives the increase. We have much the same subject this morning, only it goes a little deeper and yet more fully shows how far the laborer can go and how far he cannot go--where man may enter with holy industry--and where no human work can possibly intrude. Our subject on this occasion will mainly be the measure and limit of human instrumentality in the Kingdom of Grace. If we shall be taught of the Spirit of God, we shall find this Scripture to be full of instruction upon the matter.

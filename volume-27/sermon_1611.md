@@ -1,12 +1,5 @@
 # Sermon 1611 | The Word of the Cross
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 31, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the preaching of the Cross is to them that perish foolishness; but unto us which are sa ved it is the power of God." 1 Corinthians 1:18.
 
 NOTE well that in the 17th verse Paul had renounced the "wisdom of words." He says that he was sent to "preach the Gospel, not with wisdom of words, lest the Cross of Christ should be made of no effect." It is very clear, therefore, that there is an excellence, elegance and eloquence of language which would deprive the Gospel of its due effect. I have never yet heard that the Cross of Christ was made of no effect by great plainness of speech, nor even by ruggedness of language--but it is the, "wisdom of words," which is said to have this destroying power. Oh, dreadful wisdom of words! God grant that we may be delivered from making attempts at it, for we ought earnestly to shun anything and everything which can be so mischievous in its influence as to make the Cross of Christ of no effect. The "wisdom of words" works evil at times by veiling the Truths of God which ought to be set forth in the clearest possible manner.

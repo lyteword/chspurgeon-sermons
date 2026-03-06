@@ -1,12 +1,5 @@
 # Sermon 1574 | I Was Before
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who was before a blasphemer and a persecutor and injurious." 1 Timothy 1:13.
 
 I AM not going to dwell, at this time, upon the special items of the text as to what Paul was before his conversion because none of us have been exactly as he was. We have all gone astray like lost sheep, but each one of us has taken a distinct course from all the rest. You might have to describe your transgressions in very different words from those used by the Apostle because yours have been a different form of guilt from his. Paul said of himself that he, "was before a blasphemer and a persecutor and injurious." Saul of Tarsus was a blasphemer. He does not say that he was an unbeliever and an objector, but he uses a very strong word, though not too strong, and says that he was a blasphemer.

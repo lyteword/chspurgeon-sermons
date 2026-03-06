@@ -1,12 +1,5 @@
 # Sermon 1682 | Ask and Have
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 1, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You lust, and have not: you kill, and desire to have, and cannot obtain: you fight and war, yet you have not, because you ask not. You ask, and receive not, because you ask amiss, that you may consume it upon your lusts." James 4:2,3.
 
 MAY these striking words be made profitable to us by the teaching of the Holy Spirit. Man is a creature abounding in needs and ever restless and, therefore, his heart is full of desires. I can hardly imagine a man existing who has not many desires of some kind or another. Man is comparable to the sea anemone with its multitude of tentacles which are always hunting in the water for food; or like certain plants which send out tendrils, seeking after the means of climbing. The poet says, "Man never is, but always wishes to be, blest." He steers for which he thinks to be his port, but, as yet, he is tossed about on the waves. One of these days he hopes to find his heart's delight and he continues to desire with more, or less, expectancy.

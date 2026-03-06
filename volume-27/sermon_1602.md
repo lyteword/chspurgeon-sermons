@@ -1,12 +1,5 @@
 # Sermon 1602 | Farm Laborers
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 5, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have planted, Apollos watered, but God gave the increase. So then neither he who plants is anything, neither he who waters, but God that gives the increase. Now he whoplants andhe who waters are one: and every man shallreceive his own reward according to his own labor. For we are laborers together with God: you are God's husbandry." 1 Corinthians 3:6-9.
 
 IN all ages since the Fall there has been a tendency in the human heart to forget God and get away from Him. Idolatry has been the sin of all nations, including God's favored people, the Jews, and including certain persons who call themselves Christians who still make idols out of crosses and images. This vicious principle of ignoring God and setting up something between our minds and our Creator crops up everywhere and in every department of thought. When men study the works of God in Nature, they often hang up a veil to hide the great Worker. Because God acts in a certain way they call His method of action a Law and straightway they speak of these Laws as if they were forces and powers in and of themselves and thus God is banished out of His own universe and His place is taken up in the scientific world by idols called, "natural laws."

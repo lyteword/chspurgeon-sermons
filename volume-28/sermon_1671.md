@@ -1,12 +1,5 @@
 # Sermon 1671 | The Value and Rank of the Believer
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Since you were precious in My sight, you have been honorable, and I have loved you: therefore will I give men for you, and people for your life." Isaiah 43:4.
 
 ONE of the worst mistakes we could make would be to judge our condition before God by our outward circumstances. Know you not that the ungodly have their portion in this life? They increase in riches; their eyes stand out with fatness; they have more than heart can wish. They are not in trouble like other men, "neither are they plagued like other men," therefore pride compasses them about as a chain; violence covers them as a garment. Poor creatures, they have no joy in the world to come and, therefore, God permits them to have as much joy as they are capable of in this world. They stand upon slippery slopes and fiery billows rage below! How are they cast down as in a moment! They are utterly consumed with terrors!

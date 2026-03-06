@@ -1,12 +1,5 @@
 # Sermon 1661 | Praying and Pleading
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O Lord, though our iniquities testify against us, do it for Your name's sake; for our backslidings are many. We have sinned against You. O the Hope of Israel, his Savior in time of trouble, why should You be as a stranger in the land, and as a wayfaring man that turns aside to tarry for a night? Why should You be as a man astonished, as a mighty man that cannot save? Yet You, O Lord, are in the midst of us, and we are called by Your name. Do not leave us!" Jeremiah 14:7,8,9.
 
 THIS passionate appeal for mercy was forced from the people by extreme misery. There was a famine in the land until men fell in the streets of the city exhausted with hunger. Drought had long prevailed and lack of water was terribly felt. Meanwhile, invasion kept them in perpetual fear, so that the Prophet lamented, "If I go forth into the field, then, behold, the slain with the sword! And if I enter into the city, then, behold, them that are sick with famine!" Such judgment had God inflicted on a guilty nation for her sin. No springs were bubbling up from the earth and no rain dropped down from Heaven. This dire privation had produced universal distress. "Judah mourns, and the gates thereof languish; they are black unto the ground; and the cry of Jerusalem is gone up."

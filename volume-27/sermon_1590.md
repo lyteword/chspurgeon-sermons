@@ -1,12 +1,5 @@
 # Sermon 1590 | The Barrier
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 27, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there shall in nowise enter into it anything that defiles, neither whatever works abomination, or makes a lie: but they which are written in the Lamb's Book of Life." Revelation 21:27.
 
 THE text refers to the glorified Church of our Lord Jesus Christ. That perfected company of the elect and sanctified is set forth in this wonderful chapter under the image of a city descending "from God out of Heaven, prepared as a bride adorned for her husband." Her workday dress all laid aside, the bride appears in garments of needlework and raiment of worked gold. The militant Church, the Church of the present day, is comparable to a tent and is well imaged by the Tabernacle in the wilderness--it is lit up within by the Glory of God's Presence and covered without by the fiery cloudy pillar of His eternal Providence! But to the eyes of men it is mean and inconsiderable, for verily it does not yet appear what it shall be. By-and-by this same Church which, today, is likened unto a structure of curtains readily removed from place to place, shall become a city--fixed, permanent, high-walled and compact--a "city which has foundations, whose Builder and Maker is God."

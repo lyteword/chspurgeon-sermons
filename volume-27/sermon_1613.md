@@ -1,12 +1,5 @@
 # Sermon 1613 | Shut In Or Shut Out
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 14, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord shut him in." Genesis 7:16.
 
 NOAH was a very different man from the rest of those who lived in his time, for the Grace of God had set a division between him and them. They forgot God and Noah feared Him. They lived for things seen and temporal and he lived in sight of the invisible. When he was building the ark, he was in a miserable minority, as men count heads. And, even after 120 years of ministry, when his ark was built and his family entered it, they were eight against many millions--an insignificant few, as men would say--a pitiful sect among mankind. Who could imagine that the eight would be right and all the millions wrong? Where God is, there is the majority!

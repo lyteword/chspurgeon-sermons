@@ -1,12 +1,5 @@
 # Sermon 1526 | The Fair Portrait of a Saint
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 7, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My foot has held fast to His steps, His way have I kept and not declined. Neither have I gone back from the commandment of His lips; I have esteemed the words of His mouth more than my necessary food." Job 23:11,12.
 
 THUS Job speaks of himself, not by way of boasting, but by way of vindication. Eliphaz the Temanite and his two companions had brought distinct charges against Job's character. Because they saw him in such utter misery they concluded that his adversity must have been sent as a punishment for his sin and, therefore, they judged him to be a hypocrite who, under cover of religion, had exercised oppression and tyranny. Zophar had hinted that wickedness was sweet in Job's mouth and that he hid iniquity under his tongue. Eliphaz charged him with hardness of heart to the poor and dared to say, "You have taken a pledge from your brother for nothing and stripped the naked of their clothing." This last, from its very impossibility, was meant to show the extreme meanness to which he falsely imagined that Job must have descended--how could he strip the naked?. He was evidently firing at random.

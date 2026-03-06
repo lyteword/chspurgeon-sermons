@@ -1,12 +1,5 @@
 # Sermon 1583 | Choice Food for Pilgrims to Canaan
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said, My Presence will go with you, and I will give you rest." Exodus 33:14.
 
 MAY the inexpressibly precious promises of our text be fulfilled to every one of you throughout the whole of your lives. What could heart desire, or mind conceive beyond the heaped-up blessedness of my text? God's Presence and God's rest--a ring of finest gold set with the choicest pearl! The benedictions are worthy of God, Himself, and such as only His boundless love could have uttered. Think them over and use them as food for your souls--with them you may well be content even if the preacher's lips should be shut up as a spring, a sealed fountain! You do not need any sermon--only let the Holy Spirit speak these words with power as coming directly from the great Father's lips to you and your inmost soul will be satisfied as with marrow and fatness!--

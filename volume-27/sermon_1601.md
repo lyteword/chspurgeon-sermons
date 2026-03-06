@@ -1,12 +1,5 @@
 # Sermon 1601 | The Judgment Seat Of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 29, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But why do you judge your brother? Or why do you set at nothing your brother? For we shall all stand before the Judgment Seat of Christ. For it is written, As I live, says the Lord, every knee shall bow to Me, and every tongue shall confess to God. So then every one of us shall give account of himself to God." Romans 14:10-12.
 
 NO doubt there is an error in our version, for where in the 10th verse we read, "The Judgment Seat of Christ," it should be, "The Judgment Seat of God." I suppose the word, "Christ," slipped into certain manuscripts because Paul had been speaking of Christ and it was thought to be natural that he should continue to use the same name. Paul did not say "Christ," but, "God"--but by that word he meant the same Person. Paul knew that Christ is God and when he was speaking of Christ it was no deviation from the subject for him to speak concerning Him under the title of "God." It was necessary, here, for him to use the word, "God," though, because he was about to quote from the Old Testament Scriptures a passage which speaks concerning the Sovereignty of God which is to be acknowledged and confessed by all mankind.

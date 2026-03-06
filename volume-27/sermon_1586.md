@@ -1,12 +1,5 @@
 # Sermon 1586 | Holy Longings
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My soul breaks with longing for Your Judgments at all times." Psalm 119:20.
 
 ONE of the best tests of a man's character will be found in his deepest and heartiest longings. You cannot always judge a man by what he is doing at any one time, for he may be under constraints which compel him to act contrary to his true self, or he may be under an impulse from which he will soon be free. He may, for a while, back off from that which is evil and yet he may be radically bad. Or he may be constrained by force of temptation to that which is wrong, yet his real self may rejoice in righteousness. A man may not be pronounced to be good because, for the moment, what he is doing may be condemned as evil because, under certain constraints, he may be committing sin. A man's longings are more inward and more near to his real self than his outward acts--they are more natural, in that they are entirely free and beyond compulsion or restraint.

@@ -1,12 +1,5 @@
 # Sermon 1687 | The Law Written in the Heart
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 29, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
-
 After those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts."
 
 Jeremiah 31:33.

@@ -1,12 +1,5 @@
 # Sermon 1580 | An Indictment with Four Counts
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "She obeyed not His voice; she received not correction; she trusted not in the Lord; she drew not near to her God." Zephaniah 3:2.
 
 HERE ARE FOUR heavy counts of a terrible indictment against Jerusalem and the Jewish people. Is it not sad to reflect that Jerusalem was the city of the great king and yet fell from its high estate? It was the place of the great Temple--there the light of God shone forth while other nations were in darkness--there the solemn worship of God was celebrated while false gods were being adored elsewhere! And yet its sin provoked the Lord till He gave it up to the Destroyer. It is clear, therefore, that no degree of Light and no amount of privilege can keep a people alive and right before God. If the heart is not changed, if the Grace of God goes not with outward ordinances, those who are exalted to Heaven may yet be cast down to Hell.

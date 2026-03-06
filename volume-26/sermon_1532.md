@@ -1,6 +1,5 @@
 # Sermon 1532 | The Holy Spirit's Intercession
 
-
 Likewise the Spirit also helpeth our infirmities: for we know not what we should what pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according the to will of God.'Romans 8:26,27.
 
 THE APOSTLE PAUL was writing to a tried and afflicted people, and one of his objects was to remind them of the rivers of comfort which were flowing near at hand. He first of all stirred up their pure minds by way of remembrance as to their sonship,'for saith he as many as are led by the Spirit of God, they are the sons of God.' They were, therefore, encouraged to take part and lot with Christ, the elder brother, with whom they had become joint heirs; and they were exhorted to suffer with him, that they might afterwards be glorified with him. All that they endured came from a Father's hand, and this should comfort them. A thousand sources of joy are opened in that one blessing of adoption. Blessed be the God and Father of our Lord Jesus Christ, by whom we have been begotten into the family of grace.

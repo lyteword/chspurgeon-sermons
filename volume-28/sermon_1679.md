@@ -1,12 +1,5 @@
 # Sermon 1679 | One War Over and Another Begun
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 17, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when Gideon perceived that He was the Angel of the Lord, Gideon said, Alas, O Lord God! For I have seen the Angel of the Lord face to face. And the Lord said unto him, Peace be unto you; fear not: you shall not die. Then Gideon built an altar there unto the Lord, and called it Jehovah-Shalom." Judges 6:22-24.
 
 These Midianites were wandering Bedouins from Arabia and the East country round about the Holy Land. They were masters of the art of plundering and knew no hearts of compassion. They generally lived a hard life, themselves, and when they had an opportunity to feast on the spoils of others, they rioted without stint and left a famine behind them. Most fitly does the Scripture compare them to grasshoppers, for both in number and in destructive force they were like those terrible devourers. God had brought them upon Israel to scourge that nation because it had been so foolish and so ungrateful as to set up the gods of the heathen and to forget the one mighty God who was so especially and graciously their Patron and Defender. They were impoverished and ground down to the very last degree by these plunderers who left no food either for men or cattle.

@@ -1,12 +1,5 @@
 # Sermon 1663 | The True Gospel Is No Hidden Gospel
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 4, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But if our Gospelis hid, itis hid to them that are lost: in whom the god of this world has blinded the minds of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine on them." 2 Corinthians 4:3,4.
 
 I THINK in this case the Revised New Testament gives a better translation than does the Authorized Version and I will, therefore, read it, "But even if our Gospel is veiled, it is veiled in them that are perishing, in whom the god of this world has blinded the minds of the unbelieving, that the light of the Gospel of the Glory of Christ, who is the image of God, should not dawn upon them." Paul had been speaking of Moses with the veil over his face and we lose the track of his thought if we use the word, "hid," instead of, "veiled." Our Gospel wears no veil, but exhibits all the Glory of its countenance to the sons of men. Oh that they may be able to steadfastly behold it and see in it their own salvation and the Glory of the Lord!

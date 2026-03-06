@@ -1,12 +1,5 @@
 # Sermon 1683 | The Great Cross-bearer and His Followers
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 8, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when they had mocked Him, they took off the purple from Him, and put His own clothes on Him, and led Him out to crucify Him." Mark 15:20.
 
 "And He, bearing His Cross, went forth." John 19:17.

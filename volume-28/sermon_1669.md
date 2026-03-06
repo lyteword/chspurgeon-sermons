@@ -1,12 +1,5 @@
 # Sermon 1669 | Teaching for the Outer and Inner Circles
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 16, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And with many such parables spoke He the Word unto them, as they were able to hearit. But without a parable He did not speak to them: and when they were alone, He explained all things to His disciples." Mark 4:33,34.
 
 OUR blessed Lord had two great objectives before Him in His ministry. The first was to preach the Word to the outlying masses, that out of them He might gather a people to Himself who should be His disciples. This part of His work He carried on with great diligence and perseverance, traversing the Holy Land from end to end and finding here, one, and there, another, but never ceasing to preach the Gospel to the crowds that flocked to Him. His second objective was to train those who became His disciples, that having gathered them to Himself, He might educate them in the Truth of God. He taught them concerning the Father and His love. He taught them concerning Himself, His work, His death and His Resurrection. And He taught them concerning the Divine Comforter and His indwelling and all else that would make for their progress and profit.

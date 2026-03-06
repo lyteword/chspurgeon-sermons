@@ -1,12 +1,5 @@
 # Sermon 1539 | "The Disciple Whom Jesus Loved"
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 23, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The disciple whom Jesus loved; who also leaned on His breast at supper." John 21:20.
 
 Our Lord loved all His disciples--"having loved His own which were in the world, He loved them unto the end." He said to all the Apostles, "I call you not servants; for the servant knows not what his Lord does: but I have called you Friends; for all things that I have heard of My Father I have made known unto you." And yet within that circle of love there was an innermost place in which the beloved John was favored to dwell. Upon the mountain of the Savior's love there was a knoll a little higher than the rest of the mountain and there John was made to stand, nearest to his Lord. Let us not, because John was specially loved, think less, even in the slightest degree, of the love which Jesus Christ gave forth to the rest of His chosen. I take it, Brothers and Sisters, that those who display an extraordinary love to one are all the more capable of great affection to many and, therefore, because Jesus loved John most, I have an enhanced estimate of His love to the other disciples.

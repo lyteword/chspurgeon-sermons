@@ -1,12 +1,5 @@
 # Sermon 1527 | Perfect Sanctification
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By that will we have been sanctified through the offering of the body of Jesus Christ once for all." Hebrews 10:10.
 
 DEAR Friends, ever since the Lord has quickened us by His Grace we have begun to look into ourselves and to search our hearts to see our condition before God. Hence many things which once caused us no disquietude now create in us great anxiety. We thought that we were all right and felt it to be enough to be quite as good as others. We dreamed that if we were not quite as good as we should be, we would certainly grow better, though we did not stop to inquire how or why. We took stock of our condition and concluded that we were rich and increased with goods and had need of nothing. A change has come over the spirit of the scene--the Grace of God has made us thoughtful and careful. We dare not take things for granted. We test and prove things, for we are very anxious not to be deceived. We look upon eternal realities as being of the utmost consequence and we dare not take them for granted as being certain to be right.

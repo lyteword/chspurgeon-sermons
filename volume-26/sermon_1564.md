@@ -1,12 +1,5 @@
 # Sermon 1564 | Desires Towards God--a Sermon For The Weak
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 24, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Lord, all my desire is before You; and my groaning is not hid from You." Psalm 38:9.
 
 IT is our earnest desire that all who are in Christ may be strong in the Lord and in the power of His might. I would earnestly wish to see such spiritual life among us that every man had reached the very height of holy manhood and was in possession of the utmost possible degree of spiritual vigor. It is a great calamity when there is a very large proportion of sick folks in any Christian community, for these must draw off the care and strength of the Church from aggressive movements. How favored would we be if it could be said of us as of Israel when they came out of Egypt, "There was not one feeble person in all their tribes." Oh that the day would come when the Word of God shall be fulfilled which says--"He that is feeble among them shall be as David; and the house of David shall be as God, as the Angel of the Lord before them."

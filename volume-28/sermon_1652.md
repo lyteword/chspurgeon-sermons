@@ -1,12 +1,5 @@
 # Sermon 1652 | The Singing Pilgrim
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your statutes have been my songs in the house of my pilgrimage." Psalm 119:54.
 
 THE 119th Psalm is said, by many, to consist of detached sentences and to be rather a casket of gold rings than a chain of united golden links, yet the position of this verse is somewhat remarkable, for the verse before it runs thus-- "Horror has taken hold upon me because of the wicked that forsake Your Law." Most of you know for yourselves what that sentence means, for if you hear a man swear in the streets, your blood runs chill with horror. And when you think of what has been said by blasphemers against the Person of our Divine Lord and against the Divine Truths of Revelation, you are horrified that men should have had the audacity to think--much less to say--such wicked things against the Most High God.

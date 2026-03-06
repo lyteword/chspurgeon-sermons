@@ -1,12 +1,5 @@
 # Sermon 1604 | Heart Disease Curable
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 19, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He has sent Me to bind up the brokenhearted." Isaiah 61:1.
 
 THIS text receives great luster from the fact that it was one of the passages which the Savior read when He entered into the synagogue at Nazareth and preached on the Sabbath. It is as fresh as ever and we may still say of it, "This day is this Scripture fulfilled in your ears." It is no small privilege that we poor under-shepherds should be permitted to take the same text as "that great Shepherd of the sheep." Our care must be to point to Him in it. I intended to have preached from these words in Luke 4:18, but when I looked at the Revised Version and found that the words were not there at all I was somewhat startled. I began to ask whether the emission was a correct one or not and, without making pretense to scholarship, I feel convinced that the revisers are acting honestly in leaving it out.

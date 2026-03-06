@@ -1,12 +1,5 @@
 # Sermon 1638 | Men Without Heart, Sight, or Hearing
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 8, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 Yet the Lord has not given you a heart to perceive and eyes to see and ears to hear, to this day."
 
 Deuteronomy 29:4.

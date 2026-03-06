@@ -1,12 +1,5 @@
 # Sermon 1657 | My Hourly Prayer
 
-
-DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 26, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hold You me up, and I shall be safe: and I will have respect unto Your statutes continually." Psalm 119:117.
 
 "HOLD You me up." This is no novelty as a prayer. We have met with it many a time. Another form of it lies hard by. Look at the verse immediately before the text and see it, there, in another shape. "Uphold me." I know of no difference in the two prayers, "Uphold me" and, "Hold me up." They are two notes from the same bell and they teach us that the Psalmist's mind was full of the petition, for he was conscious of his need of this upholding--this holding up. We use not vain repetitions as the heathen do and, therefore, when we have to express the same idea, it is natural to the living child of God to couch it in as fresh words as he can--and though it is the same note, yet he changes it, somewhat, and first cries, "Uphold me"--and then, "Hold me up."

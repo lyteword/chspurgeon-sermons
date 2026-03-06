@@ -1,12 +1,5 @@
 # Sermon 1531 | On Whose Side Are You?
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then Moses stood in the gate of the camp and said, Who is on the Lord's side? Let him come unto me." Exodus 32:26.
 
 DURING the last few days in which the stir of a general election has moved the most quiet of our streets, every one of you must have been asked, many times, on which side you are. Some are enthusiastic on this side and some are quite as warm on the other and the interest of all ranks and classes is awakened. Now that the Lord's Day has come I hope you will forget all about politics and listen to me while I ask a far more important question, namely, "Who is on the Lord's side?" May God grant us Grace to give an honest answer and may that answer be, "Yes, Lord, You know all things, You know that I love You."

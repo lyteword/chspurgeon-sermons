@@ -1,12 +1,5 @@
 # Sermon 1599 | Everyday Religion
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 22, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The life which I now lire in the flesh Hire by the faith of the Son of God." Galatians 2:20.
 
 I am not about to preach from this whole verse, for I have done that before--this single sentence will suffice me. I shall not attempt to enter into the fullness of the spiritual meaning of this very deep and fruitful passage. I am merely going to bring out one thought from it and to try to work that out, I trust, to practical ends. It has sometimes been objected, of the preaching of the Gospel, that we exhort men to live for another sphere and do not teach them to live well in the present life. Nothing can be more untrue than this! I venture to say that more practical moral teaching is given by ministers of the Gospel than by all the philosophers, lecturers and moralists put together! While we count ourselves to be ordained to speak of something higher than mere morals, we nevertheless, no, for that very reason, we inculcate the purest code of duty and lay down the most sound rules of conduct.

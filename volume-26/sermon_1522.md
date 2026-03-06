@@ -1,12 +1,5 @@
 # Sermon 1522 | Expected Proof of Professed Love
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Show you the proof of your love." 2 Corinthians 8:24.
 
 IN every Believer's heart there is love to God, otherwise he cannot be a child of God! In every Christian's soul there is love to Jesus Christ. How could he be a Christian otherwise? As a consequence of this, in every Christian's bosom there is a love to the brotherhood--"We know that we have passed from death unto life because we love the brethren." In every Christian's breast there is also a love to all mankind. He practices that second great Commandment, "You shall love your neighbor as yourself." The spirit of God has cast out the demon of selfishness and, in proportion as that is the case, the man possesses the mind of Christ which is love. As all the Law is fulfilled in one word which is, "love," so the outcome of our holy faith is also contained in that one word, "love."

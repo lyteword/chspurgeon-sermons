@@ -1,12 +1,5 @@
 # Sermon 1573 | Bad Lodgers and How To Treat Them
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O Jerusalem, wash your heart from wickedness that you may be saved. How long shall your vain thoughts lodge within you?" Jeremiah 4:14.
 
 ONE notices, in reading such a chapter as this fourth of Jeremiah, that the change which God required in the Jewish people was a very deep and thorough one. It was not only the washing of their hands, nor the cleansing of their outward lives, but the washing of their hearts from wickedness--and the Lord did not only require of them that they should cease from wicked actions, but even from vain thoughts. The like demand He makes of us, for He says by the mouth of His servant James, "Cleanse your hands, you sinners; and purify your hearts, you double minded." This makes our holy religion a weighty and solemn business!

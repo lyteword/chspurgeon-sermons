@@ -1,8 +1,5 @@
 # Sermon 1511 | Questions Which Ought To Be Asked
 
-
-(This was followed by a farewell address from his son, Thomas Spurgeon.)
-
 But none saith, Where is God my Maker, who giveth songs in the night; who teacheth us more than the beasts of the earth, and maketh us wiser than the fowls of heaven?'Job 35:10-11.
 
 ELIHU PERCEIVED the great ones of the earth oppressing the needy, and he traced their domineering tyranny to their forgetfulness of God: None saith, Where is God my Maker?' Surely, had they thought of God they could not have acted so unjustly. Worse still, if I understand Elihu aright, he complained that even among the oppressed there was the same departure in heart from the Lord: they cried out by reason of the arm of the mighty, but unhappily they did not cry unto God their Maker, though he waits to be gracious unto all such, and executeth righteousness and judgment for all that are oppressed. Both with great and small, with oppressors and oppressed, there is one common fault in our nature, which is described by the apostle in the Romans, There is none that understandeth, there is none that seeketh after God.' Until divine grace comes in and changes our nature there is none that saith, Where is God my Maker, who giveth songs in the night?' This is a very grave fault, about which we shall speak for a few minutes, and may the Holy Ghost bless the word.

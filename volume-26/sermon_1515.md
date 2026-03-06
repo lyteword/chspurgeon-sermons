@@ -1,12 +1,5 @@
 # Sermon 1515 | A Woman of a Sorrowful Spirit
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hannah answered and said, No, my lord, I am a woman of a sorrowful spirit." 1 Samuel 1:15.
 
 The special cause of Hannah's sorrow arose from the institution of polygamy, which, although it was tolerated under the old Law, is always exhibited to us in practical action as a most fruitful source of sorrow and sin. In no one recorded instance in Holy Scripture is it set forth as admirable. In most cases the proofs of its evil effects lie open to the sun. We ought to be grateful that under the Christian religion that abomination has been wiped away, for even with such husbands as Abraham, Jacob, David and Solomon, it did not work towards happiness or righteousness. The husband found the system a heavy burden, grievous to be borne, for he soon found out the truth of the wise man's advice to the Sultan, "First learn to live with two tigresses and then expect to live happily with two wives."

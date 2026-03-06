@@ -1,12 +1,5 @@
 # Sermon 1542 | Free Grace a Motive for Free Giving
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 13, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now our Lord Jesus Christ Himself and God, even our Father, which has loved us and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work." 2 Thessalonians 2:16,17.
 
 ON BEHALF OF THE FREE HOSPITALS OF LONDON.

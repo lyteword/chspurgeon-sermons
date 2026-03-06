@@ -1,12 +1,5 @@
 # Sermon 1584 | The Heroic In Christianity
 
-
-DELIVERED ON LORD'S-DAY-MORNING, FEBRUARY 20, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For if you love them which love you, what credit is that to you? For sinners also love those that lo ve them. And if you do good to them which do good to you, what credit is that to you? For sinners also do even the same. And if you lend to them of whom you hope to receive, what credit is that to you? For sinners also lend to sinners, to receive as much again." Luke 6:32-34.
 
 BRETHREN in Christ, every Word which proceeds out of our Master's lips is precious to us. We make no distinction between His promises and His precepts, but prize every syllable above rubies. A doctrine from Him we value beyond the much fine gold and a command is equally high in our esteem. Whether His teaching is practical or doctrinal, whether it is intended to guide the feet or to encourage the heart, we are equally rejoiced at it--

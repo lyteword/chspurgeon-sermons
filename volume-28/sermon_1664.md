@@ -1,12 +1,5 @@
 # Sermon 1664 | "Jehovah-Rophi"
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 11, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I am the Lord who heals you." Exodus 15:26.
 
 WE shall consider this passage in its context, for I have no doubt that the miracle at Marah was intended to be a very instructive illustration of the glorious title which is here claimed by the Covenant God of Israel-- "I am Jehovah-Rophi, the Lord that heals you." The illustration introduces the sermon of which this verse is the text. The healing of the bitter waters is the parable of which the line before us is the lesson. How different is the Lord to His foes and to His friends! His Presence is light to Israel and darkness to Egypt. Egypt only knew Jehovah as the Lord that plagues and destroys those who refuse to obey Him. Is not this the Lord's memorial in Egypt, that He cut Rahab and wounded the dragon? He overthrew their armies at the Red Sea and drowned their hosts beneath the waves! But to His own people, in themselves but very little superior to the Egyptians, God is not the terrible Avenger consuming His adversaries, but, "Jehovah that heals you."

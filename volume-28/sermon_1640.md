@@ -1,12 +1,5 @@
 # Sermon 1640 | The Touch
 
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 8, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus, immediately knowing in Himself that power had gone out of Him, turned around in the crowd and said, Who touched My clothes? And His disciples said to Him, You see the multitude thronging You, and do You say, Who touched Me?" Mark 5:30,31.
 
 WE just now read the story of this woman who was immediately healed. Spiritual persons know that the miracles recorded by the Evangelist are true because they have seen them reproduced. That is to say, we have not seen an issue of blood stopped by the touch of Christ's garments, but we have seen the spiritual counterpart of it. We have seen men and women healed of all kinds of spiritual and moral diseases by coming into contact with our Lord Jesus. They have touched Jesus and they have been made whole, for Jesus lives still and His healing work is not ended, but has only entered on another phase. Jesus has said, "Lo, I am with you always, even unto the end of the world." And, being with us, He is not here inactively or ineffectually, but He is here--the same yesterday, today and forever--to work the same miracles, only not on men's bodies, but on their souls.

@@ -1,12 +1,5 @@
 # Sermon 1585 | Truthfulness
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O Lord, are not Your eyes upon the truth?" Jeremiah 5:3.
 
 THE allusion is not to doctrinal Truth of God, or truth in the abstract, but to practical truth as it should exist in the hearts and lives of men. It might be read, "Lord, are not Your eyes upon truthfulness?" Or, "upon faithfulness?" The Lord bade them produce a single truthful man in all Jerusalem and Jeremiah answers that if truth were to be found, the Lord Himself best knew where it was, for His eyes were always upon it. In this chapter you must have noticed, when I was reading it, that we have a fearful description of the condition of things in the days of the Prophet Jeremiah. We have also a most melancholy set of pictures of untruthful men which are drawn to the life with a grimly graphic touch which strangely reminds me of the series of Hogarth's sketches known as, "the Rake's Progress." They hold the mirror up not only to the life, but to the heart of the men of the times.

@@ -1,12 +1,5 @@
 # Sermon 1692 | "Without Carefulness"
 
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I would have you without carefulness." 1 Corinthians 7:32.
 
 AT the time when Paul wrote these words he was giving judgment as to whether it was expedient for Christians in those days to marry. The question was whether they were likely to be better Christians married or unmarried. This was a question of much delicacy and Paul answered it with remarkable discretion and fidelity. And, in so doing, he laid down a great general principle which is of much more value to the Church, today, than Paul's private opinion about the matter of marriage or non-marriage. Paul tells us that concerning virgins, he had no commandment of the Lord, but gave his judgment as one that had obtained mercy of the Lord to be faithful--he did not speak, in this case, as under Divine Inspiration, but as an experienced and consecrated man giving his judgment for the good of others--and for the benefit of the great work so dear to him.

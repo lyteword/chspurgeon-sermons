@@ -1,12 +1,5 @@
 # Sermon 1587 | Jesus At A Standstill
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 6, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus stood still." Mark 10:49.
 
 A FRIEND enquired of me yesterday, "Will you preach on Sunday morning to saints or to sinners?" I could not, at the moment, answer him, but afterwards I thought to myself--If I preach concerning Jesus Christ, our Lord and Savior, I shall kill two birds with one stone and give both saints and sinners a profitable theme for thought. There is but one message of the Gospel and it has a voice to all. Saints know no sweeter music than the name of Jesus and sinners know no richer comfort than His Person and His work. We preach to all when we preach Him who is All in All. Christ comes as life to the dead and He is equally life to the living.

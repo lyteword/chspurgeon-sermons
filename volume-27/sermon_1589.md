@@ -1,12 +1,5 @@
 # Sermon 1589 | A Hasty Expression Penitently Retracted
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I said in my haste, I am cut off from before Your eyes: nevertheless You heard the voice of my supplications when I cried unto You." Psalm 31:22.
 
 THAT is a bit of genuine experience, honestly told, in the most natural manner. How glad we ought to be that David never fell into the hands of an ordinary biographer, for such a piece of weakness as this text records would have been carefully repressed lest the good man's reputation should suffer. It was only a hasty expression and every friendly biographer would have felt that it ought to be taken as unspoken. Here, however, stands this piece of human weakness upon David's life and we are right glad of it--it is a comfort to us little folks to perceive the champions were men of like passions with ourselves! As a bee sucks honey out of nettles, so does faith find comfort even in the failings of David. But we must mind that we do not turn his errors into excuses, for that were to extract poison instead of wholesome juices.

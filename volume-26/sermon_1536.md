@@ -1,12 +1,5 @@
 # Sermon 1536 | Sentence Of Death, The Death Of Self-trust
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 2, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But we had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raises the dead." 2 Corinthians 1:9.
 
 WE are justified, dear Friends, in speaking about our own experience when the mention of it will be for the benefit of others. Especially is this the case with leaders in the Church such as Paul, for their experience is rich and deep and the rehearsal of it comes with great weight and is peculiarly valuable. We are all the better when we are distressed for discovering that such an one as Paul was also subject to heaviness--we feel safe in following the line of conduct which was marked out by the great Apostle and we are hopeful that if he came out of his troubles which were so great, we may, also, be delivered out of ours which are comparatively so little.

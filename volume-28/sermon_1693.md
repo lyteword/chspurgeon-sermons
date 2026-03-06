@@ -1,12 +1,5 @@
 # Sermon 1693 | That Horrible East Wind!
 
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And let the peace of God rule in your hearts, to which you are also called in one body; and be you thankful." Colossians 3:15.
 
 I do not know how it is, but during the last two or three days I have been called to sympathize with an amount of sorrow such as I have seldom met with before in so short a space of time. One messenger of misery has followed on the heels of another, each one with heavy tidings. Nor is that all, for I have also been perplexed with a large amount of sinning, quarrelling and fault-finding. People are murmuring, grumbling, fretting and fighting on all sides. This has tried me so much that I feel little fitted to act as comforter, for I need comfort, myself. I have endeavored to cheer others till I have drunk of their cup of sorrow and put my own mouth out of taste--I have tried to make peace for others till I am half afraid of losing my own--I have answered the people's grumblings till I am tempted to have a growl or two on my own account.

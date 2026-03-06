@@ -1,12 +1,5 @@
 # Sermon 1566 | Cheer for the Worker and Hope for London
 
-
-DELIVERED ON THURSDAY EVENING, OCTOBER 28, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then spoke the Lord to Paul in the night by a vision, Be not afraid, but speak and hold not your peace: for I am with you and no man shall set on you to hurt you: for I have much people in this city." Acts 18:9,10.
 
 IT is clear from this, dear Friends, that even he who was not a whit behind the chief of the Apostles sometimes needed special comfort. It is possible that even the bravest of the brave may be afraid. Sinking of heart assailed even Samson while as yet the thousand slain lay in heaps around him. Moses was cast down in the desert and David on the throne. Even iron will melt, much more a heart of flesh. Remember the faintness of Elijah when he said, "Let me die, I am no better than my fathers," and recollect that this was a lion-like man, one of those ministers of God who are as a flame of fire! The second Elijah, he who rebuked Herod to his face, was sadly staggered while he lay in prison. John the Baptist sent to Jesus to inquire, "Are you He that should come?"

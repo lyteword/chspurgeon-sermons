@@ -1,12 +1,5 @@
 # Sermon 1576 | The Throne of God and of the Lamb
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Throne of God and of the Lamb shall be in it." Revelation 22:3.
 
 WE shall take these words as referring to Heaven. Certainly it is most true of the Celestial City as well as of the millennial city, that the Throne of God and of the Lamb shall be in it. This theme of surpassing interest intimately concerns all of us who are Believers, for to the eternal rest at the foot of the Throne we are constantly looking. Were it otherwise, I fear there would be little prospect of our ever passing the heavenly portals. We do not suppose that a man is shooting at a target if he does not look that way. Nor can we imagine that a man's ambition is fixed on Heaven if he has no thoughts or aspirations toward Heaven.
