@@ -1,6 +1,5 @@
 # Sermon 2092 | God's Own Gospel Call
 
-
 > "Incline your ear and come unto Me: hear and your soul shall live. And I will make an Everlasting Covenant with you, even the sure mercies of David."  
 > Isaiah 55:3.  
 

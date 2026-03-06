@@ -1,12 +1,5 @@
 # Sermon 1768 | First, King of Righteousness, and after That, King of Peace
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 8, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "First being by interpretation King of righteousness, and after that also King of Salem, which is, King of peace." Hebrews 7:2.
 
 WE will not enlarge upon the story of Melchisedec, nor discuss the question as to who he was. It is near enough for us to believe that he was one who worshipped God after the primitive fashion, a believer in God such as Job was in the land of Uz, one of the world's gray fathers who had kept faithful to the Most High God. He combined in his own person the kingship and the priesthood--a conjunction by no means unusual in the first ages. Of this man we know very little and it is partly because we know so little of him that he is all the better type of our Lord, of whom we may enquire, "Who shall declare His generation?"

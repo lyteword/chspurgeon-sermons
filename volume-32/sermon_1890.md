@@ -1,6 +1,5 @@
 # Sermon 1890 | Our Lord's Prayer for His People's Sanctification
 
-
 > "Sanctify them through thy truth: thy word is truth."  
 > John 17:17.  
 

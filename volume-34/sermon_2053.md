@@ -1,6 +1,5 @@
 # Sermon 2053 | Concerning Prayer
 
-
 > "Give ear, O Lord, unto my prayer and attend to the voice of my supplications. In the day of my trouble I will call upon You: for You will answer me."  
 > Psalm 86:6, 7.  
 

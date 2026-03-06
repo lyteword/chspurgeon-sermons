@@ -1,12 +1,5 @@
 # Sermon 1758 | The Pastor's Life Wrapped Up with His People's Steadfastness a Pleading Reminder for the New Year
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now we live, if you standfast in the Lord." 1 Thessalonians 3:8.
 
 MINISTERS who are really sent of God greatly rejoice in the spiritual prosperity of their people. If they see God's Word prosper, they prosper. If the Church of God is blessed, they are blessed. Their life is wrapped up in the spiritual life of their people. Never is the servant of God so full of delight as when he sees that the Holy Spirit is visiting his hearers, making them to know the Lord, and confirming them in that heavenly knowledge. On the other hand, if God does not bless the word of His servants, it is like death to them! To be preaching and to have no blessing makes them heavy of heart--the chariot wheels are taken off and they drag heavily along--they seem to have no power nor liberty. They get depressed and they go back to their Master with this complaint, "Who has believed our report? And to whom has the arm of the Lord been revealed?"

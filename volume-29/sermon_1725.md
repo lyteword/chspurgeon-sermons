@@ -1,12 +1,5 @@
 # Sermon 1725 | Imitators of God
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 10, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be you therefore followers of God, as dear children." Ephesians 5:1.
 
 WE shall read the text as it should more properly be translated--"Be you therefore imitators of God, as beloved children." Upon the word, "imitate," our discourse will hinge. The division into chapters is often most unfortunate and, in this case, it causes a break in a passage which, in its sense, is one and indivisible. The Apostle had said, "Be you kind, one to another, tenderhearted, forgiving one another, even as God, for Christ's sake, has forgiven you. Be you therefore imitators of God, as dear children." He has forgiven you, therefore imitate Him. It is a pity to have divided the argument from the conclusion.

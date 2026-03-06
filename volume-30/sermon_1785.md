@@ -1,12 +1,5 @@
 # Sermon 1785 | The Children and Their Hosannas
 
-
-A SERMON DELIVERED ON WEDNESDAY EVENING, MAY 7, 1884,
-
-BY C. H. SPURGEON,
-
-AT UNION CHAPEL, ISLINGTON.
-
 "But when the chief priests and scribes saw the wonderful things thatHe did, and the children crying in the Temple, and saying, "Hosanna to the son of David!" they were sorely displeased, and said unto Him, "Do You hear what these are saying?" And Jesus said unto them, "Yes. Have you ne ver read, Out of the mouth of babes and sucklings you have perfected praise?" Matthew 21:15,16.
 
 (BY REQUEST OF THE SUNDAY SCHOOL UNION).

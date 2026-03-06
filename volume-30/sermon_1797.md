@@ -1,12 +1,5 @@
 # Sermon 1797 | How To Meet the Doctrine of Election
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, JULY 31, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But He answered and said, I am not sent but unto the lost sheep of the house of Israel. Then came she and worshipped Him, saying, Lord, help me." Matthew 15:24,25.
 
 You that know the loving heart of our Lord Jesus are quite sure that He would never needlessly discourage a soul in coming to Him. Yet in this case, "He answered her not a word." Is Jesus dumb when misery entreats a word from Him? The Friend of Man is usually all attraction, encouragement, drawing and welcoming--yet the eager woman cries in vain to Him for her tormented daughter! We are not disquieted about this. We know our Lord too well to suspect Him of a lack of love. He is not sporting with a wounded bird. He is in no fit of bitterness. He would not even seem to discourage any heart that beat within a human bosom unless there had been some great necessity for it, some gracious end to be served.

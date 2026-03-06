@@ -1,6 +1,5 @@
 # Sermon 2048 | A Life-Long Occupation
 
-
 > "By Him, therefore, let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to His name."  
 > Hebrews 13:15.  
 

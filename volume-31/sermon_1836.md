@@ -1,12 +1,5 @@
 # Sermon 1836 | First Healing and then Service
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when Jesus was come into Peter's house, He sawhis wife's mother lying sick with a fever. So He touched her hand and the fever left her. And she arose and served them." Matthew 8:14,15.
 
 This event took place at Capernaum, but Peter's residence was at Bethsaida, for we read, "Philip was of Bethsaida, the city of Andrew and Peter." How came Peter to have a house at Capernaum? Poor fishermen do not often have two houses. May not the conjecture be highly probable that, finding the Lord Jesus Christ was frequently at Capernaum, Peter thought it best to have a dwelling there, that he might always be present when the Master was preaching and that he might do his best to entertain Him between visits? I like to think that the servant changed his place of abode for his Master's sake. Would it not be well if many Christian people had some little consideration when they are choosing a house, as to whether it will be convenient for the hearing of the Word of God? Do you not think that a great many professors look chiefly for every other kind of advantage and, when they have virtually made their choice, they afterwards enquire into the very important item of their nearness to a place where they may worship God, enjoy Christian fellowship and be useful?

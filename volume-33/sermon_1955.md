@@ -1,6 +1,5 @@
 # Sermon 1955 | Jesus Declining the Legions
 
-
 > "Do you think that I cannot now pray to My Father, and He shall presently give me more than twelve legions of angels? But how, then, shall the Scriptures be fulfilled, that thus it must be?"  
 > Matthew 26:53, 54.  
 

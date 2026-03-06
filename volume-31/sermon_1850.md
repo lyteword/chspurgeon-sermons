@@ -1,18 +1,5 @@
 # Sermon 1850 | Immeasurable Love
 
-A Sermon
-
-
-Intended for reading on Lord's-Day, July 26th, 1885,
-
-Delivered by
-
-H. SPURGEON,
-
-At [14]the Metropolitan Tabernacle, Newington,
-
-On the evening of June 7th, 1885
-
 "For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life."--John 3:16
 
 I WAS very greatly surprised the other day, in looking over the list of texts from which I have preached, to find that I have no record of ever having spoken from this verse. This is all the more singular, because I can truly say that it might be put in the forefront of all my volumes of discourses as the sole topic of my life's ministry. It has been my one and only business to set forth the love of God to men in Christ Jesus. I heard lately of an aged minister of whom it was said, "Whatever his text, he never failed to set forth God as love, and Christ as the atonement for sin." I wish that much the same may be said of me. My heart's desire has been to sound forth as with a trumpet the good news that "God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life."

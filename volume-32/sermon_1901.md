@@ -1,12 +1,5 @@
 # Sermon 1901 | Mysterious Meat
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 23, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In the meantime His disciples urged Him, saying, Master, eat. But He said to them, I have meat to eat that you know not of. Therefore the disciples said to one another, Has anyone brought Him anything to eat? Jesus said to them, My meat is to do the will of Him who sent Me and to finish His work Do you not say, There are yet four months, and then comes harvest? Behold, I say unto you, Lift up your eyes, and look at the fields, for they are already ripe for harvest! And he who reaps receives wages, and gathers fruit for eternal life, that both he who sows andhe who reaps may rejoice together. For in this the sayingis true, One sows, and another reaps. I sent you to reap that for which you have not labored; others have labored, and you have entered into their labors." John 4:31-38.
 
 THE disciples had gone away into the city to buy meat and for this they cannot be censured. It was necessary that food should be provided and it naturally fell to their lot to perform that duty. Do not say that they were carnal or un-spiritual because of this, for the most spiritual people must eat to live. When they came back from making their purchases, they found their Master sitting by the well, as they had left Him. They naturally expected that He would be as ready to partake of the provision as they were to offer it to Him, but He made no movement in that direction. His mind was evidently far away from the idea of food. He was absorbed in something else and, therefore, His disciples sought to call Him back to a sense of His need. I do not suppose that they had, themselves, eaten. It was hardly like them to do so while their Lord was not with them. They, therefore, wished to eat and they were all the more struck with the fact that He had no care for refreshment. Knowing how weary He had been when they left Him--so weary that He bade them go alone into the city--they were perplexed at His indifference to food and, perhaps, judged that He was over-fatigued and, therefore, they urged Him to eat. Importunately, one after another said, "Good Master, it is long since You have eaten; the way has been weary, the day is hot, You seem very faint. We pray You, eat a little that You may be revived. The woman to whom You spoke has gone. Your good work, for a while, is over, let us eat together."

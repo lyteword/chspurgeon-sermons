@@ -1,6 +1,5 @@
 # Sermon 2180 | A Mediator
 
-
 > "Now a mediator is not a mediator of one, but God is one."  
 > Galatians 3:20.  
 

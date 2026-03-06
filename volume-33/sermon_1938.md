@@ -1,6 +1,5 @@
 # Sermon 1938 | The Master Key--Opening the Gate of Heaven
 
-
 > "And You said, I will surely do you good."  
 > Genesis 32:12.  
 

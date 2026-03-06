@@ -1,14 +1,5 @@
 # Sermon 2026 | To the Saddest of the Sad
 
-A Sermon
-
-
-Intended for Reading on Lord's-day, June 3rd, 1888, by
-
-H. SPURGEON,
-
-At [5]the Metropolitan Tabernacle, Newington
-
 "And Moses spake so unto the children of Israel: but they hearkened not unto Moses for anguish of spirit, and for cruel bondage."'Exodus 6:9.
 
 LITTLE WORDS OFTEN CONTAIN great meanings. It is often the case with that monosyllable "so." In the present instance we must lay stress upon it and read the text thus'"Moses spake so unto the children of Israel." That is, he said what God told him to say. He did not invent his message. He did not think out the gospel that he had to carry to the people. He was simply a repeater of the divine message. As he received it, so he spake it. "Moses spake as unto the children of Israel." If he had not done so, the responsibility must have rested upon himself, whether the nation was moved by his words or not; but when he was simply God's ambassador, saying only what God would have him say, his responsibility was limited. If he delivered the Lord's own word and it failed to win the heart of Israel, he could not be blamed. Although it was a great sadness of heart to him that the people did not, and even could not, receive the divine message, yet as far as he was concerned, his conscience was clear. It is ever so with the preacher of the gospel: if he declares the word of the Lord as he has received it, whether men will hear or whether they will forbear, he is clear before God, whatever his hearers may do or may not do.

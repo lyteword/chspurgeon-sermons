@@ -1,6 +1,5 @@
 # Sermon 2036 | The Whole-Heartedness of God in Blessing His People
 
-
 > "Yes, I will rejoice over them to do them good and I will plant them in this land assuredly with My whole heart and with My whole soul."  
 > Jeremiah 32:41.  
 

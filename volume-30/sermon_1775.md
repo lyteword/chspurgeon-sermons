@@ -1,12 +1,5 @@
 # Sermon 1775 | "My Lord and My God!"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Thomas answered and said unto Him, 'My Lord and my God!'" John 20:28.
 
 WHEN the Apostles met on the first Lord's Day after Jesus had risen, Thomas was the only disciple absent out of the eleven. On the second Lord's Day, Thomas was there and he was the only disciple doubting out of the eleven. How much the fact of his doubting was occasioned and helped by the fact of his former absence, I cannot say, but still, it looks highly probable that had he been there at the first, he would have enjoyed the same experience as the other 10, and would have been able to say as they did, "We have seen the Lord." Let us not forsake the assembling of ourselves together as the manner of some is, for we cannot tell what loss we may sustain thereby. Though our Lord may reveal Himself to single individuals in solitude as He did to Mary Magdalene, yet He more usually shows Himself to two or three, and He delights, most of all, to come into the assembly of His servants.

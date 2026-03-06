@@ -1,6 +1,5 @@
 # Sermon 2069 | My Own Personal Holdfast
 
-
 > "My God will hear me."  
 > Micah 7:7.  
 

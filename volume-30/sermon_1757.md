@@ -1,12 +1,5 @@
 # Sermon 1757 | The New Year's Guest
 
-
-A SERMON PREACHED ON LORDS-DAY AFTERNOON, DECEMBER 16, 1883,
-
-BY C. H. SPURGEON,
-
-AT MENTONE, BEFORE THE COMMUNION, TO A SMALL COMPANY OF BELIEVERS.
-
 "I was a stranger, andyou took Me in." Matthew 25:35.
 
 "But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name." John 1:12.

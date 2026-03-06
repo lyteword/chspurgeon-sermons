@@ -1,6 +1,5 @@
 # Sermon 1970 | Loving Persuasion
 
-
 > "Persuading them concerning Jesus."  
 > Acts 28:23.  
 

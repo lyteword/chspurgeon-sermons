@@ -1,6 +1,5 @@
 # Sermon 2051 | Setting Jesus at Nothing--Treating Him with Contempt
 
-
 > "And Herod with his men of war set Him at nothing."  
 > Luke 23:11.  
 

@@ -1,6 +1,5 @@
 # Sermon 2140 | A Homily for Humble Folks
 
-
 > "Surely I am more stupid than any man, and have not the understanding of a man."  
 > Proverbs 30:2.  
 

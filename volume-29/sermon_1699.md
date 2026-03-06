@@ -1,6 +1,5 @@
 # Sermon 1699 | Supposing Him to be the Gardener
 
-
 > "Supposing him to be the gardener."  
 > John 20:15.  
 

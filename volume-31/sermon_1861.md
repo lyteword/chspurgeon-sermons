@@ -1,6 +1,5 @@
 # Sermon 1861 | The Lowly King
 
-
 DO not intend to expound the whole text at any length, but simply to dwell upon the lowliness of Jesus. Yet this much I may say: whenever God would have his people especially glad, it is always in himself. If it be written, "Rejoice greatly," then the reason is, "Behold, thy King cometh unto thee!" Our chief source of rejoicing is the presence of King Jesus in the midst of us. Whether it be his first or his second advent, his very shadow is delight. His footfall is music to our ear.
 
 That delight springs much from the fact that he is ours. "Rejoice greatly, O daughter of Zion: . . . behold, thy King cometh unto thee." Whatever he may be to others, he is thy King, and to whomsoever he may or may not come, he cometh unto thee. He comes for thy deliverance, thine honor, thy consummated bliss. He keeps thy company: he makes thy house his palace, thy love his solace, thy nature his his home. He who is thy King by hereditary right, by his choice of thee, by his redemption of thee, and by thy willing choice of him, is coming to thee; therefore do thou shout for joy.

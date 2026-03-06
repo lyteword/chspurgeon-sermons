@@ -1,12 +1,5 @@
 # Sermon 1710 | Incense and Light
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 11, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Aaron shall burn thereon sweet incense every morning: when he dresses the lamps, he shall burn incense upon it. And when Aaron lights the lamps at twilight, he shall burn incense upon it, a perpetual incense before the Lord throughout your generations." Exodus 30:7,8.
 
 CERTAIN ceremonies under the Law were only of annual celebration, while other matters were of daily observation. And by the daily repetition they were intended to be set forth as eminently constant and perpetual. These daily ordinances were to be regarded by the children of Israel as of standing obligation, abiding types of constant necessity, never to be removed so long as the dispensation should last. When the priest went into the tabernacle, he could not enter it without being warned of sin and of sacrifice, for at the entrance of the holy place stood an altar of brass upon which there was offered, every morning, a lamb and every evening a lamb.

@@ -1,18 +1,5 @@
 # Sermon 2082 | A Free Grace Promise
 
-A Sermon
-
-
-Intended for Reading on Lord's-day, May 5th, 1888.
-
-Delivered by
-
-H. SPURGEON,
-
-At the [4]Metropolitan Tabernacle, Newington,
-
-On Thursday Evening, October 11th, 1888.
-
 "And it shall come to pass, that whosoever shall call on the name of the Lord shall be delivered."'Joel 2:32.
 
 VENGEANCE was in full career. The armies of divine justice had been called forth for war: "They shall run like mighty men; they shall climb the wall like men of war." They had invaded and devastated the land, and turned the land from being like the garden of Eden into a desolate wilderness. All faces gathered blackness: the people were "much pained" The sun itself was dim, the moon was dark, and the stars withdrew themselves: the earth quaked, and the heavens trembled. At such a dreadful time, when we might least have expected it, between the peals of thunder and the flashes of lightning, was heard this gentle word, "It shall come to pass, that whosoever shall call on the name of the Lord shall be delivered." Let us carefully read the passage: "And I will show wonders in the heavens and in the earth, blood, and fire, and pillars of smoke. The sun shall be turned into darkness, and the moon into blood, before the great and the terrible day of the Lord come. And it shall come to pass, that whosoever shall call on the name of the Lord shall be delivered." In the worst times that can ever happen, there is still salvation for men. When day turns to night, and life becomes death, and the staff of life is broken, and the hope of man has fled, there still remains in God, in the person of his dear Son, deliverance to all those who will call upon the name of the Lord. We do not know what is to happen: reading the roll of the future, we prophesy dark things; but still this light shall always shine between the rifts of the cloud-wrack: "Whosoever shall call on the name of the Lord shall be delivered."

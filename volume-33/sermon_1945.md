@@ -1,6 +1,5 @@
 # Sermon 1945 | Christ's Work No Failure
 
-
 > "He shall not fail nor be discouraged till He has set judgment in the earth: and the isles shall wait for His Law."  
 > Isaiah 42:4.  
 

@@ -1,12 +1,5 @@
 # Sermon 1753 | Blessed Promises For Dying Outcasts
 
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For I will restore health unto you, and I will healyou of your wounds, says the Lord; because they called you an outcast, saying, This is Zion, whom no man seeks after." Jeremiah 30:17.
 
 THE promises of this verse will be exceedingly sweet to those who feel their personal need of them. But those who boast that they are neither sick nor wounded will take no interest in this comfortable promise. Those who are charmed with themselves will see no charm in the beloved Physician. I have heard of certain hungry travelers, lost in the wilderness, who came upon a bag which they longingly hoped might yield them a seasonable supply of food. They were near to death's door by starvation and eagerly opened the bag, but, alas, it contained nothing but pearls--which they poured out contemptuously upon the desert sand as things of no use to them! Even so, when a man is hungry and thirsting after the things of this life and all his thoughts are taken up with carnal appetites, carnal sorrows and carnal joys, he will reject as worthless the priceless promises of God, for he considers that they are of no immediate use to him.

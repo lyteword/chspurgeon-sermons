@@ -1,12 +1,5 @@
 # Sermon 1798 | Sight For Those Who See Not
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 14, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus said, For judgment I have come into this world, that they which see not might see and that they which see might be made blind." John 9:39.
 
 THE great Day of Judgment is not as yet. God, in infinite long-suffering, waits to be gracious, giving men space wherein to repent and to be reconciled to Him. Jesus has come into the world for judgment, but not for that last and eternally unchangeable judgment which awaits us all. That hour and that advent will arrive--we have the declaration of God's Word for it. Read in Matthew 25--"When the Son of Man shall come in His glory and all the holy angels with Him, then shall He sit upon the throne of His Glory: and before Him shall be gathered all nations: and He shall separate them, one from another, as a shepherd divides His sheep from the goats." There is no question as to this sure fact--even if many more centuries should pass away, the dread assize will be held in due season.

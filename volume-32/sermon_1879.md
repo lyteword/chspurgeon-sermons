@@ -1,12 +1,5 @@
 # Sermon 1879 | A Plain Man's Sermon
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 17, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "It must be perfect to be accepted; there shall be no defect in it." Leviticus 22:21.
 
 THE Ceremonial Law, as ordained by the hand of Moses and Aaron, called the worshippers of God to great carefulness before Him. Before their minds that solemn Truth was always made visible, "I the Lord your God am a jealous God." Nothing might be done thoughtlessly. Due heed was the first requisite in a man who would draw near unto the Thrice-Holy God, whose perfections demand lowly and considerate reverence from all those who are round about Him. The spirit must be awake and on the stretch if it would please the great Father of Spirits. There were little points--I may truthfully call them minute--upon which everything would depend as to right worship and its acceptance with the Lord. No Israelite could come to the tabernacle door aright without thinking of what he had to do and thinking it over with an anxious fear lest he should, by omission or error, make his offering into a vain oblation. He must draw near unto the Lord with great carefulness, or else he might miss his aim, spend his money upon a sacrifice, cause labor to the priest and go home unaccepted. He might duly perform a large portion of a ceremony and yet no good might come to him through it because he had omitted a point of detail--for the Lord would be sought according to the due order--or He would not be found by the worshipper. Of every ceremony it might be said, "It must be perfect to be accepted." There was the rule and the rule must be followed with the most careful exactness. God must have the minds and thoughts of men, or He counts that they are no worshippers!

@@ -1,6 +1,5 @@
 # Sermon 1995 | The Heart--a Gift for God
 
-
 > "My son, give Me your heart."  
 > Proverbs 23:26.  
 

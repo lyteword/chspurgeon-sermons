@@ -1,12 +1,5 @@
 # Sermon 1866 | The Sunday School and the Scriptures
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 18, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And that from childhood you have known the Holy Scriptures, which are able to make you wise unto salvation through faith which is in Christ Jesus." 2 Timothy 3:15.
 
 HOW very remarkably the times repeat themselves! As I said just now, in the reading of the chapter, the warning which Paul gave concerning his own times is quite as necessary for this present age. Again darkness thickens and the mists hang heavily around our footsteps. Evil men and seducers wax worse and worse and very many have turned away their ears from the Truth of God to listen to fables. Nor do we wonder that it is so. History must repeat itself so long as we have the same human nature to deal with, the same sins to ensnare mankind, the same Truth to be trifled with and the same devil to stir men up to the same mischief.

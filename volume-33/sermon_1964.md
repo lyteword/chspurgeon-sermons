@@ -1,6 +1,5 @@
 # Sermon 1964 | Why Is Faith So Feeble?
 
-
 > "And He said unto them, Why are you so fearful? How is it that you have no faith?"  
 > Mark 4:40.  
 

@@ -1,6 +1,5 @@
 # Sermon 1906 | How To Become Fishers of Men
 
-
 > "And Jesus saith unto them, Follow me, and I will make you fishers of men."  
 > Matthew 4:19.  
 

@@ -1,12 +1,5 @@
 # Sermon 1751 | Fathers In Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 18, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I write unto you, fathers, because you have known Him that is from the beginning. Ihave written unto you, fathers, because you ha ve kno wn Him that is from the beginning." 1 John 2:13,14.
 
 OBSERVE the difference in the two verses--John first says, "I write," and then, "I have written." When in two former discourses I preached upon the beloved Apostle's address to the young men and the children, [Sermon #1711--A Sermon to the Lord's Little Childrei and Sermon #1715--A Description of Young Men in Christ] I gave you as full an interpretation of this difference as I could command--and I need not, now, repeat it. Certain additional thoughts occur to me, which I will give you, that the matter may be still clearer. The Apostle John says, "I write," and, by-and-by, "I have written." This shows, I think, the importance of his subject. If he has already written upon it, he must think it to be a very necessary and valuable Truth of God if he writes upon it yet again.

@@ -1,12 +1,5 @@
 # Sermon 1839 | Delight in the Almighty
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 3, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For then shall you have your delight in the Almighty, and shall lift up your face unto God." Job 22:26.
 
 THE Lord said to Eliphaz and his friends, "you have not spoken of Me the thing that is right, as My servant Job has." And, therefore, we must always regard what they said with careful discrimination. They were wise men according to their light, but they were quite at sea in their judgment of Job. However, in this particular verse, Eliphaz declared that which is taught in many other parts of Holy Scripture and we may profit by his utterance. God grant that by His Spirit we may fully experience the joys described in the words before us.

@@ -1,12 +1,5 @@
 # Sermon 1858 | God Our Continual Resort
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 6, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be You my strong habitation, whereunto I may continually resort." Psalm 71:3.
 
 DAVID, in his younger days, had been obliged to hide himself away with his followers in the great caverns and rocks of his native land. In the cave of Adullam, by the rocks of the wild goats, he had dwelt amid the most stern surroundings of Nature. No doubt he had climbed aloft upon the mountain's side and then had penetrated into one cave after another and treated them as chambers of his house of rock. There he had spent both nights and days, looking from on high upon the plains beneath, often seeing his cruel pursuers passing by in eager hunt for him while he was secure in his rocky fastness.

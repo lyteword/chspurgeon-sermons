@@ -1,6 +1,5 @@
 # Sermon 2164 | Faith's Firm Resolve
 
-
 > "I will go in the strength of the Lord God: I will make mention of Your righteousness, even of Yours only."  
 > Psalm 71:16.  
 

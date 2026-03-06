@@ -1,12 +1,5 @@
 # Sermon 1707 | "Herein Is Love"
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 18, 1883,
-
-BY C, H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins. Beloved, if God so loved us, we ought, also, to love one another." 1 John 4:10,11.
 
 THE Law commands love, indeed, all its precepts are summed up in that one word, "love." More widely read it runs thus--"You shall love the Lord your God with all your heart, and with all your soul, and with all your strength, and with all your mind; and your neighbor as yourself--yet all this amounts only to, "You shall love." But the Law, by reason of our depravity, never produced love. We were commanded to love, but we did no such thing. The spirit that is in us is selfish and it lusts to envy and to enmity. Why do wars and fights come among us? Come they not from our lusts? Since the Fall, man has become man's bitterest foe upon the earth--and the world is full of hate, slandering, struggles, fighting, wounding, and slaying--all that the Law can do is to show the wrong of enmity and threaten punishment. It cannot supply an unregenerate heart with a fountain of love.

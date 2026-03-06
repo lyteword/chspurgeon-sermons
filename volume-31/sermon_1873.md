@@ -1,12 +1,5 @@
 # Sermon 1873 | The Dream of the Barley Cake
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 22, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when Gideon had come, behold, there was a man that told a dream unto his companion and said, Behold, I dreamed a dream, and, lo, a cake of barley bread tumbled into the host of Midian, and came unto a tent, and smote it thatit fell, and overturned it, that the tentlay along. And his fellow answered and said, This is nothing else sa ve the sword of Gideon the son of Joash, a man of Israel: for into his hand has God delivered Midian, and all the host." Judges 7:13,14.
 
 THE Midianites were devastating the land of Israel. These wandering tribes purposely kept away during the times of plowing and sowing and allowed the helpless inhabitants to dream that they would be able to gather in a harvest. But no sooner did there come to be anything eatable by man or beast, than these Bedouin hordes came up like locusts and devoured everything! Imagine a country like Israel which had, at one time, been powerful, so greatly reduced as to be unable to keep off these desert rangers! They were brought so low that the cities and villages were empty and the inhabitants were hidden in the hills, in the watercourses and in the huge caverns of the rocks. God had forsaken them for their sins and, therefore, their own manhood had forsaken them and they hid themselves from enemies, whom, in better days, they had despised.

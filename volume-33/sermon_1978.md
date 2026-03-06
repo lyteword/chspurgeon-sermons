@@ -1,6 +1,5 @@
 # Sermon 1978 | Trust
 
-
 > "That we should be to the praise of His glory, who first trusted in Christ. In whom you also trusted, after you heard the Word of truth, the Gospel of your salvation."  
 > Ephesians 1:12,13.  
 

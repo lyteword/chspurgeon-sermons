@@ -1,6 +1,5 @@
 # Sermon 2109 | The Eye and the Light
 
-
 > "No man, when he has lighted a candle, puts it in a secret place, neither under a bushel, but on a candlestick, that they which come in may see the light. The light of the body is the eye: therefore when your eye is single, your whole body also is full of light. But when your eye is evil, your body also is full of darkness. Take heed therefore that the light which is in you is not darkness. If your whole body therefore is full of light, havingno part dark, the whole shall be full of light, as when the bright shining of a candle does give you light."  
 > Luke 11:33-36  
 

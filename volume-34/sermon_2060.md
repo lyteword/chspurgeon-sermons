@@ -1,6 +1,5 @@
 # Sermon 2060 | The Messages of Our Lord's Love
 
-
 > "Go your way, tell His disciples and Peter that He goes beforeyou into Galilee: there shall you see Him, as He said unto you."  
 > Mark 16:7.  
 

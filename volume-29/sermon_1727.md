@@ -1,12 +1,5 @@
 # Sermon 1727 | The Voice from the Cloud and the Voice of the Beloved
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 24, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "While He yet spoke, behold, a bright cloud overshadowed them: and behold a voice out of the cloud, which said, This is My beloved Son, in whom I am well pleased; hear Him. And when the disciples heard it, they fell on their faces, and were afraid. And Jesus came and touched them, and said, Arise, and be not afraid." Matthew 17:5, 6, 7.
 
 IT is exceedingly important to have clear evidences of the truth of our holy religion. Sometimes, I dare say, you have wished that God would speak out of Heaven in your hearing, or that He would work some extraordinary marvel before your eyes, that you might know beyond all question the truth of the Gospel of Jesus. This desire for signs and wonders is no new thing. Ah, my dear Friends, we know not what we ask, nor what we desire, for if such a voice were to come to us out of a bright cloud--we are made of the same flesh and blood as Peter, James and John, and it would, therefore, produce the same effect upon us as upon them--we would fall on our faces and be sorely afraid.

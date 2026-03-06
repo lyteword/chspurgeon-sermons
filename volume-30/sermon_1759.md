@@ -1,12 +1,5 @@
 # Sermon 1759 | The Spirit of Bondage and Adoption
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For you have not received the Spirit of bondage again to fear, but you ha ve received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit, Himself, bears witness with our spirit, that we are the children of God." Romans 8:15,16.
 
 THESE two verses are full of the word "spirit," and they are also full of spiritual truth. We have read in previous verses about the flesh and of the result that comes of minding it, namely, death. But now, in this verse, we get away from the flesh and think only of the work of the Holy Spirit upon our spirits--and of the blessed privilege which comes of it-- "that we should be called the sons of God." We cannot enter into this except by the power of the Holy Spirit, for the spiritual Truths of God must be spiritually discerned--our eyes need God's Light and our spirits need the Holy Spirit's quickening. We breathe our prayer to the Great Spirit that He would make us feel the full meaning of His Words.

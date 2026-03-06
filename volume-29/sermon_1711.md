@@ -1,12 +1,5 @@
 # Sermon 1711 | A Sermon to the Lord's Little Children
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 18, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I write unto you, little children, because your sins are forgiven you for His name's sake." 1 John 2:12.
 
 "I write to you, little children, because you know the Father." 1 John 2:13. (Revised Version).

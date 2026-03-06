@@ -1,12 +1,5 @@
 # Sermon 1720 | Christ in You
 
-
-DELIVERED ON LORDS-DAY MORNING, MAY 13, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Christ in you, the hope of glory." Colossians 1:27.
 
 THE Gospel is the grand secret--the mystery of mysteries! It was hidden from ages and from generations, but is now made manifest to the saints. To the mass of mankind it was utterly unknown and the chosen people, who saw something of it, only perceived it dimly through the smoke of sacrifices and the veil of types. It remained a mystery which wit could not guess nor invention unravel--and it would have forever have continued a secret had not God, in His infinite mercy, been pleased to reveal it by the Holy Spirit. In a still deeper sense it is even yet a hidden thing unless the Spirit of God has revealed it to us individually, for the revelation of the Gospel in the Word of God does not, of itself, instruct men unto eternal life. The light is clear enough, but it avails nothing till the eyes are opened. Each separate individual must have Christ revealed to him and in him by the work of the Holy Spirit, or else he will remain in darkness even in the midst of the Gospel day.

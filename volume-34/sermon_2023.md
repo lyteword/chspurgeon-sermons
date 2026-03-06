@@ -1,7 +1,5 @@
 # Sermon 2023 | The Blessing of Full Assurance
 
-
-> "These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God."'1 John 5:13.  
 > "These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God."'1 John 5:13.  
 
 JOHN wrote to believers'"These things have I written unto you that believe on the name of the Son of God." It is worthy of note that all the epistles are so written. They are not letters to everybody, they are letters to those who are called to be saints. It ought to strike some of you with awe when you open the Bible and think how large a part of it is not directed at you. You may read it, and God's Holy Spirit may graciously bless it to you, but it is not directed to you. You are reading another man's letter: thank God that you are permitted to read it, but long to be numbered with those to whom it is directed. Thank God much more if any part of it should be used of the Holy Ghost for your salvation. The fact that the Holy Spirit speaks to the churches and to believers in Christ should make you bow the knee and cry to God to put you among the children, that this Book may become your Book from beginning to end, that you may read its precious promises as made to you. This solemn thought may not have struck some of you: let it impress you now.

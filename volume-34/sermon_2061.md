@@ -1,8 +1,5 @@
 # Sermon 2061 | The Evidence of Our Lord's Wounds
 
-
-On Lord's-day Evening, December 2nd, 1877.
-
 "Then said he to Thomas, Reach hither thy finger, and behold my hands; and reach hither thy hand, and thrust it into my side: and be not faithless, but believing."'John 20:27.
 
 Among us at this day we have many persons who are like Thomas'dubious, demanding signs and tokens, suspicious, and ofttimes sad. I am not sure that there is not a slight touch of Thomas in most of us. There are times and seasons when the strong man fails, and when the firm believer has to pause a while, and say, "Is it so?" It may be that our meditation upon the text before us may be of service to those who are touched with the malady which afflicted Thomas.

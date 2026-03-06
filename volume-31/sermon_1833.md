@@ -1,12 +1,5 @@
 # Sermon 1833 | A Proclamation from the King of Kings
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON OCTOBER 16, 1884.
-
 "Go and proclaim these words toward the north, and say, Return, you backsliding Israel, says the Lord; and I will not cause My anger to fall upon you: for I am merciful, says the Lord, and I will not remain angry forever. Only acknowledge your iniquity, that you have transgressed against the Lord your God, and have scattered your ways to the strangers under every green tree, and you have not obeyed My voice, says the Lord." Jeremiah 3:12,13.
 
 BACKSLIDERS are very many. Departing from the living God is no strange thing. Every Church has to lament many that turn aside. In fact, it has become so common in many Churches, that they have not faith enough to hold to the Scriptural doctrine of the Perseverance of the Saints--as if the lack of perseverance in mere professors could alter the Truth of God that where the life and power of God are really in the soul, there it will abide and remain. Bitter are the disappointments which result from the apostasy of avowed disciples and the declension of true followers of the Lamb. We sow, but when we expect to reap, we fill not our bosoms with sheaves, for many of those who sprung up hastily from the stony ground are withered as soon as the sun has risen! The morning cloud charms us with the hope of rain, but it soon vanishes--the early dew gives us promise of moisture, but it is exhaled--and the earth is hot beneath our feet. Our hearts ache because of blighted hopes where we looked for blessed results.

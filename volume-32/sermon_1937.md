@@ -1,12 +1,5 @@
 # Sermon 1937 | A Mingled Strain
 
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Purge me with hyssop, and I shall be clean: wash me, and I shall be whiter than snow." Psalm 51:7.
 
 IN what state of heart should we come to the Communion Table? It is no light matter--in what manner shall we come before the Lord in so sacred an ordinance? By the very nature of the sacred supper we are taught that there should be a mixture of emotions. The bitter and the sweet, the joyful and the sorrowful are here intermingled. The Sacrifice of Christ for sin--is it more a subject of sorrow or of joy? Can we look to the Cross without mourning for sin? Can we look at it without rejoicing in pardon bought with blood? Is not the most suitable state of heart for coming to the Communion Table just this--mourning for our transgression and joy because of the great salvation? There is a double character about this holy rite. It is a festival of life and yet it is a memorial of death. Here is a cup--it is filled with wine. This surely betokens gladness. Listen to me! That wine is the symbol of blood! This, surely, betokens sorrow! In my hand is bread--bread to be eaten, bread which strengthens man's heart--shall we not eat bread with thankfulness? But that bread is broken, to represent a body afflicted with pain and anguish--there must be mourning on account of that agony! At the Paschal Supper, the lamb of the Lord's Passover had a special sweetness in it--yet the commandment expressly ran--"with bitter herbs they shall eat it." So is it at this table. Here we, with joy, commemorate the Lamb of God which takes away the sin of the world--but with deep sorrow we recall the sin which, though taken away, causes us, in the recollection of it, to repent with great bitterness of heart.

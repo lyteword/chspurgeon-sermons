@@ -1,6 +1,5 @@
 # Sermon 2141 | The Question of Questions
 
-
 > "Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God?"  
 > John 9:35.  
 

@@ -1,6 +1,5 @@
 # Sermon 2162 | And Why Not Me?
 
-
 > "Behold, there came a leper and worshipped Him, saying, Lord, if You will, You can make me clean. And Jesusput forth His hand and touched him, saying, I will, be you clean. And immediately his leprosy was cleansed."  
 > Matthew 8:2,3.  
 

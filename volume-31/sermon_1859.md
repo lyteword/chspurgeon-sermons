@@ -1,12 +1,5 @@
 # Sermon 1859 | The Cross Our Glory
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 13, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But God forbid that I should glory except in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world." Galatians 6:14.
 
 ALMOST all men have something in which to glory. Every bird has its own note of song. It is a poor heart that never rejoices. It is a dull packhorse that is altogether without bells. Men usually rejoice in something or other and many men so rejoice in that which they choose that they become boastful and full of vainglory. It is very sad that men should be ruined by their glory and yet, many are. Many glory in their shame and more glory in that which is mere emptiness. Some glory in their physical strength, in which an ox excels them, or in their gold, which is but thick clay, or in their gifts, which are but talents with which they are entrusted. The pounds entrusted to their stewardship are thought, by men, to belong to themselves and, therefore, they rob God of the glory of them. O my Hearers, hear the voice of Wisdom, which cries, "He that glories, let him glory only in the Lord." To live for personal glory is to be dead while we live! Be not so foolish as to perish for a bubble! Many a man has thrown his soul away for a little honor, or for the transient satisfaction of success in trifles. O men, your tendency is to glory in something--your wisdom will be to find a glory worthy of an immortal mind!

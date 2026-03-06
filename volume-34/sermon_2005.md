@@ -1,6 +1,5 @@
 # Sermon 2005 | The Hairs of Your Head Numbered
 
-
 > "But the very hairs of your head are all numbered."  
 > Matthew 10:30.  
 

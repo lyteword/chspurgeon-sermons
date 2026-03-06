@@ -1,7 +1,5 @@
 # Sermon 1862 | The True Tabernacle, and Its Glory of Grace and Peace
 
-
-> "And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth." John 1:14.  
 > "And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth." John 1:14.  
 
 "For the law was given by Moses, but grace and truth came by Jesus Christ." John 1: 17.

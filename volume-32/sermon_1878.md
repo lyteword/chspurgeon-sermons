@@ -1,12 +1,5 @@
 # Sermon 1878 | A TRAITOR SUSPECTED AND CONVICTED
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 10, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, AUGUST 16, 1885.
-
 "The carnal mind is enmity against God." Romans 8:7.
 
 MEN naturally mind the things of the flesh. This is as sad as if a seraph should rake upon a dunghill! It is not amazing that a brute beast cares for the flesh, for it is only flesh, but it is lamentable in the highest degree that man, in whom there is a principle infinitely superior to mere materialism, should, nevertheless, so generally give himself up to minding the things of the body--the things of time and earth.

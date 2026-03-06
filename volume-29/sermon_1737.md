@@ -1,12 +1,5 @@
 # Sermon 1737 | John's First Doxology
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
-
 "Unto Him that loved us, and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father; to Him be glory and dominion forever and ever. Amen." Revelation 1:5, 6
 
 JOHN had hardly begun to deliver his message to the seven Churches. He had hardly given his name and stated from whom the message came when he felt that he must lift up his heart in a joyful doxology! The very mention of the name of the Lord Jesus, "the faithful witness, and the first begotten of the dead, and the prince of the kings of the earth," fired his heart. He could not sit down coolly to write even what the Spirit of God dictated--he must rise; he must fall upon his knees--he must bless and magnify, and adore the Lord Jesus! This text is just the upward burst of a great geyser of devotion. John's spirit had been quiet for a while, but all of a sudden the stream of his love to Jesus leaps forth like a fountain, rising so high that it would seem to bedew Heaven, itself, with its sparkling column of crystal love!

@@ -1,6 +1,5 @@
 # Sermon 2171 | Runaway Jonah and the Convenient Ship
 
-
 > "But Jonah rose up to flee unto Tarshish from the presence of the Lord, and went down to Joppa; and he found a ship going to Tarshish."  
 > Jonah 1:3.  
 

@@ -1,12 +1,5 @@
 # Sermon 1851 | Ruth's Reward--or, Cheer for Converts
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 29, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord recompense your work, and a full reward be given you of the Lord God of Israel under whose wings you are come to trust." Ruth 2:12.
 
 THIS was the language of Boaz, a man of substance and of note in Bethlehem, to a poor stranger of whom he had heard that she had left her kindred and the idols of her nation, that she might become a worshipper of the living and true God. He acted a noble part when he cheered her and bade her be of good courage, now that she was casting in her lot with Naomi and the chosen nation. Observe that he saluted her with words of tender encouragement, for this is precisely what I want all the elder Christians among you to do to those who are the counterparts of Ruth. You who have long been Believers in the Lord Jesus, who have grown rich in experience, who know the love and faithfulness of our Covenant God and who are strong in the Lord and in the power of His might, I want you to make a point of looking out for the young converts and speaking goodly and comfortable words to them, whereby they may be cheered and strengthened. There is a text, a very short one, which I would like to often preach from in reference to those who are newly saved, and I would invite you to be continually practicing it. That text is, "Encourage him." So many throw cold water upon the aspirants after holiness that I would urge others of you to heartily cheer them. Where spiritual life is weak, it should be nurtured with affectionate care. We desire to cherish, not to censure. That the lambs may grow, they must be shepherded. That the tender babes in the household may become strong members of the Divine family, they must be nursed and fed. If Ruth is to be happy in the land of Israel, a Boaz must look after her and be her true friend. Let her nearest kinsmen be speedy in fulfilling this duty.

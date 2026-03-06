@@ -1,12 +1,5 @@
 # Sermon 1917 | In Christ No Condemnation
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 29, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "There is therefore now no condemnation to those who are in Christ Jesus, who walk not after the flesh, but after the Spirit." Romans 8:1.
 
 You are well aware, dear Friends, that the division into chapters has only been made for convenience sake and is not a matter of Inspired arrangement. I may add that it has been clumsily made and not with careful thoughtfulness, but as roughly as if a woodman had taken an axe and chopped the book to pieces in a hurry! It was a very unfortunate thing that the axe dropped down just here, so as to divide a passage which ought to have been kept entire. We once heard a friend say, "I have got out of the seventh of Romans into the eighth." Nonsense! There is no getting out of one into the other, for they are one. The field is not divided by hedge or ditch. I thank God with all my heart that since my conversion I have never known what it is to be out of the seventh of Romans, nor out of the eighth of Romans, either--the whole passage has been solid Truth of God to my experience. I have struggled against inward sin and rejoiced in complete justification at the same time.

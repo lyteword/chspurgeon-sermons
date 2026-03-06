@@ -1,12 +1,5 @@
 # Sermon 1770 | Recruits for King Jesus
 
-
-A SERMON PREACHED ON LORD'S-DAY EVENING, FEBRUARY 17, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there came of the children of Benjamin and Judah to the hold unto David. And David went out to meet them, and answered and said unto them, If you ha ve come peaceably unto me to help me, my heart shall be knit unto you: but if you have come to betray me to my enemies, seeing there is no wrong in myhands, the God of our fatherlook thereon, andrebuke it. Then the Spirit came upon Amasai, who was chief of the captains, and he said, 'Yours are we, David, and on your side, you son of Jesse: peace, peace be unto you, and peace be to your helpers; for your God helps you. Then David received them, and made them captains of the band." 1 Chronicles 12:16-18.
 
 AT this time David was in the hold--I suppose in the stronghold of Ziklag, which the king of the Philistines had given to him. It was in that fortress-town that he received a welcome addition to his band. David was an exile and it is not every man who cares to cast in his lot with a banished nobleman. He was outlawed and his sovereign would have slain him with his own hands if he had found opportunity--few care to stake their all with a man in such a condition. The many who were on Saul's side spoke very bitterly of David and, wishing to curry favor with the king, they slandered him to the blackest degree--few respectable people care to associate themselves with a person who is in ill-repute. Many to whom David had done no ill were eager to betray him and sell him into the hands of his enemy, for men sought their own gain and cared not whom they sold, so long as they clutched the reward--it was no small thing for a band of men to unite with a man upon whose head a price was set.

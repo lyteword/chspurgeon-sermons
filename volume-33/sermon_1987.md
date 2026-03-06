@@ -1,6 +1,5 @@
 # Sermon 1987 | "Behold the Lamb of God"
 
-
 > "The next day John saw Jesus coming toward him, and said, Behold! The Lamb of God who takes away the sin of the world."  
 > John 1:29.  
 

@@ -1,8 +1,5 @@
 # Sermon 1821 | Cords and Cart-Ropes
 
-
-On December 14th, 1884,
-
 "Woe unto them that draw iniquity with cords of vanity, and sin as it were with a cart rope." Isaiah 5:18.
 
 THE text begins with "Woe;" but when we get a woe in this book of blessings it is sent as a warning, that we may escape from woe. God's woes are better than the devil's welcomes. God always means man's good, and only sets ill before him that he may turn from the dangers of a mistaken way, and so may escape the ill which lies at the end of it. Think me not unkind at this time because my message sounds harshly, and has a note in it of sorrow rather than of joy. It may be most for your pleasure for ages to come, dear friends, to be for a while displeased. It may make the bells ring in your ears for ever if to-night, instead of the dulcet sound of the harp, you hear the shrill clarion startling you to thoughtfulness. Mayhap "Woe, woe, woe," though it should sound with a dreadful din in your ear, may be the means of leading you to seek and find your Savior, and then throughout eternity no woe shall ever come near to you. May the good Spirit of all grace put power into my warning, that you may profit by it.

@@ -1,6 +1,5 @@
 # Sermon 2027 | The Sluggard's Farm
 
-
 > "I went by the field of the slothful and by the vineyard of the man void of understanding. And, lo, it was all grown over with thorns, and nettles had covered the face thereof and the stone wall thereof was broken down. Then I saw and considered it well: I looked upon it and received instruction."  
 > Proverbs 24:30-32.  
 

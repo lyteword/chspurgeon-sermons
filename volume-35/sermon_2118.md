@@ -1,6 +1,5 @@
 # Sermon 2118 | The Planter of the Ear Must Hear
 
-
 > "He that planted the ear, shall He not hear? He that formed the eye, shall He not see?"  
 > Psalm 94:9  
 

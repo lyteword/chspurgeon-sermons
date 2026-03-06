@@ -1,6 +1,5 @@
 # Sermon 2030 | Moses: His Faith and Decision
 
-
 > "By faith Moses, when he was come to years, refused to be called the son of Pharaoh's daughter; choosing rather to suffer affliction with the people of God, than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompense of the reward."  
 > Hebrews 11:24-26  
 

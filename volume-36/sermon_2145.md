@@ -1,6 +1,5 @@
 # Sermon 2145 | Scriptural Salvation
 
-
 > "For the Scripture says, Whoever believes on Him shall not be ashamed."  
 > Romans 10:11.  
 

@@ -1,6 +1,5 @@
 # Sermon 2055 | The Trial of Your Faith
 
-
 > "The trial of your faith."  
 > 1 Peter 1:7.  
 

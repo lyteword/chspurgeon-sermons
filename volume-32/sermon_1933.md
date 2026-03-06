@@ -1,12 +1,5 @@
 # Sermon 1933 | "Your Rowers Have Brought You Into Great Waters"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 12, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 10 1885.
-
 "Your rowers have brought you into great waters." Ezekiel 27:26.
 
 THIS was spoken by the Prophet concerning Tyre, that great mercantile city where all the commerce of the East found its outlet towards the West. Tyre, when the Chaldeans invaded Palestine, had greatly rejoiced at the fall of Jerusalem. She said, "Aha, she is broken that was the gates of the people: I shall be replenished now she is laid waste." It was a cruel and selfish exultation. After a while the city in the sea came to feel the weight of the great oppressor's arm, for thus said the Lord, "I will bring upon Tyrus, Nebuchadnezzar, king of Babylon, a king of kings, from the north. He shall set engines of war against your walls and with his axes he shall break down your towers." For 13 years the city endured a siege under Nebuchadnezzar and it was concerning this calamity that the Prophet said, "Your rowers have brought you into great waters" The merchant princes of Tyre had so managed the affairs of the State that they brought the Tyrians into desperate straits. They had incited them to stand out against the great king and they discovered, in due time, that they were striving against a power too strong for them. Their policy had been a mistake. Comparing Tyre to one of its own galleys propelled with oars, the Prophet declares, "Your rowers have brought you into great waters."

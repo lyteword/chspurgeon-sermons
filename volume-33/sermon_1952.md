@@ -1,6 +1,5 @@
 # Sermon 1952 | The Holy Spirit--the Need of the Age
 
-
 > "O you that are named the House of Jacob, is the Spirit of the Lord straitened? are these His doings? Do not My words do good to him that walks uprightly?"  
 > Micah 2:7.  
 

@@ -1,7 +1,5 @@
 # Sermon 2078 | The Believing Thief
 
-
-> "And he said unto Jesus, Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise."'Luke 23:42-43.  
 > "And he said unto Jesus, Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise."'Luke 23:42-43.  
 
 SOME TIME AGO I preached upon the whole story of the dying thief. I do not propose to do the same to-day, but only to look at it from one particular point of view. The story of the salvation of the dying thief is a standing instance of the power of Christ to save, and of his abundant willingness to receive all that come to him, in whatever plight they may be. I cannot regard this act of grace as a solitary instance, any more than the salvation of Zacchaeus, the restoration of Peter, or the call of Saul, the persecutor. Every conversion is, in a sense, singular: no two are exactly alike, and yet any one conversion is a type of others. The case of the dying thief is much more similar to our conversion than it is dissimilar; in point of fact, his case may be regarded as typical, rather than as an extraordinary incident. So I shall use it at this time. May the Holy Spirit speak through it to the encouragement of those who are ready to despair!

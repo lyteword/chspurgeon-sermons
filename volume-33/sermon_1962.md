@@ -1,6 +1,5 @@
 # Sermon 1962 | The Friend of God
 
-
 > "You, Israel, are My servant, Jacob whom I have chosen, the seed of Abraham My friend."  
 > Isaiah 41:8.  
 

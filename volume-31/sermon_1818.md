@@ -1,6 +1,5 @@
 # Sermon 1818 | The Song of a City, and the Pearl of Peace
 
-
 > "Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee."  
 > Isaiah 26:3  
 

@@ -1,6 +1,5 @@
 # Sermon 2119 | Magdalene at the Sepulcher--an Instructive Scene
 
-
 > "Then the disciples went away again unto their own homes. But Mary stood without at the sepulcher weeping: and as she wept, she stooped do wn and looked into the sepulcher and saw two angels in white sitting, the one at the head and the other at the feet, where the Body of Jesus had lain. And they said unto her, Woman, why do you weep? She said unto them, Because they have taken away my Lord and I know not where they have laid Him. And when she had thus said, she turned herself back and saw Jesus standing and knew not that it was Jesus. Jesus said unto her, Woman, why do you weep? Whom do you seek? She, supposing Him to be the gardener, said unto Him, Sir, if you have borne Him, therefore, tell me where you have laid Him and I will take Him away. Jesus said unto her, Mary. She turned herself and said unto Him, Rabboni; which is to say, Master."  
 > John 20:10-16  
 

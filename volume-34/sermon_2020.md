@@ -1,6 +1,5 @@
 # Sermon 2020 | Is Anything Too Hard for the Lord?
 
-
 > "Then came the word of the Lord unto Jeremiah, saying, Behold, I am the Lord, the God of all flesh: is there anything too hard for Me?"  
 > Jeremiah 32:26,27.  
 

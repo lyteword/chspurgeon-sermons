@@ -1,6 +1,5 @@
 # Sermon 1975 | The Covenanter
 
-
 > "All the paths of the Lord are mercy and truth unto such as keep His Co venant and His testimonies."  
 > Psalm 25:10.  
 

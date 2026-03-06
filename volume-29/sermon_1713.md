@@ -1,12 +1,5 @@
 # Sermon 1713 | Other Sheep and One Flock
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And other sheep I ha ve which are not of this fold; them also I must bring, and they shall hear My voice and they shall be one fold and one shepherd (or more correctly one flock; one shepherd)." John 10:16.
 
 THIS verse is guarded before and behind by two notable statements. Before it we hear the Master say, "I lay down My life for the sheep," and immediately after it we meet with another grand sentence, "I lay down My life, that I might take it again." The first statement, "I lay down My life for the sheep" is the sheet anchor of our confidence when storms assail the vessel of the Church. The Lord Jesus has, by His death, proved His love to His people and His determination to save them is made clear by His laying down His life for them. Therefore doubt and fear should be banished and the very name of despair should be unknown among the Israel of God! Now are we sure of the love of the Son of God to His chosen flock, for we have an Infallible proof of it in the laying down of His life for them.

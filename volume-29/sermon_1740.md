@@ -1,12 +1,5 @@
 # Sermon 1740 | The Exeter-Hall Sermon to Young Men
 
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
-
 "O Lord, truly I am Your servant; I am Your servant, and the son of Your handmaid; You have loosed my bonds." Psalm 116:16.
 
 I HAVE been wondering whether I might correctly say that I would preach, tonight, as a young man to young men. It is precisely what I should like to do, but can I do it? You are young men, I see, to a very large extent, but I wonder whether I am a young man myself. I have two opinions upon it in my own mind. Sometimes I feel very old. When I look in the mirror and see the hairs that have turned white upon my head, I suspect that I cannot be a young man! When I feel weary with my work and worn with sickness, I am persuaded that years are having their effect upon me! Yet, when I recover from sickness I feel young again--and when cheerful spirits and vivacity return, I half hope that I may still be a young man. I must not, however, deceive myself, for when I come to calculate and tally all up, I confess that if youth is essential to membership with the Young Men's Christian Association, I could not expect to be voted in.

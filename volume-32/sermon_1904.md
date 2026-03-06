@@ -1,12 +1,5 @@
 # Sermon 1904 | The Personal Pentecost and the Glorious Hope
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 13, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And hope makes us not ashamed, because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us." Romans 5:5.
 
 PENTECOST is repeated in the heart of every Believer. Let me give you a little bit of historical analogy to illustrate the text. The Lord's disciples were made to sorrow at His Cross. Sore was the tribulation which came upon them as they thought upon His death and His burial in Joseph's sepulcher. But after a little patience and experience, their hope revived, for their Lord rose from the dead and they beheld Him ascending into Heaven. Their hopes were bright concerning their Lord who had gone into Glory and had left them a promise to come again and to make them takers of His victory. After that hope had been begotten in them, they were, in due time, made partakers of the Holy Spirit, whose Divine influence was shed abroad upon them so that they were filled with His power. Then were they made bold. They were not ashamed of their hope, but proclaimed it by the preaching of Peter and the rest of them. The Holy Spirit had visited them and, therefore, they fearlessly proclaimed to the world the Lord Jesus, their hope of Glory.

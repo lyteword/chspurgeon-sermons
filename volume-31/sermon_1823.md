@@ -1,12 +1,5 @@
 # Sermon 1823 | Peter's Blunder--a Lesson for Ourselves
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 22, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON JULY 3, 1884.
-
 "But Peter said, Not so, Lord; for I have never eaten anything that is common or unclean." Acts 10:14.
 
 "NOT SO, Lord." This is a very curious expression. I do not care how you turn it into English from the original, it is a very strange compound. If Peter had said, "Not so," there would have been a clear consistency in his language and tone. But "Not so, Lord," is an odd jumble of self-will and reverence, of pride and humility, of contradiction and devotion. Surely, when you say, "Not so," it ought not to be said to the Lord and if you say, "Lord," you ought not to put side by side with such an ascription the expression, "AOt so." Peter always was a blunderer in his early days and he had not grown out of his old habits of honest impetuosity. He meant well and his expression was not intended to convey all that we might easily make of it. At any rate, it is not for us to condemn him. Who are we that we should sit in judgment on a saint of God? Besides, we are not without fault, ourselves, in the matter of incorrect speech.

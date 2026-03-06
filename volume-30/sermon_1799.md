@@ -1,6 +1,5 @@
 # Sermon 1799 | Though He Were Dead
 
-
 Martha saith unto Him, I know that he shall rise again in the resurrection at the last day. Jesus said unto her, I am the resurrection, and the life: he that believeth in Me, though he were dead, yet shall he live: and whosoever liveth and believeth in Me shall never die. Believest thou this?'John 11:24-26.
 
 MARTHA is a very accurate type of a class of anxious believers. They do believe truly, but not with such confidence as to lay aside their care. They do not distrust the Lord, or question the truth of what He says, yet they puzzle their brain about How shall this thing be?' and so they miss the major part of the present comfort which the word of the Lord would minister to their hearts if they received it more simply. How? and why? belong unto the Lord. It is His business to arrange matters so as to fulfil His own promises. If we would sit at our Lord's feet with Mary, and consider what He has promised, we should choose a better part than if we ran about with Martha, crying, How can these things be?'

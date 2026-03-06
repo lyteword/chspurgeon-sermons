@@ -1,12 +1,5 @@
 # Sermon 1743 | A Loving Entreaty
 
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 7, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Put Me in remembrance: let us plead together: declare you, that you may bejustified.'" Isaiah 43:26.
 
 We shall mainly dwell upon the first invitation of the text--"Put Me in remembrance." If you will cast your eyes upon the Scripture, itself, you will be struck with its singular position--it makes a paradox of the most striking kind if you read it in connection with the preceding clause--"I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins. Put Me in remembrance." [Remind Me.] This looks like a contradiction, but, as a wise teacher will win attention by dark sayings, so does the Word of God abound in expressions by which thought is excited and the lesson is more deeply impressed upon the mind. Many are the paradoxes of the Prophets and of the Lord and Leader of all the Prophets. Who can read without attention two such sentences as these in succession--"I will not remember your sins," and, "Put me in remembrance"?

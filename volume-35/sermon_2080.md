@@ -1,6 +1,5 @@
 # Sermon 2080 | The Power of His Resurrection
 
-
 > "That I may know Him and the power of His resurrection."  
 > Philippians 3:10.  
 

@@ -1,6 +1,5 @@
 # Sermon 1941 | Grace For Communion
 
-
 > "Awake, O north wind, and come, you south; blow upon my garden, that the spices thereof may flow out. Let my Belo ved come into His garden and eat His pleasant fruits."  
 > Song of Solomon 4:16.  
 

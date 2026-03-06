@@ -1,18 +1,5 @@
 # Sermon 1778 | 6:10
 
-A Heavenly Pattern for Our Earthly Life
-
-A Sermon
-
-
-Preached on Wednesday Morning, April 30th, 1884, By
-
-H. SPURGEON,
-
-At Exeter-Hall
-
-Being the Annual Sermon of the Baptist Missionary Society.
-
 Thy will be done in earth, as it is in heaven.'Matthew 6:10.
 
 OUR Father's will shall certainly be done, for the Lord doeth according to his will in the army of heaven, and among the inhabitants of the earth.' Let us adoringly consent that it shall be so, desiring no alteration therein. That will' may cost us dear; yet let it never cross our wills: let our minds be wholly subjugated to the mind of God. That will' may bring us bereavement, sickness, and loss; but let us learn to say, It is the Lord: let him do what seemeth him good.' We should not only yield to the divine will, but acquiesce in it so as to rejoice in the tribulation which it ordains. This is a high attainment, but we set ourselves to reach it. He that taught us this prayer used it himself in the most unrestricted sense. When the bloody sweat stood on his face, and all the fear and trembling of a man in anguish were upon him, he did not dispute the decree of the Father, but bowed his head and cried, Nevertheless, not as I will, but as thou wilt.' When we are called to suffer bereavements personally, or when, as a holy brotherhood, we see our best men taken away, let us know that it is well, and say most sincerely, The will of the Lord be done.'

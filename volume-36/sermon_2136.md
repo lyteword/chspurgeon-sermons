@@ -1,6 +1,5 @@
 # Sermon 2136 | Possessing Possessions
 
-
 > "But upon Mount Zion shall be deliverance, and there shall be holiness; and the house of Jacob shall possess their possessions."  
 > Obadiah 1:17.  
 

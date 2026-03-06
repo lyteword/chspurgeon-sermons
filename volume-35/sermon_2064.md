@@ -1,6 +1,5 @@
 # Sermon 2064 | Essential Points In Prayer
 
-
 > "The Lord appeared to Solomon the second time, as He had appeared unto him at Gibeon. And the Lord said unto him, I have heard your prayer and your supplication, that you have made before Me: I have hallowed this house, which you have built, to put My name there forever. And My eyes and My heart shall be there perpetually."  
 > 1 Kings 9:2,3.  
 

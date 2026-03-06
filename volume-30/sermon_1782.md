@@ -1,12 +1,5 @@
 # Sermon 1782 | The First Fruit of the Spirit
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But the fruit of the Spirit is love." Galatians 5:22.
 
 THE worst enemy we have is the flesh. Augustine used to frequently pray, "Lord, deliver me from that evil man, myself." All the fire which the devil can bring from Hell could do us little harm if we had not so much fuel in our nature. It is the powder in the magazine of the old man which is our perpetual danger. When we are guarding against foes outside, we must not forget to be continually on our watchtower against the foe of foes within. "The flesh lusts against the Spirit." On the other hand, our best Friend, who loves us better than we love ourselves, is the Holy Spirit. We are shockingly forgetful of the Holy Spirit and, therein, it is to be feared that we greatly grieve Him. Yet we are immeasurably indebted to Him--in fact, we owe our spiritual existence to His Divine Power.

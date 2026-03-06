@@ -1,6 +1,5 @@
 # Sermon 1795 | Pleading and Encouragement
 
-
 "For I have no pleasure in the death of him that dieth, saith the Lord God: wherefore turn yourselves, and live ye." Ezekiel 18:32.
 
 "As I live, saith the Lord God, I have no pleasure in the death of the wicked: but that the wicked turn from his way and live: turn ye, turn ye from your evil ways for why will ye die, O house of Israel?" Ezekiel 33:11.

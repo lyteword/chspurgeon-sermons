@@ -1,6 +1,5 @@
 # Sermon 2179 | God Fighting Sin
 
-
 > "But they rebelled, and vexed His Holy Spirit; therefore He was turned to be their enemy, and He fought against them."  
 > Isaiah 63:10.  
 

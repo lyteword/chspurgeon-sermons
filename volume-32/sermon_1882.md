@@ -1,15 +1,6 @@
 # Sermon 1882 | Retrospect--"The Lord Has Blessed"
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Inasmuch as the Lord has blessed me until now." Joshua 17:14.
-
-THE PASTOR'S RETURN. THREE SPECIALLY- SELECTED SERMONS TO HIS CHURCH, CONGREGATION, READERS AND FRIENDS, CONSISTING OF
 
 
 IT is not an easy task to divide land among different claimants. Joshua divided Canaan with strict impartiality. He was a man of God and he was also shrewdly wise, as you may gather from many of his speeches. But, for all that, he could not satisfy everybody. He who would please all attempts the impossiblel God Himself is quarreled with. If it is the design of Providence to please men, it is a melancholy failure. Do we not find men everywhere dissatisfied with their portions? This man would like his lot if it were not where it is and that man would be perfectly satisfied if he had a little more. One would be contented with what he has if he could always keep it, while another would be more pleased if life could be shortened. There is no pleasing men! We are like the sons of Joseph in the chapter before us, ready to complain of our inheritance. It should not be so. We who have pined in the wilderness of sin should rejoice that we have entered the land of promise and we ought to be glad to have a portion among the people of the Lord. Contentment should be natural to those who are born of the Spirit of God, yes, we ought to go beyond contentment and cry, "Blessed be the Lord, who daily loads us with benefits."

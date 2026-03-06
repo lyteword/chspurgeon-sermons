@@ -1,12 +1,5 @@
 # Sermon 1840 | The Bond of the Covenant
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 10, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I will bring you out from the people, and will gather you out of the countries where you are scattered, with a mighty hand, and with an outstretched arm, and with fury poured out. And I will bring you into the wilderness of the people, and there will I plead with you face to face. Like as I pleaded with your fathers in the wilderness of the land of Egypt, so willIplead with you, says the Lord God. And I will cause you topass under the rod, and I will bring you into the bond of the Covenant: And I will purge out from among you the rebels, and them that transgress against Me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and you shall know that I am the Lord." Ezekiel 20:34-38.
 
 THIS striking utterance was given forth by that renowned Seer, Ezekiel, at the time when the Israelites, scattered in every country, had begun to forget their nationality. They judged it prudent and wise, as much as possible, to disguise their distinctive character and melt their race into the Babylonian or Chaldean--and become like the heathen. But God, who chose His people of old, would not have it so, and He interposed with this striking passage--"And that which comes into your mind shall not be at all, that you say, we will be as the heathen, as the families of the countries, to serve wood and stone." The Lord tells them that He had them for a people and He meant to hold them for a people. Whether they delighted in it or not, He would not let them go! He pronounced a solemn oath concerning them--"As I live, says the Lord God, surely with a mighty hand, and with an outstretched arm, and with fury poured out, will I rule over you."

@@ -1,12 +1,5 @@
 # Sermon 1756 | Renewing Strength
 
-
-SUITABLE FOR THE CLOSE OF THE YEAR, DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They that wait upon the Lord shall renew their strength." Isaiah 40:31.
 
 HUMAN strength is of many kinds, but in any form it will spend itself in due time. God can lend to men immense physical force, but though a man had the strength of a lion and an ox combined, he would one day fail. The force of flesh must fade like the grass to which it is likened. Samson sometimes becomes exhausted and he is likely to die of thirst, though he has slain a thousand men! Yes, more, he must ultimately die and his mighty and tremendous muscles must yield to the worm and return to the dust of death. Since even granite and iron yield to constant wear and tear, assuredly man's frail body cannot long be a thing of strength--

@@ -1,6 +1,5 @@
 # Sermon 2063 | The Filling of Empty Vessels
 
-
 > "Even empty vessels; borrow not a few."  
 > 2 Kings 4:3.  
 

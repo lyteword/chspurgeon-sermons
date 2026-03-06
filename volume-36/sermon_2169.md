@@ -1,6 +1,5 @@
 # Sermon 2169 | The Man Who Shall Never See Death
 
-
 > "Verily, verily, Isay unto you, If a man keep My saying, he shall never see death. Then said the Jews unto Him, Now we know that You have a devil. Abraham is dead, and the Prophets, and You say, If a man keep My saying, he shall never taste of death. Are You greater than our father Abraham, which is dead? and the Prophets are dead: whom make You Yourself"  
 > John 8:51-53.  
 

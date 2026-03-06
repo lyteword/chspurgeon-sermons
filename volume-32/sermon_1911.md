@@ -1,12 +1,5 @@
 # Sermon 1911 | Hideous Discovery
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 25, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said, That which comes out of the man, that defiles the man. For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders, thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness: all these evil things come from within and defile the man." Mark 7:20-23.
 
 How weary the Savior must have been of the idle prattle of the scribes and Pharisees! They are forever talking about washing hands before meals and washing pots and cups--and He is all the while occupied with the great griefs and sins of men and how He can save them from the wrath to come. He must have felt as some true physician feels who looks upon a patient, marks the serious nature of the sickness and plans a remedy--while some quack is boasting his nostrums or performing ridiculous signs and passes over the dying man. To serious compassion, imposture is provoking and sincere truthfulness is grieved by the mockeries of pretense. The dear Savior, knowing the Truth about the whole thing and solemnly concerned about it, is pained with the talk of these pretenders of learning and religion who, knowing nothing at all about the real mischief, professed to purge away defilement by the washing of water and outward ceremonies! Truly, I think every spiritual man must have a feeling of disgust, every now and then, as in these days he reads dissertations upon the cut of a priestly garment or the positioning of an altar!

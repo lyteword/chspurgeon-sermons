@@ -1,12 +1,5 @@
 # Sermon 1779 | Grappling Irons
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Quicken me after Your loving kindness; so shall I keep the testimony of Your mouth." Psalm 119:88.
 
 When David wrote this part of the Psalm, he was evidently beset by many enemies who sought to destroy him. And it is exceedingly important to note what part of himself he guarded with the most care. Which part of his nature did he regard as the most vital? Where did he hold the shield that he might be screened from the darts of the foe? We observe that his prayer is very little about his body or his temporal interests. Like other men, he desired to be preserved in life and kept in prosperity, but his main prayer is not about these matters. Evidently his chief thought is concerning his soul, his character, his adherence to God's Word, his steadfastness in the faith.

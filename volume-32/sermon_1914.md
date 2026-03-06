@@ -1,12 +1,5 @@
 # Sermon 1914 | Secret Drawings Graciously Explained
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord has appeared of old unto me, saying, Yes, Ihave loved you with an everlasting love: therefore with loving kindness have Idrawn you." Jeremiah 31:3.
 
 THE dread of Divine Justice has often driven men to seek mercy. Many have been caught in the whirlwind of wrath and, in their dismay, they have fled for refuge to that Man who is a covert from the tempest. Hence the Lord does not decline to work upon the minds of the guilty by motives drawn from fear. Notice the 23rd and 24th verses of the previous chapter--"Behold, the whirlwind of the Lord goes forth with fury, a continuing whirlwind: it shall fall with pain upon the head of the wicked. The fierce anger of the Lord shall not return until He has done it, and until He has performed the intents of His heart." This is by no means a solitary passage. Holy Scripture is strewn with solemn admonitions to flee from the wrath to come. Our dear Redeemer, whose lips are as lilies dropping sweet-smelling myrrh, in great tenderness of heart warned men of the sure result of their sins and none used stronger or more alarming language than He did concerning the future of ungodly men.

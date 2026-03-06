@@ -1,12 +1,5 @@
 # Sermon 1846 | The Purging of the Conscience
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 21, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?" Hebrews 9:13,14.
 
 

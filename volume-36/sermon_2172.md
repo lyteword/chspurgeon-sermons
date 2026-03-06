@@ -1,6 +1,5 @@
 # Sermon 2172 | Patient Job and the Baffled Enemy
 
-
 > "In all this Job sinned not, nor charged God foolishly."  
 > Job 1:22.  
 

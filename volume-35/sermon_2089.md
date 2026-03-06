@@ -1,6 +1,5 @@
 # Sermon 2089 | Profitable Mixture
 
-
 > "For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it."  
 > Hebrews 4:2.  
 

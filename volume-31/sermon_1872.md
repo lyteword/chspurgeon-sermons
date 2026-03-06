@@ -1,12 +1,5 @@
 # Sermon 1872 | My Comfort In Affliction
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON JULY 7, 1881.
-
 "This is my comfort in my affliction, for Your Word has quickened me." Psalm 119:50.
 
 IT is almost needless for me to say that, in some respects, the same events happen unto all men alike--in the matter of afflictions it is certainly so. None of us can expect to escape trial. If you are ungodly, "many sorrows shall be to the wicked." If you are godly, "many are the afflictions of the righteous." If you walk in the ways of holiness, you shall find that there are stumbling blocks cast in the way by the enemy. If you walk in the ways of unrighteousness, you shall be taken in snares and held there even unto death. There is no escaping trouble! We are born to it as the sparks fly upward. When we are born the second time, though we inherit innumerable mercies, we are certainly born to another set of troubles, for we enter upon spiritual trials, spiritual conflicts, spiritual pains and so forth--and thus we get a double set of distresses, as well as twofold mercies.

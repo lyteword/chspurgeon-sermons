@@ -1,6 +1,5 @@
 # Sermon 1843 | A Question for a Questioner
 
-
 > "Hath God forgotten to be gracious?"  
 > Psalm 77:9.  
 

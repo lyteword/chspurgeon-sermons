@@ -1,12 +1,5 @@
 # Sermon 1811 | The Road to Honor
 
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, OCTOBER 12, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Those who honor Me I will honor, and those who despise Me shall be lightly esteemed." 1 Samuel 2:30.
 
 OUR chickens generally come home to roost. Our thoughts of other men become other men's thoughts of us. According as we measure out to our fellows, so do they measure back into our bosoms, for good or for evil. So especially, in reference to the Lord, Himself, the God of Justice sooner or later causes a man to reap his own sowing and gather his own scattering. See how the Lord keeps touch with His friends and foes and pays them in their own coin--"Those who honor Me I will honor, and those who despise Me shall be lightly esteemed." A man's life is often its own echo. He sinned and he suffered after the likeness of his sin--you may see the sin in the punishment--as you see, today the footprint of the Egyptian dog in the brick which he trod upon when it was yet soft clay. The man sinned again, for it is the nature of sin to repeat itself and grow into habit and, behold, another sorrow was born in the likeness of that other sin! Thus the man lived in the present and formed his future life by one and the same act. He spoke and the echoes spoke to him in the years following. So does life repeat itself. So does the seed develop the flower and the flower again produce the seed. It is an endless chain, for the thing that has been, is the thing which shall be! A man may live to see a grim procession of all his old sins marching past him, robed in the sackcloth and ashes wherein Justice dooms them to be arrayed.

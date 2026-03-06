@@ -1,6 +1,5 @@
 # Sermon 1971 | The Blood Shed For Many
 
-
 > "For this is My blood of the new testament, which is shed for many for the remission of sins."  
 > Matthew 26:28.  
 

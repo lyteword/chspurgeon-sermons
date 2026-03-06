@@ -1,12 +1,5 @@
 # Sermon 1871 | Love's Transformations--a Communion Meditation
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SEPTEMBER 4, 1881.
-
 "If you loved Me, you would rejoice because I said, I go unto the Father." John 14:28.
 
 THE loving Jesus saw a shade of sadness fall upon the faces of the 12 while He talked to them of His departure. Though He was, Himself, to die, with His usual self-forgetfulness He only thought of them and He desired to comfort them--to comfort them about the present sorrow of His departure. See how skillfully, how wisely He drew upon their love for their comfort. The most common and usual source of comfort is Christ's love to us, but in this instance the most applicable and the most influential source of comfort was their love to Him. He said, therefore, to them, "If you loved Me, you would rejoice because I said, I go unto the Father." It was well and wisely spoken, for He touched them upon a point in which they were very tender--if anything could move them to comfort, it would be His appeal to their loyal love. He had appealed to that, before, when He said, "If you love Me, keep My commandments," but now, in softer, sweeter, more tender tones, He seems to say, "If you love Me, cease your sorrow and begin to rejoice."

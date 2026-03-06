@@ -1,6 +1,5 @@
 # Sermon 2176 | The Lord No More Angry with His People
 
-
 > "For this is as the waters of Noah unto Me: for as I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you."  
 > Isaiah 54:9.  
 

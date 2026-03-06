@@ -1,6 +1,5 @@
 # Sermon 2096 | The Marriage of the Lamb
 
-
 > "Let us be glad and rejoice and give honor to Him: for the marriage of the Lamb is come and His wife has made herself ready. And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints."  
 > Revelation 19:7,8.  
 

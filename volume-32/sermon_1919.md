@@ -1,12 +1,5 @@
 # Sermon 1919 | The Very Bold Prophecy
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I was sought by those who did not ask for Me; I was found by those who did notseek Me: I said, Behold Me, behold Me, to a nation that was not called by My name" Isaiah 65:1.
 
 this is the passage which was quoted by the Apostle Paul in the 10th chapter of his Epistle to the Romans. At the 20th verse of that chapter he says--"Isaiah is very bold, and says, I was found of them that sought Me not; I was made manifest unto them that asked not after Me. But to Israel He says, All day long I have stretched forth My hands unto a disobedient and gainsaying people." The Apostle followed the Septuagint translation, but altered the position of the clauses.

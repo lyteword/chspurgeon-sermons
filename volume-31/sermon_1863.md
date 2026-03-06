@@ -1,12 +1,5 @@
 # Sermon 1863 | Departed Saints Yet Living
 
-
-SUGGESTED BY THE DECEASE OF THE EARL OF SHAFTESBURY.
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 4, 1885, BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But even Moses showed in the burning bush passage that the dead are raised, when he called the Lord, 'the God of Abraham, the God of Isaac, and the God of Jacob.' For He is not the God of the dead but of the living, for all live to Him." Luke 20:37,38.
 
 DURING the past week, the Church of God and the world at large have sustained a very serious loss. In the taking home to Himself by our gracious lord, the Earl of Shaftesbury, we have, in my judgement, lost the best man of the age. I do not know whom I should place second, but I certainly should put him first--far beyond all other servants of God within my knowledge--for usefulness and influence. He was a man most true in his personal piety, as I know from having enjoyed his private friendship. He was a man most firm in his faith in the Gospel of our Lord Jesus Christ; a man intensely active in the cause of God and the Truth of God. Take him whichever way you please, he was admirable. He was faithful to God in all His house, fulfilling both the first and second commands of the Law in fervent love to God and hearty love to man. He occupied his high position with singleness of purpose and immovable steadfastness--where shall we find his equal? If it is not possible that he was absolutely perfect, it is equally impossible for me to mention a single fault, for I saw none. He exhibited Scriptural perfection, inasmuch as he was sincere, true and consecrated.

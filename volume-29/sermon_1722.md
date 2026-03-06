@@ -1,12 +1,5 @@
 # Sermon 1722 | The First Setting Up of the Bronze Serpent
 
-
-DELIVERED ON THURSDAY EVENING, MAY 10, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they journeyed from Mount Hor by the way of the Red Sea, to compass the land of Edom: and the soul of the people was much discouraged because of the way. And the people spoke against God, and against Moses, 'Why ha ve you brought us up out of Egypt to die in the wilderness? For there is no bread, neither is there any water; and our soul loathes this light bread.' And the Lord sent fiery serpents among the people, and they bit the people; and many people of Israel died. Therefore the people came to Moses and said, 'We have sinned, for we have spoken against the Lord, and against you; pray unto the Lord, that He take away the serpents from us.' And Moses prayed for the people. And the Lord said unto Moses, 'Make you a fiery serpent, and set it upon a pole: and it shall come topass, that everyone thatis bitten, when he looks upon it, shall live.' And Moses made a serpent of brass, and putit upon a pole, and it came topass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived." Numbers 21:4-9.
 
 I HAVE frequently expounded to you the type of the bronze serpent as our Lord interprets it in the third of John. I thought it meet, tonight, to take that type in its connection and look at the original circumstances which led to the setting of it up--for while the general doctrine of looking for salvation to Christ as the bronze serpent is always to be preached and is most usefully set forth in the midst of the unconverted--yet I take it that its original institution teaches us much which ought not to be overlooked. It is very clear that this type has its first voice to the people of God, for it was among Israel--among the nominal people of God--that this bronze serpent was first needed and first set up. And while the instruction which it gives is wide as the universe, for whoever looks shall live, nevertheless it has an inner circle to which it, first of all, addresses itself--the professed members of the Church of God.

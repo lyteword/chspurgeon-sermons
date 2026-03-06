@@ -1,6 +1,5 @@
 # Sermon 2015 | The Rent Veil
 
-
 Jesus, when he had cried again with a loud voice, yielded up the ghost. And, behold, the veil of the temple was rent in twain from the top to the bottom'Matthew 27:50-51.
 
 Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which be hath consecrated for us, through the, veil, that is to say, his flesh'Hebrews 10:19-20.

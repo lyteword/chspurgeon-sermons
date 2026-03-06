@@ -1,6 +1,5 @@
 # Sermon 2077 | The Gospel of the Glory of Christ
 
-
 > "The light of the glorious Gospel of Christ."  
 > 2 Corinthians 4:4  
 

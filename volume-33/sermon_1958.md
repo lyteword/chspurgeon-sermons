@@ -1,6 +1,5 @@
 # Sermon 1958 | The First Appearance of the Risen Lord to the Eleven
 
-
 > "And as they thus spoke, Jesus, Himself, stood in the midst of them and said unto them, Peace be unto you. But they were terrified and frightened, and supposed that they had seen a spirit. And He said unto them, Why are you troubled? And why do thoughts arise in your hearts? Behold My hands and My feet, that it is I, Myself: handle Me and see, for a spirit has not flesh and bones as you see I have. And when He had thus spoken, He showed them His hands and His feet. But while they still did not believe for joy, and wondered, He said unto them, Have you any food here? And they gave Him a piece of a broiled fish, and some honeycomb. And He took it and ate in their presence. And He said unto them, These are the words which I spoke unto you while I was yet with you, that all things must be fulfilled, which were written in the Law of Moses, and in the Prophets, and in the Psalms, concerning Me."  
 > Luke 24:36-44.  
 

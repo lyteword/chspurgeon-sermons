@@ -1,6 +1,5 @@
 # Sermon 2062 | Shoes of Iron, and Strength Sufficient: A New Year's Promise
 
-
 > "And of Asher he said, Let Asher be blessed with children; let him be acceptable to his brethren, and let him dip his foot in oil. Thy shoes shall be iron and brass; and as thy days, so shall thy strength be."  
 > Deuteronomy 33:24-25.  
 

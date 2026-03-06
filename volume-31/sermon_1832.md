@@ -1,12 +1,5 @@
 # Sermon 1832 | Elijah's Plea
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON NOVEMBER 9, 1884.
-
 "Let it be known that I have done all these things at Your word." 1Kings 18:36.
 
 THE acts of Elijah were very singular. It had not been known, from the foundations of the earth, that a man could shut up the doors of the rain for the space of three years. Yet Elijah suddenly leaped upon the scene, announced the judgment of the Lord and then disappeared for a time. When he reappears, at the bidding of God, he orders Ahab to gather the priests of Baal and to put to the test the question as to whether Baal or Jehovah was, indeed, God. Bullocks shall be slain and laid upon the wood without fire--and the God who shall answer by fire shall be determined to be the one living and true God, the God of Israel. We might question within ourselves what right the Prophet had to restrain the clouds, or to put God's honor under test. Suppose the Lord had not willed to answer him by fire? Had he any right to make the Glory of God hang upon such terms as he proposed?

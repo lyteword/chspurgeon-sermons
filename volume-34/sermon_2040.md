@@ -1,6 +1,5 @@
 # Sermon 2040 | Sown Among Thorns
 
-
 > "And some fell among thorns; and the thorns sprung up, and choked them"'Matthew 13:7.  
 > "And some fell among thorns; and the thorns sprung up, and choked them"'Matthew 13:7.  
 

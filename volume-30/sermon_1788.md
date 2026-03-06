@@ -1,12 +1,5 @@
 # Sermon 1788 | The Proof of Our Ministry
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 29, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Since you seek a proof of Christ speaking in me, who is not weak towardsyou, butis mighty in you. For though He was crucified in weakness, yet He lives by the power of God. For we, also, are weak in Him, but we shall live with Him by the power of God toward you. Examine yourselves, as to whether you are in the faith. Test yourselves. Do you not know, yourselves, that Jesus Christ is in you--unless you are reprobates?" 2 Corinthians 13:3,4.
 
 The Apostle had much joy in being the founder, the father and the fosterer of so many Churches, but this joy brought with it constant and heavy trial. Care pressed heavily upon him, for he mentions it as the crown and crush of all his burdens--"That which comes upon me daily, the care of all the Churches." He was not simply as a father among them, but he was as a nurse, continually on the watch and, in all tenderness, anxious for her little ones. He was deeply grieved when he saw anything wrong, lest he should have labored in vain, and should see any perish who appeared to be hopeful converts. He always had in his mind's eye the account which he would have to give at the last--and his prayer was that he might render that account with joy and not with grief, for he adds, "That is unprofitable for you." His whole soul went after the people of his charge and his heart sank within him when he observed prominent sin among them.

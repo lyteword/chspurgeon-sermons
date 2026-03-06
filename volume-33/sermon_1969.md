@@ -1,6 +1,5 @@
 # Sermon 1969 | Pleading Prayer
 
-
 > "Remember the Word unto Your servant upon which You have caused me to hope."  
 > Psalm 119:49.  
 

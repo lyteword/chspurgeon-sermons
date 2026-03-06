@@ -1,12 +1,5 @@
 # Sermon 1764 | The Rocky Fortress and Its Inhabitant
 
-
-A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 3, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He who walks righteously and speaks uprightly; he that despises the gain of oppressions, that shakes his hands from holding of bribes, that stops his ears from hearing of blood, and shuts his eyes from seeing evil, he shall dwell on high: his place of defense shall be the munitions of rocks: bread shall be given him; his waters shall be sure." Isaiah 33:15,16.
 
 THERE were terrible times in Jerusalem in the days of Hezekiah. The Assyrian power was exceedingly formidable and it was ferocious to the last degree. Woe to the unhappy land which fell under the power of this spoiler! Assyria knew not the meaning of "mercy." It came down "like a wolf on the fold," tearing and devouring without pity. The armies of Sennacherib were ravaging the kingdom of Judah and they had brought it into such a state that the Prophet cried, "The earth mourns and languishes: Lebanon is ashamed and hewn down: Sharon is like a wilderness and Bashan and Carmel shake off their fruits." Before the invaders the land was a garden and behind them it was a desolate wilderness.

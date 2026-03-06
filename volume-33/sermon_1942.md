@@ -1,6 +1,5 @@
 # Sermon 1942 | Salt For Sacrifice
 
-
 > "And every oblation of your meat offering shall you season with salt; neither shall you suffer the salt of the Covenant of your God to be lacking from your meat offering: with all your offerings you shall offer salt."  
 > Leviticus 2:13.  
 

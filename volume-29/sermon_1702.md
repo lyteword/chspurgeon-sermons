@@ -1,12 +1,5 @@
 # Sermon 1702 | On Laying Foundations
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 21, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And why do you call Me, Lord, Lord, and not do the things which I say? Whoever comes to Me, and hears My sayings, and does them, I will show you whom he is like: he is like a man which built a house, and dug deep, and laid the foundation on a rock: and when the flood arose, the stream beat vehemently upon that house, and could not shake it: for it was founded upon a rock. But he that hears, and does not, is like a man that without a foundation built a house upon the earth; against which the stream did beat vehemently, and immediately it fell; and the ruin of that house was great." Luke 6:46-49.
 
 THESE parables describe two classes of hearers, but they say nothing of those who are not hearers. Their position and prospects we must infer from what is said of hearers. Our Lord Jesus Christ has come into the world to tell us of the Father's love. And never man spoke as He spoke and yet there are many who refuse to hear Him. I do not mean those who are far away, to whom the name of Jesus is well-near unknown, but I mean persons in this land and especially in this great and highly-favored city who willfully refuse to hear Him whom God has anointed to bring tidings of salvation! Our Lord Jesus is proclaimed, I was about to say, upon the housetops in this city, for even in their music halls and theaters, Christ is preached to the multitude! And at the corners of our streets His banner is lifted up--and yet there are tens of thousands to whom the preaching of the Gospel is as music in the ears of a corpse!

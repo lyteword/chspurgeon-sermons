@@ -1,6 +1,5 @@
 # Sermon 2059 | The Miracles of Our Lord's Death
 
-
 > "Jesus, when He had cried again with a loud voice, yielded up the ghost. And, behold, the veil of the temple was rent in two from the top to the bottom. And the earth did quake and the rocks rent; and the gra ves were opened. And many bodies of the saints which slept, arose and came out of the graves after His resurrection and went into the holy city and appeared unto many."  
 > Matthew 27:50-53.  
 

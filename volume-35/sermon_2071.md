@@ -1,6 +1,5 @@
 # Sermon 2071 | Trembling at the Word of the Lord
 
-
 > "To this man will I look, even to him that is poor and of a contrite spirit and trembles at My Word."  
 > Isaiah 66:2.  
 

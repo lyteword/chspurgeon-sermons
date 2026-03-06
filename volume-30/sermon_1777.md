@@ -1,12 +1,5 @@
 # Sermon 1777 | Esther's Exaltation--or, Who Knows?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then Mordecai told them to answer Esther, "Do not thinkin your heart that you will escape in the king's palace, more than all the Jews. For if you altogether hold your peace at this time, then shall there enlargement and deliverance arise to the Jews from another place, but you and your father's house shall be destroyed: and who knows whether you are come to the kingdom for such a time as this?" Esther 4:13,14.
 
 THE appeal of Mordecai in his pressing time of distress was to one single person, namely, to Esther. I believe that I shall do better this morning by making my sermon an address to individuals than by speaking of nations or Churches. I assuredly believe that England has been raised up as a nation and brought to her present unique position that she may be the means of spreading the Gospel throughout all the nations of the earth. I judge that God has blessed the two great nations of the Anglo-Saxon race--England and the United States--and given them pre-eminence in commerce and in liberty on purpose, that in such a time as this they may spread abroad the knowledge of the Glory of God in the face of Jesus Christ. Woe to these nations if they fail to fulfill their solemn obligations! If, being raised up for a purpose, they refuse to perform it, they shall melt away. If, being armed and carrying bows, they turn back in the day of battle, both empires will perish as surely as did the power of Macedon and the dominion of Rome. We ought to be very careful as a people to act upon the rule of righteousness and the principles of peace, for any other conduct is inconsistent with our high calling. We are entrusted with great opportunities--if we do not rightly use them, the New Zealander of Macaulay may yet survey the ruins of this empire city.

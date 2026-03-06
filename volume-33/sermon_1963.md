@@ -1,6 +1,5 @@
 # Sermon 1963 | The Search For Faith
 
-
 > "Nevertheless, when the Son of Man comes, will He find faith on the earth?"  
 > Luke 18:8.  
 

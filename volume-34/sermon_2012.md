@@ -1,6 +1,5 @@
 # Sermon 2012 | Grace Abounding Over Abounding Sin
 
-
 > "Moreover the Law entered, that the offense might abound. But where sin abounded, grace did much more abound."  
 > Romans 5:20.  
 

@@ -1,6 +1,5 @@
 # Sermon 2174 | Fever and Its Cure
 
-
 > "And He arose out of the synagogue, and entered into Simon's house. And Simon's wife's mother was taken with a great fever, and they besought Him for her. And He stood over her, and rebuked the fever; and it left her: and immediately she arose and ministered unto them."  
 > Luke 4:38,39.  
 

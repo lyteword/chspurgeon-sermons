@@ -1,6 +1,5 @@
 # Sermon 1948 | The Hedge of Thorns and the Plain Way
 
-
 > "The way of the slothful man is as a hedge of thorns: but the way of the righteous is made plain."  
 > Proverbs 15:19.  
 

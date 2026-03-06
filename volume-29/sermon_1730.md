@@ -1,12 +1,5 @@
 # Sermon 1730 | A Cure For Unsavory Meats--or, Salt for the White of an Egg
 
-
-DELIVERED ON THURSDAY EVENING, JULY 5, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Can that which is unsavory be eaten without salt? Or is there any taste in the white of an egg?" Job 6:6.
 
 THIS is a question which Job asked of his friends who turned out to be so unfriendly. Thus he battles with those "miserable comforters" who inflamed his wounds by pouring in salt and vinegar instead of oil and wine. The first of them had just opened fire upon him and Job, by this question, was firing a return shot. He wanted the three stern watchers to understand that he did not complain without cause. If he had spoken bitterly, it was because he suffered grievously. He was in great bodily pain; he was enduring great mental depression and, at the same time, he had been smitten with poverty and bereavement. He had, therefore, reason for his sorrow. He had no comforts left and every arrow of grief was sticking in his flesh. If he groaned, he had reason to groan.

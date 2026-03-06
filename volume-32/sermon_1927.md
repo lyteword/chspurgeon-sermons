@@ -1,12 +1,5 @@
 # Sermon 1927 | Our Sympathizing High Priest
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 31, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who in the days of His flesh, when He had offered up prayers and supplication, with strong crying and tears unto Him that was able to sa ve Him from death, and was heard in that He feared; though He were a Son, yet He learned obedience by the things which He suffered and, being made perfect, He became the Author of eternal salvation unto all who obey Him, called by God as High Priest after the order of Melchisedec." Hebrews 5:7-10.
 
 THE Holy Spirit, in this chapter, reminds us that two things were necessary in a High Priest. First, he must be suitable for the men for whom he stood and next, he must be acceptable with God. "Every High Priest taken from among men is ordained for men in things pertaining to God." He must be fit from both points of view, both man-ward and God-ward. Our Lord Jesus Christ was ordained of God from of old and did not, of Himself, assume the position of High Priest. The Prophets spoke of Him as the Messiah of God and Jehovah, Himself, declared, "You are a Priest forever after the order of Melchisedec." When He came into the world, the Holy Spirit bore witness to His being the Son of the Highest. At His Baptism there came a Voice from Heaven saying, "You are My beloved Son, in whom I am well pleased," and that same Voice was thrice heard declaring the same fact. The Father has given further testimony to the mission of Christ, "in that He has raised Him from the dead," and has caused Him to enter into the heavenly places on our behalf. Moreover, He has given Him a pledge that as Melchisedec, being both King and Priest, He shall sit at His right hand until He has made His enemies His footstool. Our Lord Jesus has been chosen, ordained and glorified as our "Great High Priest, that has passed into the heavens." This is the groundwork of our comfort in our Lord Jesus, for we know that He is One with the Father and that all things are done by Him as the Messenger of the Covenant, the authorized Representative of Jehovah our God.

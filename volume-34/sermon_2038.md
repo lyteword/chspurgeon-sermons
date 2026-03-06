@@ -1,6 +1,5 @@
 # Sermon 2038 | The Lord's Supper: A Remembrance Of Jesus
 
-
 > "This do in remembrance of Me."  
 > Luke 22:19.  
 

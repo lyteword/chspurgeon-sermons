@@ -1,12 +1,5 @@
 # Sermon 1783 | Pentecost
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The day of Pentecost." Acts 2:1.
 
 

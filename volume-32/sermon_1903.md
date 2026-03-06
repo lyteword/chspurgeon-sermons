@@ -1,12 +1,5 @@
 # Sermon 1903 | Who Found It Out?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 6, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there were four leprous men at the entrance of the gate and they said to one another, Why are we sitting here until we die? If we say, We will enter into the city, then the famine is in the city, and we shall die there. And if we sithere, we die also. Now therefore, come, let us surrender to the army of the Syrians. If they keep us alive, we shall live, and if they kill us, we shall only die. And they rose at twilight, to go to the camp of the Syrians: and when they had come to the outskirts of the Syrian camp, to their surprise, no one was there. For the Lord had made the host of the Syrians to hear a noise of chariots, and a noise of horses even the noise of a great host: and they said to one another, Look the king of Israel has hired against us the kings of the Hittites, and the kings of the Egyptians, to come upon us. Therefore they arose and fled in the twilight, and left their tents, and their horses, and their asses, even the camp as it was, and fled for their lives." 2 Kings 7:3-7.
 
 THE story of four leprous men inserted in the Book of the Kings of Israel--is it not amazing? No, it is not amazing for the Bible. If you were to take out of the Scriptures all the stories that have to do with poor afflicted men and women, what a very small book the Bible would become, especially if together with the stories, you removed all the Psalms of the sorrowful, all the promises for the distressed and all the passages which belong to the children of grief! This Book, indeed, for the most part is made up of the annals of the poor and despised! Think for a minute what space is occupied with the life of the man who was separated from his brothers, sold for a slave and put in prison in Egypt! What a large part of the Bible is occupied by the writings of one who was a babe exposed on the Nile and afterwards kept a flock for 40 years in the wilderness! We could not part with the account of the man who lost all his property and children in one day--and sat among the ashes, covered with sore boils. We could not spare the story of the two widows who came together empty-handed from the land of Moab, one of whom went to glean in the fields of Boaz. Nor the history of that woman of a sorrowful spirit and her little boy, around whom the hope of Israel gathered in the dark days of Eli's feeble rule.

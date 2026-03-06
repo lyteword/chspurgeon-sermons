@@ -1,6 +1,5 @@
 # Sermon 2153 | The Iniquity of Our Holy Things
 
-
 > "And you shall make a plate of pure gold, and engrave upon it, like the engravings of a signet, HOLINESS TO THELORD. Andyou shallputit on a blue lace, that itmay be upon the miter; upon the forefront of the miter it shall be. And it shall be upon Aaron's forehead that Aaron may bear the iniquity of the holy things, which the children of Israel shall hallow in all their holy gifts; and it shall be always upon his forehead, that they may be accepted before the Lord."  
 > Exodus 28:36-38.  
 

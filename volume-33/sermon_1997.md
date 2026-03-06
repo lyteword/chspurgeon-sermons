@@ -1,6 +1,5 @@
 # Sermon 1997 | God's Longsuffering: An Appeal to the Conscience
 
-
 > "And account that the longsuffering of our Lord is salvation."  
 > 2 Peter 3:15.  
 

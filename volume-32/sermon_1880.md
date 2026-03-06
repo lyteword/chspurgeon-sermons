@@ -1,12 +1,5 @@
 # Sermon 1880 | A Lesson and a Fortune for Christian Men of Business
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 24, 1886.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 12, 1885.
-
 "Let your conversation be without covetousness; and be content with such things as you have: for He has said, I will never leave you, nor forsake you." Hebrews 13:5.
 
 THE Apostle warns us against a tendency very natural to our race. "Let your conversation be without covetousness." I am afraid that the precept is even more needed, now, than in the days of the Apostle. We are still more sharp and keen in competition and men in trade are even more anxious to accumulate money than they were in Apostolic times. It is not easy for a man to keep his heart clear of covetousness, or his hands clean from moral bribes. There is a singular stickiness about gold and silver. They have a great tendency to birdlime our souls and hold them fast, so that they cannot rise superior to their influence. The Revised Version reads our text, "Be you free from the love of money" and it puts in the margin, "Let your turn of mind be free from the love of money." May we all enjoy that freedom and may our turn of mind lead us to seek better things than the miser is able to hoard!

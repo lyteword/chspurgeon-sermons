@@ -1,12 +1,5 @@
 # Sermon 1748 | Jehovah Has Spoken--will You Not Hear?
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 4, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hear you, and give ear; be not proud: for the Lord has spoken. Give glory to the Lord your God, before He causes darkness and before your feet stumble upon the dark mountains and, while you look for light, He turns it into the shadow of death and makes it gross darkness. But if you will not hear it, my soul shall weep in secret places for your pride; and my eyes shall weep bitterly and run down with tears, because the Lord's flock is carried away captive." Jeremiah 13:15-17.
 
 IN this chapter Jeremiah had proclaimed the judgment of God against His sinful people under two very striking figures. Israel had been to God what a sash is to a man--the people had been bound closely about Him in His great love and favor. But on account of their sin, the Lord would put them away and they should be hidden by the Euphrates till their beauty was marred--until, in fact, like a rotten sash, their whole state had become decayed. "Thus says the Lord, After this manner will I mar the pride of Judah, and the great pride of Jerusalem."

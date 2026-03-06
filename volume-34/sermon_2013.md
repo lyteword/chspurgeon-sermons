@@ -1,6 +1,5 @@
 # Sermon 2013 | The Infallibility of Scripture
 
-
 > "The mouth of the Lord has spoken it."  
 > Isaiah 1:20.  
 

@@ -1,6 +1,5 @@
 # Sermon 1977 | The Blind Beggar of the Temple and His Wonderful Cure
 
-
 > "As long as I am in the world, I am the light of the world. When He had thus spoken, He spat on the ground, and made clay of the spittle, and He anointed the eyes of the blind man with the clay, and said unto him, Go, wash in the Pool of Siloam (which is by interpretation, Sent). He went his way therefore, and washed, and came seeing."  
 > John 9:5, 6, 7.  
 

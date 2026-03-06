@@ -1,6 +1,5 @@
 # Sermon 2017 | David's Spoil
 
-
 > "This is David's spoil."  
 > 1 Samuel 30:20.  
 

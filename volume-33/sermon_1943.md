@@ -1,6 +1,5 @@
 # Sermon 1943 | Love Joying In Love
 
-
 > "I am come into My garden, My Sister, My Spouse: I have gathered My myrrh with My spice; Ihave eaten Myhoneycomb with Myhoney; Ihave drunk My wine with My milk: eat, O friends; drink, yes, drink abundantly, O Beloved."  
 > Song of Solomon 5:1.  
 

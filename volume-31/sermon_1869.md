@@ -1,12 +1,5 @@
 # Sermon 1869 | Hagar at the Fountain
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 8, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And she called the name of the Lord that spoke unto her, You-Are-the-God-Who-Sees: for she said, Have I, also, here looked after Him who sees me? Therefore the well was called Beer-Lahai-Roi." Genesis 16:13,14.
 
 You know the story of Hagar. I am not going to deal with the allegorical meaning of it--that would be apart from our subject this morning. I shall speak of the incident simply as it stands, but even then I shall not use it strictly as a case of sure conversion, for I am not certain that it was such. I suppose Hagar to have been an Egyptian woman, probably one of the maidservants who were given by the King of Egypt to Abram at that unhappy time when Abram's faith failed him and he went down into Egypt and requested Sarai to conceal the fact that she was his wife. Sin, whenever it is committed by the child of God, is sure to involve him in sorrow. In the long run, the result of any false dealing comes home to the Believer and it does so in very unexpected ways. Hagar became the special maid of Sarai. God had promised to Abram that he should have a son and that thus he should be the father of nations. That blessing did not appear likely to come to him, for there were no children born to Sarai, nor did there seem to be the possibility of any.

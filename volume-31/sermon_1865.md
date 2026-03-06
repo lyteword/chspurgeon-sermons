@@ -1,12 +1,5 @@
 # Sermon 1865 | The Nobleman's Faith
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 11, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "There was a certain nobleman, whose son was sick at Capernaum. When he heard that Jesus was come out of Judea into Galilee, he went unto Him, and besought Him that He would come down, and heal his son: for he was at thepoint of death. Then said Jesus unto him, Except you see signs and wonders, you will not believe. The nobleman said unto Him, Sir, come down before my child dies. Jesus said unto him, Go your way, your son lives. And the man believed the word that Jesus had spoken unto him and he went his way. And as he was now going down, his servants met him, and told him, saying, Your son lives. Then inquired he of them the hour when he began to mend. And they said unto him, yesterday at the seventh hour the fever left him. So the father knew that it was at the same hour in which Jesus said unto him, Your Son lives: and he believed, and his whole house." John 4:46-53.
 
 THIS narrative illustrates the rise and progress of faith in the soul. While I try to speak of it, I pray that we may experimentally follow the track, desiring that such faith may have a rise in our hearts, may make progress in our spirits and may become even stronger in us than it was in this nobleman. The point, my Brothers and Sisters, is not to hear about these things, only, but to have them repeated in your own soul. We need to come to real business and to make the things of God matters of downright fact to ourselves. We need not only to hear about this nobleman from Capernaum, or anybody else--but to see in our own souls the same work of Grace as was worked in him. The same living Christ is here and His help we as greatly need as ever did this nobleman. May we seek it as he sought it and find it as he found it! Thus will the Holy Spirit, who inspired the narrative before us, be found writing it over again, not upon the pages of a book, but upon the fleshy tablets of our hearts!

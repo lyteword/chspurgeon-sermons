@@ -1,6 +1,5 @@
 # Sermon 2054 | Judgments and No Repentance--Repentance and No Salvation
 
-
 > "They repented not to give Him glory."  
 > Revelation 16:9.  
 

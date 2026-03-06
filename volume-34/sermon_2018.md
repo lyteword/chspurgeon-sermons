@@ -1,6 +1,5 @@
 # Sermon 2018 | Cured At Last!
 
-
 > "And a woman having an issue of blood twelve years, which had spent all her living upon physicians, neither could be healed of any, came behind Him and touched the border of His garment: and immediately her issue of blood stanched."  
 > Luke 8:43, 44.  
 

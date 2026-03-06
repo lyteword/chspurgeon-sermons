@@ -1,12 +1,5 @@
 # Sermon 1718 | Certain Singular Subjects
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I gave unto Isaac, Jacob and Esau: and I gave unto Esau Mount Seir, to possess it; but Jacob and his children went down into Egypt." Joshua 24:4.
 
 THIS passage, though audibly uttered by the mouth of Joshua, is to be regarded as the immediate voice of God. Joshua said unto all the people, "Thus says Jehovah, God of Israel." Jehovah reminded the tribes, their elders and judges, of all that He had done and of all that He had been to them--and from this He challenged their allegiance, requiring that they should henceforth be loyal unto their great Benefactor. Addressing them, Himself, His argument became all the more impressive. I reverence all Scripture more than tongue can tell, but yet I venerate most of all those portions of the Word which are God's own voice--the thoughts of Deity interpreted into human speech by Deity, itself! The passage now before us, though it reads like a piece of ordinary history such as might have been composed by a common scribe, has about it a vastness of meaning such as can only be found in the language of the infinite God.

@@ -1,12 +1,5 @@
 # Sermon 1852 | The Modern Dead Sea and the Living Waters
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 19, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The waters shall be healed." Ezekiel 47:8.
 
 Ezekiel is robed in dreadful tempest and his whole book is "as the terrible crystal" for brightness and for mystery, yet he often gives us visions of exceeding comfort. For instance, who can think without joy of that tender branch of the cedar which is to be planted by God in the mountain of the height of Israel--which shall grow so exceedingly that all fowl of every wing shall dwell in its branches? Do we not all rejoice that, whatever may become of the institutions of modern society, we have received a Kingdom which cannot be moved? The Kingdom of our Lord Jesus, which began as a tender slip, is yet to increase till it is likened to a goodly cedar "upon a high mountain and eminent"--is not this an unspeakable joy? Think, also, of that other vision, so weird and strange, of a valley full of dead bones, "very many" and "very dry." What an answer does that vision give to the question of unbelief! "Can these dry bones live?" How plainly does the Lord answer--"I will put My Spirit in you and you shall live"! When I think of that goodly cedar, I see that the Kingdom will come unto Christ. And when I think of the valley of dry bones, I am comforted concerning the masses around me. We, too, as we walk through this morgue of a city, may hope that life will conquer death and an exceedingly great army, quickened by the Spirit of our God, shall yet rise from these dry bones!

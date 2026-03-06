@@ -1,6 +1,5 @@
 # Sermon 2129 | Pleading, Not Contradicting
 
-
 > "She said, Truth, Lord:yet."  
 > Matthew 15:27.  
 

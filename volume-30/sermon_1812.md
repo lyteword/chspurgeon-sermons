@@ -1,12 +1,5 @@
 # Sermon 1812 | A Wonder Explained By Greater Wonders
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 7, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You drewnear in the day thatIcalled upon You: You said, Fear not." Lamentations 3:57.
 
 How different are our experiences from our fears! This man of God had said, "When I cry and shout He shuts out my prayer." He had said again, "You have covered Yourself with a cloud, that our prayer should not pass through." He had added to that, "Surely against me is He turned." But now he corrects his misapprehensions. Neither was prayer shut out, nor had God turned against him, for he joyfully confesses, "You drew near in the day that I called upon You: You said, Fear not." As much as to say--"Not only did You hear me, but You did come to me! Not only did You hear me speak, but You did speak, Yourself, and I heard You say--'Fear not.' Not only were You not turned against me as an enemy, but You did prove Yourself my Friend by being my loving and tender Comforter."

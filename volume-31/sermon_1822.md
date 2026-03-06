@@ -1,12 +1,5 @@
 # Sermon 1822 | Certain Curious Calculations About Loaves and Fishes
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 15, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON OCTOBER 30, 1884.
-
 "When I broke the five loaves among five thousand, how many baskets full of fragments did you take up? They said unto Him, Twelve. And when the seven among four thousand, how many baskets full of fragments did you take up? And they said, Seven. And He said unto them, How is it that you do not understand?" Mark 8:19-21.
 
 THE disciples had come on board the vessel and had forgotten to bring bread with them--good men's memories sometimes fail them. For that reason they were greatly disturbed in mind and they supposed that Jesus was also disquieted and that He had shaped His speech so as to give them an indirect rebuke when He mentioned the leaven of the Pharisees. How little they understood His mind, though they had been so long a time with Him! His thoughts were not occupied about bread for Himself and neither was there any carking care in His heart about bread for them. His mind was at perfect rest about all secular things and, even as to all spiritual things, He was by no means tossed about. Notwithstanding all His trials and His sorrows, I suppose that there never was a serener mind than that of Jesus Christ our Lord. His heart was great as an ocean and though visited with terrible tempests, yet it was the Pacific Ocean, still. They might be troubled about bread, but He was resting about that and all things else. The winds which tossed the little lakes of their little minds into boiling cauldrons did not suffice to create a ripple upon the surface of His mighty soul!

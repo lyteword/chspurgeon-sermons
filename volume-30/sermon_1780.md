@@ -1,12 +1,5 @@
 # Sermon 1780 | The Sprinkling of the Blood of the Sacrifice
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 11, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the priest shall dip his finger in the blood, and sprinkle of the blood seven times before the Lord, before the veil of the sanctuary. And the priest shall put some of the blood upon the horns of the altar of sweet incense before the Lord, which is in the tabernacle of the congregation; and shall pour all the blood of the bullock at the bottom of the altar of the burnt offering, which is at the door of the tabernacle of the congregation." Leviticus 4:6, 7.
 
 I HAVE preached, before, to you upon the types of our Lord's Sacrifice--the subject is as large as it is important. We began with the laying of the hands upon the offering and we went on to the all-important matter of the slaying of the victim [See Sermon Nos. 1771 and 1772.] Now we come to the use which was made of the blood of the sacrifice after it had been slain. In thinking upon this subject, I seem to hear a voice saying to me, "Put off your shoes from off your feet, for the place whereon you stand is holy ground." This is the central mystery of our religion. It becomes us to be reverent in heart as we approach it. The Doctrine of Substitution is the heart of the whole matter--our whole heart needs to be awakened while we speak upon it. The Son of God, Himself, assuming human nature and, in that Nature bleeding and dying in our place, is the Revelation of Revelation, the wonder of wonders, the Glory of the glorious God! Solemnity and awe may well fill us while we meditate on such a theme.

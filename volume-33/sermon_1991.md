@@ -1,6 +1,5 @@
 # Sermon 1990 | "Sitting By"
 
-
 > "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the Law sitting by."  
 > Luke 5:17.  
 

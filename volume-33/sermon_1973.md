@@ -1,6 +1,5 @@
 # Sermon 1973 | God's Nearness To Us
 
-
 > "Though He is not far from each one of us."  
 > Acts 17:27.  
 

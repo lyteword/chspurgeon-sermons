@@ -1,12 +1,5 @@
 # Sermon 1905 | Healing and Pardon
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 20, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the inhabitant shall not say, I am sick: the people that dwell in it shall be forgiven their iniquity." Isaiah 33:24.
 
 This whole chapter was a gracious message from God to a people who were in extremis. They were made to drink the foulest dregs of sorrow through the invasion of the Assyrians. The highways were waste, the wayfarer ceased. The earth mourned and languished. Lebanon was ashamed and hewn down. Sharon was like a wilderness and Bashan and Carmel shook off their fruits. Then did God arise. When the worst had come to the worst, He laid bare His arm and brought deliverance for His people! Is not this a general rule with God? Is it not a Truth of God fraught with comfort to any of you whose day has darkened down into a seven-fold midnight? When nothing else is left you, God remains and God appears! When all your own strength fails you, your strength shall be to sit still while God arises and becomes your arm every morning, your salvation in the time of trouble!

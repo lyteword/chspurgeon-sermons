@@ -1,12 +1,5 @@
 # Sermon 1898 | Mouth and Heart
 
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, APRIL 25, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That if you shall confess with your mouth the Lord Jesus and shall believe in your heart that God has raised Him from the dead, you shall be saved." Romans 10:9.
 
 PAUL'S great work was saving souls. Whatever else he might be doing, he never forgot, "by all means to save some." Whatever else he aimed at in his Epistles, he always took care to write that men might, by his teaching, be led to the Lord Jesus. He sought to speak so that troubled consciences might come to peace through Jesus Christ his Lord, whom he loved so well. This is one of the reasons why he so often gives us weighty condensations of the Gospel, packing the Truths of God together very closely. He knew that these are very useful and so he prepared them for his Brothers and Sisters, as one provides portable meats or condensed milk for travelers. When the reader finds a compact sentence of this sort, he has met with a little Bible, a miniature Body of Divinity. Behold the whole story of redeeming love told out in a line or two, easy to be understood, likely to be remembered, calculated to impress! He who composes short and striking summaries of Gospel Truth may be working as effectively for the salvation of men as another who delivers earnest, pleading discourses. In this chapter Paul several times puts the Gospel in a remarkably plain, simple and brief manner. He is the master of condensation and our text is a specimen of his power! He here gives the plan of salvation in a line or so--"If you shall confess with your mouth the Lord Jesus and shall believe in your heart that God has raised Him from the dead, you shall be saved."

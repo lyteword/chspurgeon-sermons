@@ -1,6 +1,5 @@
 # Sermon 1849 | Coming Judgment of the Secrets of Men
 
-
 > "The day when God shall judge the secrets of men by Jesus Christ according to my gospel."  
 > Romans 2:16.  
 

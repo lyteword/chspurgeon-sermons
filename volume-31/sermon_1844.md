@@ -1,6 +1,5 @@
 # Sermon 1844 | Israel And Britain. A Note of Warning
 
-
 > "But though he had done so many miracles before them, yet they believed not on him: that the saying of Esaias the prophet might be fulfilled, which he spake, Lord, who hath believed our report? and to whom hath the arm of the Lord been revealed? Therefore they could not believe, because that Esaias said again, He hath blinded their eyes, and hardened their heart; that they should not see with their eyes, nor understand with their heart, and be converted, and I should heal them. These things said Esaias, when he saw his glory, and spake of him."  
 > John 12:37-41.  
 

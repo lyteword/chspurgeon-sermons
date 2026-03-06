@@ -1,6 +1,5 @@
 # Sermon 2044 | All At It
 
-
 > "Therefore they that were scattered abroad went everywhere preaching the Word. Then Philip went down to the city of Samaria, and preached Christ unto them."  
 > Acts 8:4,5.  
 

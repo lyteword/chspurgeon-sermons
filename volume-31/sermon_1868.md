@@ -1,12 +1,5 @@
 # Sermon 1868 | Death and Life--the Wage and the Gift
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord." Romans 6:23.
 
 IN the fifth chapter of this Epistle, Paul had shown, at considerable length, our justification from sin through the righteousness of Jesus Christ our Savior. Our Apostle goes on to speak of our sanctification in Christ, that as by the righteousness of Christ we have been delivered from the guilt and penalty of sin, so by the power and life of Christ in us we are delivered from the dominion of sin, so as not to live any longer therein. His objective is to show that true servants of God cannot live in sin--that by reason of our newness of life in Christ, it is not possible that we should continue to yield our members, instruments unto iniquity. We have passed out of the realm of death. We have come into the domain of life and, therefore, we must act according to that life and that life--being in its essence, pure, holy and heavenly--we must proceed from righteousness unto holiness.

@@ -1,12 +1,5 @@
 # Sermon 1771 | Putting the Hand Upon the Head of the Sacrifice
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 16, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And he shall put his hand upon the head of the burnt offering; and it shall be accepted for him to make atonement for him. And he shall kill the bullock before the LORD." Leviticus 1:4, 5.
 
 No doubt there are clear distinctions in the teaching of the burnt offering, the meat offering, the peace offering and the sin offering. In those various sacrifices we have views of our Lord's atoning work taken from different standpoints. On another occasion it will be profitable to note these delightful lessons and lay them to heart, but at this time I am not about to enter into such matters. These instructive distinctions are the special property of those who by reason of years have had their senses exercised and, therefore, can discern not only the great work of our Lord, but the details of it. I am not sufficiently strong in mind at this time to bring forth "butter in a lordly dish" for men of robust constitution, but I must be content to serve the little ones with a cup of milk. I cannot carry the great cluster from Eshcol and, therefore, I will bring you a few grapes in my trembling hands.

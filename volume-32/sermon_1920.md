@@ -1,12 +1,5 @@
 # Sermon 1920 | Believers as Blessed as the Blessed Virgin
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 19, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And it came to pass, as He spoke those things, a certain woman of the company lifted up her voice, and said to Him, Blessed is the womb that bore You and the breasts which nursed You. But He said, More than that, blessed are those who hear the Word of God and keep it!" Luke 11:27,28.
 
 You do not wonder that this enthusiastic woman lifted up her voice in admiration of our Lord. I sometimes wonder when the Gospel is preached--whose message is so sweet, so charming, so enchanting--that we do not more often observe earnest persons breaking the cold rules of propriety and uttering exclamations of delight. Few are the hosannas of the multitude today. Is the blood of the world growing colder as the ages tell upon it? Perhaps our western constitution is too cool and self-contained to allow us to copy the demonstrative manners of the East. Assuredly this woman is not to be blamed, but to be commended for pouring out her heart's love in honor of the Lord! The wonder is not that she spoke as she did, but that men who hear the teaching of Jesus do not more often speak in His praise! Of our blessed Lord, His enemies said, "Never man spoke like this Man." His very tone was melody and His language was the Truth of God set to music! The doctrines which He taught were more than golden--they were light to the head and joy to the heart. He revealed the inmost heart of God and taught as never Prophet or sage had taught before. Oh, "certain woman of the company," though we do not know your name and cannot guess at your history, we are in harmony with your outburst of affection! We thank you for giving utterance to that feeling of delight and admiration with which we are filled. We also cry unto the Lord with you--"Blessed is the womb that bore You and the breasts which nursed You."

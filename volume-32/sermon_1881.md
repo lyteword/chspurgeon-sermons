@@ -1,12 +1,5 @@
 # Sermon 1881 | The Dying Thief in a New Light
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 31, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 23, 1885.
-
 "But the other, answering, rebuked him, saying, Do you not fear God, seeing you are in the same condemnation? And we, indeed, justly; for we receive the due reward of our deeds: but this Man has done nothing wrong. And he said unto Jesus, Lord, remember me when You come into Your Kingdom." Luke 23:40-42.
 
 A GREAT many persons, whenever they hear of the conversion of the dying thief, remember that he was saved in the very article of death and they dwell upon that fact, and that, alone. He has always been quoted as a case of salvation at the 11th hour and so, indeed, he is. In his case it is proven that as long as a man can repent, he can obtain forgiveness. The Cross of Christ avails even for a man hanging on a gallows and drawing near to his last breath. He who is mighty to save was mighty, even during His own death, to pluck others from the grasp of the Destroyer, though they were in the act of expiring.

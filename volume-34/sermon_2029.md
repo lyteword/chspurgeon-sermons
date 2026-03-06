@@ -1,6 +1,5 @@
 # Sermon 2029 | Let Him Deliver Him Now
 
-
 > "He trusted in God; let him deliver him now; if he will have him: for he said, I am the Son of God."  
 > Matthew 27:43.  
 

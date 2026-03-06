@@ -1,12 +1,5 @@
 # Sermon 1915 | The Ever-Living Priest
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they truly were many priests, because they were not suffered to continue by reason of death: but this Man, because He continues forever, has an unchangeable priesthood. Therefore He is able to sa ve them to the uttermost who come to God by Him, seeing He lives forever to make intercession for them." Hebrews 7:23-25.
 
 THE Apostle Paul is very much at home with his theme whenever he is extolling his Master. When handling the Jewish types and figures, with which he was so familiar, he was charmed to point out how far superior the Lord Jesus Christ is to any and all the priests of the Old Testament dispensation. In this case he is dwelling upon the special honor of our Lord, because His Priesthood is without end, seeing, He, Himself is not put forth from the priesthood by reason of death. A common priest served from 30 to 50 years of age and then his work was done--priests of the house of Aaron, who became High Priests, held their office through life. Sometimes a High Priest would continue in his office, therefore, for a considerable length of time. But in many cases he was cut off as other men are by premature death and, therefore, there was priest after priest of the order of Aaron to go within the veil for the people.

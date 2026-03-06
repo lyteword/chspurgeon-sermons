@@ -1,12 +1,5 @@
 # Sermon 1807 | A Call to the Lord's Own Flock
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Thus shall they know that I, the Lord their God, am with them, and that they, the house of Israel, are My people, says the Lord God. And you are My flock, the flock of My pasture, you are men, and I am your God, says the Lord God." Ezekiel 34:30,31.
 
 THE sermon of this morning is intended for the flock of God and it will be directed very pointedly to that particular part of it here gathered in fellowship. God has been coming very near to us of late, for a considerable number of Brothers and Sisters have fallen asleep during the last few days--nearly all of them persons of ripe age who have been gathered as sheaves in their season. Others are evidently upon the eve of departure, for their infirmities are multiplied and their strength is small. When the Good Shepherd is taking one and another into His bosom and bearing them away from us, the rest of us ought to recognize His Presence with holy reverence. Let us feel that the ground whereon we stand is holy, and that the time is most suitable for increased devotedness of life. Let us number our days and apply our hearts unto wisdom. If we do not live when life is seen to be so short, how foolish we must be! If we do not awaken ourselves when the Lord is calling home our Brethren, we must be sluggards, indeed. Let us spend the time of our sojourning here in fear, looking for and hasting unto the coming of the day of God.

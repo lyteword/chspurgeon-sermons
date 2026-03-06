@@ -1,6 +1,5 @@
 # Sermon 1992 | Song for the Free--Hope for the Bound
 
-
 > "He brought them out of darkness and the shadow of death, and broke their chains in pieces. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! For He has broken the gates of brass and cut the bars of iron in two."  
 > Psalm 107:14-16.  
 

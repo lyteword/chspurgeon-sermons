@@ -1,12 +1,5 @@
 # Sermon 1909 | A Seasonable Exhortation
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 11, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore gird up the loins of your mind, be sober and hope to the end for the Grace that is to be brought unto you at the revelation of Jesus Christ." 1 Peter 1:13.
 
 To read the whole chapter is most helpful to the understanding of our text. If we have studied it carefully, we must have said to ourselves, "How full of their Lord were the minds of these holy writers!" Peter can scarcely write a verse without an allusion to the Lord Jesus Christ. He was not only, "Peter, an Apostle of Jesus Christ," but you can see that his heart was steeped and saturated in memories of his Master--he could hardly get through a sentence without some allusion to the death, the Resurrection, or the Second Coming of his beloved Lord. Oh that my ministry might always be of the same sort, dripping with the holy unction of the Savior's name! Brethren, may your conversations and your lives be full of the Lord Jesus Christ, that men may take knowledge of you--that you have been with Jesus and have learned of

@@ -1,12 +1,5 @@
 # Sermon 1922 | Concerning Death
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 26, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For I know that You will bring me to death, and to the house appointed for all living.'" Job 30:23.
 
 JOB suffered from a terrible sickness which filled him with pain both day and night. It is supposed that, in addition to his grievous eruptions upon the skin, he endured great difficulty in breathing. He says in the 18th verse, "By the great force of my disease is my garment changed: it binds me about as the collar of my coat." His clothes were soiled and clung to him. His skin was blackened and seemed to be tightened. He was like a man whose tunic strangles him--the collar of his garment seemed to be fast bound about his throat. Those who have suffered from it, know what distress is occasioned by this complaint, especially when they are also compelled to cry, "My bones are pierced in me in the night season: and my sinews take no rest." At such a time Job thought of death and, surely, if at any period in our lives we should consider our latter end, it is when the frail tent of our body begins to tremble because the cords are loosened and the curtain is torn!

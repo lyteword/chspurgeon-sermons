@@ -1,12 +1,5 @@
 # Sermon 1761 | The Lord with Two or Three
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, OCTOBER 4, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Where two or three are gathered together in My name, there am I in the midst of them." Matthew 18:20.
 
 WE have, in the verses preceding, the text a mention of the first Church Meeting of which I remember to have found mention in the New Testament. The Savior declares of His assembled people, "Verily I say unto you, whatever you shall bind on earth shall be bound in Heaven: and whatever you shall loose on earth shall be loosed in Heaven." A few Believers, gathered out of the world, have met in the name of the Lord Jesus to attend to the affairs of His household here below. It is a case of discipline. A Brother has trespassed against another Brother. The offended one has sought him out privately and by personal expostulation has endeavored to bring him to a better mind, but he has failed. He has then taken with him two or three Brethren of the Church and they have together pleaded with the offender that he would do that which is right, but he is obstinate--even in the presence of two or three witnesses he persists in his trespass and refuses to be won over by kindly entreaty.

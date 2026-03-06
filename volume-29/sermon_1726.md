@@ -1,12 +1,5 @@
 # Sermon 1726 | Buying Without Money
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 17, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that has no money; come, buy, and eat." Isaiah 55:1.
 
 THERE is a semicolon in our translation, but we need not take notice of it. It should not be there, since the text is the second of two parallel sentences arranged according to the method of Hebrew poetry--

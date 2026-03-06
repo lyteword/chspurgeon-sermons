@@ -1,6 +1,5 @@
 # Sermon 2014 | As We Have Heard, So Have We Seen
 
-
 > "As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God: God will establish it forever."  
 > Psalm 48:8.  
 

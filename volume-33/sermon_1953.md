@@ -1,6 +1,5 @@
 # Sermon 1953 | A Testimony To Free and Sovereign Grace
 
-
 > "But the salvation of the righteous is of the Lord."  
 > Psalm 37:39.  
 

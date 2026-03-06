@@ -1,6 +1,5 @@
 # Sermon 2142 | Our Lord's Triumphant Ascension
 
-
 > "You have ascended on high, You have led captivity captive: You ha ve received gifts for men; yes, for the rebellious, also, that the Lord God might dwell among them."  
 > Psalm 68:18.  
 

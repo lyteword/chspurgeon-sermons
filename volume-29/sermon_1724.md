@@ -1,12 +1,5 @@
 # Sermon 1724 | Supposing Him to Have Been in the Company
 
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 3, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Supposing Him to ha ve been in the company." Luke 2:44.
 
 ALL who were present on the occasion are sure to remember our meditation upon, "Supposing Him to Be the Gardener" [Sermon #1699, Volume 29.] Although it was only supposition and evidently a mistake, yet it yielded us most profitable thought. Here is another supposition, again a mistake--a mistake which yielded a good deal of sorrow to those who made it--and yet in the hands of God's Spirit, it may bring forth profitable instruction to us as we think it over.

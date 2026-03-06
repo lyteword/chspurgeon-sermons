@@ -1,12 +1,5 @@
 # Sermon 1709 | The Best War Cry
 
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 4, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord his God is with him, and the shout of a king is among them." Numbers 23:21.
 
 IT was a singular spectacle to see the king of Moab and his lords climbing to the tops of the craggy rocks, accompanied by that strange being, the Eastern prophet Balaam. They are seeking to look upon Israel with the evil eye and flash down curses upon her tents in the plain beneath. You see them gazing down from the mountains upon the encampment in the wilderness below, even as vultures from aloft spy out their prey. They watch with keen and cruel eyes. Cunning and malice are in their countenances. How Balak longs to crush the nation which he fears! They are secretly endeavoring, by spell and enchantment, to bring evil upon the people whom Jehovah has chosen and led into the wilderness. You see them offering their seven bullocks and their seven rams upon the seven altars which they have set up upon Pisgah's rocks.

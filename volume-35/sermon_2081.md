@@ -1,6 +1,5 @@
 # Sermon 2081 | Truth Stranger Than Fiction
 
-
 > "And I will restore to you the years that the locust has eaten."  
 > Joel 2:25.  
 

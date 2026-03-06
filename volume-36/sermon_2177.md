@@ -1,6 +1,5 @@
 # Sermon 2177 | Camp Law and Camp Life
 
-
 > "For the Lord your God walks in the midst of your camp, to deliver you, and to give up your enemies before you, therefore shall your camp be holy that He sees no unclean thing in you, and turn away from you."  
 > Deuteronomy 23:14.  
 

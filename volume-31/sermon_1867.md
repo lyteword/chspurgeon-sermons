@@ -1,12 +1,5 @@
 # Sermon 1867 | Untitled Sermon
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 25, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then sang Moses and the children of Israel this song unto the Lord, and spoke, saying, I will sing unto the Lord, for He has triumphed gloriously: the horse and his rider has He thrown into the sea. The Lord is my strength and song, and He is become my salvation: He is my God, and I willprepare Him an habitation, my father's God, and I will exaltHim." Exodus 15:1,2.
 
 THIS is the first song unto the Lord which is recorded in Holy Scripture. In Jacob's blessing of his children there are verses which may be regarded as songs, but they are mere fragments and can scarcely be said to be sung unto the Lord. There are other couplets in the Book of Genesis, but this is the first connected song upon record. I should think that Abraham often sang unto the Lord, but we have no record of it. We can hardly doubt but that Isaac had his quiet Psalm, as Enoch had--and Noah and others who called upon the name of the Lord. But none of these hymns are left to us. This is the very first of those sacred songs preserved in Scripture and, in some respects, it is first in merit as well as in time. At any rate, its august occasion lifts it into the highest place among patriotic hymns.

@@ -1,6 +1,5 @@
 # Sermon 2132 | Christ Put On
 
-
 > "But put you on the Lord Jesus Christ, and make not provision for the flesh, to fulfill the lusts thereof."  
 > Romans 13:14.  
 

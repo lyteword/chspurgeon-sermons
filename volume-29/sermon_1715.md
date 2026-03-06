@@ -1,12 +1,5 @@
 # Sermon 1715 | A Description of Young Men in Christ
 
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 8, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I write unto you, young men, because you have overcome the Wicked One... I have written unto you, youngmen, because you are strong, and the Word of God abides in you, and you ha ve overcome the Wicked One." 1 John 2:13,14.
 
 WHEN I preached a short time ago upon John's message to the "little children," [Sermon #1711--A Sermon to the Lord's Little Children] I explained why it was that he first said, "I write," and then, "I have written." He is writing--his whole heart is in it and he cannot help saying that he is earnestly writing to those whom he loves so well. But he has scarcely penned the line before he feels that he must alter that present tense and set it in the past, under the form of, "I have written." He knows that he must soon be gone from them and be numbered with those who were, but are not, among living men. These words, then, are the language of a father in Israel still among his children; they are also the words of one who has passed from earth and entered into Glory.

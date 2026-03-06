@@ -1,6 +1,5 @@
 # Sermon 2016 | Jesus Affirmed To Be Alive
 
-
 > "Against whom when the accusers stood up, they brought none accusation of such things as I supposed: but had certain questions against him of their own superstition and of one Jesus, which was dead, whom Paul affirmed to be alive."  
 > Acts 25:18,19.  
 

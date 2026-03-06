@@ -1,6 +1,5 @@
 # Sermon 1950 | Earthquake But Not Heartquake
 
-
 > "God is our refuge and strength, a very present help in trouble. Therefore we will not fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though its waters roar and be troubled, though the mountains shake with its swelling."  
 > Psalm 46:1-3.  
 

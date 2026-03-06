@@ -1,12 +1,5 @@
 # Sermon 1916 | The Great Sin Of Doing Nothing
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 5, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But if you will not do so, behold, you have sinned against the Lord: and be sure your sin will find you out." Numbers 32:23.
 
 THERE are many dear friends engaged in business who can only reach the Tabernacle in time for the middle of the service and, therefore, they lose the reading of the Scriptures and the exposition which make up a whole with the sermon. This is a great loss to them, but as it is not their fault, we must not let them suffer for it, so far as we can remedy the evil. With this design let me explain to them that, according to the chapter which we have read and expounded, the Israelites had conquered the country possessed by Og, king of Bashan, and Sihon, king of the Amorites. And the tribes of Reuben and Gad, having great quantities of cattle, thought that a country so rich in pasture would be eminently suitable for them and for their flocks. They were no bad judges, for the country was specially fitted for sheep farming.

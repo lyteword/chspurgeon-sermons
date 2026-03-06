@@ -1,6 +1,5 @@
 # Sermon 2058 | Eyes Right
 
-
 > "Let your eyes look right on and let your eyelids look straight before you."  
 > Proverbs 4:25.  
 

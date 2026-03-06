@@ -1,6 +1,5 @@
 # Sermon 2021 | Nathanael--Or, the Ready Believer and His Reward
 
-
 > "Jesus answered and said unto him, Because I said unto you, I saw you under the fig tree, you believe? You shall see greater things than these."  
 > John 1:50.  
 

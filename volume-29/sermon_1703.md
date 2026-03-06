@@ -1,12 +1,5 @@
 # Sermon 1703 | Hands Full of Honey
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 28, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Samson turned aside to see the carcass of the lion: and, behold, there was a swarm of bees and honey in the carcass of the lion. And he took some in his hands, and went on eating, and came to his father and mother, and he gave some to them, and they did eat: but he did not tell them that he had taken the honey out of the carcass of the Lion." Judges 14:8,9.
 
 IT was a singular circumstance that a man unarmed should have slain a lion in the prime of its vigor and yet, more strange that a swarm of bees should have taken possession of the dried carcass and have filled it with their honey. In that country, what with beasts, birds, insects and the dry heat, a dead body is soon cleansed from all corruption and the bones are clean and white. Still, the killing of the lion and the finding of the honey make up a remarkable story. These singular circumstances became, afterwards, the subject of a riddle--but with that riddle we have no concern at this time. Samson, himself, is a riddle! He was not only a riddle-maker, but he was, himself, an enigma very difficult to explain.

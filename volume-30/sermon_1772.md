@@ -1,12 +1,5 @@
 # Sermon 1772 | Slaying the Sacrifice
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 23, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And he shall kill the bullock before the LORD." Leviticus 1:5.
 
 

@@ -1,12 +1,5 @@
 # Sermon 1886 | God's Remembrance of His Covenant
 
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, FEBRUARY 14, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Nevertheless He regarded their affliction, when He heard their cry: And He remembered, for their sake, His Covenant, and repented according to the multitude of His mercies." Psalm 106:44,45.
 
 THIS Psalm deserves to be read very carefully. It mentions many of the afflictions of God's ancient people, but it clearly sets forth that their afflictions were the distinct result of their rebellions and sins. It is not so with all the afflictions of God's people. It is written, "As many as I love I rebuke and chasten." And again, "Every branch in me that bears fruit, He purges it, that it may bring forth more fruit." Yet it is often so to this day that the servants of God smart because of disobedience. They are chastened for their sin, as it is written, "You only have I known of all the people of the earth, therefore I will punish you for your iniquities." Sin in a child of God cannot go unchastened. The rod of chastisement is included in the Covenant and, if we are in the Covenant, the Lord will keep His promise. "If his children forsake My law, and walk not in My judgments, then will I visit their transgression with the rod, and their iniquity with stripes."

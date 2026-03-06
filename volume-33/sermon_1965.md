@@ -1,6 +1,5 @@
 # Sermon 1965 | God's Thoughts Of Peace and Our Expected End
 
-
 > "For I know the thoughts that I think toward you, says the Lord, thoughts of peace, and not of evil, to give you an expected end."  
 > Jeremiah 29:11.  
 

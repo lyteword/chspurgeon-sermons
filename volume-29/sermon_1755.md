@@ -1,12 +1,5 @@
 # Sermon 1755 | The Top of the Ladder
 
-
-DELIVERED ON THURSDAY EVENING, OCTOBER 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And to know the love of Christ, whichpasses knowledge, thatyou might be filled with all the fullness of God." Ephesians 3:19.
 
 THIS is a part of Paul's prayer for the Ephesian believers. It is the closing clause and consummation of it. It mentions the grandest gift for which he prayed. His prayer was like that ladder which Jacob saw, the top of which reached to Heaven and God--and the Apostle at the foot of it was not asleep--but looking up with eager eyes and marking each rising rung of light. Be it ours by sweet experience to ascend that staircase of light! May the Holy Spirit reveal it to us even now! You must begin to read at the 14th verse--"For this cause I bow my knees unto the Father of our Lord Jesus Christ, of whom the whole family in Heaven and earth is named, that"--this is one rung of the ladder. "That He would grant you, according to the riches of His glory, to be strengthened with might by His Spirit in the inner man, that"-- here comes the second rung--one step helps you to reach the next and you are strengthened that you may rise higher and enjoy a further privilege!

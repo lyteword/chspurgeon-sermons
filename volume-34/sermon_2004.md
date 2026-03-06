@@ -1,6 +1,5 @@
 # Sermon 2004 | The Lover of God's Law Filled With Peace
 
-
 > "Great peace have they which love Your Law: and nothing shall offend them."  
 > Psalm 119:165.  
 

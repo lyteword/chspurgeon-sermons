@@ -1,12 +1,5 @@
 # Sermon 1860 | "Behold, He Prays"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 20, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Inquire in the house of Judas for one called Saul, of Tarsus, for, behold, he prays." Acts 9:11.
 
 THESE words are the hallmark of genuine conversion. "Behold, he prays" is a surer witness of a man's conversion than, "Behold, he sings," or, "Behold, he reads the Scripture," or, "Behold, he preaches." These things may be admirably done by men who are not regenerate! But if, in God's sense of the term, a man really prays, we may know for sure that he has passed from death unto life. True prayer is a sure evidence of spiritual quickening--the Holy Spirit has put spiritual life into the heart of the man who prays, for prayer is the breath of heavenly life. Prayer is the outcome of that sense of need which arises from the new life--a man would not pray to God if he did not feel that he had urgent need of blessings which only the Lord can bestow. While expressing his sense of need and appealing to God for help, the praying man gives evidence of being at peace with his Lord and cured of his natural alienation. He who prays, trusts, and thus reveals the faith which saves. Some forms of prayer display great faith, but all real prayer is the working of faith, either little or great. Will a man cry to God for mercy if he does not believe in Him? Will he plead at the Mercy Seat if he does not expect to obtain his desire? Thus, dear Friends, prayer of the true kind is a voucher for the existence of spiritual life in its consciousness of need, in its turning towards God and in its faith in Him.

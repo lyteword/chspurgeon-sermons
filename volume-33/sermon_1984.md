@@ -1,6 +1,5 @@
 # Sermon 1984 | Man, Whose Breath Is In His Nostrils
 
-
 > "Cease you from man, whose breath is in his nostrils: for of what account is he?"  
 > Isaiah 2:22.  
 

@@ -1,6 +1,5 @@
 # Sermon 2075 | Our Lord's Entrance Within the Veil
 
-
 > "Not with the blood of goats and calves, but with His own blood He entered the Most Holy Place once and for all, having obtained eternal redemption for us."  
 > Hebrews 9:12.  
 

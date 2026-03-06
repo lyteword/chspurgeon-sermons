@@ -1,12 +1,5 @@
 # Sermon 1932 | Love's Law and Life
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 5, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 30, 1886.
-
 "If you love Me, keep My commandments." John 14:15.
 
 THIS is a chapter singularly full of certainties and remarkably studded with "ifs." Concerning most of the great things in it there never can be an, "if," and yet, "if," comes up, I think, no less than seven times in the chapter and, "if," too, not about trifles, but about the most solemn subjects. It is, perhaps, worthy of mention that with each of these, "ifs," there is something connected, as following out of it, or appearing to be involved in it, or connected with it.

@@ -1,12 +1,5 @@
 # Sermon 1929 | To Those Who Are Angry With Their Godly Friends
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the Lord said unto Cain, Why are you angry? And why is your countenance fallen? If you do well, will you not be accepted? And if you do not do well, sin lies at the door. And unto you shall be his desire and you shall rule over him." Genesis 4:6, 7.
 
 SINNERS are not all of the laughing sort--Cain's mind was angry and his heart was heavy. The short life of the vicious is not always a merry one. See, here you have a man who is utterly without God, but he is not without sorrow. His countenance has fallen, his looks are sullen--he is a miserable man. There are many ungodly people still in the world who are not happy in the condition in which they find themselves. The present does not content them and they have no future from which to borrow the light of hope. The service of sin is hard to them and yet they do not quit it for the service of the Lord. They are in danger of having two Hells--one in this life and another in the world to come!

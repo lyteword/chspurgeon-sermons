@@ -1,12 +1,5 @@
 # Sermon 1750 | The Luther Sermon at Exeter Hall
 
-
-DELIVERED ON LORD'S-DAY EVENING, NOVEMBER 11, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
-
 "For in Jesus Christ neither circumcision avails anything, nor uncircumcision; but faith which works by love." Galatians 5:6.
 
 PAUL makes a clean sweep of that trust in the externals of religion which is the common temptation of all time. Circumcision was a great thing with the Jew and, oftentimes he trusted in it. But Paul declares that it avails nothing. There might be others who were glad that they were not Jews, but Paul declares that their uncircumcision avails no more than its opposite! Certain matters connected with godliness are external and yet they are useful in their places--especially is that the case with Baptism and the Lord's Supper, the assembling of ourselves together, the reading of the Word of God and public prayer and praise. These things are proper and profitable, but none of them must be made, in any measure or degree, the ground of our hope of salvation, for this text sweeps them all away and plainly describes them as availing nothing if they are made to

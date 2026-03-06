@@ -1,12 +1,5 @@
 # Sermon 1928 | Our Ascended Lord
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 7, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who has gone into Hea ven and is at the right hand of God; angels and authorities and po wers being made subject to Him." 1 Peter 3:22.
 
 LAST Lord's Day morning [#1927--Our Sympathizing High Priest] we considered the humiliation of our Divine Lord and, I think, if one may speak for the rest, that we consciously and deeply felt how very near He came to us in His suffering condition and how very near He still is to us as truly Man. On that happy occasion we had fellowship with Him of the truest kind. The sympathy of His soul toward us awoke our sympathies towards Him. We felt it exceedingly profitable to sit and weep with Him who not only wept but bled for us.

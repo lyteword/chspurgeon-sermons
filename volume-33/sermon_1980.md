@@ -1,6 +1,5 @@
 # Sermon 1980 | Folly of Unbelief
 
-
 Then he said unto them, O fools, and slow of heart to believe all that the prophets have spoken."--Luke 24:25.
 
 THE TWO DISCIPLES who walked to Emmaus and conversed together, and were sad, were true believers. We may not judge men by their occasional feelings. The possession of gladness is no clear evidence of grace; and the existence of depression is no sure sign of insincerity. The brightest eyes that look for heaven have sometimes been holden so that they could not see their heart's true joy. Be not cast down, my brethren and sisters, if occasionally the tears of sadness bathe your cheeks. Jesus may be drawing near to you, and yet you may be troubled by mysteries of grief.

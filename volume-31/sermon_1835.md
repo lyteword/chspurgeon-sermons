@@ -1,6 +1,5 @@
 # Sermon 1835 | The Man Christ Jesus
 
-
 > "Now consider how great this man was."  
 > Hebrews 7:4.  
 

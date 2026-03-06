@@ -1,12 +1,5 @@
 # Sermon 1829 | The Singular Origin of a Christian
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON FEBRUARY 7, 1884.
-
 "For we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them." Ephesians 2:10.
 
 THIS text is written by the Apostle as a reason why salvation cannot be a thing of human merit--"not of works, lest any man should boast, for we are His workmanship." The for indicates an argument. It is a conclusive reason why salvation cannot be by our good works, because even when we have an abundance of the best of works, they are far more due to God than to ourselves! We, ourselves, in our saved condition, are the workmanship of God, and with each of us the argument holds good--"Not of works, for we are His workmanship."

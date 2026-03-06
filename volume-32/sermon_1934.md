@@ -1,12 +1,5 @@
 # Sermon 1934 | "And We Are"--a Jewel from the Revised Version
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 19, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 19, 1885.
-
 "Behold, what manner of love the Father has bestowed upon us, that we should be called the sons of God." 1 John 3:1
 
 So far we keep to our Authorized Version. Now read the Revised Version, and note the words added-- "Behold what manner of love the Father has bestowed upon us, that we should be called children of God: and such we are."

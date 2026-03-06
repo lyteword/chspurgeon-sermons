@@ -1,6 +1,5 @@
 # Sermon 1910 | The Heart of The Gospel
 
-
 > "Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him."  
 > 2 Corinthians v 20,21.  
 

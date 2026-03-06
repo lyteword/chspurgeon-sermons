@@ -1,12 +1,5 @@
 # Sermon 1838 | The Good Ananias--a Lesson for Believers
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 26, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there was a certain disciple at Damascus, named Ananias, and to him said the Lord in a vision, Ananias. And he said, Behold, I am here, Lord." Acts 9:10.
 
 AT this season we are called upon to think of foreign missions. As members of the Baptist Missionary Society, we are in happy and hopeful circumstances. God is smiling upon the work, both at home and abroad, and raising up men whose hearts are in the cause. Last year the Society was in arrears--it has expended very much more money this year than last year--and yet it has paid its way, is clear of debt and begins the year with a balance in hand! For this we are very thankful, not only because the money is necessary to defray the charges of the holy service, but because it shows that the Churches have confidence in the Missionary Society and that they are awakening to their responsibility concerning it. The more Believers in the Lord Jesus consider the matter, the more they will see that it is the duty and the privilege of all who know the Lord to make Him known to others.

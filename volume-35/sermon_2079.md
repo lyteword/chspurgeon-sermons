@@ -1,6 +1,5 @@
 # Sermon 2079 | Man Unknown To Man
 
-
 > "The heart knows his own bitterness. And a stranger does not understand with his joy."  
 > Proverbs 14:10.  
 

@@ -1,12 +1,5 @@
 # Sermon 1930 | Is It True?
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 21, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 12, 1886.
-
 "Nebuchadnezzar spoke and said to them, Is it true, O Shadrach, Meshach, and Abednego, that you do not serve my gods, nor worship the golden image which I have set up?" Daniel 3:14.
 
 DEAR Friends who are not yet decided, if you would become followers of the Lord Jesus Christ it will be well for you to count the cost. It was our Lord's custom to bid men consider what His service might involve. His frequent declaration was, "He that takes not his cross, and follows after Me, is not worthy of Me." He knew and would have us know that it is no child's play to be a soldier of the Cross. If we count upon ease in this warfare, we shall be grievously disappointed. We must fight if we would reign.

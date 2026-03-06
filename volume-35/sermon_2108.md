@@ -1,7 +1,5 @@
 # Sermon 2108 | Perseverance in Holiness
 
-
-> "And I will make an everlasting covenant with them, that I will not turn away from them, to do them good; but I will put my fear in their hearts, that they shall not depart from me"'Jeremiah 32:40.  
 > "And I will make an everlasting covenant with them, that I will not turn away from them, to do them good; but I will put my fear in their hearts, that they shall not depart from me"'Jeremiah 32:40.  
 
 LAST Sabbath morning we were called to deep searching of heart. It was a very painful discourse to the preacher, and it was not less so to many of his hearers. Some of us will never forget that fig tree, covered with untimely leaves, which yielded no fruit, and was condemned to stand a beacon to the unfruitful of all ages. I felt that I was in the surgery, using the knife: I felt great tenderness, and the operation was grievous to my soul. When the winnowing fan was used to chase away the chaff, some of the wheat felt that it was none too heavy: the wind stirred it in its place, so as to make it fear that it would be carried into the fire. To-day, I trust we shall see that, despite all sifting, not one true grain shall be lost.

@@ -1,12 +1,5 @@
 # Sermon 1741 | "Let Not Your Heart Be Troubled"
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 23, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let not your heart be troubled: you believe in God, believe also in Me. In My Father's house are many mansions: if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto Myself; that where I am, there you may be also. And where I go you know, and the way you know." John 14:1-4.
 
 WE may well feel glad that God's people, whose lives are recorded in the Old and New Testaments, were men of like passions with ourselves. I have known many a poor sinner pluck up hope as he has observed the sins and struggles of those who were saved by Grace. And I have known many of the heirs of Heaven find consolation as they have observed how imperfect beings like themselves have prevailed with God in prayer and have been delivered in their time of distress. I am very glad that the Apostles were not perfect men--they would then have understood all that Jesus said at once--and we would have lost our Lord's instructive explanations. They would also have lived above all trouble of mind--and then the Master would not have said to them these golden words, "Let not your heart be troubled."

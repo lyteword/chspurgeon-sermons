@@ -1,8 +1,5 @@
 # Sermon 1819 | A Sweet Silver Bell Ringing in Each Believer's Heart
 
-
-On December 18th, 1884.
-
 "My God will hear me." Micah 7:7.
 
 WHAT a charming sentence! Can you say it? Only five words, but what meaning! Huge volumes of poetry have appeared from Chaucer even to Tennyson; but it seems to me that the essence of poetry lies hid in a marvellously condensed form within these few words. It shall take you many an hour to suck out all their sweetness. There is an almost inconceivable depth of meaning in them: and of richness of assured experience and of sweet conclusions of a hallowed faith they are full to the brim.

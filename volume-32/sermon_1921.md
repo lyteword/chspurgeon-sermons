@@ -1,12 +1,5 @@
 # Sermon 1921 | Cleansing--a Covenant Blessing
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then will I sprinkle clean water on you and you shall be clean: from all your filthiness and from all your idols, I will cleanse you." Ezekiel 36:25.
 
 THIS is one of the opening words of the glorious Covenant of Grace. Ezekiel's copy of the Covenant is full and clear and deserves to be written in letters of gold and hung up in the best chamber of every Believer's dwelling This is the Magna Charta of saints--the title deed of the land of our inheritance! Glorious Covenant of Grace, our heart delights in every line of promise wherewith you are enriched!

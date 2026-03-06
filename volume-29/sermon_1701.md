@@ -1,12 +1,5 @@
 # Sermon 1701 | Gladness For Sadness
 
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 14, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Make us glad according to the days in which You have afflicted us, and the years in which we have seen evil. Let Your work appear to Your servants, and Your glory to their children. And let the beauty of the Lord our God be upon us, and establish the work of our hands for us; yes, establish the work of our hands." Psalm 90:15-17.
 
 TO understand this Psalm, you must observe its black border. Remember the sorrows of Moses, the man of God, who saw a whole generation die in the wilderness and was, himself, denied admission to the promised land. The man, Moses, was greatly afflicted. I might almost call him, as far as his life in the wilderness was concerned, "a man of sorrows and acquainted with grief." He dug the desert till it became a cemetery, for he lived amid 40 years of funerals. This 90th Psalm is saturated with the griefs of a sentenced generation, by whom it could be truly said, "We are consumed by Your anger, and by Your wrath are we troubled."

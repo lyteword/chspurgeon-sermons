@@ -1,12 +1,5 @@
 # Sermon 1845 | The Pity of the Lord--the Comfort of the Afflicted
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 14, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON BEHALF OF THE LONDON HOSPITALS.
-
 "Behold, we count them happy which endure. You have heard of the patience of Job, and have seen the end of the Lord; that the Lord is full of pity, and of tender mercy." James 5:11.
 
 WE are far too apt to entertain hard thoughts of God. The horrible atheism of our depraved nature continually quarrels with the Most High and, when we are under His afflicting hand and things go cross to our will, the evil of our nature becomes sadly evident. When sorely distressed, we are too apt to think and to speak as we ought not to do concerning the Most High. Let us never forget that our hard speeches have all been false speeches and that our suspicions of our God have always been libels upon Him. When we have not thought and spoken well of His name, we have thought and spoken amiss! Looking back, we desire, if possible, to blot out every murmuring thought with our tears and we would cancel every complaining word with humble sorrow. We would eat our bitter words--they were all unwarranted and, therefore, with deep repentance we call them back. On taking a survey of our whole life, we see that the kindness of God has run all through it like a silver thread. Goodness and mercy have followed us all our days, always pursuing us even when we have wickedly fled from them.

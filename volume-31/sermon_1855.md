@@ -1,12 +1,5 @@
 # Sermon 1855 | What is the Verdict?
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 16, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Beloved, if our heart condemns us not, then have we confidence toward God." 1 John 3:21.
 
 CAREFULLY observe that this text is spoken to the people of God. It speaks to those who are called, "beloved." These are the people who are especially loved of God and of His people. It is a very sweet and endearing title, but it evidently, in this case, belongs only to those who are of the family of Grace--these, alone, can remain uncondemned of their hearts and live in confidence towards God. I want you to observe this because there are different ways of addressing different people and these ways are instructive. To those who are not yet numbered among the beloved, we preach the Gospel of our Lord and Savior Jesus Christ. It is a Gospel intended for the sinful and it talks to them of pardon bought with blood--it is a Gospel intended for the ungodly and it speaks to them of the work of the Holy Spirit, whereby their ungodly hearts may be renewed. Its tale is altogether of Grace and free favor and the passing by of transgression, iniquity and sin to all those who cast themselves believingly at Jesus' feet. That is the voice of Scripture to those who, as yet, are not beloved. The hope is that the Lord will call them beloved who were not beloved--and that in the place where it was said, "They are not My people," they shall be called the people of the living God!

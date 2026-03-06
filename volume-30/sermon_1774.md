@@ -1,12 +1,5 @@
 # Sermon 1774 | God's Work Upon Minister and Convert
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 6, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "'But rise, and stand upon your feet: for I have appeared unto you for this purpose to make you a minister and a witness both of these things which you have seen, and of those things in which I will appear unto you; delivering you from the people, and from the Gentiles, unto whom now I send you, to open their eyes, and to turn them from darkness to light, and from thepower of Satan unto God, that they may receive forgiveness of sins, and inheritance among them which are sanctified by faith that is in Me.' Whereupon, O king Agrippa, I was not disobedient unto the heavenly vision: but showed first unto them of Damascus, and at Jerusalem, and throughout all the coasts of Judea, and then to the Gentiles, that they should repent and turn to God, and do works meet for repentance." Acts 26:16-20.
 
 BEHOLD an amazing sight! Saul of Tarsus at the feet of Jesus of Nazareth! Listen! The persecutor's voice is changed into that of an enquiring disciple. He asks, "What will You have me to do?" If angels sang with delight over a new-made world, their song must have been seven times as joyous over a new-made Apostle! The change was miraculous. At this distance of time we can hardly appreciate it, but if we had been living in daily fear of our lives--if we had seen our father or our brother dragged off to death by this ferocious enemy of the Cross--and then had suddenly heard that he was converted to the faith which he opposed, we would have cried, "Incredible!" For the Ethiopian to change his skin, or for the leopard to lose his spots would be little compared with this cruel Pharisee bowing himself in lowly penitence before the Lord Jesus whom He had persecuted!

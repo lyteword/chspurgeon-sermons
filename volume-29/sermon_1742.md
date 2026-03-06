@@ -1,12 +1,5 @@
 # Sermon 1742 | Spiritual Knowledge and Its Practical Results
 
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 30 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For this cause we, also, since the day we heard it, do not cease to pray for you, and to desire that you might be filled with the knowledge of His will in all wisdom and spiritual understanding; that you might walk worthy of the Lord unto all pleasing, being fruitful in every good work, and increasing in the knowledge of God." Colossians 1:9,10.
 
 FOR the Church that was at Colosse, Paul gave hearty thanks to God for many most important blessings, especially for their faith, their love and their hope. It would be a very useful exercise to our hearts if we would often give thanks to God for the gifts and Graces which we discover in our Christian Brothers and Sisters. I am afraid we are more inclined to spy out their faults and to suppose that we deplore them, than we are to discern the work of the Holy Spirit in them and, from the bottom of our hearts, give thanks to God for them. Paul felt encouraged by what he saw in the Colossian Believers to pray to God to enrich them yet farther. It should be our desire that our best Brethren should be better and that those who are most like Jesus should be still more completely conformed to His image.

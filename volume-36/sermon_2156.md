@@ -1,6 +1,5 @@
 # Sermon 2156 | Robbers of God
 
-
 > "Will a man rob God? Yet you have robbed Me!"  
 > Malachi 3:8.  
 

@@ -1,12 +1,5 @@
 # Sermon 2159 | The Holdfasts of Faith
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 17, 1890,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who is the father of us all, (as it is written, Ihave made you a father of many nations,) before Him whom he believed, even God, who quickens the dead, and calls those things which are not as though they were." Romans 4:16,17.
 
 The preacher begs the reader, before perusing the sermon, to read the two portions of Scripture which were used in the public service-- Genesis 15:1-6 and Romans 4.

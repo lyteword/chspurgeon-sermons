@@ -1,6 +1,5 @@
 # Sermon 2117 | The Father's Love to His Dying Son
 
-
 > "Therefore does My Father love Me, because I lay down My life, that I might take it again."  
 > John 10:17  
 

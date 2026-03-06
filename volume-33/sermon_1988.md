@@ -1,6 +1,5 @@
 # Sermon 1988 | The Blood of Sprinkling and the Children
 
-
 > "Then Moses called for all the elders of Israel, and said unto them, Draw out and take you a lamb according to your families, and kill the Passover lamb. And you shall take a bunch of hyssop, and dip it in the blood that is in the basin, and strike the lintel and the two side posts with the blood that is in the basin; and none of you shall go out at the door of his house until the morning. For the Lord will pass through to smite the Egyptians, and when He sees the blood upon the lintel, and on the two side posts, the Lord will pass over the door, and will not suffer the destroyer to come in unto your houses to smite you. And you shall observe this thing for an ordinance to you and to your sons forever And it shall come to pass, when you come to the land which the Lord will give you, according as He has promised, that you shall keep this service. And it shall come to pass, when your children shall say unto you, What mean you by this service? that you shall say, It is the sacrifice of the Lord's Passo ver, who passed over the houses of the children of Israel in Egypt, when He smote the Egyptians, and delivered our houses."  
 > Exodus 12:21-27.  
 

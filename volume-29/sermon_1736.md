@@ -1,12 +1,5 @@
 # Sermon 1736 | The King's Weighings
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 26. 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
-
 "Talk no more so exceedingly proud; let not arrogance come out of your mouth, for the Lord is the God of knowledge and by Him actions are weighed." 1 Samuel 2:3.
 
 IT is very beautiful to see how the saints of old were accustomed to find comfort in their God. When they came into sore straits; when troubles multiplied; when helpers failed; when earthly comforts were removed, they were accustomed to go to the Lord and to the Lord alone. Thus Hannah thinks of the Lord and comforts herself in His name. By this means they were made strong and glad--they began to sing instead of sighing and to work wonders instead of fainting under their burdens even as here the Inspired poetess sings, "My heart rejoices in the Lord, my horn is exalted in the Lord." To them God was a reality, a present reality, and they looked to Him as their rock of refuge, their helper and defense, a very present help in time of trouble.

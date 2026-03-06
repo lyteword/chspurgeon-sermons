@@ -1,6 +1,5 @@
 # Sermon 2066 | Our Place--at Jesus' Feet
 
-
 > "At His feet."  
 > Luke 7:38.  
 

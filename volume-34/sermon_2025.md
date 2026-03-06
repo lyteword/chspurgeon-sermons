@@ -1,6 +1,5 @@
 # Sermon 2025 | The Tender Enquiry of a Friend
 
-
 > "How long will you cut yourself?"  
 > Jeremiah 47:5.  
 

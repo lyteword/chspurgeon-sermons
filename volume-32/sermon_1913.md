@@ -1,12 +1,5 @@
 # Sermon 1913 | Confidence and Concern
 
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, AUGUST 8, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For this reason I also suffer these things; nevertheless I am not ashamed, for I know whom I have believed and am persuaded that He is able to keep that which I have committed unto Him against that day. Hold fast the form of sound words, which you have heard of me, in faith and love which is in Christ Jesus. That good thing which was committed unto you keep by the Holy Spirit which dwells in us." 2 Timothy 1:12-14.
 
 OUR Apostle was in prison. If he was confined in the Mammertine, those of us who have shivered in that dark underground dungeon may well pity him. And if he was confined in the prison of the Praetorian Guards, he fared no better, for the near company of such rough and cruel soldiers would involve much suffering. The Apostle was not only a prisoner, chained by his right hand to a soldier both day and night, but he was, to his intense sorrow, forsaken by his friends. The encouragements of Christian communion are exceedingly great and the loss of them is very bitter. Those who ought to have gloried in the Apostle for his fervor, his self-sacrifice, his courage and his zeal, had turned against him. He writes to Timothy, "This you know, that all they which are in Asia have turned away from me; of whom are Phygellus and Her-mogenes." It would seem that these two notable persons were ashamed of Paul's chain and, to their endless disgrace, turned against him.

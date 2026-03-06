@@ -1,6 +1,5 @@
 # Sermon 1918 | The Abiding of the Spirit the Glory of the Church
 
-
 > "Yet now be strong, O Zerubbabel, saith the Lord; and be strong, O Joshua, son of Josedech, the high priest; and be strong, all ye people of the land, saith the Lord, and work: for I am with you, saith the Lord of hosts: according to the word that I covenanted with you when ye came out of Egypt, so my spirit remaineth among you: fear ye not."  
 > Haggai 2:4-5.  
 

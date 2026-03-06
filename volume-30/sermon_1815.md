@@ -1,12 +1,5 @@
 # Sermon 1815 | The Great Birthday and Our Coming of Age
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 21, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Even so we, when we were children, were in bondage under the elements of the world. But when the fullness of the time had come, God sent forth His Son, made of a woman, born under the Law, to redeem those who were under the Law, that we might receive the adoption of sons. And because you are sons, God has sent forth the Spirit of His Son into your hearts, crying, "Abba, Father." Galatians 4:3-6.
 
 THE birth of our Lord Jesus Christ into this world is a wellspring of pure, unmingled joy. We associate with His Crucifixion much of sorrowful regret, but we derive from His birth at Bethlehem nothing but delight. The angelic song was a fit accompaniment to the joyful event and the filling of the whole earth with peace and good will is a suitable consequence of the condescending fact. The stars of Bethlehem cast no baleful light--we may sing with undivided joy, "Unto us a Child is born, unto us a Son is given." When the Eternal God stooped from Heaven and assumed the nature of His own creature who had rebelled against Him, the deed could mean no harm to man. God, in our nature, is not God against us but God with us! We may take up the young Child in our arms and feel that we have seen the Lord's salvation--it cannot mean destruction to men.

@@ -1,6 +1,5 @@
 # Sermon 1946 | Eternal Life Within Present Grasp
 
-
 > "Lay hold on eternal life."  
 > 1 Timothy 6:12.  
 

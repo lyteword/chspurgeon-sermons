@@ -1,12 +1,5 @@
 # Sermon 1887 | Pleading For Prayer
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 21, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now I beseech you, Brethren, for the Lord Jesus Christ's sake, and for the love of the Spirit, that you strive together with me in your prayers to God for me; that I may be delivered from those in Judea who do not believe, and that my service which I have for Jerusalem may be accepted of the saints; that I may come unto you with joy by the will of God, and may, with you, be refreshed. Now the God of Peace be with you all. Amen." Romans 15:30-33.
 
 THE Apostle of the Gentiles held a very useful and glorious office, but he had by no means a smooth path in life. When we read the account of his sufferings, persecutions and labors, we wonder how a single individual could have gone through them all. He was a true hero. Though a Hebrew of the Hebrews, he stands in the very front of the whole Gentile Church as its founder and teacher under God. And we owe to him what we can never fully estimate. When we consider the struggles of his life, we do not wonder that the Apostle was, sometimes, in great sorrow of heart and heavily burdened in spirit. He was so at the time when he wrote this Epistle to the Christian friends at Rome. It was a great delight to him to have to go to Jerusalem--it was a place which was much reverenced and loved by him. It was a greater privilege for him to go and exchange salutations with his brother Apostles and it was the most joyous privilege of all to be the bearer of a contribution from the Gentiles to relieve the necessities of the saints at Jerusalem. He rejoiced much more in that gift to Jewish Believers than if it had been anything for himself.

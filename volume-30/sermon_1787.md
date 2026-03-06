@@ -1,12 +1,5 @@
 # Sermon 1787 | Humility, the Friend of Prayer
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 22, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan; and now I am become two bands." Genesis 32:10.
 
 JACOB'S character was far from faultless, but equally removed from despicable. He possessed great strength of character and force of judgment, but this became somewhat of a snare to him, so that he did not always move through life with the childlike repose of Isaac, or the royal serenity of Abraham, but was, at times, crafty and critical like his relatives on his mother's side. Yet I object to that depreciation of Jacob's character which is so common in certain quarters because he used the means, as well as prayed. Our God is the God of Abraham, of Isaac, and of Jacob--and, very frequently, He is called the God of Israel--and even the God of Jacob. "He is not ashamed to be called their God." And if He is not ashamed to be called Jacob's God, no fellow Believer has any right to be ashamed of Jacob! With all his imperfections-- and he certainly had them--he was a noble man.

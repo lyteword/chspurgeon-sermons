@@ -1,6 +1,5 @@
 # Sermon 1960 | The Servants and the Pounds
 
-
 > "A certain nobleman went into a far country to receive for himself a kingdom and to return. So he called ten of his servants and delivered to them ten pounds, and said to them, Do business till I come."  
 > Luke 19:12,13.  
 

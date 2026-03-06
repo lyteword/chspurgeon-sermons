@@ -1,6 +1,5 @@
 # Sermon 2035 | Peter After His Restoration
 
-
 > "When you are converted, strengthen your Brethren."  
 > Luke 22:32.  
 

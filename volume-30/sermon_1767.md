@@ -1,12 +1,5 @@
 # Sermon 1767 | Faith Among Mockers
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him." Psalm 22:8.
 
 DAVID experienced what Paul afterwards so aptly described as "cruel mockings." Note the adjective, cruel--it is well chosen. Mockings may not cut the flesh, but they tear the heart. They may shed no blood, but they cause the mind to bleed internally. Fetters gall the wrists, but the iron of scorn enters into the soul. Ridicule is a poisoned bullet which goes deeper than the flesh and strikes the center of the heart. David in the wilderness, hunted by Saul and on the throne abused by Shimei, knew what it was to be the butt of scorn, the football of contempt. Many a time and often he was the song of the drunk and the byword of the scoffer.

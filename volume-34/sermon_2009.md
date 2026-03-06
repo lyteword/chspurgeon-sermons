@@ -1,6 +1,5 @@
 # Sermon 2009 | Job Among the Ashes
 
-
 > "I have heard of You by the hearing of the ear: but now my eye sees You. Wherefore I abhor myself and repent in dust and ashes."  
 > Job 42:5, 6.  
 

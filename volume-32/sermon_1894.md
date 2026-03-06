@@ -1,12 +1,5 @@
 # Sermon 1894 | The Two Appearings and the Discipline of Grace
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the Grace of God that brings salvation has appeared to all men, teaching us that denying ungodliness and worldly lusts, we should live soberly, righteously and godly in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Savior Jesus Christ, who gave Himself for us, that He might redeem us from alliniquity, and purify unto Himself a peculiar people, zealous of good works." Titus 2:11-14.
 
 UPON reading this text, one sees at a glance that Paul believed in a Divine Savior. He did not preach a Savior who was a mere man. He believed the Lord Jesus Christ to be truly Man, but he also believed Him to be God over all and he, therefore, uses the striking words, "the glorious appearing of the great God and our Savior Jesus Christ." There is no appearing of God the Father--there is no such expression in Scripture! The appearing is the appearing of that second Person of the blessed Trinity in unity who has already once appeared and who will appear a second time without a sin offering unto salvation in the latter days. Paul believed in Jesus as "the great God and our Savior." It was his high delight to extol the Lord who once was crucified in weakness. He calls Him, here, "the great God," thus specially dwelling upon His power, dominion and Glory. And this is the more remarkable because he immediately goes on to say, "who gave Himself for us, that He might redeem us from all iniquity." He that gave Himself. He that surrendered life, itself, upon the accursed tree. He that was stripped of all honor and Glory and entered into the utmost depths of humiliation was, assuredly, the great God notwithstanding all! O Brothers, if you take away the Deity of Christ, what in the Gospel is left that is worth preaching? None but the great God is equal to the work of being our Savior!

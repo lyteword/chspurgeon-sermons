@@ -1,12 +1,5 @@
 # Sermon 1924 | A Cheering Incident at Bethabara
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore they sought again to take Him, but He escaped out of their hands, and went away, again, beyond Jordan into the place where John at first baptized, and there He abode. And many came to Him, and said, John did no miracle: but all things that John spoke of this Man were true. And many believed on Him there." John 10:39-42.
 
 BECAUSE our Savior's reasoning was unanswerable, "therefore the Jews sought again to take Him." When men are convinced against their wills; when the heart struggles against the head; it usually happens that they turn persecutors. If they cannot answer holy arguments with fair reasoning, they can give hard answers with stones. If you cannot destroy the reasoning, you may, perhaps, destroy the reasoner--and this naturally suggests itself to the heart which is rendered cruel by obstinate unbelief--he who hates Truth of God soon hates its advocate. You must not consider yourself to have been unsuccessful in your proofs when your opponent waxes angry at them. Perhaps it is your success which has startled his conscience and rendered it necessary for him to become malicious to retain his obstinacy. Yet it is a very wretched business when a man knows that he is wrong and, therefore, attacks the person who has convinced him.

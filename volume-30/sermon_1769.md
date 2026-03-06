@@ -1,12 +1,5 @@
 # Sermon 1769 | Before Daybreak with Christ
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, FEBRUARY 14, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And in the morning, rising up a great while before day, He went out, and departed into a solitary place, and there prayed. And Simon and they that were with Him followed after Him. And when they had found Him, they said unto Him, All men seek for You. And He said unto them, Let us go into the next towns, that I may preach there also for therefore came I forth. And He preached in their synagogues throughout all Galilee, and cast out devils." Mark 1:35-39.
 
 A WONDERFUL day was closed and crowned by a wonderful evening. Capernaum had been exalted to Heaven that day, for deeds worthy of Heaven had been worked in her. Within the synagogue the power and authority of the new Teacher had been seen, but at the close of the Sabbath, when the people felt more free to lay their sick before Him, His Divine Majesty was glorified before all in the open streets of the little town. Galilee had never before seen such a day of preaching, or such an eventide of healing. "At even, when the sun did set, they brought unto Him all that were diseased, and them that were possessed with devils. And all the city was gathered together at the door. And He healed many that were sick of different diseases, and cast out many devils."

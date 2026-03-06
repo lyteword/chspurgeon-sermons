@@ -1,12 +1,5 @@
 # Sermon 1765 | An Astounding Miracle
 
-
-A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 10, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they went into Capernaum, and straightway on the Sabbath day He entered into the synagogue, and taught. And they were astonished at His doctrine: for He taught them as one that had authority, and not as the scribes. And there was in their synagogue a man with an unclean spirit, and he cried out, saying, Let us alone, what have we to do with You, Jesus of Nazareth? Have You come to destroy us? I know who You are, the Holy One of God. And Jesus rebuked him, saying, Hold your peace, and come out of him. And when the unclean spirit had convulsed him, and cried with a loud voice, he came out of him. And they were all amazed, so that they questioned among themselves, saying, What thingis this? What new doctrine is this? For with authority commands He even the unclean spirits, and they do obey Him. And immediately His fame spread abroad throughout all the region round about Galilee." Mark 1:21-28.
 
 You will find the same narrative in Luke, at the fourth chapter, from the 31st to the 37th verse. It will be handy for you to be able to refer to the second passage, from which I shall quote one or two matters. These two Evangelists commence the narrative by telling us of the singular authority and power which there was about the Savior's teaching-- authority so that no man dared question His doctrine--power, so that every man felt the force of the Truths of God which He delivered. "They were astonished at His teaching, for His Word was with power." Why was it that the Savior's teaching had such a remarkable power about it? Was it not, first, because He preached the Truth of God? There is no power in falsehood except so far as men choose to yield to it because it flatters them, but there is great force in the Truth of God--it makes its own way into the soul.

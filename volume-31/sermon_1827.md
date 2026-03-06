@@ -1,12 +1,5 @@
 # Sermon 1827 | Exceeding Gladness
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON DECEMBER 21, 1884.
-
 "For You have made Him most blessed forever: You have made Him exceedingly glad with Your countenance." Psalm 21:6.
 
 You have heard a great many sermons upon the Man of Sorrows. I am sure that you have not heard too many and if, from this time to the end of your life, you should, every Lord's Day, hear of Him and of His sufferings, you will not be nauseated with that theme. You will still feel an intense pleasure in hearing the story of your Lord's griefs and in having fellowship with Him in His sufferings, for by His agonies and death He has redeemed you unto Himself. Probably you have never listened to a discourse upon, "The Man of Joys!" I venture, thus, to name the Christ of God. We do not often enough meditate upon the happiness of the Lord Jesus Christ.

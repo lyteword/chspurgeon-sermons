@@ -1,12 +1,5 @@
 # Sermon 1912 | The Holy Road
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And an highway shall be there, and a way, and it shall be called The way of Holiness; the unclean shall not pass over it, but it shall be for others. The wayfaring men, though fools, shall not err in it." Isaiah 35:8.
 
 TWICE has Israel come back from captivity--once when the tribes came out of Egypt and the Lord led them through the wilderness--and again when they returned from banishment in Babylon and the Lord restored them to their land. A third return some of us believe still awaits the chosen people. In the day when the Grace of God shall change the heart of Israel, the seed of Abraham shall again return into the land which God gave to their fathers by a Covenant of Salt. I think our text looks forward to a future age when the reproach shall be rolled away from Palestine and her deserts shall be made to blossom as the rose. Of these future glories we say but little, for little is known by the most of us. The prophecy is, however, sufficiently clear to make us expect that the Lord will make a way for the return of His ancient people and will restore unto them the joy of His salvation. I forbear all theories of prophecy just now, for I feel it more than ever necessary in this evil time to keep close to the simplicities of the Gospel, following for the present distress, the beaten road of the first principles of the faith. I shall not use the telescope to look into the starry future, but rather the chart and compass with which to direct our present way. I shall regard the text as having received one fulfillment in the way of salvation by our Lord Jesus Christ. If this is not the literal fulfillment of the prophecy, yet certainly it is its spiritual fulfillment and, for the moment, this is the most vital matter to us. As the Savior spoke at Nazareth, so say I now, "This day is this Scripture fulfilled in your ears." Hear it, and discern its Divine teaching.

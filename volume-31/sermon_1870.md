@@ -1,12 +1,5 @@
 # Sermon 1870 | But a Step
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY EVENING, NOVEMBER 29, 1885.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SEPTEMBER 13, 1885.
-
 "There is but a step between me and death." 1 Samuel 20:3.
 
 THIS was David's description of his own condition. King Saul was seeking to destroy him. The bitter malice of that king would not be satisfied with anything short of the blood of his rival. Jonathan did not know this. He could not believe so badly of his father as that he could wish to kill the champion of Israel, the brave, true-hearted young David. And so he assured David that it could not be so--that he had not heard of any plots against him. But David, who knew better, said, "It is certainly so. Your father seeks my blood and there is but a step between me and death."

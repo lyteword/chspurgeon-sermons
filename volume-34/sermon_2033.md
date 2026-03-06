@@ -1,6 +1,5 @@
 # Sermon 2033 | Plain Directions To Those Who Would Be Saved From Sin
 
-
 > "Stand in awe and sin not: commune with your own heart upon your bed and be still. Selah. Offer the sacrifices of righteousness, and put your trust in the Lord."  
 > Psalm 4:4,5.  
 

@@ -1,12 +1,5 @@
 # Sermon 1831 | Smoking Flax
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON JUNE 1, 1884.
-
 "The smoking flax shall He not quench." Isaiah 42:3.
 
 I BELIEVE that the first sense of these words is not the one usually given to them, nor yet the one upon which I intend to preach tonight. We read in the 12th of Matthew that our Divine Lord was assailed by the scribes and Pharisees, but He did not enter, at that time, into controversy with them, neither did He make them the perpetual target of His observations. Considering what hypocrites they were and what boundless mischief they were doing, He treated them very gently, indeed. They were, compared to Him, but as bruised reeds and as the smoking flax, and He could, if He had pleased, have broken them up altogether, or have altogether quenched them--but He did not come to be a mere controversialist. He was, in truth, the greatest of all Reformers, but He was not so much a breaker-down as He was a builder-up. He came not so much to drive out error by reason, as to expel it by the natural and efficient process of putting the Truth of God into its place. So, to a large extent, He left these scribes and Pharisees, and other opponents, alone, and He went quietly on with His own work of healing the sick and saving the sinful--a very good lesson to us.

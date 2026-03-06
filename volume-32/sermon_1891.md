@@ -1,6 +1,5 @@
 # Sermon 1891 | The Sermon of the Seasons
 
-
 > "While the earth remaineth, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease."  
 > Genesis 8:22.  
 

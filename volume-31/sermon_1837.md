@@ -1,8 +1,5 @@
 # Sermon 1837 | A Great Gospel for Great Sinners
 
-
-On June 2nd, 1884,
-
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners, of whom I am chief. Howbeit for this cause I obtained mercy, that in me first Jesus Christ might show forth all longsuffering, for a pattern to them which should hereafter believe on him to life everlasting. Now unto the King eternal immortal, invisible, the only wise God, be honor and glory for ever and ever. Amen."1 Timothy 1:15-17.
 
 WHEN Paul wrote this ever-memorable text, "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners," he placed it in connection with himself. I would have you carefully notice the context. Twelfth verse:"I thank Christ Jesus our Lord, who hath enabled me, for that he counted me faithful, putting me into the ministry; who was before a blasphemer, and a persecutor, and injurious: but I obtained mercy, because I did it ignorantly in unbelief. And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus. This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners." You see, the apostle had spoken of himself, and then it was that the Holy Spirit put it into his mind to write of the glorious salvation of which he was so notable a subject. Truly it was a seasonable and suggestive connection in which to place this glorious gospel text. What he preached to others was to be seen in himself.

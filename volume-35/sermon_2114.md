@@ -1,6 +1,5 @@
 # Sermon 2114 | The Burden of the Word of the Lord
 
-
 > "The burden of the Word of the Lord."  
 > Malachi 1:1.  
 

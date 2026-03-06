@@ -1,12 +1,5 @@
 # Sermon 1802 | Thought-Reading Extraordinary
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "LORD, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear." Psalm 10:17.
 
 NOTICE at the outset, the logic of this verse. It is very simple, very forcible, very accurate logic. It runs thus--"You have"--"You will." "Lord, You have heard the desire of the humble: You will prepare their heart." When you know that the Lord God is immutable, "the same yesterday, today and forever," you may conclude without mistake that what He has done, He is prepared to do again. The argument from the past to the future would be a sorry one if you were dealing with fallible man, for what man has done is no sure guarantee of what he may do! He is such a creature of freaks and whims, but when you have to deal with the Eternal God, who is faithful and true, and changes not, you may reckon with safety that the thing which has been is the thing which shall be. Well did the Apostle say, "Who delivered us from so great a death, and does deliver: in whom we trust that He will yet deliver us."

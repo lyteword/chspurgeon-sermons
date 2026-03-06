@@ -1,6 +1,5 @@
 # Sermon 2111 | Filling With the Spirit and Drunkenness With Wine
 
-
 > "And be not drunk with wine, wherein is excess. But be filled with the Spirit."  
 > Ephesians 5:18.  
 

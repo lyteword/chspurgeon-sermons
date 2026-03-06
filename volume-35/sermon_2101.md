@@ -1,6 +1,5 @@
 # Sermon 2101 | Life and Pardon
 
-
 > "And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven you all trespasses."  
 > Colossians 2:13.  
 

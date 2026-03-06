@@ -1,12 +1,5 @@
 # Sermon 1902 | The Happy Duty of Daily Praise
 
-
-A SERMON DELIVERED ON LORDS-DAY MORNING, MAY 30, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will extol You, my God, O King; and I will bless Your name forever and ever. Every day will I bless You; and I will praise Your name forever and ever." Psalm 114:1,2.
 
 IF I were to put to you the question, "Do you pray?" the answer would be very quickly given by every Christian person, "Of course I do." Suppose I then added, "And do you pray every day?" the prompt reply would be, "Yes, many times in the day. I could not live without prayer." This is no more than I expect and I will not ask the question. But let me change the enquiry and ask, "Do you bless God every day? Is praise as certain and constant a practice with you as prayer?" I am not sure that the answer would be quite so certain, so general, or so prompt. You would have to stop a little while before you gave the reply and, I fear in some cases, when the reply did come, it would be, "I am afraid I have been negligent in praise." Well, then, dear Friend, have you not been wrong? Should we omit praise any more than we omit prayer? And should not praise come daily and as many times in the day as prayer does? It strikes me that to fail in praise is as unjustifiable as to fail in prayer! I shall leave it with your own heart and conscience, when you have asked and answered the question, to see to it in the future that far more of the sweet frankincense of praise is mingled with your daily oblation of devotion.

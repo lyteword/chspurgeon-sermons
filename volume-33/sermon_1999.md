@@ -1,6 +1,5 @@
 # Sermon 1999 | Small Rain for Tender Herbs
 
-
 > "As the small rain upon the tender herb."  
 > Deuteronomy 32:2.  
 

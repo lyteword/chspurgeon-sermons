@@ -1,6 +1,5 @@
 # Sermon 2090 | A Delicious Experience
 
-
 > "For we which have believed do enter into rest, as He said, As I have sworn in My wrath, if they shall enter into My rest."  
 > Hebrews 4:3.  
 

@@ -1,12 +1,5 @@
 # Sermon 1841 | Divine Forgiveness Admired and Imitated
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Forbearing one another, and forgiving one another, if anyone has a quarrel against any: even as Christ forgave you, so also do you." Colossians 3:13.
 
 To whom is this exhortation addressed? The Apostle told us in the 12th verse--"Elect of God, holy and beloved." Here are three particulars. They are, first of all, "elect of God," that is to say, chosen according to His eternal purpose. They are made choice ones by being thus chosen. Next, they are sanctified by the Spirit of God and are, therefore, called "holy"--this holiness appertaining to their persons and their pursuits, their calling and their conversation. When the Spirit of God has fully done His work, He sheds abroad in their hearts the love of God, so that experimentally they feel themselves to be "beloved." To abide in the love of God is the fruit of election and the result of holiness. If any of you can, with humble confidence, claim these three titles, "elect of God, holy and beloved," you are among the most favored of all mankind! The Father has made of you a special choice! In you His Holy Spirit has worked a special work and you possess, within your souls, the special joy of living in the love of God! "Elect of God, holy and beloved"--it is as you enjoy these three things that you will find it easy to carry out the precept which is now set before you, "Forbearing one another, and forgiving one another, if anyone has a quarrel against any: even as Christ forgave you, so also do you."

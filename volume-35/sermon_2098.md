@@ -1,6 +1,5 @@
 # Sermon 2098 | Where Go You?
 
-
 > "But He knows the way that I take: when He has tried me, I shall come forth as gold."  
 > Job 23:10  
 

@@ -1,6 +1,5 @@
 # Sermon 2103 | The Hunger and Thirst Which Are Blessed
 
-
 > "Blessed are they which do hunger and thirst after righteousness: for they shall be filled."  
 > Matthew 5:6.  
 

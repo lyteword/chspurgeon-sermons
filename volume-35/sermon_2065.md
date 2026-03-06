@@ -1,6 +1,5 @@
 # Sermon 2065 | Our Great Shepherd Finding the Sheep
 
-
 > "Until he finds it. And when he has found it. And when he comes home."  
 > Luke 15:4,5, 6.  
 

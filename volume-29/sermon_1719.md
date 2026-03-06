@@ -1,12 +1,5 @@
 # Sermon 1719 | The Tent Dissolved and the Mansion Entered
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 6, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For we know that if our earthly house of this tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens." 2 Corinthians 5:1.
 
 PAUL ranks among the bravest of the brave. We note, also, with admiration, how the hero of so many dangers and conflicts, who could glow and burn with fervor, was yet among the calmest and quietest of spirits. He had learned to live beyond those present circumstances which worry and disturb. He had stolen a march upon the shadows of time and entered into possession of the realities of eternity! He looked not on the things which are seen, but he set his whole regard on the things which are not seen--and by this means he entered into a deep and joyful peace which made him strong, resolute, steadfast, immovable. I would to God that we had all acquired Paul's art of being "always confident"--his habit of having the inward man renewed day by day!

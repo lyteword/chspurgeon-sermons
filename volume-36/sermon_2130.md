@@ -1,6 +1,5 @@
 # Sermon 2130 | The Deceitfulness of Sin
 
-
 > "But exhort one another daily, while it is called Today; lest any of you be hardened through the deceitfulness of sin."  
 > Hebrews 3:13.  
 

@@ -1,6 +1,5 @@
 # Sermon 1968 | Jubilee Joy--or, Believers Joyful In Their King
 
-
 > "Let the children of Zion bejoyful in their King."  
 > Psalm 149:2  
 

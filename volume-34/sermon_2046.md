@@ -1,6 +1,5 @@
 # Sermon 2046 | Consolation From Resurrection
 
-
 > "I will ransom them from the power of the grave; I will redeem them from death: O death, I will be your plagues; O grave, I will be your destruction: repentance shall be hid from My eyes."  
 > Hosea 13:14.  
 

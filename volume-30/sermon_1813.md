@@ -1,12 +1,5 @@
 # Sermon 1813 | Jonah's Resolve--or, "Look Again!"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 14, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple." Jonah 2:4.
 
 WHAT a complex creature is man! Those who fancy that they can fully describe him, do not understand him. He is a riddle and a contradiction. As says Ralph Erskine--

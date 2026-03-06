@@ -1,12 +1,5 @@
 # Sermon 1733 | On Humbling Ourselves before God
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Humble yourselves therefore under the mighty hand of God, that He may exalt you in due time." 1 Peter 5:6.
 
 PRIDE is so natural to fallen man that it springs up in his heart like weeds in a watered garden, or rushes by a flowing brook. It is an all pervading sin and smothers all things like dust on the roads, or flour in the mill. Its every touch is evil as the breath of the cholera-fiend, or the blast of the Sahara wind. Pride is as hard to get rid of as charlock from the furrows, or the American blight from the apple trees. If killed, it revives; if buried, it bursts the tomb. You may hunt down this fox and think you have destroyed it, but lo, your very exultation is pride! None have more pride than those who dream that they have none! You may labor against vainglory till you conceive that you are humble and the fond conceit of your humility will prove to be pride in full bloom. It imitates humility, but is most truly pride!

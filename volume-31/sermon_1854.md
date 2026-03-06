@@ -1,12 +1,5 @@
 # Sermon 1854 | The Foundation and Its Seal--a Sermon for the Times
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 9, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Nevertheless the foundation of God stands sure, having this seal, 'The Lord knows them that are His,' and, 'Let everyone that names the name of Christ depart from iniquity." 2Timothy 2:19.
 
 PAUL had met with many difficulties in his earnest career, but his most painful trials came from false brethren. It is battle, enough, for the Church to contend with the world, but what is she to do when she has to contend with herself? To go forth weeping, bearing precious seed and, in due time, to reap it in the heat of the sun is toil enough for the farmer-- but what is he to do when the tares are sown among the wheat and they spring up and well-near choke the growing grain? He is distressed and knows not what to do! At first he is eager to root up the tares; then he fears that he might root up the wheat with them and so, at his Master's command, he lets both grow together until the harvest. This he does with tears in his eyes, for he foresees that those growing tares must do fearful mischief to the good seed and, in the end, where he looked for much, he will gather little.

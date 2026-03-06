@@ -1,6 +1,5 @@
 # Sermon 2124 | Help for Your Sickness
 
-
 > "When evening was come, they brought unto Him many that were possessed with devils: and He cast out the spirits with His word, and healed all that were sick: that it might be fulfilled which was spoken by Isaiah the Prophet, saying, He took our infirmities, and bore our sicknesses."  
 > Matthew 8:16,17.  
 

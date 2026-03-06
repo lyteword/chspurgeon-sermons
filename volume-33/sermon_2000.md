@@ -1,6 +1,5 @@
 # Sermon 2000 | Number Two-thousand--Healing by the Stripes of Jesus
 
-
 > "By His stripes we are healed."  
 > Isaiah 53:5.  
 

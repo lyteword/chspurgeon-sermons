@@ -1,12 +1,5 @@
 # Sermon 1728 | The Works of the Devil Destroyed
 
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 1, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For this purpose the Son of God was manifested, that He might destroy the works of the devil." 1 John 3:8.
 
 IN this chapter John makes a sharp and clear division of mankind into two classes--he gives not even the slightest hint that there is, or ever was, or ever can be a third class. He describes men as being the children of God or else the children of the devil and tells us how the two classes are made manifest (see verse 10). Now, this distinction would not have been drawn by John so sharply if it had not existed, for he was a man of a most loving heart and gentle spirit, and if he could, somewhere or other, have found a space for neutrals, or what I call, "betweenites," or people who come in midway between saints and sinners, I am sure he would have done it. No one could suspect John of lack of charity and, therefore, as he was convinced that no middle position was possible, we may be quite clear upon that point and at once dismiss every theory which is meant to flatter the undecided.

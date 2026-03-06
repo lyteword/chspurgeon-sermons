@@ -1,12 +1,5 @@
 # Sermon 1721 | Glory!
 
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 20, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who has called us unto His eternal glory." 1 Peter 5:10.
 
 A FORTNIGHT ago, when I was only able to creep to the front of this platform, I spoke to you concerning the future of our mortal bodies--[Sermon #1719--The Tent Dissolved and the Mansion Entered]--"We know that if our earthly house of this tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens." On the next Sabbath, [Sermon #1720--Christ in You], we went a step further and we did not preach so much about the resurrection of the body as upon the hope of Glory for our entire nature, our text being, "Christ in you, the hope of glory."

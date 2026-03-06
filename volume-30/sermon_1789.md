@@ -1,12 +1,5 @@
 # Sermon 1789 | Joseph of Arimathaea
 
-
-A SERMON PREACHED ON LORD'S-DAY MORNING, JULY 6, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Joseph of Arimathaea, an honorable counselor, who also waited for the kingdom of God, came, and went in boldly unto Pilate, and craved the body of Jesus. And Pilate marveled if He were already dead: and calling unto him the centurion, he asked him whether He had been any while dead. And when he knew it of the centurion, he gave the body to Joseph. And he bought fine linen, and took Him down, and wrapped Him in the linen, and laid Him in a sepulcher which was hewn out of a rock, and rolled a stone unto the door of the sepulcher." Mark 15:43-46.
 
 IT was a very dark day with the Church of God and with the cause of Christ, for the Lord Jesus was dead, and so the sun of their souls had set. "All the disciples forsook Him, and fled." "You shall be scattered, every man to his own, and shall leave Me alone," were the sad words of Jesus--and they had come true. He was dead upon the Cross and His enemies hoped that that was the end of Him--while even His friends feared that it was so. A few women who had remained about the Cross, true to the very last, were found faithful unto death, but what could they do to obtain His sacred body and give it honorable burial? That priceless flesh seemed to be in danger of the fate which usually awaited the bodies of malefactors--at any rate, the fear was that it might be hurled into the first grave that could be found to shelter it.

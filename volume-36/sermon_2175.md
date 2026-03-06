@@ -1,6 +1,5 @@
 # Sermon 2175 | "So It Is"
 
-
 > "Lo this, we have searched it, so it is; hear it, and know you it for your good."  
 > Job 5:27.  
 

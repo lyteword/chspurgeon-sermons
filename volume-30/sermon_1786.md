@@ -1,12 +1,5 @@
 # Sermon 1786 | Our Sanctuary
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 15, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A glorious high throne from the beginning is the place of our sanctuary. O LORD, the hope of Israel, all that forsake You shall be ashamed, and they that depart from Me shall be written in the earth because they have forsaken the LORD, the fountain of living waters. Heal me, O LORD, and I shall be healed, save me, and I shall be saved: for You are my praise." Jeremiah 17:12,13,14.
 
 THIS book of Jeremiah is a very thorny one--it might be called, like his smaller work, "The Book of Lamentations." Our text is as a lily among thorns, as a rose in the wilderness. The solitary place shall be glad for it and the desert shall rejoice. The words sound like sweet music amid the crash of tempest. The bitter tree yields us sweet fruit. The weeping Prophet wipes away our tears. I do not know that the whole of Scripture contains more delightful promises than those which fell from the lips of this son of sorrow who has been to so many a son of consolation! May God grant that this lily, today, may be exceeding lovely in your eyes as you see it in the sunlight of the Holy Spirit.

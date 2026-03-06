@@ -1,6 +1,5 @@
 # Sermon 1985 | The Child Of Light Walking In Darkness
 
-
 > "Who amongyou fears the Lord? Who obeys the voice of His servant? Who walks in darkness and has no Light? Let him trust in the name of the Lord, and rely upon his God."  
 > Isaiah 50:10.  
 

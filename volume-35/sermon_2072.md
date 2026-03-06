@@ -1,6 +1,5 @@
 # Sermon 2072 | Breakfast With Jesus
 
-
 > "Jesus said unto them, Come and dine. And none of the disciples dared ask Him, Who are you? knowing that it was the Lord."  
 > John 21:12.  
 

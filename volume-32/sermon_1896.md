@@ -1,12 +1,5 @@
 # Sermon 1896 | The Three Hours of Darkness
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 18, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now from the sixth hour there was darkness over all the land unto the ninth hour." Matthew 27:45.
 
 FROM nine till noon the usual degree of light was present, so that there was time enough for our Lord's adversaries to behold and insult His sufferings. There could be no mistake about the fact that He was really nailed to the Cross, for He was crucified in broad daylight. We are fully assured that it was Jesus of Nazareth, for both friends and foes were eyewitnesses of His agonies--for three long hours the Jews sat down and watched Him on the Cross, making jests of His miseries. I feel thankful for those three hours of light, for otherwise the enemies of our faith would have questioned whether, in very deed, the blessed body of our Master was nailed to the tree and would have started false rumors as many as the bats and owls which haunt the darkness! Where would have been the witnesses of this solemn scene if the sun had been hidden from morn till night? As three hours of light gave opportunity for inspection and witness-bearing, we see the wisdom which did not allow it to close too soon.

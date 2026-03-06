@@ -1,6 +1,5 @@
 # Sermon 2115 | The Drought of Nature, the Rain of Grace and the Lesson Therefrom
 
-
 > "And their nobles have sent their little ones to the waters: they came to the pits and found no water. They returned with their vessels empty. They were ashamed and confounded and covered their heads. Because the ground is parched, for there was no rain in the earth, the plowmen were ashamed, they co vered their heads. Are there any among the vanities of the Gentiles that can cause rain? Or can the hea vens give showers? Are not you He, O Lord our God? Therefore we will wait upon You: for You have made all these things."  
 > Jeremiah 14:3, 4,22.  
 

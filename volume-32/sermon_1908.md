@@ -1,6 +1,5 @@
 # Sermon 1908 | Washed to Greater Foulness
 
-
 > "If I wash myself with snow water, and make my hands never so clean; yet shalt thou plunge me in the ditch, and mine own clothes shall abhor me."  
 > Job 9:30, 31.  
 

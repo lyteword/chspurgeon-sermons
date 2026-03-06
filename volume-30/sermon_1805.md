@@ -1,12 +1,5 @@
 # Sermon 1805 | Strength And Recovery
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 18, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I will strengthen them in the Lord: and they shall walk up and down in His name, says the Lord." Zechariah 10:12.
 
 THIS text is pitched in the royal key. It has nothing of the caution and doubting of man about it. Where the word of a king is, there is power, and this is the word of a King, indeed! It is the Word of Jehovah, King of kings and Lord of lords, and you may know it by His sovereign style--"I will," and, "they shall." Look at it. You sometimes say, "I will," but you mistake your power and your talk ferments into boasting. Never make your mouth longer than your arm, for that is monstrous! You have said, "I will," but you cannot achieve your purpose, for you forgot to say, "If the Lord wills"--and that forgotten factor masters you. And when you say, "They shall"--ah, then you are out of your reckoning--for who are they that you can command? You cannot say it without question concerning your own children, nor your own wife, nor your own friend. The wills of men and women are wayward and fickle--and if you calculate upon them, you may soon find yourself at fault.

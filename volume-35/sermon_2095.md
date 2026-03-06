@@ -1,6 +1,5 @@
 # Sermon 2095 | The Lamb In Glory
 
-
 > "And I beheld and, lo, in the midst of the Throne and of the four living creatures and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth. And He came and took the book out of the right hand of Him that sat upon the Throne."  
 > Revelation 5:6, 7.  
 

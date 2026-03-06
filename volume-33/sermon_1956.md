@@ -1,6 +1,5 @@
 # Sermon 1956 | On the Cross After Death
 
-
 > "The Jews therefore, because it was the Preparation Day, that the bodies should not remain upon the cross on the Sabbath (for that Sabbath day was a high day), besought Pilate that their legs might be broken, and that they might be taken away. Then the soldiers came and broke the legs of the first, and of the other which was crucified with Him. But when they came to Jesus, and saw that He was dead already they did not break His legs. But one of the soldiers pierced His side with a spear, and immediately blood and water came out. And he who has seen has testified, and his record is true; and he knows that he is telling the truth, so that you may believe. For these things were done that the Scripture should be fulfilled, 'Not one of His bones of Him shall be broken.' And again another Scripture says, 'They shall look on Him whom they pierced.'"  
 > John 19:31-37.  
 

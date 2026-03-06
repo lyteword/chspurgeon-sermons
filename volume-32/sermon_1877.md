@@ -1,12 +1,5 @@
 # Sermon 1877 | Our Own Dear Shepherd
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 20, 1885.
-
 "I am the good Shepherd, and know My sheep, and am known of Mine. As the Father knows Me, even so know I the Father: and I lay down My life for the sheep." John 10:14,15.
 
 As the passage stands in the Authorized Version, it reads like a number of short sentences with scarcely any apparent connection. Even in that form it is precious, for our Lord's pearls are priceless even when they are not threaded together. But when I tell you that in the Greek the word, "and," is repeated several times and that the translators have had to leave out one of these, "ands," to make sense of the passage on their line of translation, you will judge that they are none too accurate in this case. To use many, "ands," is after the manner of John, but there is usually a true and natural connection between his sentences. The, "and," with him is usually a real golden link and not a mere sound--we need a translation which makes it so. Observe, also, that in our version the word, "sheep," is put in italics, to show that it is not in the original. There is no need for this alteration if the passage is more closely rendered.

@@ -1,12 +1,5 @@
 # Sermon 1762 | High Doctrine And Broad Doctrine
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT EXETER HALL.
-
 "All that the Father gives Me shall come to Me, and him that comes to Me I will by no means cast out." John 6:37.
 
 THESE two sentences have been looked upon as representing two sides of Christian doctrine. They enable us to see it from two standpoints--the Godward and the manward. The first sentence contains what some call high doctrine. If by "high" they mean "glorious towards God," I fully agree with them, for it is a grand, God-honoring Truth which our Lord Jesus declares in these words--"All that the Father gives Me shall come to Me." Some have styled this side of the Truth of God Calvinistic, but while it is true that Calvin taught it, so, also, did Augustine, Paul and our Lord, Himself, whose Words are these. However, I will not quarrel with those who see in this sentence a statement of the great Truth of God of predestinating Grace.

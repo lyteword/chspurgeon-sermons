@@ -1,12 +1,5 @@
 # Sermon 1847 | Before Sermon, At Sermon and After Sermon
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 28, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore lay aside all filthiness and superfluity of naughtiness, and receive with meekness the engrafted Word, which is able to save your souls. But be you doers of the Word, and not hearers only, deceiving yourselves." James 1:21,22.
 
 BRETHREN, it is a good thing to be under the sound of the Word of God. Even if the very lowest motive should induce persons to come to hear the Gospel, it is, nevertheless, a good thing that they should come. We have heard of some who have even come to steal--and yet the Word of God has stolen into their hearts. In many cases, in olden times, spies were sent to hear the Protestant divines who preached the Gospel--and these took notes of all that was said, with a view to accuse them of false doctrine that they might be punished--yet in several cases, the spies, themselves, were converted! Such is the power of the Gospel of Christ, that it woos and wins, even, its greatest enemies. He that comes near to its fire, even with the intent to quench it, may find himself overcome by its heat.

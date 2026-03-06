@@ -1,6 +1,5 @@
 # Sermon 2022 | The Wedding Was Furnished with Guests
 
-
 > "The wedding was furnished with guests."  
 > Matthew 22:10.  
 

@@ -1,12 +1,5 @@
 # Sermon 1931 | One More Cast of the Great Net
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 28, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY MORNING, NOVEMBER 14, 1886.
-
 "And it shall come to pass that whoever shall call on the name of the Lord shall be delivered: for in mount Zion and in Jerusalem shall be deliverance, as the Lord has said, and in the remnant whom the Lord shall call." Joel 2:32.
 
 I THOUGHT within myself, "What shall be the topic for the last sermon before I depart to my quiet resting place?" Perhaps my sermons for the last day of this long stretch of work may be my last, altogether, for life is very frail. When I hear of first one and then another in strong health being suddenly taken away, I am made to know the uncertainty of life in my own case. It were wiser to trust a spider's web than the life of man! Brothers and Sisters, we live on the brink of eternity and had need behave ourselves as men who will soon face its realities. We may have to do so far sooner than we think. So I said within myself, "Shall I feed the flock of God in the rich pastures of choice promise?" Truly it would have been well to have done so, but then I thought of the stray sheep--must I not go after them? The 99 are not in the wilderness and, therefore, I shall not be leaving them in any danger. They are well folded and the Chief Shepherd will not forget them. God has given them to have life in themselves and the green pastures are with them in plenty--they can afford to be left alone better than the perishing ones. But as for the wandering ones, can I leave them among the wilds and wolves? I have tried to bring them to the great Bishop and Shepherd of souls, but they have not yet returned--how can I forget them? How can I endure to think of their being lost forever?

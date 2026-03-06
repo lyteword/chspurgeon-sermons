@@ -1,12 +1,5 @@
 # Sermon 1752 | Mourners, Inquirers, Covenanters
 
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In those days and in that time, says the LORD, the children of Israel shall come, they and the children of Judah together, going and weeping: they shall go and seek the LORD their God. They shall ask the way to Zion with their faces toward it, saying, Come, and let usjoin ourselves to the LORD in a perpetual covenant that shall not be forgotten." Jeremiah 50:4.
 
 THE previous part of this chapter declares the overthrow of Israel's cruel oppressor--"Babylon is taken, Bel is ashamed, Merodach is broken in pieces." The Assyrian and Babylonian power had been the great tyrant of the ages and the Lord had employed it for the chastening of His people, until, at last, Israel and Judah had been carried away captive to the banks of the Euphrates and the land of their fathers knew them no more. This was the mournful song of the exiles, "By the rivers of Babylon, there we sat down, yes, we wept, when we remembered Zion." What a turn would come! In the day when God would reckon with Babylon and punish the haughty people for their cruelties and oppressions, then should Israel and Judah come to their own again.

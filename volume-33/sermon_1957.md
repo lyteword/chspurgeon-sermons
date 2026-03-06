@@ -1,6 +1,5 @@
 # Sermon 1957 | The Lord's Own View of His Church and People
 
-
 > "A garden enclosed is My sister, My spouse; a spring shut up, a fountain sealed."  
 > Song of Solomon 4:12.  
 

@@ -1,12 +1,5 @@
 # Sermon 1848 | The Looking Glass
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 5, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For if anyone is a hearer of the Word, and not a doer, he is like unto a man beholding his natural face in a glass: for he beholds himself, and goes his way, and straightway forgets what manner of man he was. But he who looks into the perfect Law of liberty, and continues in it, he beingnot a forgetful hearer, but a doer of the work, this man shall be blessedin his deed." James 1:23-25.
 
 LAST Lord's Day I tried to show the right way of hearing the Word of God. We spoke of how to behave before the sermon, at the sermon and after the sermon. May God grant that the word which I then spoke may continue in your minds and bring forth good fruit! At this time I shall draw a distinction between the true and blessed hearer of the Word and the person who misses the blessing because he hears to forget. You will forgive my coming back to this subject when I confess that I groan in my own heart with unutterable longings to be a channel of blessing to all who hear or read my discourses. To what purpose do I stand here so often and pour out my soul before you, if you are not the better for it? I am an unhappy sower if all the handfuls of seed which I scatter must fall upon unbroken soil, to be devoured of birds and never take root. Blessed be God, it is not altogether so! We, by His Grace, have reaped many harvests in this place. But still, our hearts ache for larger results!

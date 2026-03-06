@@ -1,6 +1,5 @@
 # Sermon 1981 | God the Wonder-Worker
 
-
 > "To him who along doeth great wonders: for his mercy endureth for ever."  
 > Psalm 136:4.  
 

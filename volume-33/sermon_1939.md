@@ -1,6 +1,5 @@
 # Sermon 1939 | Shaved and Shorn, But Not Beyond Hope
 
-
 > "However, the hair of his head began to grow again after he was shaved."  
 > Judges 16:22.  
 

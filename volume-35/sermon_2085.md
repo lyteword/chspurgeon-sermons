@@ -1,6 +1,5 @@
 # Sermon 2085 | A Dirge for the Down-grade and a Song For Faith
 
-
 > "Rejoice for joy with her, all you that mourn for her."  
 > Isaiah 66:10.  
 

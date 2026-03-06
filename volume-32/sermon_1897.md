@@ -1,12 +1,5 @@
 # Sermon 1897 | Holding Fast Our Profession
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let us holdfast the profession of our faith without wavering; (for He is faithful who promised)." Hebrews 10:23.
 
 THE Apostle is drawing certain inferences from the Covenant of Grace upon which he has been enlarging. He shows that God has made a Covenant with His people by which they are effectually preserved. "This is the covenant that I will make with them after those days, says the Lord, I will put My Laws into their mind, and write them in their hearts; and their sins and their iniquities will I remember no more." He shows that by this Covenant the fear of returning to our old sin is removed and the guilt of our sin is forever put away. He bids us, therefore, be bold in our approaches to God. As pardoned men, upon whom there is no sin, he bids us exercise the freedom of near access to God, who has accepted us in Christ. Then he tells us that since we are put in such a blessed position--a position which is altogether unique--it becomes us to hold fast to what we have received. Since the glorious Gospel has done so much for us, let us never quit it. Since it has brought us into a condition which angels might envy, let us never think of leaving it. Let us not dream of giving up that Divine principle which has worked us such blessedness, but, "Let us hold fast the profession of our faith without wavering."

@@ -1,12 +1,5 @@
 # Sermon 1734 | A Gospel Worth Dying For
 
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 12, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
-
 "To testify the Gospel of the Grace of God." Acts 20:24.
 
 PAUL says that in comparison with his great objective of preaching the Gospel, he did not count even his life to be dear to himself; yet we are sure Paul highly valued life. He had the same love of life as other men and he knew that his own life was of great consequence to the Churches and to the cause of Christ. In another place he said, "To abide in the flesh is more necessary for you." He was not weary of life, nor was he a vain person who could treat life as though it were a thing to fling away in sport. He valued life, for he prized time, which is the stuff that life is made of, and he turned to practical account, each day and hour, "redeeming the time because the days are evil." Yet he soberly said to the elders of the Church at Ephesus that he did not regard his life as a dear thing in comparison with bearing testimony to the Gospel of the Grace of God.

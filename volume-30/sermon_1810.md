@@ -1,12 +1,5 @@
 # Sermon 1810 | The Lion and the Bear--Trophies Hung Up
 
-
-A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 25, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your servant slew both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he has defied the armies of the living God. David said moreover, The Lord that delivered me out of the paw of the lion, and out of the paw of the bear, He will deliver me out of the hand of this Philistine." 1 Samuel 17:36,37.
 
 DAVID had lived with God. Throughout many a solitary day he had kept his father's flock among the lone hills of Judah and had worshipped the Unseen but Ever-Present Lord. He had grown into an adoring familiarity with the Most High so that, to him, the name of the one and only living and true God was a deep and solemn joy. As you may have spied far up among the ramparts of the mountains a solitary lake, whose one office it is to mirror the face of Heaven, so had David's hallowed life become the reflection of the Light and Glory of the Lord of Hosts. It had not occurred to him, in his meditations, that base men would dare to challenge the infinite majesty of God, or that proud adversaries would come forward and defy the chosen people of the Most High--but now that he hears the defiance and beholds the challenge, all his blood is up. He is amazed! A holy rage is upon him! Yes, it is true--he hears Jehovah blasphemed! How can it be? The youth's holy soul is undergoing a new experience. He is bringing his whole life to bear upon it. He reaches the conclusion that as bears and lions die when they meddle with sheep, so must Goliath fall, now that he dares to attack the Lord and His people.

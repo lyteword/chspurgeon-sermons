@@ -1,12 +1,5 @@
 # Sermon 1875 | The Preacher's Last Sermon for the Season
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 29, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "On the last day, that great day of the feast, Jesus stood and cried, saying, If any man thirsts, let him come unto Me and drink." John 7:37.
 
 THE officers were after our Lord and He knew it. He could spy them out in the crowd, but He was not, therefore, in the least bit afraid, or disconcerted. He reminds me of that minister who, when he was about to preach, was stopped by a soldier, who held a pistol to his head and threatened that if he spoke, he would kill him. "Soldier," he said, "do your duty and I shall do mine." And he went on with his preaching. The Savior, without saying as much in words, said so by His actions. If they were sent to take Him, let them take Him--as for Himself, the time was come to speak boldly and, therefore, He stood and cried, saying, "If any man thirsts, let him come unto Me, and drink."

@@ -1,6 +1,5 @@
 # Sermon 2112 | Peace--How Gained, How Broken
 
-
 > "I will hear what God the Lord will speak: for He will speak peace unto His people and to His saints: but let them not turn again to folly."  
 > Psalm 85:8.  
 

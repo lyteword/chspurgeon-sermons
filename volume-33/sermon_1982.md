@@ -1,6 +1,5 @@
 # Sermon 1982 | Love at Its Utmost
 
-
 > "As the Father hath loved me, so have I loved you: continue ye in my love."  
 > John 15:9.  
 

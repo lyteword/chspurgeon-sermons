@@ -1,6 +1,5 @@
 # Sermon 2100 | Faith Essential to Pleasing God
 
-
 > "But without faith it is impossible to please Him: for he that comes to God must believe that He is and that He is a Rewarder of them that diligently seek Him."  
 > Hebrews 11:6.  
 

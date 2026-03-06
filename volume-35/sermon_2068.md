@@ -1,6 +1,5 @@
 # Sermon 2068 | Nathanael--the Man Needed for the Day
 
-
 > "Behold an Israelite indeed, in whom is no deceit!"  
 > John 1:47.  
 

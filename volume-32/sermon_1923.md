@@ -1,12 +1,5 @@
 # Sermon 1923 | The Annual Atonement
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 3, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For on that day shall the priest make an atonement for you, to cleanse you, that you may be clean from all your sins before the Lord." Leviticus 16:30.
 
 BEFORE Adam transgressed, he lived in communion with God, but after he had broken the Covenant and grieved God's Spirit, he could have no more familiar fellowship with God. Under the Mosaic dispensation, in which God was pleased, in His Grace, to dwell among His people and walk with them in the wilderness, it was still under a reserve-- there was a Holy Place wherein the symbol of God's Presence was hidden away from mortal gaze. No man might come near to it except in one way, only, and then only once in the year, "The Holy Spirit this signifying, that the way into the Holiest of All was not yet made manifest, while as the first Tabernacle was yet standing." Our subject today illustrates the appointed way of access to God. This chapter shows that the way of access to God is by Atonement and by no other method. We cannot draw near unto the Most High except along the blood-besprinkled way of sacrifice. Our Lord Jesus said, "No man comes unto the Father, but by Me." And this is true in many senses and in this, among them, that our way to God lies only through the Sacrifice of His Son.

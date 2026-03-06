@@ -1,12 +1,5 @@
 # Sermon 1834 | To Lovers of Jesus--an Example
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON NOVEMBER 2, 1884.
-
 "She has worked a good work for Me." Mark 14:6.
 
 THIS holy woman had displeased the disciples. She must have been very sorry to do that. She would not have willfully grieved the least servant of her Lord. But she did so without the slightest blame on her part--it was the unexpected consequence of a most blessed action and the fault lay with those who complained of her holy deed--not with her. I do not know whether all the disciples felt grieved, but we are told by Matthew that, "they had indignation," and he seems to speak of them as a body, from which I gather that those who love Jesus much must not measure their conduct by that of Christ's ordinary disciples. Indeed, it might fare ill with them even if Apostles became their judges! They must not tone down the fervor of their zeal to the lukewarmness of the general order of Christian men. They must not measure the consecration of their lives by the little which many professors present upon the altar to God. No, my Brother, or Sister, you must not be too much distressed if the best of the household misjudge you, for it has happened to many favored sons before you.

@@ -1,12 +1,5 @@
 # Sermon 1708 | The Holy Spirit's Threefold Conviction of Men
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when He is come, He wiil reprove the world of sin, and of righteousness, and of judgment: of sin, because they believe not on Me; of righteousness, because I go to My Father, and you see Me no more; of judgment, because the prince of this world is judged." John 16:8-11.
 
 THE Apostles had a stern task before them. They were to go into all nations and proclaim the Gospel to every creature, beginning at Jerusalem. Remember, only two or three years before they were simple fishermen engaged upon the Galilean Lake--men of little or no education, men of no rank or standing. At best they were but Jews and that nation was despised everywhere, while these peasants were not even men of repute among their own nation! Yet these men were to turn the world upside down! They were told by their Lord that they would be brought before rulers and kings for His sake and that they would be persecuted wherever they went. They were to proclaim the Gospel in the teeth of the imperial power of Rome, the ancient wisdom of Greece and the fierce cruelties of barbaric lands. And they were to set up the kingdom of peace and righteousness.

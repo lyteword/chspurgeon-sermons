@@ -1,6 +1,5 @@
 # Sermon 1947 | Who Is This?
 
-
 > "Behold, the Lord has proclaimed unto the end of the world, Say you to the daughter of Zion, Behold, your salvation comes; behold, His reward is with Him and His work before Him. And they shall call them, The Holy People, The Redeemed of the Lord, and you shall be called, Sought Out, A City Not Forsaken. Who is this that comes from Edom, with dyed garments from Bozrah? This One who is glorious in His apparel, traveling in the greatness of His strength? I who speak in righteousness, mighty to save."  
 > Isaiah 62:11,12; 63:1.  
 

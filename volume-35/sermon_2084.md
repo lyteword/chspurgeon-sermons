@@ -1,6 +1,5 @@
 # Sermon 2084 | The Bible Tried and Proved
 
-
 > "The Words of the Lord are pure words: as silver tried in a furnace of earth, purified seven times."  
 > Psalm 12:6.  
 

@@ -1,6 +1,5 @@
 # Sermon 2094 | Foundation Work
 
-
 > "And the king commanded and they brought great stones, costly stones and hewed atones, to lay the foundation of the house."  
 > 1 Kings 5:17.  
 

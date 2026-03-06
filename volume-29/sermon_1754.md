@@ -1,12 +1,5 @@
 # Sermon 1754 | The Blind Man's Eyes Opened--or, Practical Christianity
 
-
-DELIVERED ON LORD'S-DAY EVENING, AUGUST 12, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
-
 "Jesus answered, Neither has this man sinned, nor his parents: but that the works of God should be made manifest in him. I must work the works of Him that sent Me, while it is day: the night comes, when no man can work." John 9:3,4.
 
 OBSERVE, dear Friends, how little disconcerted our Lord Jesus Christ was by the most violent opposition of His enemies. The Jews took up stones to stone Him and He hid Himself from them. But almost the moment after, when He had passed, perhaps, through a single court and was sufficiently out of range to be unobserved by them, He stood still and fixed His eyes upon a blind beggar who had been sitting near the Temple gate. I am afraid that the most of us would have had no heart to help even the most needy while we were escaping from a shower of stones! And if we had attempted the work, moved by supreme compassion, we would have gone about it blunderingly, in a great hurry and certainly would not have talked calmly and wisely, as the Savior did when He answered His disciples' question and went on to talk with them.

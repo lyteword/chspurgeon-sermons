@@ -1,6 +1,5 @@
 # Sermon 1940 | The Best Bread
 
-
 > "I am that bread of life."  
 > John 6:48.  
 

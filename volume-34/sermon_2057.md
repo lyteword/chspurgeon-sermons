@@ -1,6 +1,5 @@
 # Sermon 2057 | The Lord's Own Salvation
 
-
 > "But I will have mercy upon the house of Judah and will save them by the Lord their God and will not save them by bow, nor by sword, nor by battle, by horses, nor by horsemen"  
 > Hosea 1:7.  
 

@@ -1,6 +1,5 @@
 # Sermon 2138 | The Shank-bone Sermon--Or, True Believers and Their Helpers
 
-
 > "Who, when he was come, helped them much which had believed through Grace."  
 > Acts 18:27.  
 

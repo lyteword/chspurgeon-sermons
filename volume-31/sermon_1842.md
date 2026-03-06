@@ -1,12 +1,5 @@
 # Sermon 1842 | The Private Tutor
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 24, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He that loves Me not keeps not My sayings: and the Word which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, Whatever I have said unto you." John 14:24-26.
 
 ALL through this thrice-blessed chapter, man cuts a very sorry figure. Whoever it is that speaks, whether it is Philip, or Judas, or Thomas, each one displays his own ignorance, either by asking an unwise question or by making a mistaken request. Yet, Brothers and Sisters, these Apostolic men were, by no means, inferior persons, but so superior that we sink into insignificance in comparison with them! Jesus made them heralds of His Gospel, master-builders of His Church and, if they displayed such ignorance, even when the Lord Jesus Christ, Himself, had personally spoken to them, we must not wonder that we are apt to blunder. Neither should we despair if we find ourselves dull and slow. If those fathers of the Church so greatly needed to be taught of the Holy Spirit, how much more do we? If they could receive nothing except by the Spirit of God, how can we hope to be wise apart from His instructions? Our position should be sitting with Mary at the Master's feet, varied with bowing into the dust before the Lord under a humble sense of our folly. The chapter before us is well watered with streams of comfort, but I confess it is always a valley of humiliation to me, as I see what poor creatures even the chief of saints are when left to themselves.

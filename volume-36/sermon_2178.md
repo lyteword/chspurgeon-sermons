@@ -1,6 +1,5 @@
 # Sermon 2178 | Zedekiah--or, the Man Who Cannot Say, "No"
 
-
 > "Then Zedekiah the king said, Behold, he is in your hands: for the king is not he that can do anything against you."  
 > Jeremiah 38:5.  
 

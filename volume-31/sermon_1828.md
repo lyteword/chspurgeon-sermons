@@ -1,12 +1,5 @@
 # Sermon 1828 | How "The Unspeakable" is Spoken of
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON OCTOBER 9, 1884.
-
 "And men shall speak of the might of Your terrible acts: and I will declare Your greatness. They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness." Psalm 145:6, 7.
 
 In this Psalm David has reached the Beulah land of his songs where we hear nothing else but praise. He begins, "I will extol You, my God, O King; and I will bless Your name forever and ever. Every day will I bless You; and I will praise Your name forever and ever." And he closes with, "My mouth shall speak the praise of the Lord: and let all flesh bless His holy name forever and ever." Happy is our condition when the glory of God fills both heart and tongue! Oh, to swim in a sea of gratitude, to feel waves of praise breaking over one's joyful head--and then to dive into the ocean of adoration and lose one's self in the ever-blessed God!

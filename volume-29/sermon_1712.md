@@ -1,12 +1,5 @@
 # Sermon 1712 | Filling the Empty Vessels
 
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 17, 1882,
-
-BY C, H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But my God shall supply all your need according to His riches in glory by Christ Jesus." Philippians 4:19.
 
 VERY beautiful, to my mind, is the sight of "Paul the aged" confined in his prison at Rome, likely, by-and-by, to be put to death, but calm, quiet, peaceful and joyful. Just now he is so happy that a gleam of sunlight seems to light up his cell and his face shines like that of an angel! He is exceedingly delighted because he has been, in his deep poverty, kindly remembered by the little Church at Philippi, for they have sent him a contribution. See how cheerful the man is--I was about to say, how contented, but I drop the word because it falls far short of the mark! He is far more happy than Caesar overhead in the palace. He is charmed with the love which has sent him this relief. Probably the gift does not come to very much, if estimated in Roman coin, but he makes a great deal of it and sits down to write a letter of thanks abounding in rich expressions like these--"I have all things, and abound: I am full, having received of Epaphroditus the things which were sent from you."

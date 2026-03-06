@@ -1,6 +1,5 @@
 # Sermon 2043 | The Blood of the Lamb, the Conquering Weapon
 
-
 > "And they o vercame him by the blood of the Lamb and by the word of their testimony. And they loved not their lives unto the death."  
 > Revelation 12:11.  
 

@@ -1,12 +1,5 @@
 # Sermon 1825 | An Inscription for the Mausoleum of the Saints
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 1, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON MAY 8, 1884.
-
 "These all died in faith, not having received the promises, but having seen them afar off, were persuaded of them, embraced them and confessed that they were strangers and pilgrims on the earth. For those who say such things declare plainly that they seek a country." Hebrews 11:13,14.
 
 "THESE all died in faith." Believers constitute a class by themselves--"These." They are the people that dwell alone and shall not be numbered among the nations. We see a great many distinctions in the world which God takes no notice of--there is neither Jew nor Gentile, bond nor free in His sight. But there is a distinction which men think little of, which is greatly observed of God, and that is the distinction between them that believe and those that believe not. Faith puts you across the border most effectually, for it brings you out of darkness into marvelous light, from death to life and from the dominion of Satan into the Kingdom of God's dear Son. It is the most important thing under Heaven that we should know that we believe in God. The Holy Spirit puts Believers by themselves and speaks of them as, "These."

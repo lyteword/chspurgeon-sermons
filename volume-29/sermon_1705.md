@@ -1,12 +1,5 @@
 # Sermon 1705 | The Hearing of Faith
 
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 11, 1883,
-
-BY C, H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "This only would I learn of you, did you receive the Spirit by the works of the Law, or by the hearing of faith?" Galatians 3:2.
 
 A GREAT delusion is upon the heart of man as to his salvation. His ways are perverse. He does not love the Law of God, no, his mind is opposed to it and yet he sets up to be its advocate. When he understands the spirituality and severity of the Law, he reckons it to be a sore burden and yet, when the Gospel is preached and set forth as the gift of Sovereign Grace and he is bid, simply, to accept it by an act of faith in Christ Jesus, the man professes great concern about the Law, lest it should be made void by the freeness of Grace! He takes the broken pieces of the two tables of the Law and hurls them at the Cross! It is not that man loves the Law of God, but that he does not love the God of the Law! Hence he will resort to any pretense to oppose that way of salvation which God has appointed.

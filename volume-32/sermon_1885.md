@@ -1,12 +1,5 @@
 # Sermon 1885 | The Problem of the Age
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 7, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And His disciples answered Him, How can a man satisfy these men with bread here in the wilderness?'" Mark 8:4.
 
 I HAVE been, for a while, lying outside the crowd, unable either to feed the multitude or to bring the sick to the Master. Here and there I have helped one, as opportunity has occurred, but I have been called to rest rather than to serve. Yet all the while I have never ceased from constant thought about the perishing multitudes--this great city and its sad estate, this country, Ireland and continental nations are all under a cloud of deep depression. One can remove his body from the turmoil, but his heart is still in it. If ever there was a time when there was a call for the deep sympathy of all Christian people with the perishing multitudes, it is just now. If ever the Church should gird herself to do her Master's service, it is today. Never forget that the Church is the Spouse of Christ. She is His chosen Bride and she is, therefore, to unite with Him in His great enterprise among the sons of men. The work is salvation and that work is to be worked by means of Divine Truth, carried to men, externally, by human hands and, internally, through the Spirit of God. The Church will be false to her heavenly Bridegroom if she does not sympathize with the tenderness of His heart and enter into His gracious labor of love.

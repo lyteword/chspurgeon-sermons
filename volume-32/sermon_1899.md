@@ -1,12 +1,5 @@
 # Sermon 1899 | Zealous, But Wrong
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Brethren, my heart's desire and prayer to God for Israelis that they might be saved. For I bear them record that they have a zeal of God, but not according to knowledge. For they being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God." Romans 10:1,2,3.
 
 WE ought to have an intense longing for the salvation of all sorts of men and especially for those, if there are any, that treat us badly. We should never wish them ill, not for a moment, but in proportion to their malice should be our intense desire for their good. Israel had persecuted Paul everywhere with the most bitter imaginable hate. When he addressed them in their synagogues, they rushed upon him in their fury. When he left them alone and preached quietly to the Gentiles, they made a mob, dragged him before the magistrates, charged him with causing a tumult and either stoned him or beat him with rods. He was "an Israelite, indeed," but his people regarded him as a turncoat, indeed, because he had become a Christian! Mad as they were against all Christians, they had a special spite and fury against the apostate Pharisee. Paul's only reply to all their infuriated malice is this gentle assertion--"Brethren, my heart's desire and prayer to God for Israel is that they might be saved."

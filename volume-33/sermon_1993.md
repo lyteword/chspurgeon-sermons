@@ -1,6 +1,5 @@
 # Sermon 1993 | Driving the Vultures Away from the Sacrifice
 
-
 > "And when the fowls came do wn upon the carcasses, Abram drove them away."  
 > Genesis 15:11.  
 

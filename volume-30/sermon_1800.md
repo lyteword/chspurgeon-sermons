@@ -1,12 +1,5 @@
 # Sermon 1800 | Heaven Below
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them and shall lead them unto living fountains of waters." Revelation 7:16,17.
 
 LET us think of this happiness, that we may be comforted in the prospect of it. All this is already enjoyed by tens of millions of the redeemed! Some of those who were very dear to us on earth, whose faith we desire to follow, are now forever with the Lord and this is their joyful portion--"They shall hunger no more, neither thirst anymore; neither shall the sun light on them, nor any heat." Our comfort lies in the sweet reflection that we are journeying to this goodly land! This Divine inheritance is ours--we have the seal of the Holy Spirit upon our title deeds--we have tasted of the grapes of its Eshcol and we already rejoice in the light and warmth of its celestial city to which we draw near! In a little time we shall be actually within the gate of pearl and shall know, in an instant, infinitely more of its glory than an Apostle could teach us here below. We are like one who has, in his hands, the guidebook of a country to which he is journeying--he finds in it fair pictures of the scenery of the land and the architecture of the cities--and as he reads each page, he says to himself, "I am going there! This is what I shall soon behold!"

@@ -1,12 +1,5 @@
 # Sermon 1935 | "Where Are The Nine?"--or, Praise Neglected
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1886, DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 7, 1886.
-
 "And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face atHis feet, givingHim thanks. Andhe was a Samaritan. And Jesus answering said, Were there not 10 cleansed? But where are the nine? Were there not any found that returned to give glory to God, except this foreigner? And He said to him, Arise, go your way: your faith has made you whole." Luke 17:15 -19.
 
 You have often heard the leprosy described--it was a very horrible disease, I should think the worst that flesh is heir to. We ought to be much more grateful than we are that this fell disease is scarcely known in our favored country. You have also heard what an instructive symbol it is in human flesh of what sin is in the human soul, how it pollutes, how it destroys. I need not go into that sad subject. But here was a sight for the Savior--10 men that were lepers! A mass of sorrow, indeed! What sights our Lord still sees every day in this sin-defiled world! Not 10 men that are sinners, nor even merely 10 millions are to be found all the world over, but on this earth there are a thousand millions of men diseased in soul! It is a miracle of condescension that the Son of God should set foot in such a lazar house as this.

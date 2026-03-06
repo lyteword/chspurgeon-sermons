@@ -1,12 +1,5 @@
 # Sermon 1791 | Helps to Full Assurance
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "These things have I written unto you that believe on the name of the Son of God; that you may know that you have eternal life, and that you may believe on the name of the Son of God." 1 John 5:13.
 
 How very simple this all is! John had an eagle's wings with which to soar aloft and an eagle's eyes with which to penetrate into great mysteries--and yet of all the writers of the Old or New Testament he is one of the simplest. He never endeavors to show you the greatness of his mind or the grandeur of his rhetoric. On the contrary, he speaks as a child to those who are children in the school of love. I would that all of us who try to teach others would remember this and sink ourselves in our lesson.

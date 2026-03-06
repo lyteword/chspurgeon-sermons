@@ -1,14 +1,5 @@
 # Sermon 1864 | First Things First
 
-
-[This address has been lengthened a little in order to fill the usual number of pages. It has also been revised sufficiently to make it read much the same as it was heard. There were passages which depended so much upon the voice and tone that they could
-
-not be reproduced by letterpress.]
-
-AN ADDRESS BYC. H. SPURGEON, DELIVERED AT THE MONTHLY MEETING OF THE LONDON BANKS' PRAYER UNION, HELD AT THE EGYPTIAN HALL, MANSION HOUSE, LONDON,
-
-ON MONDAY AFTERNOON, SEPTEMBER 28, 1885, THE RIGHT HON. THE LORD MAYOR, M.P., IN THE CHAIR.
-
 MY LORD MAYOR AND GENTLEMEN--I was asked to give an address to the members of the Banks' Prayer Union and to others occupied in banking, but I beg to warn you all that an address from me is very much like a sermon. I am so in the habit of preaching that almost of necessity my talk drops into sermon form. I have heard a story of a painter of signboards in Harp Alley in the olden times which illustrates the force of habit. An innkeeper selected an angel as the sign of his house and asked this knight of the brush to produce one, but the painter replied, "You had better have a lion. I have been painting lions so long that they are more in my line than angels." My host answered that there were three or four lions of different colors in the street, already, and that he must have an angel. "Well," said our artist, "if you must have an angel, you shall have an angel, but it will be dreadfully like a lion." Thus it comes to pass that when I am compelled to give an address, it is extremely like a sermon! I pray you have patience with me now that I have confessed my weakness.
 
 A philosopher has remarked that if a man knew that he had 30 years of life before him, it would not be an unwise thing to spend 20 of those years in mapping out a plan of living and putting himself under rule, for he would do more with the 10 well-arranged years than with the whole 30 if he spent them at random, There is much truth in that saying. A man will do little by firing off his gun if he has not learned to take aim.

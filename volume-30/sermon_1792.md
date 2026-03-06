@@ -1,6 +1,5 @@
 # Sermon 1792 | Understandest Thou What Thou Readest?
 
-
 HOW THIS NEGRO CHAMBERLAIN of the Queen of Ethiopia came to be a proselyte we do not know. The book which he was so fond of reading may have been the means of leading him to worship the God of Abraham, certainly it has answered that purpose thousands of times. At any rate, he followed the light he had, and though he had not yet come to the full glory of Christianity, it was more than probable that he would do so, because he was evidently prepared to follow truth wherever her flaming torch should lead the way. Oh, that there were more candour among men in these latter days, and less of the prejudice which puts scales upon the eyes of the mind!
 
 Be true to truth as it comes to you. If God gives you only common candle-light, make good use of it; and he will trim your lamp till it shineth like the sevenfold golden light of his holy place. Those who are willing to see God by the moon of nature shall soon be illuminated by the sun of revelation. Instead of complaining that you have no more light, make good use of what you have. Many groan over their inabilities, and yet they have never gone to the end of their abilities: this is sheer hypocrisy.

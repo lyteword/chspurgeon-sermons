@@ -1,6 +1,5 @@
 # Sermon 1735 | The Doctrines of Grace Do Not Lead to Sin
 
-
 > "For sin shall not have dominion over you: for ye are not under the law, but under grace. What then? shall we sin, because we are not under the law, but under grace? God forbid."  
 > Romans 6:14, 15.  
 

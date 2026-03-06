@@ -1,6 +1,5 @@
 # Sermon 2135 | The Warnings and the Rewards of the Word of God
 
-
 > "Moreover by them is Your servant warned: and in keeping of them there is great reward."  
 > Psalm 19:11.  
 

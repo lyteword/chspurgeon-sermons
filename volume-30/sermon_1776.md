@@ -1,12 +1,5 @@
 # Sermon 1776 | Unbinding Lazarus
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 20, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when He had thus spoken, He cried with a loud voice, Lazarus, come forth! And he that was dead came forth, bound hand and foot with grave clothes: and his face was bound about with a napkin. Jesus said unto them, Loose him, and let him go." John 11:43,44.
 
 In many things our Lord Jesus stands alone as a worker. No other can unite His voice with the fiat which says, "Lazarus, come forth!" Yet, in certain points of gracious operation, the Master associates His servants with Him, so that when Lazarus has come forth He says to them, "loose him, and let him go." In the raising of the dead, He is alone, and therein majestic and Divine--in the loosing of the bound He is associated with them and still remains majestic--but His more prominent feature is condescension. How exceedingly kind it is of our Lord Jesus to permit His disciples to do some little thing in connection with His great deeds, so that they may be, "workers together with Him." Our Lord, as frequently as possible, associated His disciples with Himself. Of course, they could not aid Him in presenting an atoning Sacrifice, yet it was their honor that they had said, "Let us go, that we may die with Him," and that in their love they resolved to go with Him to prison and to death.

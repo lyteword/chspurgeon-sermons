@@ -1,6 +1,5 @@
 # Sermon 2168 | The Test of Taste
 
-
 > "If so be you have tasted that the Lord is gracious."  
 > 1 Peter 2:3.  
 

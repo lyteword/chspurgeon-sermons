@@ -1,6 +1,5 @@
 # Sermon 1966 | The Death of Moses
 
-
 > "So Moses, the servant of the Lord, died there in the land of Moab, according to the Word of the Lord."  
 > Deuteronomy 34:5.  
 
