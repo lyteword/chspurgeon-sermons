@@ -1,12 +1,4 @@
-# Grace for the Guilty
-
-(No. 2563)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, NOVEMBER 25, 1855.
+# Sermon 2563 | Grace for the Guilty
 
 "Have blotted out, as a thick cloud, your transgressions and, as a cloud, your sins: return unto Me, for I have redeemed you." Isaiah 44:22.
 

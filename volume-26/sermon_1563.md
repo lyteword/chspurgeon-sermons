@@ -1,12 +1,4 @@
-# The Duty of the Present Hour
-
-(No. 1563)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1563 | The Duty of the Present Hour
 
 "Break up your fallow ground: for it is time to seek the Lord, till He comes and rains righteousness upon you." Hosea 10:12.
 

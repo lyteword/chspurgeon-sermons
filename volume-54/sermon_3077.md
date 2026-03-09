@@ -1,12 +1,4 @@
-# Death--a Sleep
-
-(No. 3077)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 30, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3077 | Death--a Sleep
 
 "But I would not have you to be ignorant, brethren, concerning those who are asleep, that you sorrow not, even as others which have no hope." 1 Thessalonians 4:13.
 

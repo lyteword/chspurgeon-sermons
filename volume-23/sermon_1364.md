@@ -1,12 +1,4 @@
-# Nevertheless, Hereafter
-
-(No. 1364)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1364 | Nevertheless, Hereafter
 
 "Jesus said unto him, You have said (or said so), nevertheless, I say unto you, Hereafter shall you see the Son of Man sitting on the right hand of the Power, and coming on the clouds of Heaven." Matthew 26:64.
 

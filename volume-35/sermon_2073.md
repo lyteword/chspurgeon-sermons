@@ -1,8 +1,5 @@
-# Two Essential Things
+# Sermon 2073 | Two Essential Things
 
-Sermon No. 2073 - Delivered on Lord's-day Morning, March 3rd the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
-
-> "Testifying both to the Jews, and also to the Greeks, repentance toward God, and faith toward our Lord Jesus Christ."'Acts 20:21  
 > "Testifying both to the Jews, and also to the Greeks, repentance toward God, and faith toward our Lord Jesus Christ."'Acts 20:21  
 
 This was the practical drift of Paul's teaching at Ephesus, and everywhere else. He kept back nothing which was profitable to them; and the main profit he expected them to derive from his teaching the whole counsel of God was this, that they should have "repentance toward God, and faith toward our Lord Jesus Christ." This was the great aim of the apostle. I pray that it may be so with all of us who are teachers of the Word: may we never be satisfied if we interest, please, or dazzle; but may we long for the immediate production, by the Spirit of God, of true repentance and faith. Old Mr. Dodd, one of the quaintest of the Puritans, was called by some people, "Old Mr. Faith and Repentance," because he was always insisting upon these two things. Philip Henry, remarking upon his name, writes somewhat to this effect'"As for Mr. Dodd's abundant preaching repentance and faith, I admire him for it; for if I die in the pulpit, I desire to die preaching repentance and faith; and if I die out of the pulpit, I desire to die practising repentance and faith." Some one remarked to Mr. Richard Cecil, that he had preached very largely upon faith; but that good clergyman assured him that if he could rise from his dying bed, and preach again, he would dwell still more upon that subject. No themes can exceed in importance repentance and faith, and these need to be brought very frequently before the minds of our congregations.

@@ -1,12 +1,4 @@
-# The Double Drawing Near
-
-(No. 2795)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 7, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 22, 1878.
+# Sermon 2795 | The Double Drawing Near
 
 "Draw near to God, and He will draw near to you." James 4:8.
 

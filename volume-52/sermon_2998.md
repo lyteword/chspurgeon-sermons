@@ -1,12 +1,4 @@
-# The Rule of Christ
-
-(No. 2998)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 26, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1875.
+# Sermon 2998 | The Rule of Christ
 
 "And he shall be as the light of the morning, when the sun rises, even a morning without clouds, as the tender grass springing out of the earth by clear shining after rain." 2 Samuel 23:4.
 

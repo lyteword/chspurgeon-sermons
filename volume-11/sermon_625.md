@@ -1,6 +1,4 @@
-# Jesus Appearing To Mary Magdalene
-
-Sermon No. 625 - Delivered on Sunday Morning, April 16th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 625 | Jesus Appearing To Mary Magdalene
 
 > Now when Jesus was risen early the first day of the week, He appeared first to Mary Magdalene, out of whom He had cast seven devils.    
 > Mark 16:9.    

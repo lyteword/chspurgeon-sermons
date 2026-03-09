@@ -1,12 +1,4 @@
-# The Sine Qua Non
-
-(No. 926)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 17, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 926 | The Sine Qua Non
 
 "Jesus answered him, If I do not wash you, you have no part with Me." John 13:8.
 

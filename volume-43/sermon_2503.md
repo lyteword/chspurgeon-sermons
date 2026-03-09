@@ -1,12 +1,4 @@
-# The Question Between the Plagues
-
-(No. 2503)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 24, 1885.
+# Sermon 2503 | The Question Between the Plagues
 
 "How long will you refuse to humble yourself before Me?" Exodus 10:3.
 

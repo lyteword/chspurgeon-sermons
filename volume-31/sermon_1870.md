@@ -1,12 +1,4 @@
-# But a Step
-
-(No. 1870)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY EVENING, NOVEMBER 29, 1885.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SEPTEMBER 13, 1885.
+# Sermon 1870 | But a Step
 
 "There is but a step between me and death." 1 Samuel 20:3.
 

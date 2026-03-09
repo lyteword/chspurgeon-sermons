@@ -1,12 +1,4 @@
-# The Savior's Thirst
-
-(No. 3385)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 18, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3385 | The Savior's Thirst
 
 "After this, Jesus, knowing that all things were now accomplished, that the Scripture might be fulfilled, said, I thirst." John 19:28.
 

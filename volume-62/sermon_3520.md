@@ -1,12 +1,4 @@
-# Jerusalem the Guilty
-
-(No. 3520)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 13, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3520 | Jerusalem the Guilty
 
 "It cannot be that a Prophet should perish out of Jerusalem." Luke 13:33.
 

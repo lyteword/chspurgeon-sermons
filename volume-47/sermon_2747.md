@@ -1,12 +1,4 @@
-# Saying Versus Doing
-
-(No. 2747)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 6, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 1, 1879.
+# Sermon 2747 | Saying Versus Doing
 
 "A certain man had two sons; and he came to the first and said, Son, go work today in my vineyard. He answered and said, I will not: but afterward he repented and went. And he came to the second, and said likewise. And he answered and said, I go, Sir: and went not." Matthew 21:28-30.
 

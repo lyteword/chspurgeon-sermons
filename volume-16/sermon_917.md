@@ -1,12 +1,4 @@
-# Precious, Honorable, Beloved
-
-(No. 917)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 20, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROTROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 917 | Precious, Honorable, Beloved
 
 "Since you were precious in My sight you have been honorable, and I have loved you." Isaiah 43:4.
 

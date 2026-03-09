@@ -1,12 +1,4 @@
-# The Chief Physician and the Centurion's Servant
-
-(No. 1422)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 30, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1422 | The Chief Physician and the Centurion's Servant
 
 "Jesus said unto him I will come and heal him." Matthew 8:7.
 

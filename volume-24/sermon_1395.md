@@ -1,12 +1,4 @@
-# Family Reformation--or, Jacob's Second Visit to Bethel
-
-(No. 1395)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1395 | Family Reformation--or, Jacob's Second Visit to Bethel
 
 "And God said unto Jacob, Arise, go up to Bethel and dwell there." Genesis 35:1.
 

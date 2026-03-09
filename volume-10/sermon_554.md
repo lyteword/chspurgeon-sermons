@@ -1,6 +1,4 @@
-# Enduring to the End
-
-Sermon No. 554 - Delivered on Sunday Morning, February 14th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 554 | Enduring to the End
 
 > "He that endureth to the end shall be saved."  
 > Matthew 10:22.  

@@ -1,12 +1,4 @@
-# The Still Small Voice
-
-(No. 1668)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 9, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1668 | The Still Small Voice
 
 "And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice. So it was when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entrance of the ca ve. And, behold, there came a voice unto him, and said, What are you doing here, Elijah?" 1 Kings 19:12,13.
 

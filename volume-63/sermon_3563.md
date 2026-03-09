@@ -1,12 +1,4 @@
-# Cheering Congratulation
-
-(No. 3563)
-
-A SERMON DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3563 | Cheering Congratulation
 
 "Blessed is he who transgression is forgiven; whose sin is covered." Psalm 32:1.
 

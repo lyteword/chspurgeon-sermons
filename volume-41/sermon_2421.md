@@ -1,12 +1,4 @@
-# Hallelujah! Hallelujah!
-
-(No. 2421)
-
-INTENDED FOR READING ON LORD'S DAY, JULY 14, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 19, 1887.
+# Sermon 2421 | Hallelujah! Hallelujah!
 
 "For the LORD takes pleasure in His people: He will beautify the meek with salvation. Let the saints be joyful in glory: let them sing aloud upon their beds. Let the high praises of God be in their mouths and a two-edged sword in their hands." Psalm 149:4-6.
 

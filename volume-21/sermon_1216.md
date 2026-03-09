@@ -1,12 +1,4 @@
-# To Souls In Agony
-
-(No. 1216)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1216 | To Souls In Agony
 
 "The sorrows of death compassed me, and the pains of Hell got hold upon me. I found trouble and sorrow. Then called I upon the name of the Lord; O Lord, I beseech You, deliver my soul...You have delivered my soul from death, my eyes from tears, and my feet from falling." Psalm 116:3,4,8.
 

@@ -1,12 +1,4 @@
-# A Lesson from the Life of King Asa
-
-(No. 1152)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1152 | A Lesson from the Life of King Asa
 
 "Herein you have done foolishly: therefore from henceforth you shall have wars." 2 Chronicles 16:9.
 

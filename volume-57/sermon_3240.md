@@ -1,12 +1,4 @@
-# The Blood of Christ's Covenant
-
-(No. 3240)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 9, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 12, 1863.
+# Sermon 3240 | The Blood of Christ's Covenant
 
 "As for you, also, by the blood ofyour Covenant I have sent forth your prisoners out of the pit wherein is no water." Zechariah 9:11.
 

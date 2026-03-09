@@ -1,12 +1,4 @@
-# The God of Peace and Our Sanctification
-
-(No. 1368)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 5, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1368 | The God of Peace and Our Sanctification
 
 "Now the God of Peace, that brought again from the dead our Lord Jesus, that Great Shepherd of the sheep, through the blood of the Everlasting Co venant, make you perfect in every good work to do His will, working in you that which is well-pleasing in His sight, through Jesus Christ; to whom be glory forever and ever. Amen." Hebrews 13:20,21.
 

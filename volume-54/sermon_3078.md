@@ -1,12 +1,4 @@
-# God-Guided Men
-
-(No. 3078)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 6, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 15, 1874.
+# Sermon 3078 | God-Guided Men
 
 "I conferred not with flesh and blood." Galatians 1:16.
 

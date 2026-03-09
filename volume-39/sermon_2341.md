@@ -1,12 +1,4 @@
-# The Underlying Gospel for the Dying Year
-
-(No. 2341)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 31, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 20, 1889.
+# Sermon 2341 | The Underlying Gospel for the Dying Year
 
 "For when we were yet without strength, in due time Christ died for the ungodly." Romans 5:6.
 

@@ -1,12 +1,4 @@
-# The Two Pillars Of Salvation
-
-(No. 2357)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 22, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 19, 1888.
+# Sermon 2357 | The Two Pillars Of Salvation
 
 "We believe on Him that raised up Jesus, our Lord, from the dead; who was delivered for our offenses, and was raised, again, for our justification." Romans 4:24,25.
 

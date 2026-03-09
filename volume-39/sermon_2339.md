@@ -1,12 +1,4 @@
-# Baptism Essential To Obedience
-
-(No. 2339)
-
-INTENDED FOR READING ON LORDS'S-DAY, DECEMBER 17, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 13, 1889.
+# Sermon 2339 | Baptism Essential To Obedience
 
 "He who believes and is baptized shall be saved." Mark 16:16.
 

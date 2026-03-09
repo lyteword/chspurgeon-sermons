@@ -1,12 +1,4 @@
-# No Quarter
-
-(No. 1058)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 30, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1058 | No Quarter
 
 "Elijah said unto them, take the prophets of Baal; let not one of them escape," 1 Kings 18:40.
 

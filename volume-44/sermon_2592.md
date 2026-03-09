@@ -1,12 +1,4 @@
-# The Power of Christ's Name
-
-(No. 2592)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 16, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 7, 1883.
+# Sermon 2592 | The Power of Christ's Name
 
 "And His name, through faith in His name, has made this man strong, whom you see and know. Yes, the faith which is by Him has given him this perfect soundness in the presence of you all." Acts 3:16.
 

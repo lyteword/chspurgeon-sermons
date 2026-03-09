@@ -1,7 +1,4 @@
-# The Unrivalled Friend
-
-Sermon No. 899 - Delivered on Lord's-day Morning, NOVEMBER 7, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 899 | The Unrivalled Friend
 
 "A friend loves at all times and a brother is born for adversity."- Proverbs 17:17.
 

@@ -1,12 +1,4 @@
-# The Objective of the Lord's Supper
-
-(No. 2942)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 29, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 2, 1877.
+# Sermon 2942 | The Objective of the Lord's Supper
 
 "For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:26.
 

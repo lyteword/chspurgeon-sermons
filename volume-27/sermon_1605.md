@@ -1,12 +1,4 @@
-# Jesus Knew What He Would Do
-
-(No. 1605)
-
-DELIVERED ON THURSDAY EVENING, JUNE 23, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1605 | Jesus Knew What He Would Do
 
 "This He said to test him: for He Himself knew what He would do." John 6:6.
 

@@ -1,12 +1,4 @@
-# Believers Tested by Trials
-
-(No. 2732)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 23, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 17, 1880.
+# Sermon 2732 | Believers Tested by Trials
 
 "Behold, Igo forward, but He is not there; and backward, but I cannot perceive Him: on the left hand, where He works, but I cannot behold Him: He hides Himself on the right hand, that I cannot see Him: but He knows the way that I take: when He has tried me, I shall come forth as gold." Job 23:8-10.
 

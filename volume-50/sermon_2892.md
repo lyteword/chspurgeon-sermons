@@ -1,12 +1,4 @@
-# The Free-agency of Christ
-
-(No. 2892)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 14, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 18, 1876.
+# Sermon 2892 | The Free-agency of Christ
 
 "And He came to Bethsaida; and they brought a blind man unto Him, and besought Him to touch him. And He took the blind man by the hand, and led him out of the town, and when He had spit on his eyes, and put His hands upon him, He asked him if he saw anything. And he looked up, and said, I see men as trees walking. After that He put His hands again upon his eyes, and made him look up: and he was restored, and saw every man clearly. And He sent him away to his house, saying, "Neither go into the town, nor tell it to any in the town." Mark 8:22-26.
 

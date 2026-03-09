@@ -1,12 +1,4 @@
-# The Lord with Two or Three
-
-(No. 1761)
-
-A SERMON DELIVERED ON THURSDAY EVENING, OCTOBER 4, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1761 | The Lord with Two or Three
 
 "Where two or three are gathered together in My name, there am I in the midst of them." Matthew 18:20.
 

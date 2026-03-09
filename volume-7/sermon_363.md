@@ -1,6 +1,4 @@
-# The Glorious Right Hand Of The Lord
-
-Sermon No. 363 - Delivered on Sabbath Morning, February 24th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 363 | The Glorious Right Hand Of The Lord
 
 > "And the Lord said unto Moses, Is the Lord's hand waxed short? You shall now see whether My Word shall come to pass unto you or not."  
 > Numbers 11:23.  

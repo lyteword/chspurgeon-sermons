@@ -1,7 +1,4 @@
-# Abijah, or Some Good Thing Towards the Lord
-
-Sermon No. 1745 - Delivered on Lord's-Day Morning, October 21st, 1883 the REV. C.H. SPURGEON at the [4]Metropolitan Tabernacle, Newington.
-(No. 1745)
+# Sermon 1745 | Abijah, or Some Good Thing Towards the Lord
 
 JEROBOAM HAD PROVED FALSE to the Lord who had placed him upon the throne of Israel, and the time was come for his overthrow. The Lord, who usually brings forth the rod before he lifts the axe, sent sickness into his house: his son Abijah was sore sick. Then the parents bethought them of an old prophet of God, and desired to know through him what would happen to the child. Fearful lest the prophet should denounce plagues upon him and his child if he knew that the enquirer was the wife of Jeroboam, the king begged the Egyptian princess whom he had married to disguise herself as a farmer's wife, and so get from the man of God a more favorable answer. Poor foolish king to imagine that a prophet who could see into futurity could not also see through any disguise with which his queen might surround herself! So anxious was the mother to know the fate of her son, that she left his sick-chamber to go to Shiloh to hear the sentence of the prophet. Vain was her clever disguise! the blind prophet was still a seer, and not only discerned her before she entered the house, but saw the future of her family. She came full of superstition to be told her fortune, but she went away heavy, having been told her faults and her doom.
 

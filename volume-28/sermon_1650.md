@@ -1,12 +1,4 @@
-# God's Fatherly Pity
-
-(No. 1650)
-
-DELIVERED ON THURSDAY EVENING, MARCH 2, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1650 | God's Fatherly Pity
 
 "As a father pities his children, so the Lord pities them that fear Him." Psalm 103:13.
 

@@ -1,12 +1,4 @@
-# The Happy Duty of Daily Praise
-
-(No. 1902)
-
-A SERMON DELIVERED ON LORDS-DAY MORNING, MAY 30, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1902 | The Happy Duty of Daily Praise
 
 "I will extol You, my God, O King; and I will bless Your name forever and ever. Every day will I bless You; and I will praise Your name forever and ever." Psalm 114:1,2.
 

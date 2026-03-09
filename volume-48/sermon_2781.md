@@ -1,12 +1,4 @@
-# Jesus Calling
-
-(No. 2781)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 1, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 14, 1878.
+# Sermon 2781 | Jesus Calling
 
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 

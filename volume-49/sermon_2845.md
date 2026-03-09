@@ -1,12 +1,4 @@
-# Lacking Moisture
-
-(No. 2845)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 20, 1888.
+# Sermon 2845 | Lacking Moisture
 
 "And some fell upon a rock, and as soon as it was sprung up, it withered away because it lacked moisture." Luke 8:6.
 

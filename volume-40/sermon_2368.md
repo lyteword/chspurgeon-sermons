@@ -1,12 +1,4 @@
-# The Living Care of the Dying Christ
-
-(No. 2368)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 8, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 15, 1888.
+# Sermon 2368 | The Living Care of the Dying Christ
 
 "Jesus answered, I have told you that I am He: if, therefore, you seek Me, let these go their way: that the saying might be fulfilled which He spoke, Of those which You gave Me have I lost none." John 18:8,9.
 

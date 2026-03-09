@@ -1,12 +1,4 @@
-# Reasons for Turning to the Lord
-
-(No. 1396)
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 13, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1396 | Reasons for Turning to the Lord
 
 "Come, and let us return unto the Lord. For He has torn, but He will heal us. He has struck us, but He will bind us up. After two days will He revive us. On the third day He will raise us up, and we shall live in His sight." Hosea 6:1,2.
 

@@ -1,12 +1,4 @@
-# Looking for One Thing and Finding Another
-
-(No. 3075)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 16, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3075 | Looking for One Thing and Finding Another
 
 "And the donkeys of KKish, Saul's father, were lost. And Kish said to Saul, his son, Take now one of the servants with you, and arise, go seek the donkeys...And as for your donkeys that were lost three days ago, set not your mind on them; for they are found. And on whom is all the desire ofIsrael?Is it not on you, and on all your fathers house?" 1 Samuel 9:3,20.
 

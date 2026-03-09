@@ -1,12 +1,4 @@
-# The Great Teacher and Remembrancer
-
-(No. 3353)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 8, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 16, 1866.
+# Sermon 3353 | The Great Teacher and Remembrancer
 
 "But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things and bring all things to your remembrance, whatever I have said unto you." John 14:26.
 

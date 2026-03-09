@@ -1,12 +1,4 @@
-# A Gospel Worth Dying For
-
-(No. 1734)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 12, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1734 | A Gospel Worth Dying For
 
 "To testify the Gospel of the Grace of God." Acts 20:24.
 

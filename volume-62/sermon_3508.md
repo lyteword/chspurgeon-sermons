@@ -1,16 +1,4 @@
-# Light at Evening Time
-
-A Sermon
-
-(No. 3508)
-
-Published on Thursday, April 20th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [16]the Metropolitan Tabernacle, Newington.
+# Sermon 3508 | Light at Evening Time
 
 "And it shall come to pass in that day, that the light shall not be clear nor dark: But it shall be one day which shall be known to the Lord, not day, nor night; but it shall come to pass, that at evening time it shall be light."--Zechariah 14:6-7.
 

@@ -1,12 +1,4 @@
-# The Student's Prayer
-
-(No. 1344)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1344 | The Student's Prayer
 
 "Make me to understand the way of Your precepts: so shall I talk of Your wondrous works." Psalm 119:27.
 

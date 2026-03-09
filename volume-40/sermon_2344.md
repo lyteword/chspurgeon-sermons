@@ -1,12 +1,4 @@
-# Christ's Dying Word for His Church
-
-(No. 2344)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 21, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, NOVEMBER 3, 1889.
+# Sermon 2344 | Christ's Dying Word for His Church
 
 "It is finished." John 19:30.
 

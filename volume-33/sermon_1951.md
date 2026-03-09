@@ -1,6 +1,4 @@
-# The Pleading of the Last Messenger
-
-Sermon No. 1951 - Delivered on Sunday Morning, March 6th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1951 | The Pleading of the Last Messenger
 
 > "Having yet therefore one son, his well-beloved, he sent him also last unto them, saying, They will reverence my son. But those vinedressers said among themselves, This is the heir, come, let us kill him and the inheritance shall be ours. And they took him, and killed him, and cast him out of the vineyard. What shall, therefore, the lord of the vineyard do? He will come and destroy the vinedressers, and will give the vineyard unto others."  
 > Mark 12:6-9.  

@@ -1,12 +1,4 @@
-# The Sealed Hand--a Winter Sermon
-
-(No. 3289)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3289 | The Sealed Hand--a Winter Sermon
 
 "He seals up the hand of every man; that all men may know His work." Job 37:7.
 

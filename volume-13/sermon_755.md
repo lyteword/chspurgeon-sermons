@@ -1,6 +1,4 @@
-# Alive or Dead--Which?
-
-Sermon No. 755 - Delivered on Lord's-Day Morning, June 16th, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 755 | Alive or Dead--Which?
 
 > "He that hath the Son hath life; and he that hath not the Son of God hath not life."  
 > 1 John 5:12.  

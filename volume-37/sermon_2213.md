@@ -1,12 +1,4 @@
-# "Honey In The Mouth!"
-
-(No. 2213)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1891,
-
-DELIVERED BY C. H. SPURGEON, ON FRIDAY MORNING, APRIL 24, 1891,
-
-AT THE CONFERENCE OF THE PASTORS' COLLEGE EVANGELICAL ASSOCIATION.
+# Sermon 2213 | "Honey In The Mouth!"
 
 "He shall glorify Me: for He shall receive of Mine, and shall show it unto you. All things that the Father has are Mine: therefore said I, that He shall take of Mine and shall show it unto you." John 16:14,15.
 

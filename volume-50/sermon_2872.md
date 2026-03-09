@@ -1,12 +1,4 @@
-# The Lord's Supper
-
-(No. 2872)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25,1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1861.
+# Sermon 2872 | The Lord's Supper
 
 "For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:26.
 

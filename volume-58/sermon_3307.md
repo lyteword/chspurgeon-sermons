@@ -1,12 +1,4 @@
-# Over the Mountains
-
-(No. 3307)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 20, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3307 | Over the Mountains
 
 "My beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether." Solomon's Song 2:16,17.
 

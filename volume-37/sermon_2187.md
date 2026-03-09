@@ -1,12 +1,4 @@
-# Jesus--"All Blessing and All Blessed"
-
-(No. 2187)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 1, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2187 | Jesus--"All Blessing and All Blessed"
 
 "Men shall be blessed in Him: all nations shall call Him blessed." Psalm 72:17.
 

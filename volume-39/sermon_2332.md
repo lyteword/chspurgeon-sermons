@@ -1,12 +1,4 @@
-# Lessons From the Manna
-
-(No. 2332)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 29, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 12, 1889.
+# Sermon 2332 | Lessons From the Manna
 
 "Then said the LORD unto Moses, Behold, I will rain bread from Heaven for you; and the people shall go out and gather a certain quota every day, that I may prove them, whether they will walk in My Law, or no." Exodus 16:4.
 

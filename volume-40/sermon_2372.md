@@ -1,12 +1,4 @@
-# A Page From a Royal Diary
-
-(No. 2372)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 5, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 17, 1888.
+# Sermon 2372 | A Page From a Royal Diary
 
 "Look You upon me and be merciful to me, as You used to do to those who love Your name." Psalm 119:132.
 

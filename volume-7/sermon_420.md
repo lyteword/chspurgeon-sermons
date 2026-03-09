@@ -1,6 +1,4 @@
-# Abram And The Ravenous Birds
-
-Sermon No. 420 - Delivered on Sunday Morning, November 24th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 420 | Abram And The Ravenous Birds
 
 > "But when the fowls came do wn upon the carcasses, Abram drove them away."  
 > Genesis 15:11.  

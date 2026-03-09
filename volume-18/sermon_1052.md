@@ -1,12 +1,4 @@
-# The Sphere Of Instrumentality
-
-(No. 1052)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 26, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1052 | The Sphere Of Instrumentality
 
 "Jesus said, Take away the stone." John 11:39.
 

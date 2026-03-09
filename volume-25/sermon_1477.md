@@ -1,12 +1,4 @@
-# Jesus Admired In Them That Believe
-
-(No. 1477)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1477 | Jesus Admired In Them That Believe
 
 "When He shall come to be glorified in His saints, and to be admired in all them that believe (because our testimony among you was believed) in that day." 2 Thessalonians 1:10.
 

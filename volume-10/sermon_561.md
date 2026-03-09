@@ -1,14 +1,4 @@
-# Expiation
-
-A Sermon
-
-(No. 561)
-
-By the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
+# Sermon 561 | Expiation
 
 "Thou shalt make his soul an offering for sin."--Isaiah 53:10.
 

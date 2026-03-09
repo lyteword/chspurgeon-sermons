@@ -1,12 +1,4 @@
-# Sentence Of Death, The Death Of Self-trust
-
-(No. 1536)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 2, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1536 | Sentence Of Death, The Death Of Self-trust
 
 "But we had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raises the dead." 2 Corinthians 1:9.
 

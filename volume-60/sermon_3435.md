@@ -1,12 +1,4 @@
-# Sanctified Sorrow
-
-(No. 3435)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3435 | Sanctified Sorrow
 
 "Oyou afflicted, tossed with tempest, and not comforted! Behold, I will Jay your stones with fair colors, and lay your foundations with sapphires. And I will make your windows of agates, and your gates of carbuncles, and all your borders of pleasant stones." Isaiah 54:11,12.
 

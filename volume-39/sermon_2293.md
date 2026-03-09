@@ -1,12 +1,4 @@
-# Simeon's Swan Song
-
-(No. 2293)
-
-INTENDED FOR READING, ON LORD'S-DAY, JANUARY 29, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2293 | Simeon's Swan Song
 
 "Lord, now Jet You Your servant depart in peace, according to Your word: for my eyes have seen Your salvation." Luke 2:29,30.
 

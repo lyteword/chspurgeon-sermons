@@ -1,12 +1,4 @@
-# Charity and Purity
-
-(No. 2313)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 18, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 23, 1889.
+# Sermon 2313 | Charity and Purity
 
 "Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep ourselves unspotted from the world." James 1:27.
 

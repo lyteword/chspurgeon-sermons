@@ -1,12 +1,4 @@
-# Zealous, But Wrong
-
-(No. 1899)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1899 | Zealous, But Wrong
 
 "Brethren, my heart's desire and prayer to God for Israelis that they might be saved. For I bear them record that they have a zeal of God, but not according to knowledge. For they being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God." Romans 10:1,2,3.
 

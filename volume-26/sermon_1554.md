@@ -1,12 +1,4 @@
-# Redemption By Price
-
-(No. 1554)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1554 | Redemption By Price
 
 "You are not your own: for you are bought with a price." 1 Corinthians 6:19,20.
 

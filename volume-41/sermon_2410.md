@@ -1,12 +1,4 @@
-# Springtime in Nature and Grace
-
-(No. 2410)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 1, 1887.
+# Sermon 2410 | Springtime in Nature and Grace
 
 "For as the rain comes down and the snow from Heaven, andreturns not there, but waters the earth, and makes it bring forth and bud, that it may give seed to the sower, and bread to the eater: so shall My Word be that goes forth out of My mouth: it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing for which I sent it. For you shall go out with joy, and be led forth with peace: the mountains and the hills shall break forth before you into singing, and all the trees of the field shall clap their hands. Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the LORD for a name, for an everlasting sign that shall not be cut off." Isaiah 55:10-13.
 

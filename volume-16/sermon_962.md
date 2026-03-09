@@ -1,18 +1,9 @@
-# A Personal Application
-
-(No. 962)
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 16, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 962 | A Personal Application
 
 "But now once in the end of the world has He appeared to put away sin by the sacrifice of Himself." Hebrews 9:26.
 
 IN those good old times when preachers did not grow weary, though they discoursed for three hours at a stretch. And when congregations were not given to slumber, even under such long discourses, the preacher had ample time not only to dilate upon the doctrine of his text, but to speak, also, upon what was then called "the improvement of the subject," namely, the practical and experimental application of the Truths of God taught to the cases of his hearers. Nowadays when we are restricted to three-quarters of an hour--not altogether to our loss or yours--there are occasions on which we feel our course so wide, and our time so narrow, that having found a good sea to sail upon, and objects of surpassing interest to attract our attention in the morning, we venture to resume the current of thought and follow up with the application in the evening.
 
-Those of you who were present this morning, (See No. 911, "The Putting Away of Sin"), will not have forgotten the fullness of the text. It seemed as though every word were on fire, for we were warmed and comforted by each word as it broke on our ears and appealed to our hearts. I am sure that God the Holy Spirit spoke to some of us. If we never heard Him before, we certainly did then feel the power of His Presence in our souls. "Did not our hearts burn within us" while we meditated upon the precious Truth contained in this passage of Holy Scripture? We saw very clearly God's way of putting away sin. We knew that sin was the great obstacle which kept us from God, and we perceived how Jesus Christ, by making Himself a Sacrifice, had completely cast down and cleared off the separating wall, so that now we have access with boldness to this Grace wherein we stand, and rejoice in hope of the glory of God! By His offering of Himself upon the tree, He put away sin once and for all on the behalf of those who trust in Him.
 
 The application, then, which I proceed to take in hand is twofold--first, to some of you who are not converted, a few earnest, faithful, affectionate words. And, secondly, to you who have received Christ, and have also obtained power to become sons of God, a little tender counsel.
 

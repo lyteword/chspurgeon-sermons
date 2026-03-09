@@ -1,12 +1,4 @@
-# The Luther Sermon at Exeter Hall
-
-(No. 1750)
-
-DELIVERED ON LORD'S-DAY EVENING, NOVEMBER 11, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1750 | The Luther Sermon at Exeter Hall
 
 "For in Jesus Christ neither circumcision avails anything, nor uncircumcision; but faith which works by love." Galatians 5:6.
 

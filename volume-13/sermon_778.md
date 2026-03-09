@@ -1,7 +1,4 @@
-# Plain Words With the Careless
-
-Sermon No. 778 - Delivered on Lord's-day Evening, OCTOBER 13, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 778 | Plain Words With the Careless
 
 "When he saw Jesus, he cried out, fell down before Him, and with a loud voice said, 'What have I to do with You, Jesus, You Son of the Most High God? I beg You, do not torment me.."- Luke 8:28.
 

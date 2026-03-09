@@ -1,12 +1,4 @@
-# Our Magnificent Savior
-
-(No. 3554)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 8, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-ON LORD'S-DAY EVENING, JANUARY 28,1872.
+# Sermon 3554 | Our Magnificent Savior
 
 "He shall see of the travail of His soul, and be satisfied. By His knowledge shall My righteous Servant justify many, for He shall bear their iniquities."
 

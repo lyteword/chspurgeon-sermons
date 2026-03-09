@@ -1,12 +1,4 @@
-# The Pentecostal Wind and Fire
-
-(No. 1619)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 18, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1619 | The Pentecostal Wind and Fire
 
 "And suddenly there came a sound from Heaven, as of a rushing mighty wind, and it filed all the house where they were sitting. And there appeared unto them cloven tongues like as of fire, and it sat upon each of them. And they were all filed with the Holy Spirit, and began to speak with other tongues, as the Spirit gave them utterance." Acts 2:2-4.
 

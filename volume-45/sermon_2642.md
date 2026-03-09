@@ -1,12 +1,4 @@
-# The Flight to Zoar
-
-(No. 2642)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 1, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE AUTUMN OF 1857.
+# Sermon 2642 | The Flight to Zoar
 
 "The sun was risen upon the earth when Lot entered into Zoar." Genesis 19:23.
 

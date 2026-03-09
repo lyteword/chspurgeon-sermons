@@ -1,12 +1,4 @@
-# Under His Shadow
-
-(No. 3267)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT A COMMUNION SERVICE AT MENTONE, EARLY IN THE YEAR 1880.
+# Sermon 3267 | Under His Shadow
 
 "He that dwells in the secret place of the Most High shall abide under the shadow of the Almighty." Psalm 91:1.
 

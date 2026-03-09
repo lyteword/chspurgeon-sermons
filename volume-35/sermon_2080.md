@@ -1,6 +1,4 @@
-# The Power of His Resurrection
-
-Sermon No. 2080 - Delivered on Sunday, April 21th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2080 | The Power of His Resurrection
 
 > "That I may know Him and the power of His resurrection."  
 > Philippians 3:10.  

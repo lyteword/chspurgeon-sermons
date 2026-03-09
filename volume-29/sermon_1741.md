@@ -1,12 +1,4 @@
-# "Let Not Your Heart Be Troubled"
-
-(No. 1741)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 23, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1741 | "Let Not Your Heart Be Troubled"
 
 "Let not your heart be troubled: you believe in God, believe also in Me. In My Father's house are many mansions: if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto Myself; that where I am, there you may be also. And where I go you know, and the way you know." John 14:1-4.
 

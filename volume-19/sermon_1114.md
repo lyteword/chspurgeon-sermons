@@ -1,12 +1,4 @@
-# Onward!
-
-(No. 1114)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1114 | Onward!
 
 "Brethren, I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus." Philippians 3:13,14.
 

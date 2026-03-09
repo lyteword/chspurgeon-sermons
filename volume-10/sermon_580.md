@@ -1,6 +1,4 @@
-# God Is With Us
-
-Sermon No. 580 - Delivered on Sunday Morning, July 17th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 580 | God Is With Us
 
 > "If God is for us, who can be against us?"  
 > Romans 8:31.  

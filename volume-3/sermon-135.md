@@ -1,6 +1,4 @@
-# Presumptuous Sins
-
-Sermon No. 135 - Delivered on Sabbath Morning, June 7, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 135 | Presumptuous Sins
 
 > Keep back thy servant also from presumptuous sins.    
 > Psalm 19:13.    

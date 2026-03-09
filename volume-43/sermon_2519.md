@@ -1,12 +1,4 @@
-# When Should We Pray?
-
-(No. 2519)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 30, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTTOBER 22, 1885.
+# Sermon 2519 | When Should We Pray?
 
 "Men ought always to pray, and not to faint." Luke 18:1.
 

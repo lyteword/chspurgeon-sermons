@@ -1,12 +1,4 @@
-# A Miniature Portrait Of Joseph
-
-(No. 1610)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 24, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1610 | A Miniature Portrait Of Joseph
 
 "The Lord was with Joseph." Genesis 39:2.
 

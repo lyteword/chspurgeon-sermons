@@ -1,12 +1,4 @@
-# A Luther Sermon at the Tabernacle
-
-(No. 1749)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 11, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1749 | A Luther Sermon at the Tabernacle
 
 "But the just shall live by his faith." Habakkuk 2:4.
 

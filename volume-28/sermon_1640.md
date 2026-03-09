@@ -1,12 +1,4 @@
-# The Touch
-
-(No. 1640)
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 8, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1640 | The Touch
 
 "And Jesus, immediately knowing in Himself that power had gone out of Him, turned around in the crowd and said, Who touched My clothes? And His disciples said to Him, You see the multitude thronging You, and do You say, Who touched Me?" Mark 5:30,31.
 

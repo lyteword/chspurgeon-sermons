@@ -1,6 +1,4 @@
-# The Mission of the Son of Man
-
-Sermon No. 204 - Delivered on Sabbath Morning, July 11, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 204 | The Mission of the Son of Man
 
 > For the Son of man is come to seek and to save that which was lost.    
 > Luke 19:10.    

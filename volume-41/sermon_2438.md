@@ -1,12 +1,4 @@
-# "Two Immutable Things"
-
-(No. 2438)
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 10, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 30, 1887.
+# Sermon 2438 | "Two Immutable Things"
 
 "Yes, I swore unto you, and entered into a Covenant with you, says the Lord God, and you became Mine." Ezekiel 16:8.
 

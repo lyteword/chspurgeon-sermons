@@ -1,12 +1,4 @@
-# The Three Hours of Darkness
-
-(No. 1896)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 18, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1896 | The Three Hours of Darkness
 
 "Now from the sixth hour there was darkness over all the land unto the ninth hour." Matthew 27:45.
 
@@ -122,4 +114,3 @@ Another practical lesson is this--if we are in the dark at this time; if our spi
 
 If you are under a cloud, feel for your Lord, if haply you may find Him. Stand still in your black sorrow and say, "O Lord, the preacher tells me that Your Cross once stood in such darkness as this--O Jesus hear me!" He will respond to you--the Lord will look out of the pillar of cloud and shed a light upon you. "I know their sorrows," He says. He is no stranger to heart-break. Christ also once suffered for sin. Trust Him and He will cause His light to shine upon you! Lean upon Him and He will bring you up out of the gloomy wilderness into the land of rest. God help you to do so!
 
-Last Monday I was cheered beyond all I can tell you by a letter from a Brother who had been restored to life, light, and liberty by the discourse of last Sabbath morning [Sermon No. 1895, Volume 32--Love Abounding, Love Complaining, Love Abiding]. I know no greater joy than to be useful to your souls. For this reason I have tried to preach, this morning, though I am physically quite unfit for it. Oh, I do pray I may hear more news from saved ones! Oh that some spirit that has wandered out into the dark moorland may spy the candle in my window and find its way home! If you have found my Lord, I charge you, never let Him go, but cleave to Him till the day breaks and the shadows flee away! God help you so to do for Jesus' sake! Amen.

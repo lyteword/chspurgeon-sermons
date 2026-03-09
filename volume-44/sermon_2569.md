@@ -1,12 +1,4 @@
-# The Backslider's Door of Hope
-
-(No. 2569)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 8, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 22, 1883.
+# Sermon 2569 | The Backslider's Door of Hope
 
 "And I will give her her vineyards from there, and the Valley ofAchor for a door of hope; she shall sing there, as in the days of her youth, and as in the day when she came up from the land of Egypt." Hosea 2:15.
 

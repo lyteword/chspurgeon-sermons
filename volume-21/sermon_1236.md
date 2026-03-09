@@ -1,7 +1,4 @@
-# The Best House-visitation
-
-Sermon No. 1236 - Delivered on Lord's-Day Morning, May 23rd, 1875 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
-(No. 1236)
+# Sermon 1236 | The Best House-visitation
 
 WE SEE BEFORE US small beginnings and grand endings. One man is called by the voice of Jesus, and then another; the house wherein they dwell is consecrated by the Lord's presence, and by-and-by the whole city is stirred from end to end with the name and fame of the Great Teacher. We are often wishing that God would do some great thing in the world, and we look abroad for instruments which we think would be peculiarly fit, and think of places where the work might suitably begin: it might be quite as well if we asked the Lord to make use of us, and if we were believingly to hope that even our feeble instrumentality might produce great results by his power, and that our abode might become the central point from which streams of blessing should flow forth to refresh the neighborhood.
 

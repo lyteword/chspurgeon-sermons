@@ -1,12 +1,4 @@
-# Incense and Light
-
-(No. 1710)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 11, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1710 | Incense and Light
 
 "And Aaron shall burn thereon sweet incense every morning: when he dresses the lamps, he shall burn incense upon it. And when Aaron lights the lamps at twilight, he shall burn incense upon it, a perpetual incense before the Lord throughout your generations." Exodus 30:7,8.
 

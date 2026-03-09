@@ -1,6 +1,4 @@
-# The Glorious Habitation
-
-Sermon No. 46 - Delivered on Sabbath Morning, October 14, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 46 | The Glorious Habitation
 
 > Lord thou hast been our dwelling-place in all generations.    
 > Psalm 90:1.    

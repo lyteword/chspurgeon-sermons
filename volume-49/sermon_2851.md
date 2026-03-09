@@ -1,12 +1,4 @@
-# Unseasonable Prayer
-
-(No. 2851)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 14, 1877.
+# Sermon 2851 | Unseasonable Prayer
 
 "Why do you cry unto Me?" Exodus 14:15.
 

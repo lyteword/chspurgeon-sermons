@@ -1,12 +1,4 @@
-# Means for Restoring the Banished
-
-(No. 950)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 11, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 950 | Means for Restoring the Banished
 
 "Neither does God respect any person: yet does He devise means, that His banished are not expelled from Him." 2Samuel 14:14.
 

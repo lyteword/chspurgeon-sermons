@@ -1,12 +1,4 @@
-# Alto and Bass
-
-(No. 2582)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 7, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 1, 1883.
+# Sermon 2582 | Alto and Bass
 
 "He has filled the hungry with good things; and the rich He hats sent away empty." Luke 1:53.
 

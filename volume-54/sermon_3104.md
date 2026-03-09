@@ -1,12 +1,4 @@
-# Binding Up Broken Hearts
-
-(No. 3104)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 6, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 19, 1874.
+# Sermon 3104 | Binding Up Broken Hearts
 
 "He has sent Me to bind up the brokenhearted." Isaiah 61:1.
 

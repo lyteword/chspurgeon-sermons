@@ -1,12 +1,4 @@
-# The Preacher's Last Sermon for the Season
-
-(No. 1875)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 29, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1875 | The Preacher's Last Sermon for the Season
 
 "On the last day, that great day of the feast, Jesus stood and cried, saying, If any man thirsts, let him come unto Me and drink." John 7:37.
 

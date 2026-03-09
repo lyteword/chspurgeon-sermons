@@ -1,12 +1,4 @@
-# The Double Forget-me-not
-
-(No. 3099)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 2, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 5, 1874.
+# Sermon 3099 | The Double Forget-me-not
 
 "This do in remembrance of Me." 1 Corinthians 11:24.
 

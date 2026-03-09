@@ -1,12 +1,4 @@
-# The Fifth Beatitude
-
-(No. 3158)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 19, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 21, 1873.
+# Sermon 3158 | The Fifth Beatitude
 
 "Blessed are the merciful: for they shall obtain mercy." Matthew 5:7.
 

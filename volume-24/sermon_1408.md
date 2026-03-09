@@ -1,12 +1,4 @@
-# The Reason Why Many Cannot Find Peace
-
-(No. 1408)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 7, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1408 | The Reason Why Many Cannot Find Peace
 
 "Submit yourselves therefore to God. Resist the devil, and he will flee fromyou. Drawnear to God, and He will drawnear to you. Cleanse your hands, you sinners; and purify your hearts, you double-minded. Be afflicted, and mourn, and weep! Let your laughter be turned to mourning, and your joy to heaviness. Humble yourselves in the sight of the Lord, and He shall lift you up." James 4:7-10.
 

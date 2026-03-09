@@ -1,12 +1,4 @@
-# Peter's Prayer
-
-(No. 3407)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 21, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING JUNE 10, 1869.
+# Sermon 3407 | Peter's Prayer
 
 "When Simon Peter saw it, he fell down at Jesus'knees, saying, Depart from me, for I am a sinful man, O Lord." Luke 5:8.
 

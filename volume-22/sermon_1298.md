@@ -1,12 +1,4 @@
-# Gathering to the Center
-
-(No. 1298)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 4, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1298 | Gathering to the Center
 
 "They came to Him from every quarter." Mark 1:45.
 

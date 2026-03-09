@@ -1,7 +1,4 @@
-# The Ascension and the Second Advent Practically Considered
-
-Sermon No. 1817 - Delivered on Lord's Day Morning, December 28th, 1884 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
-(No. 1817)
+# Sermon 1817 | The Ascension and the Second Advent Practically Considered
 
 FOUR GREAT EVENTS shine out brightly in our Savior's story. All Christian minds delight to dwell upon his birth, his death, his resurrection, and his ascension. These make four rounds in that ladder of light, the foot of which is upon the earth, but the top whereof reacheth to heaven. We could not afford to dispense with any one of those four events, nor would it be profitable for us to forget, or to under-estimate the value of any one of them. That the Son of God was born of a woman creates in us the intense delight of a brotherhood springing out of a common humanity. That Jesus once suffered unto the death for our sins, and thereby made a full atonement for us, is the rest and life of our spirits. The manger and the cross together are divine seals of love. That the Lord Jesus rose again from the dead is the warrant of our justification, and also a transcendently delightful assurance of the resurrection of all his people, and of their eternal life in him. Hath he not said, "Because I live ye shall live also"? The resurrection of Christ is the morning star of our future glory. Equally delightful is the remembrance of his ascension. No song is sweeter than this"Thou hast ascended on high; thou hast led captivity captive, thou hast received gifts for men, yea, for the rebellious also, that the Lord God might dwell among them."
 

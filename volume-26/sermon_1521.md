@@ -1,12 +1,4 @@
-# A Plain Answer to an Important Enquiry
-
-(No. 1521)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1521 | A Plain Answer to an Important Enquiry
 
 "Jesus answered and said unto them, This is the work of God, that you believe on Him whom He has sent." John 6:29.
 

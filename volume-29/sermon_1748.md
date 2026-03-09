@@ -1,12 +1,4 @@
-# Jehovah Has Spoken--will You Not Hear?
-
-(No. 1748)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 4, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1748 | Jehovah Has Spoken--will You Not Hear?
 
 "Hear you, and give ear; be not proud: for the Lord has spoken. Give glory to the Lord your God, before He causes darkness and before your feet stumble upon the dark mountains and, while you look for light, He turns it into the shadow of death and makes it gross darkness. But if you will not hear it, my soul shall weep in secret places for your pride; and my eyes shall weep bitterly and run down with tears, because the Lord's flock is carried away captive." Jeremiah 13:15-17.
 

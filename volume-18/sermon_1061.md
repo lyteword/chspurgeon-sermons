@@ -1,12 +1,4 @@
-# Rahab
-
-(No. 1061)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 21, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1061 | Rahab
 
 "By faith the harlot Rahab perished not with them that believed not, when she had received the spies in peace." Hebrews 11:31.
 

@@ -1,12 +1,4 @@
-# Salvation By Works, A Criminal Doctrine
-
-(No. 1534)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 18, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1534 | Salvation By Works, A Criminal Doctrine
 
 "I do not frustrate the Grace of God: for if righteousness comes by the Law, then Christ is dead in vain." Galatians 2:21.
 

@@ -1,12 +1,4 @@
-# Joy in a Reconciled God
-
-(No. 1045)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 7, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1045 | Joy in a Reconciled God
 
 "And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the atonement." Romans 5:11.
 

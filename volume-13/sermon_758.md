@@ -1,7 +1,4 @@
-# The Glorious Gospel of the Blessed God
-
-Sermon No. 758 - Delivered on Lord's-Day Morning, June 30 the REV. C.H. SPURGEON at Camden Road Chapel.
-A sermon
+# Sermon 758 | The Glorious Gospel of the Blessed God
 
 "According to the glorious Gospel of the blessed God, which was committed to my trust."- 1 Timothy 1:11.
 

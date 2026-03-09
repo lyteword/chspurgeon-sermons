@@ -1,12 +1,4 @@
-# An Urgent Request for an Immediate Answer
-
-(No. 2231)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 22, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, MAY 10, 1891.
+# Sermon 2231 | An Urgent Request for an Immediate Answer
 
 "And now if you will deal kindly and truly with my master, tell me: and if not, tell me; that I may turn to the right hand, or to the left." Genesis 24:49.
 

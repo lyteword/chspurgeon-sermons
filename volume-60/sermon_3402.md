@@ -1,12 +1,4 @@
-# The Nail in a Sure Place
-
-(No. 3402)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 16, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3402 | The Nail in a Sure Place
 
 "And I will fasten him as a nail in a sure place, and he shall be for a glorious throne to his father's house. And they shall hang upon him all the glory of his father's house, the offspring and the issue, all vessels of small quantity, from the vessels of cups, even to all the vessels of flagons. In that day, says the Lord of Hosts, shall the nail that is fastened in the sure place be removed and be cut down and fall; and the burden that was upon it shall be cut off: for the Lord has spoken it." Isaiah 22:23-25.
 

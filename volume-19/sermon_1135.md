@@ -1,12 +1,4 @@
-# Signs Of The Times
-
-(No. 1135)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1135 | Signs Of The Times
 
 "And He said also to the people, When you see a cloud rise out of the west, straightway you say, There comes a shower; and so it is. And when you see the south wind blow, you say, There will be heat; and it comes to pass. You hypocrites, you can discern the face of the sky and of the earth; but how is it that you do not discern this time? Yes, and why even of yourselves judge you not what is right?" Luke 12:54-57.
 

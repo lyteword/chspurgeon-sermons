@@ -1,12 +1,4 @@
-# Eating the Sacrifice
-
-(No. 2528)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 1, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 30, 1884.
+# Sermon 2528 | Eating the Sacrifice
 
 "And they shall eat those things wherewith the atonement was made, to consecrate and to sanctiiy them: but a stranger shall not eat thereof, because they are holy." Exodus 29:33.
 

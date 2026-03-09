@@ -1,12 +1,4 @@
-# How To Converse With God
-
-(No. 1255)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 19, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1255 | How To Converse With God
 
 "Then call, and I will answer: or let me speak, and You answer me." Job 13:22.
 

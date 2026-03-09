@@ -1,12 +1,4 @@
-# The Present Crisis
-
-(No. 1483)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1483 | The Present Crisis
 
 "I will go and return to My place, till they acknowledge their offense, and seek My face: in their affliction they will seek Me early."
 

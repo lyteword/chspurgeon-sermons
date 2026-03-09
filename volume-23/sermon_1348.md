@@ -1,12 +1,4 @@
-# The Great House and the Vessels In It
-
-(No. 1348)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 8, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1348 | The Great House and the Vessels In It
 
 "But in a great house there are not only vessels of gold and of silver, but, also, of wood and of earth; and some to honor and some to dishonor. If a man, therefore, purges himself from these, he shall be a vessel unto honor, sanctified, and meet for the Master's use, and prepared unto every good work." 2 Timothy 2:20,21.
 

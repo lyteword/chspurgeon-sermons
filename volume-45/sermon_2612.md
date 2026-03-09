@@ -1,12 +1,4 @@
-# Questions and Answers Concerning Zion
-
-(No. 2612)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 5, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 8, 1883.
+# Sermon 2612 | Questions and Answers Concerning Zion
 
 "What will they answer the messengers of the nation? That the LORRD has founded Zion, and the poor of His people shall trust in it." Isaiah 14:32.
 

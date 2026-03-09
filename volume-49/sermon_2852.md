@@ -1,12 +1,4 @@
-# Comfort for the Fearful
-
-(No. 2852)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 18, 1877.
+# Sermon 2852 | Comfort for the Fearful
 
 "He said unto them, Why are you fearful, O you of little faith?" Matthew 8:26.
 

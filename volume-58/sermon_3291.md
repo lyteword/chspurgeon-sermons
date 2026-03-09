@@ -1,12 +1,4 @@
-# The Sea! the Sea! the Wide and Open Sea!
-
-(No. 3291)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 29, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON BEHALF OF THE BRITISH AND FOREIGN SAILORS' SOCIETY.
+# Sermon 3291 | The Sea! the Sea! the Wide and Open Sea!
 
 "The sea is His, for He made it: and His hands formed the dry land." Psalm 95:5.
 

@@ -1,12 +1,4 @@
-# Rightly Dividing the Word of Truth
-
-(No. 1217)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, DECEMBER 26, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1217 | Rightly Dividing the Word of Truth
 
 "Rightly dividing the word of truth." 2 Timothy 2:15.
 

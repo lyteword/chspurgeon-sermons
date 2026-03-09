@@ -1,12 +1,4 @@
-# The Samaritan Woman and Her Mission
-
-(No. 1678)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 10, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1678 | The Samaritan Woman and Her Mission
 
 "And upon this came His disciples, and marveled that He talked with the woman, yet no man said, What do You seek? or, Why are You talking with her? The woman then lefther waterpot, and went her way into the city, and said to the men, Come, see a Man which told me all things that ever I did: is not this the Christ? Then they went out of the city, and came unto Him." John 4:27-30.
 

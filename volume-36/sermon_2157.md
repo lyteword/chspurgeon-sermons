@@ -1,6 +1,4 @@
-# The Peace of the Devil and the Peace of God
-
-Sermon No. 2157 - Delivered on Sunday Morning, August 3rd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2157 | The Peace of the Devil and the Peace of God
 
 > "When a strong man armed keeps his palace, his goods are in peace."  
 > Luke 11:21.  

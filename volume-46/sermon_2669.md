@@ -1,12 +1,4 @@
-# Comfort From Christ's Omniscience
-
-(No. 2669)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 8, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 15, 1882.
+# Sermon 2669 | Comfort From Christ's Omniscience
 
 "Lord, You know all things; You know that I love You." John 21:17.
 

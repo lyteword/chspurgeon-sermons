@@ -1,6 +1,4 @@
-# The Touchstone of Godly Sincerity
-
-Sermon No. 985 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 985 | The Touchstone of Godly Sincerity
 
 > "Will he always call upon God?"  
 > Job 27:10.  

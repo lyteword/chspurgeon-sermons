@@ -1,12 +1,4 @@
-# The Heroic In Christianity
-
-(No. 1584)
-
-DELIVERED ON LORD'S-DAY-MORNING, FEBRUARY 20, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1584 | The Heroic In Christianity
 
 "For if you love them which love you, what credit is that to you? For sinners also love those that lo ve them. And if you do good to them which do good to you, what credit is that to you? For sinners also do even the same. And if you lend to them of whom you hope to receive, what credit is that to you? For sinners also lend to sinners, to receive as much again." Luke 6:32-34.
 

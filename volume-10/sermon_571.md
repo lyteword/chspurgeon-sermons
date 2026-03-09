@@ -1,6 +1,4 @@
-# Unbelievers Stumbling--Believers Rejoicing
-
-Sermon No. 571 - Delivered on Sunday Morning, May 22nd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 571 | Unbelievers Stumbling--Believers Rejoicing
 
 > "As it is written, Behold I lay in Zion a stumbling stone and rock of offense: and whoever believes on Him shall not be ashamed."  
 > Romans 9:33.  

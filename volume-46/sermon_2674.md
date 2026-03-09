@@ -1,12 +1,4 @@
-# Learning in Private What to Teach in Public
-
-(No. 2674)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 13, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 24, 1882.
+# Sermon 2674 | Learning in Private What to Teach in Public
 
 "What I tell you in darkness, speak in light: and what you hear in the ear, preach on the housetops." Matthew 10:27.
 

@@ -1,12 +1,4 @@
-# The Church Encouraged and Exhorted
-
-(No. 2799)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 5, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 27, 1878.
+# Sermon 2799 | The Church Encouraged and Exhorted
 
 "Bring My sons from far, and My daughters from the ends of the earth." Isaiah 43:6.
 

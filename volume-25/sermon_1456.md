@@ -1,12 +1,4 @@
-# Peace--a Fact and a Feeling
-
-(No. 1456)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1456 | Peace--a Fact and a Feeling
 
 "Therefore being justified by faith, we have peace with God through our Lord Jesus Christ." Romans 5:1.
 

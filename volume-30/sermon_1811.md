@@ -1,12 +1,4 @@
-# The Road to Honor
-
-(No. 1811)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, OCTOBER 12, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1811 | The Road to Honor
 
 "Those who honor Me I will honor, and those who despise Me shall be lightly esteemed." 1 Samuel 2:30.
 

@@ -1,12 +1,4 @@
-# The Philosophy and Propriety of Abundant Praise
-
-(No. 1468)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1468 | The Philosophy and Propriety of Abundant Praise
 
 "They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness." Psalm 145:7.
 

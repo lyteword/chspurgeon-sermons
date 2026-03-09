@@ -1,12 +1,4 @@
-# Something Worth Seeking
-
-(No. 2515)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 27, 1885.
+# Sermon 2515 | Something Worth Seeking
 
 "But seek you first the Kingdom of God, and His righteousness; and all these things shall be added unto you." Matthew 6:33.
 

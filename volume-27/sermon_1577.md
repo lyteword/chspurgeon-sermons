@@ -1,12 +1,4 @@
-# Sin Subdued
-
-(No. 1577)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1577 | Sin Subdued
 
 "He will subdue our iniquities." Micah 7:19.
 

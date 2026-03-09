@@ -1,12 +1,4 @@
-# God Rejoicing in the New Creation
-
-(No. 2211)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2211 | God Rejoicing in the New Creation
 
 "Behold, I create new hea vens and a new earth: and the former shall not be remembered, nor come into mind. But be you glad and rejoice forever in that which I create: for, behold, I create Jerusalem a rejoicing, and her people a joy. And I wiil rejoice in Jerusalem, and joy in My people." Isaiah 65:17-19.
 

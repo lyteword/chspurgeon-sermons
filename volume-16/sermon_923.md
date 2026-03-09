@@ -1,12 +1,4 @@
-# Prepare To Meet Your God
-
-(No. 923)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 27, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 923 | Prepare To Meet Your God
 
 "Prepare to meet your God, O Israel." Amos 4:12.
 

@@ -1,12 +1,4 @@
-# A Song and a Solace
-
-(No. 2682)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 8, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 1, 1881.
+# Sermon 2682 | A Song and a Solace
 
 "You have granted me life and favor, and Your visitation has preserved my spirit And these things have You hid in Your heart: I know that this is with You." Job 10:12,13.
 

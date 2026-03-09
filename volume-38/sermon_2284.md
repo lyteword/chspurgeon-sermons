@@ -1,12 +1,4 @@
-# "Clear Shining After Rain"
-
-(No. 2284)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 27, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1890.
+# Sermon 2284 | "Clear Shining After Rain"
 
 "As the tender grass springing out of the earth by clear shining after rain." 2 Samuel 23:4.
 

@@ -1,12 +1,4 @@
-# Seeking Richly Rewarded
-
-(No. 3409)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 4, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 8, 1869.
+# Sermon 3409 | Seeking Richly Rewarded
 
 "The young lions do lack and suffer hunger, but they who seek the Lord shall not want any good thing." Psalm 34:10.
 

@@ -1,12 +1,4 @@
-# Jesus in Gethsemane
-
-(No. 2767)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 23, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 6, 1881.
+# Sermon 2767 | Jesus in Gethsemane
 
 "When Jesus had spoken these words, He went forth with His disciples over the Brook Kidron, where there was a garden, which He and His disciples entered. And Judas, who betrayed Him, also knew the place; for Jesus often met there with His disciples." John 18:1,2.
 

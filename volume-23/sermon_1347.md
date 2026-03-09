@@ -1,12 +1,4 @@
-# How Is Salvation Received?
-
-(No. 1347)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 1, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1347 | How Is Salvation Received?
 
 "Therefore it is of faith, that it might be by Grace; to the end the promise might be sure to all the seed; not to that only which is of the Law, but to that, also, which is of the faith of Abraham; who is the father of us all." Romans 4:16.
 

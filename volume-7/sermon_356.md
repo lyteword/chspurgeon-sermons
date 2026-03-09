@@ -1,6 +1,4 @@
-# Words Of Expostulation
-
-Sermon No. 356 - Delivered on Sabbath Morning, January 20th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 356 | Words Of Expostulation
 
 > "And now what have you to do in the way of Egypt, to drink the waters of Sihor? Or what have you to do in the way of Assyria, to drink the waters of the river?"  
 > Jeremiah 2:18.  

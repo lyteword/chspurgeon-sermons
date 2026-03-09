@@ -1,12 +1,4 @@
-# The Glory of God in the Face of Jesus Christ
-
-(No. 1493)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 7, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1493 | The Glory of God in the Face of Jesus Christ
 
 "For God, who commanded the light to shine out of darkness, has shined in our hearts, to give the light of the knowledge of the Glory of God in the face of Jesus Christ." 2 Corinthians 4:6.
 

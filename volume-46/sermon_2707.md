@@ -1,12 +1,4 @@
-# An Antidote to Satan's Devices
-
-(No. 2707)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 30, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE WINTER OF 1858.
+# Sermon 2707 | An Antidote to Satan's Devices
 
 "Now the serpent was more subtle than any beast of the field which the LORRD God had made." Genesis 3:1.
 

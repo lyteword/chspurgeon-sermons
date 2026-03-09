@@ -1,12 +1,4 @@
-# The Matchless Mystery
-
-(No. 1153)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1153 | The Matchless Mystery
 
 "For we are members of His body, of His flesh, and of His bones" Ephesians 5:30.
 

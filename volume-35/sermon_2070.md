@@ -1,6 +1,4 @@
-# Christ's Connection With Sinners the Source of His Glory
-
-Sermon No. 2070 - Delivered on Sunday, February 17th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2070 | Christ's Connection With Sinners the Source of His Glory
 
 > "Therefore wiil I divide Him a portion with the great. And He shall divide the spoil with the strong. Because He has poured out His soul unto death. And He was numbered with the transgressors. And He bore the sin of many and made intercession for the transgressors."  
 > Isaiah 53:12.  

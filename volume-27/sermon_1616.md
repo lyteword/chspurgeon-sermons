@@ -1,12 +1,4 @@
-# Saved In Hope
-
-(No. 1616)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 28, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1616 | Saved In Hope
 
 "For we are saved by hope, but hope that is seen is not hope: for what a man sees, why does he yet hope for? But if we hope for what we see not, then do we with patience wait for it." Romans 8:24,25.
 

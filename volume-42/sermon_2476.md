@@ -1,12 +1,4 @@
-# "This Thing Is From Me"
-
-(No. 2476)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 22, 1886.
+# Sermon 2476 | "This Thing Is From Me"
 
 "Thus says the LORD, You shall not go up, nor fight against your brethren, the children of Israel: return every man to his house; for this thing is from Me." 1 Kings 12:24.
 

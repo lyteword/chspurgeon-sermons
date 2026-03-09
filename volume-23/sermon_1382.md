@@ -1,12 +1,4 @@
-# The Touch
-
-(No. 1382)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 4, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1382 | The Touch
 
 "She said, If I may touch but His clothes, I shall be whole." Mark 5:28.
 

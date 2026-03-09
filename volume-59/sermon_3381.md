@@ -1,12 +1,4 @@
-# The Broken Fence
-
-(No. 3381)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 20, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3381 | The Broken Fence
 
 "I went by the field of the lazy mam, and by the vineyard of the man void of understanding; and lo, it was all grown over with thorns, and nettles had covered its surface, and the stone wall was broken down. Then Isaw, and considered it well: I looked on it and received instruction." Proverbs 24:30-32.
 

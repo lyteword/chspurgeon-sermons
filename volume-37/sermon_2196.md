@@ -1,12 +1,4 @@
-# Hosanna!
-
-(No. 2196)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 22, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2196 | Hosanna!
 
 "And the multitudes that went before, and that followed, cried saying, Hosanna to the son of David: Blessed is He that comes in the name of the Lord; Hosanna in the highest" Matthew 2:19.
 

@@ -1,12 +1,4 @@
-# Bochim--Or, the Weepers
-
-(No. 1680)
-
-DELIVERED ON THURSDAY EVENING, AUGUST 10, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1680 | Bochim--Or, the Weepers
 
 "And it came to pass, when the Angel of the Lord spoke these words unto all the children of Israel, that the people lifted up their voice, and wept. And they called the name of that place Bochim: and they sacrificed there unto the Lord." Judges 2:4, 5
 

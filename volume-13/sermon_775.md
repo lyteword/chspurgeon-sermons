@@ -1,7 +1,4 @@
-# The Great Attraction
-
-Sermon No. 775 - Delivered on Lord's-day Morning, OCTOBER 13, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 775 | The Great Attraction
 
 "And I, if I am lifted up from the earth, will draw all men unto Me."- John 12:32.
 

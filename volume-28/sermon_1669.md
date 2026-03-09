@@ -1,12 +1,4 @@
-# Teaching for the Outer and Inner Circles
-
-(No. 1669)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 16, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1669 | Teaching for the Outer and Inner Circles
 
 "And with many such parables spoke He the Word unto them, as they were able to hearit. But without a parable He did not speak to them: and when they were alone, He explained all things to His disciples." Mark 4:33,34.
 

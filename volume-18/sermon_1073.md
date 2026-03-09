@@ -1,12 +1,4 @@
-# A Honeycomb
-
-(No. 1073)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 29, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1073 | A Honeycomb
 
 "For consider Him that endured such contradiction of sinners against Himself, lest you are wearied and faint in your minds." Hebrews 12:3.
 

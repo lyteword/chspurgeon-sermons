@@ -1,12 +1,4 @@
-# The Glorious Hereafter and Ourselves
-
-(No. 912)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 23, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 912 | The Glorious Hereafter and Ourselves
 
 "Now He that has worked us for the same thingis God, who also has given unto us the earnest of the Spirit." 2 Corinthians 5:5.
 

@@ -1,12 +1,4 @@
-# Fearful Of Coming Short
-
-(No. 1177)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 7, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1177 | Fearful Of Coming Short
 
 "Let us therefore fear, lest, a promise being left us of entering into His rest, any of you should seem to come short of it. For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it." Hebrews 4:1,2.
 

@@ -1,12 +1,4 @@
-# The Mediator--Judge And Savior
-
-(No. 1540)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 30, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1540 | The Mediator--Judge And Savior
 
 "And He commanded us to preach unto the people and to testify that it is He which was ordained of God to be the Judge of the quick and the dead. To Him all the prophets witness that, through His name, whoever believes in Him shall receive remission of sins." Acts 10:42,43.
 

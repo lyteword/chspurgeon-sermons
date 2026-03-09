@@ -1,12 +1,4 @@
-# The Guilt and the Cleansing
-
-(No. 3056)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 5, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 8, 1865.
+# Sermon 3056 | The Guilt and the Cleansing
 
 "Purge me with hyssop, and/shall be clean: wash me, and/shall be whiter than snow." Psalm 51:7.
 

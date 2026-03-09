@@ -1,12 +1,4 @@
-# Fountains of Repentant Tears
-
-(No. 2735)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 14, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 24, 1880.
+# Sermon 2735 | Fountains of Repentant Tears
 
 "And when he thought about it, he wept." Mark 14:72.
 

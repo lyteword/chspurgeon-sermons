@@ -1,12 +1,4 @@
-# Our Lord in the Valley of Humiliation
-
-(No. 2281)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 6, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 5, 1890.
+# Sermon 2281 | Our Lord in the Valley of Humiliation
 
 "And being found in fashion as a Mian, He humbled Himself, and became obedient unto death, even the death of the Cross." Philippians 2:8.
 

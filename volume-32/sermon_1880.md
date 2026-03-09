@@ -1,12 +1,4 @@
-# A Lesson and a Fortune for Christian Men of Business
-
-(No. 1880)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 24, 1886.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 12, 1885.
+# Sermon 1880 | A Lesson and a Fortune for Christian Men of Business
 
 "Let your conversation be without covetousness; and be content with such things as you have: for He has said, I will never leave you, nor forsake you." Hebrews 13:5.
 

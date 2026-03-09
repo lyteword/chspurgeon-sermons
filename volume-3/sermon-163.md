@@ -1,6 +1,4 @@
-# Awake! Awake!
-
-Sermon No. 163 - Delivered on Sabbath Morning, November 15, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 163 | Awake! Awake!
 
 > Therefore let us not sleep as do others, but let us watch and be sober.    
 > 1 Thessalonians 5:6.    

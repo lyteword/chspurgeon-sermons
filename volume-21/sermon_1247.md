@@ -1,12 +1,4 @@
-# The Special Prayer Meeting
-
-(No. 1247)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1247 | The Special Prayer Meeting
 
 "When he had considered the thing, he came to the house of Mary the mother of John, whose surname was Mark; where many were gathered together praying." Acts 12:12.
 

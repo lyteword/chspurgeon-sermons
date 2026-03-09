@@ -1,6 +1,4 @@
-# Christ the Conqueror of Satan
-
-Sermon No. 1326 - Delivered on Lord's-Day Morning, November 26th, 1876 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1326 | Christ the Conqueror of Satan
 
 > "And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise thy head, and thou shalt bruise his heel."  
 > Genesis 3:16  

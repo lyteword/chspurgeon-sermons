@@ -1,12 +1,4 @@
-# The Nazarene and the Sect of the Nazarenes
-
-(No. 1632)
-
-DELIVERED ON THURSDAY EVENING, JUNE 9, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1632 | The Nazarene and the Sect of the Nazarenes
 
 "And He came and dwelt in a city called Nazareth: that it might be fulfilled which was spoken by the Prophets, He shall be called a Nazarene." Matthew 2:23.
 

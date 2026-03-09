@@ -1,12 +1,4 @@
-# Sins Of Ignorance
-
-(No. 1386)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 25, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1386 | Sins Of Ignorance
 
 "And if a soul sins and commits any of these things which are forbidden to be done by the commandments of the Lord; though he knew it not, yet is he guilty, and shall bear his iniquity. And he shall bring a ram without blemish out of the flock, with your estimation, for a trespass offering, unto the priest: and the priest shall make an atonement for him concerning his ignorance wherein he erred and knew it not, and it shall be forgiven him." Leviticus 5:17,18.
 

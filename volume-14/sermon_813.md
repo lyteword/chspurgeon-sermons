@@ -1,8 +1,4 @@
-# The Privileged Man
-
-A Sermon (No. 813)
-
-Delivered on Sunday Morning, May 31, 1868, by C. H. SPURGEON, at the [23]Metropolitan Tabernacle, Newington.
+# Sermon 813 | The Privileged Man
 
 "Then washed I you with water; yes, I thoroughly washed away your blood from you, and I anointed you with oil. I clothed you also with embroidered work, and shod you with badgers 'skin, and I girded you about with fine linen, and I covered you with silk. I adorned you also with ornaments, and I put bracelets upon your hands, and a chain on your neck. And I put a jewel on your forehead, and earrings in your ears, and a beautiful crown upon your head. Thus were you decked with gold and silver; and your raiment was of fine linen, and silk, and embroidered work; you did eat fine flour, and honey, and oil: and you were exceedingly beautiful, and you did prosper into a kingdom. And your renown went forth among the heathen for your beauty for it was perfect through your comeliness, which I had put upon you, says the Lord God." Ezekiel 16:9-14.
 

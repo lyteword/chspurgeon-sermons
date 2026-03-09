@@ -1,12 +1,4 @@
-# "Flee From the Wrath to Come"
-
-(No. 2704)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 9, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 23, 1881.
+# Sermon 2704 | "Flee From the Wrath to Come"
 
 "Who hats warned you to flee from the wrath to come?" Matthew 3:7.
 

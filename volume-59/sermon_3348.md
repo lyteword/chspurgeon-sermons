@@ -1,12 +1,4 @@
-# Knowing and Doing
-
-(No. 3348)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 3, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 20, 1868.
+# Sermon 3348 | Knowing and Doing
 
 "If you know these things, happy are you if you do them." John 13:17.
 

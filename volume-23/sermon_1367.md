@@ -1,12 +1,4 @@
-# Strong Faith
-
-(No. 1367)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 15, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1367 | Strong Faith
 
 "But was strong in faith, giving glory to God." Romans 4:20.
 

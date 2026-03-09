@@ -1,12 +1,4 @@
-# The Sluggard's Reproof
-
-(No. 2766)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 16, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE WINTER OF 1859.
+# Sermon 2766 | The Sluggard's Reproof
 
 "The sluggard will not plow because of the cold; therefore shall he beg in harvest and have nothing." Proverbs 20:4.
 

@@ -1,12 +1,4 @@
-# The Work of Grace the Warrant for Obedience
-
-(No. 1479)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 15, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1479 | The Work of Grace the Warrant for Obedience
 
 "He that made me whole, the same said unto me, Take up your bed and walk." John 5:11.
 

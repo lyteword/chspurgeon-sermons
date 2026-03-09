@@ -1,12 +1,4 @@
-# "I Will," Yet, "Not As I Will"
-
-(No. 2376)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 2, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 1, 1883.
+# Sermon 2376 | "I Will," Yet, "Not As I Will"
 
 "Father, I will." "Not as I will." John 7:24, Matthew 16:39.
 

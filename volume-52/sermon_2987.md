@@ -1,12 +1,4 @@
-# The "Beau Ideal" of Life
-
-(No. 2987)
-
-A SERMON ESPECIALLY TO YOUNG MIEN, PUBLISHED ON THURSDAY, MAY 10, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 17, 1875.
+# Sermon 2987 | The "Beau Ideal" of Life
 
 "O satisfy us earl/ with Your mercy, that we may rejoice and be glad all our days." Psalm 90:14.
 

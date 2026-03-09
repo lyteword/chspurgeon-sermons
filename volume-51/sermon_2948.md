@@ -1,12 +1,4 @@
-# Stephen and Saul
-
-(No. 2948)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 13, 1875.
+# Sermon 2948 | Stephen and Saul
 
 "And cast him out of the city, and stoned him; and the witnesses laid down their clothes at a young man's feet, whose name was Saul." Acts 7:58.
 

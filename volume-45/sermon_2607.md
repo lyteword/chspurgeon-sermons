@@ -1,12 +1,4 @@
-# Foretastes of the Heavenly Life
-
-(No. 2607)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 29, 1899, (C. H. SPURGEON MEMORIAL SABBATH).
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, EARLY IN THE YEAR 1857.
+# Sermon 2607 | Foretastes of the Heavenly Life
 
 "And they took of the fruit of the land in their hands, and brought it down unto us, and brought us word again, and said, It is a good land which the Lord our God does give us." Deuteronomy 1:25.
 

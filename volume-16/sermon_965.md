@@ -1,12 +1,4 @@
-# Purging Out the Leaven
-
-(No. 965)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 11, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 965 | Purging Out the Leaven
 
 "Know you not that a little leaven leavens the whole lump?Purge out, therefore, the old leaven, that you may be a newlump, as you are unleavened. For even Christ our Passover is sacrificed for us. Therefore let us keep the feast, not with old leaven, neither with the leaven of malice and wickedness. But with the unleavened bread of sincerity and truth." 1 Corinthians 5:6-8.
 

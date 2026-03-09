@@ -1,12 +1,4 @@
-# A Waiting God and a Waiting People
-
-(No. 1766)
-
-A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 17, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1766 | A Waiting God and a Waiting People
 
 "And therefore will the Lord wait, that He may be gracious unto you and, therefore, will He be exalted, that He may have mercy upon you: for the Lord is a God of judgment: blessed are all they that wait for Him." Isaiah 30:18.
 

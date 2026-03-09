@@ -1,12 +1,4 @@
-# Christ's Hospital
-
-(No. 2260)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 12, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 9, 1890.
+# Sermon 2260 | Christ's Hospital
 
 "He heals the broken in heart, and binds up their wounds." Psalm 147:3.
 

@@ -1,12 +1,4 @@
-# The New Wine of the Kingdom
-
-(No. 3526)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3526 | The New Wine of the Kingdom
 
 "I will not drink henceforth of this fruit of the vine, until that day when I drink it new with you in My Father's Kingdom." Matthew 26:29.
 

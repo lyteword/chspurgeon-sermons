@@ -1,12 +1,4 @@
-# Stephen's Death
-
-(No. 1175)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 24, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1175 | Stephen's Death
 
 "And they stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep." Acts 7:59, 60.
 

@@ -1,7 +1,4 @@
-# "Return, Return, O Shulamite; Return, Return!"
-
-Sermon No. 1794 - Delivered on Lord's-Day Morning, August 10th, 1884 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
-(No. 1794)
+# Sermon 1794 | "Return, Return, O Shulamite; Return, Return!"
 
 THE TRANSLATION INTO THE WORD "Shulamite" is unhappy: it is unmusical, and misses the meaning. The Hebrew word is a feminine of "Solomon." "Solomon" may stand for the bridegroom's name, and then the well-beloved bride takes her husband's name in a feminine form of it, which is Shulamith, Salome, or perhaps better "Solyma." The King has named his name upon her, and as Caius has his Caiia, so Solomon has his Solyma. He is the Prince of Peace, and she is the Daughter of Peace. Aforetime she was called "the fairest among women," but now she is espoused unto her Lord, and has a fullness of peace. Therefore is she called the Peace-laden, or the Peace-crowned. You know how truly it is so with the justified in Christ Jesus. Because the sound is sweeter, and the sense is clearer, permit me to read the text thus"Return, return, O Solyma: return, return, that we may look upon thee. What will ye see in Solyma? As it were the company of two armies." May the Holy Spirit, like a dove, rest upon us while we linger amid the verses of this Song of Loves.
 

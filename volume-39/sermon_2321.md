@@ -1,12 +1,4 @@
-# The Heavenly Singers and Their Song
-
-(No. 2321)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 13, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 14, 1889.
+# Sermon 2321 | The Heavenly Singers and Their Song
 
 "And when He had taken the Book, the four beasts and twenty-four elders fell down before the Lamb, having, every one of them, harps and golden vials full of odors, which are theprayers of saints. And they sung a new song, saying, You are worthy to take the Book, and to open its seals: for You were slain and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation; and have made us unto our God kings and priests: and we shall reign on the earth." Revelation 5:8-10.
 

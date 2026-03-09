@@ -1,12 +1,4 @@
-# Morning And Evening Songs
-
-(No. 1138)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1138 | Morning And Evening Songs
 
 "To show forth Your loving kindness in the morning, and Your faithfulness every night." Psalm 92:2.
 

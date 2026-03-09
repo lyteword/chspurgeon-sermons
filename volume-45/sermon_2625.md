@@ -1,12 +1,4 @@
-# The Dumb Singing
-
-(No. 2625)
-
-INTENDED FOR READING OR LORD'S-DAY, JUNE 4, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT SHOULDHAM STREET CHAPEL, ON WEDNESDAY MORNING, APRIL 29, 1857.
+# Sermon 2625 | The Dumb Singing
 
 "Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped. Then shall the lame man leap as an hart, and the tongue of the dumb sing: for in the wilderness shall waters break out, and streams in the desert." Isaiah 35:5.
 

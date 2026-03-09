@@ -1,12 +1,4 @@
-# Sheep Among Wolves
-
-(No. 1370)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 19, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1370 | Sheep Among Wolves
 
 "Behold, I send you forth as sheep in the midst of wolves: be you therefore wise as serpents, and harmless as doves." Matthew 10:16.
 

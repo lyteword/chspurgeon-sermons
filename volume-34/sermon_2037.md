@@ -1,6 +1,4 @@
-# The Rule of the Race
-
-Sermon No. 2037 - Delivered on Sunday Morning, August 5th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2037 | The Rule of the Race
 
 > "Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before Him endured the Cross, despising the shame and is set down at the right hand of the Throne of God."  
 > Hebrews 12:1,2.  

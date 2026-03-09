@@ -1,12 +1,4 @@
-# God's Overtaking Mercy
-
-(No. 3525)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, FEBRUARY 22, 1871.
+# Sermon 3525 | God's Overtaking Mercy
 
 "And He [the Angel of the Lord] said, Hagar, Sarah's maid, where have you come from? And where will you go? And she said, I flee from the face of my mistress Sarah." Genesis 16:8.
 

@@ -1,12 +1,4 @@
-# Thorns and Thistles
-
-(No. 2299)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 12, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2299 | Thorns and Thistles
 
 "Thorns, also, and thistles shall it bring forth to you." Genesis 3:18.
 

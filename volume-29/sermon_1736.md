@@ -1,12 +1,4 @@
-# The King's Weighings
-
-(No. 1736)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 26. 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1736 | The King's Weighings
 
 "Talk no more so exceedingly proud; let not arrogance come out of your mouth, for the Lord is the God of knowledge and by Him actions are weighed." 1 Samuel 2:3.
 

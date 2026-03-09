@@ -1,12 +1,4 @@
-# All Comers To Christ Welcomed
-
-(No. 2349)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 25, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 17, 1889.
+# Sermon 2349 | All Comers To Christ Welcomed
 
 "Him that comes to Me I will in no wise cast out." John 6:37.
 

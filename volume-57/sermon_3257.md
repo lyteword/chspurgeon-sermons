@@ -1,12 +1,4 @@
-# Thoughts and Their Fruit
-
-(No. 3257)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 6, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3257 | Thoughts and Their Fruit
 
 "The fruit of their thoughts." Jeremiah 6:19.
 

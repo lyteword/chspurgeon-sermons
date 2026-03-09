@@ -1,12 +1,4 @@
-# A Gospel Promise
-
-(No. 3519)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 6, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3519 | A Gospel Promise
 
 "And I will put My Spirit within you, and cause you to walk in My statutes, and you will keep My judgments, and do them." Ezekiel 36:27.
 

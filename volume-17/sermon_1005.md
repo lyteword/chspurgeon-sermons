@@ -1,6 +1,4 @@
-# Lessons From Nature
-
-Sermon No. 1005 - Delivered on Lord's-day Morning, August 13th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1005 | Lessons From Nature
 
 > "Where the birds make their nests: as for the stork, the fir trees are her house. The high hills are a refuge for the wild goats, and the rooks for the conies."  
 > Psalm 104:17-18.  

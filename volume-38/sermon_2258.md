@@ -1,12 +1,4 @@
-# Where Is the Lord?
-
-(No. 2258)
-
-NTENDED FOR READING ON LORD'S-DAY, MAY 29, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 4, 1890.
+# Sermon 2258 | Where Is the Lord?
 
 "Then he remembered the days of old, Moses, and his people, saying, Where is He that brought them up out of the sea with the shepherd of His flock? Where is He that put His holy Spirit within him? That led them by the right hand of Moses with His glorious arm, dividing the water before them, to make Himself an everlasting name? That led them through the deep, as an horse in the wilderness, that they should not stumble? As a beast goes down into the valley, the Spirit of the Lord caused him to rest: so did You lead Your people, to make Yourself a glorious name." Isaiah 63:11-14.
 

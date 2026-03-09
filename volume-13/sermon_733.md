@@ -1,7 +1,4 @@
-# Unstaggering Faith
-
-Sermon No. 733 - Delivered on Lord's-day Morning, FEBRUARY 3 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 733 | Unstaggering Faith
 
 "And being not weak in faith, he considered not his own body now dead, when he was about an hundred years old, neither yet the deadness of Sarah's womb. He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God, and being fully persuaded that what He had promised, He was able also to perform."- Romans 4:19-21.
 

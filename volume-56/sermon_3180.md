@@ -1,12 +1,4 @@
-# Christ the Creator
-
-(No. 3180)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 13, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 7, 1873.
+# Sermon 3180 | Christ the Creator
 
 "All things were created by Him and for Him." Colossians 1:16.
 

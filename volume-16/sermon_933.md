@@ -1,6 +1,5 @@
-# Angelic Studies
+# Sermon 933 | Angelic Studies
 
-(No. 933)
 
 DELIVERED ON LORD'S-DAY EVENING, MAY 1, 1870
 

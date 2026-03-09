@@ -1,12 +1,4 @@
-# The Witness of the Lord's Supper
-
-(No. 3338)
-
-A SERMON PUBLISHED ON JANUARY 23, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3338 | The Witness of the Lord's Supper
 
 "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes." 1 Corinthians 11:26.
 

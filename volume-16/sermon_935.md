@@ -1,12 +1,4 @@
-# The Sad Wonder
-
-(No. 935)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 12, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 935 | The Sad Wonder
 
 "And He marvelled because of their unbelief." Mark 6:6.
 

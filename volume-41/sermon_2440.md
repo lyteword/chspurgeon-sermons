@@ -1,12 +1,4 @@
-# Faithful Stewardship
-
-(No. 2440)
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 24, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 14, 1887.
+# Sermon 2440 | Faithful Stewardship
 
 "Moreover it is required in stewards, that a man be found faithful." 1 Corinthians 4:2.
 

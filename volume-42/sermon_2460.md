@@ -1,12 +1,4 @@
-# God's Fire and Hammer
-
-(No. 2460)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 28, 1886.
+# Sermon 2460 | God's Fire and Hammer
 
 "Is not My Word like as a fire? says the LORD; and like a hammer that breaks the rock in pieces?" Jeremiah 23:29.
 

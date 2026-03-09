@@ -1,12 +1,4 @@
-# The Believer's Death Day Better Than His Birthday
-
-(No. 1588)
-
-DELIVERED ON THURSDAY EVENING, MARCH 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1588 | The Believer's Death Day Better Than His Birthday
 
 "A good name is better than precious ointment; and the day of death than the day of one's birth." Ecclesiastes 7:1.
 

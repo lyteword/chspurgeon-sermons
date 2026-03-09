@@ -1,12 +1,4 @@
-# The Plain Man's Pathway To Peace
-
-(No. 1560)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 1560 | The Plain Man's Pathway To Peace
 
 "And when Jesus departed from there, two blind men followed Him, crying and saying, You son of Da vid, have mercy on us! And when He was come into the house, the blind men came to Him: and Jesus said unto them, Do you believe that I am able to do this? They said unto Him, Yes, Lord. Then He touched their eyes, saying, According to your faith be it unto you. And their eyes were opened; and Jesus straitly charged them, saying, See that no one knows it." Matthew 9:27-30.
 

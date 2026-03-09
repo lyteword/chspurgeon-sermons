@@ -1,12 +1,4 @@
-# God's Thoughts and Ways Far Above Ours
-
-(No. 1387)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 2, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1387 | God's Thoughts and Ways Far Above Ours
 
 "For My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the hea vens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts." Isaiah 55:8,9.
 

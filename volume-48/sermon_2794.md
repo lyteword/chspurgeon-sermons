@@ -1,12 +1,4 @@
-# A Refreshing Canticle
-
-(No. 2794)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 31, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE WINTER OF 1860.
+# Sermon 2794 | A Refreshing Canticle
 
 "We will remember Your love more than wine." Solomon's Song 1:4.
 

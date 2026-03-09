@@ -1,12 +1,4 @@
-# The Ethiopian
-
-(No. 2536)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 26, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON THURSDAY EVENING, MAY 15, 1884.
+# Sermon 2536 | The Ethiopian
 
 "Can the Ethiopian change his skin, or the leopard his spots? Then may you also do good, that are accustomed to do evil." Jeremiah 13:23.
 

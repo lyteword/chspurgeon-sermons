@@ -1,6 +1,4 @@
-# Alpha And Omega
-
-Sermon No. 546 - Delivered on Sunday Morning, December 27th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 546 | Alpha And Omega
 
 > "I am Alpha and Omega, the Beginning and the End, the First and the Last."  
 > Revelation 22:13.  

@@ -1,12 +1,4 @@
-# Precepts and Promises
-
-(No. 2874)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 10, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 13, 1876.
+# Sermon 2874 | Precepts and Promises
 
 "If anyone serves Me, let him follow Me; and where I am, there shall also My servant be: if anyone serves Me, him My Father will honor." John 12:26.
 

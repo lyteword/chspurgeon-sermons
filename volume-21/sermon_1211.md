@@ -1,12 +1,4 @@
-# The Hospital of Waiters Visited with the Gospel
-
-(No. 1211)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1211 | The Hospital of Waiters Visited with the Gospel
 
 "Jesus said unto him, Rise, take up your bed, and walk." John 5:8.
 

@@ -1,12 +1,4 @@
-# Life Proved by Love
-
-(No. 2556)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 13, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 18, 1883.
+# Sermon 2556 | Life Proved by Love
 
 "We know that we have passed from death unto life, because we love the brethren." 1 John 3:14.
 

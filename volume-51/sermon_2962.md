@@ -1,12 +1,4 @@
-# Diamond Hinges--"as" and "so"
-
-(No. 2962)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1875.
+# Sermon 2962 | Diamond Hinges--"as" and "so"
 
 "For this is as the waters of Noah unto Me; for as Ihave sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you." Isaiah 54:9.
 

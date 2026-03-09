@@ -1,12 +1,4 @@
-# Love's Great Reason
-
-(No. 3398)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 19, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 27, 1868.
+# Sermon 3398 | Love's Great Reason
 
 "We love Him because He first loved us." 1 John 4:19.
 

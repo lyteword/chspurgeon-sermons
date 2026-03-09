@@ -1,12 +1,4 @@
-# "Dare To Be a Daniel"
-
-(No. 2291)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 15, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2291 | "Dare To Be a Daniel"
 
 "But Daniel purposed in his heart that he would not defile himself with the portion of the king's meat, nor with the wine which he drank." Daniel 1:8.
 

@@ -1,12 +1,4 @@
-# Where Is the God of Elijah?
-
-(No. 2596)
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 24, 1883.
+# Sermon 2596 | Where Is the God of Elijah?
 
 "And he took the mantle of Elijah that fell from him, and struck the water and said, Where is the LORD God of Elijah? And when he also had struck the water, it was divided this way and that, and Elisha crossed over." 2 Kings 2:14.
 

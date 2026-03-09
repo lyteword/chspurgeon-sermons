@@ -1,12 +1,4 @@
-# David's First Victory
-
-(No. 2913)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 8, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2913 | David's First Victory
 
 "So David prevailed over the Philistine with a sling and with a stone, and smote the Philistine and slew him, but there was no sword in the hand of David." 1 Samuel 17:50.
 

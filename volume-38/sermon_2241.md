@@ -1,12 +1,4 @@
-# A Stanza of Deliverance
-
-(No. 2241)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 31, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 31, 1890.
+# Sermon 2241 | A Stanza of Deliverance
 
 "He brought them forth, also, with silver and gold: and there was not one feeble person among their tribes." Psalm 105:37.
 

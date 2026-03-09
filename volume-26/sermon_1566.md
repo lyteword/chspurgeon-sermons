@@ -1,12 +1,4 @@
-# Cheer for the Worker and Hope for London
-
-(No. 1566)
-
-DELIVERED ON THURSDAY EVENING, OCTOBER 28, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1566 | Cheer for the Worker and Hope for London
 
 "Then spoke the Lord to Paul in the night by a vision, Be not afraid, but speak and hold not your peace: for I am with you and no man shall set on you to hurt you: for I have much people in this city." Acts 18:9,10.
 

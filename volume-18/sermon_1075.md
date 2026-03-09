@@ -1,12 +1,4 @@
-# A Root Out Of A Dry Ground
-
-(No. 1075)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 13, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1075 | A Root Out Of A Dry Ground
 
 "A root out of a dry ground." Isaiah 53:2.
 

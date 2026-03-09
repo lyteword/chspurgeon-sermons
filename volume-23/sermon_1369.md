@@ -1,12 +1,4 @@
-# Proclamation of Acceptance and Vengeance
-
-(No. 1369)
-
-DELIVERED ON LORD'S DAY MORNING, AUGUST 12, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1369 | Proclamation of Acceptance and Vengeance
 
 "To proclaim the acceptable year of the Lord, and the day of vengeance of our God; to comfort all that mourn." Isaiah 61:2.
 

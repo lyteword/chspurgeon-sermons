@@ -1,12 +1,4 @@
-# A Feast for the Upright
-
-(No. 1659)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 14, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1659 | A Feast for the Upright
 
 "For the Lord God is a sun and shield: the Lord will give Grace and Glory: no good thing will He withhold from those who walk uprightly. O Lord of Hosts, blessed is the man that trusts in You!" Psalm 84:11,12.
 

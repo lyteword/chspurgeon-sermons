@@ -1,12 +1,4 @@
-# The Joy of Harvest
-
-(No. 3058)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 19, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1865.
+# Sermon 3058 | The Joy of Harvest
 
 "They joy before You according to the joy in harvest." Isaiah 9:3.
 

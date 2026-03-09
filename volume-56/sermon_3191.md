@@ -1,12 +1,4 @@
-# The True Aim of Preaching
-
-(No. 3191)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 31, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3191 | The True Aim of Preaching
 
 "Be it known unto you, therefore, brethren, that through this Man is preached unto you the forgiveness of sins." Acts 13:38.
 

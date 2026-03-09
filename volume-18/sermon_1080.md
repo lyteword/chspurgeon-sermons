@@ -1,12 +1,4 @@
-# Our Gifts and How To Use Them
-
-(No. 1080)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1080 | Our Gifts and How To Use Them
 
 "Therefore I remind you to you stir up the gift of God which is in you by the laying on of my hands." 2 Timothy 1:6.
 

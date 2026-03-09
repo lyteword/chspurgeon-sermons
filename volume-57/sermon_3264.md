@@ -1,12 +1,4 @@
-# God's Care of Elijah
-
-(No. 3264)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 7, 1864.
+# Sermon 3264 | God's Care of Elijah
 
 "And it shall be that you shall drink from the brook, and I have commanded the ravens to feed you there." 1 Kings 17:4.
 

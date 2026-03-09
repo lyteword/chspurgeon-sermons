@@ -1,12 +1,4 @@
-# The Apple Tree in the Woods
-
-(No. 1120)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 6, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1120 | The Apple Tree in the Woods
 
 "As the apple tree among the trees of the woods, so is my Beloved among the sons." Song of Solomon 2:3.
 

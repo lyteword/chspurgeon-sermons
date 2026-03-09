@@ -1,12 +1,4 @@
-# Trials Expected and Conquered
-
-(No. 2877)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 31, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 12, 1876.
+# Sermon 2877 | Trials Expected and Conquered
 
 "When you pass through the waters, I will be with you and through the rivers, they shall not overflow you, when you walk through the fire, you shall not be burned; neither shall the flame kindle upon you. For I am the LORD your God, the Holy One of Israel, your Savior: I gave Egypt for your ransom, Ethiopia and SSeba for you." Isaiah 43:2,3.
 

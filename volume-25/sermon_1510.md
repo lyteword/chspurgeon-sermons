@@ -1,12 +1,4 @@
-# The Hunger-Bite
-
-(No. 1510)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1510 | The Hunger-Bite
 
 "His strength shall be starved." Job 18:12.
 

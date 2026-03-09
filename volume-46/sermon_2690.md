@@ -1,12 +1,4 @@
-# Meditation on God
-
-(No. 2690)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 2, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING IN THE SUMMER OF 1858.
+# Sermon 2690 | Meditation on God
 
 "My meditation of Him shall be sweet." Psalm 104:34.
 

@@ -1,12 +1,4 @@
-# Two Good Things
-
-(No. 1629)
-
-A SERMON DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1629 | Two Good Things
 
 "It is good for me that I have been afflicted; that I might learn Your statutes." Psalm 119:71.
 

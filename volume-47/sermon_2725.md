@@ -1,12 +1,4 @@
-# Elijah Fainting
-
-(No. 2725)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 5, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 1, 1880.
+# Sermon 2725 | Elijah Fainting
 
 "He himself went a day's journey into the wilderness, and came and sat down under a juniper tree: and he requested for himself that he might die; and said, It is enough; now, O LORD, take away my life; for I am no better than my fathers." 1 Kings 19:4.
 

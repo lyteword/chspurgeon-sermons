@@ -1,12 +1,4 @@
-# The Sick Man Left Behind
-
-(No. 1452A)
-
-FROM THE SICK ROOM OF
-
-H. SPURGEON.
-
-JANUARY 12, 1879.
+# Sermon 1452A | The Sick Man Left Behind
 
 "But Trophimus have I left at Miletum sick." 2 Timothy 4:20.
 

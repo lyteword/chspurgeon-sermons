@@ -1,12 +1,4 @@
-# The Poor Man's Prayer
-
-(No. 1454B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1454B | The Poor Man's Prayer
 
 "Remember me, O Lord, with the favor that You bear unto Your people: O visit me with Your salvation; that I may see the good of Your chosen, that I may rejoice in the gladness of Your nation, that I may glory with Your inheritance." Psalm 106:4,5.
 

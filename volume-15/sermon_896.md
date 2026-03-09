@@ -1,12 +1,4 @@
-# The Coming Resurrection
-
-A sermon
-
-(No. 896)
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 896 | The Coming Resurrection
 
 "Marvel not at this: for the hour is coming in the which all that are in the graves shall hear His voice and shall come forth--they that ha ve done good, unto the resurrection of life, and they that have done evil, unto the resurrection of damnation."- John 5:28,29.
 

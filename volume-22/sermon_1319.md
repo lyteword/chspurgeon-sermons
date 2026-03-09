@@ -1,12 +1,4 @@
-# The Sinner's Savior
-
-(No. 1319)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 1, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1319 | The Sinner's Savior
 
 "And when they saw it, they all murmured, saying, He was gone to be a guest with a man that is a sinner." Luke 19:7.
 

@@ -1,12 +1,4 @@
-# The Wordless Book
-
-(No. 3278)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 11, 1866.
+# Sermon 3278 | The Wordless Book
 
 "Wash me, and I shall be whiter than snow." Psalm 51:7.
 

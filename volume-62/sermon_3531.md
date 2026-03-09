@@ -1,16 +1,7 @@
-# 'That Day' and Its Disclosure"
-
-(No. 3531)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 15, 1872.
+# Sermon 3531 | 'That Day' and Its Disclosure"
 
 "The Lord grant unto him that he may find mercy from the Lord in that day." 2 Timothy 1:18.
 
-[The original title was "The Day"...]
 
 GRATITUDE is never failing in Christians. When they have received a benefit, they are sure to acknowledge it. When Paul was at Rome, Onesiphorus found him out very diligently, and was not ashamed of his chains, but ministered to his necessities and, therefore, Paul felt bound to him and to his family in perpetual thankfulness. Let none of us ever be accused of ingratitude--it is one of the worst of sins. Paul, no doubt, would have done all he could for Onesiphorus in other ways, but he added to all other ways of showing his gratitude, that of praying for him--praying the prayer which we have here put on record in the Book of Inspiration. Learn hence that if we can do nothing else for our benefactors, we can bless them by our prayers. Let us be abundant in pouring out supplications before the Throne of God for all those who in any way have done us a service. We also learn from the text that the best of men have need to be prayed for. I cannot doubt but that Onesiphorus was saved. He seems to have been a most decided follower of Christ, for when others did not know Paul because he was a prisoner, Onesiphorus knew him. He sought him out--he sought him out diligently-- even into the poorest quarters of that great city of Rome. He hunted him out, though probably the population at that time was not less, but perhaps far more than four millions of people. He found the Apostle and he ministered unto his need. He was a good man and yet Paul prayed for him--prayed for him a prayer which would be appropriate for a bad man, too, "The Lord grant that he may find mercy from the Lord in that day!" The best of us needs to be prayed for! Let us be thankful if we have anybody to pray for us. Let us count the prayers of the faithful to be our truest riches. He is the happiest man who shall have the most of God's people lift up their hearts in prayer for him!
 

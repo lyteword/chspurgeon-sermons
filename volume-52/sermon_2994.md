@@ -1,12 +1,4 @@
-# Jude's Doxology
-
-(No. 2994)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 28, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 7, 1875.
+# Sermon 2994 | Jude's Doxology
 
 "Now unto Him who is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and forever. Amen." Jude 1:24,25.
 
@@ -16,7 +8,6 @@ Learn from this, dear Friends, that the sin of man, if we are ever called to den
 
 Observe that these doxologies, wherever we meet with them, are not all exactly the same. They are presented to the same God and offered in the same spirit, but there are reasons given for the doxology in the one case which are not given
 
-in the other. Our morning text [Sermon No. 1266, Volume 21--PAUL'S DOXOLOGY] told us of what God is able to do and so does this. They both begin with praising God's ability, but while Paul spoke about the greatness of that ability in what it could do for us, Jude speaks of the greatness of that ability in preserving us from falling and perfecting us so that we may be presented faultless before the Presence of the Glory of God. Let us, in an adoring frame of mind, think over this sublime subject. I. First, LET US ADORE HIM WHO CAN KEEP US FROM FALLING.
 
 I now address myself, of course, only to God's own people. When shall we ever see a congregation in which it will be needless to make such a remark as that? I cannot call upon some of you to adore God for keeping you from falling, for, alas, you have not yet learned to stand upright! God's Grace has never yet been accepted by you. You are not on the Rock of Ages--you have not yet set out upon the heavenly pilgrimage. It is a wretched state for you to be in--in which you cannot worship Him whom angels worship. It is a sad state of heart for any man to be in! To be excluded--self-excluded--from the general acclamations of joy in the Presence of God--because you feel no such joy and cannot, therefore, unite in such acclamations!
 

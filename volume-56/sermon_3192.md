@@ -1,12 +1,4 @@
-# The Soul's Food and Drink
-
-(No. 3192)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 7, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 5, 1873.
+# Sermon 3192 | The Soul's Food and Drink
 
 "For My flesh is food, indeed, and My blood is drink, indeed." John 6:55.
 

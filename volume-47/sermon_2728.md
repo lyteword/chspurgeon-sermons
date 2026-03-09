@@ -1,12 +1,4 @@
-# The High Rock
-
-(No. 2728)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 26, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
+# Sermon 2728 | The High Rock
 
 "From the end of the earth will I cry unto You, when my heart is overwhelmed: lead me to the Rock that is higher than I." Psalm 61:2.
 

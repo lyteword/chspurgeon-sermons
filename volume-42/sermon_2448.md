@@ -1,12 +1,4 @@
-# "Herein Is Love"
-
-(No. 2448)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY EVENING, JANUARY 19, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2448 | "Herein Is Love"
 
 "Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins." 1 John 4:10.
 

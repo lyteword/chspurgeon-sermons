@@ -1,12 +1,4 @@
-# Why Some Sinners Are Not Pardoned
-
-(No. 2705)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 16, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 30, 1881.
+# Sermon 2705 | Why Some Sinners Are Not Pardoned
 
 "And why do You not pardon my transgression, and take away my iniquity?" Job 7:21.
 

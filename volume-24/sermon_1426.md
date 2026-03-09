@@ -1,12 +1,4 @@
-# The Lifting Up of the Bowed Down
-
-(No. 1426)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 14, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1426 | The Lifting Up of the Bowed Down
 
 "And He was teaching in one of the synagogues on the Sabbath. And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bowed together, and could in no wise lift herself up. And when Jesus saw her, He called her to Him, and said unto her, Woman, you are loosed from your infirmity. And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:10-13.
 

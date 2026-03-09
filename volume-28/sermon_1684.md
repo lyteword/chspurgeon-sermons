@@ -1,12 +1,4 @@
-# "Feed My Lambs"--a Sunday School Sermon
-
-(No. 1684)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 15, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1684 | "Feed My Lambs"--a Sunday School Sermon
 
 "So when they had dined, Jesus said to Simon Peter, Simon, son of Jonas, do you love Me more than these? He said unto Him, Yes, Lord; You know that I love You. He said unto him, Feed My lambs." John 21:15.
 

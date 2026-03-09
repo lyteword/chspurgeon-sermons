@@ -1,10 +1,4 @@
-# Evangelical Congratulations
-
-A Sermon
-
-(No. 370)
-
-Delivered on Monday Evening, March 25th, 1861 by the
+# Sermon 370 | Evangelical Congratulations
 
 Rev. W. BROCK
 

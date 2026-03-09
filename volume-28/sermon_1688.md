@@ -1,16 +1,7 @@
-# Stand Fast
-
-(No. 1688)
-
-DELIVERED ON LORD'S-DAY EVENING, AUGUST 27, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1688 | Stand Fast
 
 "Be not moved away from the hope of the Gospel." Colossians 1:23.
 
-I THINK this morning we showed pretty plainly that many a soul has a great struggle to attain to the hope of the Gospel. [See "Despair Denounced and Grace Glorified," No. 1676.] Not without hand-to-hand fighting do many hearts lay hold on Christ and eternal life. Conscience often sets up a chevaux de frise around the hill of Calvary and thus cuts off the convicted sinner from approaching his Savior. Doubts and fears, the Black Watch of evil, drive back the coming ones and worry those who would gladly hide in the Rock of Ages. Satan summons all his hosts to push men back from the Cross that they may not come to Christ and live.
 
 But, Brothers and Sisters, the battle does not end when, by a desperate rush, a man has come to Christ. In many it assumes a new form--the enemy now attempts to drag the trembler from his refuge and eject him from his stronghold! It is difficult to get at the hope of the Gospel, but quite as difficult to keep it so as not to be moved away from it. If Satan spends great power in keeping us from the hope, he uses equal force in endeavoring to drag us away from it--and equal cunning in endeavoring to allure us from it. Hence the Apostle tells us not to be moved away from the hope of the Gospel. The exhortation is necessary in presence of an imminent danger. Do not think that in the moment when you believe in Christ the conflict is over, or you will be bitterly disappointed! It is then that the battle renews itself and every inch of the road swarms with enemies.
 

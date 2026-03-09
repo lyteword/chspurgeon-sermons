@@ -1,12 +1,4 @@
-# God's Valiant Right Hand
-
-(No. 3361)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 3, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE OPENING OF THE EAST LONDON TABERNACLE, ON THURSDAY, FEBRUARY 22, 1872.
+# Sermon 3361 | God's Valiant Right Hand
 
 "The right hand of tie Lord is exalted: the right hand of the Lord does valiantly." Psalm 118:16.
 

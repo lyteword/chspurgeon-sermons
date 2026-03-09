@@ -1,14 +1,4 @@
-# Moab Is My Washpot
-
-A Sermon
-
-(No. 983)
-
-by
-
-H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
+# Sermon 983 | Moab Is My Washpot
 
 "Moab is my washpot."--Psalm 60:8.
 

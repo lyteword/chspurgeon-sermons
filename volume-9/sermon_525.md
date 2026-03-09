@@ -1,6 +1,4 @@
-# Am I Sought Out?
-
-Sermon No. 525 - Delivered on Sunday Morning, August 23rd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 525 | Am I Sought Out?
 
 > "You shall be called, Sought Out."  
 > Isaiah 62:12.  

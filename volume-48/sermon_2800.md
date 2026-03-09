@@ -1,12 +1,4 @@
-# "Pray, Always Pray"
-
-(No. 2800)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 12, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 3, 1878.
+# Sermon 2800 | "Pray, Always Pray"
 
 "In that day you will ask in My name, and I do not say to you that I shall pray the Father for you, for the Father Himself loves you, because you have loved Me, and have believed that I came forth from God." John 16:26,27.
 

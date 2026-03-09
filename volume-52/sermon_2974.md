@@ -1,12 +1,4 @@
-# A Wafer of Honey
-
-(No. 2974)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2974 | A Wafer of Honey
 
 "My Grace is sufficient for you." 2 Corinthians 12:9.
 

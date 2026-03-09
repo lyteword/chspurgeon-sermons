@@ -1,12 +1,4 @@
-# Saving the Lost
-
-(No. 2756)
-
-A SERMON INTENDED FOR READING ON, LORD'S-DAY, DECEMBER 8, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 17, 1879.
+# Sermon 2756 | Saving the Lost
 
 "The Son of Man hats come to seek and to save that which was lost." Luke 19:10.
 

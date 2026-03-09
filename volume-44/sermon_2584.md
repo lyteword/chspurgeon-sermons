@@ -1,12 +1,4 @@
-# Place for the Word
-
-(No. 2584)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 21, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 8, 1883.
+# Sermon 2584 | Place for the Word
 
 "My Word has no place in you." John 8:37.
 

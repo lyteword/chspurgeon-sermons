@@ -1,12 +1,4 @@
-# A Searching Question
-
-(No. 3079)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 13, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 29, 1865.
+# Sermon 3079 | A Searching Question
 
 "To whom do you belong?" 1 Samuel 30:13.
 

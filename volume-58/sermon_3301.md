@@ -1,12 +1,4 @@
-# A Prophetic Warning
-
-(No. 3301)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 9, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3301 | A Prophetic Warning
 
 "And because iniquity shall abound, the love of many shall grow cold." Matthew 24:12.
 

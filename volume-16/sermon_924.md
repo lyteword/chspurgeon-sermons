@@ -1,6 +1,4 @@
-# Jesus Only
-
-Sermon No. 924 - Delivered on Lord's-Day Morning, April 3rd, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 924 | Jesus Only
 
 > "And when they had lifted up their eyes, they saw no man, save Jesus only."  
 > Matthew 17:8.  

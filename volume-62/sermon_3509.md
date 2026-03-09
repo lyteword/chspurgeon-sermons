@@ -1,18 +1,4 @@
-# Coming to Christ
-
-A Sermon
-
-(No. 3509)
-
-Published on Thursday, April 27th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [17]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, June 17th, 1868.
+# Sermon 3509 | Coming to Christ
 
 "To whom coming."--1 Peter 2:4.
 

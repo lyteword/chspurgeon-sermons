@@ -1,12 +1,4 @@
-# Welcome! Welcome!
-
-(No. 1624)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 16, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1624 | Welcome! Welcome!
 
 "And the people, when they knew it, followed Him: and He received them, and spoke unto them of the kingdom of God, and healed them that had need of healing." Luke 9:11.
 

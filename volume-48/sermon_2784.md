@@ -1,12 +1,4 @@
-# "Non Nobis, Domine!"
-
-(No. 2784)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 22, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 16, 1878.
+# Sermon 2784 | "Non Nobis, Domine!"
 
 "Not unto us, O LORRD, not unto us, but unto Your name give glory, for Your mercy, and for Your truth's sake." Psalm 115:1.
 

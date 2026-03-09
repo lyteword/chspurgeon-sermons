@@ -1,12 +1,4 @@
-# Death and Its Sentence Abolished
-
-(No. 2605)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 15, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 14, 1883.
+# Sermon 2605 | Death and Its Sentence Abolished
 
 "And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven you all trespasses; blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to His Cross." Colossians 2:13,14.
 

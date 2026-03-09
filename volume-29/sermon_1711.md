@@ -1,12 +1,4 @@
-# A Sermon to the Lord's Little Children
-
-(No. 1711)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 18, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1711 | A Sermon to the Lord's Little Children
 
 "I write unto you, little children, because your sins are forgiven you for His name's sake." 1 John 2:12.
 

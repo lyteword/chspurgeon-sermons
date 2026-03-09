@@ -1,12 +1,4 @@
-# The Oft-Repeated Invitation
-
-(No. 2685)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 29, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 10, 1881.
+# Sermon 2685 | The Oft-Repeated Invitation
 
 "And let him who thirsts come. And whoever will, let him take the water of life freely." Revelation 22:17.
 

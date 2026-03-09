@@ -1,12 +1,4 @@
-# The Beatitudes
-
-(No. 3155)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE PULPIT, IN THE YEAR 1873.
+# Sermon 3155 | The Beatitudes
 
 "And seeing the multitudes, He went up into a mountain: and when He was seated, His disciples came to Him. And He opened His mouth and taught them, saying, Blessed are the poor in spirit: for theirs is the Kingdom of Heaven. Blessed are they who mourn: for they shall be comforted. Blessed are the meek: for they shall inherit the earth. Blessed are they who hunger and thirst after righteousness: for they shall be filled. Blessed are the merciful: for they shall obtain mercy. Blessed are the pure in heart: for they shall see God. Blessed are the peacemakers: for they shall be called the children of God. Blessed are they which are persecuted for righteousness' sake: for theirs is the Kingdom of Heaven. Blessed are you when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for My sake. Rejoice, and be exceedingly glad: for great isyour reward in Heaven: for so persecuted they the Prophets which were before you." Matthew 5:1-12.
 

@@ -1,12 +1,4 @@
-# David's Five-stringed Harp
-
-(No. 2527)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 25, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 27, 1884.
+# Sermon 2527 | David's Five-stringed Harp
 
 "I said unto the LORRD, You are my God: hear the voice of my supplications, O Lord. O God, the Lord, the strength of my salvation, You have covered my head in the day of battle. I know that the Lord will maintain the cause of the afflicted and the right of the poor. Surely the righteous shall give thanks unto Your name: the upright shall dwell in Your Presence." Psalm 140: 6,7,12,13.
 

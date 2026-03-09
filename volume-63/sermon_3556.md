@@ -1,10 +1,4 @@
-# Absconding and Apostasy
-
-(No. 3556)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 22, 1917
-
-DELIVERED BY C. H. SPURGEON
+# Sermon 3556 | Absconding and Apostasy
 
 "Will you also go away?"
 

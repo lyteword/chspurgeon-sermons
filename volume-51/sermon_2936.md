@@ -1,12 +1,4 @@
-# Christ's "New Commandment"
-
-(No. 2936)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 18, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 4, 1875.
+# Sermon 2936 | Christ's "New Commandment"
 
 "A new commandment I give unto you, that you love one another: as I have loved you, that you also love one another. By this all will know that you are My disciples, if you have love for one another." John 13:34,35.
 

@@ -1,12 +1,4 @@
-# Healing Leaves
-
-(No. 1233)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 9, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. (ON BEHALF OF THE RELIGIOUS TRACT SOCIETY).
+# Sermon 1233 | Healing Leaves
 
 "The leaves of the tree were for the healing of the nations." Revelation 22:2
 

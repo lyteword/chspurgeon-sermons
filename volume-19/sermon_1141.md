@@ -1,12 +1,4 @@
-# Good News for the Destitute
-
-(No. 1141)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 9, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1141 | Good News for the Destitute
 
 "He will regard the prayer of the destitute, and not despise their prayer." Psalm 102:17.
 

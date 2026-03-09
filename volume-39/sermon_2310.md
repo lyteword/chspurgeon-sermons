@@ -1,12 +1,4 @@
-# Howling Changed To Singing
-
-(No. 2310)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 28, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY, EVENING, APRIL 28, 1889.
+# Sermon 2310 | Howling Changed To Singing
 
 "Howlong will You forget me, O LORD? Forever? How long will You hide Your face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? How long shall my enemy be exalted over me?...I wiil sing unto the LORD, because He has dealt bountifully with me." Psalm 13:1,2, 6.
 
@@ -83,7 +75,6 @@ and, when you have done that, sing another! And when you have finished that, sin
 
 There are the two photographs. Put them into your album and take care of them.
 
-But how came this change to take place? What are THE CONNECTING LINKS BETWEEN THE MAN COMPLAINING AND THE MAN SINGING? How did No. 1 get to be No. 2? How did this howler become a singer? What
 
 process did he pass through?
 

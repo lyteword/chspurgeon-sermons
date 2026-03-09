@@ -1,12 +1,4 @@
-# A Test for True Seekers
-
-(No. 2566)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 17, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 15, 1883.
+# Sermon 2566 | A Test for True Seekers
 
 "They shall ask the way to Zion with their faces toward it." Jeremiah 50:5.
 

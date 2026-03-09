@@ -1,12 +1,4 @@
-# God's Time for Comforting
-
-(No. 3027)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 14, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 21, 1867.
+# Sermon 3027 | God's Time for Comforting
 
 "My eyes fail from searching Your Word, saying, When will You comfort me?" Psalm 119:82.
 
@@ -30,7 +22,6 @@ It is worthy of note that the Psalmist, even in his worst condition, always expe
 
 Beloved, let none of us give way to despair! No doubt Satan will tell us that it is humble to despair, but it is not so. The pride of despair is truly terrible. I believe that when a man altogether doubts the power of God to save him and gives himself up to sin because he thinks he cannot be saved, so far from there being any humility in it, it is the proudest action that depraved flesh and blood can perform! Man, how dare you say that there is no hope for you? If the iron gates of Hell were shut upon you and God had hurled the key of the Pit into the infinite abyss, then you might say that there was no hope for you. But as long as there trembles in the air that blessed invitation of Christ, "Come unto Me, all you that labor and are heavy laden, and I will give you rest," it is only a lying voice that tells you that there is no hope for you! No hope, Man? Why, if you were in the very jaws of death and the grim monster's teeth were about to close upon you, there would still be hope for you! The dying thief on the Cross did but trust to the expiring Savior by his side--and that very day he was with his Lord in Paradise! Never despair, Sinner, but trust in Jesus when at your worst!
 
-And as for you, Christian, what have you to do with despairing? Be of good cheer, for your sins are forgiven you. [See Sermon No. 3016, Volume 52--GOOD CHEER FROM FORGIVEN SIN.] Even though your eyes fail, God's eyes do not fail, nor His arm, either. And though you grow weary with your long waiting, yet when He comes to you, He will make amends for that and your weary waiting shall be well repaid. Wait at the posts of His doors, for--
 
 "He never is before His time, He never is too late."
 

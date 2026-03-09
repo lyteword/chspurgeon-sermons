@@ -1,12 +1,4 @@
-# Depths and Heights
-
-(No. 2635)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 13, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 21, 1882.
+# Sermon 2635 | Depths and Heights
 
 "His Son, whom He has appointed Heir of all things, by whom also He made the worlds; who being the brightness of His Glory, and the express image of His Person and upholding all things by the word ofHispower, when He had, by Himself, purged our sins, sat down at the right hand of the Majesty on high." Hebrews 1:2.
 

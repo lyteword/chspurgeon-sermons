@@ -1,12 +1,4 @@
-# The Lessons of the Foot-washing
-
-(No. 1499)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1499 | The Lessons of the Foot-washing
 
 "Jesus knowing that the Father had given all things into His hands, and that He was come from God, and went to God; He rose from supper, and laid aside His garments; and took a towel, and girded Himself. After that He poured water into a basin, and began to wash the disciples 'feet, and to wipe them with the towel with which He was girded." John 13:3-5.
 

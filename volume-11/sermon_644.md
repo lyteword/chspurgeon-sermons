@@ -1,6 +1,4 @@
-# God's Witnesses
-
-Sermon No. 644 - Delivered on Sunday Morning, August 13th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 644 | God's Witnesses
 
 > You are My witnesses, says the Lord, and My Servant, whom I have chosen.    
 > Isaiah 43:10.    

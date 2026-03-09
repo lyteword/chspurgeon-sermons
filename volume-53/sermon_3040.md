@@ -1,12 +1,4 @@
-# The Happy Beggar
-
-(No. 3040)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 16, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3040 | The Happy Beggar
 
 "But I am poor and needy; yet the Lord thinks upon me." Psalm 40:17.
 

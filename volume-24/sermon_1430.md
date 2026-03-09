@@ -1,12 +1,4 @@
-# Refined, But Not With Silver
-
-(No. 1430)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1430 | Refined, But Not With Silver
 
 "Behold, I have refined you, but not with silver; I have chosen you in the furnace of affliction." Isaiah 48:10.
 

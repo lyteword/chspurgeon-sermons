@@ -1,12 +1,4 @@
-# Four Contrasts
-
-(No. 2548)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 19, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER. 28, 1884.
+# Sermon 2548 | Four Contrasts
 
 "But now thus says the Lord that created you, O Jacob, and He that formed you, O Israel, fear not: for I have redeemed you, I have called you by your name; you are Mine. When you pass through the waters, I will be with you; and through the rivers, they shall not overflowyou: when you walk through the fire, you shall not be burned; neither shall the flame kindle upon you. For I am the Lord your God, the Holy One of Israel, your Savior: I gave Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable, and I have loved you: therefore will I give men for you, and people for your life. Butyou have not called upon Me, O Jacob; butyou have been weary of Me, O Israel. You have not brought Me the small cattle of your burnt offerings; neither have you honored Me with your sacrifices. I have not caused you to serve with an offering, nor wearied you with incense. You have bought Me no sweet cane with money, neither have you filled Me with the fat of your sacrifices: but you have made Me to serve with your sins, you have wearied Me with your iniquities. I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins." Isaiah 43:1-4;22-25.
 

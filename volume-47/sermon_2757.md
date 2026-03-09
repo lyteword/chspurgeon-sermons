@@ -1,12 +1,4 @@
-# Victorious Faith
-
-(No. 2757)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 15, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 24, 1879.
+# Sermon 2757 | Victorious Faith
 
 "For whatever is born of God overcomes the world. And this is the victory that overcomes the world-- our faith. Who is he that overcomes the world, but he that believes that Jesus is the Son of God?" 1 John 5:4,5.
 

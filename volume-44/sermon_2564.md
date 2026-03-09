@@ -1,12 +1,4 @@
-# Strange Ways of Love
-
-(No. 2564)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, ARPIL 3, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 8, 1883.
+# Sermon 2564 | Strange Ways of Love
 
 "Therefore, behold, I will allure her, and bring her into the wilderness, and speak comfortably unto her." Hosea 2:14.
 

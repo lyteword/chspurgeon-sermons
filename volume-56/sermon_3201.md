@@ -1,12 +1,4 @@
-# Mercy for the Meanest of the Flock
-
-(No. 3201)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 9, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3201 | Mercy for the Meanest of the Flock
 
 "In that day, says the Lord, will I assemble the lame, and I will gather the outcast, and those whom I have afflicted." Micah 4:6.
 

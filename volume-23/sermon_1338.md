@@ -1,12 +1,4 @@
-# Work For Jesus
-
-(No. 1338)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1338 | Work For Jesus
 
 "Son, go work today in My vineyard." Matthew 21:28.
 

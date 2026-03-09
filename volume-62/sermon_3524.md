@@ -1,12 +1,4 @@
-# "Do I Love the Lord or Not?"
-
-(No. 3524)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3524 | "Do I Love the Lord or Not?"
 
 "Peter was grieved because He said unto Aim the third time, Do you love Me?" John 21:17.
 

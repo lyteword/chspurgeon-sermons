@@ -1,12 +1,4 @@
-# Thought Condemned, Yet Commanded
-
-(No. 2973)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1876.
+# Sermon 2973 | Thought Condemned, Yet Commanded
 
 "Therefore take no thought, saying, What shall we eat? Or, What shall we drink? Or, What shall we wear? (For after all these things do the Gentiles seek) for your heavenly Father knows that you have need of all these things. But seekyou first the Kingdom ofGod, and His righteousness; and all these things shall be added unto you." Matthew 6:31-33.
 

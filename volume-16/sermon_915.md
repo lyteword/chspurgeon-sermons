@@ -1,6 +1,4 @@
-# Sinners Bound with the Cords of Sin
-
-Sermon No. 915 - Delivered on Lord's-Day Morning, February 13th, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 915 | Sinners Bound with the Cords of Sin
 
 > "His own iniquities shall take the wicked himself, and he shall be holden with the cords of his sins."  
 > Proverbs 5:22.  

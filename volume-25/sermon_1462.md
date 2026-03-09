@@ -1,12 +1,4 @@
-# The Yoke Removed and the Lord Revealed
-
-(No. 1462)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1462 | The Yoke Removed and the Lord Revealed
 
 "They shall know that I am the Lord when I ha ve broken the bars of their yoke." Ezekiel 34:27.
 

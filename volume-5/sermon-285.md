@@ -1,6 +1,4 @@
-# Man's Ruin and God's Remedy
-
-Sermon No. 285 - Delivered on Sabbath Morning, November 20th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 285 | Man's Ruin and God's Remedy
 
 > And the Lord said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it shall come to pass that every one that is bitten, when he looketh upon it, shall live.    
 > Numbers 21:8.    

@@ -1,12 +1,4 @@
-# "Oh, How He Loves!"
-
-(No. 3228)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 15, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 7, 1872.
+# Sermon 3228 | "Oh, How He Loves!"
 
 "Then said the Jews, Behold how He loved him!" John 11:36.
 

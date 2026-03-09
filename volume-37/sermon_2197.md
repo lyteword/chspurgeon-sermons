@@ -1,12 +1,4 @@
-# Christ's Resurrection and Our Newness Of Life
-
-(No. 2197)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 29, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2197 | Christ's Resurrection and Our Newness Of Life
 
 "Therefore we are buried with Him through baptism into death: that just as Christ was raised up from the dead by the Glory of the Father, even so we also should walk in newness of life." Romans 6:4.
 

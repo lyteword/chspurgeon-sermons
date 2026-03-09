@@ -1,6 +1,4 @@
-# The Bed and Its Covering
-
-Sermon No. 244 - Delivered on Sabbath Evening, January 9th, 1859, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 244 | The Bed and Its Covering
 
 > For the bed is shorter than that a man can stretch himself on it: and the covering narrower than that he can wrap himself in it.    
 > Isaiah 28:20.    

@@ -1,12 +1,4 @@
-# Guidance To Grace and Glory
-
-(No. 2389)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 2, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 4, 1888.
+# Sermon 2389 | Guidance To Grace and Glory
 
 "You shall guide me with Your counsel, and afterward receive me to Glory." Psalm 73:24.
 

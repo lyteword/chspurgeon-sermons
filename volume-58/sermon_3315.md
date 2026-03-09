@@ -1,12 +1,4 @@
-# Joy in Harvest
-
-(No. 3315)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 16, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3315 | Joy in Harvest
 
 "They joy before You according to the joy in harvest." Isaiah 9:3.
 

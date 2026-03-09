@@ -1,6 +1,4 @@
-# Peter After His Restoration
-
-Sermon No. 2035 - Delivered on Sunday Morning, July 22nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2035 | Peter After His Restoration
 
 > "When you are converted, strengthen your Brethren."  
 > Luke 22:32.  

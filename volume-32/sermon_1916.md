@@ -1,12 +1,4 @@
-# The Great Sin Of Doing Nothing
-
-(No. 1916)
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 5, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1916 | The Great Sin Of Doing Nothing
 
 "But if you will not do so, behold, you have sinned against the Lord: and be sure your sin will find you out." Numbers 32:23.
 

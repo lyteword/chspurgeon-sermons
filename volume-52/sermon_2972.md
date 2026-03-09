@@ -1,12 +1,4 @@
-# Forgiveness
-
-(No. 2972)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 25,1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 21, 1863.
+# Sermon 2972 | Forgiveness
 
 "But there is forgiveness with You, that You may be feared." Psalm 130:4.
 
@@ -66,7 +58,6 @@ Now, dear Friends, I cannot put this Truth of God more plainly than I have done,
 
 You see, the only men that ever fear God are those that are forgiven. Other men may pretend to do it, but they fail to do it. Why I believe that the religion of nine out of ten professing Christians is just this, "I go to church, or I go to chapel, regularly, and I then think I have done very well." That is what the men think, and the outside world believes that religion is this, "If a man is honest, and sober, and walks righteously, and so on, he goes to Heaven." But how
 
-startling must the sermon of this morning [See Sermon No. 515, Volume 9--THE SINNER'S ADVOCATE] have been to some of these stuck-up Pharisees when we told them it was not the righteous who would go there, but the sinner! And that the Apostle John did not say, "If any man has done good works, he has an Advocate," but, "If any man sins, we have an Advocate with the Father." As Martin Luther gloried to put it, "Jesus Christ never died for our good works--they were not worth His dying for! He gave Himself for our sins, according to the Scriptures." What did our Savior, Himself, say, "I came not to call the righteous, but sinnersto repentance."
 
 The Lord never has any who really and acceptably fear Him but those who once were sinners and who are led as sinners to accept His pardon--and these are the people that fear Him. Do you want to find a warm-hearted woman who really loves Jesus Christ and who would break the alabaster box for His sake? You will find her in one who may be called "a woman who was a sinner." Do you want to find a man who would preach Christ's Word with tears running down his cheeks? You must go and find him among them who once were foul, of whom the Apostles said, "Such were some of you, but you are washed." When the Lord wanted a man to write the next best book in the world to the Bible--The Pilgrim's Progress--He did not go to Lambeth Palace for him, and He did not go to any of the fine streets of this city to pick up some moral person. There was a swearing tinker playing at "cat" on Sunday on Elstow-Green, and the Lord said, "That is the man." He laid hold of him, washed his heart, made him a new man in Christ Jesus--and John Bunyan, the master-dreamer, has given us that remarkable book! And when the Lord wanted a man who would stir up London from end to end by preaching in St. Mary Woolnoth, where should He find him? Why, among the ragamuffins who were conducting
 

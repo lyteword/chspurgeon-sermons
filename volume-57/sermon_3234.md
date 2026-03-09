@@ -1,12 +1,4 @@
-# Strangers and Sojourners
-
-(No. 3234)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 26, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 5, 1863.
+# Sermon 3234 | Strangers and Sojourners
 
 "For I am a stranger with You, and a sojourner, as all my fathers were." Psalm 39:12.
 

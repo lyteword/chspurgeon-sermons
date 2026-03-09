@@ -1,12 +1,4 @@
-# Sickness and Prayer, Healing and Praise
-
-(No. 3274)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 20, 1865.
+# Sermon 3274 | Sickness and Prayer, Healing and Praise
 
 "Fools because of their transgression, and because of their iniquities are afflicted. Their soul abhors all manner of meat, and they draw near unto the gates of death. Then they cry unto the Lord in their trouble and He saves them out of their distresses. He sent His Word, and healed them, and delivered them from their destructions. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing" Psalm 107:17-22.
 

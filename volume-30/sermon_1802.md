@@ -1,12 +1,4 @@
-# Thought-Reading Extraordinary
-
-(No. 1802)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1802 | Thought-Reading Extraordinary
 
 "LORD, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear." Psalm 10:17.
 

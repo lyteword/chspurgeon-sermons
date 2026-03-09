@@ -1,12 +1,4 @@
-# The Cloud of Doves
-
-(No. 2764)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 2, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 12, 1879.
+# Sermon 2764 | The Cloud of Doves
 
 "Who are these who fly as a cloud, and like doves to their roosts?" Isaiah 60:8.
 

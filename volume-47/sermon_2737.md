@@ -1,12 +1,4 @@
-# Who Should Be Baptized?
-
-(No. 2737)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 28, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1859.
+# Sermon 2737 | Who Should Be Baptized?
 
 "If you believe with all your heart, you may." Acts 8:37.
 

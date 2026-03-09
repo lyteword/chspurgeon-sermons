@@ -1,12 +1,4 @@
-# Pedigree
-
-(No. 3091)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 7, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3091 | Pedigree
 
 "Are they Israelites? So am I." 2 Corinthians 11:22.
 

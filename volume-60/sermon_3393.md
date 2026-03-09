@@ -1,12 +1,4 @@
-# Wheat in the Barn
-
-(No. 3393)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 12, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3393 | Wheat in the Barn
 
 "But gather the wheat into My bairn." Matthew 13:30.
 

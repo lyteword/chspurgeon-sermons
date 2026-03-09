@@ -1,12 +1,4 @@
-# Homage Offered to the Great King
-
-(No. 3100)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 9, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3100 | Homage Offered to the Great King
 
 "And He shall live, and to Him shall be given of the gold of Sheba; prayer also shall be made for Him continually; and daily shall He be praised." Psalm 72:15.
 

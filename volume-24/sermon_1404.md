@@ -1,12 +1,4 @@
-# Over Against the Sepulcher
-
-(No. 1404)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 24, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1404 | Over Against the Sepulcher
 
 "Sitting over against the sepulcher." Matthew 27:61.
 

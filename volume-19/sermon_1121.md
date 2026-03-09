@@ -1,12 +1,4 @@
-# Christ Asleep in the Vessel
-
-(No. 1121)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1121 | Christ Asleep in the Vessel
 
 "Master, care You not that we perish?" Mark 4:38.
 

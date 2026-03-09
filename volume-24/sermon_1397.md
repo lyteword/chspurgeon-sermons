@@ -1,12 +1,4 @@
-# The Peace of God
-
-(No. 1397)
-
-DELIVERED ON LORD'S-DAY EVENING, JANUARY 6, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1397 | The Peace of God
 
 "And the peace of God, which passes all understanding, shall keep your hearts and minds through Christ Jesus." Philippians 4:7.
 

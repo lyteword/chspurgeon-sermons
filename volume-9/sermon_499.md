@@ -1,14 +1,4 @@
-# The Clean and the Unclean
-
-A Sermon
-
-(No. 499)
-
-By the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
+# Sermon 499 | The Clean and the Unclean
 
 "Speak unto the children of Israel, saying, These are the beasts which ye shall eat among all the beasts that are on the earth. Whatsoever parteth the hoof, and is clovenfooted, and cheweth the cud, among the beasts, that shall ye eat."--Leviticus 11:2, 3.
 

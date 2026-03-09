@@ -1,6 +1,4 @@
-# A Bad Excuse Is Worse Than None
-
-Sermon No. 578 - Delivered on Sunday Morning, July 3rd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 578 | A Bad Excuse Is Worse Than None
 
 > "And they all with one consent began to make excuses."  
 > Luke 14:18.  

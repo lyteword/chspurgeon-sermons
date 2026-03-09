@@ -1,12 +1,4 @@
-# Another Lesson From Manasseh's Life
-
-(No. 2385)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 4, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 19, 1888.
+# Sermon 2385 | Another Lesson From Manasseh's Life
 
 "And the Lord spoke to Manasseh, and to his people: but they would not listen. Therefore the Lord brought upon them the captains of the host of the king of Assyria; which took Manasseh among the thorns, and bound him with fetters, and carried him to Babylon." 2 Chronicles 33:10,11.
 

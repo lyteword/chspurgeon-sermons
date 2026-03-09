@@ -1,6 +1,4 @@
-# True Prayer&mdash;True Power!
-
-Sermon No. 328 - Delivered on Sabbath Morning, August 12th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 328 | True Prayer&mdash;True Power!
 
 > Therefore I say unto you, what things soever ye desire, when ye pray, believe that ye receive and ye shall have them.    
 > Mark 11:24.    

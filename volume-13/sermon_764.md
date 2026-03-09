@@ -1,7 +1,4 @@
-# Our Life, Our Work, Our Change
-
-Sermon No. 764 - Delivered on Lord's-day Morning, AUGUST 4, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 764 | Our Life, Our Work, Our Change
 
 "All the days of my appointed time will I wait, till my change comes."- Job 14:14.
 

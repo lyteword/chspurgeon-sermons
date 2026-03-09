@@ -1,12 +1,4 @@
-# The Anchor
-
-(No. 1294)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 21, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1294 | The Anchor
 
 "Wherein God, willing more abundantly to show unto the heirs of promise the immutability of His counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might ha ve a strong consolation, who have fled for refuge to lay hold upon the hope set before us: which hope we have as an anchor of the soul, both sure and steadfast, and which enters into that within the veil; where the Forerunner is for us entered, even Jesus, made an High Priest forever after the order of Melchisedec." Hebrews 6:17-20.
 

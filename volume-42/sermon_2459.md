@@ -1,12 +1,4 @@
-# "Better Than Wine"
-
-(No. 2459)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 2, 1872.
+# Sermon 2459 | "Better Than Wine"
 
 "Your love is better than wine." Song of Solomon 1:2.
 

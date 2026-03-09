@@ -1,12 +1,4 @@
-# Sin and Grace
-
-(No. 3115)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 1, 1874.
+# Sermon 3115 | Sin and Grace
 
 "Where sin abounded, Grace did much more abound." Romans 5:20.
 

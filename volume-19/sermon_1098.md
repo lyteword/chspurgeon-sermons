@@ -1,12 +1,4 @@
-# Wonders
-
-(No. 1098)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 23, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1098 | Wonders
 
 "And praise the name of the Lord your God, that has dealt wondrously with you." Joel 2:26.
 

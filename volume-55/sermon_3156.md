@@ -1,12 +1,4 @@
-# The First Beatitude
-
-(No. 3156)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 5, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1873.
+# Sermon 3156 | The First Beatitude
 
 "Blessed aire the poor in spirit: for theirs is the Kingdom of Heaven." Matthew 5:3.
 

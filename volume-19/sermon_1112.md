@@ -1,12 +1,4 @@
-# Soul-satisfying Bread
-
-(No. 1112)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1112 | Soul-satisfying Bread
 
 "And Jesus said unto them, I am the bread of life: he that comes to Me shall never hunger; and he that believes on Me shall never thirst." John 6:35.
 

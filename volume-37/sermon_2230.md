@@ -1,12 +1,4 @@
-# Loved and Washed
-
-(No. 2230)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 15, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 22, 1891.
+# Sermon 2230 | Loved and Washed
 
 "Unto Him that loved us, and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father; to Him be glory and dominion forever and ever. Amen." Revelation 1:5, 6.
 

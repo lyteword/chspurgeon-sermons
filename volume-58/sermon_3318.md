@@ -1,12 +1,4 @@
-# How to Read the Bible
-
-(No. 3318)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 5, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING JUNE 21, 1866.
+# Sermon 3318 | How to Read the Bible
 
 "Till I come, give attendance to reading." 1 Timothy 4:13.
 

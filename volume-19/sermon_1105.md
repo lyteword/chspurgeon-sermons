@@ -1,12 +1,4 @@
-# The Heart Of Jesus
-
-(No. 1105)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 6, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1105 | The Heart Of Jesus
 
 "I am meek and lowly in heart." Matthew 11:29.
 

@@ -1,12 +1,4 @@
-# Great Changes
-
-(No. 2934)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 4, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
+# Sermon 2934 | Great Changes
 
 "And, behold, there are last which shall be first, and there are first which shall be last" Luke 13:30.
 

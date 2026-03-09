@@ -1,12 +1,4 @@
-# Patience, Comfort and Hope From the Scriptures
-
-(No. 2753)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 17, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1879.
+# Sermon 2753 | Patience, Comfort and Hope From the Scriptures
 
 "For whatever things were written before were written for our learning, that we Through the patience and comfort of the Scriptures might have hope." Romans 15:4.
 

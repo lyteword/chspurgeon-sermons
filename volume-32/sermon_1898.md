@@ -1,12 +1,4 @@
-# Mouth and Heart
-
-(No. 1898)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, APRIL 25, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1898 | Mouth and Heart
 
 "That if you shall confess with your mouth the Lord Jesus and shall believe in your heart that God has raised Him from the dead, you shall be saved." Romans 10:9.
 

@@ -1,12 +1,4 @@
-# The Ear Bored With An Awl
-
-(No. 1174)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1174 | The Ear Bored With An Awl
 
 "And if the servant shall plainly say, I love my master, my wife, and my children; I will not go out free: Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the doorpost; and his master shall bore his ear through with an awl; and he shall serve him forever." Exodus 21:5, 6.
 

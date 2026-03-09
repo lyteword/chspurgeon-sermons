@@ -1,12 +1,4 @@
-# Warning and Encouragement
-
-(No. 3013)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 8, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, IN THE YEAR 1864.
+# Sermon 3013 | Warning and Encouragement
 
 "I sleep, but my heart wakes: it is the voice of my beloved that knocks, saying, Open to me, my sister, my love, my dove, my undefiled: for my head is filled with dew, and my locks with the drops of the night." Song of Solomon 5:2.
 

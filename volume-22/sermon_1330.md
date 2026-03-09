@@ -1,12 +1,4 @@
-# The Great Birthday
-
-(No. 1330)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 24, 1876.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1330 | The Great Birthday
 
 "The angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people." Luke 2:10.
 

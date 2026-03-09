@@ -1,12 +1,4 @@
-# The Love of Our Espousals
-
-(No. 2926)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 9, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 30, 1876.
+# Sermon 2926 | The Love of Our Espousals
 
 "Go and cry in the ears of Jerusalem, saying, Thus says the Lord: I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown." Jeremiah 2:2.
 

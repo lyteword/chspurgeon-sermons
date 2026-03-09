@@ -1,6 +1,4 @@
-# Righteous Hatred
-
-Sermon No. 208 - Delivered on Sabbath Morning, August 8, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 208 | Righteous Hatred
 
 > Ye that love the Lord, hate evil.    
 > Psalm 97:10.    

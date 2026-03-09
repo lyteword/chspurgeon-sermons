@@ -1,12 +1,4 @@
-# What The Church Should Be
-
-(No. 1436)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 29, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1436 | What The Church Should Be
 
 "That you may know how you ought to beha ve yourself in the house of God, which is the Church of the living God, the pillar and basement of the Truth." 1 Timothy 3:15.
 

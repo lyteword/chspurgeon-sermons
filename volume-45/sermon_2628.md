@@ -1,12 +1,4 @@
-# "All Hail!"
-
-(No. 2628)
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 25, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 5, 1882.
+# Sermon 2628 | "All Hail!"
 
 "And as they went to tell His disciples, behold, Jesus met them, saying, All hail! So they came and held Him by the feet and worshipped Him. Then said Jesus to them, Be not afraid. Go and tell My brethren to go into Galilee, and there will they see Me." Matthew 28:9,10.
 

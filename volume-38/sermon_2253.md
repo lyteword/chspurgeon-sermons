@@ -1,12 +1,4 @@
-# The Perseverance of Faith
-
-(No. 2253)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 24, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 30, 1890.
+# Sermon 2253 | The Perseverance of Faith
 
 "Then Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will. And her daughter was made whole from that very hour." Matthew 15:28.
 

@@ -1,12 +1,4 @@
-# God's Handwriting Upon David
-
-(No. 2280)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 30, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 7, 1890.
+# Sermon 2280 | God's Handwriting Upon David
 
 "All this, said David, the LORD made me understand in writing by His hand upon me, even all the works of this pattern." 1 Chronicles 28:19.
 

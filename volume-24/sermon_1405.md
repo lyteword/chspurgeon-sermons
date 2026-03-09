@@ -1,12 +1,4 @@
-# A Distinction with a Difference
-
-(No. 1405)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1405 | A Distinction with a Difference
 
 "And Zacharias said unto the angel, How shall I know this?" Luke 1:18.
 

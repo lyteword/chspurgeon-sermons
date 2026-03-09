@@ -1,12 +1,4 @@
-# The Immovability of the Believer
-
-(No. 1450)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 22, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1450 | The Immovability of the Believer
 
 "They that trust in the Lord shall be as Mount Zion, which cannot be removed, but abides forever." Psalm 125:1.
 

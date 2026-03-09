@@ -1,12 +1,4 @@
-# The Voices of Our Days
-
-(No. 3283)
-
-A NEW YEAR'S SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3283 | The Voices of Our Days
 
 "I said, Days should speak and multitude of years should teach wisdom." Job 32:7.
 

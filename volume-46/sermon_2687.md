@@ -1,12 +1,4 @@
-# Too Good to Be Saved!
-
-(No. 2687)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 12, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 17, 1881.
+# Sermon 2687 | Too Good to Be Saved!
 
 "I tell you, this man went down to his house justified rather than the other." Luke 18:14.
 

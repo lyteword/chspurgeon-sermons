@@ -1,8 +1,5 @@
-# King's Gardens
+# Sermon 790 | King's Gardens
 
-Sermon No. 790 - Delivered on Lord's-Day Evening, December 29 , 1867 the REV. C.H. SPURGEON at the [3]Metropolitan Tabernacle, Newington.
-
-> "The king's garden." Nehemiah 3:15.  
 > "The king's garden." Nehemiah 3:15.  
 
 THERE have been many very famous king's gardens, such as those "hanging gardens" in Nineveh, in which Sardanapalus delighted himself, and that remarkable garden of Cyrus in which he took such great interest, because, as he said, every tree and every plant in it had been both planted and tended by his own royal hand. Imagination might bid you wander among the beauties of the celebrated villas and gardens of the Roman emperors, or make you linger amid the roses and lilies of the voluptuous gardens of the Persian caliphs but we have nobler work in hand.

@@ -1,12 +1,4 @@
-# What Christians Were and Are
-
-(No. 3198)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 19, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 23, 1873.
+# Sermon 3198 | What Christians Were and Are
 
 "And were by nature the children of wrath, even as others." Ephesians 2:3.
 

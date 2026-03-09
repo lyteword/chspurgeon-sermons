@@ -1,12 +1,4 @@
-# Our Lord's First Appearance before Pilate
-
-(No. 1644)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 12, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1644 | Our Lord's First Appearance before Pilate
 
 "Pilate said unto them, I find in Him no fault at all." John 18:38.
 

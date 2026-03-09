@@ -1,12 +1,4 @@
-# God Beseeching Sinners by His Ministers
-
-(No. 1124)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 27, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1124 | God Beseeching Sinners by His Ministers
 
 "And all things are of God, who has reconciled us to Himself by Jesus Christ, and has given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them, and has committed unto us the word of reconciliation. Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be you reconciled to God. For He has made Him to be sin for us, who knew no sin that we might be made the righteousness of God in Him." 2 Corinthians 5:18-21.
 

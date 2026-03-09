@@ -1,12 +1,4 @@
-# Cleansing--a Covenant Blessing
-
-(No. 1921)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1921 | Cleansing--a Covenant Blessing
 
 "Then will I sprinkle clean water on you and you shall be clean: from all your filthiness and from all your idols, I will cleanse you." Ezekiel 36:25.
 

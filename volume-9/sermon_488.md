@@ -1,6 +1,4 @@
-# The Voice From Heaven
-
-Sermon No. 488 - Delivered on Sunday Evening, November 23rd, 1862, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 488 | The Voice From Heaven
 
 > "And they heard a great voice from Hea ven, saying unto them, Come up here."  
 > Revelation 11:12.  

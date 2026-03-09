@@ -1,12 +1,4 @@
-# The Sinner's Only Alternative
-
-(No. 2894)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 28, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
+# Sermon 2894 | The Sinner's Only Alternative
 
 "Now therefore come, let us surrender to the army of the Syrians: if they keep us alive, we shall live; and if they kill us, we shall but die." 2 Kings 7:4.
 

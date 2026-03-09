@@ -1,12 +1,4 @@
-# In Christ No Condemnation
-
-(No. 1917)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 29, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1917 | In Christ No Condemnation
 
 "There is therefore now no condemnation to those who are in Christ Jesus, who walk not after the flesh, but after the Spirit." Romans 8:1.
 

@@ -1,18 +1,4 @@
-# What Self Deserves
-
-A Sermon
-
-(No. 3506)
-
-Published on Thursday, April 6th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [14]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, 18th December, 1870.
+# Sermon 3506 | What Self Deserves
 
 "Ye shall loathe yourselves in your own sight for your iniquities, and for your abominations."--Ezekiel 36:31.
 

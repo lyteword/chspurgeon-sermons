@@ -1,12 +1,4 @@
-# A Leap Year Sermon
-
-(No. 2663)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 25, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 29, 1880.
+# Sermon 2663 | A Leap Year Sermon
 
 "One born out of due time." 1 Corinthians 15:8.
 

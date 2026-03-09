@@ -1,6 +1,4 @@
-# A Hearer In Disguise
-
-Sermon No. 584 - Delivered on Sunday Morning, July 31st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 584 | A Hearer In Disguise
 
 > "Audit was so, when Ahijah heard the sound of her feet, as she came in at the door, thathe said, Come in, you wife of Jeroboam; why do you pretend to be another? For I am sent to you with heavy tidings."  
 > 1 Kings 14:6.  

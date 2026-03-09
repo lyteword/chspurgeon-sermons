@@ -1,6 +1,4 @@
-# I Know That My Redeemer Liveth
-
-Sermon No. 504 - Delivered on Sunday Morning, April 12th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 504 | I Know That My Redeemer Liveth
 
 > "For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth: and though after my skin worms destroy this body, yet in my flesh shall I see God; whom I shall see for myself, and mine eyes shall behold, and not another; though my reins be consumed within me."  
 > Job 19:25-27.  

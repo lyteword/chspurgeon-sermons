@@ -1,8 +1,4 @@
-# Hearken and Look; or, Encouragement for Believers
-
-Sermon No. 1596 - Delivered on Wednesday, April 27th, 1881 the REV. C.H. SPURGEON at Exeter Hall.
-
-(The Annual Sermon on behalf of the Baptist Missionary Society)
+# Sermon 1596 | Hearken and Look; or, Encouragement for Believers
 
 Look unto Abraham your father, and unto Sarah that bare you: for I called him alone, and blessed him, and increased him For the Lord shall comfort Zion: he will comfort all her waste places; and he will make her wilderness like Eden, and her desert like the garden of the Lord; joy and gladness shall be found therein, thanksgiving, and the voice of melody.''Isaiah 51:2-3.
 

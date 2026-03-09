@@ -1,18 +1,4 @@
-# A Solemn Embassy
-
-A Sermon
-
-(No. 3497)
-
-Published on Thursday, February 3rd, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [5]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, 26th February, 1871.
+# Sermon 3497 | A Solemn Embassy
 
 "Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God."--2 Corinthians 5:20.
 

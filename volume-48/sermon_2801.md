@@ -1,12 +1,4 @@
-# A Fear to Be Desired
-
-(No. 2801)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 19, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 7, 1878.
+# Sermon 2801 | A Fear to Be Desired
 
 "They shall fear the LORD and His goodness in the latter days." Hosea 3:5.
 

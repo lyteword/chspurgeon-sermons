@@ -1,12 +1,4 @@
-# Circumcision and Uncircumcision
-
-(No. 3454)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 15, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 6, 1866.
+# Sermon 3454 | Circumcision and Uncircumcision
 
 "For in Jesus Christ neither circumcision avails anything nor uncircumcision, but faith which works by love." Galatians 5:6.
 

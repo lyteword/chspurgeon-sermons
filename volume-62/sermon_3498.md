@@ -1,18 +1,4 @@
-# God's Gentle Power
-
-A Sermon
-
-(No. 3498)
-
-Published on Thursday, February 10th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [6]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, September 10th, 1871.
+# Sermon 3498 | God's Gentle Power
 
 "And behold, the Lord passed by, and a great and strong wind rent the mountains, and brake in pieces the rocks before the Lord, but the Lord was not in the earthquake: and after the earthquake a fire, but the Lord was not in the fire: and after the fire a still small voice. And it was so. when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entering in of the cave. And behold, there came a voice unto him, and said, What doest thou here, Elijah?"--1 Kings 19:11-13.
 

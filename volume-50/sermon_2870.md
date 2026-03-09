@@ -1,12 +1,4 @@
-# Revelation and Conversion
-
-(No. 2870)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 23, 1876.
+# Sermon 2870 | Revelation and Conversion
 
 "The Law of the LORD is perfect, converting the soul." Psalm 19:7.
 

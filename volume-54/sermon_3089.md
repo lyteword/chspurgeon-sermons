@@ -1,12 +1,4 @@
-# A Sermon on a Grand Old Text
-
-(No. 3089)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 23, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3089 | A Sermon on a Grand Old Text
 
 "This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." 1 Timothy 1:15.
 

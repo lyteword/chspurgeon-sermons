@@ -1,12 +1,4 @@
-# Concerning Death
-
-(No. 1922)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 26, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1922 | Concerning Death
 
 "For I know that You will bring me to death, and to the house appointed for all living.'" Job 30:23.
 

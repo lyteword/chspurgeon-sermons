@@ -1,6 +1,4 @@
-# Robbers of God
-
-Sermon No. 2156 - Delivered on Sunday Morning, July 27th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2156 | Robbers of God
 
 > "Will a man rob God? Yet you have robbed Me!"  
 > Malachi 3:8.  

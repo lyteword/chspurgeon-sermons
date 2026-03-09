@@ -1,12 +1,4 @@
-# Blessings Manifold and Marvelous
-
-(No. 3474)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 2, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3474 | Blessings Manifold and Marvelous
 
 "He delivered me, because He delighted in me." Psalm 18:19.
 

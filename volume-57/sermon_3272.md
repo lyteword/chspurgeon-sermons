@@ -1,12 +1,4 @@
-# How to Become Full of Joy
-
-(No. 3272)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 17, 1865.
+# Sermon 3272 | How to Become Full of Joy
 
 "And these things write we unto you that your joy may be full." 1 John 1:4.
 

@@ -1,7 +1,4 @@
-# Christ with the Keys of Death and Hell
-
-Sermon No. 894 - Delivered on Lord's-day Morning, OCTOBER, 3, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 894 | Christ with the Keys of Death and Hell
 
 "I have the keys of Hell and of Death."- Revelation 1:18.
 

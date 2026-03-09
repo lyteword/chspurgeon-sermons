@@ -1,12 +1,4 @@
-# The Wandering Bird
-
-(No. 3453)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 8, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3453 | The Wandering Bird
 
 "As a bird that wanders from her nest, so is a man that wanders from his place." Proverbs 27:8.
 

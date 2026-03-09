@@ -1,12 +1,4 @@
-# A Harp of Ten Strings
-
-(No. 2219)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 30, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2219 | A Harp of Ten Strings
 
 "And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savior." Luke 1:46, 47.
 

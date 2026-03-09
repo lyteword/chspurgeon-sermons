@@ -1,12 +1,4 @@
-# The Friends Of Jesus
-
-(No. 1552)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 8, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1552 | The Friends Of Jesus
 
 "You are My friends if you do whatever I command you." John 15:14.
 

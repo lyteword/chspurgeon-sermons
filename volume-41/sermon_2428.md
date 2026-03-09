@@ -1,12 +1,4 @@
-# The Marriage Supper of the Lamb
-
-(No. 2428)
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 1, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 21, 1887.
+# Sermon 2428 | The Marriage Supper of the Lamb
 
 "And he said unto me, Write, 'Blessed are they which are called unto the marriage supper of the Lamb.'" Revelation 19:9.
 

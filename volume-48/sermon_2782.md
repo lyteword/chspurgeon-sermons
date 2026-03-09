@@ -1,12 +1,4 @@
-# Love's Lamentation
-
-(No. 2782)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 8, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 28, 1878.
+# Sermon 2782 | Love's Lamentation
 
 "I have loved you, says the LORD. Yet you say, In what way have You loved us?" Malachi 1:2.
 

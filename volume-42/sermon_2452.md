@@ -1,12 +1,4 @@
-# Hope for the Worst Backsliders
-
-(No. 2452)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 16, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 14, 1886.
+# Sermon 2452 | Hope for the Worst Backsliders
 
 "Return, you backsliding children, and I will heal your backslidings. Behold, we come to You; for You are the LORD our God. Truly in vain is salvation hoped for from the hills, and from the multitude of mountains: truly in the LORD our God is the salvation of Israel." Jeremiah 3:22,23.
 

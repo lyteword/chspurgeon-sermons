@@ -1,12 +1,4 @@
-# Heart-Knowledge of God
-
-(No. 1206)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 6, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1206 | Heart-Knowledge of God
 
 "I will give them a heart to know Me, that I am the Lord." Jeremiah 24:7.
 

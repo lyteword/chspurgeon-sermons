@@ -1,12 +1,4 @@
-# "Lay Hold on Eternal Life!"
-
-(No. 2226)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 18, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 19, 1891.
+# Sermon 2226 | "Lay Hold on Eternal Life!"
 
 "Lay hold on eternal life." 1 Timothy 6:12.
 

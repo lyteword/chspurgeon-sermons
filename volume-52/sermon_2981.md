@@ -1,12 +1,4 @@
-# The Safeguards of Forgiveness
-
-(No. 2981)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 29, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 23, 1875.
+# Sermon 2981 | The Safeguards of Forgiveness
 
 "And David said unto Nathan, Ihave sinned against the LORD. And Nathan said unto David, The Lord also has put away your sin; you shall not die. However..." 2 Samuel 12:13,14.
 

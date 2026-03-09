@@ -1,12 +1,4 @@
-# Blinded By Satan
-
-(No. 2304)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 16, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 31, 1889.
+# Sermon 2304 | Blinded By Satan
 
 "The god of this world has blinded the minds of them which believe not." 2 Corinthians 4:4.
 

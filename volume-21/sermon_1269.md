@@ -1,12 +1,4 @@
-# The New Fashion
-
-(No. 1269)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1269 | The New Fashion
 
 "And immediately he arose, took up the bed, and went forth before them all; so that they were all amazed, and glorified God, saying, We never saw it on this fashion." Mark 2:12.
 

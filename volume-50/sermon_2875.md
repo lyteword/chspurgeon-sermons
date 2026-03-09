@@ -1,12 +1,4 @@
-# Confirming the Witness of Christ
-
-(No. 2875)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 17, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 2875 | Confirming the Witness of Christ
 
 "Even as the testimony of Christ was confirmed in you." 1 Corinthians 1:6.
 

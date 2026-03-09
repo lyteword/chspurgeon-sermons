@@ -1,12 +1,4 @@
-# Helps to Full Assurance
-
-(No. 1791)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1791 | Helps to Full Assurance
 
 "These things have I written unto you that believe on the name of the Son of God; that you may know that you have eternal life, and that you may believe on the name of the Son of God." 1 John 5:13.
 

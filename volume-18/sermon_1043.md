@@ -1,6 +1,4 @@
-# Glorious Predestination
-
-Sermon No. 1043 - Delivered on Lord's Day Morning, March 24th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1043 | Glorious Predestination
 
 'For whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren.''Romans 8:29.
 

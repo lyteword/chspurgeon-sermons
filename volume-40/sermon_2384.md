@@ -1,12 +1,4 @@
-# "Forget You, I Will Not"
-
-(No. 2384)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 28, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 12, 1888.
+# Sermon 2384 | "Forget You, I Will Not"
 
 "You are My servant: O Israel, you shall not be forgotten of Me." Isaiah 44:21.
 

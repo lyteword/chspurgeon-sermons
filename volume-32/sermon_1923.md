@@ -1,12 +1,4 @@
-# The Annual Atonement
-
-(No. 1923)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 3, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1923 | The Annual Atonement
 
 "For on that day shall the priest make an atonement for you, to cleanse you, that you may be clean from all your sins before the Lord." Leviticus 16:30.
 

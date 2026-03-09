@@ -1,7 +1,4 @@
-# David's Holy Wonder at The Lord's Great Goodness
-
-Sermon No. 773 - Delivered on Thursday Evening, SEPTEMBER 19, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 773 | David's Holy Wonder at The Lord's Great Goodness
 
 "Oh how great is Your goodness, which You have laid up for them that fear You, which You have worked for them that trust in You before the sons of men."- Psalm 31:19.
 

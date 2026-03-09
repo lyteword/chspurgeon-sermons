@@ -1,12 +1,4 @@
-# Enquire of the Lord
-
-(No. 1304)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 9, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1304 | Enquire of the Lord
 
 "Thus says the Lord God, I will yet for this be enquired of by the house of Israel, to do it for them; I will increase them with men like a flock. As the holy flock, as the flock of Jerusalem in her solemn feasts; so shall the waste cities be filled with flocks of men: and they shall know that I am the Lord." Ezekiel 36:37,38.
 

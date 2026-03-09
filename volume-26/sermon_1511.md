@@ -1,8 +1,4 @@
-# Questions Which Ought To Be Asked
-
-Sermon No. 1511 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-
-(This was followed by a farewell address from his son, Thomas Spurgeon.)
+# Sermon 1511 | Questions Which Ought To Be Asked
 
 But none saith, Where is God my Maker, who giveth songs in the night; who teacheth us more than the beasts of the earth, and maketh us wiser than the fowls of heaven?'Job 35:10-11.
 

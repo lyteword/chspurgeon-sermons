@@ -1,12 +1,4 @@
-# The Withered Hand
-
-(No. 1485)
-
-DELIVERED ON THURSDAY EVENING, MAY 22, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 1485 | The Withered Hand
 
 "And, behold, there was a man which hadhis hand withered... Then says He to the man, Stretch forth your hand. And he stretched it forth; and it was restored whole, like as the other." Matthew 12:10,13.
 

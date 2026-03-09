@@ -1,12 +1,4 @@
-# Christ's Care of His Disciples
-
-(No. 2616)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 2, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1857.
+# Sermon 2616 | Christ's Care of His Disciples
 
 "If, therefore, you seek Me, let these go their way." John 18:8.
 

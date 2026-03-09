@@ -1,12 +1,4 @@
-# "Out of Darkness Into Light"
-
-(No. 2397)
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 27, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 13, 1887.
+# Sermon 2397 | "Out of Darkness Into Light"
 
 "That You may say to the prisoners, Go forth; to them that are in darkness, Show yourselves." Isaiah 49:9.
 

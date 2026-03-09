@@ -1,12 +1,4 @@
-# Overcoming Christ
-
-(No. 2486)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 11, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 8, 1876.
+# Sermon 2486 | Overcoming Christ
 
 "Turn away your eyes from Me, for they have overcome Me." Song of Solomon 6:5.
 

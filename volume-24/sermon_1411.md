@@ -1,12 +1,4 @@
-# Under Constraint
-
-(No. 1411)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 28, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1411 | Under Constraint
 
 "For the love of Christ constrains us; because we thus judge, that if One died for all, then were all dead." 2 Corinthians 5:14.
 

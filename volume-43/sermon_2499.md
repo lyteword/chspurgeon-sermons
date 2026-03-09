@@ -1,12 +1,4 @@
-# Christopathy
-
-(No. 2499)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 10, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 30, 1885.
+# Sermon 2499 | Christopathy
 
 "With His stripes we are healed." Isaiah 53:5.
 

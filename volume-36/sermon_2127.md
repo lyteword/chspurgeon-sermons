@@ -1,6 +1,4 @@
-# Love's Competition
-
-Sermon No. 2127 - Delivered on Sunday Evening, February 2nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2127 | Love's Competition
 
 > "Tell Me therefore, which of them will love him most? Simon answered and said, I suppose that he, to whom he forgave most. And He said unto him, You have rightly judged."  
 > Luke 7:42, 43.  

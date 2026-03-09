@@ -1,6 +1,4 @@
-# The Backslider's Way Hedged Up
-
-Sermon No. 590 - Delivered on Sunday Morning, September 18th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 590 | The Backslider's Way Hedged Up
 
 She said, I will go after my lovers, who give me my bread and my water, my wool and my flax, my oil and my drink. Therefore, behold, I will hedge up your way with thorns and make a wall, that she shall not find her paths. And she shall follow after her lovers, but she shall not overtake them. And she shall seek them, but shall not find them: then shall she say, I will go and return to my first husband; for then was it better with me than now."--Hosea 2:5-7.
 

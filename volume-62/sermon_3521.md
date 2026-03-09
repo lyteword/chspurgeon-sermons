@@ -1,12 +1,4 @@
-# A Searching Test
-
-(No. 3521)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 20, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 18, 1872.
+# Sermon 3521 | A Searching Test
 
 "Unto the pure all things are pure, but unto them who are defiled and unbelieving, nothing is pure, but even their mind and conscience are defiled." Titus 1:15.
 

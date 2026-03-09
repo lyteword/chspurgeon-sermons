@@ -1,12 +1,4 @@
-# "My Times Are In Your Hand"
-
-(No. 2205)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2205 | "My Times Are In Your Hand"
 
 "My times are in Your hand." Psalm 31:15.
 

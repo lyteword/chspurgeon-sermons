@@ -1,12 +1,4 @@
-# A High Day in Heaven
-
-(No. 2791)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 10, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 27, 1878.
+# Sermon 2791 | A High Day in Heaven
 
 "Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner who repents." Luke 15:10.
 

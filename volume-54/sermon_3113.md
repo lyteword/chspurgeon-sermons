@@ -1,12 +1,4 @@
-# Gratitude for Great Deliverances
-
-(No. 3113)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 29, 1874.
+# Sermon 3113 | Gratitude for Great Deliverances
 
 "For He has looked down from the height of His sanctuary; from Heaven did the LORD behold the earth, to hear the groaning of the prisoner, to loose those that are appointed to death; to declare the name of the LORD in Zion, and His praise in Jerusalem; when the people are gathered together, and the kingdoms, to serve the LORRD." Psalm 102:19-22.
 

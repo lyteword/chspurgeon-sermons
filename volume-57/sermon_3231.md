@@ -1,12 +1,4 @@
-# A New Year's Wish
-
-(No. 3231)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 5, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3231 | A New Year's Wish
 
 "But my God shall supply allyour need according to His riches in Glory by Christ Jesus." Philippians 4:19.
 

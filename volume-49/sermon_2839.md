@@ -1,12 +1,4 @@
-# "Prisoners of Hope"
-
-(No. 2839)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 12, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 5, 1877.
+# Sermon 2839 | "Prisoners of Hope"
 
 "As for you also, by the blood ofyour covenant Have sent forth your prisoner out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you." Zechariah 9:11,12
 

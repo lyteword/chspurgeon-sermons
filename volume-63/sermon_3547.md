@@ -1,12 +1,4 @@
-# Simple Fact and Simple Faith
-
-(No. 3547)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 18 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3547 | Simple Fact and Simple Faith
 
 "Be it known unto you, therefore, men and brethren, that through this Man is preached unto you the forgiveness of sins and by Him all that believe are justified from all things from which they could not be justified by the Law of Moses." Acts 13:38,39.
 

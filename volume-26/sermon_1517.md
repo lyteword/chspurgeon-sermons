@@ -1,6 +1,4 @@
-# For the Candid and Thoughtful
-
-Sermon No. 1517 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1517 | For the Candid and Thoughtful
 
 And when Jesus saw' ['saw him,' so it should be] that he answered discreetly, he said unto him, Thou art not far from the kingdom of God.'Mark 12:34.
 

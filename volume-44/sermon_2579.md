@@ -1,12 +1,4 @@
-# Waiting, Hoping, Watching
-
-(No. 2579)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 17, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 22, 1883.
+# Sermon 2579 | Waiting, Hoping, Watching
 
 "I wait for the LORRD, my soul does wait, and in His Word do I hope, My soul waits for the Lordmore than they who watch for the morning--yes, more than they who watch for the morning." Psalm 130:5, 6.
 

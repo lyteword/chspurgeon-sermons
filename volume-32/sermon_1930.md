@@ -1,12 +1,4 @@
-# Is It True?
-
-(No. 1930)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 21, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 12, 1886.
+# Sermon 1930 | Is It True?
 
 "Nebuchadnezzar spoke and said to them, Is it true, O Shadrach, Meshach, and Abednego, that you do not serve my gods, nor worship the golden image which I have set up?" Daniel 3:14.
 

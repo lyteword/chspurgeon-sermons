@@ -1,12 +1,4 @@
-# The Lion-slayer--the Giant-killer
-
-(No. 1253)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 5, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1253 | The Lion-slayer--the Giant-killer
 
 "Your servant slew both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he has defied the armies of the living God. David said moreover, the Lord that delivered me out of the paw of the lion and out of thepaw of the bear, He will deliver me out of the hand of this Philistine." 1 Samuel 17:36,37.
 

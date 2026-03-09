@@ -1,12 +1,4 @@
-# The Vision of the Field
-
-(No. 3001)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 16, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
+# Sermon 3001 | The Vision of the Field
 
 "For behold, I am for you, and I will turn to you, and you shall be tilled and sown." Ezekiel 36:9.
 

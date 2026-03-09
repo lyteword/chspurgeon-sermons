@@ -1,12 +1,4 @@
-# Our Lord's Voluntary Poverty
-
-(No. 3380)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 13, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 14, 1867.
+# Sermon 3380 | Our Lord's Voluntary Poverty
 
 "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor; that you, through His poverty, might be rich." 2 Corinthians 8:9.
 

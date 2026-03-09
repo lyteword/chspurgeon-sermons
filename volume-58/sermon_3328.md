@@ -1,12 +1,4 @@
-# Guests for the Royal Feast
-
-(No. 3328)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 14, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3328 | Guests for the Royal Feast
 
 "Then said He to His servants, The wedding is ready, but they which were invited were not worthy Go you therefore into the highways, and as many as you shall find, invite to the marriage. So those servants went out into the highways, and gathered together all as many as they found, both bad and good: and the wedding was furnished with guests." Matthew 22:8-10.
 

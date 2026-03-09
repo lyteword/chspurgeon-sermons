@@ -1,12 +1,4 @@
-# A Simple Remedy
-
-(No. 1068)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 1, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1068 | A Simple Remedy
 
 "With His stripes we are healed." Isaiah 53:5.
 

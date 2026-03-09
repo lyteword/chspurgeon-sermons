@@ -1,12 +1,4 @@
-# "Speak, Lord!"
-
-(No. 2526)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 18, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 20, 1884.
+# Sermon 2526 | "Speak, Lord!"
 
 "Then Samuel answered, Speak; for Your servant hears." 1 Samuel 3:10.
 

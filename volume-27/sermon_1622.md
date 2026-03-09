@@ -1,6 +1,4 @@
-# Mongrel Religion
-
-Sermon No. 1622 - Delivered on Lord's-Day Morning, October 2nd, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1622 | Mongrel Religion
 
 So these nations feared the Lord and served their graven images, both their children, and their children's children: as did their fathers, so do they unto this day.''2 Kings 17:41.
 

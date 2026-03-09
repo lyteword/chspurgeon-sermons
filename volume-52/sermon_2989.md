@@ -1,12 +1,4 @@
-# Near the Kingdom, or in It?
-
-(No. 2989)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 24, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 24, 1875.
+# Sermon 2989 | Near the Kingdom, or in It?
 
 "You are not fair from the Kingdom of God." Mark 12:34.
 

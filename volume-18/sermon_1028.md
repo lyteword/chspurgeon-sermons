@@ -1,6 +1,4 @@
-# The Glorious Master and the Swooning Disciple
-
-Sermon No. 1028 - Delivered on Lord's Day Morning, January 7th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1028 | The Glorious Master and the Swooning Disciple
 
 'And when I saw him, I fell at his feet as dead. And he laid his right hand upon me, saying unto me, Fear not; I am the first and the last: I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death.'Revelation 1:17-18.
 

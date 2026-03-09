@@ -1,6 +1,4 @@
-# Earthquake But Not Heartquake
-
-Sermon No. 1950 - Delivered on Sunday Morning, February 27th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1950 | Earthquake But Not Heartquake
 
 > "God is our refuge and strength, a very present help in trouble. Therefore we will not fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though its waters roar and be troubled, though the mountains shake with its swelling."  
 > Psalm 46:1-3.  

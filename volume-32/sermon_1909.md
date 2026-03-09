@@ -1,12 +1,4 @@
-# A Seasonable Exhortation
-
-(No. 1909)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 11, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1909 | A Seasonable Exhortation
 
 "Therefore gird up the loins of your mind, be sober and hope to the end for the Grace that is to be brought unto you at the revelation of Jesus Christ." 1 Peter 1:13.
 

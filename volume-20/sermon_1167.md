@@ -1,12 +1,4 @@
-# Additions to the Church
-
-(No. 1167)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 5, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1167 | Additions to the Church
 
 "And the Lord added to the Church daily such as should be saved." Acts2:47.
 

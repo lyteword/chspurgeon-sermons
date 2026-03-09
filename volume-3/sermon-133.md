@@ -1,6 +1,4 @@
-# Heavenly Rest
-
-Sermon No. 133 - Delivered on Sabbath Morning, May 24, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 133 | Heavenly Rest
 
 > There remaineth therefore a rest to the people of God.    
 > Hebrews 4:9.    

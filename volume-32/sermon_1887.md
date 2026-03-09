@@ -1,12 +1,4 @@
-# Pleading For Prayer
-
-(No. 1887)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 21, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1887 | Pleading For Prayer
 
 "Now I beseech you, Brethren, for the Lord Jesus Christ's sake, and for the love of the Spirit, that you strive together with me in your prayers to God for me; that I may be delivered from those in Judea who do not believe, and that my service which I have for Jerusalem may be accepted of the saints; that I may come unto you with joy by the will of God, and may, with you, be refreshed. Now the God of Peace be with you all. Amen." Romans 15:30-33.
 

@@ -1,12 +1,4 @@
-# God's Memorial Of His People
-
-(No. 3441)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3441 | God's Memorial Of His People
 
 "Behold I have engraved you upon the palms of My hands." Isaiah 49:16.
 

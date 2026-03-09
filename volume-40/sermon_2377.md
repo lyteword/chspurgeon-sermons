@@ -1,12 +1,4 @@
-# Love Stronger Than Death
-
-(No. 2377)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 9, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 5, 1888.
+# Sermon 2377 | Love Stronger Than Death
 
 "When Jesus knew that His hour was come that He should depart out of this world unto the Father, having loved His own which were in the world, He loved them unto the end." John 13:1.
 

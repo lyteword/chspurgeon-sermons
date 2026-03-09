@@ -1,12 +1,4 @@
-# The Anxious Enquirer
-
-(No. 2615)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 26, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, EARLY IN THE YEAR 1857.
+# Sermon 2615 | The Anxious Enquirer
 
 "Oh that I knew where I might find Him!" Job 23:3.
 

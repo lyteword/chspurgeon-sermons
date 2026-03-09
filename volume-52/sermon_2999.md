@@ -1,12 +1,4 @@
-# Railings
-
-(No. 2999)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 2, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2999 | Railings
 
 "When you build a new house, then you shall make a railing for your roof that you bring not guilt of bloodshed on your household, if any man fall from it." Deuteronomy 22:8.
 

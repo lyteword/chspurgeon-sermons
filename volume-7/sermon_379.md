@@ -1,6 +1,4 @@
-# Perfect Cleansing
-
-Sermon No. 379 - Delivered on Sunday Morning, April 7th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 379 | Perfect Cleansing
 
 > "For I will cleanse their blood that Ihave not cleansed."  
 > Joel 3:21.   

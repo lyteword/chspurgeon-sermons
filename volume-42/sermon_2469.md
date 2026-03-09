@@ -1,12 +1,4 @@
-# The Incomparable Bridegroom and His Bride
-
-(No. 2469)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 23, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 10, 1866.
+# Sermon 2469 | The Incomparable Bridegroom and His Bride
 
 "What is your Beloved more than another beloved, O you fairest among women? What is your Beloved more than another beloved, that you so charge us?" Song of Solomon 5:9.
 

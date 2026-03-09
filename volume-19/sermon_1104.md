@@ -1,12 +1,4 @@
-# Spring
-
-(No. 1104)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 30, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1104 | Spring
 
 "As the earth brings forth her bud, and as the garden causes the things that are sown in it to spring forth; so the Lord God will cause righteousness and praise to spring forth before all the nations." Isaiah 61:11.
 

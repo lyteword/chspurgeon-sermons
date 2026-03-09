@@ -1,12 +1,4 @@
-# Obedience Rewarded
-
-(No. 2323)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 27, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 1, 1889.
+# Sermon 2323 | Obedience Rewarded
 
 "And they departed quickly from the sepulcher with fear and great joy; and did run to bringHis disciples word. And as they went to tell His disciples, behold, Jesus met them, saying, All hail. And they came and held Him by the feet, and worshipped Him. Then said Jesus unto them, Be not afraid: go tell My brethren to go into Galilee, and there shall they see Me." Matthew 28:8-10.
 

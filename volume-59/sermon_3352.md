@@ -1,12 +1,4 @@
-# A World Wide Welcome
-
-(No. 3352)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 1, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3352 | A World Wide Welcome
 
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 

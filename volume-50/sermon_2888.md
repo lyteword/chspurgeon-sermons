@@ -1,12 +1,4 @@
-# "Christ Is All"
-
-(No. 2888)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 16, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 4, 1876.
+# Sermon 2888 | "Christ Is All"
 
 "Where there is neither Greek nor Jew, circumcised nor uncircumcised, Barbarian, Scythian, slave nor free, but Christ is All and in all." Colossians 3:11.
 

@@ -1,12 +1,4 @@
-# Sight For Those Who See Not
-
-(No. 1798)
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 14, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1798 | Sight For Those Who See Not
 
 "And Jesus said, For judgment I have come into this world, that they which see not might see and that they which see might be made blind." John 9:39.
 

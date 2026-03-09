@@ -1,12 +1,4 @@
-# The Lesson of the Almond Tree
-
-(No. 2678)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 10, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 7, 1881.
+# Sermon 2678 | The Lesson of the Almond Tree
 
 "Moreover the word of the LORRD came unto me, saying, Jeremiah, what do you see? And I said, I see a branch of an almond tree. Then said the LORD unto me, You have seen well: for I am ready to perform My word." Jeremiah 1:11,12.
 

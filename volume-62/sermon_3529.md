@@ -1,12 +1,4 @@
-# More Room for More People
-
-(No. 3529)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3529 | More Room for More People
 
 "It is done as you have commanded, and still there is room." Luke 14:22.
 

@@ -1,6 +1,4 @@
-# The Blind Beggar
-
-Sermon No. 266 - Delivered on Sabbath Morning, August 7th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 266 | The Blind Beggar
 
 > And they came to Jericho: and as he went out of Jericho with his disciples and a great number of people, blind Bartimaeus, the son of Timaeus, sat by the highway side begging. And when he heard that it was Jesus of Nazareth, he began to cry out, and say, Jesus, thou son of David, have mercy on me. And many charged him that he should hold his peace: but he cried the more a great deal, Thou son of David, have mercy on me. And Jesus stood still, and commanded him to be called. And they call the blind man, saying unto him, Be of good comfort, rise; he calleth thee. And he, casting away his garment, rose, and came to Jesus. And Jesus answered and said unto him, What wilt thou that I should do unto thee? The blind man said unto him, Lord, that I might receive my sight. And Jesus said unto him, Go thy way; thy faith hath made thee whole. And immediately he received his sight, and followed Jesus in the way.    
 > Mark 10:46-52.    

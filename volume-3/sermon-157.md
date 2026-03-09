@@ -1,6 +1,4 @@
-# Thy Redeemer
-
-Sermon No. 157 - Delivered on Sabbath Evening, October 4, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 157 | Thy Redeemer
 
 "And thy redeemer, the Holy One of Israel."&mdash;Isaiah 41:14.
 

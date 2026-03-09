@@ -1,12 +1,4 @@
-# Struggling Against Sin
-
-(No. 3482)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 21, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3482 | Struggling Against Sin
 
 "I cried with my whole heart; hear me, O Lord: I will keep Your statutes. I cried unto You; save me, and I shall keep Your testimonies." Psalm 119:145,146.
 

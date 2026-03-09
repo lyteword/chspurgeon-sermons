@@ -1,18 +1,4 @@
-# The Bliss of the Glorified
-
-A Sermon
-
-(No. 3499)
-
-Published on Thursday, February 17th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [7]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, August 13th, 1871.
+# Sermon 3499 | The Bliss of the Glorified
 
 "They shall hunger no more, neither thirst any more, neither shall the sun light on them, nor any heat."--Revelation 7:16.
 

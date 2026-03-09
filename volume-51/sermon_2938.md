@@ -1,12 +1,4 @@
-# Jesus the Way
-
-(No. 2938)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 1, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
+# Sermon 2938 | Jesus the Way
 
 "Jesus said unto him, I am the way." John 14:6.
 

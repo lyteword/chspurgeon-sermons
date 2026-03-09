@@ -1,12 +1,4 @@
-# Why Should I Weep?
-
-(No. 1320)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 22, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1320 | Why Should I Weep?
 
 "And there followed Him a great company of people, and of women, which also bewailed and lamented Him. But Jesus turning unto them said, Daughters of Jerusalem, weep not for Me, but weep for yourselves, and for your children. For behold, the days are coming in which they shall say, Blessed are the barren, and the wombs that never bare, and the paps which never gave suck. Then shall they begin to say to the mountains, Fall on us; and to the hills, Cover us. For if they do these things in a green tree, what shall be done in the dry?" Luke 23:27-31.
 

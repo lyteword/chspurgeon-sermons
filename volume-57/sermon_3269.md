@@ -1,12 +1,4 @@
-# A Frail Leaf
-
-(No. 3269)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3269 | A Frail Leaf
 
 "Will You break a leaf driven to and fro?" Job 13:25.
 

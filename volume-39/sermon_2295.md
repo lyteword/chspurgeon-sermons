@@ -1,12 +1,4 @@
-# God's People--or Not God's People
-
-(No. 2295)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 12, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2295 | God's People--or Not God's People
 
 "I will have mercy upon her that had not obtained mercy; and I will say to them which were not My people, You are My people; and they shall say, You are my God." Hosea 2:23.
 

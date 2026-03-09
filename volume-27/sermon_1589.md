@@ -1,12 +1,4 @@
-# A Hasty Expression Penitently Retracted
-
-(No. 1589)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1589 | A Hasty Expression Penitently Retracted
 
 "I said in my haste, I am cut off from before Your eyes: nevertheless You heard the voice of my supplications when I cried unto You." Psalm 31:22.
 

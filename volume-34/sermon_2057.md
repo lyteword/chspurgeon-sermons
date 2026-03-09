@@ -1,6 +1,4 @@
-# The Lord's Own Salvation
-
-Sermon No. 2057 - Delivered on Thursday Evening, August 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2057 | The Lord's Own Salvation
 
 > "But I will have mercy upon the house of Judah and will save them by the Lord their God and will not save them by bow, nor by sword, nor by battle, by horses, nor by horsemen"  
 > Hosea 1:7.  

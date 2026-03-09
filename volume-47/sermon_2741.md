@@ -1,12 +1,4 @@
-# Salvation by Grace
-
-(No. 2741)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 25, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1859.
+# Sermon 2741 | Salvation by Grace
 
 "By Grace you are saved." Ephesians 2:5.
 

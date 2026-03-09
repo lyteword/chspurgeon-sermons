@@ -1,12 +1,4 @@
-# Faith, And The Witness Upon Which It Is Founded
-
-(No. 1213)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1213 | Faith, And The Witness Upon Which It Is Founded
 
 "If we receive the witness of men, the witness of God is greater: for this is the witness of God which He has witnessed of His Son. He that believes in the Son of God has the witness in himself: he that believes not God, has made Him a liar; because he believes not the witness that God witnessed of His Son." 1 John 5:9,10.
 

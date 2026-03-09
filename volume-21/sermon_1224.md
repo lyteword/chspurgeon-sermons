@@ -1,12 +1,4 @@
-# Jesus, The Stumbling Stone Of Unbelievers
-
-(No. 1224)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1224 | Jesus, The Stumbling Stone Of Unbelievers
 
 "Unto you therefore which believe He is precious: but unto them which are disobedient, the stone which the builders disallowed, the same is made the head of the corner, and a stone of stumbling, and a rock of offense, even to them which stumble at the word, being disobedient." 1 Peter 2:7,8.
 

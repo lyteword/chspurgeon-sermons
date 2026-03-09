@@ -1,12 +1,4 @@
-# Jesus, The Substitute For His People
-
-(No. 1223)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1223 | Jesus, The Substitute For His People
 
 "Who is he that condemns? It is Christ that died, yes rather, that is risen again, who is even at the right hand of God, who also makes intercession for us." Romans 8:34.
 

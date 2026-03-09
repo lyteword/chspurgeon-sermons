@@ -1,6 +1,4 @@
-# Praying In The Holy Spirit
-
-Sermon No. 719 - Delivered on Sunday Evening, November 4th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 719 | Praying In The Holy Spirit
 
 > "Praying in the Holy Spirit."  
 > Jude 1:20.  

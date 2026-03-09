@@ -1,12 +1,4 @@
-# Reasons for a Singular Question
-
-(No. 2458)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 14, 1886.
+# Sermon 2458 | Reasons for a Singular Question
 
 "What do you want Me to do for you?" Mark 10:51.
 

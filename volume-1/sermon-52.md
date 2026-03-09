@@ -1,6 +1,4 @@
-# Free Will&mdash;A Slave
-
-Sermon No. 52 - Delivered on Sabbath Morning, December 2, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 52 | Free Will&mdash;A Slave
 
 > And ye will not come to me, that ye might have life.    
 > John 5:40.    

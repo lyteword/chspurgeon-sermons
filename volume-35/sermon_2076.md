@@ -1,6 +1,4 @@
-# Sounding Out the Word of the Lord
-
-Sermon No. 2076 - Delivered on Sunday, March 24th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2076 | Sounding Out the Word of the Lord
 
 > "For from you sounded out the Word of the Lord not only in Macedonia and Achaia but also in everyplace your faith to God-ward is spread abroad; so that we need not to speak anything."  
 > 1 Thessalonians 1:8.  

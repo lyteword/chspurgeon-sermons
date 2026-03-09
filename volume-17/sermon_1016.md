@@ -1,6 +1,4 @@
-# Beauty for Ashes
-
-Sermon No. 1016 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1016 | Beauty for Ashes
 
 > "To appoint unto them that mourn in Zion, to give unto them beauty for ashes the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord, that he might be glorified."  
 > Isaiah 61:3.  

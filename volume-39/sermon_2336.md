@@ -1,12 +1,4 @@
-# The Love Of Jonathan and the Love Of Jesus
-
-(No. 2336)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 26, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 29, 1889.
+# Sermon 2336 | The Love Of Jonathan and the Love Of Jesus
 
 "Your love to me was wonderful, surpassing the love of women." 2 Samuel 1:26.
 

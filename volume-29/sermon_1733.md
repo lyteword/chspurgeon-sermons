@@ -1,12 +1,4 @@
-# On Humbling Ourselves before God
-
-(No. 1733)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1733 | On Humbling Ourselves before God
 
 "Humble yourselves therefore under the mighty hand of God, that He may exalt you in due time." 1 Peter 5:6.
 

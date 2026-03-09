@@ -1,12 +1,4 @@
-# Decision--Illustrated by the Case of Joshua
-
-(No. 1229)
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, APRIL 18, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1229 | Decision--Illustrated by the Case of Joshua
 
 "As for me and my house, we will serve the Lord." Joshua 24:15.
 

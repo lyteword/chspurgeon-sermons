@@ -1,12 +1,4 @@
-# God's Knowledge of Sin
-
-(No. 2551)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 9, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 19, 1884.
+# Sermon 2551 | God's Knowledge of Sin
 
 "O God, You know my foolishness; and my sins are not hid from You " Psalm 69:5.
 

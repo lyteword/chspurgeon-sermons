@@ -1,12 +1,4 @@
-# A Good Man in An Evil Case
-
-(No. 2830)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 10, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 19, 1886.
+# Sermon 2830 | A Good Man in An Evil Case
 
 "Cast your burden upon the Lord, and He shall sustain you: He shall never allow the righteous to be moved." Psalm 55:22.
 

@@ -1,12 +1,4 @@
-# Servitude Or Service--Which?
-
-(No. 2306)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 30, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 14, 1889.
+# Sermon 2306 | Servitude Or Service--Which?
 
 "Nevertheless they shall be his servants; that they may know My service, and the service of the kingdoms of the countries." 2 Chronicles 12:8.
 

@@ -1,12 +1,4 @@
-# The Only Door
-
-(No. 3287)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3287 | The Only Door
 
 "I am the door: if anyone enters by Me, he shall be saved, and shall go in and out, and find pasture." John 10:9.
 

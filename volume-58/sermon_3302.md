@@ -1,12 +1,4 @@
-# Faith in Christ's Ability
-
-(No. 3302)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 16, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 12, 1866.
+# Sermon 3302 | Faith in Christ's Ability
 
 "Jesus sai unto them, Believe you that I am able to do this?" Matthew 9:28.
 

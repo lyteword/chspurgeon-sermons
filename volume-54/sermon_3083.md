@@ -1,12 +1,4 @@
-# Comfort for Those Whose Prayers Are Feeble
-
-(No. 3083)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 12, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3083 | Comfort for Those Whose Prayers Are Feeble
 
 "Hide not Your ear at my breathing." Lamentations 3:56.
 

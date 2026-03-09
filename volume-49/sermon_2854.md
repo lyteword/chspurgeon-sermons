@@ -1,12 +1,4 @@
-# Lame Sheep
-
-(No. 2854)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2854 | Lame Sheep
 
 "Make straight paths for your feet, so that what is lame may not be dislocated, but rather be healed." Hebrews 12:13.
 

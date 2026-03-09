@@ -1,8 +1,4 @@
-# The Evidence of Our Lord's Wounds
-
-Sermon No. 2061 - Delivered on Delivered the REV. C.H. SPURGEON at [10]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, December 2nd, 1877.
+# Sermon 2061 | The Evidence of Our Lord's Wounds
 
 "Then said he to Thomas, Reach hither thy finger, and behold my hands; and reach hither thy hand, and thrust it into my side: and be not faithless, but believing."'John 20:27.
 

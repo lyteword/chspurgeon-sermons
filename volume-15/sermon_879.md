@@ -1,7 +1,4 @@
-# An Assuredly Good Thing
-
-Sermon No. 879 - Delivered on Sunday Morning, JULY 4, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 879 | An Assuredly Good Thing
 
 "It is good for me to draw near to God."- Psalm 73:28.
 

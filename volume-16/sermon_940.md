@@ -1,12 +1,4 @@
-# The Winnowing Fan
-
-(No. 940)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 10, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 940 | The Winnowing Fan
 
 "Follow peace with all men, and holiness, without which no man shall see the Lord: looking diligently lest any man fail of the Grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled." Hebrews 12:14,15.
 

@@ -1,12 +1,4 @@
-# Offended Because of Christ?
-
-(No. 1398)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1398 | Offended Because of Christ?
 
 "And blessed is he who is not offended because of Me." Matthew 11:6.
 

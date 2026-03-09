@@ -1,12 +1,4 @@
-# The First Note of My Song
-
-(No. 1492)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 31, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1492 | The First Note of My Song
 
 "Who forgives all your iniquities." Psalm 103:3.
 

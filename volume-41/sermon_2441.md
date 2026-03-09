@@ -1,12 +1,4 @@
-# The Lord's Knowledge, Our Safeguard
-
-(No. 2441)
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 1, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 30, 1887.
+# Sermon 2441 | The Lord's Knowledge, Our Safeguard
 
 "The Lord knows how to deliver the godly out of temptations, and to reserve the unjust unto the Day of Judgment to be punished." 2 Peter 2:9.
 

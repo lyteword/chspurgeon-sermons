@@ -1,12 +1,4 @@
-# A Voice From Heaven
-
-(No. 1219)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1219 | A Voice From Heaven
 
 "Here is the patience of the saints: here are they that keep the commandments of God, and the faith of Jesus. And I heard a voice from Heaven saying unto me, Write, Blessed are the dead which die in the Lord from now on: Yes, says the Spirit, that they may rest from their labors, and their works follow them." Revelation 14:12,13.
 

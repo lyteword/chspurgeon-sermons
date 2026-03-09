@@ -1,6 +1,4 @@
-# Mercy's Master Motive
-
-Sermon No. 1041 - Delivered on Lord's Day Morning, March 17th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1041 | Mercy's Master Motive
 
 'For my name's sake will I defer mine anger, and for my praise will I refrain for thee, that I cut thee not off. Behold, I have refined thee, but not with silver; I have chosen thee in the furnace of affliction. For mine own sake, even for mine own sake, will I do it: for how should my name be polluted? and I will not give my glory unto another.''Isaiah 48:9-11.
 

@@ -1,12 +1,4 @@
-# Messages to Sinners and Saints
-
-(No. 2985)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 26, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 10, 1875.
+# Sermon 2985 | Messages to Sinners and Saints
 
 "For thus says the Lord GOOD, the Holy One ofIsrael, In returning and rest shall you be saved; in quietness and in confidence shall be your strength. But you would not." Isaiah 30:15.
 

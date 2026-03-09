@@ -1,12 +1,4 @@
-# The Joy Of Jesus
-
-(No. 1571)
-
-DELIVERED ON SUNDAY MORNING, DECEMBER 5, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1571 | The Joy Of Jesus
 
 "In that hour Jesus rejoiced in spirit and said, I thank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent and have revealed them unto babes. Even so, Father, for so it seemed good in Your sight. All things are delivered to Me of My Father: and no man knows who the Son is, but the Father; and who the Father is, but the Son and He to whom the Son will reveal Him." Luke 10:21,22.
 

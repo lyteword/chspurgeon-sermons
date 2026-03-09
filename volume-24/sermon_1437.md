@@ -1,12 +1,4 @@
-# Others To Be Gathered In
-
-(No. 1437)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 6, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1437 | Others To Be Gathered In
 
 "The Lord God which gathers the outcasts of Israel says, Yet will I gather others to him, beside those that are gathered unto him." Isaiah 56:8.
 

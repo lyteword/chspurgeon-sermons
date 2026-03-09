@@ -1,12 +1,4 @@
-# A Singular But Needful Question
-
-(No. 955)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 16, 1870,
-
-BY C H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 955 | A Singular But Needful Question
 
 "Will you be made whole?" John 5:6.
 

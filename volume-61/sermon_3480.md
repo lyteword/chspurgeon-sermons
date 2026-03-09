@@ -1,12 +1,4 @@
-# Fragrant Graces
-
-(No. 3480)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3480 | Fragrant Graces
 
 "While the King sits at His table, my spikenard sends forth its fragrance." Song of Songs 1:12.
 

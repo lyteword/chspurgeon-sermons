@@ -1,12 +1,4 @@
-# Perfect Sanctification
-
-(No. 1527)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1527 | Perfect Sanctification
 
 "By that will we have been sanctified through the offering of the body of Jesus Christ once for all." Hebrews 10:10.
 

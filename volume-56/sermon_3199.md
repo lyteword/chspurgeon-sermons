@@ -1,12 +1,4 @@
-# How the Lambs Feed
-
-(No. 3199)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 26, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3199 | How the Lambs Feed
 
 "Then shall the lambs feed in their pasture." Isaiah 5:17.
 

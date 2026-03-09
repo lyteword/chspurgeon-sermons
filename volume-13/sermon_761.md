@@ -1,7 +1,4 @@
-# The Shrill Trumpet of Admonition
-
-Sermon No. 761 - Delivered on Lord's-day Morning, JULY 21, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 761 | The Shrill Trumpet of Admonition
 
 "Moab has been at ease from his youth, and he has settled on his lees, and has not been emptied from vessel to vessel, neither has he gone into captivity. Therefore his taste remained in him, and his scent is not changed. 'Therefore, behold, the days come,' says the Lord, 'that I will send unto him wanderers, that shall cause him to wander, and shall empty his vessels, and break their bottles.."- Jeremiah 48:11,12.
 

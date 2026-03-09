@@ -1,12 +1,4 @@
-# Two Arguments Against Sin
-
-(No. 2684)
-
-A SERMON INTENDED FOR READING ON LORDS-DAY, JULY 22, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 29, 1881.
+# Sermon 2684 | Two Arguments Against Sin
 
 "However I sent unto you all My servants the Prophets, rising early and sending them, saying, Oh, do not do this abominable thing that I hate!" Jeremiah 44:4.
 

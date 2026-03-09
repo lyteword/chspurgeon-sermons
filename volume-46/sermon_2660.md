@@ -1,12 +1,4 @@
-# Suffering Outside the Camp
-
-(No. 2660)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 4, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, JANUARY 3, 1858.
+# Sermon 2660 | Suffering Outside the Camp
 
 "Therefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate." Hebrews 13:12.
 

@@ -1,12 +1,4 @@
-# The Perpetuity of the Gospel
-
-(No. 2636)
-
-INTENDED FOR READING ON LORD'S DAY, AUGUST 20, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 28, 1882.
+# Sermon 2636 | The Perpetuity of the Gospel
 
 "Heaven and earth shall pass away, but My Words shall not pass away." Luke 21:33.
 

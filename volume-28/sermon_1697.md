@@ -1,10 +1,4 @@
-# The Word of a King
-
-(No. 1697)
-
-DELIVERED BY C. H. SPURGEON.
-
-AT THE OPENING OF A NEW BAPTIST CHAPEL, TRINITY ROAD, UPPER TOOTING.
+# Sermon 1697 | The Word of a King
 
 "Where the word of a king is, there is power." Ecclesiastes 8:4.
 

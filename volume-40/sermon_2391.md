@@ -1,12 +1,4 @@
-# The Keeper of the Vineyard
-
-(No. 2391)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 16, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 5, 1863.
+# Sermon 2391 | The Keeper of the Vineyard
 
 "I the LORD keep it. I will water it every moment: lest any hurt it, I will keep it night and day." Isaiah 27:3.
 

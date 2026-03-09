@@ -1,6 +1,4 @@
-# The Pilgrim's Longings
-
-Sermon No. 1030 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1030 | The Pilgrim's Longings
 
 'And truly, if they had been mindful of that country from whence they came out, they might have had opportunity to have returned. But now they desire a better country, that is, an heavenly: wherefore God is not ashamed to be called their God: for he hath prepared for them a city.''Hebrews 11:15-16.
 

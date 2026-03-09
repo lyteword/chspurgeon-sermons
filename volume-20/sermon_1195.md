@@ -1,12 +1,4 @@
-# Abundant Pardon
-
-(No. 1195)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 27, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1195 | Abundant Pardon
 
 "He will abundantly pardon." Isaiah 55:7.
 

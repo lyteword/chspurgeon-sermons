@@ -1,6 +1,4 @@
-# The Triumphal Entry Into Jerusalem
-
-Sermon No. 405 - Delivered on Sunday Morning, August the 18th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 405 | The Triumphal Entry Into Jerusalem
 
 > "Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass."  
 > Matthew. 21:5.  

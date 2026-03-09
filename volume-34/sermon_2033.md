@@ -1,6 +1,4 @@
-# Plain Directions To Those Who Would Be Saved From Sin
-
-Sermon No. 2033 - Delivered on Sunday Morning, July 15th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2033 | Plain Directions To Those Who Would Be Saved From Sin
 
 > "Stand in awe and sin not: commune with your own heart upon your bed and be still. Selah. Offer the sacrifices of righteousness, and put your trust in the Lord."  
 > Psalm 4:4,5.  

@@ -1,12 +1,4 @@
-# Servus Servorum
-
-(No. 2514)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 25, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1885.
+# Sermon 2514 | Servus Servorum
 
 "I am among you as He that serves." Luke 22:27.
 

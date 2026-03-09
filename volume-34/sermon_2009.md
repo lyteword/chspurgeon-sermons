@@ -1,6 +1,4 @@
-# Job Among the Ashes
-
-Sermon No. 2009 - Delivered on Sunday Morning, February 19th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2009 | Job Among the Ashes
 
 > "I have heard of You by the hearing of the ear: but now my eye sees You. Wherefore I abhor myself and repent in dust and ashes."  
 > Job 42:5, 6.  

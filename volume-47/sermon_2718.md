@@ -1,12 +1,4 @@
-# The Tenses
-
-(No. 2718)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 17, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 13, 1880.
+# Sermon 2718 | The Tenses
 
 "Who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver us." 2 Corinthians 1:10.
 

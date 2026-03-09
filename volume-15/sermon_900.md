@@ -1,7 +1,4 @@
-# Preach, Preach, Preach Everywhere!
-
-Sermon No. 900 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 900 | Preach, Preach, Preach Everywhere!
 
 "And He said unto them, Go you into all the world and preach the Gospel to every creature. He that believes and is baptized shall be saved; but he that believes not shall be damned."- Mark 16:15,16.
 

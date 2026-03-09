@@ -1,6 +1,4 @@
-# The Sons of God
-
-Sermon No. 339 - Delivered on Sabbath Morning, October 7th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 339 | The Sons of God
 
 > The Spirit itself beareth witness with our spirit, that we are the children of God; and if children, then heirs; heirs of God, and joint heirs with Christ; if so be that we suffer with him, that we may be also glorified together.    
 > Romans 8:16, 17.    

@@ -1,12 +1,4 @@
-# Overcome Evil With Good
-
-(No. 1317)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 8, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1317 | Overcome Evil With Good
 
 "Be not overcome of evil, but overcome evil with good." Romans 12:21.
 

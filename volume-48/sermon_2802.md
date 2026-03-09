@@ -1,12 +1,4 @@
-# Lukewarmness
-
-(No. 2802)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 26, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1860-61.
+# Sermon 2802 | Lukewarmness
 
 "Iknowyour works, that you are neither cold nor hot: I would you were cold or hot. So then, because you are lukewarm, and neither cold nor hot, I will vomit you out of My mouth." Revelation 3:15,16.
 

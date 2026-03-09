@@ -1,6 +1,4 @@
-# Peace--How Gained, How Broken
-
-Sermon No. 2112 - Delivered on Sunday Morning, October 27th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2112 | Peace--How Gained, How Broken
 
 > "I will hear what God the Lord will speak: for He will speak peace unto His people and to His saints: but let them not turn again to folly."  
 > Psalm 85:8.  

@@ -1,12 +1,4 @@
-# The Minister's Trumpet Blast and Church Member's Warning
-
-(No. 2772)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 30, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1859-1860.
+# Sermon 2772 | The Minister's Trumpet Blast and Church Member's Warning
 
 "Set the trumpet to your mouth. He shall come as an eagle against the house of the LORD, because they have transgressed My Covenant, and trespassed against My Law. Israel shall cry unto Me, My God, we know You!" Hosea 8:1,2.
 

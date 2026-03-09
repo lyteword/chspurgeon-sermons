@@ -1,12 +1,4 @@
-# Fourfold Satisfaction
-
-(No. 2726)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 12, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 4, 1880.
+# Sermon 2726 | Fourfold Satisfaction
 
 "And I will satiate the soul of the priests with fatness. And My people shall be satisfied with My goodness, says the Lord... ForIhave satiated the weary soul, and I have replenished every sorrowful soul." Jeremiah 31:14,25.
 

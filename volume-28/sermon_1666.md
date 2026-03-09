@@ -1,12 +1,4 @@
-# The First Recorded Words of Jesus
-
-(No. 1666)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 25, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1666 | The First Recorded Words of Jesus
 
 "And when they saw Him, they were amazed; and His mother said unto Him, Son, why have You thus dealt with us? Look, Your father and I have sought You sorrowing. And He said unto them, How is it that you sought Me? Know you not that I must be about My Father's business?" Luke 2:48, 49.
 

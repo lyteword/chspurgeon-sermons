@@ -1,12 +1,4 @@
-# The Fullness and the Filling
-
-(No. 3553)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 1, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3553 | The Fullness and the Filling
 
 "And ofHis fullness have we all received, and Grace for Grace" John 1:16.
 

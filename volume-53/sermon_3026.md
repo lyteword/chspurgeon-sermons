@@ -1,12 +1,4 @@
-# Vanity Deprecated
-
-(No. 3026)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 7, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, A LORD'S-DAY EVENING, IN THE YEAR 1864.
+# Sermon 3026 | Vanity Deprecated
 
 "Turn away my eyes from beholding vanity; and quicken me in Your way." Psalm 119:37.
 

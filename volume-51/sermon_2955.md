@@ -1,12 +1,4 @@
-# Simple But Sound
-
-(No. 2955)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2955 | Simple But Sound
 
 "One thing I know, that whereas I was blind, now I see." John 9:25.
 

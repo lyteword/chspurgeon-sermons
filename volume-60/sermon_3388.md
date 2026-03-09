@@ -1,12 +1,4 @@
-# Soul-threshing
-
-(No. 3388)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 8, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3388 | Soul-threshing
 
 "For the black cummin are not threshed with a threshing instrument, neither is a cartwheel turned about upon the cummin, but the black cummin are beaten out with a stick and the cummin with a rod. Bread flour must be ground; therefore he does not thresh it forever, nor break it with his cartwheel, nor bruise it with his horsemen." Isaiah 28:27,28.
 

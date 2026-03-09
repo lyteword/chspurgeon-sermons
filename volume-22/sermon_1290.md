@@ -1,12 +1,4 @@
-# Godly Fear and Its Goodly Consequence
-
-(No. 1290)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1290 | Godly Fear and Its Goodly Consequence
 
 "In the fear of the Lord is strong confidence and His children shall ha ve a place of refuge." Proverbs 14:26.
 

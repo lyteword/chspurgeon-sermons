@@ -1,6 +1,4 @@
-# Independence of Christianity
-
-Sermon No. 149 - Delivered on Sabbath Morning, August 31, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 149 | Independence of Christianity
 
 > Not by might, nor by power, but by my Spirit, saith the Lord of Hosts.    
 > Zechariah 4:6.    

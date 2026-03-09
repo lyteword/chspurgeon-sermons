@@ -1,6 +1,4 @@
-# The Spies
-
-Sermon No. 197 - Delivered on Sabbath Morning, June 6, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 197 | The Spies
 
 > And they brought up an evil report of the land which they had searched unto the children of Israel, saying, The land, through which we have gone to search it, is a land that eateth up the inhabitants thereof; and all the people that we saw in it are men of a great stature.    
 > Numbers 13:32.    

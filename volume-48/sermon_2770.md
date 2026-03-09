@@ -1,12 +1,4 @@
-# "Go in Peace"
-
-(No. 2770)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 16, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 23, 1883.
+# Sermon 2770 | "Go in Peace"
 
 "And He said to the woman, Your faith has saved you; go in peace." Luke 7:50.
 

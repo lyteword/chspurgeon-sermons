@@ -1,12 +1,4 @@
-# The Sin-Offering for the Common People
-
-(No. 1048)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 28, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1048 | The Sin-Offering for the Common People
 
 "And if any one of the common people sins through ignorance, while he does something against any of the commandments of the Lord concerning things which ought not to be done, and is guilty. Or if his sin, which he has sinned, comes to his knowledge: then he shall bring his offering, a kid of the goats, a female without blemish, for his sin which he has sinned. And he shall lay his hand upon the head of the sin offering, and slay the sin offering in the place of the burnt offering. And the priest shall take of the blood thereof with his finger, and put it upon the horns of the altar of burnt offering, and shall pour out all the blood thereof at the bottom of the altar. And the priest shall burn it upon the altar for a sweet sa vor unto the Lord; and the priest shall make an atonement for him, and it shall be forgiven him." Leviticus 4:27-31.
 

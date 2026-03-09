@@ -1,12 +1,4 @@
-# The Truly Blessed Man
-
-(No. 3270)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 13, 1864.
+# Sermon 3270 | The Truly Blessed Man
 
 "Blessed is the maun that walks not in the counsel of the ungodly; nor stands in the way of sinners, nor sits in the seat of the scornful. But his delight is in the Law of the Lord: and in His Law does he meditate day and night. And he shall be like a tree planted by the rivers of water, that brings forth his fruit in his season: his leaf also shall not wither, and whatever he does shall prosper." Psalm 1:1-3.
 

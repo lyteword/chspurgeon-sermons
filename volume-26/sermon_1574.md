@@ -1,12 +1,4 @@
-# I Was Before
-
-(No. 1574)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1574 | I Was Before
 
 "Who was before a blasphemer and a persecutor and injurious." 1 Timothy 1:13.
 

@@ -1,12 +1,4 @@
-# Love at Leisure
-
-(No. 2927)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 16, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SUNDAY EVENING, DECEMBER 3, 1876.
+# Sermon 2927 | Love at Leisure
 
 "Mary, who also sat at Jesus'feet, and heard His Word." Luke 10:39.
 

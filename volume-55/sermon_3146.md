@@ -1,12 +1,4 @@
-# The Power of Christ's Presence
-
-(No. 3146)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 27, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 2, 1873.
+# Sermon 3146 | The Power of Christ's Presence
 
 "Therefore that disciple whom Jesus loved said unto Peter, It is the Lord." John 21:7.
 

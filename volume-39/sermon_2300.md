@@ -1,12 +1,4 @@
-# The Whole Gospel In A Single Verse
-
-(No. 2300)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 19, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 28, 1889.
+# Sermon 2300 | The Whole Gospel In A Single Verse
 
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners, of whom I am chief." 1 Timothy 1:15.
 

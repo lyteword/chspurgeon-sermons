@@ -1,12 +1,4 @@
-# Perfect Justification and Perfect Pardon
-
-(No. 2789)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 27, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE SUMMER OF 1860.
+# Sermon 2789 | Perfect Justification and Perfect Pardon
 
 "In those days, and in that time, says the LORRD, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom Ipreserve." Jeremiah 50:20.
 

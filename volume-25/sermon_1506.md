@@ -1,12 +1,4 @@
-# Choice Comfort for a Young Believer
-
-(No. 1506)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1506 | Choice Comfort for a Young Believer
 
 "The Lord will perfect that which concerns me: Your mercy, O Lord, endures forever: forsake not the works of Your own hands." Psalm 138:8.
 

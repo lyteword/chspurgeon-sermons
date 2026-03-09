@@ -1,6 +1,4 @@
-# No Illusion
-
-Sermon No. 526 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 526 | No Illusion
 
 > "And did not know that what was done by the angel was real, but thought he was seeing a vision."  
 > Acts 12:9.  

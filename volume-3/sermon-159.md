@@ -1,6 +1,4 @@
-# The True Christian's Blessedness
-
-Sermon No. 159 - Delivered on Sabbath Morning, October 18, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 159 | The True Christian's Blessedness
 
 > We know that all things work together far good to them that love God, to them who are the called according to his purpose.    
 > Romans 8:28.    

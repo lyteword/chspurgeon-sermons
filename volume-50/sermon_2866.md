@@ -1,12 +1,4 @@
-# Good News
-
-(No. 2866)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 6, 1876.
+# Sermon 2866 | Good News
 
 "As cold waters to a thirsty soul, so is good news from a far country." Proverbs 25:25.
 

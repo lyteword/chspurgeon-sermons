@@ -1,12 +1,4 @@
-# Beggars Becoming Princes
-
-(No. 3256)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 29, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 21, 1864.
+# Sermon 3256 | Beggars Becoming Princes
 
 "He raises up the poor out of the dust, and lifts up the beggar from the dunghill, to set them among princes, and to make them inherit the throne of glory." 1 Samuel 2:8.
 

@@ -1,12 +1,4 @@
-# Martha And Mary
-
-(No. 927)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 24, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 927 | Martha And Mary
 
 "Now it came to pass, as they went, that He entered into a certain village: and a certain woman named Martha received Him into her house. And she had a sister called Mary, which also sat at Jesus 'feet, and heard His Word. But Martha was cumbered aboutmuch serving, and came to Him, and said, Lord, do you not care that my sister has leftme to serve alone? Bid her therefore that she help me. And Jesus answered and said unto her, 'Martha, Martha, you are careful and troubled about many things: but one thing is needful: and Mary has chosen that good part, which shall not be taken away from her." Luke 10:38-42.
 

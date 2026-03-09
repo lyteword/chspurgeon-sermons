@@ -1,12 +1,4 @@
-# Good Cheer for the Needy
-
-(No. 2878)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 16, 1876.
+# Sermon 2878 | Good Cheer for the Needy
 
 "For the needy shall not always be forgotten: the expectation of the poor shall not perish forever." Psalm 9:18.
 

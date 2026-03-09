@@ -1,12 +1,4 @@
-# Girded for the Work
-
-(No. 2649)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 19, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 18, 1882.
+# Sermon 2649 | Girded for the Work
 
 "Therefore gird up the loins of your mind." 1 Peter 1:13.
 

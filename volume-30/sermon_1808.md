@@ -1,12 +1,4 @@
-# The Threshing Floor of Ornan
-
-(No. 1808)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 9, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1808 | The Threshing Floor of Ornan
 
 "At that time, when David saw that the Lord had answered him on the threshing floor of Oman, the Jebusite, he sacrificed there." 1 Chronicles 21:28.
 
@@ -16,7 +8,6 @@ AT THE METROPOLITAN TABERNACLE, NEWINGTON.
 
 DAVID was, for many years, searching for a site for the great temple which he purposed to build for Jehovah, his God. It had been ordained that the sacrifices offered to the one God should be offered by all Israel upon one altar, but as yet the Ark of the Lord was within curtains, near David's palace, and the altar of burnt offering was situated at Gibeon. Where should the one altar be erected? Where should the Ark find its permanent dwelling place? David said, "Surely I will not come into the tabernacle of my house, nor go up into my bed; I will not give sleep to my eyes, or slumber to my eyelids, until I find out a place for the Lord, an habitation for the mighty God of Jacob." Yet for a long time he received no indication as to the exact spot where the Lord's altar should be reared, save only that he was told that the Lord had chosen Zion and desired it for His habitation.
 
-David watched, and waited, and prayed and, in due time, he received the sign. God knew the spot and had consecrated it long before by His appearance unto Abraham. The other Lord's Day, you remember, our text was, "Jehovah-jireh," [Volume 30, No. 1803] and we then learned that in the mountain the Lord would be seen. Upon Mount Moriah, on or near that particular spot which had been named Jehovah-jireh, was the temple to be built. Abraham had there unsheathed the knife to slay his son. Wondrous type of the great Father offering up His Only-Begotten for the sins of men! The scene of that grand transaction was to be the center of worship for the chosen people. Where Abraham made the supreme sacrifice, there should His descendants present their offerings! Or if we look into the type and see God, there, presenting Jesus as a Sacrifice for men--it was most suitable that man should forever sacrifice to God where God made a sacrifice for him!
 
 As yet it was not known to David that this was the chosen place. Now it is indicated by memorable signs--the Angel of Justice stands above the spot and his sword is sheathed there in answer to the cries of the afflicted king, according to the long-suffering mercy of God. Then David clearly saw the mind of the Lord and said, "This is the house of Jehovah my God, and this is the altar of the burnt offering for Israel." Then He commenced at once with double speed to prepare the materials for the temple. Though he knew that he might not build it, since his hands had been stained with blood, yet he would do all that he could to help his son, Solomon, in the great enterprise.
 

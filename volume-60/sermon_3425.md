@@ -1,12 +1,4 @@
-# Days of Heaven Upon the Earth
-
-(No. 3425)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 23, 1866.
+# Sermon 3425 | Days of Heaven Upon the Earth
 
 "As the days of Heaven upon the earth." Deuteronomy 11:21.
 

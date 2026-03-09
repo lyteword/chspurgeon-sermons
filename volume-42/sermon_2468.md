@@ -1,12 +1,4 @@
-# Solitude, Silence, Submission
-
-(No. 2468)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 7, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 13, 1886.
+# Sermon 2468 | Solitude, Silence, Submission
 
 "He sits alone and keeps silent, because He has borne it upon him. He puts his mouth in the dust; if so be there may be hope." Lamentations 3:28,29.
 

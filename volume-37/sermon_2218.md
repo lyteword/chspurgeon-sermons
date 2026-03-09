@@ -1,12 +1,4 @@
-# "Is the Spirit of the Lord Straitened?"
-
-(No. 2218)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 23, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 26, 1891.
+# Sermon 2218 | "Is the Spirit of the Lord Straitened?"
 
 "O you that are named the house of Jacob, is the Spirit of the Lord straitened?" Micah 2:7.
 

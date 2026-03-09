@@ -1,12 +1,4 @@
-# The Three Hours' Darkness
-
-(No. 3471)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 12, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, SEPTEMBER 27, 1866.
+# Sermon 3471 | The Three Hours' Darkness
 
 "Now from the sixth hour there was darkness over all the land until the ninth hour." Matthew 27:45.
 

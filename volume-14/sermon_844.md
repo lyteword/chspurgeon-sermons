@@ -1,6 +1,4 @@
-# Justification by Faith--Illustrated by Abram's Righteousness
-
-Sermon No. 844 - Delivered on Lord's-Day Morning, December 6th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 844 | Justification by Faith--Illustrated by Abram's Righteousness
 
 > "And he believed in the Lord; and he counted it to him for righteousness."  
 > Genesis 15:6.  

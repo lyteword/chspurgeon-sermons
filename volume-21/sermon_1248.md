@@ -1,12 +1,4 @@
-# The Choice Of A Leader
-
-(No. 1248)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1248 | The Choice Of A Leader
 
 "And he spoke a parable unto them, Can the blind lead the blind? Shall they not both fall into the ditch? The disciple is not above his master: but everyone that is perfect shall be as his master." Luke 6:39, 40.
 

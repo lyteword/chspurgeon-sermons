@@ -1,12 +1,4 @@
-# "The Time Is Short"
-
-(No. 2861)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2861 | "The Time Is Short"
 
 "The time is short." 1 Corinthians 7:29.
 

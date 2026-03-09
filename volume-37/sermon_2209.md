@@ -1,12 +1,4 @@
-# The Best Strengthening Medicine
-
-(No. 2209)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2209 | The Best Strengthening Medicine
 
 "Out of weakness were made strong." Hebrews 11:34.
 

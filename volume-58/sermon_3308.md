@@ -1,12 +1,4 @@
-# Gathering in the Chosen
-
-(No. 3308)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 27, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, APRIL 29, 1866.
+# Sermon 3308 | Gathering in the Chosen
 
 "Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child and her that travails with child together; a great company shall return there. They shall come with weeping, and with supplications I will lead them: I will cause them to walk by the rivers of waters in a straight way, wherein they shall not stumble: for I am a Father to Israel, and Ephraim is My first-born." Jeremiah 31:8,9.
 

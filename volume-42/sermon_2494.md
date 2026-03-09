@@ -1,12 +1,4 @@
-# The Cause and Cure of a Wounded Spirit
-
-(No. 2494)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 6, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 16, 1885.
+# Sermon 2494 | The Cause and Cure of a Wounded Spirit
 
 "The spirit of a man will sustain his infirmity; but a wounded spirit, who can bear?" Proverbs 18:14.
 

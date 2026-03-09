@@ -1,12 +1,4 @@
-# The Greatest Gift in Time or Eternity
-
-(No. 2534)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 12, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 20, 1884.
+# Sermon 2534 | The Greatest Gift in Time or Eternity
 
 "Behold, I have given Him for a Witness to the people, a Leader and Commander to the people. Behold, You shall call a nation that You know not, and nations that knew not You shall run unto You because ofthe LORD Your God, and for the Holy One of Israel; for He has glorified You. Seek you the LORRD while He may be found, call upon Him while He is near." Isaiah 55:4-6.
 

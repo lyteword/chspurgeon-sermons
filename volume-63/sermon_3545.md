@@ -1,12 +1,4 @@
-# Our Glorious Leader
-
-(No. 3545)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, JANUARY 4, 1872.
+# Sermon 3545 | Our Glorious Leader
 
 "And when He had thus spoken, He went on ahead, ascending up to Jerusalem." Luke 19:28.
 

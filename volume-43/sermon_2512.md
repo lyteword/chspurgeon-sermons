@@ -1,12 +1,4 @@
-# Hearing With Heed
-
-(No. 2512)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 11, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 9, 1885.
+# Sermon 2512 | Hearing With Heed
 
 "And He said unto them, Take heed what you hear: with what measure you use, it shall be measured to you: and unto you that hear shall more be given." Mark 4:24.
 

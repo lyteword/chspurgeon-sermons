@@ -1,12 +1,4 @@
-# "Return! Return!"
-
-(No. 2547)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 12, 1897,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 21, 1884.
+# Sermon 2547 | "Return! Return!"
 
 "Return now every one from his evil way." Jeremiah 18:11.
 

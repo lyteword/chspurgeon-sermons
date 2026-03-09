@@ -1,12 +1,4 @@
-# The Old Gospel for the New Century
-
-(No. 2708)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 6, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 5, 1880.
+# Sermon 2708 | The Old Gospel for the New Century
 
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 

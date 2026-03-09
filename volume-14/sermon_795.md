@@ -1,16 +1,4 @@
-# Joshua's Vision
-
-A Sermon
-
-(No. 795)
-
-Delivered on Lord's Day Morning, February 16, 1868, by
-
-H. SPURGEON
-
-at the [8]Metropolitan Tabernacle, Newington.
-
-Portion of Scripture read before Sermon--Joshua 6:10-27.
+# Sermon 795 | Joshua's Vision
 
 "And it came to pass, when Joshua was by Jericho, thathe lifted up his eyes and looked, and behold, there stood a Man over against him with His sword drawn in His hand. And Joshua went unto Him, and said unto Him, Are You for us, or for our adversaries? And He said, No, but as Captain of the host of the Lord am I now come. And Joshua fell on his face to the earth, and did worship, and said unto Him, What says my Lord unto His servant? And the Captain of the Lord's host said unto Joshua, Loose your shoe from off your foot; for the place whereon you stand is holy. And Joshua did so." Joshua 5:13-15.
 

@@ -1,12 +1,4 @@
-# Prayerful Importunity
-
-(No. 2836)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE 100th ANNIVERSARY OF AMERSHAM BAPTIST CHAPEL, IN NOVEMBER, 1857.
+# Sermon 2836 | Prayerful Importunity
 
 "And shall not God avenge His own elect, who cry day and night unto Him, though He bears long with them?" Luke 18:7.
 

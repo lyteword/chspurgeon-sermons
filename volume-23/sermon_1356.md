@@ -1,12 +1,4 @@
-# The Heavenly Wind
-
-(No. 1356)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 27, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1356 | The Heavenly Wind
 
 "The wind blows where it wishes, and you hear the sound of it, but cannot tell from where it comes, and where it goes: so is everyone that is born of the Spirit." John 3:8.
 

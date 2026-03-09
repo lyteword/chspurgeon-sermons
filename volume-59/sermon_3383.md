@@ -1,12 +1,4 @@
-# The Plowman
-
-(No. 3383)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 4, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3383 | The Plowman
 
 "Does the plowman plow all day to sow?" Isaiah 28:24.
 

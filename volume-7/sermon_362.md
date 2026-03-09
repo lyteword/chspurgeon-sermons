@@ -1,6 +1,4 @@
-# None But Jesus--Second Part
-
-Sermon No. 362 - Delivered on Sunday Evening, February 17th, 1861 by the REV. C.H. SPURGEON at New Park Street, Southwark.
+# Sermon 362 | None But Jesus--Second Part
 
 > "He that believeth on him is not condemned"  
 > John 3:18  

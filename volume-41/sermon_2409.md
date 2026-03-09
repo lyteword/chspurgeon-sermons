@@ -1,12 +1,4 @@
-# A Great Sermon by the Greatest Preacher
-
-(No. 2409)
-
-INTENDED FOR READING ON LORD'S DAY, APRIL 21, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING APRIL 17, 1887.
+# Sermon 2409 | A Great Sermon by the Greatest Preacher
 
 "And lo, a voice came from Heaven, saying, This is My beloved Son, in whom I am well pleased." Matthew 3:17.
 

@@ -1,12 +1,4 @@
-# Good Cause for Great Zeal
-
-(No. 1097)
-
-A SERMON DELIVERED
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1097 | Good Cause for Great Zeal
 
 "Now because we have maintenance from the king's palace, and it was not meet for us to see the King dishonored, therefore have we sent and informed the king." Ezra 4:14.
 

@@ -1,12 +1,4 @@
-# Plenteous Redemption
-
-A Sermon
-
-(No. 351)
-
-Delivered at Exeter Hall, Strand, by the
-
-REV. C.H. SPURGEON.
+# Sermon 351 | Plenteous Redemption
 
 "With him is plenteous redemption."--Psalm 103:7.
 

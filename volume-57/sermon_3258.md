@@ -1,12 +1,4 @@
-# Stumbling at the Word
-
-(No. 3258)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 13, 1911.
-
-DELIVERED BY C. H. SPURGEON.
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 6, 1864.
+# Sermon 3258 | Stumbling at the Word
 
 "And a stone of stumbling, and a rock of offense, even to them which stumble at the Word, being disobedient." 1 Peter 2:8.
 

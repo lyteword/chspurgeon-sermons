@@ -1,12 +1,4 @@
-# The Spiritual Resurrection
-
-(No. 2554)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 30, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, NOVEMBER 18, 1855.
+# Sermon 2554 | The Spiritual Resurrection
 
 "And when He thus had spoken, He cried with a loud voice, Lazarus, come forth. And he that was dead came forth, bound hand and foot with grave clothes: and his face was bound about with a napkin. Jesus sail unto them, Loose him, and let him go." John 11:43, 44.
 

@@ -1,12 +1,4 @@
-# Marah Better Than Elim
-
-(No. 2301)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 26, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 4, 1889.
+# Sermon 2301 | Marah Better Than Elim
 
 "So Moses brought Israel from the Red Sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water. And when they came to Marah, they could not drink of the waters of Marah, for they were bitter: therefore the name of it was called Marah. And the people murmured against Moses, saying, What shall we drink? And he cried unto the LORD; and the LORD showed him a tree, which when he had cast into the waters, the waters were made sweet: there He made for them a statute and an ordinance, and there He proved them, and said, If you will diligently hearken to the voice of the LORD your God, and will do that which is right in His sight, and will give ear to His commandments, and keep all His statutes, I will put none of these diseases upon you, which I have brought upon the Egyptians: for I am the LORD that heals you." Exodus 15:22-26.
 

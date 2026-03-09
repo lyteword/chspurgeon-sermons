@@ -1,12 +1,4 @@
-# Ripe Fruit
-
-(No. 945)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 14, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 945 | Ripe Fruit
 
 "My soul desired the first ripe fruit." Micah 7:1.
 

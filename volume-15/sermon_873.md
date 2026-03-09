@@ -1,7 +1,4 @@
-# Christ Made a Curse for Us
-
-Sermon No. 873 - Delivered on Sunday Morning, MAY 30, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 873 | Christ Made a Curse for Us
 
 "Christ has redeemed us from the curse of the Law, being made a curse for us: for it is written, Cursed is everyone that hangs on a tree."- Galatians 3:13.
 

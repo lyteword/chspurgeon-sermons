@@ -1,12 +1,4 @@
-# "Verily, Verily"
-
-(No. 1642)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 29, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1642 | "Verily, Verily"
 
 "Verily, verily, I say unto you, he that hears My Word, and believes on Him that sent Me, has everlasting life, and shall not come into condemnation but is passed from death unto life." John 5:24.
 

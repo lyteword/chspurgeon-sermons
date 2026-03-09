@@ -1,12 +1,4 @@
-# The Saints' Riches
-
-(No. 3204)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 2, 1862.
+# Sermon 3204 | The Saints' Riches
 
 "He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?" Romans 8:32.
 

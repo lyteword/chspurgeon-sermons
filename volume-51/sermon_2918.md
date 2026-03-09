@@ -1,12 +1,4 @@
-# Facing the Wind
-
-(No. 2918)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 12, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 28, 1876.
+# Sermon 2918 | Facing the Wind
 
 "But you, brethren, be not weary in doing good," 2 Thessalonians 3:13
 

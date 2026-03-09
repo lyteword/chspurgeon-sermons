@@ -1,12 +1,4 @@
-# A Prince and a Savior
-
-(No. 1301)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 25, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1301 | A Prince and a Savior
 
 "Him has God exalted with His right hand to be a Prince and a Savior, for to give repentance to Israel and forgiveness of sins." Acts 5:31.
 

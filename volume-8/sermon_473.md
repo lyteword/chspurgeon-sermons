@@ -1,6 +1,4 @@
-# Good News For You
-
-Sermon No. 473 - Delivered on Sunday Morning, October 5th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 473 | Good News For You
 
 > "But a certain Samaritan, as he journeyed, came where he was."  
 > Luke 10:33.   

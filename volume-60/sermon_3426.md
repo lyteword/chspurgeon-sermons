@@ -1,12 +1,4 @@
-# A Sore Grievance
-
-(No. 3426)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3426 | A Sore Grievance
 
 "They have forgotten their resting place." Jeremiah 50:6.
 

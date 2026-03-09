@@ -1,12 +1,4 @@
-# Joy Hindering Faith
-
-(No. 2279)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 23, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 25, 1890.
+# Sermon 2279 | Joy Hindering Faith
 
 "And while they yet believed not for joy, and wondered, He said unto them, Have you here any meat? And they ga ve Him a piece of a broiled fish, and of an honeycomb. And He took it, and did eat before them. And He said unto them, These are the words which I spoke unto you, while I was yet with you, that all things must be fulfilled, which were written in the Law of Moses, and in the Prophets, and in the Psalms, concerning Me. And He opened their understanding, that they might understand the Scriptures." Luke 24:41-45.
 

@@ -1,6 +1,4 @@
-# The Blood of Sprinkling (Second Sermon.)
-
-Sermon No. 1889 - Delivered on Lord's-day Evening, February 28th, 1886 the REV. C.H. SPURGEON at [2]the Metropolitan Tabernacle, Newington.
+# Sermon 1889 | The Blood of Sprinkling (Second Sermon.)
 
 > "Ye are come . . .. to Jesus the mediator of the new covenant, and to the blood of sprinkling, that speaketh better things than that of Abel. See that ye refuse not him that speaketh."  
 > Hebrews 12:24, 25.  
@@ -100,4 +98,3 @@ PORTION OF SCRIPTURE READ BEFORE SERMON--Hebrews 10.
 
 HYMNS FROM "OUR OWN HYMN BOOK"--302, 294, 580, 288.
 
-See "The Blood of Sprinkling," No. 1,888.

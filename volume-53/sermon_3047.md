@@ -1,12 +1,4 @@
-# If So--what Then?
-
-(No. 3047)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 4, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 15, 1871.
+# Sermon 3047 | If So--what Then?
 
 "If the righteous are scarcely saved, where shall the ungodly and the sinner appear?" 1 Peter 4:18.
 
@@ -108,7 +100,6 @@ I will draw only one more inference from our text and that is a very comforting 
 
 Remember this, if the righteous are only saved with great difficulty, they would never be saved if they did not look right away from themselves to the Lord Jesus Christ. There lies the one hope for sinners and saints--in the finished work of the blessed Redeemer! "I know what you are at," said a good man once to one who was doubting, "Christ has finished the work of salvation, but you are not content with what He has done, so you want to patch it up with something of your own." Come sinners and come saints, back to the foot of that dear Cross where Jesus bought with His own blood the souls of all who believe in Him! let us throw ourselves prostrate before Him and say, "You are all our confidence, our only hope and our full salvation forever and ever. Save us, O Savior! We are sinners and You are the sinners' Friend-- save us now and we shall be saved forever!" Amen, so let it be!
 
-EXPOSITION BY C. H. SPURGEON: ZECHAARIAH8. [See Note to Sermon No. 3045, on Zechariah 8:13.]
 
 Verses 1, 2. Again the word of the LORD of Hosts came to me, saying, Thus says the LORD ofHosts; I was jealous for Zion with great jealousy, and I was jealous for her with great fury. Because they worshipped idols instead of the living God, Jehovah of Hosts, who is a jealous God, was very angry with His ancient people and allowed them to be carried away into captivity. And it is well for us in these days to remember that we serve a jealous God and that if our hearts are not true to Him, He will soon send us sharp afflictions and make us feel the weight of His rod! It was Paul's anxious desire that he might be able to present the Church at Corinth "as a chaste virgin to Christ" and, certainly, our Lord Jesus Christ will not accept the professing Church of these days on any other terms. Let your heart be loyal and true to Him, or else you will stir up the holy jealousy of your God! Yet the same jealousy which makes God punish His people for their unfaithfulness, prompts Him to return to them in love as soon as He sees that He can justly do so. When their enemies have sorely vexed and oppressed them, then is the Lord jealous, not against them, but against their enemies-- and He swiftly returns to His own people in love.
 

@@ -1,12 +1,4 @@
-# The Census of Israel
-
-(No. 2198)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 5, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2198 | The Census of Israel
 
 "These are they that were numbered by Moses and Eleazar, the priest, who numbered the children of Israel in the plains of Moab by Jordan near Jericho. But among these there was not a man ofthem whom Moses and Aaron, the Priest, numbered, when they numbered the children of Israel in the wilderness of Sinai. For the Lordhadsaid of them, They shallsurely die in the wilderness. And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun." Numbers 16:66.
 

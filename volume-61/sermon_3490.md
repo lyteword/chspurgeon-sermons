@@ -1,12 +1,4 @@
-# Sincere Seekers--assured Finders
-
-(No. 3490)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 16, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 26, 1871.
+# Sermon 3490 | Sincere Seekers--assured Finders
 
 "If you seek Him, He will be found of you." 1 Chronicles 28:9.
 

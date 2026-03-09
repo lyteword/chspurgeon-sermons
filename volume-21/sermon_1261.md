@@ -1,12 +1,4 @@
-# Sow To Yourselves
-
-(No. 1261)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 24, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1261 | Sow To Yourselves
 
 "Sow to yourselves in righteousness, reap in mercy." Hosea 10:12.
 

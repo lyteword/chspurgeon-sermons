@@ -1,12 +1,4 @@
-# A Psalmist's Question and Answer
-
-(No. 2792)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 17, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 8TH, 1878.
+# Sermon 2792 | A Psalmist's Question and Answer
 
 "If You, Lord, should mark iniquities, O Lord, who shall stand? But there is forgiveness with You, that You may be feared." Psalm 130:3, 4.
 

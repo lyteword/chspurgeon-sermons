@@ -1,12 +1,4 @@
-# A Cheering Incident at Bethabara
-
-(No. 1924)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1924 | A Cheering Incident at Bethabara
 
 "Therefore they sought again to take Him, but He escaped out of their hands, and went away, again, beyond Jordan into the place where John at first baptized, and there He abode. And many came to Him, and said, John did no miracle: but all things that John spoke of this Man were true. And many believed on Him there." John 10:39-42.
 

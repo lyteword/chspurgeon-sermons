@@ -1,12 +1,4 @@
-# Eternal Life!
-
-(No. 2396)
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 20, 1895,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNAOLE, NEWINOTON, ON LORD'S-DAY EVENING, FEBRUARY 6, 1887.
+# Sermon 2396 | Eternal Life!
 
 "This is life eternal, that they might know You, the only true God, and Jesus Christ, whom You have sent." John 17:3.
 

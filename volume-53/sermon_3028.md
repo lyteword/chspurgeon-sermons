@@ -1,12 +1,4 @@
-# God's Glory Our Rereward
-
-(No. 3028)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 21, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3028 | God's Glory Our Rereward
 
 "The glory of the LORRD shall be your rereward." Isaiah 58:8.
 

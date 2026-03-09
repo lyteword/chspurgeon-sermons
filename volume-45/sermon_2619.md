@@ -1,12 +1,4 @@
-# The Captain of Our Salvation
-
-(No. 2619)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 19, 1882.
+# Sermon 2619 | The Captain of Our Salvation
 
 "For it became Him, for whom are all things, and by whom are all things, in bringing many sons to Glory, to make the Captain of their salvation perfect through sufferings." Hebrews 2:10.
 

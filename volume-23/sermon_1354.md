@@ -1,12 +1,4 @@
-# All Things Are Ready, Come
-
-(No. 1354)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 13, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1354 | All Things Are Ready, Come
 
 "Come, for all things are now ready." Luke 14:17.
 

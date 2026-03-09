@@ -1,12 +1,4 @@
-# The Best Donation
-
-(No. 2234)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 13, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 5, 1891.
+# Sermon 2234 | The Best Donation
 
 "And this they did, not as we hoped, but first gave themselves to the Lord, and unto us by the will of God." 2 Corinthians 8:5.
 

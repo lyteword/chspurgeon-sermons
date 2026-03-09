@@ -1,18 +1,4 @@
-# 6:10
-
-A Heavenly Pattern for Our Earthly Life
-
-A Sermon
-
-(No. 1778)
-
-Preached on Wednesday Morning, April 30th, 1884, By
-
-H. SPURGEON,
-
-At Exeter-Hall
-
-Being the Annual Sermon of the Baptist Missionary Society.
+# Sermon 1778 | 6:10
 
 Thy will be done in earth, as it is in heaven.'Matthew 6:10.
 

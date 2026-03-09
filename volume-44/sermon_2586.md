@@ -1,12 +1,4 @@
-# A Far-reaching Promise
-
-(No. 2586)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 4, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 15, 1883.
+# Sermon 2586 | A Far-reaching Promise
 
 "For the promise is unto you, and to your children, and to all that are afar off, even as many as the Lord our God shall call." Acts 2:39.
 

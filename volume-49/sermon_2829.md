@@ -1,12 +1,4 @@
-# Lowly Service
-
-(No. 2829)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 3, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 12, 1886.
+# Sermon 2829 | Lowly Service
 
 "This is the service of the families, the Gershonites, to serve, and for burdens: and they shall bear the curtains of the tabernacle, and the tabernacle of the congregation, its covering, and the covering of the badgers' skin that is above upon it, and the hanging for the door of the tabernacle of the congregation, and the hangings of the door, and the hanging for the door of the gate of the court, which is by the tabernacle and by the altar round about, and their cords, and all the instruments of their service, and all that is made for them: so shall they serve." Numbers 4:24-26.
 

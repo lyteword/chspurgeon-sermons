@@ -1,12 +1,4 @@
-# Bit and Bridle--How To Escape Them
-
-(No. 2190)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 15, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2190 | Bit and Bridle--How To Escape Them
 
 "I will instruct you and teach you in the way which you shall go: I will guide you with My eyes. Beyou not as the horse, or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near to you." Psalm 32:8,9.
 

@@ -1,12 +1,4 @@
-# Life's Need and Maintenance
-
-(No. 1300)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 18, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1300 | Life's Need and Maintenance
 
 "None can keep alive his own soul" Psalm 22:29.
 

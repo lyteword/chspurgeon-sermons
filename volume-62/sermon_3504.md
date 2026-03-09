@@ -1,18 +1,4 @@
-# Following Christ
-
-A Sermon
-
-(No. 3504)
-
-Published on Thursday, March 23rd, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [12]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, August 22nd, 1889.
+# Sermon 3504 | Following Christ
 
 "And Ittai answered the king, and said, as the Lord liveth, and as my lord the king liveth, surely in what place my lord the king shall be, whether in death or life, even there also will thy servant be."--2 Samuel 15:21.
 

@@ -1,8 +1,5 @@
-# The Mustard Seed: A Sermon for the Sabbath-School Teacher
+# Sermon 2110 | The Mustard Seed: A Sermon for the Sabbath-School Teacher
 
-Sermon No. 2110 - Delivered on Lord's-day Morning, October 20th, 1889 the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
-
-> "Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it? It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it."'Luke 13:18-19.  
 > "Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it? It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it."'Luke 13:18-19.  
 
 I SHALL not attempt fully to explain this great little parable. A full exposition may be left for another occasion. The parable may be understood to relate to our Lord Himself, who is the living seed. You know also how His church is the tree that springs from Him, and how greatly it grows and spreads its branches until it covers the earth. From the one man Christ Jesus, despised and rejected of men, slain and buried, and so hidden away from among men'from Him, I say, there arises a multitude which no one can number. These spread themselves, like some tree which grows by the rivers of waters, and they yielded both gracious shelter and spiritual food. I called it a great little parable, and so it is: it has a world of teaching within the smallest compass. The parable is itself like a grain of mustard seed, but its meanings are as a great tree.

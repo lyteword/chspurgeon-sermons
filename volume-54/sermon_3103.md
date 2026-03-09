@@ -1,12 +1,4 @@
-# A Pastoral Visit
-
-(No. 3103)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 30, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3103 | A Pastoral Visit
 
 "The Church in your house." Philemon 1:2.
 

@@ -1,6 +1,4 @@
-# Labor In Vain
-
-Sermon No. 567 - Delivered on Sunday Morning, May 1st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 567 | Labor In Vain
 
 > "Jonah said unto them, Take me up and cast me forth into the sea; so shall the sea be calm unto you: for I know that for my sake this great tempest is upon you. Nevertheless the men rowed hard to bring it to the land. But they could not: for the sea worked and was tempestuous against them."  
 > Jonah 1:12,13.  

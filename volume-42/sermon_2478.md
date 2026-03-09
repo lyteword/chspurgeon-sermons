@@ -1,12 +1,4 @@
-# Christ's Perfection and Precedence
-
-(No. 2478)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 16, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1869.
+# Sermon 2478 | Christ's Perfection and Precedence
 
 "My Beloved is white and ruddy, the chiefest among ten thousand." Song of Solomon 5:10.
 

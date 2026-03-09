@@ -1,12 +1,4 @@
-# The Danger of Unconfessed Sin
-
-(No. 1366)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1366 | The Danger of Unconfessed Sin
 
 "When I kept silence, my bones waxed old through my roaring all the daylong." Psalm 32:3.
 

@@ -1,6 +1,4 @@
-# A Young Man's Vision
-
-Sermon No. 806 - Delivered on Thursday evening, April 16, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle. Being the Annual Sermon of the Young Men's Association in Aid of the Baptist Missionary Society.
+# Sermon 806 | A Young Man's Vision
 
 > "Your young men shall see visions.'"  
 > Acts 2:17.  

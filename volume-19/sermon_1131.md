@@ -1,12 +1,4 @@
-# Clearing the Road to Heaven
-
-(No. 1131)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1131 | Clearing the Road to Heaven
 
 "Gather out the stones." Isaiah 62:10.
 

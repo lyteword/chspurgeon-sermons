@@ -1,12 +1,4 @@
-# "There Is No Difference"
-
-(No. 2608)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 5, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 28, 1883.
+# Sermon 2608 | "There Is No Difference"
 
 "The righteousness of God through faith in Jesus Christ unto ail and upon all them that believe: for there is no difference: for all have sinned, and come short of the glory of God." Romans 3:22,23.
 
@@ -64,9 +56,7 @@ I rejoice over the fact that there is no difference, in the matters of which I h
 
 But there is something better than that. What glory it is to the Lord Jesus Christ that He should be the only Savior and that faith in Him should be the only way of salvation! I feel sure that we do not wish the Lord Jesus Christ to be put into competition with someone else in His work as our Savior. No, we want our Lord to have the monopoly in this matter and He has it! None can be saved except by faith in Him, by the application of His precious blood, glory be to His holy name! I feel a very peculiar joy over this Truth of God. I was thinking, as I came along to this service, "Suppose I had to preach a different gospel for every man?" There is a little book entitled, Every man his own lawyer. Well, nowadays, according to some people, it seems as if every man is to be his own savior! But if I had, say, a dozen gospels, and I had to sort them out and give the right gospel to the right man, what a fix I would be in! I believe that, oftentimes, I should be giving your gospel to someone else and someone else's gospel to you--and what a muddle it would all be! But now we have one universal cure! We have a Divine catholicon. The blood and righteousness of Jesus Christ will save every man who trusts Him, for "there is no difference."
 
-Wherever Christ is received, there shall be salvation. This makes it easy work for the preacher and what a blessing it is to you who are Believers, for, suppose you had to say, "Well, I have believed in such-and-such a salvation," but somebody might say, "That will not save you! You are a No. 2 man and you need No. 2 gospel, not No. 1." Suppose you should lay hold of that and one of these days your conscience should say to you, "No. 2 is not the medicine that you need, you ought to have No. 6." Suppose that it ran up to No. 14, No. 17, or No. 20? Why, when you lay dying, you might say, "I have taken the remedy No. 1, but I am afraid that I am a No.20 man. I took this one and it did give me some kind of relief, but I am afraid that I took the wrong medicine." But now it is one medicine for every disease--one Christ for every sinner--one blood with which to wash us--one salvation with which to rescue us--one righteousness with which to cover us! Therefore, such doubts as I have just mentioned can never come into the minds of those who believe in Jesus--blessed be God for that!
 
-And so to you, dear Hearers, who are seeking after Christ, is it not a great mercy that there is but one name whereby you can be saved? Otherwise the same awkward occurrence might happen to you and you would be saying, "At which door am I to go in?" You might get to the wrong entrance and the man in charge of it might say, "This is not the door for you. You have come to the wrong one, you must go to No. 6, or 7, or 8." How puzzled we are when we go to Clap-ham Junction, or some such railway station, to know which staircase we are to go up--and a poor sinner would be much in the same kind of worry to know which way he was to be saved. But when it is just this, "Believe and be saved; look and live; trust yourself to Christ, rest in His atoning Sacrifice and you are saved"--all can understand it!
 
 When God gives us, by His Spirit, a simple faith in Jesus, we at once receive eternal life--and every soul that believes in Jesus Christ has that life. I pray God to bless this message to you who are still unsaved. Quarrel not with your only hope of salvation! Accept what God provides! Yield yourselves to the Divine decree, for God has decreed that no soul shall enter Heaven but by His Son, "the Way, the Truth and the Life." This name--this one name--you must rely on if you would be saved! This way--this one way--you must run in if you would enter Heaven! God help you to enter it at once, for our Lord Jesus Christ's sake! Amen.
 

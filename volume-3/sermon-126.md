@@ -1,6 +1,4 @@
-# Justification by Grace
-
-Sermon No. 126 - Delivered on Sabbath Morning, April 5, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 126 | Justification by Grace
 
 > Being justified freely by his grace, through the redemption that is in Christ Jesus.    
 > Rom. 3:24.    

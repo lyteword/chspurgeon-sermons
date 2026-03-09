@@ -1,12 +1,4 @@
-# The Healing of One Born Blind
-
-(No. 1065)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 11 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1065 | The Healing of One Born Blind
 
 "Since the world began was it not heard that any man opened the eyes of one that was born blind." John 9:32.
 

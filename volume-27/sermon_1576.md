@@ -1,12 +1,4 @@
-# The Throne of God and of the Lamb
-
-(No. 1576)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1576 | The Throne of God and of the Lamb
 
 "The Throne of God and of the Lamb shall be in it." Revelation 22:3.
 

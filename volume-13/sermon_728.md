@@ -1,7 +1,4 @@
-# Good Cheer for the New Year
-
-Sermon No. 728 - Delivered on Lord's-day Morning, JANUARY 6, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 728 | Good Cheer for the New Year
 
 "The eyes of the Lord your God are always upon it, from the beginning of the year even unto the end of the year."- Deuteronomy 11:12.
 

@@ -1,12 +1,4 @@
-# Truly Eating the Flesh of Jesus
-
-(No. 1288)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 9, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1288 | Truly Eating the Flesh of Jesus
 
 "Then Jesus said unto them, Verily, verily, I say unto you, Except you eat the flesh of the Son of Man and drink His blood, you have no life in you. Whoever eats My flesh and drinks My blood has eternal life, and I will raise him up at the last day. For My flesh is meat, indeed, and My blood is drink indeed. He that eats My flesh, and drinks My blood, dwells in Me, and I in him." John 6:53-56.
 

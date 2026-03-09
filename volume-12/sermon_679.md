@@ -1,6 +1,4 @@
-# The Amen
-
-Sermon No. 679 - Delivered on Sunday Morning, March 4th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 679 | The Amen
 
 > "The Amen."  
 > Revelation 3:14.  

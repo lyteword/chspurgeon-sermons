@@ -1,6 +1,4 @@
-# The Holy Spirit and the One Church
-
-Sermon No. 167 - Delivered on Sabbath Morning, December 13, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 167 | The Holy Spirit and the One Church
 
 > These be they who separate themselves, sensual, having not the Spirit.    
 > Jude 1:19.    

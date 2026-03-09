@@ -1,16 +1,4 @@
-# The Battle of Life
-
-A Sermon
-
-(No. 3511)
-
-Published on Thursday, May 11th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [19]the Metropolitan Tabernacle, Newington.
+# Sermon 3511 | The Battle of Life
 
 "Who goeth a warfare any time at his own charges?"--1 Cor. 9:7.
 

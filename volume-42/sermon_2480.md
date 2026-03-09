@@ -1,12 +1,4 @@
-# The Tender Grapes
-
-(No. 2480)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 30, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1880.
+# Sermon 2480 | The Tender Grapes
 
 "The vines with the tender grape give a good smell." Song of Solomon 2:13.
 

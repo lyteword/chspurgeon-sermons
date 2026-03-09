@@ -1,12 +1,4 @@
-# Soul Saving Our One Business
-
-(No. 1507)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1507 | Soul Saving Our One Business
 
 "I am made all things to all men, that I might by all means save some." 1 Corinthians 9:22.
 

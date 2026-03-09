@@ -1,12 +1,4 @@
-# Christ and His Table Companions
-
-(No. 3107)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3107 | Christ and His Table Companions
 
 "And when the hour was come, He sat down, and the twelve Apostles with Him." Luke 22:14.
 

@@ -1,12 +1,4 @@
-# "Take, Eat"
-
-(No. 2350)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 4, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, JANUARY 8, 1888.
+# Sermon 2350 | "Take, Eat"
 
 "And as they were eating, Jesus took bread, and blessed it, and broke it, and gave it to the disciples, and said, Take, eat; this is My body." Matthew 26:26.
 

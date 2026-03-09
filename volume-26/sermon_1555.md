@@ -1,12 +1,4 @@
-# The Glories of Forgiving Grace
-
-(No. 1555)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 29, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1555 | The Glories of Forgiving Grace
 
 "In whom we have redemption through His blood, the forgiveness of sins, according to the riches of His Grace." Ephesians 1:7.
 

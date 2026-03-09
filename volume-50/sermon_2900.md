@@ -1,12 +1,4 @@
-# How God Comes to Man
-
-(No. 2900)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 8, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 13, 1876.
+# Sermon 2900 | How God Comes to Man
 
 "And they heard the voice of the LORD God walking in the garden in the cool of the day: and Adam and his wife hid themselves from the Presence ofthe LORD God among the trees of the garden. And the LORD God called unto Adam, and said unto him, Where are you?" Genesis 3:8,9.
 

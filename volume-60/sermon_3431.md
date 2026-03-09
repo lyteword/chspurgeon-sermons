@@ -1,12 +1,4 @@
-# The King Passing Over Kidron
-
-(No. 3431)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 18 1869.
+# Sermon 3431 | The King Passing Over Kidron
 
 "The king, himself, also passed over the Brook Kidron." 2 Samuel 15:23.
 

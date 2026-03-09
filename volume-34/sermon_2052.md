@@ -1,6 +1,4 @@
-# On His Breast
-
-Sermon No. 2052 - Delivered on Sunday Morning, November 18th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2052 | On His Breast
 
 > "Now there was leaning on Jesus 'bosom one of His disciples, whom Jesus loved. Simon Peter therefore beckoned to him, that he should ask who it should be of whom He spoke. He then lying on Jesus 'breast said unto Him, Lord, who is it? Jesus answered, He it is to whom I shall give a sop, when I have dipped it. And when he had dipped the sop, he gave it to Judas Iscariot, the son of Simon."  
 > John 13:23-26.  

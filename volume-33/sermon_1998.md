@@ -1,6 +1,4 @@
-# Not Bound Yet
-
-Sermon No. 1998 - Delivered on Sunday Morning, December 18th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1998 | Not Bound Yet
 
 > "Wherein I suffer trouble, as an evil doer, even unto bonds; but the Word of God is not bound."  
 > 2 Timothy 2:9.  

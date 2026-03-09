@@ -1,7 +1,4 @@
-# Footsteps Of Mercy
-
-Sermon No. 905 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 905 | Footsteps Of Mercy
 
 "If there is a messenger with him, an interpreter, one among a thousand, to show unto men His uprightness: Then He is gracious unto him and says, Deliver him from going down to the Pit: I have found a ransom."- Job 33:23,24.
 

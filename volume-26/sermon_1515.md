@@ -1,12 +1,4 @@
-# A Woman of a Sorrowful Spirit
-
-(No. 1515)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1515 | A Woman of a Sorrowful Spirit
 
 "Hannah answered and said, No, my lord, I am a woman of a sorrowful spirit." 1 Samuel 1:15.
 

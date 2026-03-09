@@ -1,6 +1,4 @@
-# Infant Salvation
-
-Sermon No. 411 - Delivered on Sunday Morning, September 29th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 411 | Infant Salvation
 
 > "Is it well with the child? And she answered, It is well"  
 > 2 Kings 4:26.  

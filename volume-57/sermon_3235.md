@@ -1,12 +1,4 @@
-# The Hope That Purifies
-
-(No. 3235)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 2, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3235 | The Hope That Purifies
 
 "And every man that has this hope in Him purifies himself, even as He is pure." 1 John 3:3.
 

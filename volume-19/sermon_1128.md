@@ -1,12 +1,4 @@
-# Love's Crowning Deed
-
-(No. 1128)
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, AUGUST 24, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1128 | Love's Crowning Deed
 
 "Greater love has no man than this, that a man lay down his life for his friends." John 15:13.
 

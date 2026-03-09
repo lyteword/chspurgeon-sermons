@@ -1,12 +1,4 @@
-# Observing the King's Word
-
-(No. 2853)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 21, 1877.
+# Sermon 2853 | Observing the King's Word
 
 "Now the men did diligently observe whether anything would come from him, and did hastily catch it." 1 Kings 20:33.
 

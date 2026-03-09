@@ -1,12 +1,4 @@
-# Providence--as Seen in the Book of Esther
-
-(No. 1201)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1201 | Providence--as Seen in the Book of Esther
 
 "Though it was turned to the contrary, that the Jews had rule over them that hated them." Esther 9:1.
 

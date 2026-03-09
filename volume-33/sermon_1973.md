@@ -1,6 +1,4 @@
-# God's Nearness To Us
-
-Sermon No. 1973 - Delivered on Sunday Morning, July 17th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1973 | God's Nearness To Us
 
 > "Though He is not far from each one of us."  
 > Acts 17:27.  

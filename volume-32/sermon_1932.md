@@ -1,12 +1,4 @@
-# Love's Law and Life
-
-(No. 1932)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 5, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 30, 1886.
+# Sermon 1932 | Love's Law and Life
 
 "If you love Me, keep My commandments." John 14:15.
 

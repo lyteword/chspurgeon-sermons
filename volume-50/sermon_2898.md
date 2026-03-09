@@ -1,12 +1,4 @@
-# The Search Warrant
-
-(No. 2898)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 25, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
+# Sermon 2898 | The Search Warrant
 
 "But there are some of you that believe not." John 6:64.
 

@@ -1,7 +1,4 @@
-# Leaning On Our Beloved
-
-Sermon No. 877 - Delivered on Sunday Morning, JUNE 20, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 877 | Leaning On Our Beloved
 
 "Who is this that comes up from the wilderness, leaning upon her Beloved?"- Song of Solomon 8:5.
 
@@ -41,7 +38,6 @@ The instincts which lead us to preserve our uprightness would not permit us to l
 
 real than anything which the senses can perceive. Christ Jesus is with you. Though you hear not His voice and see not His face--He is with you. Try to grasp that Truth of God and to realize it clearly, for you will never lean until you do.
 
-Leaning also implies nearness. We cannot lean on that which is far off and unapproachable. Now, it is a delightful help to us in believing repose if we can understand that Christ is not only with us, but to an intense degree near us. I love that hymn we sang just now ["Condescending Love," No. 784, in Our Own Hymn-Book.] concerning our Lord's coming near to us and making His name a common word among us. The Christ of a great many professors is only fit to occupy a niche on the Church wall, as a dead, inactive, but revered person. Jesus is not a real Christ to many, he is not a Christ who can really befriend them in the hour of grief. He is not a Brother born for adversity, not a condescending Companion.
 
 But the Christ of the well-taught Christian is one that lives and was dead and is alive forevermore--a sympathizing, practical Friend who is actually near, entering into our sorrows, sharing in our crosses and taking a part with us in all the battle of life. Come, child of God, see that it is thus with you. Realize Christ, first, and then believe that He is nearer to you than friend or kinsman can be, for He pours His counsels right into your heart--being so near that at times when your secret trouble cannot be shared by any mortal--it is shared by Him. He is so near that when your heart's inmost recesses must necessarily be locked up to all other sympathy, those recesses are all open to His tenderness. He is so near to you that you abide in Him and He abides in you! A sacred unity exists between you and Him, so that you drink of His cup and are baptized with His baptism and in all your sorrows and your afflictions He Himself does take His share.
 

@@ -1,6 +1,4 @@
-# The Root That Bears Wormwood
-
-Sermon No. 723 - Delivered on Sunday Morning, December 2nd, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 723 | The Root That Bears Wormwood
 
 > "Lest there should be among you a root that bears gall and wormwood."  
 > Deuteronomy 29:18.  

@@ -1,6 +1,4 @@
-# Sweet Comfort for Feeble Saints
-
-Sermon No. 6 - Delivered on Sabbath Morning, February 4, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 6 | Sweet Comfort for Feeble Saints
 
 > A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory    
 > Matthew 12:20.    

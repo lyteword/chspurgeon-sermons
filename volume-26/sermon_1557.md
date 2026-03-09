@@ -1,12 +1,4 @@
-# Walking Humbly With God
-
-(No. 1557)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1557 | Walking Humbly With God
 
 "He has shown you, O man, what is good; and what does the Lord require of you, but to do justly and to love mercy and to walk humbly with your God?" Micah 6:8.
 

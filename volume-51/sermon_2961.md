@@ -1,12 +1,4 @@
-# "Heirs of God"
-
-(No. 2961)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 22, 1875.
+# Sermon 2961 | "Heirs of God"
 
 "And if children, then heirs; heirs of God and joint-heirs with Christ." Romans 8:17.
 

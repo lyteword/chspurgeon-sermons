@@ -1,12 +1,4 @@
-# Sowing in the Wind, Reaping Under Clouds
-
-(No. 2264)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 10, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 3, 1890.
+# Sermon 2264 | Sowing in the Wind, Reaping Under Clouds
 
 "He that observes the wind shall not sow; and he that regards the clouds shall not reap." Ecclesiastes 11:4.
 

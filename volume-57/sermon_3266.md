@@ -1,12 +1,4 @@
-# The Priesthood of Believers
-
-(No. 3266)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 28, 1864.
+# Sermon 3266 | The Priesthood of Believers
 
 "An holy priesthood." 1 Peter 2:5.
 

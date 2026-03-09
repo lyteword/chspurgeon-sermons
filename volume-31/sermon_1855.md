@@ -1,12 +1,4 @@
-# What is the Verdict?
-
-(No. 1855)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 16, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1855 | What is the Verdict?
 
 "Beloved, if our heart condemns us not, then have we confidence toward God." 1 John 3:21.
 

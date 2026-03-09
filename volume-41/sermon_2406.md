@@ -1,12 +1,4 @@
-# An Appeal to Children of Godly Parents
-
-(No. 2406)
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 31, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 27, 1887.
+# Sermon 2406 | An Appeal to Children of Godly Parents
 
 "My son, keep your father's commandment, and forsake not the law of your mother: bind them continually upon your heart, and tie them about your neck. When you go, it shall lead you; when you sleep, it shall keep you; and when you awake, it shall talk with you. For the commandment is a lamp; and the law is light; and reproofs of instruction are the way of life." Proverbs 6:20-23.
 

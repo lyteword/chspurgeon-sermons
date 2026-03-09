@@ -1,12 +1,4 @@
-# The Unfailing Help
-
-(No. 3162)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 16, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 20, 1873.
+# Sermon 3162 | The Unfailing Help
 
 "And the King said, If the Lord does not help you, where can I find help for you? From the threshing floor, or from the winepress?" 2 Kings 6:27.
 

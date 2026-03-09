@@ -1,12 +1,4 @@
-# How to Please God
-
-(No. 2513)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 18, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 20, 1885.
+# Sermon 2513 | How to Please God
 
 "But without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him." Hebrews 11:6.
 

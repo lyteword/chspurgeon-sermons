@@ -1,12 +1,4 @@
-# Gratitude For Deliverance from the Grave
-
-(No. 2237)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON,
+# Sermon 2237 | Gratitude For Deliverance from the Grave
 
 "I shall not die, but live, and declare the works of the Lord. The Lord has chastened me sorely: but He has not given me over unto death." Psalm 118:17,18.
 

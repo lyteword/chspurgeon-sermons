@@ -1,12 +1,4 @@
-# "I and the Children"
-
-(No. 1194)
-
-DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 20, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1194 | "I and the Children"
 
 "Behold, Iand the children whom the Lord has given me are for signs and for wonders in Israel from the Lord of Hosts, which dwells in Mount Zion." Isaiah 8:18.
 

@@ -1,12 +1,4 @@
-# Christ's Prayer and Plea
-
-(No. 3280)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 18, 1866.
+# Sermon 3280 | Christ's Prayer and Plea
 
 "Preserve Me, O God: for in You do Iput My trust." Psalm 16:1.
 

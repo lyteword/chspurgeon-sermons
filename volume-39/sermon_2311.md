@@ -1,12 +1,4 @@
-# Our Lord's Last Cry from the Cross
-
-(No. 2311)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 4, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITATN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 9, 1889.
+# Sermon 2311 | Our Lord's Last Cry from the Cross
 
 "And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost." Luke 23:46.
 

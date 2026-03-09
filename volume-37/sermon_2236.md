@@ -1,12 +1,4 @@
-# Prodigal Love for the Prodigal Son
-
-(No. 2236)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 27, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 29, 1891.
+# Sermon 2236 | Prodigal Love for the Prodigal Son
 
 "And kissed him." Luke 15:20.
 

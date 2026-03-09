@@ -1,12 +1,4 @@
-# Longing To Find God
-
-(No. 2272)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 4, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 14, 1890.
+# Sermon 2272 | Longing To Find God
 
 "Oh, that I knew where I might find Him!" Job 23:3.
 

@@ -1,12 +1,4 @@
-# "Marvelous Loving Kindness"
-
-(No. 2702)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 25, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 20, 1881.
+# Sermon 2702 | "Marvelous Loving Kindness"
 
 "Show Your marvelous loving kindness." Psalm 17:7.
 

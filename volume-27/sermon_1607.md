@@ -1,12 +1,4 @@
-# The Swiftly Running Word
-
-(No. 1607)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1607 | The Swiftly Running Word
 
 "His Word runs very swiftly." Psalms 147:15.
 

@@ -1,12 +1,4 @@
-# The Preservation of Christians in the World
-
-(No. 2703)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 2D, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE YEAR 1855.
+# Sermon 2703 | The Preservation of Christians in the World
 
 "I pray not that You should take them out of the world, but that You should keep them from the evil." John 17:15.
 

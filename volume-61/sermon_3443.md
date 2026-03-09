@@ -1,12 +1,4 @@
-# Seeing Jesus
-
-(No. 3443)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 9, 1896.
+# Sermon 3443 | Seeing Jesus
 
 "Yet a little while, and the world sees Me no more; but you see Me." John 14:19.
 

@@ -1,12 +1,4 @@
-# The Wide-open Mouth Filled
-
-(No. 2879)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 14, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE PASTOR'S COLLEGE CONFERENCE, ON FRIDAY MORNING, APRIL 7, 1876.
+# Sermon 2879 | The Wide-open Mouth Filled
 
 "I am the Lord your God, which brought you out of the land of Egypt: open your mouth wide, and I will fill it." Psalm 81:10.
 

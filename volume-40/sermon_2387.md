@@ -1,12 +1,4 @@
-# Good Advice For Troublous Times
-
-(No. 2387)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 18, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 9, 1888.
+# Sermon 2387 | Good Advice For Troublous Times
 
 "Come, My people, enter your chambers, and shut your doors behind you: hide yourself, as it were, for a little moment, until the indignation is past." Isaiah 26:20.
 

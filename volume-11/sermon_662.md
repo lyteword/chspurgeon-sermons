@@ -1,6 +1,4 @@
-# Consolation In The Furnace
-
-Sermon No. 662 - Delivered on Sunday Morning, November 26th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 662 | Consolation In The Furnace
 
 > He answered and said, Lo, I see four men loose, walking in the midst of the fire and they have no hurt. And the form of the fourth is like the Son of God.    
 > Daniel 3:25.    

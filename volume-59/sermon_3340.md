@@ -1,12 +1,4 @@
-# "Take Away the Frogs"
-
-(No. 3340)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 6, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3340 | "Take Away the Frogs"
 
 "Then Pharaoh called for Moses and Aaron, and said, Entreat the Lord, that He may take away the frogs from me, and from my people; and I will let the people go, that they may do sacrifice unto the Lord." Exodus 8:8.
 

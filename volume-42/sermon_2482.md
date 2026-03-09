@@ -1,12 +1,4 @@
-# An Unparalleled Cure
-
-(No. 2482)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 13, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1886.
+# Sermon 2482 | An Unparalleled Cure
 
 "As they went out, behold, they brought to Him a dumb man possessed with a devil. And when the devil was cast out, the mute spoke: and the multitudes marveled, saying, It was never seen like this in Israel" Matthew 9:32,33.
 

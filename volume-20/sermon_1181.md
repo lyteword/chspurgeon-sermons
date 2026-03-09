@@ -1,12 +1,4 @@
-# Thinking and Turning
-
-(No. 1181)
-
-ASERMON DELIVERED ON LORD'S-DAY MORNING, JULY 5, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1181 | Thinking and Turning
 
 "I thought on my ways, and turned my feet unto Your testimonies" Psalm 119:59.
 

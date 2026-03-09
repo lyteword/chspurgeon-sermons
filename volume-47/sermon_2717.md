@@ -1,12 +1,4 @@
-# Man's Extremity, God's Opportunity
-
-(No. 2717)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 10, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 25, 1880.
+# Sermon 2717 | Man's Extremity, God's Opportunity
 
 "For the LORRD shall judge His people, and repent Himself for His servants, when He sees that their power is gone, and there is none shut up, or left." Deuteronomy 32:36
 

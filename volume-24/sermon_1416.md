@@ -1,12 +1,4 @@
-# The Faithful Saying
-
-(No. 1416)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 26, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1416 | The Faithful Saying
 
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." 1 Timothy 1:15.
 

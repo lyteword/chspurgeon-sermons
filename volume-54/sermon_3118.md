@@ -1,12 +1,4 @@
-# What Had Become of Peter?
-
-(No. 3118)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE PULPIT, NEWINGTON.
+# Sermon 3118 | What Had Become of Peter?
 
 "Now as soon as it was day, there was no small stir among the soldiers about what had become of Peter." Acts 12:18.
 

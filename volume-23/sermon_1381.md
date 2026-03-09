@@ -1,12 +1,4 @@
-# A Sunday School Sermon
-
-(No. 1381)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 28, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1381 | A Sunday School Sermon
 
 "He shall gather the lambs with His arm, and carry them in His bosom." Isaiah 40:11.
 

@@ -1,6 +1,4 @@
-# The Only Atoning Priest
-
-Sermon No. 1034 - Delivered on Lord's Day Morning, February 4th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1034 | The Only Atoning Priest
 
 'And every priest standeth daily ministering and offering oftentimes the same sacrifices, which can never take away sins: But this man, after he had offered one sacrifice for sins for ever, sat down on the right hand of God: From henceforth expecting till his enemies be made his footstool. For by one offering he hath perfected for ever them that are sanctified.''Hebrews 10:11-14.
 

@@ -1,12 +1,4 @@
-# A Memorable Interview
-
-(No. 3541)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3541 | A Memorable Interview
 
 "Then He said to Thomas, Reach here your finger, and behold My hands; and reach here your hand, and thrust it into My side; and be not faithless, but believing. And Thomas answered, and said unto Him, My Lord and my God." John 20:27,28.
 

@@ -1,12 +1,4 @@
-# The Law's Failure and Fulfillment
-
-(No. 2228)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 1, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 1, 1891.
+# Sermon 2228 | The Law's Failure and Fulfillment
 
 "For what the Law could not do, in that it was weak through the flesh, God, sending His own Son in the likeness of sinful flesh and for sin, condemned in the flesh. That the righteousness of the Law might be fulfilled in us, who walk not after the flesh, but after the Spirit." Romans 8:3,4.
 

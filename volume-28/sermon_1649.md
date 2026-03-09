@@ -1,12 +1,4 @@
-# Freshness
-
-(No. 1649)
-
-DELIVERED ON THURSDAY EVENING, FEBRUARY 16, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1649 | Freshness
 
 "My glory was fresh in me, and my bow was renewed in my hand." Job 29:20.
 

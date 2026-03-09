@@ -1,12 +1,4 @@
-# Surveying the Field
-
-(No. 3364)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 24, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 7, 1867.
+# Sermon 3364 | Surveying the Field
 
 "And I arose in the night, I and some few men with me: neither told I any man what Godhadput into my heart to do at Jerusalem: neither was there any beast with me, save the beast that I rode upon." Nehemiah 2:12.
 

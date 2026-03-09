@@ -1,12 +1,4 @@
-# The Last Sermon for the Year
-
-(No. 2445)
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 29, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 26, 1869.
+# Sermon 2445 | The Last Sermon for the Year
 
 "Give an account of your stewardship, for you may no longer be steward." Luke 16:2.
 

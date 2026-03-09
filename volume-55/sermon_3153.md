@@ -1,12 +1,4 @@
-# Paul Cheered in Prison by His Lord
-
-(No. 3153)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 15, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3153 | Paul Cheered in Prison by His Lord
 
 "And when there arose a great dissension, the chief captain, fearing lest Paul should have been pulled in pieces by them, commanded the soldiers to go down and to take him by force from among them, and to bring him into the castle. And the following night the Lord stood by him and said, Be of good cheer, Paul: for as you have testified of Me in Jerusalem, so must you bear witness also at Rome. And when it was day, certain of the Jews banded together and bound themselves under a curse, saying that they would neither eat nor drink till they had killed Paul. And they were more than forty which had made this conspiracy." Acts 23:10-13.
 

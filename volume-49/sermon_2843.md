@@ -1,12 +1,4 @@
-# The Seed by the Wayside
-
-(No. 2843)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 9, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 13, 1888.
+# Sermon 2843 | The Seed by the Wayside
 
 "As he sowed, some fell by the wayside; and it was trodden down, and the fowls of the air devoured it." Luke 8:5.
 

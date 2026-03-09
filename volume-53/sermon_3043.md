@@ -1,12 +1,4 @@
-# Filling Up the Measure of Iniquity
-
-(No. 3043)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 6, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 8, 1871.
+# Sermon 3043 | Filling Up the Measure of Iniquity
 
 "The iniquity of the Amorites is not yet full." Genesis 15:16.
 

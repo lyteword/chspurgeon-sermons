@@ -1,6 +1,4 @@
-# Not Now, But Hereafter!
-
-Sermon No. 410 - Delivered on Sunday Morning, September the 22nd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 410 | Not Now, But Hereafter!
 
 > "Have ye not asked them that go by the way? and do ye not know their tokens, that the wicked is reserved to the day of destruction? they shall be brought forth to the day of wrath. Who shall declare his way to his face? and who shall repay him what he hath done?"  
 > Job 21:29-31.  

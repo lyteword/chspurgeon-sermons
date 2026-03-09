@@ -1,16 +1,7 @@
-# God's Love to the Saints
-
-(No. 2959)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 11, 1875.
+# Sermon 2959 | God's Love to the Saints
 
 "Hereby perceive we the love of God, because He laid down His life for us." 1 John 3:16.
 
-[Also see Sermon No. 2958, Volume 51-- "The Saints' Love to God"]
 
 TRUE love cannot long be dormant. It is like fire of an active nature--it must be at work. Love longs for expression--it cannot be dumb. Command it to be without expression and you command it not to live. And true love is not satisfied with expressing itself in words. It does use words, but it is painfully conscious of their feebleness, for the full meaning of love is not to be conveyed in any human language. It breaks the backs of words and crushes them to atoms when it lays upon them all that it means. Love must express itself in deeds, as our old proverb says, "Actions speak more loudly than words." Love delights, too, in sacrifices. She rejoices in self-denials and the more costly the sacrifice, the better is love pleased to make it. She will not offer that which costs her nothing--she loves to endure pain, losses and crosses--and thus she expresses herself best.
 

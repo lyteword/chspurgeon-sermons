@@ -1,12 +1,4 @@
-# Earth's Vanities and Heaven's Verities
-
-(No. 2346)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 4, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING NOVEMBER 7, 1889.
+# Sermon 2346 | Earth's Vanities and Heaven's Verities
 
 "Surely every man walks in a vain show: surely they are disquieted in vain: he heaps up riches and knows not who shall gather them. And now, Lord, what wait I for? My hope is in You. Deliver me from all my transgressions: make me not the reproach of the foolish." Psalm 39:6-8.
 

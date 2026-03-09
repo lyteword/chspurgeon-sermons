@@ -1,12 +1,4 @@
-# Prayer Found in the Heart
-
-(No. 2869)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 16, 1876.
+# Sermon 2869 | Prayer Found in the Heart
 
 "Therefore has Your servant found in his heart to pray this prayer unto You." 2 Samuel 7:27.
 

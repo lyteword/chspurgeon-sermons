@@ -1,6 +1,4 @@
-# Life In Earnest
-
-Sermon No. 433 - Delivered on Sunday Morning, February 2nd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 433 | Life In Earnest
 
 > "He did it with all his heart and prospered."  
 > 2 Chronicles 31:21.   

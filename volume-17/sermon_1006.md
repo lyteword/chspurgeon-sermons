@@ -1,6 +1,4 @@
-# Christ Is All
-
-Sermon No. 1006 - Delivered on Lord's-day Morning, August 20th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1006 | Christ Is All
 
 > "Christ is all in all."  
 > Colossians 3:11.  

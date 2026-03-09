@@ -1,12 +1,4 @@
-# Prayer, The Cure for Care
-
-(No. 2351)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 11, 1984.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 12, 1888.
+# Sermon 2351 | Prayer, The Cure for Care
 
 "Be careful for nothing; but in everything, by prayer and supplication, with thanksgiving, let your requests be made kno wn unto God. And the peace of God, which passes all understanding, shall keep your hearts and minds through Christ Jesus." Philippians 4:6, 7.
 

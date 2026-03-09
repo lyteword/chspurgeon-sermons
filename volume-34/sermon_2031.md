@@ -1,6 +1,4 @@
-# David Dancing Before the Ark Because of His Election
-
-Sermon No. 2031 - Delivered on Sunday Morning, July 1st, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2031 | David Dancing Before the Ark Because of His Election
 
 > "Then David returned to bless his household. And Michal the daughter of Saul came out to meet Da vid and said, How glorious was the king of Israel today, who uncovered himself today in the eyes of the handmaids of his servants, as one of the vain fellows shamelessly uncovers himself! And David said unto Michal, It was before the Lord, which chose me before your father and before all his house, to appoint me ruler over the people of the Lord, over Israel: therefore will I play before the Lord. And I will yet be more vile than thus and will be base in my own sight: and of the maidservants which you have spoken of, of them shall I be had in honor."  
 > 2 Samuel 6:20-22.  

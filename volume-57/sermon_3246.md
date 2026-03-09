@@ -1,12 +1,4 @@
-# God's Thoughts and Ours
-
-(No. 3246)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 20, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 19, 1868.
+# Sermon 3246 | God's Thoughts and Ours
 
 "How precious also are Your thoughts unto me, O God! How great is the sum of them!" Psalm 139:17.
 

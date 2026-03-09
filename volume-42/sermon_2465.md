@@ -1,12 +1,4 @@
-# Our Omnipotent Leader
-
-(No. 2465)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 17, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 29, 1886.
+# Sermon 2465 | Our Omnipotent Leader
 
 "And Jesus came and spoke to them, saying, All power is given to Me in Heaven and on earth." Matthew 28:18.
 

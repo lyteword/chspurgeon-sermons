@@ -1,8 +1,4 @@
-# Good Cheer for Christians
-
-A Sermon (No. 846)
-
-delivered on Lord's-Day Morning, December 20, 1868, by C. H. SPURGEON, at the [51]Metropolitan Tabernacle, Newington.
+# Sermon 846 | Good Cheer for Christians
 
 "And in this mountain shall the Lord of hosts make unto all people a feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well-refined.'" Isaiah 25:6.
 

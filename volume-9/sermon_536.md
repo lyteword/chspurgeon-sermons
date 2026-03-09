@@ -1,6 +1,4 @@
-# Jehovah-Shammah
-
-Sermon No. 536 - Delivered on Sunday Morning, October 25th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 536 | Jehovah-Shammah
 
 > "Whereas the Lord was there."  
 > Ezekiel 35:10.  

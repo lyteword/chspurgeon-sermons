@@ -1,6 +1,4 @@
-# Love
-
-Sermon No. 229 - Delivered on Sabbath Morning, December 19th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 229 | Love
 
 > We love him, because he first loved us.    
 > 1 John 4:19.    

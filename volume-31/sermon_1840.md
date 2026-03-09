@@ -1,12 +1,4 @@
-# The Bond of the Covenant
-
-(No. 1840)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 10, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1840 | The Bond of the Covenant
 
 "And I will bring you out from the people, and will gather you out of the countries where you are scattered, with a mighty hand, and with an outstretched arm, and with fury poured out. And I will bring you into the wilderness of the people, and there will I plead with you face to face. Like as I pleaded with your fathers in the wilderness of the land of Egypt, so willIplead with you, says the Lord God. And I will cause you topass under the rod, and I will bring you into the bond of the Covenant: And I will purge out from among you the rebels, and them that transgress against Me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and you shall know that I am the Lord." Ezekiel 20:34-38.
 

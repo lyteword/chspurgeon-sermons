@@ -1,12 +1,4 @@
-# Receiving the Holy Spirit
-
-(No. 1790)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 13, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1790 | Receiving the Holy Spirit
 
 "He said unto them, Have you received the Holy Spirit since you believed?" Acts 19:2.
 

@@ -1,8 +1,4 @@
-# Gray Hairs
-
-A Sermon (No. 830)
-
-Delivered on Lord's Day Morning, September 13, 1868, by C. H. SPURGEON, at the [40]Metropolitan Tabernacle, Newington.
+# Sermon 830 | Gray Hairs
 
 "Gray hairs are here and there upon him, yet he knows not." Hosea 7:9.
 

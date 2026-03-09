@@ -1,12 +1,4 @@
-# Samuel and the Young Man Saul
-
-(No. 1547)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1547 | Samuel and the Young Man Saul
 
 "And as they were going down to the end of the city, Samuel said to Saul, Bid the servant pass on before us, (and he passed on), but stand still awhile, that I may announce to you the Word of God." 1 Samuel 9:27.
 

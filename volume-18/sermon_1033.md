@@ -1,6 +1,4 @@
-# Faith's Dawn and Its Clouds
-
-Sermon No. 1033 - Delivered on Lord's Day Morning, January 28th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1033 | Faith's Dawn and Its Clouds
 
 'And straightway the father of the child cried out, and said with tears, Lord, I believe; help thou mine unbelief.''Mark 9:24.
 

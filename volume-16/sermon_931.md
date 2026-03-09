@@ -1,12 +1,4 @@
-# Three Precious Things
-
-(No. 931)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 8, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 931 | Three Precious Things
 
 "He is precious." 1 Peter 2:7.
 

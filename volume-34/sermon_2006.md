@@ -1,6 +1,4 @@
-# Knowing the Lord Through Pardoned Sin
-
-Sermon No. 2006 - Delivered on Sunday Morning, January 29th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2006 | Knowing the Lord Through Pardoned Sin
 
 > "And they shall teach no more every man his neighbor and every man his brother, saying, Know the Lord: for they shall all know Me, from the least of them unto the greatest of them, says the Lord; for I will forgive their iniquity and I will remember their sin no more."  
 > Jeremiah 31:34.  

@@ -1,12 +1,4 @@
-# Jesus No Phantom
-
-(No. 957)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 2, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 957 | Jesus No Phantom
 
 "And when the disciples saw Him walking on the sea, they were troubled, saying, It is a ghost. And they cried out for fear." Matthew 14:26.
 

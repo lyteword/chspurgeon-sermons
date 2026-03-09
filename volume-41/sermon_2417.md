@@ -1,12 +1,4 @@
-# First Forgiveness, Then Healing
-
-(No. 2417)
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 16, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 2, 1887.
+# Sermon 2417 | First Forgiveness, Then Healing
 
 "When He saw their faith, He said to him, Man, your sins are forgiven you." Luke 5:20.
 

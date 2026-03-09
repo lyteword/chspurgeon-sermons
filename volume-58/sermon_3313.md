@@ -1,12 +1,4 @@
-# A Practical Discourse
-
-(No. 3313)
-
-A SERMON PUBLISHED ON THURSDAY AUGUST 1, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 9, 1883.
+# Sermon 3313 | A Practical Discourse
 
 "A month they were in Lebanon, and two months at home." 1 Kings 5:14.
 

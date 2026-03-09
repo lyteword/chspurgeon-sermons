@@ -1,12 +1,4 @@
-# Holy Song From Happy Saints
-
-(No. 3476)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 16, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 5, 1871.
+# Sermon 3476 | Holy Song From Happy Saints
 
 "Now will I sing to my Well-Beloved a song of my Beloved." Isaiah 5:1.
 

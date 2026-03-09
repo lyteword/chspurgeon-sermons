@@ -1,14 +1,4 @@
-# Jesus and the Lambs
-
-A Sermon
-
-(No. 794)
-
-Delivered on Lord's-Day Morning, February 9, 1868, by
-
-H. SPURGEON
-
-at the [7]Metropolitan Tabernacle, Newington.
+# Sermon 794 | Jesus and the Lambs
 
 "He shall gather the lambs with His arm, and carry them in His bosom.'" Isaiah 40:11.
 

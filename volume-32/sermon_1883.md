@@ -1,18 +1,6 @@
-# Prospect--"He Will Keep"
-
-(No. 1883)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1883 | Prospect--"He Will Keep"
 
 "Now I am no more in the world, but these are in the world, and I come to You. Holy Father, keep through Your own name those whom You have given Me that they may be one, as We are. While I was with them in the world, I kept them in Your name: those whom You gave Me I have kept, and none of them is lost, but the son of perdition; that the Scripture might be fulfilled." John 17:11,12.
-
-THE PASTOR'S RETURN. THREE SPECIALLY- SELECTED SERMONS TO HIS CHURCH, CONGREGATION, READERS AND FRIENDS, CONSISTING OF
-
-A RETROSPECT, A PROSPECT [No. 1883] AND AN EXHORTATION [No. 1884.]
 
 WHAT a wonderful intercommunion and fellowship exists between the Father and the Son in the matter of redemption! It is the Father who gave the Son--it is the Son who gave Himself. It is the Father who gave us to the Son--it is the Son who has bought us with a price and has kept us by His hand. Here, in the text, the Father who gave, receives back from the Son, the Son praying to Him in these terms, "Holy Father, keep through Your own name those whom You have given Me." We cannot doubt the personality of the Father and of the Son, nor their essential unity. There are not three Gods, but one God. The Father and the Son, though two in one sense, are one in another. I delight to see the traces of the Trinity in every act of Grace. From the first transactions of Covenant love, even to the ingathering of the whole election of Grace and the introduction of the chosen into Glory, we hear the sound of that voice which of old said, "Let Us make man." The three Divine Persons work together in absolute union for the production of one grand result. "Glory be unto the Father, and to the Son, and to the Holy Spirit, as it was in the beginning, is now and ever shall be, world without end! Amen."
 

@@ -1,12 +1,4 @@
-# Moving
-
-(No. 2811)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 28, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, MARCH 24, 1861
+# Sermon 2811 | Moving
 
 "If Your Presence does not go with us, do not bring us up from here." Exodus 33:15.
 

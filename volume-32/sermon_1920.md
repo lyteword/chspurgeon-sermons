@@ -1,12 +1,4 @@
-# Believers as Blessed as the Blessed Virgin
-
-(No. 1920)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 19, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1920 | Believers as Blessed as the Blessed Virgin
 
 "And it came to pass, as He spoke those things, a certain woman of the company lifted up her voice, and said to Him, Blessed is the womb that bore You and the breasts which nursed You. But He said, More than that, blessed are those who hear the Word of God and keep it!" Luke 11:27,28.
 

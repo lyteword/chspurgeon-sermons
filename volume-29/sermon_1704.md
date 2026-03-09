@@ -1,6 +1,4 @@
-# All Joy in All Trials
-
-Sermon No. 1704 - Delivered on Lord's Day Morning, February 4th, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1704 | All Joy in All Trials
 
 > "My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing."  
 > James 1:2-4.  

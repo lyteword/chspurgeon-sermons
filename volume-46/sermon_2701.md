@@ -1,12 +1,4 @@
-# Jesus Joyfully Received
-
-(No. 2701)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 18, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 16, 1881.
+# Sermon 2701 | Jesus Joyfully Received
 
 "He...received Him joyfully." Luke 19:6.
 

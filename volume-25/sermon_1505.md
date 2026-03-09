@@ -1,12 +1,4 @@
-# Prayer to God in Trouble an Acceptable Sacrifice
-
-(No. 1505)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 9, 1879
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1505 | Prayer to God in Trouble an Acceptable Sacrifice
 
 "And call upon Me in the day of trouble; I will deliver you, and you shall glorify Me." Psalm 50:15.
 

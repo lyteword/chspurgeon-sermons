@@ -1,12 +1,4 @@
-# Recruits for King Jesus
-
-(No. 1770)
-
-A SERMON PREACHED ON LORD'S-DAY EVENING, FEBRUARY 17, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1770 | Recruits for King Jesus
 
 "And there came of the children of Benjamin and Judah to the hold unto David. And David went out to meet them, and answered and said unto them, If you ha ve come peaceably unto me to help me, my heart shall be knit unto you: but if you have come to betray me to my enemies, seeing there is no wrong in myhands, the God of our fatherlook thereon, andrebuke it. Then the Spirit came upon Amasai, who was chief of the captains, and he said, 'Yours are we, David, and on your side, you son of Jesse: peace, peace be unto you, and peace be to your helpers; for your God helps you. Then David received them, and made them captains of the band." 1 Chronicles 12:16-18.
 

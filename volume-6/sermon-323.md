@@ -1,6 +1,4 @@
-# Vile Ingratitude!
-
-Sermon No. 323 - Delivered on Sabbath Evening, May 27th, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 323 | Vile Ingratitude!
 
 > Again the word of the Lord came unto me, saying, Son of man, cause Jerusalem to know her abominations.    
 > Ezekiel 16:1-2.    

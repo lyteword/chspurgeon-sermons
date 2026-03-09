@@ -1,7 +1,4 @@
-# A Door Opened In Heaven
-
-Sermon No. 887 - Delivered on Sunday Morning, AUGUST 22, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 887 | A Door Opened In Heaven
 
 "After this I looked and, behold, a door was opened in Hea ven."- Revelation 4:1.
 

@@ -1,12 +1,4 @@
-# Faith in Christ
-
-(No. 3095)
-
-TO MEN OF BUSINESS, PUBLISHED ON THURSDAY, JUNE 4, 1908.
-
-DELIVERED BY C. H. SPURGEON, AT THE FRIENDS' MEETING-HOUSE,
-
-BISHOPSGATE STREET, ON TUESDAY MORNING, MAY 8, 1877.
+# Sermon 3095 | Faith in Christ
 
 "Believe on the Lord Jesus Christ, and you shall be saved."
 

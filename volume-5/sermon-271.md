@@ -1,6 +1,4 @@
-# Faith Illustrated
-
-Sermon No. 271 - Delivered on Sabbath Morning, August 21st, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 271 | Faith Illustrated
 
 > For the which cause I also suffer these things: nevertheless I am not ashamed: for I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.    
 > 2 Timothy, 1:12.    

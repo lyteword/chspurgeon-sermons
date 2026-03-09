@@ -1,12 +1,4 @@
-# Strengthening Words from the Savior's Lips
-
-(No. 1287)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL, 2, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1287 | Strengthening Words from the Savior's Lips
 
 "And He said unto me, My Grace is sufficient for you: for My strength is made perfect in weakness. Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may rest upon me." 2 Corinthians 12:9.
 

@@ -1,12 +1,4 @@
-# "If There Is No Resurrection"
-
-(No. 2287)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 18, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 20, 1890.
+# Sermon 2287 | "If There Is No Resurrection"
 
 "Now if Christ is preached that He rose from the dead, how say some among you that there is no resurrection of the dead? But if there is no resurrection of the dead, then is Christ not risen: and if Christ is not risen, then is our preaching in vain, and your faith is also in vain. Yes, and we are found false witnesses of God; because we have testified of God that He raised up Christ: whom He raised not up, if it is so that the dead rise not. For if the dead rise not then is not Christ raised: and if Christ is not raised, your faith is in vain; you are yet in your sins. Then they also which are fallen asleep in Christ are perished. If in this life only we have hope in Christ, we are of all men most miserable." 1 Corinthians 15:12-19.
 

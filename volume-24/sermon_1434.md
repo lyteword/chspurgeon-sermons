@@ -1,12 +1,4 @@
-# Jesus!
-
-(No. 1434)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 15 1878,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1434 | Jesus!
 
 "And she shall bring forth a Son, and you shall call His name JESUS: for He shall save His people from their sins." Matthew 1:21.
 

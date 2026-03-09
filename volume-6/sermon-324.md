@@ -1,6 +1,4 @@
-# Effects Of Sound Doctrine
-
-Sermon No. 324 - Delivered on Sabbath Evening, April 22nd, 1860, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 324 | Effects Of Sound Doctrine
 
 > For there shall arise false Christs and false prophets and shall show great signs and wonders; insomuch that, if it were possible, they shall deceive the very elect.    
 > Matthew 24:24.    

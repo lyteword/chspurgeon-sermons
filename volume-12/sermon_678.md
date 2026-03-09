@@ -1,6 +1,4 @@
-# Praise Your God, O Zion!
-
-Sermon No. 678 - Delivered on Sunday Morning, February 25th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 678 | Praise Your God, O Zion!
 
 > "And when He was come near, even now at the descent of the Mount of Olives, the whole multitude of the disciples began to rejoice and praise God with a loud voice for all the mighty works that they had seen, saying, Blessed is the King that comes in the name of the Lord! Peace in Hea ven, and glory in the highest! And some of the Pharisees from among the multitude said unto Him, Master, rebuke Your disciples. But He answered and said unto them, I tell you that if these should hold their peace, the stones would immediately cry out."  
 > Luke 19:37-40.  

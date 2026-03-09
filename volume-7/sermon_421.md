@@ -1,6 +1,4 @@
-# It is finished!
-
-Sermon No. 421 - Delivered on Sunday Morning, December 1st, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 421 | It is finished!
 
 > "When Jesus therefore had received the vinegar, He said, It is finished: and He bowed His head and gave up the ghost."  
 > John 19:30.  

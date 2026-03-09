@@ -1,6 +1,4 @@
-# Sown Among Thorns
-
-Sermon No. 2040 - Delivered on Lord's-day Morning, August 19th, 1888 the REV. C.H. SPURGEON at [7]the Metropolitan Tabernacle, Newington.
+# Sermon 2040 | Sown Among Thorns
 
 > "And some fell among thorns; and the thorns sprung up, and choked them"'Matthew 13:7.  
 > "And some fell among thorns; and the thorns sprung up, and choked them"'Matthew 13:7.  

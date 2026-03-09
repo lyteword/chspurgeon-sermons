@@ -1,12 +1,4 @@
-# Silken Cords
-
-(No. 3005)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 13, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
+# Sermon 3005 | Silken Cords
 
 "Idrew them with cords of a man, with bands of love." Hosea 11:4.
 

@@ -1,12 +1,4 @@
-# Pictures of Happiness
-
-(No. 3365)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 31, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3365 | Pictures of Happiness
 
 "Happy are the people who are in such a state; happy are the people whose God is the Lord." Psalm 144:15.
 

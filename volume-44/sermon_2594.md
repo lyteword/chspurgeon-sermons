@@ -1,12 +1,4 @@
-# "The Offense of the Cross"
-
-(No. 2594)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 30, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE YEAR 1856.
+# Sermon 2594 | "The Offense of the Cross"
 
 "And I, brethren, ifI still preach circumcision, why do I still suffer persecution? Then is the offense of the Cross ceased." Galatians 5:11.
 

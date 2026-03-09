@@ -1,12 +1,4 @@
-# The Very Friend You Need
-
-(No. 2484)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 27, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 22, 1886.
+# Sermon 2484 | The Very Friend You Need
 
 "A friend of publicans and sinners." Luke 7:34.
 

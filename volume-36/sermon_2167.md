@@ -1,6 +1,4 @@
-# Jehovah's Valuation of His People
-
-Sermon No. 2167 - Delivered on Sunday Morning, October 5th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2167 | Jehovah's Valuation of His People
 
 > "I am the LORD your God, the Holy One of Israel, your Sa vior: I gave Egypt for your ransom, Ethiopia and Seba for you."  
 > Isaiah 43:3.  

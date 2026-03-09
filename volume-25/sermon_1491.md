@@ -1,12 +1,4 @@
-# Remember Lot's Wife
-
-(No. 1491)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 24, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1491 | Remember Lot's Wife
 
 "RememberLot's wife." Luke 17:32.
 
@@ -126,7 +118,6 @@ them that come near to Him. "For this cause," says the Apostle, "some are sickly
 
 The worst point, perhaps, about the perishing of Lot's wife lay in that she perished in the very act of sin and had no space for repentance given her. In the instant she turned her head she was a pillar of salt. It is a dreadful thing to die in the very act of sin--to be caught away by the justice of God while the transgression is being perpetrated! Yet such a thing may happen and let those who profess to be Christians and yet parley with sin, "remember Lot's wife" and how swift God is to deal out His judgment against professors who betray His holy name and cause. I cannot help going back to the text I started with, which was one of my own making, and that is, "Remember Lot." Though Lot himself was a righteous man and escaped from the doom of the wicked city, yet I cannot help tracing the death of Lot's wife, in some degree, to her husband.
 
-When a man walks with God and imitates God, he gets to beget character--that is Abraham. When a man walks with a holy man and imitates him he may rise to be a good character but he will be a weak one--that is Lot. But when one walks with Lot, the weak character, and only copies him, the result will be a failure--that is Lot's wife. It is like the boy's copy book. If he will copy the top line, the boy makes an Abraham line. But if the next time he does not look at the top line, but imitates the second--that makes a Lot line--very far short of the first. If he next copies No. 3, the Lot line, the result will be a poor affair--that is Lot's wife. Beloved, we are to live having the perfect Father for our example, looking and following in His steps! And if we do so by the power of the Spirit, we shall reach a grand, noble, Abrahamic character.
 
 But suppose you get to imitate some good man and he is your standard? You will make a second-rate Christian! It will be a weak affair, like Lot. And then if your wife and children get to copying you, oh, the mischief that must come of it! Lot ought to have been firmer, more steadfast, more thorough. He had no business going to Sodom. If he had said to his wife, "No, my Wife, we belong to a chosen people. God called us out of Haran and away from the gods of our fathers that we might live a separated life. And here I am going to stay and you must stay with me," she would have had to obey, or else if she had not done so, Lot was not to do evil to please his wife. She could not have learned the ways of Sodom-- she might have given her heart, still, to the world, but she could not have been so clearly mixed up with it and her daughters could not have been so evil as they were if he had resolved to live apart from the town's people.
 

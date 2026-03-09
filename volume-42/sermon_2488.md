@@ -1,12 +1,4 @@
-# Christ's Love to His Spouse
-
-(No. 2488)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 25, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 5, 1886.
+# Sermon 2488 | Christ's Love to His Spouse
 
 "Christ also loved the Church, and gave Himself for it." Ephesians 5:25.
 

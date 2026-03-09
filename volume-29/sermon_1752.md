@@ -1,12 +1,4 @@
-# Mourners, Inquirers, Covenanters
-
-(No. 1752)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1752 | Mourners, Inquirers, Covenanters
 
 "In those days and in that time, says the LORD, the children of Israel shall come, they and the children of Judah together, going and weeping: they shall go and seek the LORD their God. They shall ask the way to Zion with their faces toward it, saying, Come, and let usjoin ourselves to the LORD in a perpetual covenant that shall not be forgotten." Jeremiah 50:4.
 

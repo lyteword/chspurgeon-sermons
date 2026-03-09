@@ -1,12 +1,4 @@
-# Receiving the Kingdom of God as a Little Child
-
-(No. 1439)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 20, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1439 | Receiving the Kingdom of God as a Little Child
 
 "Verily I say unto you, Whoever shall not receive the kingdom of God as a little child shall by no means enter it." Luke 18:17.
 

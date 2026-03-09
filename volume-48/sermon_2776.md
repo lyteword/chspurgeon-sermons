@@ -1,12 +1,4 @@
-# The Church a Mother
-
-(No. 2776)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 27, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPELS SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE SPRING OF 1860.
+# Sermon 2776 | The Church a Mother
 
 "The children you willhave, after you have lost the others, willsay again in your ears, The place is too small for me; give me a place where I may dwell. Then will you say in your heart, Who has begotten these for me, since I have lost my children, and am desolate, a captive, and wandering to and fro? And who has brought these up?Behold, I was left alone; but these, where were they?" Isaiah 49:20,21.
 

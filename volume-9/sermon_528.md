@@ -1,6 +1,4 @@
-# Chastisement--Now And Afterward
-
-Sermon No. 528 - Delivered on Sunday Morning, September 6th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 528 | Chastisement--Now And Afterward
 
 > "Now no chastening for the present seems to bejoyous, but grievous: nevertheless afterward it yields the peaceable fruit of righteousness unto them which are exercised thereby."  
 > Hebrews 12:11.  

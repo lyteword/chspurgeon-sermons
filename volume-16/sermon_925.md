@@ -1,16 +1,7 @@
-# Individual Sin Laid On Jesus
-
-(No. 925)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 925 | Individual Sin Laid On Jesus
 
 "All we like sheep have gone astray. We have turned, every one to his own way; and the Lord has laid on Him the iniquity of us all." Isaiah 53:6.
 
-I THINK I addressed you from this text four years ago, ("Sin Laid on Jesus," No. 694, Metropolitan Tabernacle Pulpit), but I feel quite safe in returning to it, for we shall never exhaust it. It is a verse so wealthy in meaning that if I had, during the whole four years, dilated upon it every Sunday, it would be my fault if the theme were stale. On this occasion I desire mainly to draw attention to a part of the text upon which little was said on the former occasion. The vine is the same, but we shall gather clusters from a bough ungleaned before. The jewels are the same, but we will place them in another light and view them from another angle. May God grant that some who derived no comfort from our former word may be led to find peace and salvation in Christ this morning. The Lord in His infinite mercy grant it may be so.
 
 I shall first give a general exposition of the text. Then in the second place I shall dwell upon the special doctrine which I wish to teach. And then, thirdly, we shall draw from that special doctrine a special lesson.
 

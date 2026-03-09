@@ -1,12 +1,4 @@
-# Everyday Religion
-
-(No. 1599)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 22, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1599 | Everyday Religion
 
 "The life which I now lire in the flesh Hire by the faith of the Son of God." Galatians 2:20.
 

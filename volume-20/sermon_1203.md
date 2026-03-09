@@ -1,12 +1,4 @@
-# The Consecration of Priests
-
-(No. 1203)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 15, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1203 | The Consecration of Priests
 
 "This is the thing that you shall do onto them to hallow them, to minister unto Me in the priest's office." Exodus 29:1.
 

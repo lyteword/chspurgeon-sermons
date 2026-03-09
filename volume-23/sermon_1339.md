@@ -1,12 +1,4 @@
-# Idols Abolished
-
-(No. 1339)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1339 | Idols Abolished
 
 "Ephraim shallsay, Whathave I to do anymore with idols?" Hosea 14:8.
 

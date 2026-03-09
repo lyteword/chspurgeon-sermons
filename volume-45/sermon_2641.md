@@ -1,12 +1,4 @@
-# God's Heart the Source of All Blessing
-
-(No. 2641)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 24, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 18, 1882.
+# Sermon 2641 | God's Heart the Source of All Blessing
 
 "According to Your own heart, have You done all these great things." 2 Samuel 7:21.
 

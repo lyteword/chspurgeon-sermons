@@ -1,12 +1,4 @@
-# A Golden Prayer
-
-(No. 1391)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 30, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1391 | A Golden Prayer
 
 "Father, glorify Your name." John 12:28.
 

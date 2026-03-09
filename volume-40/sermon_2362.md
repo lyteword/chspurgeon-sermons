@@ -1,12 +1,4 @@
-# The King and His Court
-
-(No. 2362)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 27, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 11, 1888.
+# Sermon 2362 | The King and His Court
 
 "My eyes shall be upon the faithful of the land, that they may dwell with me: he that walks in a perfect way, he shall serve me." Psalm 101:6.
 

@@ -1,12 +1,4 @@
-# "Now Then, Do It"
-
-(No. 1375)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 23, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1375 | "Now Then, Do It"
 
 "You sought for David in times past to be king over you: now then, do it: for the Lord has spoken of David, saying, By the hand of My servant David I will save My people Israel out of the hand of the Philistines, and out of the hand of all their enemies." 2 Samuel 3:17,18.
 

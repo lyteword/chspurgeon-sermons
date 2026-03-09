@@ -1,12 +1,4 @@
-# Nathanael And The Fig Tree
-
-(No. 921)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 20, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 921 | Nathanael And The Fig Tree
 
 "Philip found Nathanael and said to him, "We have found Him of whom Moses in the Law, and also the Prophets, wrote; Jesus of Nazareth, the son of Joseph. And Nathanael said to him, 'Can anything good come out of Nazareth?'Philip said to him, 'Come and see.' Jesus saw Nathanael coming toward Him, and said of him, 'Behold, an Israelite, indeed, in whom is no deceit!' Nathanael said to Him, 'How do You know me?' Jesus answered and said to him, 'Before Philip calledyou, when you were under the fig tree, I saw you.'Nathanael answered and said to Him, 'Rabbi, You are the Son of God! You are the King of Israel!' Jesus answered and said to him, 'Because I said to you, 'I saw you under the fig tree,' do you believe? You will see greater things than these.' And He said to him, 'Most assuredly, I say to you, hereafter you shall see Heaven open, and the angels of God ascending and descending upon the Son of Man." John 1:45-51.
 

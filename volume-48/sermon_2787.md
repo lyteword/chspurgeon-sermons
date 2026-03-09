@@ -1,12 +1,4 @@
-# Christ's Triple Character
-
-(No. 2787)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 13, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 16, 1878.
+# Sermon 2787 | Christ's Triple Character
 
 "Behold, I have given Him for a Witness to the people, a Leader and Commander to the people." Isaiah 55:4.
 

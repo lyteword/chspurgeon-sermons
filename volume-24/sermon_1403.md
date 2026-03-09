@@ -1,12 +1,4 @@
-# God's Advocates Breaking Silence
-
-(No. 1403)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 17, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1403 | God's Advocates Breaking Silence
 
 "Suffer me a little and I will show you that I have yet to speak on God's behalf." Job 36:2.
 

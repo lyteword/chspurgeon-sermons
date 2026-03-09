@@ -1,12 +1,4 @@
-# God, the Children's Teacher
-
-(No. 3271)
-
-A SERMON TO CHILDREN.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON TUESDAY EVENING, MARCH 2,1869.
+# Sermon 3271 | God, the Children's Teacher
 
 "O God, You have taught me from my youth." Psalm 71:17.
 

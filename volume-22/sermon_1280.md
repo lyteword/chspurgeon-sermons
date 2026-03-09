@@ -1,12 +1,4 @@
-# An Objection and an Answer
-
-(No. 1280)
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1280 | An Objection and an Answer
 
 "For in Jesus Christ neither circumcision avails anything, nor uncircumcision; but faith which works by love." Galatians 5:6.
 

@@ -1,6 +1,4 @@
-# The Rent Veil
-
-Sermon No. 2015 - Delivered on Lord's-day Morning, March 25th, 1888 the REV. C.H. SPURGEON at [3]the Metropolitan Tabernacle, Newington.
+# Sermon 2015 | The Rent Veil
 
 Jesus, when he had cried again with a loud voice, yielded up the ghost. And, behold, the veil of the temple was rent in twain from the top to the bottom'Matthew 27:50-51.
 

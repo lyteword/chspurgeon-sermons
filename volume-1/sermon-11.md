@@ -1,6 +1,4 @@
-# The People's Christ
-
-Sermon No. 11 - Delivered on Sabbath Morning, February 25, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 11 | The People's Christ
 
 > I have exalted one chosen out of the people.    
 > Psalm 89:19.    

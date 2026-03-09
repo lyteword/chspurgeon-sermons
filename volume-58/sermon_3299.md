@@ -1,12 +1,4 @@
-# Ho! Ho!
-
-(No. 3299)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 25, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3299 | Ho! Ho!
 
 "Ho, everyone who thirsts, come to the waters." Isaiah 55:1.
 

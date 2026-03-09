@@ -1,12 +1,4 @@
-# Taking Hold of God
-
-(No. 1377)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 7, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1377 | Taking Hold of God
 
 "There is none that calls upon Your name, that stirs up himself to take hold of You." Isaiah 64:7.
 

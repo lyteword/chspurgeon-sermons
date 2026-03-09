@@ -1,6 +1,4 @@
-# Spiritual Liberty
-
-Sermon No. 9 - Delivered on Sabbath Morning, February 18th, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 9 | Spiritual Liberty
 
 > Where the Spirit of the Lord is, there is liberty.    
 > 2 Corinthians 3:17.    

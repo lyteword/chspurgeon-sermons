@@ -1,12 +1,4 @@
-# The Deceived Heart
-
-(No. 2686)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 5, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1858.
+# Sermon 2686 | The Deceived Heart
 
 "He feeds on ashes: a deceived heart has turned him aside, that he cannot deliver his soul, nor say, Is there not a lie in my right hand?" Isaiah 44:20.
 

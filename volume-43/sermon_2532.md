@@ -1,12 +1,4 @@
-# God's Love Shamefully Questioned
-
-(No. 2532)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 29, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 13, 1884.
+# Sermon 2532 | God's Love Shamefully Questioned
 
 "I have loved you, says the Lord. Yet you say, In what way have You loved us?" Malachi 1:2.
 

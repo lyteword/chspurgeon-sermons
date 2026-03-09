@@ -1,12 +1,4 @@
-# The Priceless Prize
-
-(No. 3209)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 4, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3209 | The Priceless Prize
 
 "That I may win Christ." Philippians 3:8.
 

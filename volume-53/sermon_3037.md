@@ -1,12 +1,4 @@
-# Christians Kept From Sin
-
-(No. 3037)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 25, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 13, 1870.
+# Sermon 3037 | Christians Kept From Sin
 
 "And David said to Abigail, Blessed be the Lord God of Israel, which sent you this day to meet me: and blessed be your advice, and blessed be you, which has kept me this day from coming to shed blood, and from avenging myself with my own hand." 1 Samuel 25:32,33.
 

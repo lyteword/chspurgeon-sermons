@@ -1,12 +1,4 @@
-# Bright Prospects for Young Believers
-
-(No. 3172)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 25, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 11, 1866.
+# Sermon 3172 | Bright Prospects for Young Believers
 
 "But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth and grow up as calves of the stall." Malachi 4:2.
 

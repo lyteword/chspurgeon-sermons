@@ -1,12 +1,4 @@
-# A Wonderful Transformation
-
-(No. 2983)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 12,1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 3, 1875.
+# Sermon 2983 | A Wonderful Transformation
 
 "Your sorrow shall be turned into joy." John 16:20.
 

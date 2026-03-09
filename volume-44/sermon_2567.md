@@ -1,12 +1,4 @@
-# The Single-handed Conquest
-
-(No. 2567)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 24, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, JANUARY 6, 1856.
+# Sermon 2567 | The Single-handed Conquest
 
 "I have trodden the winepress alone; and ofthe people there was none with Me." Isaiah 63:3.
 

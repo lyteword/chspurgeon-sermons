@@ -1,12 +1,4 @@
-# Remember!
-
-(No. 1406)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 31, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1406 | Remember!
 
 "You shall remember that you were a bondman in the land of Egypt, and the Lord your God redeemed you." Deuteronomy 15:15.
 

@@ -1,12 +1,4 @@
-# A Sacred Solo
-
-(No. 1423)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1423 | A Sacred Solo
 
 "The Lord is my strength and my shield; my heart trusted in Him, and I am helped, therefore my heart greatly rejoices and with my song will I praise Him." Psalm 28:7.
 

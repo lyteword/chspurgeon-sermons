@@ -1,12 +1,4 @@
-# Guile Forsaken When Guilt Is Forgiven
-
-(No. 1346)
-
-DELIVERED ON LORD'S-DAY EVENING, MARCH 25, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1346 | Guile Forsaken When Guilt Is Forgiven
 
 "Blessed is the man unto whom the Lord imputes not iniquity, and in whose spirit there is no guile." Psalm 32:2.
 

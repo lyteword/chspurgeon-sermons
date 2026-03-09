@@ -1,12 +1,4 @@
-# A Welcome Discovery
-
-(No. 1123)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1123 | A Welcome Discovery
 
 "God opened her eyes, and she saw a well of water; and she went and filled the bottle with water, and gave the lad drink." Genesis 21:19.
 

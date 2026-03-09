@@ -1,12 +1,4 @@
-# The First Fruit of the Spirit
-
-(No. 1782)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1782 | The First Fruit of the Spirit
 
 "But the fruit of the Spirit is love." Galatians 5:22.
 

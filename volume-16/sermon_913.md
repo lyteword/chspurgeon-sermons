@@ -1,12 +1,4 @@
-# Method and Music, Or the Art of Holy and Happy Living
-
-(No. 913)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 30, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 913 | Method and Music, Or the Art of Holy and Happy Living
 
 "And whatever you do in word or deed, do all in the name of the Lord Jesus, giving thanks to God the Father by Him." Colossians 3:17.
 

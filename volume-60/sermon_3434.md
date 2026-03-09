@@ -1,12 +1,4 @@
-# Fruitless Faith
-
-(No. 3434)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 21, 1861.
+# Sermon 3434 | Fruitless Faith
 
 "Even so faith, if it has not works, is dead, being alone." James 2:17.
 

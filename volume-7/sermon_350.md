@@ -1,6 +1,4 @@
-# A Blow at Self-Righteousness
-
-Sermon No. 350 - Delivered on Sabbath Morning, December 16th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 350 | A Blow at Self-Righteousness
 
 > "If I justify myself, mine own mouth shall condemn me: if I say, I am perfect, it shall also prove me perverse."  
 > Job 9:20.  

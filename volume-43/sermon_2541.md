@@ -1,12 +1,4 @@
-# "Mr. Moody's Text"
-
-(No. 2541)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 31, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 15, 1884.
+# Sermon 2541 | "Mr. Moody's Text"
 
 "I will trust and not be afraid." Isaiah 12:2.
 

@@ -1,12 +1,4 @@
-# Sonship Questioned
-
-(No. 2613)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 12, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 16, 1883.
+# Sermon 2613 | Sonship Questioned
 
 "And when the tempter came to Him, he said, If You are the Son of God." Matthew 4:3.
 

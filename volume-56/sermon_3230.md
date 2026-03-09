@@ -1,18 +1,6 @@
-# The Last Message for the Year
+# Sermon 3230 | The Last Message for the Year
 
-(No. 3230)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 29, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 28, 1873.
-
-"All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out.
-
-John 6:37.
-
-[Mr. Spurgeon preached many Sermons upon this verse. Among those already published are #1762, Volume 30--HIGH DOCTRINE AND BROAD DOCTRINE; #2349, Volume 40--ALL COMERS TO CHRIST WELCOMED; #2954, Volume 51--THE BIG GATES WIDE OPEN and #3000, Volume 52--NUMBER 3000--OR, COME AND WELCOME.]
+"All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out." John 6:37.
 
 WE have come to the last Sabbath evening and the last public Sabbath service of another year. With some of us it may be our last Sabbath on earth and our last public Sabbath service in this life. It becomes us, then, to fix our thoughts upon solemn and weighty themes--those which are of the utmost importance to us--and those which most closely concern our eternal destiny. I pray that the Holy Spirit may cause the deepest possible seriousness to rest upon this whole assembly and that He may very specially guide me to speak as I ought upon the familiar but most weighty words that I trust He has moved me to select once again for your very earnest consideration tonight.
 

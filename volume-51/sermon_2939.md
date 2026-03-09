@@ -1,12 +1,4 @@
-# A Stir--and What Came of It
-
-(No. 2939)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 8, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 11, 1875.
+# Sermon 2939 | A Stir--and What Came of It
 
 "And when He had come into Jerusalem, all the city was moved, saying, Who is this?" Matthew 21:10.
 

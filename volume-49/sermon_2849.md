@@ -1,12 +1,4 @@
-# Remembering God's Works
-
-(No. 2849)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 4, 1877.
+# Sermon 2849 | Remembering God's Works
 
 "He has made His wonderful works to be remembered: the LORRD is gracious and full of compassion. He has given meat unto them that fear Him: He will ever be mindful ofHis Covenant." Psalm 111:4, 5.
 

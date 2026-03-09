@@ -1,12 +1,4 @@
-# The One and the Many
-
-(No. 2544)
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 3, 1884.
+# Sermon 2544 | The One and the Many
 
 "The judgment was by one to condemnation, but the free gift is of many offenses unto justification." Romans 5:16.
 

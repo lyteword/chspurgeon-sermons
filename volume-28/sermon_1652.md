@@ -1,12 +1,4 @@
-# The Singing Pilgrim
-
-(No. 1652)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1652 | The Singing Pilgrim
 
 "Your statutes have been my songs in the house of my pilgrimage." Psalm 119:54.
 

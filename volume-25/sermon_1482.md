@@ -1,12 +1,4 @@
-# Our Change of Masters
-
-(No. 1482)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 6, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1482 | Our Change of Masters
 
 "Being then made free from sin, you became the servants of righteousness." Romans 6:18.
 

@@ -1,12 +1,4 @@
-# The True Position of the Witness Within
-
-(No. 1428)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 11, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1428 | The True Position of the Witness Within
 
 "He that believes on the Son of God has the witness in himself." 1 John 5:10.
 

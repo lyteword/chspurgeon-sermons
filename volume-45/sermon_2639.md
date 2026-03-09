@@ -1,12 +1,4 @@
-# Our Heavenly Father's Pity
-
-(No. 2639)
-
-INTENDED FOR READING ON LORD'S-DAY SEPTEMBER 10, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN 1857.
+# Sermon 2639 | Our Heavenly Father's Pity
 
 "Like as a father pities his children, so the Lord pities them that fear Him." Psalm 103:13.
 

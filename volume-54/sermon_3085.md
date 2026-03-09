@@ -1,12 +1,4 @@
-# An Exciting Enquiry
-
-(No. 3085)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 26, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3085 | An Exciting Enquiry
 
 "And when He was come into Jerusalem, all the city was moved, saying, Who is this?" Matthew 21:10.
 

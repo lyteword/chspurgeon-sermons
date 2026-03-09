@@ -1,12 +1,4 @@
-# God's People Melted and Tried
-
-(No. 2274)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 18, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 19, 1891.
+# Sermon 2274 | God's People Melted and Tried
 
 "Therefore thus says the LORD of Hosts, Behold, I will melt them, and try them; for how shall I deal with the daughter of My people?" Jeremiah 9:7.
 

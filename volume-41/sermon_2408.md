@@ -1,12 +1,4 @@
-# Christ the Cure for Troubled Hearts
-
-(No. 2408)
-
-INTENDED FOR READING ON LORD'S DAY, APRIL 14, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 10, 1887.
+# Sermon 2408 | Christ the Cure for Troubled Hearts
 
 "And He said unto them, Why are you troubled and why do doubts arise in your hearts." Luke 24:38.
 

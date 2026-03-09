@@ -1,12 +1,4 @@
-# "Going and Weeping"
-
-(No. 3049)
-
-A SERMON PUBLISHED ON TUESDAY, JULY 18, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 9, 1871.
+# Sermon 3049 | "Going and Weeping"
 
 "Going and weeping." Jeremiah 50:4.
 

@@ -1,12 +1,4 @@
-# Faith's Sure Foundation
-
-(No. 1429)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 18, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1429 | Faith's Sure Foundation
 
 "He that believes on Him shall not be confounded." 1 Peter 2:6.
 

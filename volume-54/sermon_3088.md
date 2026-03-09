@@ -1,12 +1,4 @@
-# The Storm and the Shower
-
-(No. 3088)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 16, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 3, 1874.
+# Sermon 3088 | The Storm and the Shower
 
 "Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the LORD of Hosts: smite the Shepherd, and the sheep shall be scattered: and I will turn My hand upon the little ones." Zechariah 13:7.
 

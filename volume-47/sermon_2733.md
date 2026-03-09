@@ -1,12 +1,4 @@
-# Christ's Manifestation to Mary Magdalene
-
-(No. 2733)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 30, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE SUMMER OF 1859.
+# Sermon 2733 | Christ's Manifestation to Mary Magdalene
 
 "Jesus said unto her, Touch Me not; for I aim not yet ascended to My Father: but go to My brethren, and say unto them, I ascend unto My Father, and your Father; and to My God, and your God." John 20:17.
 

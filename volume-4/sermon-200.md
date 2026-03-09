@@ -1,6 +1,4 @@
-# The Wicked Man's Life, Funeral, and Epitaph
-
-Sermon No. 200 - Delivered on Sabbath Morning, June 13, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 200 | The Wicked Man's Life, Funeral, and Epitaph
 
 > And so I saw the wicked buried, who had come and gone from the place of the holy and they were forgotten in the city where they had so done: this is also vanity.    
 > Ecclesiastes 8:10.    

@@ -1,12 +1,4 @@
-# A Suitable Watchword
-
-(No. 3097)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 18, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3097 | A Suitable Watchword
 
 "Help, LORD." Psalm 12:1.
 

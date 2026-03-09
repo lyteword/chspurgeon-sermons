@@ -1,6 +1,4 @@
-# Crossing the Jordan
-
-Sermon No. 2039 - Delivered on Sunday Morning, August 12th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2039 | Crossing the Jordan
 
 > "Then Joshua commanded the officers of the people, saying, Pass through the host and command the people, saying, Prepare you victuals. For within three days you shall pass over this Jordan, to go in to possess the land, which the Lord your God gives you to possess it."  
 > Joshua 1:10,11.  

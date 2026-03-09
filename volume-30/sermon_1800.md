@@ -1,12 +1,4 @@
-# Heaven Below
-
-(No. 1800)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1800 | Heaven Below
 
 "They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them and shall lead them unto living fountains of waters." Revelation 7:16,17.
 

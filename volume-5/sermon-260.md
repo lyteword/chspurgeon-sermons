@@ -1,6 +1,4 @@
-# An Earnest Invitation
-
-Sermon No. 260 - Delivered on Sabbath Morning, July 3rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 260 | An Earnest Invitation
 
 > Kiss the Son, lest he be angry, and ye perish from the way when his wrath is kindled but a little. Blessed are all they that put their trust in him.    
 > Psalm 2:12.    

@@ -1,6 +1,4 @@
-# Washed to Greater Foulness
-
-Sermon No. 1908 - Delivered on Delivered the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
+# Sermon 1908 | Washed to Greater Foulness
 
 > "If I wash myself with snow water, and make my hands never so clean; yet shalt thou plunge me in the ditch, and mine own clothes shall abhor me."  
 > Job 9:30, 31.  

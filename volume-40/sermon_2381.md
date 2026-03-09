@@ -1,12 +1,4 @@
-# "I Would, But You Would Not"
-
-(No. 2381)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 7, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 22, 1888.
+# Sermon 2381 | "I Would, But You Would Not"
 
 "O Jerusalem, Jerusalem, you that kill the Prophets, and stone them which are sent to you, how often would I have gathered your children together, even as a hen gathers her chicks under her wings, and you were not willing!" Matthew 23:37.
 

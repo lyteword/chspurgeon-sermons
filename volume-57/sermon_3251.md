@@ -1,12 +1,4 @@
-# Christ the Tree of Life
-
-(No. 3251)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 25, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3251 | Christ the Tree of Life
 
 "In the middle of its street, and on either side of the river, was the Tree of Life, which bore twelve fruits, each tree yielding its fruit every month. The leaves of the tree were for the healing of the nations." Revelation 22:2.
 

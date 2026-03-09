@@ -1,6 +1,4 @@
-# Sovereignty and Salvation
-
-Sermon No. 60 - Delivered on Sabbath Morning, January 6, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 60 | Sovereignty and Salvation
 
 > Look unto me and be ye saved, all the ends of the earth: for I am God, and there is none else.    
 > Isaiah 45:22.    

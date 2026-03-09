@@ -1,6 +1,4 @@
-# The Condescension of Christ
-
-Sermon No. 151 - Delivered on Sabbath Morning, September 13, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 151 | The Condescension of Christ
 
 > For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich    
 > 2 Corinthians 8:9.    

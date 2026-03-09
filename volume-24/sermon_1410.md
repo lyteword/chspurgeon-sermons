@@ -1,12 +1,4 @@
-# Believers Free from the Dominion of Sin
-
-(No. 1410)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 21, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1410 | Believers Free from the Dominion of Sin
 
 "For sin shall not have dominion over you: for you are not under the Law, but under Grace." Romans 6:14.
 

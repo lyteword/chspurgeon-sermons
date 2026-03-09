@@ -1,12 +1,4 @@
-# Christ and His Co-workers
-
-(No. 2467)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 31, 1896,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 10, 1886.
+# Sermon 2467 | Christ and His Co-workers
 
 "And they went out and preached everywhere, the Lord working with them, and confirming the Word through accompanying signs. Amen." Mark 16:20.
 

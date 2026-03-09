@@ -1,12 +1,4 @@
-# Christ a Sanctuary
-
-(No. 3522)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 27, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3522 | Christ a Sanctuary
 
 "And He will be as a sanctuary." Isaiah 8:14.
 

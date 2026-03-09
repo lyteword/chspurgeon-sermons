@@ -1,12 +1,4 @@
-# A Special Benediction
-
-(No. 2412)
-
-INTENDED FOR READING ON LORD'S DAY, MAY 12, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 12, 1887.
+# Sermon 2412 | A Special Benediction
 
 "Jude, the servant of Jesus Christ, and brother of James, to them that are sanctified by God the Father, and preserved in Jesus Christ, and called: mercy unto you, and peace, and love, be multiplied." Jude 1,2.
 

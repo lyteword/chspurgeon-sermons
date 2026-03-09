@@ -1,12 +1,4 @@
-# A Prayer for Everybody
-
-(No. 2597)
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT CHRIST CHURCH, WESTMINSTER BRIDGE ROAD, (during the renovation of the Tabernacle), ON THURSDAY EVENING, AUGUST 23, 1883.
+# Sermon 2597 | A Prayer for Everybody
 
 "Then came she and worshipped Him, saying, Lord, help me!" Matthew 15:25.
 

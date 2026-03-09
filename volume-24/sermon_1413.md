@@ -1,12 +1,4 @@
-# Underneath
-
-(No. 1413)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 12, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1413 | Underneath
 
 "Underneath are the everlasting arms." Deuteronomy 33:27.
 

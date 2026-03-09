@@ -1,6 +1,4 @@
-# Salvation by Knowing the Truth
-
-Sermon No. 1516 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1516 | Salvation by Knowing the Truth
 
 God our Savior; who will have all men to be saved, and to come unto the knowledge of the truth.'1 Timothy 2:3, 4.
 

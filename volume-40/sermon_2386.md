@@ -1,12 +1,4 @@
-# The Drawings Of Divine Love
-
-(No. 2386)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 11, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 26, 1888.
+# Sermon 2386 | The Drawings Of Divine Love
 
 "No man can come to Me, except the Father who sent Me draws him and I will raise him up at the last day. It is written in the Prophets, 'And they shall all be taught by God.' Therefore, everyone who has heard, and has learned of the Father, comes unto Me." John 6:44,45.
 

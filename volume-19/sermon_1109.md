@@ -1,12 +1,4 @@
-# The Light of the World
-
-(No. 1109)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1109 | The Light of the World
 
 "You are the light of the world." Matthew 5:14.
 

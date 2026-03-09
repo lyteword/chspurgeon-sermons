@@ -1,12 +1,4 @@
-# Pressing Questions of an Awakened Mind
-
-(No. 1520)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1520 | Pressing Questions of an Awakened Mind
 
 "Who are You, Lord?...What will You have me to do?" Acts 9:5, 6.
 

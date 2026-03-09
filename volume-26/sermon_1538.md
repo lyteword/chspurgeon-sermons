@@ -1,12 +1,4 @@
-# Divine Surprises
-
-(No. 1538)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 16, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1538 | Divine Surprises
 
 "When You did terrible things which we looked not for, You came down, the mountains flowed down at Your Presence." Isaiah 64:3.
 

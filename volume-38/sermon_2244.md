@@ -1,12 +1,4 @@
-# Members Of Christ
-
-(No. 2244)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 21, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 23, 1890.
+# Sermon 2244 | Members Of Christ
 
 "For we are members of His body, of His flesh, and of His bones." Ephesians 5:30.
 

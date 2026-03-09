@@ -1,12 +1,4 @@
-# "Your First Love"
-
-(No. 2399)
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 10, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 20, 1887.
+# Sermon 2399 | "Your First Love"
 
 "Go and cry in the ears of Jerusalem, saying, Thus says the LORD, 'I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown.'" Jeremiah 2:2.
 

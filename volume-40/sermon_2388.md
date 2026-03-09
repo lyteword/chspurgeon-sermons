@@ -1,12 +1,4 @@
-# Once Dead, Now Alive
-
-(No. 2388)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 25, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 30, 1888.
+# Sermon 2388 | Once Dead, Now Alive
 
 "And you has He quickened, who were dead in trespasses and sins." Ephesians 2:1.
 

@@ -1,12 +1,4 @@
-# Lydia, the First European Convert
-
-(No. 2222)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 20, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2222 | Lydia, the First European Convert
 
 "Now a certain woman named Lydia heard us. She was a seller of purple, from the city of Thyatira, who worshipped God, whose heart the Lord opened, that she attended unto the things which were spoken of Paul." Acts 16:14.
 

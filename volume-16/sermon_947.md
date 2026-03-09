@@ -1,12 +1,4 @@
-# Seeking For Jesus
-
-(No. 947)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 21, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 947 | Seeking For Jesus
 
 "Seeking for Jesus." John 6:24.
 

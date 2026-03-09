@@ -1,12 +1,4 @@
-# Backsliding Healed
-
-(No. 920)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 13, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 920 | Backsliding Healed
 
 "I will heal their backsliding." Hosea 14:4.
 

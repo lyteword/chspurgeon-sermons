@@ -1,6 +1,4 @@
-# Christ's Finished Work
-
-Sermon No. 378 - Delivered on Thursday Evening, April 4th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 378 | Christ's Finished Work
 
 > "It is finished!"  
 > John 19:30.   

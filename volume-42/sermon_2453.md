@@ -1,12 +1,4 @@
-# A Hard Case
-
-(No. 2453)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 23, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 18, 1886.
+# Sermon 2453 | A Hard Case
 
 "For God speaks once, yes twice, yet man perceives it not. In a dream, in a vision of the night, when deep sleep falls upon men, while slumbering on their beds; then He opens the ears of men, and seals their instruction, that He may withdraw man from his purpose, and hide pride from man. He keeps back his soul from the Pit, and his life from perishing by the sword." Job 33:14-18.
 

@@ -1,12 +1,4 @@
-# "A Kind of First Fruits"
-
-(No. 3275)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 5, 1868.
+# Sermon 3275 | "A Kind of First Fruits"
 
 "Of His own will He brought us forth by the Word of Truth, that we might be a kind of first fruits of His creatures." James 1:18.
 

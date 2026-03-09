@@ -1,12 +1,4 @@
-# Truthfulness
-
-(No. 1585)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1585 | Truthfulness
 
 "O Lord, are not Your eyes upon the truth?" Jeremiah 5:3.
 

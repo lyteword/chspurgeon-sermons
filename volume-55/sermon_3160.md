@@ -1,12 +1,4 @@
-# The Call of "Today"
-
-(No. 3160)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 2, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 1, 1873.
+# Sermon 3160 | The Call of "Today"
 
 Therefore (as the Holy Spirit says) "today if you will hear His voice, harden not your hearts." Hebrews 3:7.
 

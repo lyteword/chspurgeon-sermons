@@ -1,12 +1,4 @@
-# Now, A Sermon for Young Men and Young Women
-
-(No. 1164)
-
-DELIVERED ON THURSDAY EVENING, MARCH 19, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1164 | Now, A Sermon for Young Men and Young Women
 
 "Son of man, behold, they of the house of Israel say, The vision that he sees is for many days to come, and he prophesies of the times that are far off" Ezekiel 12:27.
 

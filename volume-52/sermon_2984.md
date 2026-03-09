@@ -1,12 +1,4 @@
-# A Silly Dove
-
-(No. 2984)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 19, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2984 | A Silly Dove
 
 "Ephraim is like a silly dove without heart." Hosea 7:11.
 

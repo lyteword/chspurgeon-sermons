@@ -1,12 +1,4 @@
-# My Solace in My Affliction
-
-(No. 1656)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1656 | My Solace in My Affliction
 
 "Forever, O Lord, Your Word is settled in Heaven. Your faithfulness is unto all generations: You have established the earth and it abides. They continue this day according to Your ordinances: for all are Your servants. Unless Your Law had been my delights, I should then ha ve perished in my affliction." Psalm119:89-92.
 

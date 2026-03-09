@@ -1,12 +1,4 @@
-# Death for Sin and Death to Sin
-
-(No. 1143)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 16, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1143 | Death for Sin and Death to Sin
 
 "Who His own self bore our sins in His own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes you were healed." 1 Peter 2:24.
 

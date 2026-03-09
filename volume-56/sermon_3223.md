@@ -1,12 +1,4 @@
-# Salvation As It Is Now Received
-
-(No. 3223)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 10, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 23, 1872.
+# Sermon 3223 | Salvation As It Is Now Received
 
 "Whom having not seen, you love. Though now you do not see Him, yet believing, you rejoice with joy unspeakable and full of glory, receiving the end of your faith, even the salvation of your souls." 1 Peter 1:8,9.
 

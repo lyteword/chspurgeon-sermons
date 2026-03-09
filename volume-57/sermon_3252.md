@@ -1,12 +1,4 @@
-# "By Water and Blood"
-
-(No. 3252)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 1, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 7, 1864.
+# Sermon 3252 | "By Water and Blood"
 
 "This is He that came by water and blood, even Jesus Christ--not by water only, but by water and blood." 1 John 5:6.
 

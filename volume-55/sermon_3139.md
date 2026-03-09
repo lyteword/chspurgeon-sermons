@@ -1,12 +1,4 @@
-# A Promise for the Blind
-
-(No. 3139)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 8, 1909.
-
-DELIVERED BY C. H. SPURGEON, AT THE BAPTIST CHAPEL, CHURCH STREET, BLACKFRIARS ROAD, ON TUESDAY EVENING, APRIL 3, 1855.
-
-[ON BEHALF OF THE CHRISTIAN BLIND RELIEF SOCIETY.]
+# Sermon 3139 | A Promise for the Blind
 
 "Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child, and she that travails with child together: a great company shall return there." Jeremiah 31:8.
 

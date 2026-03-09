@@ -1,12 +1,4 @@
-# Love's Vigilance Rewarded
-
-(No. 2485)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 4, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 7, 1877.
+# Sermon 2485 | Love's Vigilance Rewarded
 
 "Scarcely had I passed by them, when I found Him whom my soul loves. I held Him and would not let Him go, until I had brought Him to my mother's house and into the chamber of her that conceived me." Song of Solomon 3:4.
 

@@ -1,12 +1,4 @@
-# The Christian's Great Business
-
-(No. 1130)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 7, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1130 | The Christian's Great Business
 
 "Restore unto me the joy of Your salvation; and uphold me with Your free Spirit. Then will I teach transgressors Your ways; and sinners shall be converted unto You." Psalm 51:12-13.
 

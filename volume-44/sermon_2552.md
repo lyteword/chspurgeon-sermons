@@ -1,12 +1,4 @@
-# "Take Heed, Brethren"
-
-(No. 2552)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 16, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 23, 1884.
+# Sermon 2552 | "Take Heed, Brethren"
 
 "Take heed, brethren, lest there is in any of you an evil heart of unbelief in departing from the living God." Hebrews 3:12.
 

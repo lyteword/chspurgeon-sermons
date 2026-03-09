@@ -1,12 +1,4 @@
-# The New Song On Earth
-
-(No. 2424)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 4, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 17, 1887.
+# Sermon 2424 | The New Song On Earth
 
 "He has put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the LORD." Psalm 40:3.
 

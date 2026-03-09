@@ -1,12 +1,4 @@
-# The Royal Prerogative
-
-(No. 1523)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 15, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1523 | The Royal Prerogative
 
 "He that is our God is the God of salvation; and unto God the Lord belong the issues from death. But God shall wound the head of His enemies and the hairy scalp of such an one as goes on still in his trespasses." Psalm 68:20,21.
 

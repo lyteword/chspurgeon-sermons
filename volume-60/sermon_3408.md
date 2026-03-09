@@ -1,12 +1,4 @@
-# Not Boasting, But Trusting
-
-(No. 3408)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 28, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3408 | Not Boasting, But Trusting
 
 "Not of works lest any man should boast" Ephesians 2:9.
 

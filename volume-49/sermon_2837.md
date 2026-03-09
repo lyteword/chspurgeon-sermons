@@ -1,12 +1,4 @@
-# "The Ministry of Reconciliation"
-
-(No. 2837)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 28, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 8, 1887.
+# Sermon 2837 | "The Ministry of Reconciliation"
 
 "And hath given to us the ministry of reconciliation." 2 Corinthians 5:18.
 

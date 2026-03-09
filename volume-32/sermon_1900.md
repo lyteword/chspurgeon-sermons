@@ -1,12 +1,4 @@
-# Rejoice Evermore
-
-(No. 1900)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 23, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1900 | Rejoice Evermore
 
 "Rejoice evermore." 1 Thessalonians 5:16.
 

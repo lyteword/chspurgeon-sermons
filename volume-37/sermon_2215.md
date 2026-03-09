@@ -1,12 +1,4 @@
-# Young Man! A Prayer For You
-
-(No. 2215)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2215 | Young Man! A Prayer For You
 
 "And Elisha prayed, and said, Lord, I pray, open his eyes, that he may see! And the Lord opened the eyes of the youngman, and he saw. And, behold, the mountain was full of horses and chariots of fire all around Elisha" 2 Kings 6:17.
 

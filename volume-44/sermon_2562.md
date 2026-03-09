@@ -1,12 +1,4 @@
-# Cries From the Cross
-
-(No. 2562)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, NOVEMBER 2, 1856.
+# Sermon 2562 | Cries From the Cross
 
 "My God, My God, why have You forsaken Me? Why are You so far from helping me, and from the words of My roaring?" Psalm 22:1.
 

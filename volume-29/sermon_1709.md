@@ -1,12 +1,4 @@
-# The Best War Cry
-
-(No. 1709)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 4, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1709 | The Best War Cry
 
 "The Lord his God is with him, and the shout of a king is among them." Numbers 23:21.
 

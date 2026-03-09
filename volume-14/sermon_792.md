@@ -1,14 +1,4 @@
-# Mary Magdalene
-
-A Sermon
-
-(No. 792)
-
-Delivered on Lord's-Day Morning, January 26, 1868, by
-
-H. SPURGEON,
-
-at the [5]Metropolitan Tabernacle, Newington.
+# Sermon 792 | Mary Magdalene
 
 "Mary Magdalene, out of whom He had cast seven devils.'" Mark 16:9.
 

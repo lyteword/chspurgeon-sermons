@@ -1,12 +1,4 @@
-# Growth in Faith
-
-(No. 3384)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 11, 1913.
-
-DELIVERED BY C. H, SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 12, 1867.
+# Sermon 3384 | Growth in Faith
 
 "The Apostles said unto the Lord, Increase our faith." Luke 17:5.
 

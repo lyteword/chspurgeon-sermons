@@ -1,12 +1,4 @@
-# Grappling Irons
-
-(No. 1779)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1779 | Grappling Irons
 
 "Quicken me after Your loving kindness; so shall I keep the testimony of Your mouth." Psalm 119:88.
 

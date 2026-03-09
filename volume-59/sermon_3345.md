@@ -1,12 +1,4 @@
-# Sunlight for Cloudy Days
-
-(No. 3345)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 13, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT MENTONE.
+# Sermon 3345 | Sunlight for Cloudy Days
 
 "But I am poor and needy, yet the Lord thinks upon me." Psalm 40:17.
 

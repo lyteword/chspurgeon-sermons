@@ -1,6 +1,4 @@
-# Beginning at Jerusalem
-
-Sermon No. 1729 - Delivered on Thursday Evening, June 14th, 1883 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1729 | Beginning at Jerusalem
 
 > "And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem."  
 > Luke 24:47.  

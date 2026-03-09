@@ -1,12 +1,4 @@
-# The Singular Origin of a Christian
-
-(No. 1829)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON FEBRUARY 7, 1884.
+# Sermon 1829 | The Singular Origin of a Christian
 
 "For we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them." Ephesians 2:10.
 

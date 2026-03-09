@@ -1,10 +1,4 @@
-# Loved and Loving
-
-(No. 1634B)
-
-AMONG THE GOLDEN APPLE TREES,
-
-BY C. H. SPURGEON.
+# Sermon 1634B | Loved and Loving
 
 "My Beloved is mine, and I am His: He feeds among the lilies." Song of Solomon 2:16.
 

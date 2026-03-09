@@ -1,12 +1,4 @@
-# Causes and Cure of Fainting
-
-(No. 2812)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 4, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 7, 1877.
+# Sermon 2812 | Causes and Cure of Fainting
 
 "Hegives power to the faint." Isaiah 40:29.
 

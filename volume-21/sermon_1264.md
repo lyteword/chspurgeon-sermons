@@ -1,12 +1,4 @@
-# The Man of One Subject
-
-(No. 1264)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 31, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1264 | The Man of One Subject
 
 "For I determined not to know anything among you, save Jesus Christ, and Him crucified." 1 Corinthians 2:2.
 

@@ -1,12 +1,4 @@
-# Blood Even on the Golden Altar
-
-(No. 2369)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 15, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 6, 1888.
+# Sermon 2369 | Blood Even on the Golden Altar
 
 "And the priest shall put some of the blood upon the horns of the altar of sweet incense before the LORD, which is in the Tabernacle of the Congregation." Leviticus 4:7.
 

@@ -1,12 +1,4 @@
-# The Secret of a Happy Life
-
-(No. 1305)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 16, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1305 | The Secret of a Happy Life
 
 "I have set the Lord always before Me: because He is at My right hand, I shall not be moved." Psalm 16:8.
 

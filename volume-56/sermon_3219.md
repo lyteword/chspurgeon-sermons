@@ -1,12 +1,4 @@
-# "He Blessed Him There"
-
-(No. 3219)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 13, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3219 | "He Blessed Him There"
 
 "He blessed him there." Genesis 32:29.
 

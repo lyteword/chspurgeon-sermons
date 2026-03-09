@@ -1,12 +1,4 @@
-# All of Grace
-
-(No. 3479)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3479 | All of Grace
 
 "For by Grace are you saved through faith; and that not of yourselves: it is the gift of God." Ephesians 2:8.
 

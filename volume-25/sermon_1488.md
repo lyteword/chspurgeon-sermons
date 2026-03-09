@@ -1,12 +1,4 @@
-# More and More, or Less and Less
-
-(No. 1488)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 10, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1488 | More and More, or Less and Less
 
 "For whoever has, to him shall be given, and he shall have more abundance: but whoever has not, from him shall be taken away even what he has." Matthew 13:12.
 

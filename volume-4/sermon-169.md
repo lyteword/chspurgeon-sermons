@@ -1,6 +1,4 @@
-# What Have I Done?
-
-Sermon No. 169 - Delivered on Sabbath Morning, December 27, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 169 | What Have I Done?
 
 > What have I done?    
 > Jeremiah 8:6.    

@@ -1,12 +1,4 @@
-# "The Ark of His Covenant"
-
-(No. 2427)
-
-INTENDED FOR READING ON LORD'S DAY MORNING, AUGUST 25, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DELIVERED ON THURSDAY EVENING, AUGUST 18, 1887.
+# Sermon 2427 | "The Ark of His Covenant"
 
 "And the Temple of God was opened in Hea ven, and there was seen in His Temple the ark of His testament [covenant--R.V.] and there were lightning, and voices, and thundering, and an earthquake, and great hail." Revelation 11:19.
 

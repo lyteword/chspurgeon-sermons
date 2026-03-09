@@ -1,12 +1,4 @@
-# Samuel--an Example of Intercession
-
-(No. 1537)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 9, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1537 | Samuel--an Example of Intercession
 
 "Moreover as for me, God forbid that I should sin against the Lord in ceasing to pray for you: but I will teach you the good and the right way." 1 Samuel 12:23.
 

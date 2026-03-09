@@ -1,12 +1,4 @@
-# A Grateful Summary of Twenty Volumes
-
-(No. 1209)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 27, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1209 | A Grateful Summary of Twenty Volumes
 
 "Unto me, who am less than the least of all saints, is this Grace given, that I should preach among the Gentiles the unsearchable riches of Christ." Ephesians 3:8.
 

@@ -1,6 +1,4 @@
-# The Cedars Of Lebanon
-
-Sermon No. 529 - Delivered on Sunday Morning, September 13th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 529 | The Cedars Of Lebanon
 
 > "The trees of the Lord are full of sap. The cedars of Lebanon, which He has planted."  
 > Psalm 104:16.  

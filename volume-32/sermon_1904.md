@@ -1,12 +1,4 @@
-# The Personal Pentecost and the Glorious Hope
-
-(No. 1904)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 13, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1904 | The Personal Pentecost and the Glorious Hope
 
 "And hope makes us not ashamed, because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us." Romans 5:5.
 

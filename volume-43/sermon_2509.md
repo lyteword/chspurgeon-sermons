@@ -1,12 +1,4 @@
-# The Sinful Made Sinless
-
-(No. 2509)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 12, 1886.
+# Sermon 2509 | The Sinful Made Sinless
 
 "Whoever commits sin transgresses also the Law: for sin is the transgression of the Law. And you know that He was manifested to take away our sins; and in Him is no sin." 1 John 3:4,5.
 

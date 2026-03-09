@@ -1,12 +1,4 @@
-# The Lily Among Thorns
-
-(No. 1525)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 29, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1525 | The Lily Among Thorns
 
 "As the lily among thorns, so is My love among the daughters." Song of Solomon 2:2.
 

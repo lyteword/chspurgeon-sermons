@@ -1,12 +1,4 @@
-# The Unknown Ways of Love
-
-(No. 1293)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 14, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1293 | The Unknown Ways of Love
 
 "Jesus answered and said unto him, What I do you know not now; but you shall know hereafter." John 13:7.
 

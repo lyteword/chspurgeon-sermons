@@ -1,6 +1,4 @@
-# Jesus About His Father's Business
-
-Sermon No. 302 - Delivered on Sabbath Morning, March 4th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 302 | Jesus About His Father's Business
 
 > Jesus saith unto them, my meat is to do the will of him that sent me, and to finish his work.    
 > John 4:34.    

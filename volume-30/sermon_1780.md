@@ -1,12 +1,4 @@
-# The Sprinkling of the Blood of the Sacrifice
-
-(No. 1780)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 11, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1780 | The Sprinkling of the Blood of the Sacrifice
 
 "And the priest shall dip his finger in the blood, and sprinkle of the blood seven times before the Lord, before the veil of the sanctuary. And the priest shall put some of the blood upon the horns of the altar of sweet incense before the Lord, which is in the tabernacle of the congregation; and shall pour all the blood of the bullock at the bottom of the altar of the burnt offering, which is at the door of the tabernacle of the congregation." Leviticus 4:6, 7.
 

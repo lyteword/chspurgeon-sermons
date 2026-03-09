@@ -1,12 +1,4 @@
-# Crowning Blessings Ascribed to God
-
-(No. 1475)
-
-DELIVERED ON LORD'S-DAY EVENING, MAY 18, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1475 | Crowning Blessings Ascribed to God
 
 "You crown the year with Your goodness." Psalm 65:11.
 

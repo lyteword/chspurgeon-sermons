@@ -1,12 +1,4 @@
-# The Minister's Plea
-
-(No. 1139)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1139 | The Minister's Plea
 
 "Through your prayer, and the supply of the Spirit of Jesus Christ." Philippians 1:19.
 

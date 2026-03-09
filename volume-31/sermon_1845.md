@@ -1,12 +1,4 @@
-# The Pity of the Lord--the Comfort of the Afflicted
-
-(No. 1845)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 14, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON BEHALF OF THE LONDON HOSPITALS.
+# Sermon 1845 | The Pity of the Lord--the Comfort of the Afflicted
 
 "Behold, we count them happy which endure. You have heard of the patience of Job, and have seen the end of the Lord; that the Lord is full of pity, and of tender mercy." James 5:11.
 

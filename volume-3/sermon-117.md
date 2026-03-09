@@ -1,6 +1,4 @@
-# Lovest Thou Me?
-
-Sermon No. 117 - Delivered on Sabbath Morning, September 7th, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 117 | Lovest Thou Me?
 
 > Jesus saith to Simon Peter, Simon, son of Jonas, lovest thou me more than these? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my lambs. He saith to him again the second time, Simon, son of Jonas, lovest thou me? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my sheep. He saith unto him the third time, Simon, son of Jonas, Lovest thou me? Peter was grieved because he said unto him the third time, Lovest thou me? And he said unto him, Lord, thou knowest all things; thou knowest that I love thee. Jesus saith unto him, Feed my sheep.    
 > John 21:15-17.    

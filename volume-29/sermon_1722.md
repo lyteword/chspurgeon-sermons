@@ -1,12 +1,4 @@
-# The First Setting Up of the Bronze Serpent
-
-(No. 1722)
-
-DELIVERED ON THURSDAY EVENING, MAY 10, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1722 | The First Setting Up of the Bronze Serpent
 
 "And they journeyed from Mount Hor by the way of the Red Sea, to compass the land of Edom: and the soul of the people was much discouraged because of the way. And the people spoke against God, and against Moses, 'Why ha ve you brought us up out of Egypt to die in the wilderness? For there is no bread, neither is there any water; and our soul loathes this light bread.' And the Lord sent fiery serpents among the people, and they bit the people; and many people of Israel died. Therefore the people came to Moses and said, 'We have sinned, for we have spoken against the Lord, and against you; pray unto the Lord, that He take away the serpents from us.' And Moses prayed for the people. And the Lord said unto Moses, 'Make you a fiery serpent, and set it upon a pole: and it shall come topass, that everyone thatis bitten, when he looks upon it, shall live.' And Moses made a serpent of brass, and putit upon a pole, and it came topass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived." Numbers 21:4-9.
 

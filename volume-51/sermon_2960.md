@@ -1,12 +1,4 @@
-# "Where Are the Nine?" Where?
-
-(No. 2960)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2960 | "Where Are the Nine?" Where?
 
 "And Jesus answering said, Were there not ten cleansed? But where are the nine?" Luke 17:17.
 

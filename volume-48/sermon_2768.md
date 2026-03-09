@@ -1,12 +1,4 @@
-# Debtors and Debtors
-
-(No. 2768)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 2, 1902.
-
-DELIVERED BY C. H. SPURGEON.
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 13, 1883.
+# Sermon 2768 | Debtors and Debtors
 
 "There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty." Luke 7:41.
 

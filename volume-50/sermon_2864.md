@@ -1,12 +1,4 @@
-# God Has Spoken!-- Rejoice!
-
-(No. 2864)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 12, 1876.
+# Sermon 2864 | God Has Spoken!-- Rejoice!
 
 "God has spoken in His holiness; I will rejoice, I will divide Shechem and measure out the valley of Succoth." Psalm 108:7.
 

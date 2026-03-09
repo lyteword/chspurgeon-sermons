@@ -1,12 +1,4 @@
-# From Twenty-five to Thirty-five
-
-(No. 2517)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 16, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER 11, 1885.
+# Sermon 2517 | From Twenty-five to Thirty-five
 
 "And he went out about the third hour, and saw others standing idle in the marketplace, and said unto them; go you also into the vineyard, and whatever is right I will give you. And they went their way." Matthew 20:3,4.
 

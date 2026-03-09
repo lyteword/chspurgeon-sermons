@@ -1,6 +1,4 @@
-# The Holy Spirit's Intercession
-
-Sermon No. 1532 - Delivered on Lord's-Day Morning, April 11th, 1880 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1532 | The Holy Spirit's Intercession
 
 Likewise the Spirit also helpeth our infirmities: for we know not what we should what pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according the to will of God.'Romans 8:26,27.
 

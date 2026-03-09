@@ -1,12 +1,4 @@
-# The Great Emancipator
-
-(No. 1440)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1440 | The Great Emancipator
 
 "And you shall say unto Pharaoh, thus says the Lord, Israel is My son, even My firstborn: and I say unto you, Let My son go, that he may serve Me." Exodus 4:22,23.
 

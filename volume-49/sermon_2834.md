@@ -1,12 +1,4 @@
-# Conceit Rebuked
-
-(No. 2834)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 5, 1877.
+# Sermon 2834 | Conceit Rebuked
 
 "Should it be according to your mind?" Job 34:33.
 

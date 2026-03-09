@@ -1,7 +1,4 @@
-# The Importunate Widow
-
-Sermon No. 856 - Delivered on Lord's-day Morning, FEBRUARY 21, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 856 | The Importunate Widow
 
 "And He spoke a parable unto them to this end, that men ought always to pray and not to faint, saying, There was in a city a judge which feared not God, neither regarded man: and there was a widow in that city; and she came unto him, saying, Avenge me of my adversary. And he would not for a while: but afterward he said within himself, Though I fear not God, nor regard man; yet because this widow troubles me, I will avenge her, lest by her continual coming she weary me. And the Lord said, Hear what the unjust judge says. And shall not God avenge His own elect, which cry day and night unto Him, though He bear long with them? I tell you that He will avenge them speedily."- Luke 18:1-8.
 

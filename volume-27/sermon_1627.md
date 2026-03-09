@@ -1,6 +1,4 @@
-# Baptism--A Burial
-
-Sermon No. 1627 - Delivered on Lord's-Day Morning, October 30th, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1627 | Baptism--A Burial
 
 Know ye not, that so many of us as were baptized into Jesus Christ were baptized into his death? Therefore we are buried with him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life.''Romans 6:3-4.
 

@@ -1,12 +1,4 @@
-# The Royal Prerogative
-
-(No. 1465B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1465B | The Royal Prerogative
 
 "See now that I, even I, am He, and there is no god with Me: I kill, and I make alive; I wound, and I heal." Deuteronomy 32:39.
 

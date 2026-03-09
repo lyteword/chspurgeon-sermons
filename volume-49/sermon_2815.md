@@ -1,12 +1,4 @@
-# Good Cheer for Many That Fear
-
-(No. 2815)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY, 25, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1861.
+# Sermon 2815 | Good Cheer for Many That Fear
 
 "Say to them that are of a fearful heart, Be strong, fear not." Isaiah 35:4.
 

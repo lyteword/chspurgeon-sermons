@@ -1,10 +1,4 @@
-# A Generous Proposal
-
-(No. 916)
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 916 | A Generous Proposal
 
 "Come you with us, and we will do you good." Numbers 10:29.
 

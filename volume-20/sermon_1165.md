@@ -1,12 +1,4 @@
-# The Christian's Motto
-
-(No. 1165)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 22, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1165 | The Christian's Motto
 
 "I always do those things that please Him." John 8:29.
 

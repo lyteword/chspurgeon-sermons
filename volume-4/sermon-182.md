@@ -1,6 +1,4 @@
-# Human Inability
-
-Sermon No. 182 - Delivered on Sabbath Morning, March 7, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 182 | Human Inability
 
 > No man can come to me, except the Father which hath sent me draw him.    
 > John 6:44.    

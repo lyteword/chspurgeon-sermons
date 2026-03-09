@@ -1,6 +1,4 @@
-# "As Thy Days, So Shall Thy Strength Be"
-
-Sermon No. 210 - Delivered on Sabbath Morning, August 22, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 210 | "As Thy Days, So Shall Thy Strength Be"
 
 > As thy days, so shall thy strength be;    
 > Deuteronomy 33:25.    

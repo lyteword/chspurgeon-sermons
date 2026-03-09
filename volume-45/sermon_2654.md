@@ -1,12 +1,4 @@
-# Wakeful and Watchful Eyes
-
-(No. 2654)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 24, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 13, 1882.
+# Sermon 2654 | Wakeful and Watchful Eyes
 
 "Behold, He that keeps Israel shall neither slumber nor sleep." Psalm 121:4.
 

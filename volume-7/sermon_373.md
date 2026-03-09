@@ -1,6 +1,4 @@
-# Christ Set Forth As A Propitiation
-
-Sermon No. 373 - Delivered on Good Friday Morning, March 29th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 373 | Christ Set Forth As A Propitiation
 
 > "Christ Jesus whom God has set forth to be a propitiation through faith in His blood"  
 > Romans 3:25.  

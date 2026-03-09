@@ -1,12 +1,4 @@
-# The Death of Christ for His People
-
-(No. 2656)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 7, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE WINTER OF 1857.
+# Sermon 2656 | The Death of Christ for His People
 
 "He laid down His life for us." 1 John 3:16.
 

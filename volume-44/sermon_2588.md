@@ -1,12 +1,4 @@
-# Perfect Restoration
-
-(No. 2588)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 18, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 20, 1883.
+# Sermon 2588 | Perfect Restoration
 
 "They shall be as though I had not cast them aside." Zechariah 10:6.
 

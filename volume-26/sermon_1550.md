@@ -1,12 +1,4 @@
-# The Unspeakable Gift
-
-(No. 1550)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 25, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1550 | The Unspeakable Gift
 
 "Thanks be unto God for His unspeakable gift!" 2 Corinthians 9:15.
 

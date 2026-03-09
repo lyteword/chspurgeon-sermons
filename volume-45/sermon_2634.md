@@ -1,12 +1,4 @@
-# "Jesus Only" --a Communion Meditation
-
-(No. 2634)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 6, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, AUGUST 2, 1857.
+# Sermon 2634 | "Jesus Only" --a Communion Meditation
 
 "Jesus only." Mark 9:8.
 

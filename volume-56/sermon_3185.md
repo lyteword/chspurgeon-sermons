@@ -1,12 +1,4 @@
-# "A Song of My Beloved"
-
-(No. 3185)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 17, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3185 | "A Song of My Beloved"
 
 "My Beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether." Song of Solomon 2:16,17.
 

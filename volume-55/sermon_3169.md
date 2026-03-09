@@ -1,12 +1,4 @@
-# The Believer's Present Rest
-
-(No. 3169)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 4, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 6, 1873.
+# Sermon 3169 | The Believer's Present Rest
 
 "We who have believed do enter into rest." Hebrews 4:3.
 

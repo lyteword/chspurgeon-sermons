@@ -1,12 +1,4 @@
-# Honor for Honor
-
-(No. 2906)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 20, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 7, 1876.
+# Sermon 2906 | Honor for Honor
 
 "Those who honor Me I will honor, and those who despise Me shall be lightly esteemed." 1 Samuel 2:30.
 

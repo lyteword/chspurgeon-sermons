@@ -1,12 +1,4 @@
-# "The King of the Jews"
-
-(No. 3123)
-
-A SERMON PUBLISHED ON THURSDAY DECEMBER 17, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 6, 1874.
+# Sermon 3123 | "The King of the Jews"
 
 "And Pilate wrote a title, and put in on the Cross. And the writing was, JESUS OF NAZARETH, THE KING OF THE JEWS." John 19:19.
 

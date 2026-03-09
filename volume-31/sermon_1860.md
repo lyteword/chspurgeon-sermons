@@ -1,12 +1,4 @@
-# "Behold, He Prays"
-
-(No. 1860)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 20, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1860 | "Behold, He Prays"
 
 "Inquire in the house of Judas for one called Saul, of Tarsus, for, behold, he prays." Acts 9:11.
 

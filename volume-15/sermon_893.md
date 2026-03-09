@@ -1,7 +1,4 @@
-# Strong Consolation
-
-Sermon No. 893 - Delivered on Lord's-day Morning, SEPTEMBER 26 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 893 | Strong Consolation
 
 "Wherein God, willing more abundantly to show unto the heirs of promise the immutability of His counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might ha ve a strong consolation, who have fled for refuge to lay hold upon the hope set before us."- Hebrews 6:17,18.
 

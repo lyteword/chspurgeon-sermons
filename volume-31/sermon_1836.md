@@ -1,12 +1,4 @@
-# First Healing and then Service
-
-(No. 1836)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1836 | First Healing and then Service
 
 "And when Jesus was come into Peter's house, He sawhis wife's mother lying sick with a fever. So He touched her hand and the fever left her. And she arose and served them." Matthew 8:14,15.
 

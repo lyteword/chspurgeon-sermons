@@ -1,12 +1,4 @@
-# God's Word Not to Be Refused
-
-(No. 3492)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 30, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 27, 1870.
+# Sermon 3492 | God's Word Not to Be Refused
 
 "See that you refuse not Him who speaks. For if they escaped not who refused Him who spoke on earth, much more shall not we escape, if we turn away from Him who speaks from Heaven." Hebrews 12:25.
 

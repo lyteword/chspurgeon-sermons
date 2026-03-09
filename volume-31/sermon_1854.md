@@ -1,12 +1,4 @@
-# The Foundation and Its Seal--a Sermon for the Times
-
-(No. 1854)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 9, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1854 | The Foundation and Its Seal--a Sermon for the Times
 
 "Nevertheless the foundation of God stands sure, having this seal, 'The Lord knows them that are His,' and, 'Let everyone that names the name of Christ depart from iniquity." 2Timothy 2:19.
 

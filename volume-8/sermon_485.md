@@ -1,6 +1,4 @@
-# No Room for Christ in the Inn
-
-Sermon No. 485 - Delivered on Sunday Morning, December 21st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 485 | No Room for Christ in the Inn
 
 > "And she brought forth her firstborn son, and wrapped him in swaddling clothes, and laid him in a manger; because there was no room for them in the inn."  
 > Luke 2:7.  

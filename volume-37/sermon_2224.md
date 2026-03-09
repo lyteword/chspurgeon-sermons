@@ -1,12 +1,4 @@
-# "If You Can"--"If You Can"
-
-(No. 2224)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 4, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN, NEWINGTON.
+# Sermon 2224 | "If You Can"--"If You Can"
 
 "If You can do anything, have compassion on us, and help us. Jesus said unto him, If you can believe, all things are possible to him that believes." Mark 9:22,23.
 

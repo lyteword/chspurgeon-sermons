@@ -1,12 +1,4 @@
-# Ten Wrong Kinds of Hearers
-
-(No. 2308)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 14, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 21, 1889.
+# Sermon 2308 | Ten Wrong Kinds of Hearers
 
 "Cry aloud, spare not, lift up your voice like a trumpet, and show My people their transgression, and the house of Jacob their sins. Yet they seek Me daily and delight to know My ways, as a nation that did righteousness, and forsook not the ordinance of their God: they ask of Me the ordinances of justice; they take delight in approaching to God." Isaiah 58:1,2.
 

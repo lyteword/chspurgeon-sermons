@@ -1,12 +1,4 @@
-# Faith's Ultimatum
-
-(No. 1244)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 18 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1244 | Faith's Ultimatum
 
 "Though He slay me, yet will I trust in Him." Job 13:15.
 

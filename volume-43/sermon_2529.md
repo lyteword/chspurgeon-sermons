@@ -1,12 +1,4 @@
-# Compassion on the Ignorant
-
-(No. 2529)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 8, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 3, 1884.
+# Sermon 2529 | Compassion on the Ignorant
 
 "Who can have compassion on the ignorant, and on them that are out of the way." Hebrews 5:2.
 

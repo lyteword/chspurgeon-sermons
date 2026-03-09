@@ -1,6 +1,4 @@
-# None But Jesus
-
-Sermon No. 361 - Delivered on Sunday Morning, February 17th, 1861 by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 361 | None But Jesus
 
 > "He that believeth on him is not condemned"  
 > John 3:18  

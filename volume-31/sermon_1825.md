@@ -1,12 +1,4 @@
-# An Inscription for the Mausoleum of the Saints
-
-(No. 1825)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 1, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON MAY 8, 1884.
+# Sermon 1825 | An Inscription for the Mausoleum of the Saints
 
 "These all died in faith, not having received the promises, but having seen them afar off, were persuaded of them, embraced them and confessed that they were strangers and pilgrims on the earth. For those who say such things declare plainly that they seek a country." Hebrews 11:13,14.
 

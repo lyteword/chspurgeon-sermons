@@ -1,12 +1,4 @@
-# The Pierced Heart of Jesus
-
-(No. 3559)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 12, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3559 | The Pierced Heart of Jesus
 
 "Then came the soldiers and broke the legs of the first, and of the other which was crucified with Him. But when they came to Jesus and saw that He was dead already, they broke not His legs, but one ofthe soldiers with a spear pierced His side, and forthwith there came out blood and water. And he that saw it bares record that his record is true: and he knows that he is telling the truth, that you might believe. For these things were done that the Scripture should be fulfilled. A bone of Him shall not be broken. And again another Scripture says, They shall look on Him whom they have pierced." John 19:32-37.
 

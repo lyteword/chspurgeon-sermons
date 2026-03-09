@@ -1,12 +1,4 @@
-# Mistaken Notions About Repentance
-
-(No. 2743)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 8, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 20, 1879.
+# Sermon 2743 | Mistaken Notions About Repentance
 
 "Then you will remember your evil ways, and your deeds that were not good, and you will loathe yourselves in your own sight for your iniquities and for your abominations." Ezekiel 36:31.
 

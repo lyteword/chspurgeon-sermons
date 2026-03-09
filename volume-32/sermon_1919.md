@@ -1,12 +1,4 @@
-# The Very Bold Prophecy
-
-(No. 1919)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1919 | The Very Bold Prophecy
 
 "I was sought by those who did not ask for Me; I was found by those who did notseek Me: I said, Behold Me, behold Me, to a nation that was not called by My name" Isaiah 65:1.
 

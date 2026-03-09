@@ -1,12 +1,4 @@
-# God's Tender Mercy
-
-(No. 3029)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 28, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, MAY 23, 1869.
+# Sermon 3029 | God's Tender Mercy
 
 "The tender mercy of our God." Luke 1:78.
 

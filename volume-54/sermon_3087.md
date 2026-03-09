@@ -1,12 +1,4 @@
-# A Time of Finding for Lost Sheep
-
-(No. 3087)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 9, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3087 | A Time of Finding for Lost Sheep
 
 "I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick: but I will destroy the fat and the strong; I will feed them with judgment" Ezekiel 34:16.
 

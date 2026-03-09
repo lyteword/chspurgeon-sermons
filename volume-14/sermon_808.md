@@ -1,6 +1,4 @@
-# Bringing the King Back
-
-Sermon No. 808 - Delivered on Sunday Evening, April 19, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 808 | Bringing the King Back
 
 > "Now therefore why speak you not a word of bringing the king back?"  
 > 2 Samuel 19:10.  

@@ -1,12 +1,4 @@
-# The Eternal Truth of God
-
-(No. 1265)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 6, 1875,
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1265 | The Eternal Truth of God
 
 "The truth endures to all generations." Psalm 100:5.
 

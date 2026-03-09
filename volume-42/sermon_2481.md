@@ -1,12 +1,4 @@
-# Faith Victorious
-
-(No. 2481)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 6, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 25, 1886.
+# Sermon 2481 | Faith Victorious
 
 "Then Jesus went out from there and departed to the coasts of Tyre and Sidon. And, behold, a woman of Canaan came from that same region, and cried out to Him, saying, Have mercy on me, O Lord, Son of David, my daughter is grievously vexed with a devil. But He answered her not a word. And His disciples came and urged Him, saying, Sendher away; for she cries after us. But He answered and said, I am not sent but to the lost sheep of the house of Israel. Then she came and worshipped Him, saying, Lord, help me. But He answered and said, It is not good to take the children's bread, and to cast it to dogs. And she said, Truth, Lord: yet the dogs eat of the crumbs which fall from their masters' table. Then Jesus answered and said to her, O woman great is your faith: be it to you even asyou will. And her daughter was made whole from that very hour." Matthew 15:21-28.
 

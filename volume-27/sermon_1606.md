@@ -1,10 +1,4 @@
-# Ziklag--or David Encouraging Himself In God
-
-(No. 1606)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 26, 1881,
-
-BY C. H. SPURGEON, AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1606 | Ziklag--or David Encouraging Himself In God
 
 "And David was greatly distressed; for the people spoke of stoning him because the soul of all the people was grieved, every man for his sons and for his daughters. But Da vid encouraged himself in the Lord his God."
 

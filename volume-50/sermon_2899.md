@@ -1,12 +1,4 @@
-# "To You"
-
-(No. 2899)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 1, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 9, 1876.
+# Sermon 2899 | "To You"
 
 "To you is the word of this salvation sent." Acts 13:26.
 

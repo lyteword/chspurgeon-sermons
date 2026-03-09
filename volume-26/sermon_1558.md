@@ -1,12 +1,4 @@
-# Rare Fruit
-
-(No. 1558)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1558 | Rare Fruit
 
 "I create the fruit of the lips: Peace, peace." Isaiah 57:19.
 

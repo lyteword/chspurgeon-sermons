@@ -1,12 +1,4 @@
-# "A Peculiar People"
-
-(No. 2530)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 15, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 6, 1884.
+# Sermon 2530 | "A Peculiar People"
 
 "But know that the LORD has set apart him that is godly for Himself: the Lord will hear when I call to Him." Psalm 4:3.
 

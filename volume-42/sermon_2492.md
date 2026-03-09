@@ -1,12 +1,4 @@
-# Paul's Persuasion
-
-(No. 2492)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 22, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 7, 1886.
+# Sermon 2492 | Paul's Persuasion
 
 "For I am persuaded that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come nor height, nor depth nor any other creature, shall be able to separate us from the love ofGod which is in Christ Jesus our Lord." Romans 8:38,39.
 
@@ -60,7 +52,6 @@ Having summarily disposed of all of them, Paul adds, "nor things present.'" I li
 
 I was feeling very heavy, I scarcely knew why, when I caught at this text. And it seemed to come in so pleasantly for me when my spirits were down. "Things present." Even a depressed and desponding state of mind, whatever the cause of it is--whether weariness of brain or heaviness of heart--cannot separate us from the love of God in Christ Jesus!
 
-Then, what can it do? Why, sometimes it can drive us to Christ--let us pray that it may! But anyhow, things present cannot separate us from the love of God in Christ Jesus. Then the Apostle says, "nor things to come." Well, I wonder what is "to come." O Friends, I sometimes feel a strange trembling when I stand upon this platform to speak to you because the words that I utter are often so remarkably fulfilled of God as really to amaze me! Two Sunday nights ago, when I stood here to preach about the long-suffering of God being salvation, [Sermon No. 1997, Volume 33: God's Long-suffering-- An Appeal to the Conscience"] I spoke, in the middle of the sermon, as if personally addressing someone who was present, who had lately been ill with fever, and who had come to the Tabernacle, still weak and scarcely recovered. There was a young man here who exactly answered to the description I gave, and who wrote home to his mother something like this (I have the letter)--"I went to Spurgeon's Tabernacle on Sunday night and I heard such a sermon! I never felt anything like it before. He looked at me and picked me out as if I was the only man there, and described me exactly."
 
 Then he gave the words I used and continued, "It was a true description of myself. If the sermon is printed, pray get me a copy that I may read it when I come home, for I felt the power of it and I prayed, then and there, that God would bring me to my mother's God and save me." That was on the Sunday, mark you. On the Wednesday he was at Graves-end--there was a collision and he and five others were drowned. The mother received that letter about an hour before she heard the news that her son was dead--and the parents wrote to tell me what a balm it was to their spirits that God's Providence should bring their boy in here just before he was to meet his God.
 

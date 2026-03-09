@@ -1,12 +1,4 @@
-# Church Increase
-
-(No. 2692)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 16, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 18, 1881.
+# Sermon 2692 | Church Increase
 
 "The children which you shall have, after you have lost the other, shall say again in your ears, The place is too small for me: give me aplace that I may dwell. Then you will say in your heart, Who has begotten these for me, seeing I have lost my children, and am desolate, a captive, and wandering to and fro? And who has brought these up? Behold, I was left alone; these, where had they been?" Isaiah 49:20,21.
 

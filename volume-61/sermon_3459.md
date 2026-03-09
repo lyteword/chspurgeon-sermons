@@ -1,12 +1,4 @@
-# More and More
-
-(No. 3459)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 20, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3459 | More and More
 
 "But He gives more Grace." James 4:6.
 

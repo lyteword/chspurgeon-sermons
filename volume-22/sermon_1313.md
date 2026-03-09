@@ -1,16 +1,7 @@
-# A Second Word to Seekers
-
-(No. 1313)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 10, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1313 | A Second Word to Seekers
 
 "And you shall seek Me, and find Me, when you shall search for Me with all your heart." Jeremiah 29:13.
 
-LAST Sabbath morning [See Sermon No. 1312, "Good News for Seekers."] we gave forth words of good cheer to those who seek the Lord, dwelling upon those encouraging words of the Savior upon the Cross, "They shall praise the Lord that seek Him." We aimed only at the one point of encouraging seekers, for a single objective is always enough for one discourse and the impression made is more likely to be permanent. We had neither time nor desire to qualify our language with discriminating remarks which would help to show who are true seekers and who are not. One cannot reap and winnow with the same machine. I think it is right, therefore, that we should follow up that discourse by another in which we shall discern between those who truly seek and those who only nominally seek the Lord.
 
 Such discrimination will be useful in many ways. Perhaps, dear Friend, after last Lord's-Day you said, "I do not understand this promise that seekers shall praise God, for I have been seeking for many months but I have not been able to praise Him. Surely the promise cannot be true for me." Rest assured, dear Friend, that the promise is true for you if you are true to it. The Word of the Lord is sure. There can be no question upon that point--the questions to be raised must deal with yourself and your searching--either you do not seek or else you seek amiss. Always conclude that if a general promise does not turn out to be true in your particular instance, there is something in you that hinders it. You must have fallen short of the character to which the promise is made--the promise, itself, cannot be suspect. "Let God be true and every man a liar."
 

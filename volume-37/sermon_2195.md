@@ -1,12 +1,4 @@
-# The Obedience of Faith
-
-(No. 2195)
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 21, 1890,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2195 | The Obedience of Faith
 
 "By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed; and he went out, not knowing where he went." Hebrews 11:8.
 

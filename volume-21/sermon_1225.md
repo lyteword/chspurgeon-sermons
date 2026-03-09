@@ -1,12 +1,4 @@
-# Jesus, The Delight of Heaven
-
-(No. 1225)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1225 | Jesus, The Delight of Heaven
 
 "And they sung a new song, saying, You are worthy to take the book, and to open the seals thereof: for You were slain, and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation; and have made us unto our God kings and priests: and we shall reign on the earth." Revelation 5:9,10.
 

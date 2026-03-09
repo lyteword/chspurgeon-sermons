@@ -1,12 +1,4 @@
-# The Poor Man's Friend
-
-(No. 3059)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 26, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 8, 1873.
+# Sermon 3059 | The Poor Man's Friend
 
 "The poor commits himself unto You." Psalm 10:14.
 

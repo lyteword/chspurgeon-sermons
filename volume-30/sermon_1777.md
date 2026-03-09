@@ -1,12 +1,4 @@
-# Esther's Exaltation--or, Who Knows?
-
-(No. 1777)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 27, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1777 | Esther's Exaltation--or, Who Knows?
 
 "Then Mordecai told them to answer Esther, "Do not thinkin your heart that you will escape in the king's palace, more than all the Jews. For if you altogether hold your peace at this time, then shall there enlargement and deliverance arise to the Jews from another place, but you and your father's house shall be destroyed: and who knows whether you are come to the kingdom for such a time as this?" Esther 4:13,14.
 

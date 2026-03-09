@@ -1,12 +1,4 @@
-# The Hiding of Moses by Faith
-
-(No. 1421)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1421 | The Hiding of Moses by Faith
 
 "By faith Moses, when he was born, was hid three months by his parents, because they sa w he was a proper child; and they were not afraid of the king's commandment." Hebrews 11:23.
 

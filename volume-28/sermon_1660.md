@@ -1,12 +1,4 @@
-# The Perpetuity of the Law of God
-
-(No. 1660)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 21, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1660 | The Perpetuity of the Law of God
 
 "For verily I say unto you, Till Heaven and earth pass, one jot or one tittle shall in no wise pass from the Law till all is fulfilled." Matthew 5:18.
 

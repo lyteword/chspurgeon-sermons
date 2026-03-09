@@ -1,12 +1,4 @@
-# The Power of a Sigh
-
-(No. 2464)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 10, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 22, 1886.
+# Sermon 2464 | The Power of a Sigh
 
 "For the oppression of the poor, for the sighing of the needy, now will I arise, says the LORD; I will set him in safety from him that puffs at him." Psalm 12:5.
 

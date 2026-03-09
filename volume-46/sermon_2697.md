@@ -1,12 +1,4 @@
-# Angelic Interest in the Gospel
-
-(No. 2697)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 21, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 25, 1881.
+# Sermon 2697 | Angelic Interest in the Gospel
 
 "Which things the angels desire to look into." 1 Peter 1:12.
 

@@ -1,6 +1,4 @@
-# Pleading, Not Contradicting
-
-Sermon No. 2129 - Delivered on Sunday Morning, February 9th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2129 | Pleading, Not Contradicting
 
 > "She said, Truth, Lord:yet."  
 > Matthew 15:27.  

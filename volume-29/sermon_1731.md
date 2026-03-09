@@ -1,12 +1,4 @@
-# Accepted of the Great Father
-
-(No. 1731)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 15, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1731 | Accepted of the Great Father
 
 "He has made us accepted in the Beloved." Ephesians 1:6.
 

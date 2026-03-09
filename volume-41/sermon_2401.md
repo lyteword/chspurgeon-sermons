@@ -1,12 +1,4 @@
-# The Child of Light and the Works of Darkness
-
-(No. 2401)
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 24, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 24, 1887.
+# Sermon 2401 | The Child of Light and the Works of Darkness
 
 "Have no fellowship with the unfruitful works of darkness, but rather reprove them." Ephesians 5:11.
 

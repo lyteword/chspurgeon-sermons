@@ -1,12 +1,4 @@
-# Paved With Love
-
-(No. 1134)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 28, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1134 | Paved With Love
 
 "The midst thereof being pa ved with love, for the daughters of Jerusalem." Song of Solomon 3:10.
 

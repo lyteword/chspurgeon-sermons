@@ -1,12 +1,4 @@
-# The Church--the World's Hope
-
-(No. 2952)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2952 | The Church--the World's Hope
 
 "Lo, God has given you all them that sail with you." Acts 27:24.
 

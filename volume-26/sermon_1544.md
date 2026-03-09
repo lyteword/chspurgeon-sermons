@@ -1,12 +1,4 @@
-# Mahanaim--or, Hosts Of Angels
-
-(No. 1544)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 20, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1544 | Mahanaim--or, Hosts Of Angels
 
 "And Jacob went on his way and the angels of God met him. And when Jacob saw them, he said, This is God's host: and he called the name of that place Mahanaim." Genesis 32:1,2.
 

@@ -1,14 +1,4 @@
-# Special Protracted Prayer
-
-A Sermon
-
-(No. 798)
-
-Delivered on Lord's-Day Morning, March 1, 1868, by
-
-H. SPURGEON,
-
-at the [11]Metropolitan Tabernacle Newington.
+# Sermon 798 | Special Protracted Prayer
 
 "And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God." Luke 6:12.
 

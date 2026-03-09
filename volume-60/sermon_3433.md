@@ -1,12 +1,4 @@
-# Love's Reward
-
-(No. 3433)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3433 | Love's Reward
 
 "Because he has set his love upon Me, therefore will I deliver him. I will set him on high because he has known My name." Psalm 91:14.
 

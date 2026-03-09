@@ -1,7 +1,4 @@
-# The Dawn of Revival, or Prayer Speedily Answered
-
-Sermon No. 734 - Delivered on Lord's-day Morning, FEBRUARY 10, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 734 | The Dawn of Revival, or Prayer Speedily Answered
 
 "At the beginning of your supplications the commandment came forth, and I am come to show you; for you are greatly beloved."- Daniel9:23.
 

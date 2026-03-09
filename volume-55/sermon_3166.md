@@ -1,12 +1,4 @@
-# "A Greater Than Solomon"
-
-(No. 3166)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 14, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 29, 1873.
+# Sermon 3166 | "A Greater Than Solomon"
 
 "The Queen of the South shall rise up in thejudgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon: and, behold, a greater than Solomon is here." Matthew 12:42.
 

@@ -1,12 +1,4 @@
-# The Family Likeness
-
-(No. 3483)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 28, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING SEPTEMBER 28, 1870.
+# Sermon 3483 | The Family Likeness
 
 "For as many as are led by the Spirit of God, they are the sons of God." Romans 8:14.
 

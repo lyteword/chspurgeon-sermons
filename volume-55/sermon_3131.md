@@ -1,12 +1,4 @@
-# The Fainting Hero
-
-(No. 3131)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3131 | The Fainting Hero
 
 "He was very thirsty, and called on the LORRD, and said, You have given this great deliverance into the hand of Your servant: and now shall I die of thirst, and fall into the hand of the uncircumncised?" Judges 15:18.
 

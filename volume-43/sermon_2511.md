@@ -1,12 +1,4 @@
-# Brought Out to Be Brought In
-
-(No. 2511)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 4, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 6, 1886.
+# Sermon 2511 | Brought Out to Be Brought In
 
 "He brought us out from there, that He might bring us in, to give us the land which He swore unto our fathers." Deuteronomy 6:23.
 

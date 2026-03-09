@@ -1,12 +1,4 @@
-# Great Forgiveness for Great Sin
-
-(No. 2863)
-
-A WATCH-NIGHT SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 31, 1876.
+# Sermon 2863 | Great Forgiveness for Great Sin
 
 "In whom we have redemption through the blood, the forgiveness of sins, according to the riches of His Grace." Ephesians 1:7.
 

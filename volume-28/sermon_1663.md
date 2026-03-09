@@ -1,12 +1,4 @@
-# The True Gospel Is No Hidden Gospel
-
-(No. 1663)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 4, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1663 | The True Gospel Is No Hidden Gospel
 
 "But if our Gospelis hid, itis hid to them that are lost: in whom the god of this world has blinded the minds of them which believe not, lest the light of the glorious Gospel of Christ, who is the image of God, should shine on them." 2 Corinthians 4:3,4.
 

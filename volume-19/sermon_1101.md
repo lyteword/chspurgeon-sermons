@@ -1,12 +1,4 @@
-# An Old-Fashioned Conversion
-
-(No. 1101)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 16, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1101 | An Old-Fashioned Conversion
 
 "Lo, all these things works God oftentimes with man, To bring back his soul from thepit, to be enlightened with the light of the living." Job 33:29,30.
 

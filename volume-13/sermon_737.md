@@ -1,7 +1,4 @@
-# God--All in All
-
-Sermon No. 737 - Delivered on Lord's-day Morning, FEBRUARY 24, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 737 | God--All in All
 
 "When He gives quietness, who then can make trouble? And when He hides His face, who then can behold Him? Whether it is done against a nation, or against a man only."- Job 34:29.
 

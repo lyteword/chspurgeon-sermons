@@ -1,12 +1,4 @@
-# One of the Master's Choice Sayings
-
-(No. 3046)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 27, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3046 | One of the Master's Choice Sayings
 
 "But Jesus said unto them, They need not depart." Matthew 14:16.
 

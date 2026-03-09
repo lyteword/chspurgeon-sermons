@@ -1,12 +1,4 @@
-# The Mighty Arm
-
-(No. 1314)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 17, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1314 | The Mighty Arm
 
 "You have a mighty arm: strong is Your hand, and high is Your right hand." Psalm 89:13.
 

@@ -1,6 +1,4 @@
-# High Doctrine
-
-Sermon No. 318 - Delivered on Sabbath Morning, June 3rd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 318 | High Doctrine
 
 TO THE READERS OF THE PARK STREET PULPIT
 

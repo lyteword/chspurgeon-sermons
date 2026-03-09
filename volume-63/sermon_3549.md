@@ -1,12 +1,4 @@
-# Little, But Lovely
-
-(No. 3549)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3549 | Little, But Lovely
 
 "Fear not, little flock, for it is your Father's good pleasure to give you the kingdom." Luke 12:32.
 

@@ -1,12 +1,4 @@
-# Unbelievers Upbraided
-
-(No. 2890)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 8, 1876.
+# Sermon 2890 | Unbelievers Upbraided
 
 "He.. .upbraided them with their unbelief." Mark 16:14.
 

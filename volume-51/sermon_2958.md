@@ -1,12 +1,4 @@
-# The Saints' Love to God
-
-(No. 2958)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 27, 1875.
+# Sermon 2958 | The Saints' Love to God
 
 "Oh love the LORD, all you His saints." Psalm 31:23.
 

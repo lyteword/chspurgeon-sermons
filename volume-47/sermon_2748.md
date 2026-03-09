@@ -1,12 +1,4 @@
-# Rest As a Test
-
-(No. 2748)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 13, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 4, 1879.
+# Sermon 2748 | Rest As a Test
 
 "Ask for the old path, where the good way is, and walk in it, and you shall find rest for your souls." Jeremiah 6:16.
 

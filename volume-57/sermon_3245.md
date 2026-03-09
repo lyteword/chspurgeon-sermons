@@ -1,12 +1,4 @@
-# Our Position and Our Purpose
-
-(No. 3245)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 13, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3245 | Our Position and Our Purpose
 
 "Having therefore these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God." 2 Corinthians 7:1.
 

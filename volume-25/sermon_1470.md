@@ -1,12 +1,4 @@
-# A Question for Hard-hearted Hearers
-
-(No. 1470)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1470 | A Question for Hard-hearted Hearers
 
 "Shall horses run upon the rock? Will one plow there with oxen?" Amos 6:12.
 

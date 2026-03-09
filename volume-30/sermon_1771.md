@@ -1,12 +1,4 @@
-# Putting the Hand Upon the Head of the Sacrifice
-
-(No. 1771)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 16, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1771 | Putting the Hand Upon the Head of the Sacrifice
 
 "And he shall put his hand upon the head of the burnt offering; and it shall be accepted for him to make atonement for him. And he shall kill the bullock before the LORD." Leviticus 1:4, 5.
 

@@ -1,12 +1,4 @@
-# Our Lord's Posture in Ascension
-
-(No. 2949)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 20, 1875.
+# Sermon 2949 | Our Lord's Posture in Ascension
 
 "And He led them out as far as to Bethany, and He lifted up His hands, and blessed them. And it came to pass, while He blessed them, He was parted from them, and carried up into Heaven. And they worshipped Him, and returned to Jerusalem with great joy: and were continually in the temple, praising and blessing God." Luke 24:50-53.
 

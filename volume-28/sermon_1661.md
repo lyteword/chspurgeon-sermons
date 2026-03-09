@@ -1,12 +1,4 @@
-# Praying and Pleading
-
-(No. 1661)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1661 | Praying and Pleading
 
 "O Lord, though our iniquities testify against us, do it for Your name's sake; for our backslidings are many. We have sinned against You. O the Hope of Israel, his Savior in time of trouble, why should You be as a stranger in the land, and as a wayfaring man that turns aside to tarry for a night? Why should You be as a man astonished, as a mighty man that cannot save? Yet You, O Lord, are in the midst of us, and we are called by Your name. Do not leave us!" Jeremiah 14:7,8,9.
 

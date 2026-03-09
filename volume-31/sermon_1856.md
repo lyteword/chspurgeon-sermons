@@ -1,12 +1,4 @@
-# The History of Little-Faith
-
-(No. 1856)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 23, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1856 | The History of Little-Faith
 
 "And immediately Jesus stretched forth His hand, and caught him, and said unto him, O you of little faith, why did you doubt?" Matthew 14:31.
 

@@ -1,12 +1,4 @@
-# Our Thoughts About God's Thoughts
-
-(No. 2609)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 12, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 1, 1883.
+# Sermon 2609 | Our Thoughts About God's Thoughts
 
 "How precious also aire Your thoughts unto me, O God! How great is the sum of them!If I should count them, they are more in number than the sand: when I awake, I am still with You." Psalm 139:17,18.
 

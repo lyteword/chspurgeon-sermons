@@ -1,12 +1,4 @@
-# Examination Before Communion
-
-(No. 2699)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 4, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 2, 1881.
+# Sermon 2699 | Examination Before Communion
 
 "But let a man examine himself, and so let him eat of that bread, and drink of that cup." 1 Corinthians 11:28.
 

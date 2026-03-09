@@ -1,6 +1,4 @@
-# David's Dying Prayer
-
-Sermon No. 129 - Delivered on Sabbath Morning, April 26, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 129 | David's Dying Prayer
 
 > Let the whole earth be filled with his glory; Amen, and Amen.    
 > Psalm 72:10.    

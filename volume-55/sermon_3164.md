@@ -1,12 +1,4 @@
-# The Mission of Affliction
-
-(No. 3164)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 30, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 8, 1873.
+# Sermon 3164 | The Mission of Affliction
 
 "Let him alone, and let him curse, for so the Lord has ordered him. It may be that the Lord will look on my affliction, and that the Lord willrepay me with good for his cursing this day." 2 Samuel 16:11,12.
 

@@ -1,12 +1,4 @@
-# Go Back? Never!
-
-(No. 3478)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 30, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 13, 1871.
+# Sermon 3478 | Go Back? Never!
 
 "And truly, if they had been mindful of that country from whence they came out, they might have had opportunity to have returned. But now they desire a better country, that is an heavenly country." Hebrews 11:15,16.
 

@@ -1,12 +1,4 @@
-# Good News For Thirsty Souls
-
-(No. 1549)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 4, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1549 | Good News For Thirsty Souls
 
 "I will give unto him that is thirsty of the fountain of the water of life freely." Revelation 21:6.
 

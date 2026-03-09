@@ -1,12 +1,4 @@
-# The Bride and Her Ornaments--the Sin of Forgetting God
-
-(No. 1634A)
-
-DELIVERED ON THURSDAY EVENING, AUGUST 4, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1634A | The Bride and Her Ornaments--the Sin of Forgetting God
 
 "Can a maid forget her ornaments, or a bride her attire? Yet My people have forgotten Me days without number." Jeremiah 2:32.
 

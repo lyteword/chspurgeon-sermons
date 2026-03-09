@@ -1,12 +1,4 @@
-# Co-workers With God
-
-(No. 2559)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 6, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 25, 1883.
+# Sermon 2559 | Co-workers With God
 
 "Unless the Lord builds the house, they labor in vain who build it: unless the LORD guards the city, the watchman stays awake in vain. It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so He gives His Beloved sleep." Psalm 127:1,2.
 

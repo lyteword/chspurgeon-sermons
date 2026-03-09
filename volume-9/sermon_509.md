@@ -1,6 +1,4 @@
-# Lead Us Not Into Temptation
-
-Sermon No. 509 - Delivered on Sunday Morning, May 17th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 509 | Lead Us Not Into Temptation
 
 > "Lead us not into temptation, but deliver us from evil."  
 > Matthew 6:13.   

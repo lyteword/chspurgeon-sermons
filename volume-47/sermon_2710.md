@@ -1,12 +1,4 @@
-# Christ the Cause of Division
-
-(No. 2710)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 20, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 21, 1880.
+# Sermon 2710 | Christ the Cause of Division
 
 "So there was a division among the people because of Him." John 7:43.
 

@@ -1,12 +1,4 @@
-# A Visit to Bethlehem
-
-(No. 2915)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 22, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, DECEMBER 24, 1854.
+# Sermon 2915 | A Visit to Bethlehem
 
 "Let us now go to Bethlehem and see this thing which is come to pass, which the Lord has made known unto us." Luke 2:15.
 

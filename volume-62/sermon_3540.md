@@ -1,12 +1,4 @@
-# A Remarkable Benediction
-
-(No. 3540)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 21, 1872.
+# Sermon 3540 | A Remarkable Benediction
 
 "And for the good will of Him that dwelt in the bush." Deuteronomy 33:16.
 

@@ -1,12 +1,4 @@
-# Lost Through One--Saved Through One
-
-(No. 2744)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 15, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON THURSDAY EVENING, APRIL 24, 1879.
+# Sermon 2744 | Lost Through One--Saved Through One
 
 "And not as it was by one that sinned, so is the gift: for the judgment was by one to condemnation, but the free gift which came from many offenses resulted in justification." Romans 5:16.
 

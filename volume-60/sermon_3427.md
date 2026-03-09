@@ -1,12 +1,4 @@
-# The Blessed Christ
-
-(No. 3427)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 21, 1870.
+# Sermon 3427 | The Blessed Christ
 
 "Hosanna to the Son of David! Blessed is He that comes in the name of the Lord." Matthew 21:9.
 

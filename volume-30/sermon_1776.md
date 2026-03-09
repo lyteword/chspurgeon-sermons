@@ -1,12 +1,4 @@
-# Unbinding Lazarus
-
-(No. 1776)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 20, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1776 | Unbinding Lazarus
 
 "And when He had thus spoken, He cried with a loud voice, Lazarus, come forth! And he that was dead came forth, bound hand and foot with grave clothes: and his face was bound about with a napkin. Jesus said unto them, Loose him, and let him go." John 11:43,44.
 

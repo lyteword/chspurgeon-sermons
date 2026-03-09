@@ -1,12 +1,4 @@
-# God in Heaven, and Men on the Sea
-
-(No. 3321)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 26, 1912.
-
-DELIVERED BY C. H. SPURGEON, ON BEHALF OF THE BRITISH AND FOREIGN SAILORS' SOCIETY,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3321 | God in Heaven, and Men on the Sea
 
 "By terrible things in righteousness will You answer us, O God of our salvation; who are the confidence of all the ends of the earth, and of them that are afar off upon the sea." Psalm 65:5.
 

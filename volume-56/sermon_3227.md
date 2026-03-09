@@ -1,12 +1,4 @@
-# The Secret of Happiness
-
-(No. 3227)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 8, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 2, 1872.
+# Sermon 3227 | The Secret of Happiness
 
 "Son, be of good cheer; your sins are forgiven you." Matthew 9:2.
 

@@ -1,12 +1,4 @@
-# The Bridegroom's Parting Words
-
-(No. 1716)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 15, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1716 | The Bridegroom's Parting Words
 
 "You that dwells in the gardens, the companions hearken to your voice: cause Me to hear it." Song of Solomon 8:13.
 

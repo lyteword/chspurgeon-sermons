@@ -1,12 +1,4 @@
-# Desires Towards God--a Sermon For The Weak
-
-(No. 1564)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 24, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1564 | Desires Towards God--a Sermon For The Weak
 
 "Lord, all my desire is before You; and my groaning is not hid from You." Psalm 38:9.
 

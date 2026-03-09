@@ -1,12 +1,4 @@
-# Mistakes Concerning God
-
-(No. 3119)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1908.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 26, 1874.
+# Sermon 3119 | Mistakes Concerning God
 
 "You thought that I was altogether like you." Psalm 1:21.
 

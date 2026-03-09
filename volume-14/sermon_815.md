@@ -1,8 +1,4 @@
-# Daniel's Undaunted Courage
-
-A Sermon (No. 815)
-
-Delivered on Sunday Morning, June 14, 1868, by C. H. SPURGEON, at the [25]Metropolitan Tabernacle, Newington.
+# Sermon 815 | Daniel's Undaunted Courage
 
 "Now when Daniel knew that the writing was signed, he went into his house; and his windows being open in his chamber towards Jerusalem, he kneeled upon his knees three times a day, and prayed, and gave thanks before his God, as he did before." Daniel 6:10.
 

@@ -1,12 +1,4 @@
-# Two Ancient Proverbs
-
-(No. 3080)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 20, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 29, 1874.
+# Sermon 3080 | Two Ancient Proverbs
 
 "The fear of man brings a snare; but whoever puts his trust in the LORRD shall be safe." Proverbs 29:25.
 

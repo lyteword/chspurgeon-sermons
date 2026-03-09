@@ -1,12 +1,4 @@
-# Joy, a Duty
-
-(No. 2405)
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 24, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 20, 1887.
+# Sermon 2405 | Joy, a Duty
 
 "Rejoice in the Lord always: and again I say, Rejoice." Philippians 4:4
 

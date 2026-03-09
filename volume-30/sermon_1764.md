@@ -1,12 +1,4 @@
-# The Rocky Fortress and Its Inhabitant
-
-(No. 1764)
-
-A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 3, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1764 | The Rocky Fortress and Its Inhabitant
 
 "He who walks righteously and speaks uprightly; he that despises the gain of oppressions, that shakes his hands from holding of bribes, that stops his ears from hearing of blood, and shuts his eyes from seeing evil, he shall dwell on high: his place of defense shall be the munitions of rocks: bread shall be given him; his waters shall be sure." Isaiah 33:15,16.
 

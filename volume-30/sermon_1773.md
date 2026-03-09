@@ -1,12 +1,4 @@
-# What Is Your Life?
-
-(No. 1773)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 30, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1773 | What Is Your Life?
 
 "For what is your life? It is even a vapor, that appears for a little time, and then vanishes away." James 4:14.
 

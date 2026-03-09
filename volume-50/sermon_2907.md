@@ -1,12 +1,4 @@
-# The Holy Spirit Glorifying Christ
-
-(No. 2907)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 27, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 12, 1891.
+# Sermon 2907 | The Holy Spirit Glorifying Christ
 
 "He will glorify Me, for He will take of what is Mine and declare it to you." John 16:14.
 

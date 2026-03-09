@@ -1,12 +1,4 @@
-# Out of Nothing Comes Nothing
-
-(No. 2734)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 7, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 21, 1880.
+# Sermon 2734 | Out of Nothing Comes Nothing
 
 "Who can bring a clean thing out of an unclean? Not one." Job 14:4.
 

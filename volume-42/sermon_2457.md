@@ -1,12 +1,4 @@
-# Job's Resignation
-
-(No. 2457)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 11, 1886.
+# Sermon 2457 | Job's Resignation
 
 "Then Job arose, tore his clothes, and shaved his head, and fell to the ground, and worshipped, and said, Naked I came from my mother's womb, and naked shall I return there: the LORD gave, and the LORD has taken away; blessed be the name of the LORD. In all this Job sinned not, nor charged God foolishly." Job 1:20-22.
 

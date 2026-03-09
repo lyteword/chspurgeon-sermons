@@ -1,12 +1,4 @@
-# The Church's Probation
-
-(No. 2967)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2967 | The Church's Probation
 
 "You, O God, have tested us." Psalm 66:10.
 

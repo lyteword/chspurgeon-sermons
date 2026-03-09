@@ -1,12 +1,4 @@
-# God Justified, Though Man Believes Not
-
-(No. 2255)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 8, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 31, 1890.
+# Sermon 2255 | God Justified, Though Man Believes Not
 
 "For what if some did not believe? Shall their unbelief make the faith of God without effect? God forbid: yes, let God be true, and every man a liar; as itis written, That You might be justified in Your sayings, and might overcome when You are judged." Romans 3:3,4.
 

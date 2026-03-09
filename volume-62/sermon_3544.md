@@ -1,12 +1,4 @@
-# The Only Road
-
-(No. 3544)
-
-PUBLISHED ON THURSDAY, DECEMBER 28, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE LORD'S-DAY EVENING, MARCH 31, 1872.
+# Sermon 3544 | The Only Road
 
 "Jesus said to Him, I am the way, the truth, and the life; no man comes to the Father but by Me." John 14:6.
 

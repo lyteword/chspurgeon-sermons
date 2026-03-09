@@ -1,12 +1,4 @@
-# Happiness--the Privilege and Duty of Christians
-
-(No. 1359)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 10, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE. NEWINGTON.
+# Sermon 1359 | Happiness--the Privilege and Duty of Christians
 
 "Happy are you, O Israel; who is like unto you? Opeople saved by the Lord, the shield of your help, and who is the sword of your excellency! And your enemies shall be found liars unto you; and you shall tread upon their high places." Deuteronomy 33:29.
 

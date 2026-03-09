@@ -1,12 +1,4 @@
-# The Fourth Beatitude
-
-(No. 3157)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 12, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 14, 1873
+# Sermon 3157 | The Fourth Beatitude
 
 "Blessed are they who hunger and thirst after righteousness: for they shall be filled." Matthew 5:6.
 

@@ -1,7 +1,4 @@
-# A Song at the Wellhead
-
-Sermon No. 776 - Delivered on Thursday Evening, OCTOBER 10, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 776 | A Song at the Wellhead
 
 "And from there they went to Beer, which is the well where the Lord said to Moses, 'Gather the people together, and I will give them water.' Then Israel sang this song, Spring up, O well! All of you sing to it--The princes dug the well, the nobles of the people dug it, by the direction of the la wgiver, with their sta ves."- Numbers 21:16-18.
 

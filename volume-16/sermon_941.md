@@ -1,12 +1,4 @@
-# The Tender Pity of the Lord
-
-(No. 941)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 17, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 941 | The Tender Pity of the Lord
 
 "Like as a father pities his children, so the Lord pities them that fear Him. For he knows our frame. He remembers that we are dust." Psalm 103:13,14.
 

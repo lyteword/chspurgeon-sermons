@@ -1,12 +1,4 @@
-# The Rising Sun
-
-(No. 1463B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1463B | The Rising Sun
 
 "But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth, and grow up as calves of the stall." Malachi 4:2.
 

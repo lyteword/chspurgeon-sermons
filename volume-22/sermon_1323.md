@@ -1,12 +1,4 @@
-# And Why Not?
-
-(No. 1323)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 12, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1323 | And Why Not?
 
 "And He said unto the disciples, The days will come when you shall desire to see one of the days of the Son of Man, and you shall not see it" Luke 17:22.
 

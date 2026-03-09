@@ -1,6 +1,4 @@
-# Are You Prepared To Die?
-
-Sermon No. 635 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 635 | Are You Prepared To Die?
 
 > How will you do in the swelling of Jordan?    
 > Jeremiah 12:5.    

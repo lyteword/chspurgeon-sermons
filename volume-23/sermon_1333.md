@@ -1,12 +1,4 @@
-# "Rest in the Lord"
-
-(No. 1333)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 14, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1333 | "Rest in the Lord"
 
 "Rest in the Lord." Psalm 37:7.
 

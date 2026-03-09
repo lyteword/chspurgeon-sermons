@@ -1,6 +1,4 @@
-# Future Punishment A Fearful Thing
-
-Sermon No. 682 - Delivered on Sunday Morning, March 25th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 682 | Future Punishment A Fearful Thing
 
 > "It is a fearful thing to fall into the hands of the living God."  
 > Hebrews 10:31.  

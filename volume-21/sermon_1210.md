@@ -1,12 +1,4 @@
-# The Weaned Child
-
-(No. 1210)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1210 | The Weaned Child
 
 "My soul is even as a weaned child." Psalm 131:2.
 

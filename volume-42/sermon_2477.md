@@ -1,12 +1,4 @@
-# Darkness Before the Dawn
-
-(No. 2477)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 9, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1886.
+# Sermon 2477 | Darkness Before the Dawn
 
 "Until the day breaks and the shadows flee away, turn, my Beloved, and be like a roe or a young hart upon the mountains of Bether." Song of Solomon 2:17.
 

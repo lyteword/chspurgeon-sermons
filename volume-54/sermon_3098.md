@@ -1,12 +1,4 @@
-# Needless Fears
-
-(No. 3098)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 25, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE11,1874.
+# Sermon 3098 | Needless Fears
 
 "Who are you that.. .have feared continually every day because of the fury of the oppressor, as if he were ready to destroy? And where is the fury of the oppressor?" Isaiah 51:12,13.
 

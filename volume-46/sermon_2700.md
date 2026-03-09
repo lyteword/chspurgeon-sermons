@@ -1,12 +1,4 @@
-# Growth in Grace
-
-(No. 2700)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 11, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE AUTUMN OF 1858.
+# Sermon 2700 | Growth in Grace
 
 "But grow in Grace, and in the knowledge of our Lord and Savior Jesus Christ." 2 Peter 3:18.
 

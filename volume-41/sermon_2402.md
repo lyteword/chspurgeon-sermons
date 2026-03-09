@@ -1,12 +1,4 @@
-# Under Arrest
-
-(No. 2402)
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 3, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING MARCH 3, 1887.
+# Sermon 2402 | Under Arrest
 
 "Butbefore faith came, we were kept under the Law, shut up unto the faith which should afterwards be revealed." Galatians 3:23.
 

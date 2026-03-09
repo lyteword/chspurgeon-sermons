@@ -1,12 +1,4 @@
-# A Bold Challenge Justified
-
-(No. 3067)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 1, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 1, 1871.
+# Sermon 3067 | A Bold Challenge Justified
 
 "Who is he who condemns?It is Christ who died, yes rather, who is risen again, who is even at the right hand ofGod, who also makes intercession for us." Romans 8:34.
 

@@ -1,6 +1,4 @@
-# Loyal to the Core
-
-Sermon No. 1512 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1512 | Loyal to the Core
 
 And Ittai answered the king, and said, As the Lord liveth, and as my lord the king liveth, surely in what place my lord the king shall be, whether in death or life, even there also will thy servant be.'2 Samuel 15:21.
 

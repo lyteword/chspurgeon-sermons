@@ -1,12 +1,4 @@
-# Cheering Words
-
-(No. 2444)
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 22, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2444 | Cheering Words
 
 "As the Father has loved Me, so have I loved you: continue you in My love." John 15:9.
 

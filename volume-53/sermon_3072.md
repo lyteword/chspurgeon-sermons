@@ -1,12 +1,4 @@
-# An Observation of the Preacher
-
-(No. 3072)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 25, 1864.
+# Sermon 3072 | An Observation of the Preacher
 
 "Better is the end of a thing than the beginning thereof." Ecclesiastes 7:8.
 

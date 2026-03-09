@@ -1,12 +1,4 @@
-# Hideous Discovery
-
-(No. 1911)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 25, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1911 | Hideous Discovery
 
 "And He said, That which comes out of the man, that defiles the man. For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders, thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness: all these evil things come from within and defile the man." Mark 7:20-23.
 

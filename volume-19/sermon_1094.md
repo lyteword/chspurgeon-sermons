@@ -1,12 +1,4 @@
-# Always and for All Things
-
-(No. 1094)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 2, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1094 | Always and for All Things
 
 "Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ." Ephesians 5:20.
 

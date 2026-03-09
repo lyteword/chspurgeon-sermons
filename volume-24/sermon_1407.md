@@ -1,12 +1,4 @@
-# Compassion on the Ignorant
-
-(No. 1407)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1407 | Compassion on the Ignorant
 
 "Who can ha ve compassion on the ignorant, and on them that are out of the way; for that he himself also is compassed with infirmity." Hebrews 5:2.
 

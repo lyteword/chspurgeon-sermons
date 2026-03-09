@@ -1,12 +1,4 @@
-# "Accepted in the Beloved"
-
-(No. 3429)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 19, 1868.
+# Sermon 3429 | "Accepted in the Beloved"
 
 "Accepted in the Beloved." Ephesians 1:6.
 

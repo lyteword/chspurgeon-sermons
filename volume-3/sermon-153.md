@@ -1,6 +1,4 @@
-# The Mysteries of the Brazen Serpent
-
-Sermon No. 153 - Delivered on Sabbath Morning, September 27, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 153 | The Mysteries of the Brazen Serpent
 
 > And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: That whosoever believeth in him should not perish, but have eternal life.    
 > John 3:14.    

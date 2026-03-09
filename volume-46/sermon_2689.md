@@ -1,12 +1,4 @@
-# The Ever-Living Christ
-
-(No. 2689)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 26, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 24, 1881.
+# Sermon 2689 | The Ever-Living Christ
 
 "I am He that lives, and was dead, and behold, I am alive forevemore, Amen." Revelation 1:18.
 

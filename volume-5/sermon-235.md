@@ -1,6 +1,4 @@
-# The Fainting Warrior
-
-Sermon No. 235 - Delivered on Sabbath Morning, January 23rd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 235 | The Fainting Warrior
 
 > O wretched man that I am I who shall deliver me from the body of this death? I thank God, through Jesus Christ our Lord.    
 > Romans 7:24, 25.    

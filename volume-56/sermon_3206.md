@@ -1,12 +1,4 @@
-# "The Church of the First-born"
-
-(No. 3206)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 14, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 30, 1862.
+# Sermon 3206 | "The Church of the First-born"
 
 "The general assembly and Church of the First-Born, which are written in Heaven." Hebrews 12:23.
 

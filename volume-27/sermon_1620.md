@@ -1,12 +1,4 @@
-# Is It Nothing To You?
-
-(No. 1620)
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 11, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1620 | Is It Nothing To You?
 
 "Is it nothing to you, all you that pass by? Behold and see if there is any sorrowlike unto my sorrow, which is done unto me, with which the Lord has afflicted me in the day of His fierce anger." Lamentations 1:12.
 

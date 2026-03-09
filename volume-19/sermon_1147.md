@@ -1,12 +1,4 @@
-# The Gentleness Of Jesus
-
-(No. 1147)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 14, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1147 | The Gentleness Of Jesus
 
 "He shall not strive, nor cry; neither shall any man hear His voice in the streets. A bruised reed shall He not break, and smoking flax shall He not quench, till He sends forth judgment unto victory. And in His name shall the Gentiles trust." Matthew 12:19,20,21.
 

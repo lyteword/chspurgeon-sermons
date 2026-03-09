@@ -1,12 +1,4 @@
-# The Tent Dissolved and the Mansion Entered
-
-(No. 1719)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 6, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1719 | The Tent Dissolved and the Mansion Entered
 
 "For we know that if our earthly house of this tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens." 2 Corinthians 5:1.
 

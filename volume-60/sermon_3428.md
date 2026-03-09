@@ -1,12 +1,4 @@
-# Private and Confidential
-
-(No. 3428)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3428 | Private and Confidential
 
 "The secret of the Lord is with them that fear Him, and He will show them His Covenant." Psalm 25:14.
 

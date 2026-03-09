@@ -1,12 +1,4 @@
-# The Sitting of the Refiner
-
-(No. 1575)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1575 | The Sitting of the Refiner
 
 "And He shall sit as a refiner and purifier of silver: and He shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness." Malachi 3:3.
 

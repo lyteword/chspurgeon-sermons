@@ -1,12 +1,4 @@
-# Shiloh
-
-(No. 1157)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1157 | Shiloh
 
 "Until Shiloh comes; and unto Him shall the gathering of the people be." Genesis 49:10.
 

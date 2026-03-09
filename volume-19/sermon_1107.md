@@ -1,12 +1,4 @@
-# A Call To Worship
-
-(No. 1107)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 20, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1107 | A Call To Worship
 
 "And the inhabitants of one city shall go to another, saying, Let us go speedily to pray before the Lord, and to seek the Lord of Hosts: I will go also." Zechariah 8:21.
 

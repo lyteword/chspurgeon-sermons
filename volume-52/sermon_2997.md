@@ -1,12 +1,4 @@
-# "Tempted of the Devil"
-
-(No. 2997)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 19 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
+# Sermon 2997 | "Tempted of the Devil"
 
 "Then Jesus was led up by the Spirit into the wilderness to be tempted of the devil." Matthew 4:1.
 

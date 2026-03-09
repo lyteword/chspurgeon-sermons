@@ -1,12 +1,4 @@
-# A Description of Young Men in Christ
-
-(No. 1715)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 8, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1715 | A Description of Young Men in Christ
 
 "I write unto you, young men, because you have overcome the Wicked One... I have written unto you, youngmen, because you are strong, and the Word of God abides in you, and you ha ve overcome the Wicked One." 1 John 2:13,14.
 

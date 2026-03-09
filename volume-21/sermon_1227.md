@@ -1,12 +1,4 @@
-# Spiritual Appetite
-
-(No. 1227)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1227 | Spiritual Appetite
 
 "The full soul loathes the honeycomb; but to the hungry soul every bitter thing is sweet." Proverbs 27:7.
 

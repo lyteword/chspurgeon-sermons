@@ -1,6 +1,4 @@
-# Christ&mdash;The Power and Wisdom of God
-
-Sermon No. 132 - Delivered on Sabbath Morning, May 17, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 132 | Christ&mdash;The Power and Wisdom of God
 
 > Christ the power of God, and the wisdom of God.    
 > 1 Corinthians 1:24.    

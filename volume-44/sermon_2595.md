@@ -1,12 +1,4 @@
-# What the Lord's Supper Sees and Says
-
-(No. 2595)
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 1, 1883.
+# Sermon 2595 | What the Lord's Supper Sees and Says
 
 "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes." 1 Corinthians 11:26.
 

@@ -1,12 +1,4 @@
-# The Sieve
-
-(No. 1158)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1158 | The Sieve
 
 "Not everyone that says unto Me, Lord, Lord, shall enter into the kingdom of Heaven; but he that does the will of My Father which is in Heaven." Matthew 7:21.
 

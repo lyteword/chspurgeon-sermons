@@ -1,12 +1,4 @@
-# Lessons on Divine Grace
-
-(No. 2833)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 31, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, IN THE SUMMER OF 1861.
+# Sermon 2833 | Lessons on Divine Grace
 
 "But by the Grace of God I am what I am." 1 Corinthians 15:10.
 

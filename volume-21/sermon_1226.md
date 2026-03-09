@@ -1,12 +1,4 @@
-# The Secret Of Health
-
-(No. 1226)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1226 | The Secret Of Health
 
 "I shall yet praise Him who is the health of my countenance and my God." Psalm 42:11.
 

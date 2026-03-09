@@ -1,12 +1,4 @@
-# What Jesus Would Do
-
-(No. 2630)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 9, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 16, 1882.
+# Sermon 2630 | What Jesus Would Do
 
 "How often would I have gathered your children together, even as a hen gathers her chickens under her wings, and you would not!" Matthew 23:37.
 

@@ -1,12 +1,4 @@
-# A Cure for a Weak Heart
-
-(No. 2455)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 4, 1886.
+# Sermon 2455 | A Cure for a Weak Heart
 
 "Be of good courage, and He shall strengthen your heart, all you that hope in the LORD." Psalm 31:24.
 

@@ -1,12 +1,4 @@
-# God's Work Upon Minister and Convert
-
-(No. 1774)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 6, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1774 | God's Work Upon Minister and Convert
 
 "'But rise, and stand upon your feet: for I have appeared unto you for this purpose to make you a minister and a witness both of these things which you have seen, and of those things in which I will appear unto you; delivering you from the people, and from the Gentiles, unto whom now I send you, to open their eyes, and to turn them from darkness to light, and from thepower of Satan unto God, that they may receive forgiveness of sins, and inheritance among them which are sanctified by faith that is in Me.' Whereupon, O king Agrippa, I was not disobedient unto the heavenly vision: but showed first unto them of Damascus, and at Jerusalem, and throughout all the coasts of Judea, and then to the Gentiles, that they should repent and turn to God, and do works meet for repentance." Acts 26:16-20.
 

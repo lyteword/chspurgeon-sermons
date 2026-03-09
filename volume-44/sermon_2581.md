@@ -1,12 +1,4 @@
-# Perfection in Christ
-
-(No. 2581)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 31, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE YEAR 1856.
+# Sermon 2581 | Perfection in Christ
 
 "Perfect in Christ Jesus." Colossians 1:28.
 

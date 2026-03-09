@@ -1,12 +1,4 @@
-# Why Men Cannot Believe in Christ
-
-(No. 1245)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1245 | Why Men Cannot Believe in Christ
 
 "How can you believe, which receive honor one of another, and seek not the honor that comes from God only?" John 5:44.
 

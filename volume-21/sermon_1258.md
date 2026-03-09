@@ -1,12 +1,4 @@
-# The Hand of God in the History of a Man
-
-(No. 1258)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1258 | The Hand of God in the History of a Man
 
 "Is there not an appointed time to man upon earth? Are not his days also like the days of an hireling?" Job 7:1.
 

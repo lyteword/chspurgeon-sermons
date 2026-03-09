@@ -1,12 +1,4 @@
-# The Scarlet Line in the Window
-
-(No. 3168)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 28, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3168 | The Scarlet Line in the Window
 
 "She bound the scarlet line in the window." Joshua 2:21.
 

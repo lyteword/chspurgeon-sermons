@@ -1,12 +1,4 @@
-# Loosening The Sandal Strap
-
-(No. 1044)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 31, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1044 | Loosening The Sandal Strap
 
 "One mightier than I comes, whose sandal strap I am not worthy to loose." Luke 3:16.
 

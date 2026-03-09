@@ -1,12 +1,4 @@
-# "The Desire Of All Nations"
-
-(No. 3442)
-
-PUBLISHED ON THURSDAY, JANUARY 21 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 25, 1870.
+# Sermon 3442 | "The Desire Of All Nations"
 
 "And I will sialee all nations, and the desire of all nations shall come: and I will fill this house with glory, says the Lord of Hosts." Haggai 2:7.
 

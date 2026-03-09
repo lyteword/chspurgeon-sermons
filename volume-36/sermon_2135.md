@@ -1,6 +1,4 @@
-# The Warnings and the Rewards of the Word of God
-
-Sermon No. 2135 - Delivered on Sunday Morning, March 16th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2135 | The Warnings and the Rewards of the Word of God
 
 > "Moreover by them is Your servant warned: and in keeping of them there is great reward."  
 > Psalm 19:11.  

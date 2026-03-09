@@ -1,12 +1,4 @@
-# The Dumb Become Singers
-
-(No. 3332)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 12, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3332 | The Dumb Become Singers
 
 "Then shall the lame man leap as an hart, and the tongue of the dumb sing, for in the wilderness shall waters break out, and streams in the desert." Isaiah 35:6.
 

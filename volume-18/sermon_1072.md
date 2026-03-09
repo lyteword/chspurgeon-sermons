@@ -1,12 +1,4 @@
-# My Prayer
-
-(No. 1072)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 22, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1072 | My Prayer
 
 "Quicken me in Your way." Psalm 119:37.
 

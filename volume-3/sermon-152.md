@@ -1,6 +1,4 @@
-# Things That Accompany Salvation
-
-Sermon No. 152 - Delivered on Sabbath Morning, September 20, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 152 | Things That Accompany Salvation
 
 > Things that accompany Salvation.    
 > Hebrews 6:9.    

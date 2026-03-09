@@ -1,12 +1,4 @@
-# Strange Things
-
-(No. 2614)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 19, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 18, 1883.
+# Sermon 2614 | Strange Things
 
 "We have seen strange things today." Luke 5:26.
 

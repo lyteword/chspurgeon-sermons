@@ -1,12 +1,4 @@
-# The Dejected Lover
-
-(No. 3485)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 11, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3485 | The Dejected Lover
 
 "By night on my bed I sought Him whom my soul loves: I sought Him, but I found Him not. I willrise now, and go about the city in the streets and in the broad ways I will seek Him whom my soul loves: I sought Him but I found Him not. The watchmen that go about the city found me: to whom I said, Sawyou Him whom my soul loves? It was but a little that I passed from them, but I found Him whom my soul loves: I held Him, and would not let Him go, until I had brought Him into my mother's house, and into the chamber of her that conceived me." Song of Solomon 3:1-4.
 

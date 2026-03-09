@@ -1,12 +1,4 @@
-# All Are Guilty
-
-(No. 3457)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 6, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3457 | All Are Guilty
 
 "Pilate said unto them...'Let Him be crucified.'" Matthew 27:22,23.
 

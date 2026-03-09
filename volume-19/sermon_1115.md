@@ -1,12 +1,4 @@
-# The Good Shepherdess
-
-(No. 1115)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 1, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1115 | The Good Shepherdess
 
 "Tell me, O You whom my soul loves, where You feed, where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions? If you know not, O you fairest among women, go your way forth by the footsteps of the flock, and feed your kids beside the shepherds' tents." Song of Solomon 1:7,8.
 

@@ -1,7 +1,4 @@
-# The Gospel of Abraham's Sacrifice of Isaac
-
-Sermon No. 869 - Delivered on Sunday Evening, MAY 2, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 869 | The Gospel of Abraham's Sacrifice of Isaac
 
 "He that spared not His own Son, but delivered Him up for us all." - Romans 8:32.
 

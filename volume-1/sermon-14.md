@@ -1,6 +1,4 @@
-# The Victory of Faith
-
-Sermon No. 14 - Delivered on Sabbath Morning, March 18, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 14 | The Victory of Faith
 
 > For whatsoever is born of God overcometh the world; and this is the victory that overcometh the world, even our faith.    
 > 1 John 5:4.    

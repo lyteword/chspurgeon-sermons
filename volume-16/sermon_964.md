@@ -1,12 +1,4 @@
-# The Essence Of The Gospel
-
-(No. 964)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 4, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 964 | The Essence Of The Gospel
 
 "He that believes on Him is not condemned. But he that believes not is condemned already, because he has not believed in the name of the only begotten Son of God." John 3:18.
 

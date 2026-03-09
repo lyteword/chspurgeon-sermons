@@ -1,12 +1,4 @@
-# Untitled Sermon
-
-(No. 1867)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 25, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1867 | Untitled Sermon
 
 "Then sang Moses and the children of Israel this song unto the Lord, and spoke, saying, I will sing unto the Lord, for He has triumphed gloriously: the horse and his rider has He thrown into the sea. The Lord is my strength and song, and He is become my salvation: He is my God, and I willprepare Him an habitation, my father's God, and I will exaltHim." Exodus 15:1,2.
 

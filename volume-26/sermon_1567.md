@@ -1,12 +1,4 @@
-# The Blood of the Covenant
-
-(No. 1567)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 14, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1567 | The Blood of the Covenant
 
 "This is the blood of the Testament which God has enjoined unto you." Hebrews 9:20.
 

@@ -1,12 +1,4 @@
-# The Sure Triumph Of The Crucified One
-
-(No. 1231)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 25, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1231 | The Sure Triumph Of The Crucified One
 
 "Behold, My Servant shall deal prudently, He shall be exalted and extolled, and be very high. As many were astonished at you, His visage was so marred more than any man, and His form more than the sons of men: So shall He sprinkle many nations; the kings shall shut their mouths at Him: for that which had not been told them shall they see; and that which they had not heard shall they consider." Isaiah 52:13-15.
 

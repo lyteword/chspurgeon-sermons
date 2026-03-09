@@ -1,12 +1,4 @@
-# The Cross Our Glory
-
-(No. 1859)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 13, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1859 | The Cross Our Glory
 
 "But God forbid that I should glory except in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world." Galatians 6:14.
 

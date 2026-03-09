@@ -1,12 +1,4 @@
-# Comfort for Tried Believers
-
-(No. 2912)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 1, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 21, 1876.
+# Sermon 2912 | Comfort for Tried Believers
 
 "There hats no temptation taken you but such as is common to man: but God is faithful, who will not allow you to be tempted above what you are able; but will, with the temptation, also make a way to escape, that you may be able to bear it." 1 Corinthians 10:13.
 

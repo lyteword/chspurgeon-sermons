@@ -1,12 +1,4 @@
-# "Waters To Swim In"
-
-(No. 1054)
-
-A SERMON DELIVERED ON THURSDAY EVENING, APRIL 25, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1054 | "Waters To Swim In"
 
 "Waters to swim in." EzekieI47:5.
 

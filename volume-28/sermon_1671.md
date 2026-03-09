@@ -1,12 +1,4 @@
-# The Value and Rank of the Believer
-
-(No. 1671)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1671 | The Value and Rank of the Believer
 
 "Since you were precious in My sight, you have been honorable, and I have loved you: therefore will I give men for you, and people for your life." Isaiah 43:4.
 

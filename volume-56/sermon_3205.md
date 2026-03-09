@@ -1,12 +1,4 @@
-# Scales Taken From the Eyes
-
-(No. 3205)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 7, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3205 | Scales Taken From the Eyes
 
 "And immediately there fell from his eyes as it had been scales." Acts 11:18.
 

@@ -1,6 +1,4 @@
-# From Death To Life
-
-Sermon No. 523 - Delivered on Sunday Evening, July 26th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 523 | From Death To Life
 
 The Lord kills and makes alive: He brings down to the grave, and brings up."--1 Samuel 2:6.
 

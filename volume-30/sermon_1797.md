@@ -1,12 +1,4 @@
-# How To Meet the Doctrine of Election
-
-(No. 1797)
-
-A SERMON DELIVERED ON THURSDAY EVENING, JULY 31, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1797 | How To Meet the Doctrine of Election
 
 "But He answered and said, I am not sent but unto the lost sheep of the house of Israel. Then came she and worshipped Him, saying, Lord, help me." Matthew 15:24,25.
 

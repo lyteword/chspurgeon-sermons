@@ -1,7 +1,4 @@
-# Grace--the One Way of Salvation
-
-Sermon No. 765 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 765 | Grace--the One Way of Salvation
 
 "But we believe that through the grace of the Lord Jesus Christ we shall be saved, even as they." Acts 15:11.
 
@@ -145,7 +142,6 @@ Well, my dear Friend, you are one of the timid ones, one of the little Benjamins
 
 There are very proper distinctions here on earth between rich and poor, and between those who are learned and those who are unlearned. But we believe that there is no distinction in the matter of salvation--we shall be saved even as they. Many of you would preach 10 times better than I do if you could only get your tongues unloosed to say what you feel. Oh, what red-hot sermons you would preach, and how earnest you would be in their delivery! Now, that sermon which you did not preach, and could not preach shall not be set down to your account, while perhaps that discourse of mine will be a failure because I may not have preached it as I should have done--with pure motives and zealous spirit.
 
-God knows what you would do if you could, and he judges not so much according to what you do, as according to your will to do it. He takes in this case the will for the deed, and you shall be saved, even as they who with the tongue of fire proclaim the Truths of God. Most likely there is some doubting Brother here. Whenever he opens "Our Own Hymn Book," he very seldom looks to "The Golden Book of Communion," but he generally turns to hymn No. 590, or thereabouts, and begins to sing "Contrite Cries."
 
 Well, my dear Friend, you are a weakling. You are Mr. Much-Afraid, or Mr. Little-Faith. But how is your heart? What are your prospects? Do you believe that you will be put off with a second-rate salvation? That you will be admitted by the back door into Heaven instead of through the gate of pearl? "Oh no!" you say. "I am the weakest lamb in Jesus' fold, but I believe that I shall be saved even as they. That is, even as they who are the strongest in Grace, most useful in labor, and most mighty in faith."
 

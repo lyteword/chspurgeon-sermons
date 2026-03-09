@@ -1,12 +1,4 @@
-# The Whole Band Against Christ
-
-(No. 2333)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 5, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 15, 1889.
+# Sermon 2333 | The Whole Band Against Christ
 
 "Then the soldiers of the governor took Jesus into the Common Hall and gathered unto Him the whole band of soldiers." Matthew 27:27.
 

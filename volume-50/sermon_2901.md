@@ -1,12 +1,4 @@
-# Mourning at the Cross
-
-(No. 2901)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 15, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 23, 1876.
+# Sermon 2901 | Mourning at the Cross
 
 "AndI will pour upon the house ofDavid, and upon the inhabitants of Jerusalem this Spirit of Grace and of supplications: and they shall look upon Me whom they have pierced, and they shall mourn for Him, as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his first-born." Zechariah 12:10.
 

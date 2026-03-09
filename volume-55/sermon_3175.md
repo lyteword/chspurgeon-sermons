@@ -1,12 +1,4 @@
-# "Peace! Perfect Peace!"
-
-(No. 3175)
-
-AN ADDRESS PUBLISHED ON THURSDAY, DECEMBER 16, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-IN A SICK-ROOM AT MENTONE.
+# Sermon 3175 | "Peace! Perfect Peace!"
 
 "You will keep him in perfect peace (Margin: peace, peace), whose mind is stayed on You: because he trusts in You." Isaiah 26:3.
 
@@ -14,7 +6,6 @@ IN A SICK-ROOM AT MENTONE.
 
 [A Sermon by Mr. Spurgeon upon Isaiah 26:3 is #1818, Volume 31--THE SONG OF A CITY AND THE PEARL OF PEACE. Expositions of the whole Chapter are included with Sermons #2430, Volume 41--CHRISTIANS AND THEIR COMMUNION WITH GOD and #2713, Volume 47--WALKING IN THE LIGHT OF THE LORD]
 
-AS WE have met together in this sick-chamber and you all wish me to talk with you, we will thoughtfully run over the hymn which you have just been singing. It is No. 730 in Sacred Songs and Solos, or No. 7 in The Christian Choir. May the Divine Teacher lead us into mines of the Truth of God and show us the deep things of God!--
 
 "Peace! Perfect peace! In this dark world of sin?
 

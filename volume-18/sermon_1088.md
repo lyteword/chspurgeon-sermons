@@ -1,12 +1,4 @@
-# The Essence of Simplicity
-
-(No. 1088)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 29, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1088 | The Essence of Simplicity
 
 "Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him?" John 9:35,36.
 

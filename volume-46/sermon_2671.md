@@ -1,12 +1,4 @@
-# A Sincere Summary--and a Searching Scrutiny
-
-(No. 2671)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 22, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 29, 1882.
+# Sermon 2671 | A Sincere Summary--and a Searching Scrutiny
 
 "I have kept Your precepts and Your testimonies: for all my ways are before You." Psalm 119:168.
 

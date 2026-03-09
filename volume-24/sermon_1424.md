@@ -1,12 +1,4 @@
-# A Great Bargain
-
-(No. 1424)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1424 | A Great Bargain
 
 "Again, the kingdom of Hea ven is like unto a merchant, seeking good pearls: Who, when he had found one pearl of great price, went and sold all that he had, and bought it." Matthew 13:45, 46.
 

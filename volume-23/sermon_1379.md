@@ -1,12 +1,4 @@
-# The Magnanimity of God
-
-(No. 1379)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 21, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1379 | The Magnanimity of God
 
 "Behold, God is mighty, and despises not any: He is mighty in strength and wisdom" (or, in strength of heart) Job 36:5.
 

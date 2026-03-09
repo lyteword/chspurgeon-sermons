@@ -1,6 +1,4 @@
-# Songs For Desolate Hearts
-
-Sermon No. 649 - Delivered on Sunday Morning, September 10th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 649 | Songs For Desolate Hearts
 
 > Sing, O barren, you that did not bear. Break forth into singing, and cry aloud, you that did not travail with child: for more are the children of the desolate than the children of the married wife, says the Lord.    
 > Isaiah 54:1.    

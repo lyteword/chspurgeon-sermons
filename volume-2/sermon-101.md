@@ -1,6 +1,4 @@
-# The Exaltation of Christ
-
-Sermon No. 101 - Delivered on Sabbath Morning, November 2, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 101 | The Exaltation of Christ
 
 *This sermon was Spurgeon's first message following the disaster at the Music Hall, Royal Surrey Gardens&mdash;in which seven people lost their lives when some miscreants purposely started a panic while Mr. Spurgeon was preaching.*
 

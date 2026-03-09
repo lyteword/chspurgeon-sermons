@@ -1,12 +1,4 @@
-# The Saint One With His Savior
-
-(No. 961)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 20, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 961 | The Saint One With His Savior
 
 "He that is joined unto the Lord is one spirit." 1 Corinthians 6:17.
 

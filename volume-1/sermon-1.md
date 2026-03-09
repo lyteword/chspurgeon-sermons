@@ -1,6 +1,4 @@
-# The Immutability of God
-
-Sermon No. 1 - Delivered on Sabbath Morning, January 7th, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 1 | The Immutability of God
 
 > I am the Lord, I change not; therefore ye sons of Jacob are not consumed.    
 > Malachi 3:6.    

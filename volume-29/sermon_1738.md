@@ -1,8 +1,4 @@
-# "Glory Be Unto the Father"
-
-(No. 1738)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 9 1883, BY C. H. SPURGEON, AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1738 | "Glory Be Unto the Father"
 
 "Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenlyplaces in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love."
 

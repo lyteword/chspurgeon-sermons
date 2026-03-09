@@ -1,6 +1,4 @@
-# Foundation Work
-
-Sermon No. 2094 - Delivered on Sunday, July 7, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2094 | Foundation Work
 
 > "And the king commanded and they brought great stones, costly stones and hewed atones, to lay the foundation of the house."  
 > 1 Kings 5:17.  

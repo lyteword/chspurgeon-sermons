@@ -1,12 +1,4 @@
-# The Lord's Chosen Ministers
-
-(No. 2319)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 30, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 23, 1889.
+# Sermon 2319 | The Lord's Chosen Ministers
 
 "In that hour Jesus rejoiced in spirit, and said, Ithank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent, and have revealed them unto babes: even so, Father; for so it seemed good in Your sight." Luke 10:21.
 

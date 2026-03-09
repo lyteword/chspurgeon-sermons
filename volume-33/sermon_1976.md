@@ -1,6 +1,4 @@
-# Lessons from the Christ of Patmos
-
-Sermon No. 1976 - Delivered on Sunday Morning, August 7th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1976 | Lessons from the Christ of Patmos
 
 > "And He had in His right hand seven stars: and out of His mouth went a sharp two-edged sword: and His Countenance was as the sun shines in its strength."  
 > Revelation 1:16.  

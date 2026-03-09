@@ -1,12 +1,4 @@
-# Choice Food for Pilgrims to Canaan
-
-(No. 1583)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1583 | Choice Food for Pilgrims to Canaan
 
 "And He said, My Presence will go with you, and I will give you rest." Exodus 33:14.
 

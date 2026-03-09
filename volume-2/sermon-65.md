@@ -1,6 +1,4 @@
-# Lions Lacking&mdash;But the Children Satisfied
-
-Sermon No. 65 - Delivered on Sabbath Morning, February 10, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 65 | Lions Lacking&mdash;But the Children Satisfied
 
 *On behalf of the Baptist Fund for the Relief of Poor Ministers.*
 

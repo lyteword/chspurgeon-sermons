@@ -1,12 +1,4 @@
-# Moses' Dying Charge to Israel
-
-(No. 2345)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 28, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 17, 1888.
+# Sermon 2345 | Moses' Dying Charge to Israel
 
 "And you shall remember all the way which the LORD your God led you these forty years in the wilderness, to humble you, and to prove you, to know what was in your heart, whether you would keep His commandments, or no." Deuteronomy 8:2.
 

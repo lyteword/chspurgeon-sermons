@@ -1,12 +1,4 @@
-# Israel's Cry and God's Answer
-
-(No. 2631)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 16, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 23, 1882.
+# Sermon 2631 | Israel's Cry and God's Answer
 
 "And it came to pass in process of time that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage. And God heard their groaning, and God remembered His Covenant with Abraham, with Isaac, and with Jacob. And God looked upon the children of Israel, and God had respect unto them...Now therefore, behold, the cry of the children of Israel has come to Me: and I have also seen the oppression with which the Egyptians oppress them. Come now, therefore, and I will send you to Pharaoh, that you may bring forth My people, the children of Israel, out of Egypt." Exodus2:23-25; 3:9,10.
 

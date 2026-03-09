@@ -1,12 +1,4 @@
-# The Heavenly Rainbow
-
-(No. 3412)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 25, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3412 | The Heavenly Rainbow
 
 "And there was a rainbow around about the Throne, in sight like unto an emerald." Revelation 4:3.
 

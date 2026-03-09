@@ -1,12 +1,4 @@
-# The Moral of a Miracle
-
-(No. 1444)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1444 | The Moral of a Miracle
 
 "Jesus answering said unto them, Have faith in God." Mark 11:22.
 

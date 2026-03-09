@@ -1,12 +1,4 @@
-# Recruits for the King
-
-(No. 3533)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 12, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3533 | Recruits for the King
 
 "David, therefore, departed from there, and escaped to the Cave Adullam; and when his brothers and all his father's house heard it, they went down there to him. And everyone that was in distress, and everyone that was in debt, and everyone that was discontented, gathered themselves unto him, and he became captain over them: and there were with him about four hundred men." 1 Samuel 22:1-2.
 

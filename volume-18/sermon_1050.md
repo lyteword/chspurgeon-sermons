@@ -1,12 +1,4 @@
-# A Bright Light in Deep Shades
-
-(No. 1050)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 12, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1050 | A Bright Light in Deep Shades
 
 "Hearken to me, you that follow after righteousness, you that seek the Lord. Look unto the rock where you are hewn, and to the hole of the pit where you are dug." Isaiah 51:1.
 

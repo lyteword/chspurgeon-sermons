@@ -1,6 +1,4 @@
-# The Outpouring of the Holy Spirit
-
-Sermon No. 201 - Delivered on Sabbath Morning, June 20, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 201 | The Outpouring of the Holy Spirit
 
 > While Peter yet spake these words, the Holy Ghost fell on all them which heard the Word    
 > Acts 10:44.    

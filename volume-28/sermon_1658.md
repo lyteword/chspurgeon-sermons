@@ -1,12 +1,4 @@
-# Healed or Deluded? Which?
-
-(No. 1658)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 7, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1658 | Healed or Deluded? Which?
 
 "They have healed the hurt of the daughter of My people slightly, saying, Peace, peace; when there is no peace." Jeremiah 8:11.
 

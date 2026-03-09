@@ -1,12 +1,4 @@
-# The Dew of Christ's Youth
-
-(No. 2724)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 28, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
+# Sermon 2724 | The Dew of Christ's Youth
 
 "You have the dew of Your youth." Psalm 110:3.
 

@@ -1,6 +1,4 @@
-# Early And Late
-
-Sermon No. 664 - Delivered on Sunday Morning, December 10th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 664 | Early And Late
 
 > For the kingdom of Hea ven is like a landowner who went out early in the morning to hire laborers for his vineyard... And he went out about the third hour and saw others standing idle in the marketplace... Again he went out about the sixth and the ninth hour and did likewise. And about the eleventh hour he went out and found others standing idle, and said to them, 'Why have you been standing here idle all day?    
 > Matthew 20:1,3, 5, 6.    

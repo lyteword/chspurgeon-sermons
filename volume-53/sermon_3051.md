@@ -1,12 +1,4 @@
-# Lessons From a Dovecot
-
-(No. 3051)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 1, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 24, 1872.
+# Sermon 3051 | Lessons From a Dovecot
 
 "Who are these that fly as a cloud, and as the doves to their windows?" Isaiah 60:8.
 

@@ -1,12 +1,4 @@
-# Bands Of Love
-
-(No. 934)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 5, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 934 | Bands Of Love
 
 "I drew them with cords of a man, with bands of love: and I was to them as they that take off the yoke on their jaws, and I laid meat unto them." Hosea 11:4.
 

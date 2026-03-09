@@ -1,6 +1,4 @@
-# Nathanael--the Man Needed for the Day
-
-Sermon No. 2068 - Delivered on 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2068 | Nathanael--the Man Needed for the Day
 
 > "Behold an Israelite indeed, in whom is no deceit!"  
 > John 1:47.  
@@ -119,7 +117,6 @@ Such a man as this need never be afraid. He may live or die without apprehension
 
 it.
 
-When they get with that very person it is again, "Yes, my dear Sir." And they join hands with him in tearing up the character of the opposite party. This method of talking is very liable to accidents. A person who acts this double part must always live a very unquiet life because he does not know when No. 1 and No. 2 may meet and put their accounts together and find out his treachery to both parties. Brethren, let no one among you be guilty of such conduct. Always say anything you have against a man straight to his face. When you speak behind his back, speak as kindly of him as truth permits. You need not do that before his face--for that might seem flattery on your part.
 
 To his face you may tell him a few things that do not please him, if it is just to do so. But when he is absent, be silent on such themes. Double-facedness often brings a bitter reward in this life. Do not play the double in your conversation, either towards God or man. Be an Israelite, indeed, in whom is no deceit. Such a person who has lived honestly in the sight of God--trusting alone in the precious blood of Jesus and not to his own sincerity--need not fear in time or in eternity.
 

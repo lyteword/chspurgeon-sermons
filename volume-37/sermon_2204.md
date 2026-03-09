@@ -1,12 +1,4 @@
-# Sin--Its Springhead, Stream and Sea
-
-(No. 2204)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 10, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2204 | Sin--Its Springhead, Stream and Sea
 
 "Our fathers understood not Your wonders in Egypt; they remembered not the multitude of Your mercies; but provoked Him at the sea, even at the Red Sea." Psalm 106:7.
 

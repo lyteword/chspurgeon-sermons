@@ -1,12 +1,4 @@
-# The Blind Man's Eyes Opened--or, Practical Christianity
-
-(No. 1754)
-
-DELIVERED ON LORD'S-DAY EVENING, AUGUST 12, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1754 | The Blind Man's Eyes Opened--or, Practical Christianity
 
 "Jesus answered, Neither has this man sinned, nor his parents: but that the works of God should be made manifest in him. I must work the works of Him that sent Me, while it is day: the night comes, when no man can work." John 9:3,4.
 

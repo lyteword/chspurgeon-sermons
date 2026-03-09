@@ -1,12 +1,4 @@
-# The Light of the World
-
-(No. 3534)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1916.
-
-DELIVERED BY C H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE PULPIT, NEWINGTON
+# Sermon 3534 | The Light of the World
 
 "Then spoke Jesus again unto them, saying, I am the light of the world; he who follows Me shall not walk in darkness, but shall have the light of life." John 8:12.
 

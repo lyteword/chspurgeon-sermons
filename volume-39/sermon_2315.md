@@ -1,12 +1,4 @@
-# Paul Apprehended and Apprehending
-
-(No. 2315)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 2, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 30, 1889.
+# Sermon 2315 | Paul Apprehended and Apprehending
 
 "Not as though I had already attained, either were already perfected; but I press on, that I may apprehend that for which also I am apprehended of Christ Jesus." Philippians 3:12.
 

@@ -1,6 +1,4 @@
-# The Beginning of Miracles Which Jesus Did
-
-Sermon No. 2155 - Delivered on Sunday Morning, July 20th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2155 | The Beginning of Miracles Which Jesus Did
 
 > "This beginning of miracles did Jesus in Cana of Galilee, and manifested forth His Glory; and His disciples believed on Him."  
 > John 2:11.  

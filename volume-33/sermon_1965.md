@@ -1,6 +1,4 @@
-# God's Thoughts Of Peace and Our Expected End
-
-Sermon No. 1965 - Delivered on Sunday Morning, May 29th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1965 | God's Thoughts Of Peace and Our Expected End
 
 > "For I know the thoughts that I think toward you, says the Lord, thoughts of peace, and not of evil, to give you an expected end."  
 > Jeremiah 29:11.  

@@ -1,12 +1,4 @@
-# Christ's Negative and Positive Prayer
-
-(No. 2355)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 8, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 5, 1888.
+# Sermon 2355 | Christ's Negative and Positive Prayer
 
 "I pray not that You should take them out of the world, but that You should keep them from evil." John 17:15.
 

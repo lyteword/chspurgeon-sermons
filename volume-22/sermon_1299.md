@@ -1,12 +1,4 @@
-# Love's Birth and Parentage
-
-(No. 1299)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 11, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1299 | Love's Birth and Parentage
 
 "We love Him, because He first loved us." 1 John 4:19.
 

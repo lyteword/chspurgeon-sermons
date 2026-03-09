@@ -1,12 +1,4 @@
-# Songs in the Night
-
-(No. 2558)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 27, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 2558 | Songs in the Night
 
 "But none says, Where is God my Maker, who gives songs in the night?" Job 35:10.
 

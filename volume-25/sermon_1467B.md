@@ -1,12 +1,4 @@
-# Two Sorts Of Hearers
-
-(No. 1467B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1467B | Two Sorts Of Hearers
 
 "But be you doers of the Word, and not hearers only, deceiving yourselves. For if any is a hearer of the Word, and not a doer, he is like unto a man beholding his natural face in a glass: For he beholds himself, and goes his way, and straightway forgets what manner of man he was. But whoever looks into the perfect Law of liberty, and continues therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed." James 1:22-25.
 

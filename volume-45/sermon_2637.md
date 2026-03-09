@@ -1,12 +1,4 @@
-# The Place of Prayer and Pardon
-
-(No. 2637)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 27, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 1, 1882.
+# Sermon 2637 | The Place of Prayer and Pardon
 
 "Whatever burden or whatever sickness there is: then what prayer or what supplication shall be made of any man, or of all Your people Israel, when everyone shall know his own burden and his own grief, and shall spread forth his hands in this house: then hear You from Heaven, Your dwelling place, and forgive, and render unto every man according unto all his ways, whose heart You know (for You, only, know the hearts of the children of men)." 2 Chronicles 6:28-30.
 

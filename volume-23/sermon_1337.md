@@ -1,12 +1,4 @@
-# Love's Medicines and Miracles
-
-(No. 1337)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 21, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1337 | Love's Medicines and Miracles
 
 "Behold, for peace I had great bitterness: but You have, in love to my soul, delivered it from the pit of corruption: for You have cast all my sins behind Your back" Isaiah 38:17.
 

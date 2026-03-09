@@ -1,12 +1,4 @@
-# Christ in You
-
-(No. 1720)
-
-DELIVERED ON LORDS-DAY MORNING, MAY 13, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1720 | Christ in You
 
 "Christ in you, the hope of glory." Colossians 1:27.
 

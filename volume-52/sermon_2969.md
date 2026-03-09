@@ -1,12 +1,4 @@
-# Angelic Protection in Appointed Ways
-
-(No. 2969)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 22, 1875.
+# Sermon 2969 | Angelic Protection in Appointed Ways
 
 "For He shall give His angels charge over you to keep you in all your ways." Psalm 91:11.
 

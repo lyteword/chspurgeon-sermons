@@ -1,12 +1,4 @@
-# Those Who Desire
-
-(No. 2714)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 17, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 11, 1880.
+# Sermon 2714 | Those Who Desire
 
 "O Lord, I beseech You, let now Your ear be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name." Nehemiah 1:11.
 

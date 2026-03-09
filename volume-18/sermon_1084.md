@@ -1,12 +1,4 @@
-# The Thorn in the Flesh
-
-(No. 1084)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 8, 1872
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1084 | The Thorn in the Flesh
 
 "And lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh, the messenger of Satan to buffet me, lest I should be exalted above measure. For this thing I besought the Lord thrice, that it might depart from me. And He said unto me, My Grace is sufficient for you: for My strength is made perfect in weakness. Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may rest upon me." 2 Corinthians 12:7,8,9.
 

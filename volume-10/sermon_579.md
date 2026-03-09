@@ -1,6 +1,4 @@
-# God Pleading For Saints, And Saints Pleading For God
-
-Sermon No. 579 - Delivered on Sunday Morning, July 10th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 579 | God Pleading For Saints, And Saints Pleading For God
 
 > "O Lord, You ha ve pleaded the causes of my soul; You have redeemed my life."  
 > Lamentations 3:58.  

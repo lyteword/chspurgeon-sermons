@@ -1,12 +1,4 @@
-# Holiness Demanded
-
-(No. 2902)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 22, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, IN 1862.
+# Sermon 2902 | Holiness Demanded
 
 "Holiness, without which no one shall see the Lord." Hebrews 12:14.
 

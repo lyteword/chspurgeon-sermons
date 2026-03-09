@@ -1,12 +1,4 @@
-# The Right Observance of the Lord's Supper
-
-(No. 2638)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 4, 1882.
+# Sermon 2638 | The Right Observance of the Lord's Supper
 
 "For I have received of the Lord that which also I delivered unto you. That the Lord Jesus, the same night in which He was betrayed, took bread: and when Hie had given thanks, He broke it and said, Take, eat: this is My body, which is broken for you: this do in remembrance of Me. After the same manner, also, He took the cup, when He had supped, saying, This cup is the new testament in My blood: this do you as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes." 1 Corinthians 11:23-26.
 

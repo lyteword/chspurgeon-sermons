@@ -1,12 +1,4 @@
-# New Tokens of Ancient Love
-
-(No. 2880)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 21, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
+# Sermon 2880 | New Tokens of Ancient Love
 
 "The LORD hath appeared of old unto me, saying, Yes, Ihave loved you with an everlasting love: therefore with loving kindness have I drawn you." Jeremiah 31:3.
 

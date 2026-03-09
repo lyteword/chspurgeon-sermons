@@ -1,12 +1,4 @@
-# The King's Mowings
-
-(No. 3129)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, EARLY IN THE YEAR 1872.
+# Sermon 3129 | The King's Mowings
 
 "The king's mowings." Amos 7:1.
 

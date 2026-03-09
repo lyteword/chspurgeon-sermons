@@ -1,10 +1,4 @@
-# The Best of All Sights
-
-(No. 1509)
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
+# Sermon 1509 | The Best of All Sights
 
 "But we see Jesus." Hebrews 2:9.
 

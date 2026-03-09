@@ -1,6 +1,4 @@
-# A Message From God To His Church And People
-
-Sermon No. 725 - Delivered on Sunday Morning, December 16th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 725 | A Message From God To His Church And People
 
 > "O Lord, I have heard Your speech, and was afraid: O Lord, revive Your work in the midst of the years! In the midst of the years make it known; in wrath remember mercy."  
 > Habakkuk 3:2.  

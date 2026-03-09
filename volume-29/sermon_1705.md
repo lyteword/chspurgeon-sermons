@@ -1,12 +1,4 @@
-# The Hearing of Faith
-
-(No. 1705)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 11, 1883,
-
-BY C, H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1705 | The Hearing of Faith
 
 "This only would I learn of you, did you receive the Spirit by the works of the Law, or by the hearing of faith?" Galatians 3:2.
 

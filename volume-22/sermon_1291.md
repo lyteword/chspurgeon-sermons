@@ -1,12 +1,4 @@
-# The Best Burden for Young Shoulders
-
-(No. 1291)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1291 | The Best Burden for Young Shoulders
 
 "It is good for a man that he bear the yoke in his youth." Lamentations 3:27.
 

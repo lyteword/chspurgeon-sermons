@@ -1,12 +1,4 @@
-# Refuges of Lies and What Will Become of Them
-
-(No. 1501)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 26, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1501 | Refuges of Lies and What Will Become of Them
 
 "Judgment also will I lay to the line, and righteousness to the plummet: and the hail shall sweep away the refuge of lies, and the waters shall overflow the hiding place." Isaiah 28:17.
 

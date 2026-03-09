@@ -1,6 +1,4 @@
-# A New Order of Priests and Levites
-
-Sermon No. 992 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 992 | A New Order of Priests and Levites
 
 > "And I will also take of them for priests and for Levites, saith the Lord."  
 > Isaiah 66:21.  

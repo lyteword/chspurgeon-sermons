@@ -1,12 +1,4 @@
-# Preventing Grace
-
-(No. 2924)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 23, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
+# Sermon 2924 | Preventing Grace
 
 "And David said to Abigail, Blessed is the Lord God of Israel, who sent you this day to meet me, and blessed is your advice, and blessed are you, because you have kept me this day from coning to bloodshed, and from avenging myself with my own hand." 1 Samuel 25:32,33.
 

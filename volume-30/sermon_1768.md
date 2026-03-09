@@ -1,12 +1,4 @@
-# First, King of Righteousness, and after That, King of Peace
-
-(No. 1768)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 8, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1768 | First, King of Righteousness, and after That, King of Peace
 
 "First being by interpretation King of righteousness, and after that also King of Salem, which is, King of peace." Hebrews 7:2.
 

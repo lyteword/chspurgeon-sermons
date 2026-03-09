@@ -1,6 +1,4 @@
-# The Death of Christ
-
-Sermon No. 173 - Delivered on Sabbath Morning, January 24, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 173 | The Death of Christ
 
 > Yet it pleased the Lord to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see his seed, he shall prolong his days, and the pleasure of the Lord shall prosper in his hand.    
 > Isaiah 53:10.    

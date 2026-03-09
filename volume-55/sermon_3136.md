@@ -1,12 +1,4 @@
-# Lessons From the Malta Fire
-
-(No. 3136)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY30,1873.
+# Sermon 3136 | Lessons From the Malta Fire
 
 "They kindled a fire, and received us, every one, because of the present rain, and because of the cold." Acts 28:2.
 

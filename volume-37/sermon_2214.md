@@ -1,12 +1,4 @@
-# Barriers Broken Down
-
-(No. 2214)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 26, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2214 | Barriers Broken Down
 
 "For they, being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God." Romans 10:3.
 

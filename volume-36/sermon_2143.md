@@ -1,6 +1,4 @@
-# The Shining of the Face of Moses
-
-Sermon No. 2143 - Delivered on Sunday Morning, May 18th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2143 | The Shining of the Face of Moses
 
 > "And it came to pass when Moses came down from mount Sinai with the two tables of testimony in Moses' hand, when he came do wn from the mount, that Moses knew not that the skin of his face shone while he talked with Him. And when Aaron and all the children of Israel saw Moses, behold, the skin of his face shone, and they were afraid to come near him. And Moses called unto them, and Aaron and all the rulers of the congregation returned unto him: and Moses talked with them. And afterward all the children of Israel came near: and he gave them in commandment all that the Lord had spoken with him in mount Sinai. And till Moses had done speaking with them, he put a veil on his face. But when Moses went in before the Lord to speak with Him, he took the veil off, until he came out. And he came out, and spoke unto the children of Israel that which he was commanded. And the children of Israel saw the face of Moses, that the skin of Moses'face shone: and Moses put the veil upon his face again, until he went in to speak with Him."  
 > Exodus 34:29-36.  

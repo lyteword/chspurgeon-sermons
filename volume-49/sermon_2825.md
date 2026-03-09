@@ -1,12 +1,4 @@
-# Majesty in Misery
-
-(No. 2825)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 7, 1883.
+# Sermon 2825 | Majesty in Misery
 
 "And the men that held Jesus mocked Him and struck Him. And when they had blindfolded Him, they struck Him on the face and asked Him saying, Prophesy, who is it that struck You? And many other things they blasphemously spoke against Him." Luke 22:63-65.
 

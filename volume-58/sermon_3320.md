@@ -1,12 +1,4 @@
-# A Bad King's Good Son
-
-(No. 3320)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 19, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, JUNE 24, 1866.
+# Sermon 3320 | A Bad King's Good Son
 
 "And all Israel shall mourn for him, and bury him: for he only of Jeroboam shall come to the grave, because in him there is found some good thing toward the LORD God of Israel in the house of Jeroboam." 1 Kings 14:13.
 

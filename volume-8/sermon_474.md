@@ -1,6 +1,4 @@
-# Faith Omnipotent
-
-Sermon No. 474 - Delivered on Sunday Morning, October 12th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 474 | Faith Omnipotent
 
 > "Jesus said unto him, If you can believe, all things are possible to him that believes.'"  
 > Mark 9:23.  

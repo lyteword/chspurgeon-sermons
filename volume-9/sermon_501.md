@@ -1,6 +1,4 @@
-# Grace Abounding
-
-Sermon No. 501 - Delivered on Sunday Morning, March 22nd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 501 | Grace Abounding
 
 > "I will love them freely."  
 > Hosea 14:4.  

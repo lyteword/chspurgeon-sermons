@@ -1,10 +1,4 @@
-# "This Year Also"
-
-(No. 1451A)
-
-FOR THE NEW YEAR - 1879.
-
-FROM THE SICK CHAMBER OF C. H. SPURGEON.
+# Sermon 1451A | "This Year Also"
 
 "This year also." Luke 13:6.
 

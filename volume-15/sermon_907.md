@@ -1,7 +1,4 @@
-# Christ--the Fall and Rise of Many
-
-Sermon No. 907 - Delivered on Lord's-day Morning, DECEMBER 26, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 907 | Christ--the Fall and Rise of Many
 
 "And Simeon blessed them and said unto Mary His mother, Behold, this Child is set for the fall and rising again of many in Israel; and for a sign which shall be spoken against."- Luke 2:34.
 

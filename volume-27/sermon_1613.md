@@ -1,12 +1,4 @@
-# Shut In Or Shut Out
-
-(No. 1613)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 14, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1613 | Shut In Or Shut Out
 
 "The Lord shut him in." Genesis 7:16.
 

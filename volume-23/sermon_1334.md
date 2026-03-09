@@ -1,12 +1,4 @@
-# Coming--Always Coming
-
-(No. 1334)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1334 | Coming--Always Coming
 
 "To whom coming." 1 Peter 2:4.
 

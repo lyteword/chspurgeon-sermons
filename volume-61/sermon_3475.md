@@ -1,12 +1,4 @@
-# The Soul's Great Crisis
-
-(No. 3475)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 9, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 24, 1870.
+# Sermon 3475 | The Soul's Great Crisis
 
 "For without the law sin was dead. For I was alive without the law once, but when the commandment came, sin revived, and I died." Romans 7:8,9.
 

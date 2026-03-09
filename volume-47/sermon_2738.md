@@ -1,12 +1,4 @@
-# The Redeemer's Face Set Like a Flint
-
-(No. 2738)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 4, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 28, 1880.
+# Sermon 2738 | The Redeemer's Face Set Like a Flint
 
 "For the Lord God will help Me; therefore I will not be disgraced: therefore have I set My face like a flint, and I know that I shall not be ashamed." Isaiah 50:7.
 

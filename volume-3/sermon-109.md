@@ -1,6 +1,4 @@
-# Going Home&mdash;A Christmas Sermon
-
-Sermon No. 109 - Delivered on Sabbath Morning, December 21, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 109 | Going Home&mdash;A Christmas Sermon
 
 > Go home to thy friends, and tell them how great things the Lord hath done for thee, and hath had compassion on thee.    
 > Mark 5:19.    

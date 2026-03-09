@@ -1,12 +1,4 @@
-# Up from the Country and Pressed Into Service
-
-(No. 1853)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 2, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1853 | Up from the Country and Pressed Into Service
 
 "And they compelled one Simon, a Cyrenian, who passed by, coming out of the country, the father of Alexander and Rufus, to bear His Cross." Mark 15:21.
 

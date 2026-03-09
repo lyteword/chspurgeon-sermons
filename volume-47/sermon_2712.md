@@ -1,12 +1,4 @@
-# Bonds Which Could Not Hold
-
-(No. 2712)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 3, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 28, 1880.
+# Sermon 2712 | Bonds Which Could Not Hold
 
 "Whom God has raised up, having loosed the pains of death, because it was not possible that He should be held by it." Acts 2:24.
 

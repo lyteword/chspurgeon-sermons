@@ -1,12 +1,4 @@
-# Following the Risen Christ
-
-(No. 1530)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 28, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1530 | Following the Risen Christ
 
 "If you then are risen with Christ, seek those things which are above, where Christ sits at the right hand of God. Set your affection on things abo ve, not on things on the earth." Colossians 3:1,2.
 

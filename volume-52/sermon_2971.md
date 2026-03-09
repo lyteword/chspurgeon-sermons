@@ -1,12 +1,4 @@
-# The Right Kind of Fear
-
-(No. 2971)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 18, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, SEPTEMBER 2, 1876.
+# Sermon 2971 | The Right Kind of Fear
 
 "Happy is the mam who fears always." Proverbs 28:14.
 

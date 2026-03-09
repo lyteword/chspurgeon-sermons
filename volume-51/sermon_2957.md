@@ -1,12 +1,4 @@
-# Advance!
-
-(No. 2957)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 12, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 24, 1875.
+# Sermon 2957 | Advance!
 
 "The LORD our God spoke unto us in Horeb, saying, You have dwelt long enough in this mountain." Deuteronomy 1:6.
 

@@ -1,12 +1,4 @@
-# "Peace in Believing"
-
-(No. 2626)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 11, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 19, 1882.
+# Sermon 2626 | "Peace in Believing"
 
 "Peace in believing." Romans 15:13.
 

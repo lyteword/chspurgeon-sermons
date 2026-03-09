@@ -1,12 +1,4 @@
-# Our Lord's Humanity a Sweet Source of Comfort
-
-(No. 1295)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1295 | Our Lord's Humanity a Sweet Source of Comfort
 
 "Then there came again and touched me one like the appearance of a man, and he strengthened me." Daniel 10:18.
 

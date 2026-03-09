@@ -1,6 +1,4 @@
-# The Holy Spirit--the Need of the Age
-
-Sermon No. 1952 - Delivered on Sunday Morning, March 13th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1952 | The Holy Spirit--the Need of the Age
 
 > "O you that are named the House of Jacob, is the Spirit of the Lord straitened? are these His doings? Do not My words do good to him that walks uprightly?"  
 > Micah 2:7.  

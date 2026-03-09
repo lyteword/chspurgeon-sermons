@@ -1,12 +1,4 @@
-# Consolation For The Despairing
-
-(No. 1146)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 7, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1146 | Consolation For The Despairing
 
 "For I said in my haste, I am cut off from before Your eyes, nevertheless You heard the voice of my supplications when I cried unto You." Psalm 31:22.
 

@@ -1,12 +1,4 @@
-# God's Hand at Evening
-
-(No. 3290)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 15, 1866.
+# Sermon 3290 | God's Hand at Evening
 
 "Now the hand of the Lord was upon me in the evening." Ezekiel 33:22.
 

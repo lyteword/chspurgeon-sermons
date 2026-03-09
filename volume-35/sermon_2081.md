@@ -1,6 +1,4 @@
-# Truth Stranger Than Fiction
-
-Sermon No. 2081 - Delivered on Sunday, May 30th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2081 | Truth Stranger Than Fiction
 
 > "And I will restore to you the years that the locust has eaten."  
 > Joel 2:25.  

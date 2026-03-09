@@ -1,12 +1,4 @@
-# A Promise and a Providence
-
-(No. 3528)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3528 | A Promise and a Providence
 
 "I will feed My flock, and I will make them lie down, says the Lord." Ezekiel 34:15.
 

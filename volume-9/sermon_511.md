@@ -1,6 +1,4 @@
-# Pentecost
-
-Sermon No. 511 - Delivered on Sunday Morning, May 24th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 511 | Pentecost
 
 > "When the day of Pentecost was fully come, they were all with one accord in one place. And suddenly there came a sound from Heaven as of a rushing mighty wind, and it filled all the house where they were sitting. And there appeared unto them cloven tongues like as of fire, and it sat upon each of them. And they were all filled with the Holy Spirit and began to speak with other tongues, as the Spirit ga ve them utterance."  
 > Acts 2:1-4.  

@@ -1,12 +1,4 @@
-# A Sermon and a Reminiscence
-
-(No. 3112)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, EARLY IN THE YEAR 1873.
+# Sermon 3112 | A Sermon and a Reminiscence
 
 "Unto you therefore who believe, He is precious." 1 Peter 2:7.
 

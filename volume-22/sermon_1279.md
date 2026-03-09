@@ -1,12 +1,4 @@
-# Amazing Grace
-
-(No. 1279)
-
-A SERMON DELIVERED
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1279 | Amazing Grace
 
 "I have seen his ways, and will heal him: I will lead him also, and restore comfort unto him and to his mourners." Isaiah 57:18.
 

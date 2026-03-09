@@ -1,12 +1,4 @@
-# God's Glory in Hiding Sin
-
-(No. 2838)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 15, 1877.
+# Sermon 2838 | God's Glory in Hiding Sin
 
 "It is the glory of God to conceal a thing, but the honor of kings is to search out a matter." Proverbs 25:2.
 

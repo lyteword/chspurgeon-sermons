@@ -1,12 +1,4 @@
-# Household Sin and Sorrow
-
-(No. 3473)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 26, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, ON THURSDAY EVENING, OCTOBER 19, 1870.
+# Sermon 3473 | Household Sin and Sorrow
 
 "And he said, Your brother came with subtlety and has taken away your blessing." Genesis27:35.
 

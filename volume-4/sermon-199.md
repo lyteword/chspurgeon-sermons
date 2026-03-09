@@ -1,6 +1,4 @@
-# A Free Salvation
-
-Sermon No. 199 - Delivered on Friday Afternoon, June 11, 1858, by the REV. C.H. SPURGEON on the Grand Stand, Epsom Race-Course.
+# Sermon 199 | A Free Salvation
 
 > Yea, come, buy wine and milk without money and without price.    
 > Isaiah 55:1.    

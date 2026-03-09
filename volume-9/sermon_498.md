@@ -1,6 +1,4 @@
-# The Gladness of the Man of Sorrows
-
-Sermon No. 498 - Delivered on Sunday Morning, March 8th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 498 | The Gladness of the Man of Sorrows
 
 > "Thou lovest righteousness, and hatest wickedness: therefore God, thy God, hath anointed thee with the oil of gladness above thy fellows. All thy garments smell of myrrh, and aloes, and cassia, out of the ivory palaces, whereby they have made thee glad."  
 > Psalm 45:7, 8.  

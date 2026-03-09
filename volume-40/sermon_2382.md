@@ -1,12 +1,4 @@
-# The Holy Spirit's Chief Office
-
-(No. 2382)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 14, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 26, 1888.
+# Sermon 2382 | The Holy Spirit's Chief Office
 
 "He shall glorify Me: for He shall take of Mine, and shall show it to you. All things that the Father has are Mine: therefore said I, that He shall take of Mine and shall show it to you." John 16:14,15.
 

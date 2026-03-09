@@ -1,7 +1,4 @@
-# The Echo
-
-Sermon No. 767 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 767 | The Echo
 
 "When You said, Seek you My face; my heart said unto You, Your face, Lord, will I seek."- Psalm 27:8.
 

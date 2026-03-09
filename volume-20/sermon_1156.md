@@ -1,12 +1,4 @@
-# Rubbish
-
-(No. 1156)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1156 | Rubbish
 
 "There is much rubbish; so that we are not able to build the wall" Nehemiah 4:10.
 

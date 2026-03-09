@@ -1,12 +1,4 @@
-# The Miracle of the Loaves
-
-(No. 1218)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1218 | The Miracle of the Loaves
 
 "They considered not the miracle of the loaves." Mark 6:52.
 

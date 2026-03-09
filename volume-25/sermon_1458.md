@@ -1,12 +1,4 @@
-# A Sermon Upon One Nothing by Another Nothing
-
-(No. 1458)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1458 | A Sermon Upon One Nothing by Another Nothing
 
 "Though I am nothing." 2 Corinthians 12:11.
 

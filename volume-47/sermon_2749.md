@@ -1,12 +1,4 @@
-# Rehoboam the Unready
-
-(No. 2749)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 20, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 11, 1879.
+# Sermon 2749 | Rehoboam the Unready
 
 "And he did evil, because he did not prepare his heart to seek the Lord." 2 Chronicles 12:14.
 

@@ -1,12 +1,4 @@
-# Luminous Words
-
-(No. 2549)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 26, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 28, 1884.
+# Sermon 2549 | Luminous Words
 
 "Therefore since Christ has suffered for us in the flesh, arm yourselves, likewise, with the same mind: for he that has suffered in the flesh has ceased from sin; that he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God. For the time past of our life may suffice us to have worked the will of the Gentiles, when we walked in lasciviousness, lusts, excess of wine, drinking parties and abominable idolatries." 1 Peter 4:1-3.
 

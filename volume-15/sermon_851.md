@@ -1,7 +1,4 @@
-# Nearness To God
-
-Sermon No. 851 - Delivered on Lord's-day Morning, JANUARY 17, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 851 | Nearness To God
 
 "But now in Christ Jesus you who once were far off are made near by the blood of Christ."- Ephesians 2:13.
 

@@ -1,12 +1,4 @@
-# A Portrait No Artist Can Paint
-
-(No. 2498)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 26, 1885.
+# Sermon 2498 | A Portrait No Artist Can Paint
 
 "He had in His right hand seven stars: and out of His mouth went a sharp two-edged sword: and His countenance was as the sun shines in its strength." Revelation 1:16.
 

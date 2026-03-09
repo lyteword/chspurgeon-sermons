@@ -1,12 +1,4 @@
-# A Mournful Defection
-
-(No. 2914)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 15, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, IN THE YEAR 1877.
+# Sermon 2914 | A Mournful Defection
 
 "Will you also go away?" John 6:67.
 

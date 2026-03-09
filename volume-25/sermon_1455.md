@@ -1,12 +1,4 @@
-# Every Man's Necessity
-
-(No. 1455)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1455 | Every Man's Necessity
 
 "You must be born again." John 3:7.
 

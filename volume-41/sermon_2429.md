@@ -1,12 +1,4 @@
-# Converts, and Their Confession of Faith
-
-(No. 2429)
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 8, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 4, 1837.
+# Sermon 2429 | Converts, and Their Confession of Faith
 
 "One shall say, I am the Lord's; and another shall call himself by the name of Jacob; and another shall subscribe with his hand unto the Lord, and surname himself by the name of Israel." Isaiah 44:5.
 

@@ -1,12 +1,4 @@
-# Reasons For Parting With Sin
-
-(No. 1278)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 13, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1278 | Reasons For Parting With Sin
 
 "Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Isaiah 1:18.
 

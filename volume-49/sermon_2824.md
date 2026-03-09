@@ -1,12 +1,4 @@
-# Mocked of the Soldiers
-
-(No. 2824)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 3, 1883.
+# Sermon 2824 | Mocked of the Soldiers
 
 "And when they had platted a crown of thorns, they put it upon His head, and a reed in His right hand: and they bowed the knee before Him, and mocked Him, saying, Hail, King of the Jews" Matthew 27:29.
 

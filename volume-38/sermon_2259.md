@@ -1,12 +1,4 @@
-# The Simplicity and Sublimity of Salvation
-
-(No. 2259)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 5, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 6, 1890.
+# Sermon 2259 | The Simplicity and Sublimity of Salvation
 
 "He came unto His own, and His own received Him not. But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name: Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God." John 1:11-13.
 

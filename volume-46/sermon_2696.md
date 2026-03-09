@@ -1,12 +1,4 @@
-# Wordless Prayers Heard in Heaven
-
-(No. 2696)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 14, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 8, 1881.
+# Sermon 2696 | Wordless Prayers Heard in Heaven
 
 "When the poor and needy seek water, and there is none, and their tongue fails for thirst, I the LORRD will hear them, I the God of Israel will not forsake them." Isaiah 41:17.
 

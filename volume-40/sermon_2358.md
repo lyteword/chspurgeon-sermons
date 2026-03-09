@@ -1,12 +1,4 @@
-# The Unchangeable Christ
-
-(No. 2358)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 29, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 23, 1888.
+# Sermon 2358 | The Unchangeable Christ
 
 "Jesus Christ, the same yesterday, and today and forever." Hebrews 13:8.
 

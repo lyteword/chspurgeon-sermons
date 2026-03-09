@@ -1,12 +1,4 @@
-# A Day to Be Remembered
-
-(No. 2665)
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 11, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1882.
+# Sermon 2665 | A Day to Be Remembered
 
 "And Jesus said unto him, This day has salvation come to this house." Luke 19:9.
 

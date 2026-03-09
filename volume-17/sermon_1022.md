@@ -1,6 +1,4 @@
-# Sleep Not
-
-Sermon No. 1022 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1022 | Sleep Not
 
 > "Let us not sleep, as do others."  
 > 1 Thessalonians 5:6.  

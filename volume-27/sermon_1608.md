@@ -1,12 +1,4 @@
-# The Double "Come"
-
-(No. 1608)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 10, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1608 | The Double "Come"
 
 "And the Spirit and the bride say, Come. And let him that hears say, Come." Revelation 22:17.
 

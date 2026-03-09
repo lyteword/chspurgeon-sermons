@@ -1,12 +1,4 @@
-# "Who Is This?"
-
-(No. 3394)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 19, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 19, 1869.
+# Sermon 3394 | "Who Is This?"
 
 "When He was come into Jerusalem, all the city was moved, saying, 'Who is this?'" Matthew 21:10.
 

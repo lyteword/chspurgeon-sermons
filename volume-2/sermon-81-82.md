@@ -1,6 +1,4 @@
-# The God of the Aged
-
-Sermon No. 81 & 82 - Delivered on Sabbath Morning, May 25, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark. The substance of which was also delivered at Stambourne, Essex, on the commemoration of the Jubilee of his Grandfather, the REV. JAMES SPURGEON, Tuesday 27th May. 1856.
+# Sermon 81 & 82 | The God of the Aged
 
 > Even to your old age I am he; and even to hoar hairs will I carry you. I have made, and I will bear; even I will carry, and will deliver you.    
 > Isaiah 46:4.    
@@ -133,7 +131,6 @@ And lastly, my dear venerable fathers in the faith, and mothers in Israel, take 
 
 # The New Park Street Tracts
 
-EDITED BY THE REV. C. H. SPURGEON. Printed and Sold by the Publishers, ALABASTER & PASSMORE, No. 34, Wilson Street, Finsbury Square; to be had also of J. Paul, Chapter-house Court, Paternoster Row; G. J. Stevenson, 54, Paternoster Row; and of all Booksellers.
 
 ## The Infidel's Sermon to the Pirates.
 
@@ -147,7 +144,6 @@ The next morning they fitted out one of their vessels, and conveyed him whither 
 
 *How marvellous the providence of God, and the sovereignty of his grace! Who is he that has stepped beyond the range of Almighty love? or has sinned too much to be forgiven? Reader! are you an infidel? What would you do in a similar situation? What other doctrine than that of Scripture would benefit pirates? Certainly not your own. What would you like to teach your own children? Certainly not your own sentiments. You feel that you would not wish to hear your own offspring blaspheming God. Moreover, forgive us, if we declare our opinion that thou knowest that there is a God, though with thy lips thou deniest him. Think, we beseech thee, of thy Maker, and of his Son, the Saviour; and may Eternal love bring even thee to the Redeemer.&mdash;C. H. S.*
 
-## No. 3&mdash;The Actress.
 
 An actress in one of the English provincial or country theatres, was, one day, passing through the streets of the town in which she then resided, when her attention was attracted by the sound of voices, which she heard in a poor cottage before her. Curiosity prompted her to look in at an open door, when she saw a few poor people sitting together, one of whom, at the moment of her observation, was giving out the following hymn, which the others joined in singing:&mdash;
 

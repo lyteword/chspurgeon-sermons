@@ -1,12 +1,4 @@
-# The Day of Salvation
-
-(No. 1394)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 13, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1394 | The Day of Salvation
 
 "Behold, now is the day of salvation." 2 Corinthians 6:2.
 

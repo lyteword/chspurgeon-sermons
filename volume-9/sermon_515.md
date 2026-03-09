@@ -1,6 +1,4 @@
-# The Sinner's Advocate
-
-Sermon No. 515 - Delivered on Sunday Morning, June 21st, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 515 | The Sinner's Advocate
 
 > "My little children, these things write I unto you, that you sin not. And if any man sins, we have an Advocate with the Father, Jesus Christ the righteous"  
 > 1 John 2:1.  

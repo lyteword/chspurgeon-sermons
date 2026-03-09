@@ -1,12 +1,4 @@
-# The Lamb Of God In Scripture
-
-(No. 2329)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 8, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 25, 1889.
+# Sermon 2329 | The Lamb Of God In Scripture
 
 "Again, the next day, John stood with two of his disciples. And looking at Jesus as He walked, he said, "Behold the Lamb of God!" John 1:35,36.
 

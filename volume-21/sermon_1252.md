@@ -1,12 +1,4 @@
-# The First Day Of Creation
-
-(No. 1252)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, AUGUST 29, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1252 | The First Day Of Creation
 
 "And God saw the light that it was good." Genesis 1:4.
 

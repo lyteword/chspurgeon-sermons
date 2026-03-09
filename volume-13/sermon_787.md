@@ -1,7 +1,4 @@
-# A Song, A solace, A Sermon and a Summons
-
-Sermon No. 787 - Delivered on Lord's-day Morning, DECEMBER 29, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 787 | A Song, A solace, A Sermon and a Summons
 
 "For His mercy endures forever."- Psalm 136:1.
 

@@ -1,12 +1,4 @@
-# The Candle
-
-(No. 1594)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 24, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1594 | The Candle
 
 "Neither do men light a candle and put it under a bushel, but on a candlestick; and it gives light unto all that are in the house. Let your light so shine before men, that they may see your good works, and glorify your Father which is in Heaven." Matthew 5:15,16
 

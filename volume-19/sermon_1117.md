@@ -1,12 +1,4 @@
-# The Father's Will
-
-(No. 1117)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1117 | The Father's Will
 
 "And this is the Father's will which has sent Me, that of all which He has given Me I should lose nothing, but should raise it up again at the last day. And this is the will of Him thatsentMe, that everyone which sees the Son, and believes on Him, may have everlasting life; and I will raise him up at the last day." John 6:39,40.
 

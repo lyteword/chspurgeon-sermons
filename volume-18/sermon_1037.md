@@ -1,6 +1,4 @@
-# The Poor Man's Friend
-
-Sermon No. 1037 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1037 | The Poor Man's Friend
 
 'For he shall deliver the needy when he crieth; the poor also, and him that hath no helper.''Psalm 72:12.
 

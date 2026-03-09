@@ -1,12 +1,4 @@
-# Only Trust Him! Only Trust Him!
-
-(No. 1635)
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 26, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1635 | Only Trust Him! Only Trust Him!
 
 "And as He entered into a certain village, there met Him ten men that were lepers, which stood afar off: and they lifted up their voices and said, Jesus, Master, have mercy on us. And when He sa w them, He said unto them, Go show yourselves unto the priests. And it came to pass, that, as they went, they were cleansed." Luke 17:12-14.
 
@@ -109,7 +101,6 @@ Many a man wishes he was humble and he is humble because he does not think he is
 
 Before long, if you trust Jesus, you shall know His love. Trust Him as you sink and you shall swim. Trust Him as you feel yourself dying and you shall live. If you trust Him before you feel any work of Grace upon you, you shall soon discover that there was a work upon you, though you discerned it not. If you trust the Lord, you are already the subject of a Divine power, for nothing short of Omnipotent Grace could have led you to believe and live! The state and act of faith are simplicity itself, but to bring us into that simplicity, God, Himself, must new create us. To put all in one, if you are ready to come to Christ and trust Him without any miracles, signs, or evidences, but will simply trust Him, alone, you have within you a power which will carry you through life and preserve you in holiness even to the end.
 
-This morning I spoke about David's encouraging himself in God. [No. 1606. "Ziklag--Or David Encouraging Himself in God."] When Ziklag was burnt, his wives taken captive and his men talked of stoning him, David fell back on God alone. This is a high attainment and yet it is one which has its parallel in the very dawn of faith in the sinner. It is a grand start in life for you, a poor sinner, to begin by trusting Christ, alone, saying, "I, without anything good in me whatever, without anything that I can lay hold of as a hope for me, do cast myself, whether I sink or swim, upon Christ Jesus the Savior of sinners. And I if I perish, I perish."
 
 This is a glorious beginning! To many a saintly life, such a faith in the Lord, alone, has been a crowning act, and yet you, poor Sinner, may exercise this same faith while yet you are a babe in Christ! You will often have to trust in this fashion in future life and, therefore, it is well to begin as you will have to keep on. You will be brought in business, in the family and in the various trials of life, into such a condition that you will have to exercise a faith just of the same sort as that which you begin with. I would, therefore, have you learn the lesson while you are young. You will have to say, "Though I am weakness, itself, and poverty, itself, and do not see how I may be provided for, yet as the ravens and the sparrows are fed, so shall I be. And therefore I cast my nakedness upon God for clothing, my hunger upon God for food and my very life I cast upon Him that He may preserve it to me between the jaws of death."
 

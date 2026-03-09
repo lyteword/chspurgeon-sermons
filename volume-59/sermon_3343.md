@@ -1,12 +1,4 @@
-# "The Star Out of Jacob"
-
-(No. 3343)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 27, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3343 | "The Star Out of Jacob"
 
 "There shall come a Star out of Jacob." Numbers 24:17.
 

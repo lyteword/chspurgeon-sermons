@@ -1,10 +1,4 @@
-# The Empty Seat
-
-(No. 1454A)
-
-WRITTEN WHEN AWAY FROM HIS PEOPLE,
-
-BY C. H. SPURGEON.
+# Sermon 1454A | The Empty Seat
 
 "David's place was empty." 1 Samuel 20:27.
 

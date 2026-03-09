@@ -1,12 +1,4 @@
-# An Awful Contrast
-
-(No. 2473)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 12, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 11, 1886.
+# Sermon 2473 | An Awful Contrast
 
 "Then they spat in His face." Matthew 26:67.
 

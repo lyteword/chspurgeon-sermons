@@ -1,12 +1,4 @@
-# Dead, Yet Alive
-
-(No. 2933)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 27, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 6, 1876.
+# Sermon 2933 | Dead, Yet Alive
 
 "Likewise reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin, therefore, reign in your mortal body, that you should obey it in the lusts thereof." Romans 6:11,12.
 

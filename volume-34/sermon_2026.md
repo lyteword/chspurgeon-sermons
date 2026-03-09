@@ -1,14 +1,4 @@
-# To the Saddest of the Sad
-
-A Sermon
-
-(No. 2026)
-
-Intended for Reading on Lord's-day, June 3rd, 1888, by
-
-H. SPURGEON,
-
-At [5]the Metropolitan Tabernacle, Newington
+# Sermon 2026 | To the Saddest of the Sad
 
 "And Moses spake so unto the children of Israel: but they hearkened not unto Moses for anguish of spirit, and for cruel bondage."'Exodus 6:9.
 

@@ -1,12 +1,4 @@
-# An Earnest Entreaty
-
-(No. 3470)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 5, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3470 | An Earnest Entreaty
 
 "Show Your marvelous loving kindness." Psalm 17:7.
 

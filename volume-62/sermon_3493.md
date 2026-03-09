@@ -1,18 +1,4 @@
-# Daily Blessings for God's People
-
-A Sermon
-
-(No. 3493)
-
-Published on Thursday, January 6th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [1]the Metropolitan Tabernacle, Newington
-
-On Thursday Evening, 21st September , 1871.
+# Sermon 3493 | Daily Blessings for God's People
 
 "Blessed be the Lord, who daily loadeth us with benefits, even the God of our salvation. He that is our God is the God of salvation, and unto God the Lord belong the issues from death."--Psalm 68:19-20.
 

@@ -1,12 +1,4 @@
-# Figs and Olives
-
-(No. 3226)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 1, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 11, 1879.
+# Sermon 3226 | Figs and Olives
 
 "Can the fig tree, my brethren, bear olives?" James 3:12.
 

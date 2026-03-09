@@ -1,12 +1,4 @@
-# Standing and Singing
-
-(No. 3375)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 9, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 31, 1867.
+# Sermon 3375 | Standing and Singing
 
 "My foot stands in an even place; in the congregations will I bless the Lord." Psalm 26:12.
 

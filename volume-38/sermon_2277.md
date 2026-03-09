@@ -1,12 +1,4 @@
-# Sychar's Sinner Saved
-
-(No. 2277)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 9 1892.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 13, 1890.
+# Sermon 2277 | Sychar's Sinner Saved
 
 "Jesus answered and said unto her, If you knew the gift of God, and who itis thatsays to you, Give Me to drink; you would have asked of Him, and He would have given you living water." John 4:10.
 

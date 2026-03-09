@@ -1,12 +1,4 @@
-# Wake Up! Wake Up!
-
-(No. 1445)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1445 | Wake Up! Wake Up!
 
 "That, knowing the time, that now it is high time to awake out of sleep: for now is our salvation nearer than when we believed." Romans 13:11.
 

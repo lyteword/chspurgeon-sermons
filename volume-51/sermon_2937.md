@@ -1,12 +1,4 @@
-# Too Little for the Lamb
-
-(No. 2937)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 25, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 8, 1875.
+# Sermon 2937 | Too Little for the Lamb
 
 "They shall take to them every man a lamb, according to the house of their father, a lamb for an house: and if the household is too little for the lamb, let him and his neighbor next unto his house take it according to the number of the souls; every man according to his eating shall make your count for the lamb." Exodus 12:3, 4.
 

@@ -1,12 +1,4 @@
-# God's Pupil, God's Preacher--an Autobiography
-
-(No. 2318)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 23, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 28, 1889.
+# Sermon 2318 | God's Pupil, God's Preacher--an Autobiography
 
 "O God, You ha ve taught me from my youth: and until this time ha ve I declared Your wondrous works." Psalm 71:17.
 

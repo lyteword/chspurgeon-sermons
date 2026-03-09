@@ -1,12 +1,4 @@
-# Love and Jealousy
-
-(No. 3516)
-
-A SERMON PUBLISHED ON THURSDAY JUNE 15, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3516 | Love and Jealousy
 
 "Love is strong as death; jealousy is cruel as the grave." Song of Solomon 8:6.
 

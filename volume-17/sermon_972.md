@@ -1,6 +1,4 @@
-# New Uses for Old Trophies
-
-Sermon No. 972 - Delivered on Lord's-day Evening, November 20th, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 972 | New Uses for Old Trophies
 
 > "King David's spears and shields, that were in the temple of the Lord."  
 > 2 Kings 11:10.  

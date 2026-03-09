@@ -1,7 +1,4 @@
-# A Troubled Prayer
-
-Sermon No. 741 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 741 | A Troubled Prayer
 
 "Look upon my affliction and my pain; and forgive all my sins." Psalm 25:18.
 

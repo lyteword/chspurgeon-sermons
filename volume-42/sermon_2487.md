@@ -1,12 +1,4 @@
-# Ordered Steps
-
-(No. 2487)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 18, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 29, 1886.
+# Sermon 2487 | Ordered Steps
 
 "Order my steps in Your Word: and let not any iniquity have dominion over me." Psalm 119:133.
 

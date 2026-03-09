@@ -1,12 +1,4 @@
-# The Unrivalled Eloquence Of Jesus
-
-(No. 951)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 18, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 951 | The Unrivalled Eloquence Of Jesus
 
 "The officers answered, Never man spoke like this Man." John 7:46.
 

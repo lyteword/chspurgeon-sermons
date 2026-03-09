@@ -1,6 +1,4 @@
-# Jesus Known by Personal Revelation
-
-Sermon No. 2041 - Delivered on Sunday Morning, August 26th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2041 | Jesus Known by Personal Revelation
 
 > "When Jesus came into the coasts of Caesarea Philippi, He asked His disciples, saying, Whom do men say that I, the Son of Man, am? And they said, Some say that You are John the Baptist: some, Elijah. And others, Jeremiah, or one of the Prophets. He said unto them, But whom do you say that I am? And Simon Peter answered and said, You are the Christ, the Son of the living God. And Jesus answered and said unto him, Blessed are you, Simon Barjona: for flesh and blood has not revealed it unto you but My Father which is in Heaven."  
 > Matthew 16:13-17.  

@@ -1,12 +1,4 @@
-# Unparalleled Suffering
-
-(No. 2573)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 5, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 4, 1883.
+# Sermon 2573 | Unparalleled Suffering
 
 "Christ also has once suffered." 1 Peter 3:18.
 

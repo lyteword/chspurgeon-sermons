@@ -1,12 +1,4 @@
-# Salvation All of Grace
-
-(No. 1064)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 4, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1064 | Salvation All of Grace
 
 "By Grace are you saved." Ephesians 2:8.
 

@@ -1,12 +1,4 @@
-# Love's Climax
-
-(No. 2394)
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 6, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 10, 1887.
+# Sermon 2394 | Love's Climax
 
 "Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins." 1 John 4:10.
 

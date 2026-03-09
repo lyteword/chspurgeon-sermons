@@ -1,12 +1,4 @@
-# Paul As a Pattern Convert
-
-(No. 3367)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 14, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3367 | Paul As a Pattern Convert
 
 "However for this cause I obtained mercy, that in me, first, Jesus Christ might show forth all long-suffering, for a pattern to them which should hereafter believe on Him to life everlasting." 1 Timothy 1:16.
 

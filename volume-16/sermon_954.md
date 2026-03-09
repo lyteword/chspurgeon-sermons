@@ -1,12 +1,4 @@
-# A Most Needful Prayer Concerning The Holy Spirit
-
-(No. 954)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 9, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 954 | A Most Needful Prayer Concerning The Holy Spirit
 
 "Cast me not away from Your Presence. And take not Your Holy Spirit from me." Psalm 51:11.
 

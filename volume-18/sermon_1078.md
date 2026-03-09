@@ -1,12 +1,4 @@
-# The Saints Blessing The Lord
-
-(No. 1078)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 20, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1078 | The Saints Blessing The Lord
 
 "Bless the Lord, O my Soul: and all that is within me, bless His holy name." Psalm 103:1.
 

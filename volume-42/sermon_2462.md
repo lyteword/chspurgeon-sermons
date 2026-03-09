@@ -1,12 +1,4 @@
-# The Known and the Unknown
-
-(No. 2462)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 26, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 8, 1886.
+# Sermon 2462 | The Known and the Unknown
 
 "For who knows what is good for man in this life, all the days of his vain life which he passes like a shadow? Who can tell a man what will happen after him under the sun?" Ecclesiastes 6:12.
 

@@ -1,6 +1,4 @@
-# Particular Redemption
-
-Sermon No. 181 - Delivered on Sabbath Morning, February 28, 1858 by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 181 | Particular Redemption
 
 > Even as the Son of man came not to be ministered unto, but to minister, and to give His life a ransom for many.    
 > Matthew 20:28.    

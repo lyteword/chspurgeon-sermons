@@ -1,12 +1,4 @@
-# An Instructive Truth
-
-(No. 2893)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 21, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 22, 1876.
+# Sermon 2893 | An Instructive Truth
 
 "O Lord, I know that the way ofman is not in himself: it is not in main who walks to direct his steps." Jeremiah 10:23.
 

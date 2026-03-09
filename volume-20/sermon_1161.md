@@ -1,12 +1,4 @@
-# Without Money and Without Price
-
-(No. 1161)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 8, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1161 | Without Money and Without Price
 
 "Without money and without price." Isaiah 55:1.
 

@@ -1,12 +1,4 @@
-# Craving the Best Things
-
-(No. 3122)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT UPTON CHAPEL, LAMBETH ROAD, ON TUESDAY, MARCH 20, 1866.
+# Sermon 3122 | Craving the Best Things
 
 "And David said, There is none like that; give it to me." 1 Samuel 21:9.
 

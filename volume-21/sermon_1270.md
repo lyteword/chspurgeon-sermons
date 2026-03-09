@@ -1,12 +1,4 @@
-# "God With Us"
-
-(No. 1270)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 26, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1270 | "God With Us"
 
 "They shall call His name Emmanuel, which being interpreted is, God with us." Matthew 1:23.
 

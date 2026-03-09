@@ -1,10 +1,4 @@
-# The Numbered People
-
-(No. 1457B)
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
+# Sermon 1457B | The Numbered People
 
 "According to the commandment of the Lord they were numbered by the hand of Moses, everyone according to his service and according to his burden: thus were they numbered by him, as the Lord commanded Moses." Numbers 4:49.
 

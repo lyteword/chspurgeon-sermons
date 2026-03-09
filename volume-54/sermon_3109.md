@@ -1,12 +1,4 @@
-# Sowing and Reaping
-
-(No. 3109)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 10, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 16, 1874.
+# Sermon 3109 | Sowing and Reaping
 
 "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." Galatians 6:7.
 

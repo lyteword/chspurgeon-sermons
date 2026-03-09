@@ -1,12 +1,4 @@
-# Zion's Prosperity
-
-(No. 2576)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1856.
+# Sermon 2576 | Zion's Prosperity
 
 "You shall arise, and have mercy upon Zion: for the time to favor her, yes, the set time, is come. For Your servants take pleasure in her stones, and favor the dust thereof." Psalm 102:13,14.
 

@@ -1,12 +1,4 @@
-# Moses' Decision
-
-(No. 1063)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 28, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1063 | Moses' Decision
 
 "By faith Moses, when came of age, refused to be called the son of Pharaoh's daughter, choosing rather to suffer affliction with the people of God than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompense of the reward." Hebrews 11:24,25,26.
 

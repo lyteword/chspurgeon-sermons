@@ -1,12 +1,4 @@
-# Heart Disease Curable
-
-(No. 1604)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 19, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1604 | Heart Disease Curable
 
 "He has sent Me to bind up the brokenhearted." Isaiah 61:1.
 

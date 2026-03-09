@@ -1,12 +1,4 @@
-# Ruins
-
-(No. 2565)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 10, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 11, 1883.
+# Sermon 2565 | Ruins
 
 "But they were the ruin of him, and of all Israel." 2 Chronicles 28:23.
 

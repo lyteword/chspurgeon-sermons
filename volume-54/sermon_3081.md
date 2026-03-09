@@ -1,12 +1,4 @@
-# The Gracious Lips of Jesus
-
-(No. 3081)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 27, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3081 | The Gracious Lips of Jesus
 
 "Grace is poured into Your lips." Psalm 45:2.
 

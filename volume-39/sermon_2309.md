@@ -1,12 +1,4 @@
-# God's Works Made Manifest
-
-(No. 2309)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 12, 1880.
+# Sermon 2309 | God's Works Made Manifest
 
 "Jesus answered, Neither has this man sinned, nor his parents" (that he was born blind): "but that the works of God should be made manifest in him." John 9:3.
 

@@ -1,12 +1,4 @@
-# Good News for the Aged
-
-(No. 2602)
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, DECEMBER 30, 1855.
+# Sermon 2602 | Good News for the Aged
 
 "And about the eleventh home he went out and found others standing idle." Matthew 20:6.
 

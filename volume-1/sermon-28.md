@@ -1,6 +1,4 @@
-# The Church of Christ
-
-Sermon No. 28 - Delivered on Sabbath Morning, June 3, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 28 | The Church of Christ
 
 > And I will make them and the places round about my hill a blessing; and I will cause the shower to come down in his season; there shall be showers of blessing.    
 > Ezekiel 34:26.    

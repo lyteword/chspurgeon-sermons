@@ -1,12 +1,4 @@
-# Decided Ungodliness
-
-(No. 2655)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 31, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 20, 1882.
+# Sermon 2655 | Decided Ungodliness
 
 They have refused to return."
 

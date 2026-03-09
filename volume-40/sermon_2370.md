@@ -1,12 +1,4 @@
-# "Christ First, Me Last--Nothing Between But Love"
-
-(No. 2370)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 22, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 10, 1888.
+# Sermon 2370 | "Christ First, Me Last--Nothing Between But Love"
 
 "The faith of the Son of God, who loved me, and gave Himself for me," Galatians 2:20.
 

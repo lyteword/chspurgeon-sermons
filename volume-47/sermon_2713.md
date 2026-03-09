@@ -1,12 +1,4 @@
-# Walking in the Light of the Lord
-
-(No. 2713)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 10, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 4, 1880.
+# Sermon 2713 | Walking in the Light of the Lord
 
 "O house of Jacob, come and let us walk in the light of the LORD." Isaiah 2:5.
 

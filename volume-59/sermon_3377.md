@@ -1,12 +1,4 @@
-# The Greatest Wonder of Grace
-
-(No. 3377)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 23, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3377 | The Greatest Wonder of Grace
 
 "And I was left" Ezekiel 9:8.
 

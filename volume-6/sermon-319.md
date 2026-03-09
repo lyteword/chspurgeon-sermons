@@ -1,12 +1,5 @@
-# Special Thanksgiving to the Father
+# Sermon 319 | Special Thanksgiving to the Father
 
-A Sermon
-
-(No. 319)
-
-Delivered on Sabbath Evening, January 15th, 1860, by the
-
-REV. C.H. SPURGEON
 
 MY DEAR BRETHREN,
 

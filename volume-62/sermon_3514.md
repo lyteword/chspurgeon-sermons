@@ -1,16 +1,4 @@
-# A Prospect of Revival
-
-A Sermon
-
-(No. 3514)
-
-Published on Thursday, June 1st, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [22]the Metropolitan Tabernacle, Newington.
+# Sermon 3514 | A Prospect of Revival
 
 "For the Lord shall comfort Zion: he will comfort all her waste places and he will make her wilderness like Eden, and her desert like the garden of the Lord; joy and gladness shall be found therein, thanksgiving, and the voice of melody."--Isaiah 51:3.
 

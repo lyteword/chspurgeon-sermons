@@ -1,12 +1,4 @@
-# A Warning to Waverers
-
-(No. 2537)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 3, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 25, 1884.
+# Sermon 2537 | A Warning to Waverers
 
 "But let him ask in faith, nothing wavering. For he that wavers is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord." James 1:6, 7.
 

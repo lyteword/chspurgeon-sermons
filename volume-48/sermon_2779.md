@@ -1,16 +1,7 @@
-# Heart-communing
-
-(No. 2779)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 18, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 7, 1878.
+# Sermon 2779 | Heart-communing
 
 "She communed with him about all that was in her heart." 1 Kings 10:2.
 
-Last Sunday evening I mentioned some of the "hard questions" which Jesus is able to answer [Sermon No. 2778, Volume 48--CONSULTING WITH JESUS]. It appears that the queen of Sheba, when
 
 she had once obtained an interview with the great and wise king of Israel, was not content with merely putting to him various difficult questions, for she unloosed herself to him and exposed all that lay concealed in her heart--and Solomon listened attentively to her--and, no doubt, so spoke to her that he sent her away rejoicing.
 
@@ -120,7 +111,6 @@ Matthew 12:38, 39. Then certain of the scribes and of the Pharisees answered, sa
 
 The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon is here. As I have so recently
 
-preached upon this verse, [Sermon No. 2777, Volume 48--THE QUEEN OF SHEBA, A SIGN--Read/download the entire sermon, free ofcharge at
 
 http://www.spurgeons.org ] I need not say anything about it just now.
 

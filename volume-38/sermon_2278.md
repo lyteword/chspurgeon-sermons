@@ -1,12 +1,4 @@
-# Feeding on the Word
-
-(No. 2278)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 16, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 8, 1890.
+# Sermon 2278 | Feeding on the Word
 
 "Listen diligently to Me, and eat what is good, and let your soul delight itself in fatness." Isaiah 55:2.
 

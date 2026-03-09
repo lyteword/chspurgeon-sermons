@@ -1,12 +1,4 @@
-# "My Beloved Is Mine"
-
-(No. 2442)
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 8, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 11, 1887.
+# Sermon 2442 | "My Beloved Is Mine"
 
 "My beloved is mine, and I am His." Song of Solomon 2:16.
 

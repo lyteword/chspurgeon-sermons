@@ -1,12 +1,4 @@
-# The Third Beatitude
-
-(No. 3065)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 7, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 11, 1873.
+# Sermon 3065 | The Third Beatitude
 
 "Blessed are the meek: for they shall inherit the earth." Matthew 5:5.
 

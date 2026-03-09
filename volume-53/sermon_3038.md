@@ -1,12 +1,4 @@
-# Justice Vindicated And Righteousness Exemplified
-
-(No. 3038)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 2, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, EARLY IN THE YEAR 1865.
+# Sermon 3038 | Justice Vindicated And Righteousness Exemplified
 
 "Being justified freely by His Grace through the redemption that is in Christ Jesus; whom God has set forth to be a propitiation through faith in His blood, to declare His righteousness for the remission of sins that are past, through the forbearance of God; to declare, I say, at this time His righteousness: that He might be just, and the justifer of him who believes in Jesus." Romans 3:24-26.
 

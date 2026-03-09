@@ -1,12 +1,4 @@
-# Hands Full of Honey
-
-(No. 1703)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 28, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1703 | Hands Full of Honey
 
 "And Samson turned aside to see the carcass of the lion: and, behold, there was a swarm of bees and honey in the carcass of the lion. And he took some in his hands, and went on eating, and came to his father and mother, and he gave some to them, and they did eat: but he did not tell them that he had taken the honey out of the carcass of the Lion." Judges 14:8,9.
 

@@ -1,12 +1,4 @@
-# The Dream of Pilate's Wife
-
-(No. 1647)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 26, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1647 | The Dream of Pilate's Wife
 
 "When he was set down on the judgment seat, his wife sent unto him, saying, Have you nothing to do with thatjust Man: for I have suffered many things this day in a dream because of Him." Matthew 27:19.
 

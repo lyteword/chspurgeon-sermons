@@ -1,12 +1,4 @@
-# Honey From A Lion
-
-(No. 1591)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 3, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1591 | Honey From A Lion
 
 "But the free gift is not like the offense For if through the offense of one, many are dead, much more the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many." Romans 5:15.
 

@@ -1,6 +1,4 @@
-# The Standard Uplifted In The Face Of The Foe
-
-Sermon No. 718 - Delivered on Sunday Evening, October 28th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 718 | The Standard Uplifted In The Face Of The Foe
 
 > "When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him."  
 > Isaiah 59:19.  

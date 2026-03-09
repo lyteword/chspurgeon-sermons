@@ -1,6 +1,4 @@
-# Heavenly Worship
-
-Sermon No. 110 - Delivered on Sabbath Morning, December 28th, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 110 | Heavenly Worship
 
 > And I looked, and, lo, a Lamb stood on the Mount Sion, and with him an hundred forty and four thousand, having his Father's name written in their foreheads. And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and I heard the voice of harpers harping with their harps; And they sung as it were a new song before the throne, and before the four beasts, and the elders; and no man could learn that song but the hundred and forty and four thousand, which were redeemed from the earth.    
 > Revelation 14:1-3.    

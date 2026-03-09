@@ -1,6 +1,4 @@
-# Christ Triumphant
-
-Sermon No. 273 - Delivered on Sabbath Morning, September 4th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 273 | Christ Triumphant
 
 > And having spoiled principalities and powers, he made a shew of them openly, triumphing over them in it.    
 > Colossians 2:15.    

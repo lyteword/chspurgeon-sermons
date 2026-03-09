@@ -1,12 +1,4 @@
-# The Hope Laid Up In Heaven
-
-(No. 1438)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 13, 1878,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1438 | The Hope Laid Up In Heaven
 
 "For the hope which is laid up for you in Heaven, of which you heard before in the Word of the Truth of the Gospel." Colossians 1:5.
 

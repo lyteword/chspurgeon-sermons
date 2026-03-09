@@ -1,12 +1,4 @@
-# A Message to the Glad and the Sad
-
-(No. 2546)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 5, 1897,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 17, 1884.
+# Sermon 2546 | A Message to the Glad and the Sad
 
 "When men are cast down, then you shall say, there is lifting up; and He shall save the humble person." Job 22:29.
 

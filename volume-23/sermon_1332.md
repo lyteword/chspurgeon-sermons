@@ -1,12 +1,4 @@
-# Our Urgent Need of the Holy Spirit
-
-(No. 1332)
-
-DELIVERED ON LORD'S DAY MORNING, JANUARY 7, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1332 | Our Urgent Need of the Holy Spirit
 
 "Through the po wer of the Holy Spirit." Romans 15:13.
 

@@ -1,6 +1,4 @@
-# Joseph Attacked by the Archers
-
-Sermon No. 17 - Delivered on Sunday Morning, April 1, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand
+# Sermon 17 | Joseph Attacked by the Archers
 
 > The archers have sorely grieved him, and shot at him, and hated him; but his bow abode in strength; and the arms of his hands were made strong by the hands of the mighty God of Jacob; from thence is the shepherd, the stone of Israel.    
 > Genesis 49:23,24.    

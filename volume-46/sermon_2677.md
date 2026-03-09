@@ -1,12 +1,4 @@
-# Spiritual Religion
-
-(No. 2677)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 3, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1858.
+# Sermon 2677 | Spiritual Religion
 
 "It is the spirit that quickens; the flesh profits nothing." John 6:63.
 

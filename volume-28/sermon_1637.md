@@ -1,8 +1,4 @@
-# The Beginning of Months
-
-(No. 1637)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 1, 1882.
+# Sermon 1637 | The Beginning of Months
 
 "And the Lord spoke unto Moses and Aaron in the land of Egypt, saying, this month shall be unto you the beginning of months: it shall be the first month of the year to you." Exodus 12:1,2.
 

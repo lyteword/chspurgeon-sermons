@@ -1,6 +1,4 @@
-# Men Chosen&mdash;Fallen Angels Rejected
-
-Sermon No. 90 - Delivered on Sabbath Evening, June 29, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 90 | Men Chosen&mdash;Fallen Angels Rejected
 
 > Verily he took not on him the nature of angels; but he took on him the seed of Abraham.    
 > Hebrews 2:16.    

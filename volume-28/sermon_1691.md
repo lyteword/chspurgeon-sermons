@@ -1,12 +1,4 @@
-# Christ's Word with You
-
-(No. 1691)
-
-DELIVERED ON LORD'S-DAY EVENING JUNE 12 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 1691 | Christ's Word with You
 
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 

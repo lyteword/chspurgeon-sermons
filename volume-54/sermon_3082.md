@@ -1,12 +1,4 @@
-# "Here I Am!"
-
-(No. 3082)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 5, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 19, 1874.
+# Sermon 3082 | "Here I Am!"
 
 "The LORD called Samuel, and he answered, Here I am!" 1 Samuel 3:4.
 

@@ -1,12 +1,4 @@
-# The Judgment Seat Of God
-
-(No. 1601)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 29, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1601 | The Judgment Seat Of God
 
 "But why do you judge your brother? Or why do you set at nothing your brother? For we shall all stand before the Judgment Seat of Christ. For it is written, As I live, says the Lord, every knee shall bow to Me, and every tongue shall confess to God. So then every one of us shall give account of himself to God." Romans 14:10-12.
 

@@ -1,12 +1,4 @@
-# A Very Early Bible Society
-
-(No. 3303)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 23, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 14, 1885.
+# Sermon 3303 | A Very Early Bible Society
 
 "And Hilkiah answered and said to Shaphan the scribe, I have found the Book of the Law in the house of the LORRD. And Hilkiah delivered the book to Shaphan... Then Shaphan the scribe told the king, saying, Hilkiah the priest has given me a book. And Shaphan read it before the king. And it came to pass, when the king had heard the words of the Law, that he tore his clothes." 2 Chronicles 34:15,18,19.
 

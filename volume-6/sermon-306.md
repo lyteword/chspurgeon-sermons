@@ -1,6 +1,4 @@
-# Resurgam
-
-Sermon No. 306 - Delivered on Sabbath Morning, April 1st, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 306 | Resurgam
 
 > But some man will say, How are the dead raised up? and with what body do they come; Thou fool, that which thou sowest is not quickened, except it die: and that which thou sowest, thou sowest not that body that shall be but bare grain, it may chance of wheat or of some other grain but God giveth it a body as it hath pleased him, and to every seed his own body.    
 > 1 Corinthians 15:35-38.    

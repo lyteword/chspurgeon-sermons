@@ -1,12 +1,4 @@
-# Hold Fast Your Shield
-
-(No. 1263)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1263 | Hold Fast Your Shield
 
 "Cast not away, therefore, your confidence, which has great recompense of reward." Hebrews 10:35.
 

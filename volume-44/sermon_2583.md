@@ -1,12 +1,4 @@
-# Rain and Grace--a Parallel
-
-(No. 2583)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 14, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 5, 1883.
+# Sermon 2583 | Rain and Grace--a Parallel
 
 "Who has divided a channel for the overflowing water, or a path for the thunderbolt, to cause it to rain on the earth, where there is no one; on the wilderness, wherein there is no man; to satisfy the desolate and waste ground; and to cause the bud of the tender herb to spring forth?" Job 38:25-27.
 

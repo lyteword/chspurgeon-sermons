@@ -1,6 +1,4 @@
-# Personal Service
-
-Sermon No. 312 - Delivered on Thursday Evening, May 3rd, 1860, by the REV. C.H. SPURGEON at Surrey Chapel, Blackfriar's Road,.
+# Sermon 312 | Personal Service
 
 ON BEHALF OF THE RELIGIOUS TRACT SOCIETY.
 

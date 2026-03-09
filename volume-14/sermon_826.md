@@ -1,8 +1,4 @@
-# Christ, the Glory of His People
-
-A Sermon (No. 826)
-
-Delivered on Lord's Day Evening, March 22, 1868, by C. H. SPURGEON, at the [36]Metropolitan Tabernacle, Newington.
+# Sermon 826 | Christ, the Glory of His People
 
 "A light to lighten the Gentiles, and the Glory of Your people Israel." Luke 2:32.
 

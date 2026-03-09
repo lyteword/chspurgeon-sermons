@@ -1,9 +1,4 @@
-# Public Meeting Of The Various Denominations
-
-Sermon No. 377 - Delivered on Wednesday Evening, April 3rd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-
-> ""  
-> e.  
+# Sermon 377 | Public Meeting Of The Various Denominations
 
 FOR THE PURPOSE OF HEARING ADDRESSES ON CHRISTIAN UNITY.
 

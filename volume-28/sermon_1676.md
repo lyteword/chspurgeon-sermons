@@ -1,12 +1,4 @@
-# Despair Denounced and Grace Glorified
-
-(No. 1676)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 27, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1676 | Despair Denounced and Grace Glorified
 
 "Then He said unto me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried, and our hope is lost: we are cut off for our parts. Therefore prophesy and say unto them, Thus says the Lord God, Behold, O My people, I will open your graves, and cause you to come up out of your graves, and bring you into the land of Israel. And you shall know that I am the Lord, when I have opened your graves, O My people, and brought you up out of your graves." Ezekiel 37:11,12,13.
 

@@ -1,12 +1,4 @@
-# Pictures of Life
-
-(No. 3126)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 7, 1909.
-
-DELIVERED BY C. H. SPURGEON
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON MONDAY EVENING, JUNE 18, 1855.
+# Sermon 3126 | Pictures of Life
 
 "What is your life?" James 4:14.
 

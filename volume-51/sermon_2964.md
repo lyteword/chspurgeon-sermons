@@ -1,12 +1,4 @@
-# "Trust in the Living God"
-
-(No. 2964)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 5, 1875.
+# Sermon 2964 | "Trust in the Living God"
 
 "We trust in the living God." 1 Timothy 4:10.
 

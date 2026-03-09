@@ -1,12 +1,4 @@
-# The Christian's Service and Honor
-
-(No. 2651)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 3, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1857.
+# Sermon 2651 | The Christian's Service and Honor
 
 "If anyone serves Me, him My Father will honor." John 12:26.
 

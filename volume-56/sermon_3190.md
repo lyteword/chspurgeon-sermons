@@ -1,12 +1,4 @@
-# Christ in Gethsemane
-
-(No. 3190)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 24, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 1, 1879.
+# Sermon 3190 | Christ in Gethsemane
 
 "And they came to a place which was named Gethsemane." Mark 14:32.
 

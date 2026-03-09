@@ -1,12 +1,4 @@
-# A Mingled Strain
-
-(No. 1937)
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1937 | A Mingled Strain
 
 "Purge me with hyssop, and I shall be clean: wash me, and I shall be whiter than snow." Psalm 51:7.
 

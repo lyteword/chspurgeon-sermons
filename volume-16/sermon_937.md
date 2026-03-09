@@ -1,12 +1,4 @@
-# The Profit Of Godliness In This Life
-
-(No. 937)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 19, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 937 | The Profit Of Godliness In This Life
 
 "Bodily exercise profits little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come. This is a faithful saying and worthy of all acceptation." 1 Timothy 4:8,9.
 

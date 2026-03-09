@@ -1,12 +1,4 @@
-# Asleep and Yet Awake--a Riddle
-
-(No. 1561)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 10, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1561 | Asleep and Yet Awake--a Riddle
 
 "I sleep, but my heart is awake: it is the voice of my Beloved that knocks." Song of Solomon 5:2.
 

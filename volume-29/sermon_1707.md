@@ -1,12 +1,4 @@
-# "Herein Is Love"
-
-(No. 1707)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 18, 1883,
-
-BY C, H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1707 | "Herein Is Love"
 
 "Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins. Beloved, if God so loved us, we ought, also, to love one another." 1 John 4:10,11.
 

@@ -1,12 +1,4 @@
-# Romans, But Not romanists
-
-(No. 1113)
-
-DELIVERED BY
-
-H. SPURGEON, [PROBABLY NEAR FIRST OF YEAR, 1873]
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1113 | Romans, But Not romanists
 
 "I commend unto you Phebe our sister, which is a servant of the Church which is at Cenchrea: that you receive her in the Lord, as becomes saints, and that you assist her in whatever business she has need of you: for she has been a succorer of many, and of myself also. Greet Priscilla and Aquila my helpers in Christ Jesus: who have for my life laid down their own necks: unto whom not only I give thanks, but also all the Churches of the Gentiles. Likewise greet the Church that is in their house. Salute my well-beloved Epaenetus, who is the first fruits of Achaia unto Christ. Greet Mary, who bestowed much labor on us. Salute Andronicus and Junia, my kinsmen, and my fellow prisoners, who are of note among the Apostles who also were in Christ before me. Greet Amplias my beloved in the Lord. Salute Urbane, our helper in Christ, and Stachys my beloved. Salute Apelles approved in Christ. Salute them which are of Aristobulus 'household. Salute Herodion my kinsman. Greet them that are of the household of Narcissus, which are in the Lord. Salute Tryphena and Tryphosa, who labor in the Lord. Salute the beloved Persis, which labored much in the Lord. Salute Rufus chosen in the Lord, and his mother and mine. Salute Asyncritus, Phlegon, Hermas, Patrobas, Hermes and the brethren which are with them. Salute Philologus, and Julia, Nereus, and his sister, and Olympas, and all the saints which are with them. Salute one another with an holy kiss. The Churches of Christ salute you." Romans 16:1-16.
 

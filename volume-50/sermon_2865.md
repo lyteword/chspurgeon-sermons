@@ -1,12 +1,4 @@
-# Fencing the Table
-
-(No. 2865)
-
-A SERMON PUBLISHED ON THURSDAY JANUARY 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 2, 1876.
+# Sermon 2865 | Fencing the Table
 
 "But let a main examine himself, and so let him eat of the bread, and drink of the cup." 1 Corinthians 11:28.
 

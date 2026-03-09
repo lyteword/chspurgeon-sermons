@@ -1,6 +1,4 @@
-# Experience and Assurance
-
-Sermon No. 2166 - Delivered on Sunday Morning, September 28th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2166 | Experience and Assurance
 
 > "Because You have been my help, therefore in the shadow of Your wings will I rejoice."  
 > Psalm 63:7.  

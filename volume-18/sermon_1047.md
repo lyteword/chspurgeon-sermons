@@ -1,12 +1,4 @@
-# The Triumph Of Christianity
-
-(No. 1047)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 21, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1047 | The Triumph Of Christianity
 
 "All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before You." Psalm 22:27.
 

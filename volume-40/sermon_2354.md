@@ -1,12 +1,4 @@
-# Scarlet Sinners Pardoned and Purified
-
-(No. 2354)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 1, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 29, 1888,
+# Sermon 2354 | Scarlet Sinners Pardoned and Purified
 
 "Come, now, and let us reason together, says the LORD: though your sins are as scarlet, they shallbe as white as snow; though they are redlike crimson, theyshallbe as wool." Isaiah 1:18.
 

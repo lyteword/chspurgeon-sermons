@@ -1,12 +1,4 @@
-# With or Without Shedding of Blood
-
-(No. 2951)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 30, 1875.
+# Sermon 2951 | With or Without Shedding of Blood
 
 "Without shedding of blood is no remission." Hebrews 9:22.
 

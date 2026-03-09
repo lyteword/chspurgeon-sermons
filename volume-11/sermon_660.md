@@ -1,6 +1,4 @@
-# Light--Natural And Spiritual
-
-Sermon No. 660 - Delivered on Sunday Morning, November 12th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 660 | Light--Natural And Spiritual
 
 > In the beginning God created the heavens and the earth. And the earth was without form, and void. And darkness was upon the face of the deep. And the Spirit of God moved upon the face of the waters. And God said, Let there be light and there was light And God saw the light, that it was good: and God divided the light from the darkness. And God called the light Day and the darkness He called Night. And the evening and the morning were the first day.    
 > Genesis 1:1-5.    

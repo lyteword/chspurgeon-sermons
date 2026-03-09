@@ -1,12 +1,4 @@
-# A Procession of Cross-bearers
-
-(No. 2946)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 27, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 2, 1875.
+# Sermon 2946 | A Procession of Cross-bearers
 
 "Take up the cross, and follow Me." Mark 10:21.
 

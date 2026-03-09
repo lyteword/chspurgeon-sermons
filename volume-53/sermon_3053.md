@@ -1,12 +1,4 @@
-# Jesus Christ's Idiom
-
-(No. 3053)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 15, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 19, 1873.
+# Sermon 3053 | Jesus Christ's Idiom
 
 "Jesusanswered, Verily, verily." John 3:5.
 

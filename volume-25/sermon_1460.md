@@ -1,12 +1,4 @@
-# The Meat and Drink of the New Nature
-
-(No. 1460)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1460 | The Meat and Drink of the New Nature
 
 "For My flesh is meat, indeed, and My blood is drink, indeed." John 6:55.
 

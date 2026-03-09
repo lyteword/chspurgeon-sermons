@@ -1,12 +1,4 @@
-# Watching to See
-
-(No. 2622)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 14, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 26, 1882.
+# Sermon 2622 | Watching to See
 
 "I will stand my watch, and set myself on the tower, and will watch to see what He will say unto me, and what I shall answer when I am reproved. And the LORD answered me, and said, Write the vision, and make it plain on tablets, that he may run that reads it For the vision is yet for an appointed time, but at the end it shall speak, and not lie: though it tarry, wait for it; because it will surely come, it will not tarry. Behold, his soul which is lifted up is not upright in him: but the just shall live by his faith." Habakkuk 2:1-4.
 

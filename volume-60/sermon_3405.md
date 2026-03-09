@@ -1,12 +1,4 @@
-# Confession of Christ
-
-(No. 3405)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 7, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 21, 1868.
+# Sermon 3405 | Confession of Christ
 
 "Whoever, therefore, shall confess Me before men, him will I confess before My Father who is Heaven. But whoever shall deny Me before men, him will I also deny before My Father who is in Heaven." Matthew 10:32,33.
 

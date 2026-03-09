@@ -1,12 +1,4 @@
-# Singing Saints
-
-(No. 2489)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 1, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 3, 1886.
+# Sermon 2489 | Singing Saints
 
 "Sing to the LORD, O you saints of His, and give thanks at the remembrance of His holiness." Psalm 30:4.
 

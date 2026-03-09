@@ -1,12 +1,4 @@
-# Paul's Doxology
-
-(No. 1266)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1266 | Paul's Doxology
 
 "Now unto Him that is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us, unto Him be glory in the Church by Christ Jesus throughout all ages, world without end. Amen." Ephesians 3:20,21.
 

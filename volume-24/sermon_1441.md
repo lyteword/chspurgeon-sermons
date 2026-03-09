@@ -1,12 +1,4 @@
-# The Prosperous Man's Reminder
-
-(No. 1441)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 27, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1441 | The Prosperous Man's Reminder
 
 "I knew you in the wilderness, in the land of great drought. According to their pasture, so were they filled; they were filled, and their heart was exalted; therefore have they forgotten Me. Therefore I wiil be unto them as a lion: as a leopard by the way will I observe them: I will meet them as a bear that is bereaved of her whelps, and will rend the cage of their heart, and there will I devour them like a lion: the wild beast shall tear them." Hosea 13:5-8.
 

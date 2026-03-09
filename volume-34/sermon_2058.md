@@ -1,6 +1,4 @@
-# Eyes Right
-
-Sermon No. 2058 - Delivered on Thursday Evening, July 14th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2058 | Eyes Right
 
 > "Let your eyes look right on and let your eyelids look straight before you."  
 > Proverbs 4:25.  

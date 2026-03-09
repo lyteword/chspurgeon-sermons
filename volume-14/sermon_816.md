@@ -1,8 +1,4 @@
-# The Wall Daubed with Untempered Mortar
-
-A Sermon (No. 816)
-
-Delivered on Lord's-Day Evening, May 31, 1868, by C. H. SPURGEON, at the [26]Metropolitan Tabernacle, Newington.
+# Sermon 816 | The Wall Daubed with Untempered Mortar
 
 "Because, even because, they have seduced My people, saying, Peace; and there was no peace; and one built up a wall, and, lo, others daubed it with untempered mortar: say unto them which daub it with untempered mortar, that it shall fall: there shall be an overflowing shower; and you, O great hailstones, shall fall; and a stormy wind shall rend it. Lo, when the wall is fallen, shall it not be said unto you, Where is the daubing with which you have daubed it?" Ezekiel 13:10-12.
 

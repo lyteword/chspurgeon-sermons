@@ -1,7 +1,4 @@
-# In the Hay Field
-
-Sermon No. 757 - Delivered on Lord's-day Morning, JUNE 23, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 757 | In the Hay Field
 
 "He causes the grass to grow for the cattle."- Psalm 104:14.
 

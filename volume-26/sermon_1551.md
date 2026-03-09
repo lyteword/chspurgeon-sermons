@@ -1,12 +1,4 @@
-# Today! Today! Today!
-
-(No. 1551)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1551 | Today! Today! Today!
 
 "Today if you will hear His voice, harden not your heart." Psalm 95:7,8.
 

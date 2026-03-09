@@ -1,12 +1,4 @@
-# The Spirit's Work in the New Creation
-
-(No. 3134)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 4, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY23, 1873.
+# Sermon 3134 | The Spirit's Work in the New Creation
 
 "And the earth was without form, and void; and darkness was upon the face of the deep. And the Spirit of God moved upon the face of the waters." Genesis 1:2.
 

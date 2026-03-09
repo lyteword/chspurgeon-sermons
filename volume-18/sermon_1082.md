@@ -1,12 +1,4 @@
-# The Life, Walk and Triumph of Faith
-
-(No. 1082)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1082 | The Life, Walk and Triumph of Faith
 
 "And when Abram was ninety-nine years old, the LORD appeared to Abram, and said unto him, I am the Almighty God; walk before Me, and be you perfect. And I will make My covenant between Me and you, and will multiply you exceedingly." Genesis 17:1,2.
 

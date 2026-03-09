@@ -1,6 +1,4 @@
-# A Summary of Experience and a Body of Divinity
-
-Sermon No. 1806 - Delivered on Lord's-Day Morning, October 26th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1806 | A Summary of Experience and a Body of Divinity
 
 For they themselves show of us what manner of entering in we had unto you, and how ye turned to God from idols to serve the living and true God; and to wait for his Son from heaven, whom he raised from the dead, even Jesus, which delivered us from the wrath to come.'1 Thessalonians 1:9-10.
 

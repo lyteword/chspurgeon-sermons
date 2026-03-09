@@ -1,12 +1,4 @@
-# "What Shall the Harvest Be?"
-
-(No. 2632)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 23, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 14, 1882.
+# Sermon 2632 | "What Shall the Harvest Be?"
 
 "For they have sown the wind, and they shall reap the whirlwind: it has no stalk: the bud shall yield no meal: if it should produce, strangers shall swallow it up." Hosea 8:7.
 

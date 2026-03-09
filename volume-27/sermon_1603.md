@@ -1,12 +1,4 @@
-# What the Farm Laborers Can Do and What They Cannot Do
-
-(No. 1603)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 12, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1603 | What the Farm Laborers Can Do and What They Cannot Do
 
 "And He said, The kingdom of God is as if a man should cast seed into the ground and should sleep and rise night and day and the seed should spring and grow up, he kno ws not how. For the earth brings forth fruit of herself; first the blade, then the ear, after that the full corn in the ear. But when the fruit is brought forth, immediately he puts in the sickle, because the harvest is come." Mark 4:26-29.
 

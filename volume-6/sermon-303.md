@@ -1,6 +1,4 @@
-# Election and Holiness
-
-Sermon No. 303 - Delivered on Sabbath Morning, March 11th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 303 | Election and Holiness
 
 > Behold, the heaven and the heaven of heavens is the Lord's thy God, the earth also, with all that therein is. Only the Lord had a delight in thy fathers to love them, and he chose their seed after them, even you above all people, as it is this day. Circumcise therefore the foreskin of your heart, and be no more stiffnecked.    
 > Deuteronomy 10:14-16.    

@@ -1,12 +1,4 @@
-# Our Own Dear Shepherd
-
-(No. 1877)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 20, 1885.
+# Sermon 1877 | Our Own Dear Shepherd
 
 "I am the good Shepherd, and know My sheep, and am known of Mine. As the Father knows Me, even so know I the Father: and I lay down My life for the sheep." John 10:14,15.
 

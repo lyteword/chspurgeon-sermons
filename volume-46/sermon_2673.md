@@ -1,12 +1,4 @@
-# Christ Crucified
-
-(No. 2673)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 6, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1858.
+# Sermon 2673 | Christ Crucified
 
 "For I determined not to know anything among you except Jesus Christ and Him crucified." 1 Corinthians 2:2.
 

@@ -1,12 +1,4 @@
-# Dressing In The Morning
-
-(No. 1614)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 21, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1614 | Dressing In The Morning
 
 "And that, kno wing the time, that now it is high time to awake out of sleep: for now is our salvation nearer than when we first believed. The nightis far spent, the day is athand: let us therefore cast off the works of darkness, and let us put on the armor of light. Let us walk honestly, as in the day; not in rioting and drunkenness, not in chambering and wantonness, not in strife and envying. But put you on the Lord Jesus Christ, and make not provision for the flesh, to fulfill the lusts thereof." Romans 13:11-14.
 

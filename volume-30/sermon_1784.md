@@ -1,12 +1,4 @@
-# Unbelief Condemned and Faith Commended
-
-(No. 1784)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1784 | Unbelief Condemned and Faith Commended
 
 "They are a very froward generation, children in whom is no faith." Deuteronomy 32:20.
 

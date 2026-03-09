@@ -1,12 +1,4 @@
-# Araunah's Threshing Floor
-
-(No. 3477)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 23, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3477 | Araunah's Threshing Floor
 
 "This is the house of the Lord God, and this is the altar of the burnt offering for Israel." 1 Chronicles 22:1.
 

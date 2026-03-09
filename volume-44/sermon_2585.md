@@ -1,12 +1,4 @@
-# Spiritual Glean1ng
-
-(No. 2585)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 28, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON AN AUTUMN EVENING, IN THE YEAR 1856.
+# Sermon 2585 | Spiritual Glean1ng
 
 "Let her gleam even among the sheaves, and reproach her not." Ruth 2:15.
 

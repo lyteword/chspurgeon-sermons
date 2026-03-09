@@ -1,12 +1,4 @@
-# The Believer Catechized
-
-(No. 1568)
-
-DELIVERED ON SUNDAY MORNING, NOVEMBER 21, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1568 | The Believer Catechized
 
 "Do you believe this?" John 11:26.
 

@@ -1,12 +1,4 @@
-# Farm Laborers
-
-(No. 1602)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 5, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1602 | Farm Laborers
 
 "I have planted, Apollos watered, but God gave the increase. So then neither he who plants is anything, neither he who waters, but God that gives the increase. Now he whoplants andhe who waters are one: and every man shallreceive his own reward according to his own labor. For we are laborers together with God: you are God's husbandry." 1 Corinthians 3:6-9.
 

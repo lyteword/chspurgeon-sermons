@@ -1,12 +1,4 @@
-# The Queen of Sheba, a Sign
-
-(No. 2777)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 4, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 28, 1878.
+# Sermon 2777 | The Queen of Sheba, a Sign
 
 "The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon is here." Matthew 12:42.
 

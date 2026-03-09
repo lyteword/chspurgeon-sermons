@@ -1,12 +1,4 @@
-# Discipline in Christ's Army
-
-(No. 3188)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 10, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 13, 1879.
+# Sermon 3188 | Discipline in Christ's Army
 
 "Pass through the host, and command the people." Joshua 1:11.
 

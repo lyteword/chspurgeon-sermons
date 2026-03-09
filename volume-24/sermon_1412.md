@@ -1,12 +1,4 @@
-# Where True Prayer is Found
-
-(No. 1412)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 5, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1412 | Where True Prayer is Found
 
 "Therefore has Your servant found in his heart to pray this prayer to You." 2 Samuel 7:27.
 

@@ -1,6 +1,4 @@
-# A Cure For Care
-
-Sermon No. 428 - Delivered on Sunday Morning, January 12th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 428 | A Cure For Care
 
 > "Casting all your care upon Him. For He cares for you."  
 > 1 Peter 5:7.   

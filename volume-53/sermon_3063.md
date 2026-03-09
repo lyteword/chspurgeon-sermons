@@ -1,12 +1,4 @@
-# Jotham's Peculiar Honor
-
-(No. 3063)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 24, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 28, 1873.
+# Sermon 3063 | Jotham's Peculiar Honor
 
 "So Jotham became mighty, because he prepared his ways before the Lord his God." 2 Chronicles 27:6.
 

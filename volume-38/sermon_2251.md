@@ -1,12 +1,4 @@
-# Our Compassionate High Priest
-
-(No. 2251)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 10, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 3, 1890.
+# Sermon 2251 | Our Compassionate High Priest
 
 "We can have compassion on the ignorant, and on them that are out of the way; for he, himself is also compassed with infirmity." Hebrews 5:2.
 

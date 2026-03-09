@@ -1,12 +1,4 @@
-# God's Goodness Leading to Repentance
-
-(No. 2857)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 18, 1877.
+# Sermon 2857 | God's Goodness Leading to Repentance
 
 "The goodness of God leads you to repentance." Romans 2:4.
 

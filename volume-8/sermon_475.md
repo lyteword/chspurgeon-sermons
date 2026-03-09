@@ -1,6 +1,4 @@
-# Self-Delusion
-
-Sermon No. 475 - Delivered on Sunday Morning, October 19th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 475 | Self-Delusion
 
 > "Many, I say unto you, will seek to enter in and shall not be able."  
 > Luke 13:24.  

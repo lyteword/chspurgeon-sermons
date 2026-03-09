@@ -1,12 +1,4 @@
-# "By All Means, Save Some"
-
-(No. 1170)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 26, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1170 | "By All Means, Save Some"
 
 "That I might, by all means, save some." 1 Corinthians 9:22.
 

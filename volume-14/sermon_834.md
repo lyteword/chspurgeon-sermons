@@ -1,8 +1,4 @@
-# The Universal Remedy
-
-A Sermon (No. 834)
-
-Delivered on Lord's-Day Morning, October 4, 1868, by C. H. SPURGEON, at the [43]Metropolitan Tabernacle, Newington.
+# Sermon 834 | The Universal Remedy
 
 "With His stripes we are healed." Isaiah 53:5.
 

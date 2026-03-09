@@ -1,12 +1,4 @@
-# A Discourse to the Despairing
-
-(No. 2379)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 23, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 15, 1888.
+# Sermon 2379 | A Discourse to the Despairing
 
 "Now when Jacob saw that there was corn in Egypt, Jacob said to his sons, Why do you look, one upon another? And he said, Behold, I have heard that there is corn in Egypt: get down there, and buy for us there; that we may live, and not die." Genesis 42:1,2.
 

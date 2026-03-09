@@ -1,6 +1,4 @@
-# The Tabernacle of the Most High
-
-Sermon No. 267 - Delivered on Sabbath Morning, August 14th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 267 | The Tabernacle of the Most High
 
 > In whom ye also are builded together for an habitation of God through the Spirit.    
 > Ephesians 2:22.    

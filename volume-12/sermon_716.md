@@ -1,6 +1,4 @@
-# The Church Awakened
-
-Sermon No. 716 - Delivered on Sunday Evening, October 7th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 716 | The Church Awakened
 
 > "Therefore He says: Awake, you who sleep, Arise from the dead, And Christ will give you light.'"  
 > Ephesians 5:14.  

@@ -1,6 +1,4 @@
-# Cheer Up, My Comrades!
-
-Sermon No. 1513 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1513 | Cheer Up, My Comrades!
 
 And Josiah set the priests in their charges, and encouraged them to the service of the house of the Lord'2 Chronicles 35:2.
 

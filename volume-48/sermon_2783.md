@@ -1,12 +1,4 @@
-# A Worthy Theme for Thought
-
-(No. 2783)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 15, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 5, 1878.
+# Sermon 2783 | A Worthy Theme for Thought
 
 "We have thought of Your loving kindness, O God, in the midst of Your Temple." Psalm 48:9.
 

@@ -1,12 +1,4 @@
-# Peter's Blunder--a Lesson for Ourselves
-
-(No. 1823)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 22, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON JULY 3, 1884.
+# Sermon 1823 | Peter's Blunder--a Lesson for Ourselves
 
 "But Peter said, Not so, Lord; for I have never eaten anything that is common or unclean." Acts 10:14.
 

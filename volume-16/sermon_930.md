@@ -1,12 +1,4 @@
-# Away With Fear
-
-(No. 930)
-
-DELIVERED ON LORD'S-DAY EVENING, APRIL 10, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 930 | Away With Fear
 
 "Fear you not. For I am with you; be not dismayed; for I am your God: I will strengthen you; yes, I will help you; yes, I will uphold you with the right hand of My righteousness." Isaiah 41:10.
 

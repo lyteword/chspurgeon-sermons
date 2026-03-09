@@ -1,12 +1,4 @@
-# The Best Christmas Fare
-
-(No. 2340)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 24, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE EVENING OF CHRISTMAS DAY, 1881.
+# Sermon 2340 | The Best Christmas Fare
 
 "How sweet are Your Words unto my taste! Yes, sweeter than honey to my mouth!" Psalm 119:103.
 

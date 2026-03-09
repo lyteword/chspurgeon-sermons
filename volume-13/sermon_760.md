@@ -1,7 +1,4 @@
-# The Sweet Harp of Consolation
-
-Sermon No. 760 - Delivered on Lord's-day Morning, JULY 14, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 760 | The Sweet Harp of Consolation
 
 "Fear not, for I am with you."- Isaiah 41:10.
 

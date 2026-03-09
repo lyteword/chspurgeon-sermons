@@ -1,12 +1,4 @@
-# A Singular Plea in Prayer
-
-(No. 2535)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 19, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1884.
+# Sermon 2535 | A Singular Plea in Prayer
 
 "Isaid, LORRD, be merciful unto me: heal my soul; for I have sinned against You." Psalm 41:4.
 

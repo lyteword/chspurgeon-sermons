@@ -1,12 +1,4 @@
-# The Plumb Line
-
-(No. 2904)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 6, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 27, 1876.
+# Sermon 2904 | The Plumb Line
 
 "Thus He showed me: and, behold, the Lordstood upon a wall made by a plumb line, with a plumb line in His hand. And the LORD said unto me, Amos, what do you see? And I said, A plumb line. Then said the Lord, Behold, I will set a plumb line in the midst of My people Israel: I will not again pass by them anymore." Amos 7:7, 8.
 

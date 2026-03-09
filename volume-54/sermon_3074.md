@@ -1,12 +1,4 @@
-# Danger. Safety. Gratitude.
-
-(No. 3074)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 9, 1908,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 8, 1874.
+# Sermon 3074 | Danger. Safety. Gratitude.
 
 "Now unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and ever. Amen." Jude 1:24,25.
 

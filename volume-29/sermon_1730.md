@@ -1,12 +1,4 @@
-# A Cure For Unsavory Meats--or, Salt for the White of an Egg
-
-(No. 1730)
-
-DELIVERED ON THURSDAY EVENING, JULY 5, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1730 | A Cure For Unsavory Meats--or, Salt for the White of an Egg
 
 "Can that which is unsavory be eaten without salt? Or is there any taste in the white of an egg?" Job 6:6.
 

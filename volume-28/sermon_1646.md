@@ -1,12 +1,4 @@
-# A Home Question and a Right Answer
-
-(No. 1646)
-
-DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1646 | A Home Question and a Right Answer
 
 "From that time many of His disciples went back and walkedno more with Him. Then said Jesus unto the twelve, Will you, also, go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life. And we believe and are sure that You are the Christ, the Son of the living God." John 6:66-69.
 

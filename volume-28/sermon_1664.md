@@ -1,12 +1,4 @@
-# "Jehovah-Rophi"
-
-(No. 1664)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 11, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1664 | "Jehovah-Rophi"
 
 "I am the Lord who heals you." Exodus 15:26.
 

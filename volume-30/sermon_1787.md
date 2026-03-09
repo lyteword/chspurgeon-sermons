@@ -1,12 +1,4 @@
-# Humility, the Friend of Prayer
-
-(No. 1787)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 22, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1787 | Humility, the Friend of Prayer
 
 "I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan; and now I am become two bands." Genesis 32:10.
 

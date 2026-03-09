@@ -1,12 +1,4 @@
-# The Lord Blessing His Saints
-
-(No. 1077)
-
-A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 26, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1077 | The Lord Blessing His Saints
 
 "You are blessed of the Lord [or of JEHOVAH] which made Heaven and earth." Psalm 115:15.
 

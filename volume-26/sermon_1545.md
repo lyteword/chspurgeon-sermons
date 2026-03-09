@@ -1,12 +1,4 @@
-# God Glorified By Children's Mouths
-
-(No. 1545)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 27, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1545 | God Glorified By Children's Mouths
 
 "Out of the mouth of babes and sucklings ha ve You ordained strength because of Your enemies, that You might still the enemy and the Avenger." Psalm 8.2.
 

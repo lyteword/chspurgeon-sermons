@@ -1,12 +1,4 @@
-# Three Blessings of the Heavenly Charter
-
-(No. 2314)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 25, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 16, 1889.
+# Sermon 2314 | Three Blessings of the Heavenly Charter
 
 "You have granted me life and favor, and Your visitation has preserved my spirit." Job 10:12.
 

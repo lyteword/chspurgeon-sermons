@@ -1,12 +1,4 @@
-# The Heart Full and the Mouth Closed
-
-(No. 1289)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1289 | The Heart Full and the Mouth Closed
 
 "And I will establish My Covenant with you; and you shall know that I am the Lord: That you may remember, and be ashamed, and never open your mouth anymore because of your shame, when I am pacified toward you for all that you have done, said the Lord God." Ezekiel 16:62, 63.
 

@@ -1,12 +1,4 @@
-# With the King for His Work!
-
-(No. 1400)
-
-DELIVERED ON THURSDAY EVENING, NOVEMBER 1, 1877,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1400 | With the King for His Work!
 
 "These were the potters, and those that dwelt among plants and hedges: there they dwelt with the king for his work." 1 Chronicles 4:23.
 

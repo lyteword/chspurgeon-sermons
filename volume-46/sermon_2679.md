@@ -1,12 +1,4 @@
-# Christ's Indwelling Word
-
-(No. 2679)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 17, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 10, 1881.
+# Sermon 2679 | Christ's Indwelling Word
 
 "Let the word of Christ dwell in you richly inn all wisdom; teaching and admonishing one another in Psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord." Colossians 3:16.
 

@@ -1,12 +1,4 @@
-# Dei Gratia
-
-(No. 958)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 30, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 958 | Dei Gratia
 
 "To the praise of the glory of His Grace." Ephesians 1:6.
 

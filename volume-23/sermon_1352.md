@@ -1,12 +1,4 @@
-# Strong Consolation for the Lord's Refugees
-
-(No. 1352)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 29, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1352 | Strong Consolation for the Lord's Refugees
 
 "That by two immutable things, in which it was impossible for God to lie, we might ha ve a strong consolation, who have fled for refuge to lay hold upon the hope set before us." Hebrews 6:18.
 

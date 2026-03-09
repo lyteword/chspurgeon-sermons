@@ -1,12 +1,4 @@
-# Two Wilderness Incidents
-
-(No. 3214)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 8, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 30, 1863.
+# Sermon 3214 | Two Wilderness Incidents
 
 "And when king Arad the Canaanite, which dwelt in the south, heard tell that Israel came by the way of the spies; then he fought against Israel, and took some of them prisoners. And Israel voweda vow unto the LORD, and said, If You will indeed deliver this people into my hand, then I will utterly destroy their cities. And the LORD hearkened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities: and He called the name of the place Hormah. And they journeyed from Mount Hor by the way of the Red Sea, to compass the land of Edom; and the soul of the people was much discouraged because of the way. And the people spoke against God, and against Moses, Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, neither is there any water and our soul loathes this light bread. And the LORD sent fiery serpents among the people, and they bit the people; and many people of Israel died." Numbers 21:1-6.
 

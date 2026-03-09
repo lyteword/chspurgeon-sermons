@@ -1,12 +1,4 @@
-# The Blind Befriended
-
-(No. 1310)
-
-A SERMON DELIVERED ON THURSDAY EVENING, MARCH 9, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1310 | The Blind Befriended
 
 "I will bring the blind by a way that they knew not: I will lead them in paths that they have not known; I will make darkness light before them, and crooked things straight. These things will I do unto them, and not forsake them." Isaiah 42:16.
 

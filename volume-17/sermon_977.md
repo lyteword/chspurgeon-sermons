@@ -1,8 +1,4 @@
-# The Master's Profession--The Disciple's Pursuit
-
-Sermon No. 977 - Delivered on Thursday Evening, April 21st, 1870 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-
-In aid of the Baptist Young Men's Missionary Association.
+# Sermon 977 | The Master's Profession--The Disciple's Pursuit
 
 "I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, thou knowest. I have not hid thy righteousness within my heart, I have declared thy faithfulness and thy salvation: I have not concealed thy lovingkindness and thy truth from the great congregation."--Psalm 40:9,10.
 

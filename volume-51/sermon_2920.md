@@ -1,12 +1,4 @@
-# Election--its Defenses and Evidences
-
-(No. 2920)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 26, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
+# Sermon 2920 | Election--its Defenses and Evidences
 
 "Knowing, brethren beloved, your election of God. For our Gospel came not unto you in word only, but also inpower, and in the Holy Spirit, and in much assurance... And you became followers of us, and of the Lord having received the word in much affliction, withjoy of the Holy Spirit." 1 Thessalonians 1:4-6.
 

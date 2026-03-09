@@ -1,12 +1,4 @@
-# Strength And Recovery
-
-(No. 1805)
-
-A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 18, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1805 | Strength And Recovery
 
 "And I will strengthen them in the Lord: and they shall walk up and down in His name, says the Lord." Zechariah 10:12.
 
@@ -76,7 +68,6 @@ But oh, Brothers and Sisters, may not shame come to some of you, to? You have be
 
 This strength shall be Divinely bestowed upon you--it shall come directly from the Holy Spirit. He that made you live at the first, shall make you live more vigorously, for Christ came not only that we might have life, but that we might
 
-have it "more abundantly!" If you need more life, go where you received your first life--to Him of whom we spoke the other Sunday, who says, "I am the resurrection and the life: he that believes in Me, though he were dead, yet shall he live." [See No. 1799, "Though He Were Dead.')
 
 Perhaps that strength will be gradually received. I am an example, tonight, in my physical frame, of what you will experience in your spiritual frame, for I find that I do not recover strength very rapidly. Yet it is so sweet every morning for the hands to do a little that they could not do yesterday, and for the feet to be able to walk a yard or two farther than a few days ago. A little progress is a great gift to one who has long lain on his bed. Some of you may never have felt gratitude to God of the kind that has come to me--I have been thankful for the power to lift my foot from the ground, thankful for being able to turn over in bed--thankful for being able to stand upright, though leaning heavily upon my staff. The Lord is frequently pleased to strengthen His people little by little that they may prize the blessing and be all the more careful to retain it. Yet the Lord can make the weak ones strong in a moment and raise them at once from bed to battle, from lukewarmness to ardor! Wonder not if recovery should be slow--and, as you grow a little stronger, and a little stronger--acknowledge in each increase of strength that the Lord has a new claim on your affection.
 

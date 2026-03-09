@@ -1,12 +1,4 @@
-# Solemn Pleadings for Revival
-
-(No. 1215)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 3, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1215 | Solemn Pleadings for Revival
 
 "Keep silence before Me, O islands; and let the people renew their strength: let them come near; then let them speak: let us come near together tojudgment." Isaiah 41:1.
 

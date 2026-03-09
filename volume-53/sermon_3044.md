@@ -1,12 +1,4 @@
-# Spiritual Transformations
-
-(No. 3044)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 13, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A THURSDAY EVENING IN THE YEAR 1865.
+# Sermon 3044 | Spiritual Transformations
 
 "Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off" Isaiah 4:13.
 

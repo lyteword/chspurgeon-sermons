@@ -1,12 +1,4 @@
-# To The Thoughtless
-
-(No. 1059)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 7, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1059 | To The Thoughtless
 
 "The ox knows his owner, and the donkey his master's crib: but Israel does not know, My people do not consider." Isaiah 1:3.
 

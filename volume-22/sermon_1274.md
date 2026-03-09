@@ -1,7 +1,4 @@
-# For the Sick and Afflicted
-
-Sermon No. 1274 - Delivered on Delivered the REV. C.H. SPURGEON at the [4]Metropolitan Tabernacle, Newington.
-(No. 1274)
+# Sermon 1274 | For the Sick and Afflicted
 
 EVEN WHEN ADDRESSING our fellow-men there should be a fitness about our speech; therefore Solomon represents the preacher as seeking out acceptable words, or words meet for the occasion. When we approach those who are high in authority this necessity becomes conspicuous, and therefore men who are petitioners in the courts of princes are very careful to order their language aright. Much more, then, when we speak before the Lord ought we to consider, as the text does, the meetness of our words. Some language must never be uttered in the divine presence, and even that which is allowed must be well weighed, and set forth with solemn humbleness. Hence Elihu does well to suggest in the text language that is "meet to be said unto God." May our lips ever be kept as by a watchful sentinel, lest they suffer anything to pass through them dishonorable to the Most High. In the divine presence and we are always there it is incumbent upon us to set a double watch over every word that comes from our mouth.
 

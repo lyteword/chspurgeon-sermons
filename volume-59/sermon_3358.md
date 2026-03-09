@@ -1,12 +1,4 @@
-# "Grace and Glory"
-
-(No. 3358)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 12, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 6, 1868.
+# Sermon 3358 | "Grace and Glory"
 
 "The Lord will give Grace and Glory." Psalm 84:11.
 

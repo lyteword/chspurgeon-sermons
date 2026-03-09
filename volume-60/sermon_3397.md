@@ -1,12 +1,4 @@
-# A Timely Expostulation
-
-(No. 3397)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 12, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3397 | A Timely Expostulation
 
 "Why seek you the living among the dead" Luke 24:5.
 

@@ -1,12 +1,4 @@
-# Waking to See Christ's Glory
-
-(No. 2658)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 21, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 3, 1882.
+# Sermon 2658 | Waking to See Christ's Glory
 
 "And when they were awake, they saw His glory and the two men that stood with Him." Luke 9:32.
 

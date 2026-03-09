@@ -1,12 +1,4 @@
-# The Use of the Bow
-
-(No. 1694)
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1694 | The Use of the Bow
 
 "And David lamented with this lamentation over Saul and over Jonathan his son: (Also he bade them teach the children of Judah the use of the bow: behold, it is written in the book of Jasher)." 2 Samuel 1:17,18
 

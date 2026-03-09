@@ -1,12 +1,4 @@
-# Joy in God
-
-(No. 2550)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 2, 1898.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 2, 1884.
+# Sermon 2550 | Joy in God
 
 "And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the atonement" (or, as it should be, "the reconciliation"). Romans 5:11.
 

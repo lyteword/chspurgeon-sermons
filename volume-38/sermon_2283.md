@@ -1,12 +1,4 @@
-# Christ's One Sacrifice for Sin
-
-(No. 2283)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 20, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING JUNE 29, 1890.
+# Sermon 2283 | Christ's One Sacrifice for Sin
 
 "Now once in the end of the world has He appeared to put a way sin by the Sacrifice of Himself." Hebrews 9:26.
 

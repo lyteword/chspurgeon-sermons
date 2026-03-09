@@ -1,12 +1,4 @@
-# Eternal Faithfulness Unaffected By Human Unbelief
-
-(No. 1453)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1453 | Eternal Faithfulness Unaffected By Human Unbelief
 
 "If we believe not, yet He abides faithful: He cannot deny Himself." 2 Timothy 2:13.
 

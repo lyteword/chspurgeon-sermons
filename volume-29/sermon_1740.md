@@ -1,12 +1,4 @@
-# The Exeter-Hall Sermon to Young Men
-
-(No. 1740)
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1740 | The Exeter-Hall Sermon to Young Men
 
 "O Lord, truly I am Your servant; I am Your servant, and the son of Your handmaid; You have loosed my bonds." Psalm 116:16.
 

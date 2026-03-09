@@ -1,12 +1,4 @@
-# The Man Whose Hand Stuck to His Sword
-
-(No. 3193)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 14, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3193 | The Man Whose Hand Stuck to His Sword
 
 "And after him was Eleazar the son of Dodo the Ahohite, one of the three mighty men with David when they defied the Philistines that were there gathered together to battle, and the men of Israel were gone away: he arose, and smote the Philistines until his hand was weary, and his hand stuck unto his sword: and the LORD worked a great victory that day; and the people returned after him only to spoil." 2 Samuel 23:9,10.
 

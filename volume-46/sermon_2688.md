@@ -1,12 +1,4 @@
-# "Good Judgment"
-
-(No. 2688)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 19, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 21, 1881.
+# Sermon 2688 | "Good Judgment"
 
 "You have dealt well with Your servant, O LORD, according unto Your Word. Teach me good judgment and knowledge: for I have believed Your Commandments." Psalm 119:65, 66.
 

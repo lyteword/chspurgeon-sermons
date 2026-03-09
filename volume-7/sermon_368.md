@@ -1,6 +1,4 @@
-# The March!
-
-Sermon No. 368 - Delivered on Sabbath Morning, March 31st, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 368 | The March!
 
 > "And it came to pass, when the ark set out, that Moses said, Rise up, O Lord! Let Your enemies be scattered, and let those who hate You flee before You."  
 > Numbers 10:35.  

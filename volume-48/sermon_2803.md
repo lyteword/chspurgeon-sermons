@@ -1,12 +1,4 @@
-# The Saddest Cry From the Cross
-
-(No. 2803)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 2, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 7, 1877.
+# Sermon 2803 | The Saddest Cry From the Cross
 
 "And about the ninth hour Jesus cried with a loud voice, saying, Eli, Eli, lama Sabachthaani? That is to say, My God, My God, why have You forsaken Me." Matthew 27:46.
 

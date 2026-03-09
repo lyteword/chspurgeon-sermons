@@ -1,12 +1,4 @@
-# "A People Prepared for the Lord"
-
-(No. 2404)
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 17, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 13, 1887.
+# Sermon 2404 | "A People Prepared for the Lord"
 
 "To make ready a people prepared for the Lord." Luke 1:17.
 

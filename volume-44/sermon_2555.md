@@ -1,12 +1,4 @@
-# The Stronghold
-
-(No. 2555)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 6, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 11, 1883.
+# Sermon 2555 | The Stronghold
 
 "The LORD is good, a stronghold in the day of trouble, and He knows them that trust in Him." Nahum 1:7.
 

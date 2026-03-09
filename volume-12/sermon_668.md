@@ -1,6 +1,4 @@
-# Unity In Christ
-
-Sermon No. 668 - Delivered on Sunday Morning, January 7th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 668 | Unity In Christ
 
 > "I do not pray for these alone, but also for those who will believe in Me through their word; that they all may be one, as You, Father, are in Me, and I in You; that they also may be one in Us, that the world may believe that You sent Me."  
 > John 17:20,21.  

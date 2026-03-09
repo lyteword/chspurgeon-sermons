@@ -1,12 +1,4 @@
-# The Master
-
-(No. 1198)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1198 | The Master
 
 "She called Mary her sister secretly, saying, The Master is come, and calls for you." John 11:28.
 

@@ -1,12 +1,4 @@
-# Wholehearted Religion
-
-(No. 1623)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 9, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1623 | Wholehearted Religion
 
 "And I will give them one heart, and one way, that they may fear Me forever, for the good of them, and of their children after them." Jeremiah 32:39.
 

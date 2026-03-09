@@ -1,14 +1,4 @@
-# The Sinner's Friend
-
-A Sermon
-
-(No. 556)
-
-By the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
+# Sermon 556 | The Sinner's Friend
 
 "A friend of publicans and sinners."--Matthew 11:19.
 

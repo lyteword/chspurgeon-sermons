@@ -1,12 +1,4 @@
-# Carte Blanche
-
-(No. 2446)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 5, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 20, 1890.
+# Sermon 2446 | Carte Blanche
 
 "Then Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will." Matthew 15:28.
 

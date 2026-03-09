@@ -1,12 +1,4 @@
-# Our Motto
-
-(No. 1484)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1484 | Our Motto
 
 "With goodwill doing service, as to the Lord, and not to men." Ephesians 6:7.
 

@@ -1,12 +1,4 @@
-# Poverty and Riches
-
-(No. 2364)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 10 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 22, 1888.
+# Sermon 2364 | Poverty and Riches
 
 "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through His poverty, might be rich," 2 Corinthians 8:9.
 

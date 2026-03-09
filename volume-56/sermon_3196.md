@@ -1,12 +1,4 @@
-# Noah's Eminence
-
-(No. 3196)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 5, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 19, 1873.
+# Sermon 3196 | Noah's Eminence
 
 "And the LORRD said unto Noah, Come you and all your house into the ark, for you have I seen righteous before Me in this generation." Genesis 7:1.
 

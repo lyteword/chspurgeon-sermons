@@ -1,12 +1,4 @@
-# One Worker Preparing For Another
-
-(No. 2261)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 19, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 14, 1890.
+# Sermon 2261 | One Worker Preparing For Another
 
 "Now behold, in my trouble I have prepared for the House of the LORD an hundred thousand talents of gold, and a thousand talents of silver; and of brass andiron without weight: for it is in abundance: timber also and stone ha ve I prepared; and you may add thereto." 1 Chronicles 22:14.
 

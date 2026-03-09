@@ -1,12 +1,4 @@
-# Sham Conversion
-
-(No. 2928)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 23, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 10, 1876.
+# Sermon 2928 | Sham Conversion
 
 "And so it was at the beginning of their dwelling there, that they feared not the LORD: therefore the LORRD sent lions among them, which slew some of them. They feared the LORRD and served their own gods, after the manner of the nations from which they were carried away. Unto this day they continue practicing the same rituals: they fear not the LORRD." 2 Kings 17:25,33,34.
 

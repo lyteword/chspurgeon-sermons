@@ -1,12 +1,4 @@
-# Fathomless
-
-(No. 3368)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 21, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3368 | Fathomless
 
 "Your judgments are a great deep." Psalm 36:6.
 

@@ -1,12 +1,4 @@
-# The Rider on the White Horse and the Armies with Him
-
-(No. 1452B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1452B | The Rider on the White Horse and the Armies with Him
 
 "And I saw Heaven opened, and behold a white horse; and He thatsat upon him was called Faithful and True, and in righteousness He does judge and make war. His eyes were as a flame of fire, and on His head were many crowns; and He had a name written, thatno man knew, butHe Himself. And He was clothed with a vesture dipped in blood: and His name is called The Word of God. And the armies which were in Heaven followed Him upon white horses, clothed in fine linen, white and clean. And out of His mouth goes a sharp sword, that with it He should smite the nations: and He shall rule them with a rod of iron: and He treads the winepress of the fierceness and wrath of Almighty God. And He has on His vesture and on His thigh a name written, KING OF KINGS, AND LORD OF LORDS." Revelation 19:11-16.
 

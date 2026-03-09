@@ -1,12 +1,4 @@
-# "After Two Days Is the Passover"
-
-(No. 2522)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 20, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 1, 1885.
+# Sermon 2522 | "After Two Days Is the Passover"
 
 "You know that after two days is tie Passover, and the Son of Man will be delivered up to be crucified." Matthew 26:2.
 

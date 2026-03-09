@@ -1,12 +1,4 @@
-# Infallibility--Where To Find It and How To Use It
-
-(No. 1208)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 20, 1874,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1208 | Infallibility--Where To Find It and How To Use It
 
 "It is written." Matthew 4:4.
 

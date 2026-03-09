@@ -1,12 +1,4 @@
-# The Savior's Silence
-
-(No. 3268)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 9, 1864.
+# Sermon 3268 | The Savior's Silence
 
 "But He answered her not a word." Matthew 15:23.
 

@@ -1,12 +1,4 @@
-# The Divine Call for Missionaries
-
-(No. 1351)
-
-DELIVERED ON LORD'S-DAY MORNING APRIL 22, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1351 | The Divine Call for Missionaries
 
 "Also I heard the voice of the Lord, saying, Whom shall I send, and who will go for Us? Then said I, Here am I; send me." Isaiah 6:8.
 

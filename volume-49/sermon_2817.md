@@ -1,12 +1,4 @@
-# Jacob's Fear and Faith
-
-(No. 2817)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 8, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 21, 1877.
+# Sermon 2817 | Jacob's Fear and Faith
 
 "Deliver me, Ipray, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, and the mother with the children. And You said, I will surely do you good, and make your seedas the sand of the sea, which cannot be numbered for multitude." Genesis 32:11,12.
 

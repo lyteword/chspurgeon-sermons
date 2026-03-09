@@ -1,6 +1,4 @@
-# Heaven's Nurse Children
-
-Sermon No. 1021 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1021 | Heaven's Nurse Children
 
 > "I taught Ephraim also to go, taking them by their arms."  
 > Hosea 11:3.  

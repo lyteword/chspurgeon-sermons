@@ -1,12 +1,4 @@
-# The Conditions Of Power In Prayer
-
-(No. 1103)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 23,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1103 | The Conditions Of Power In Prayer
 
 "And whatever we ask, we receive of Him, because we keep His commandments, and do those things that are pleasing in His sight. And this is His commandment, That we should believe on the name of His Son Jesus Christ, and love one another, as He gave us commandment. And he that keeps His commandment dwells in Him, and He in him. And hereby we know that He abides in us, by the Spirit which He has given us." 1 John 3:22-24.
 

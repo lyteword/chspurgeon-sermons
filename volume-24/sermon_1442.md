@@ -1,12 +1,4 @@
-# Sorrow at the Cross Turned into Joy
-
-(No. 1442)
-
-DELIVERED ON LORD'S-DAY MORNING NOVEMBER 3, 1878,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 1442 | Sorrow at the Cross Turned into Joy
 
 "Verily, verily, I say unto you, that you shall weep and lament, but the world shall rejoice: and you shall be sorrowful, but your sorrow shall be turned into joy. A woman, when she is in travail, has sorrow, because her hour is come: but as soon as she is delivered of the child, she remembers no more the anguish, for joy that a man is born into the world. And you now, therefore, have sorrow: but I will see you again, and your heart shall rejoice, and your joy no man will take from you." John 16:20-22.
 

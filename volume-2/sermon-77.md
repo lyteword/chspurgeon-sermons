@@ -1,6 +1,4 @@
-# Divine Sovereignty
-
-Sermon No. 77 - Delivered on Sabbath Morning, May 4, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 77 | Divine Sovereignty
 
 > Is it not lawful for me to do what I will with mine own?    
 > Matthew 20:15.    

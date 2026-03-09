@@ -1,12 +1,4 @@
-# A Vision of the King
-
-(No. 3238)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 4, 1863.
+# Sermon 3238 | A Vision of the King
 
 "Your eyes shall see the King in His beauty: they shall behold the land that is very far off." Isaiah 33:17.
 

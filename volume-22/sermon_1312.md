@@ -1,12 +1,4 @@
-# Good News for Seekers
-
-(No. 1312)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 3, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1312 | Good News for Seekers
 
 "They shall praise the Lord that seek Him." Psalm 22:26.
 

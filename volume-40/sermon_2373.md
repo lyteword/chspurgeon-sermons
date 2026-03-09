@@ -1,12 +1,4 @@
-# The Weary Dove's Return
-
-(No. 2373)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 12, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 20, 1888.
+# Sermon 2373 | The Weary Dove's Return
 
 "But the dove found no rest for the sole of her foot and she returned into the ark to him, for the waters were on the face of the whole earth. So he put out his hand and took her, and drew her into the ark to himself." Genesis 8:9.
 

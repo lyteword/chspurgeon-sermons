@@ -1,6 +1,4 @@
-# Preach the Gospel
-
-Sermon No. 34 - Delivered on Sabbath Morning, August 5, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 34 | Preach the Gospel
 
 > For though I preach the gospel, I have nothing to glory of; for necessity is laid upon me; yea woe is unto me, if I preach not the gospel.    
 > 1 Corinthians 9:16.    

@@ -1,12 +1,4 @@
-# Preparing to Depart
-
-(No. 3116)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1908.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, OCTOBER 8, 1865.
+# Sermon 3116 | Preparing to Depart
 
 "And it came to pass, as they still went on, and talked, that, behold, there appeared a chariot of fire, and horses of fire, and parted them both asunder; and Elijah went up by a whirlwind into Heaven." 2 Kings 2:11.
 

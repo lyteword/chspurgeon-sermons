@@ -1,12 +1,4 @@
-# A Message From God
-
-(No. 3455)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 22, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3455 | A Message From God
 
 "I have a message from God unto you." Judges 3:20.
 

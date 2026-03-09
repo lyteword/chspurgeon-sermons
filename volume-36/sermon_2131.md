@@ -1,6 +1,4 @@
-# To Those Who Feel Unfit for Communion
-
-Sermon No. 2131 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2131 | To Those Who Feel Unfit for Communion
 
 > "For there were many in the congregation that were not sanctified: therefore the Levites had the charge of the killing of the Passover lambs for everyone that was not clean to sanctify them unto the Lord. For a multitude of the people, even many of Ephraim and Manasseh, Issachar, and Zebulun, had not cleansed themselves, yet did they eat the Passover contrary to what was written. But Hezekiah prayed for them, saying "The good Lord pardon everyone that prepares his heart to seek God, the Lord God of his fathers, though he is not cleansed according to the purification of the sanctuary. And the Lord listened to Hezekiah, and healed the people."  
 > 2 Chronicles 30:17-20.  

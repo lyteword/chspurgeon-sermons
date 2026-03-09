@@ -1,12 +1,4 @@
-# The Recorders
-
-(No. 1308)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 25, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1308 | The Recorders
 
 "To record, and to thank and praise the Lord God of Israel." 1 Chronicles 16:4.
 

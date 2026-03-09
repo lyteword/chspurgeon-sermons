@@ -1,12 +1,4 @@
-# Three Names High on the Muster Roll
-
-(No. 2217)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 16, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2217 | Three Names High on the Muster Roll
 
 "Shadrach, Meshach, and Abed-Nego answered and said to the king, O Nebuchadnezzar, we are not careful to answer you in this matter. If it is so, our God whom we serve is able to deliver us from the burning fiery furnace, and He will deliver us out of your hands, O king. But if not, be it known unto you, O king, that we will not serve your gods, nor worship the golden image which you ha ve set up." Daniel 3:16-18.
 

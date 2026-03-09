@@ -1,12 +1,4 @@
-# Three Decisive Steps
-
-(No. 2220)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 6, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 8, 1891.
+# Sermon 2220 | Three Decisive Steps
 
 "Audit came to pass, while the ark abode in Kirjath Jearim, that the time was long; for it was twenty years. And all the house of Israel lamented after the Lord. And Samuel spoke to all the house of Israel, saying, If you return to the Lord with all your hearts, then put away the strange gods and Ashtaroth from amongyou, andprepare your hearts for the Lord, and serve Him only: and He will deliver you out of the hands of the Philistines. Then the children of Israel put away Baalim and Ashtaroth, and served the Lord only. And Samuel said, Gather all Israel to Mizpeh, and I will pray to the Lord for you." 1 Samuel 7:2-5.
 

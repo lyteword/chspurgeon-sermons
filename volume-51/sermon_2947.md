@@ -1,12 +1,4 @@
-# Royal Emblems for Loyal Subjects
-
-(No. 2947)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2947 | Royal Emblems for Loyal Subjects
 
 "And He shall be like the light of the morning when the sun rises, even a morning without clouds; like the tender grass springing out of the earth, by clear shining after rain." 2 Samuel 23:4.
 

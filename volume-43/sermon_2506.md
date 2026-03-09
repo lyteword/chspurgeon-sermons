@@ -1,12 +1,4 @@
-# God's Law in Man's Heart
-
-(No. 2506)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 28, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 28, 1885.
+# Sermon 2506 | God's Law in Man's Heart
 
 "For this is the covenant that I will make with the house of Israel after those days, says the Lord; I will put My laws into their mind, and write them in their hearts." Hebrews 8:10.
 

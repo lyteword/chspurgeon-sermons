@@ -1,12 +1,4 @@
-# Christ's Glory Turned to Shame
-
-(No. 3276)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1865.
+# Sermon 3276 | Christ's Glory Turned to Shame
 
 "O you sons of men, how long will you turn My Glory into shame?" Psalm 4:2.
 

@@ -1,12 +1,4 @@
-# Israel's Hope--Or, The Center of the Target
-
-(No. 2199)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2199 | Israel's Hope--Or, The Center of the Target
 
 "Let Israel hope in the Lord: for with the Lord there is mercy, and with Him is plenteous redemption." Psalm 130:7.
 

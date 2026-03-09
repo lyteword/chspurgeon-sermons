@@ -1,12 +1,4 @@
-# The Joyous Return
-
-(No. 2192)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 1, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2192 | The Joyous Return
 
 "O Israel, return unto the Lordyour God; for you have fallen by your iniquity. Take with you words, and turn to the Lord: say unto Him, Take away all iniquity, and receive us graciously: so will we render the calves of our lips. Ashur shall not save us, we willnotride upon horses: neither will we say any more to the work of our hands, You are our gods: for in You the fatherless find mercy." Hosea 14:1-3.
 

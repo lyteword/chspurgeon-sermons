@@ -1,12 +1,4 @@
-# Beauty for Ashes
-
-(No. 3336)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 9, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3336 | Beauty for Ashes
 
 "To give unto them [who mourn in Zion] beauty for ashes." Isaiah 61:3.
 

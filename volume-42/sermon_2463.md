@@ -1,12 +1,4 @@
-# Why Men Reject Christ
-
-(No. 2463)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 3, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 11, 1886.
+# Sermon 2463 | Why Men Reject Christ
 
 "And sent messengers before His face. And as they went, they entered a village of the Samaritans, to prepare for Him. But they did not receive Him, because His face was set for the journey to Jerusalem." Luke 9:52, 53.
 

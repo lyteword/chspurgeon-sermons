@@ -1,12 +1,4 @@
-# "The Lord Is Risen, Indeed"
-
-(No. 1106)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1106 | "The Lord Is Risen, Indeed"
 
 "Why seek you the living among the dead? He is not here, but is risen! Remember how He spoke unto you when He was yet in Galilee." Luke 24:5, 6.
 

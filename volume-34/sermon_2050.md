@@ -1,8 +1,5 @@
-# A Paradox
+# Sermon 2050 | A Paradox
 
-Sermon No. 2050 - Delivered on Lord's-Day Morning, November 4th, 1888 the REV. C.H. SPURGEON at [9]the Metropolitan Tabernacle, Newington.
-
-> "When I am weak, then am I strong."'2 Corinthians 12:10.  
 > "When I am weak, then am I strong."'2 Corinthians 12:10.  
 
 The expression is paradoxical, and seems somewhat singular; yet it was the experience of the apostle Paul, a man of calm spirit, by no means fanciful, a wise man, and far removed from a fanatic. It was the experience of one who was led of the Spirit of God, and therefore it was a gracious experience: the experience of one who was a father in Israel, who could safely bid us to be imitators of him, even as he imitated the Lord Jesus Christ; and therefore it was a safe experience. If we are weak, so was Paul; and if, like him, we are strong in our weakness, we shall be in the best of company. If the same things be seen in us which were wrought in the apostle of the Gentiles, we may join with him in glorying in infirmities, because the power of Christ doth rest upon us, and we may count ourselves happy that with such a saint we can cry, "When I am weak, then am I strong."

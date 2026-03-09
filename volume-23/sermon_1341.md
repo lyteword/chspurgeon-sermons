@@ -1,12 +1,4 @@
-# Retreat Impossible
-
-(No. 1341)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1341 | Retreat Impossible
 
 "I have given my word to the Lord, and I cannot go back." Judges 11:35.
 

@@ -1,12 +1,4 @@
-# Jesus, the Judge
-
-(No. 1476)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 25, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1476 | Jesus, the Judge
 
 "And He commanded us to preach unto the people and to testify that it is He which was ordained of God to be the Judge of the quick and the dead." Acts 10:42.
 

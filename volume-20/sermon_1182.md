@@ -1,12 +1,4 @@
-# A Singular Title and a Special Favor
-
-(No. 1182)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 12, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1182 | A Singular Title and a Special Favor
 
 "The God of my mercy shall prevent me." Psalm 59:10.
 

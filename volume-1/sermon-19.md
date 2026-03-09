@@ -1,6 +1,4 @@
-# David's Dying Song
-
-Sermon No. 19 - Delivered on Sabbath Morning, April 15, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 19 | David's Dying Song
 
 > Although my house be not so with God; yet he hath made with me an everlasting covenant, ordered in all things and sure: for this is all my salvation, and all my desire, although he make it not to grow.    
 > 2 Samuel 23:5.    

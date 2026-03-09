@@ -1,12 +1,4 @@
-# Apart
-
-(No. 2510)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 28, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 16, 1885.
+# Sermon 2510 | Apart
 
 "And the land shall mourn, every family apart; the family ofthe house of David apart, and their wives apart; the family ofthe house of Nathan apart, and their wives apart; the family of the house of Levi apart, and their wives apart; the family of Shimei apart, and their wives apart; all the families that remain, every family apart, and their wives apart." Zechariah 12:12-14.
 

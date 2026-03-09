@@ -1,12 +1,4 @@
-# Healing and Pardon
-
-(No. 1905)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 20, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1905 | Healing and Pardon
 
 "And the inhabitant shall not say, I am sick: the people that dwell in it shall be forgiven their iniquity." Isaiah 33:24.
 

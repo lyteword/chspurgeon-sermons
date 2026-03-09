@@ -1,12 +1,4 @@
-# Tokens For Good
-
-(No. 1559)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1559 | Tokens For Good
 
 "Show me a token for good; that they which hate me may see it and be ashamed: because You, Lord, have helped me and comforted me." Psalm 86:17.
 

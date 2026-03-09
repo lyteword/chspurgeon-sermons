@@ -1,12 +1,4 @@
-# Landlord and Tenant
-
-(No. 3021)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 3, 1907,
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3021 | Landlord and Tenant
 
 "Set your house in order; for you shall die, and not live." Isaiah 38:1.
 

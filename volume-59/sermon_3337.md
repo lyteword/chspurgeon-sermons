@@ -1,12 +1,4 @@
-# Ears Bored to the Doorpost
-
-(No. 3337)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 16, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1866.
+# Sermon 3337 | Ears Bored to the Doorpost
 
 "And if the servant shall'plainlysay, Ilove my master, my wife, and my children; I will not go out free. Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the doorpost; and his master shall bore his ear through with an awl; and he shall serve him forever" Exodus 21:5, 6.
 

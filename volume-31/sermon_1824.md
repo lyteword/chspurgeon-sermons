@@ -1,9 +1,4 @@
-# The History of Sundry Fools
-
-Sermon No. 1824 - Delivered on Delivered the REV. C.H. SPURGEON at the [7]Metropolitan Tabernacle, Newington.
-(No. 1824)
-
-On July 17th, 1884,
+# Sermon 1824 | The History of Sundry Fools
 
 "Fools because of their transgression, and because of their iniquities, are afflicted. Their soul abhorreth all manner of meat, and they draw near unto the gates of death. Then they cry unto the Lord in their trouble and he saveth them out of their distresses. He sent his word, and healed them, and delivered them from their destruction." Psalm 107:17-20.
 

@@ -1,12 +1,4 @@
-# Very Singular
-
-(No. 2995)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 5, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2995 | Very Singular
 
 "He...put his household in order, and hanged himself." 2 Samuel 17:23.
 

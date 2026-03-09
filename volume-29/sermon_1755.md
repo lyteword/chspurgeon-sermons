@@ -1,12 +1,4 @@
-# The Top of the Ladder
-
-(No. 1755)
-
-DELIVERED ON THURSDAY EVENING, OCTOBER 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1755 | The Top of the Ladder
 
 "And to know the love of Christ, whichpasses knowledge, thatyou might be filled with all the fullness of God." Ephesians 3:19.
 

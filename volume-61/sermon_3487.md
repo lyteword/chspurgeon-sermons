@@ -1,12 +1,4 @@
-# The Honored Guest
-
-(No. 3487)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 25, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3487 | The Honored Guest
 
 "And he made haste and came down, and received Him joyfully." Luke 19:6.
 

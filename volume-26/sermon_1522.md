@@ -1,12 +1,4 @@
-# Expected Proof of Professed Love
-
-(No. 1522)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1522 | Expected Proof of Professed Love
 
 "Show you the proof of your love." 2 Corinthians 8:24.
 

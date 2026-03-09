@@ -1,12 +1,4 @@
-# A New Creation
-
-(No. 3467)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 15, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3467 | A New Creation
 
 "He who sat upon the throne said, Behold I make all things new." Revelation 21:5.
 

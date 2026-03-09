@@ -1,12 +1,4 @@
-# Concern For Other Men's Souls
-
-(No. 1425)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1425 | Concern For Other Men's Souls
 
 "I say the truth in Christ, I lie not, my conscience also bearing me witness in the Holy Spirit, that I have great hea viness and continual sorrow in my heart. For I could wish that I were accursed from Christ for my brethren, my kinsman according to the flesh, who are Israelites, to whom pertains the adoption, and the glory, and the covenants, and the giving of the Law, and the service of God, and the promises; whose are the fathers, and of whom as concerning the flesh Christ came, who is over all, God blessed forever. Amen." Romans 9:1-5.
 

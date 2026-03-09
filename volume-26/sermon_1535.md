@@ -1,12 +1,4 @@
-# Christ's Universal Kingdom and How It Comes
-
-(No. 1535)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 25, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1535 | Christ's Universal Kingdom and How It Comes
 
 "Ask of Me and I shall give You the heathen for Your inheritance and the uttermost parts of the earth for Your possession. You shall break them with a rod of iron; You shall dash them in pieces like a potter's vessel." Psalms 2:8,9.
 

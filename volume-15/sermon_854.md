@@ -1,7 +1,4 @@
-# Fire--the Need of the Times
-
-Sermon No. 854 - Delivered on Lord's-day Morning, FEBRUARY 7, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 854 | Fire--the Need of the Times
 
 "I came to send fire on the earth, and how I wish it were already kindled!"- Luke 12:49.
 

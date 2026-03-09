@@ -1,7 +1,4 @@
-# Christus Et Ego
-
-Sermon No. 781 - Delivered on Lord's-day Morning, NOVEMBER 17, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 781 | Christus Et Ego
 
 "I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave Himself for me."- Galatians 2:20.
 

@@ -1,6 +1,4 @@
-# Mealtime In The Corn Fields
-
-Sermon No. 522 - Delivered on Sunday Morning, August 2nd, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 522 | Mealtime In The Corn Fields
 
 > "And Boaz said unto her, At mealtime come you here and eat of the bread and dip your morsel in the vinegar. And she sat beside the reapers: and he reached her parched corn and she did eat and was sufficed and left."  
 > Ruth 2:14.  

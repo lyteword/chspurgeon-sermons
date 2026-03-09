@@ -1,12 +1,4 @@
-# Perseverance Without Presumption
-
-(No. 1056)
-
-A SERMON DELIVERED ON THURSDAY EVENING, MARCH 7, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1056 | Perseverance Without Presumption
 
 "I give them eternal life, and they shall never perish, neither shall any man pluck them out of My hand." John 10:28.
 

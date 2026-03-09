@@ -1,12 +1,4 @@
-# The Source
-
-(No. 2897)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 18, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 6, 1876.
+# Sermon 2897 | The Source
 
 "The woman said unto him, Sir, You have nothing to draw with, and the well is deep. Where then do You get that living water?" John 4:11.
 

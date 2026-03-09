@@ -1,6 +1,4 @@
-# Immanuel--The Light of Life
-
-Sermon No. 2163 - Delivered on Sunday Morning, September 14th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2163 | Immanuel--The Light of Life
 
 > "Nevertheless the dimness shall not be such us was in her vexation, when at the first He highly afflicted the land of Zebulun and the land of Naphtali, and afterward did more grievously afflict her by the way of the sea, beyond Jordan, in Galilee of the nations. The people that walked in darkness have seen a great light: they that dwell in the land of the shadow of death, upon them has the light shined."  
 > Isaiah 9:1,2.  

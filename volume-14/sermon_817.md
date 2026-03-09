@@ -1,8 +1,4 @@
-# The Widow of Sarepta
-
-A Sermon. (No. 817)
-
-Delivered on Lord's-Day Morning, June 21, 1868, BY C. H. SPURGEON, at the [27]Metropolitan Tabernacle, Newington.
+# Sermon 817 | The Widow of Sarepta
 
 "And the word of the Lord came unto him, saying, Arise, get you to Zarephath, which belongs to Sidon, and dwell there: behold, I have commanded a widow woman there to sustain you." 1 Kings 17:8,9.
 

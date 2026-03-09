@@ -1,12 +1,4 @@
-# The Saint's Heritage and Watchword
-
-(No. 2908)
-
-A SERMON PUBLISHED 0N THURSDAY, NOVEMBER 3, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, NOVEMBER 5, 1854.
+# Sermon 2908 | The Saint's Heritage and Watchword
 
 "No weapon that is formed against you shall prosper; and every tongue that shall rise against you in judgment you shall condemn. This is the heritage of the servants of the LOUD, and their righteousness is of Me, says the Lord." Isaiah 54:17.
 

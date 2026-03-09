@@ -1,12 +1,4 @@
-# "Much More"
-
-(No. 2587)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 11, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ONLORDS-DAYEVENING, MAY 13, 1883.
+# Sermon 2587 | "Much More"
 
 "Much more, being reconciled, we shall be saved by His life." Romans 5:10.
 

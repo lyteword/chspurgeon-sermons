@@ -1,10 +1,4 @@
-# Overwhelming Obligations
-
-(No. 910)
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 910 | Overwhelming Obligations
 
 "What shall I render unto the Lord for all His benefits toward me?" Psalm 116:12.
 

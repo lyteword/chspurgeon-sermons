@@ -1,12 +1,4 @@
-# Brief, Silent Prayer
-
-(No. 1390)
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 9, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1390 | Brief, Silent Prayer
 
 "So I prayed to the God of Heaven." Nehemiah 2:4.
 

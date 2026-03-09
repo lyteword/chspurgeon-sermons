@@ -1,12 +1,4 @@
-# Good News for the Lost
-
-(No. 1100)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 9, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1100 | Good News for the Lost
 
 "For the Son of Man is come to seek and to sa ve that which was lost." Luke 19:10.
 

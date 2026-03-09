@@ -1,12 +1,4 @@
-# God of the Hills and God of the Valleys
-
-(No. 1311)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 27, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1311 | God of the Hills and God of the Valleys
 
 "And there came a man of God, and spoke unto the king of Israel, and said, Thus says the Lord, Because the Syrians have said, The Lord is God of the hills, butHe is not God of the valleys, therefore will I deliver all this great multitude into your hand, and you shall know that I am the Lord." 1 Kings 20:28.
 

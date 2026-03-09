@@ -1,12 +1,4 @@
-# Fathers In Christ
-
-(No. 1751)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 18, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1751 | Fathers In Christ
 
 "I write unto you, fathers, because you have known Him that is from the beginning. Ihave written unto you, fathers, because you ha ve kno wn Him that is from the beginning." 1 John 2:13,14.
 

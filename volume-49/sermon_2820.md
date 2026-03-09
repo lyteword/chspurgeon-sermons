@@ -1,12 +1,4 @@
-# Christ Before Annas
-
-(No. 2820)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 1, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 26, 1882.
+# Sermon 2820 | Christ Before Annas
 
 "Then the band and the captain and officers of the Jews took Jesus and bound Him and led Him away to Annas first: for he was father-in-law to Caiaphas, who was the high priest that same year...The high priest then asked Jesus of His disciples and of His doctrine. Jesus answered him, I spoke openly to the world; I taught in the synagogue, and in the temple, where the Jews always resort; and in secret have I said nothing. Why do you ask Me? Ask them who heard Me, what I have said unto them: behold, they know what I said. And when He had thus spoken, one of the officers which stood by struck Jesus with the palm of his hand, saying, Answer You the high priest so? Jesus answered him, if I have spoken evil, bear witness of the evil: but if well, why do you strike Me?" John 18:12,13,19-23.
 

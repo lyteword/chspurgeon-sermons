@@ -1,12 +1,4 @@
-# The Fullness of Christ the Treasury of the Saints
-
-(No. 1169)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1874,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1169 | The Fullness of Christ the Treasury of the Saints
 
 "For it pleased the Father that in Him should all fullness dwell." Colossians 1:19.
 

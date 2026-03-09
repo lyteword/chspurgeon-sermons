@@ -1,6 +1,4 @@
-# Paul's Sermon Before Felix
-
-Sermon No. 171 - Delivered on Sabbath Morning, January 10, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 171 | Paul's Sermon Before Felix
 
 > And as he reasoned of righteousness, temperance, and judgment to come, Felix trembled, and answered, Go thy way for this time; when I have a convenient season, I will call for thee.    
 > Acts 24:25.    

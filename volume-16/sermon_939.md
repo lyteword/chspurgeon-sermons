@@ -1,12 +1,4 @@
-# The Pilgrim's Grateful Recollections
-
-(No. 939)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 3, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 939 | The Pilgrim's Grateful Recollections
 
 "And He humbled you, and suffered you to hunger, and fed you with manna, which you knew not, neither did your fathers know; that He might make you know that man does not live by bread only, but by every Word that proceeds out of the mouth of the Lord does man live. Your raiment waxed not old upon you, neither did your foot swell, these forty years. You shall also consider in your heart, that, as a man chastens his son, so the Lord your God chastens you. Therefore you shall keep the commandments of the Lord your God, to walk in His ways, and to fear Him." Deuteronomy 8:3-6.
 

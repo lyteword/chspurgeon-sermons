@@ -1,12 +1,4 @@
-# The Eternal Day
-
-(No. 1176)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 31, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1176 | The Eternal Day
 
 "Your sun shall no more go do wn, neither shall your moon withdraw itself: for the Lord shall be your everlasting light, and the days of your mourning shall be ended." Isaiah 60:20.
 

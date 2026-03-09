@@ -1,6 +1,4 @@
-# Manasseh
-
-Sermon No. 105 - Delivered on Sabbath Morning, November 30, 1856, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 105 | Manasseh
 
 > Then Manasseh knew that the Lord he was God.    
 > 2 Chron. 33:13.    

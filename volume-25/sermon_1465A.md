@@ -1,12 +1,4 @@
-# The Son Glorified by the Father and the Father Glorified by the Son
-
-(No. 1465A)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1465A | The Son Glorified by the Father and the Father Glorified by the Son
 
 "These words spoke Jesus, and lifted up His eyes to Heaven, and said, Father, the hour is come; glorify Your Son, that Your Son also may glorify You." John 17:1.
 

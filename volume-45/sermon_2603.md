@@ -1,12 +1,4 @@
-# Comfort for the Tempted
-
-(No. 2603)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 1, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 27, 1883.
+# Sermon 2603 | Comfort for the Tempted
 
 "There hats no temptation taken you but such as is common to man: but God is faithful, who will not allow you to be tempted beyond what you are able, but with the temptation will also make the way of escape, that you may be able to bear it" 1 Corinthians 10:13.
 

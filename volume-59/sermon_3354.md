@@ -1,12 +1,4 @@
-# The Old Testament "Prodigal"
-
-(No. 3354)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 15, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3354 | The Old Testament "Prodigal"
 
 "And when he was in affliction, he besought the Lord his God, and humbled himself greatly before the God of his fathers, and prayed unto Him: and He was entreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that the Lord, He was God." 2 Chronicles 33:12,13.
 

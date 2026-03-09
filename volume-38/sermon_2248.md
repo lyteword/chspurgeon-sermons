@@ -1,12 +1,4 @@
-# Sad Fasts Changed To Glad Feasts
-
-(No. 2248)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 20, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 7, 1890.
+# Sermon 2248 | Sad Fasts Changed To Glad Feasts
 
 "Thus says the Lord of Hosts; The fast of the fourth month, and the fast of the fifth, and the fast of the seventh, and the fast of the tenth, shall be to the house of Judah joy and gladness, and cheerful feasts; therefore love the truth and peace." Zechariah 8:19.
 

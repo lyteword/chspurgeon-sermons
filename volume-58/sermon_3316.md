@@ -1,12 +1,4 @@
-# Their Desired Haven
-
-(No. 3316)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 22, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SUNDAY EVENING, JUNE 17, 1866.
+# Sermon 3316 | Their Desired Haven
 
 "So He brings them to their desired haven." Psalm 107:30.
 

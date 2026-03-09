@@ -1,7 +1,4 @@
-# Believing To See No.
-
-Sermon No. 766 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 766 | Believing To See No.
 
 " I had fainted, unless I had believed to see the goodness of the Lord in the land of the living."- Psalm 27:13.
 

@@ -1,12 +1,4 @@
-# Unprofitable Servants
-
-(No. 1541)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 6, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1541 | Unprofitable Servants
 
 "And cast you the unprofitable servant into outer darkness: there shall be weeping and gnashing of teeth." Matthew 25:30.
 

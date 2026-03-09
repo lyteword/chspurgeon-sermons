@@ -1,6 +1,4 @@
-# The Minister's Stock-Taking
-
-Sermon No. 516 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 516 | The Minister's Stock-Taking
 
 > "And some believed the things which were spoken and some believed not."  
 > Acts 28:24.  

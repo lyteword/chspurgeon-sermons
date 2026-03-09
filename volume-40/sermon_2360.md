@@ -1,12 +1,4 @@
-# Come, My Beloved!
-
-(No. 2360)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 13, 1984.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 4, 1888.
+# Sermon 2360 | Come, My Beloved!
 
 "Make haste, my Beloved, and be like a roe or a young hart upon the mountains of spices." Song of Solomon 8:14.
 

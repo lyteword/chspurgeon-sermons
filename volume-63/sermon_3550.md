@@ -1,12 +1,4 @@
-# An Earnest Entreaty
-
-(No. 3550)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3550 | An Earnest Entreaty
 
 "Kiss the Son lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him." Psalm 2:12.
 

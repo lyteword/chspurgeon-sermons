@@ -1,12 +1,4 @@
-# The Baptist's Message
-
-(No. 2646)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 29, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 2, 1882.
+# Sermon 2646 | The Baptist's Message
 
 "The next day John saw Jesus cooing toward him and said, Behold the Lamb of God, who takes away the sin of the world!" John 1:29.
 

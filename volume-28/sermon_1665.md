@@ -1,12 +1,4 @@
-# The Exceeding Riches of Grace
-
-(No. 1665)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 18, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1665 | The Exceeding Riches of Grace
 
 "That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through Christ Jesus." Ephesians 2:7.
 

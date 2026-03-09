@@ -1,12 +1,4 @@
-# Man Humbled, God Exalted
-
-(No. 3369)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 28, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 4, 1886.
+# Sermon 3369 | Man Humbled, God Exalted
 
 "And the loftiness of man shall be bowed down, and the haughtiness of men shall be made low: and the Lord alone shall be exalted in that day." Isaiah 2:17.
 

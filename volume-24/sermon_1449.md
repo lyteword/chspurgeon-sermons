@@ -1,12 +1,4 @@
-# A Vile Weed and a Fair Flower
-
-(No. 1449)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1449 | A Vile Weed and a Fair Flower
 
 "Let your con versation be without co vetousness; and be content with such things as you ha ve: for He has said, I will never leave you, nor forsake you. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do to me." Hebrews 13:5, 6.
 

@@ -1,12 +1,4 @@
-# Justification, Propitiation, Declaration
-
-(No. 3488)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 2, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 9, 1870.
+# Sermon 3488 | Justification, Propitiation, Declaration
 
 "Being justified freely by His Grace through the redemption that is in Christ Jesus: whom God has set forth to be a propitiation through faith in His blood, to declare His righteousness for the remission of sins that are past through the forbearance of God. To declare, I say, at this time His righteousness: that He might be just, and the justifier of him who believes in Jesus." Romans 3:24-26.
 

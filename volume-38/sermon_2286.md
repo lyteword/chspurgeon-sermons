@@ -1,12 +1,4 @@
-# An Ancient Question Modernized
-
-(No. 2286)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 11, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 4, 1890.
+# Sermon 2286 | An Ancient Question Modernized
 
 "And the people said unto me, Will you not tell us what these things mean to us, that you behave so?" Ezekiel 24:19.
 

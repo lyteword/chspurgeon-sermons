@@ -1,12 +1,4 @@
-# "All of One"
-
-(No. 2418)
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 23, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 5, 1887.
+# Sermon 2418 | "All of One"
 
 "For both He that sanctifies and they who are sanctified are all of one: for which cause He is not ashamed to call them brethren, saying, I will declare Your name unto My brethren, in the midst of the Church will I sing praise unto You. And again, I will put My trust in Him. And again, Behold I and the children whom God has given Me." Hebrews 2:11-13.
 

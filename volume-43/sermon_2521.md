@@ -1,12 +1,4 @@
-# Deadness and Quickning
-
-(No. 2521)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 13, 1897.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 29, 1885.
+# Sermon 2521 | Deadness and Quickning
 
 "Turn away my eyes from beholding vanity; and quicken me in Your way." Psalm 119:37.
 

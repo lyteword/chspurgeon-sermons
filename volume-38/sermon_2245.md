@@ -1,14 +1,4 @@
-# "Living, Loving, Lasting Union"
-
-(No. 2245)
-
-FUNERAL ADDRESS
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 28 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE FUNERAL OF MR. WILLIAM OLNEY, OCTOBER 22, 1890.
+# Sermon 2245 | "Living, Loving, Lasting Union"
 
 "For we are members of His body, of His flesh, and of His bones." Ephesians 5:30.
 
@@ -68,7 +58,6 @@ Do you know anything of this experience, my dear Friends? Many of you do--it is 
 
 The next word to, "living," in my dear Brother's frequent use, was, "loving." BETWEEN THE TRUE BELIEVER AND CHRIST THERE IS A LOVING UNION. And oh, the union of a soul to Christ is made so sweet because it is as loving as it is living! My Brother-in-Christ, William Olney, truly loved! He seemed to have a love to everybody. He was never so pleased as when he was pleasing other people and he would go a long way, sometimes, to try and please people who would not be pleased. But still, his great ambition in life was to love others and to make others love Christ. Love ruled supreme in his actions. His union to Christ was not cold and formal, stiff and narrow--he had a union to Christ that was warm, human, intense, fervent, loving! There was fire in that man and the fire was the ardent flame of great affection to the Lord Jesus Christ.
 
-I would like to have a talk about this loving union to Christ on some other occasion, when I could trust myself more than I can do now at this very solemn service. [On the following evening, Thursday, October 23, 1890, Mr. Spurgeon preached on this subject. The discourse, entitled "Members of Christ" (No. 2244), delivered on that occasion, was published last week. (Footnote).--EOD] Still, there are a few things that may be said upon this subject even now.
 
 Christ's love to us begins this loving union. Its source is not in ourselves, but in love eternal, love immeasurable, love which caused itself--Free-Grace love, love to the unworthy, love to enemies, love to those who had no life, no strength, and no hope apart from Him. Christ loved us so that He deigned to join Himself to us in eternal union. The great Artesian well from which we drink and which has tapped the Divine fountains is the Love of Christ! This is where all our hope, our joy and our love begin. "Herein is love, not that we loved God, but that He loved us." In connection with this same Truth of God of union with Christ and fruit-bearing as the result of it, our Lord, Himself, says, "You have not chosen me, but I have chosen you." When this Love thus made choice of us, He entered into Covenant with His Father concerning His people--and before we were born He identified Himself with us, so that in the purpose of God from all eternity we were accepted in Him!
 

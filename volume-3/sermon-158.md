@@ -1,6 +1,4 @@
-# Instability
-
-Sermon No. 158 - Delivered on Sabbath Morning, October 11, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 158 | Instability
 
 > Unstable as water, thou shalt not excel.    
 > Genesis 49:4.    

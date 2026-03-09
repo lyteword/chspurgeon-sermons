@@ -1,6 +1,4 @@
-# Number Two-thousand--Healing by the Stripes of Jesus
-
-Sermon No. 2000 - Delivered on Sunday Morning, January 1st, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2000 | Number Two-thousand--Healing by the Stripes of Jesus
 
 > "By His stripes we are healed."  
 > Isaiah 53:5.  
@@ -114,7 +112,6 @@ If, dear Friend, you are healed, this is my last word to you--then get out of di
 
 1 met this week with something that pleased me--how one man, being healed, may be the means of blessing to another. Many years ago I preached a sermon in Exeter Hall which was printed and entitled, "Salvation to the Uttermost." A friend, who lives not very far from this place, was in the city of Para, in Brazil. There he heard of an Englishman in prison who had, in a state of drunkenness, committed a murder, for which he was confined for life. Our friend went to see him and found him deeply penitent, but quietly restful and happy in the Lord. He had felt the terrible wound of blood-guiltiness in his soul, but it had been healed and he felt the bliss of pardon. Here is the story of the poor man's conversion as I have it--
 
-"A young man, who had just completed his contract with the gas-works, was returning to England, but before doing so he called to see me and brought with him a parcel of books. When I opened it, I found that they were novels, but, being able to read, I was thankful for anything. After I had read several of the books, I found a sermon (No. 84), preached by C. H. Spurgeon, in Exeter Hall, on June 8th , 1856, from the words, 'Therefore He is able also to save them to the uttermost,' etc., (Heb. 7:25). In his discourse, Mr. Spurgeon referred to Palmer, who was then lying under sentence of death in Stafford Jail and, in order to bring home this text to his hearers, he said that if Palmer had committed many other murders, if he repents and seeks God's pardoning love in Christ, even he will be forgiven! I then felt that if Palmer could be forgiven, so might I. I sought and, blessed be God, I found! I am pardoned, I am free! I am a sinner saved by Grace! Though a murderer, I have not yet sinned 'beyond the uttermost,' blessed be His holy name!" It made me very happy to think that a poor condemned murderer could thus be converted. Surely there is hope for every hearer and reader of this sermon, however guilty he may be!
 
 If you know Christ, tell others about Him. You do not know what good there is in making Jesus known, even though all you can do is to give a tract, or repeat a verse. Dr. Valpy, the author of a great many class books, wrote the following simple lines as his confession of faith--
 

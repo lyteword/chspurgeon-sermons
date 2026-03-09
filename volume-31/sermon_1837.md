@@ -1,9 +1,4 @@
-# A Great Gospel for Great Sinners
-
-Sermon No. 1837 - Delivered on Delivered the REV. C.H. SPURGEON at the [10]Metropolitan Tabernacle, Newington.
-(No. 1837)
-
-On June 2nd, 1884,
+# Sermon 1837 | A Great Gospel for Great Sinners
 
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners, of whom I am chief. Howbeit for this cause I obtained mercy, that in me first Jesus Christ might show forth all longsuffering, for a pattern to them which should hereafter believe on him to life everlasting. Now unto the King eternal immortal, invisible, the only wise God, be honor and glory for ever and ever. Amen."1 Timothy 1:15-17.
 

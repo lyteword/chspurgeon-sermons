@@ -1,12 +1,4 @@
-# Question and Exclamation
-
-(No. 2742)
-
-A SERMON INTENDED FOR READING ON LORD'S-BAY, SEPTEMBER 1, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 13, 1879.
+# Sermon 2742 | Question and Exclamation
 
 "But I said, How can I put you among the children, and give you a pleasant land, a godly heritage of the hosts of nations? And I said, You shall call Me, My Father; and shall not turn away from Me." Jeremiah 3:19.
 

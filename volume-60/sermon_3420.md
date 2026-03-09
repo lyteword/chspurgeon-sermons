@@ -1,12 +1,4 @@
-# Could He Not? Ah! But He Would Not
-
-(No. 3420)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 20, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3420 | Could He Not? Ah! But He Would Not
 
 "And some of them saaid--Could not this Man, who opened the eyes of the blind, have caused that even this man should not have died?" John 11:37.
 

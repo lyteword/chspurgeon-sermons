@@ -1,12 +1,4 @@
-# Encouragement for the Depressed
-
-(No. 3489)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 9, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 27TH, 1871.
+# Sermon 3489 | Encouragement for the Depressed
 
 "For who has despised the day of small things?" Zechariah 4:10.
 

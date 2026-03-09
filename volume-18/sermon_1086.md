@@ -1,12 +1,4 @@
-# Jesus, The King of Truth
-
-(No. 1086)
-
-A SERMON DELIVERED ON THURSDAY EVENING, DECEMBER 19, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1086 | Jesus, The King of Truth
 
 "Pilate therefore said unto Him, Are You a king, then? Jesus answered, You say that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth. Everyone that is of the truth hears My voice." John 18:37.
 

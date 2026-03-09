@@ -1,12 +1,4 @@
-# No Difference
-
-(No. 1414)
-
-DELIVERED ON LORD'S-DAY EVENING, MAY 12, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1414 | No Difference
 
 "He makes His sun to rise on the evil and on the good and sends rain on thejust and on the unjust." Matthew 5:45.
 

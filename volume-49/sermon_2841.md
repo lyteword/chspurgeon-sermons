@@ -1,12 +1,4 @@
-# Prayer--Its Discouragements and Encouragements
-
-(No. 2841)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A THURSDAY EVENING, IN THE SUMMER OF 1861.
+# Sermon 2841 | Prayer--Its Discouragements and Encouragements
 
 "But He answered her not a word." Matthew 15:23.
 

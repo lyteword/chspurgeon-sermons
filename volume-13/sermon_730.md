@@ -1,7 +1,4 @@
-# Let Not Your Heart Be Troubled
-
-Sermon No. 730 - Delivered on Lord's-day Morning, JANUARY 20, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 730 | Let Not Your Heart Be Troubled
 
 "Let not your heart be troubled: you believe in God, believe also in Me."- John 14:1.
 

@@ -1,12 +1,4 @@
-# The Rule of Grace
-
-(No. 3061)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 10, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 17, 1873.
+# Sermon 3061 | The Rule of Grace
 
 "Man/ lepers were in Israel in tie time of Elisha the Prophet; and none of them was cleansed except Naaman the Syrian." Luke 4:27.
 

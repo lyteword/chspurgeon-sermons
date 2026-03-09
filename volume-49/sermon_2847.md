@@ -1,12 +1,4 @@
-# Barriers Obliterated
-
-(No. 2847)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1877.
+# Sermon 2847 | Barriers Obliterated
 
 "I have blotted out, as a thick cloud, your transgressions, and, as a cloud, your sins; return unto Me; for I have redeemed you." Isaiah 44:22.
 

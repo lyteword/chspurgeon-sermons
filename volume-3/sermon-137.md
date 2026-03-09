@@ -1,6 +1,4 @@
-# Mercy, Omnipotence, and Justice
-
-Sermon No. 137 - Delivered on Sabbath Morning, June 21, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 137 | Mercy, Omnipotence, and Justice
 
 > The Lord is slow to anger and great in power, and will not at all acquit the wicked.    
 > Nahum 1:3.    

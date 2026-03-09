@@ -1,12 +1,4 @@
-# Imitators of God
-
-(No. 1725)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 10, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1725 | Imitators of God
 
 "Be you therefore followers of God, as dear children." Ephesians 5:1.
 

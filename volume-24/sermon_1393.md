@@ -1,16 +1,7 @@
-# Speak For Yourself--a Challenge!
-
-(No. 1393)
-
-DELIVERED ON LORD'S-DAY EVENING, DECEMBER 9, 1877,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1393 | Speak For Yourself--a Challenge!
 
 "He is of age; ask him: he shall speak for himself." John 9:21
 
-THOSE of you, dear Friends, who were present this morning, will remember that our subject was "Jesus Christ Himself." [No. 1888, Vol. 23. "Jesus Christ Himself."] We dwelt upon His blessed Person. Our faith is fixed on Him, our affections are drawn to Him, our hopes all bend toward Him. Though everything He said or did is precious, yet Jesus Himself stands first in our judgment. To know Him, to believe Him, to love Him is the very essence of our Christianity. Tonight we change our theme. There is an "himself in our text this evening--an "himself," 'tis true of a much humbler order. How do we each stand for himself?
 
 Our individuality and the personal responsibilities which fall upon ourselves in reference to Christ must not be lost sight of. If, for instance, a spiritual miracle has been worked upon us and we are obliged to confess. No, if we are delighted to confess that He has opened our eyes--then we are bound, especially those of us who are of ripe understanding, who may be said to be of full age--we are bound to bear our own personal testimony for Him. The allegation and the appeal may alike apply to each one of us, "He is of age; ask him: he shall speak for himself." Jesus Christ Himself bore our sins, as we heard this morning. He gave Himself for us. He served us, not by proxy, but by personal consecration.
 

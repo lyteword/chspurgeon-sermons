@@ -1,6 +1,4 @@
-# A Call to the Unconverted
-
-Sermon No. 174 - Delivered on Sabbath Evening, November 8, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 174 | A Call to the Unconverted
 
 > For as many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them.    
 > Galatians 3:10.    

@@ -1,12 +1,4 @@
-# The Greatest Folly in the World
-
-(No. 2545)
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 28, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 10, 1884.
+# Sermon 2545 | The Greatest Folly in the World
 
 "There is none who understands, there is none who seeks after God." Romans 3:11.
 

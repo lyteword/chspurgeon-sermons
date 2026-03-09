@@ -1,12 +1,4 @@
-# The Forerunner
-
-(No. 3102)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 23, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 16, 1874.
+# Sermon 3102 | The Forerunner
 
 "Where the Forerunner is for us entered, even Jesus." Hebrews 6:20.
 

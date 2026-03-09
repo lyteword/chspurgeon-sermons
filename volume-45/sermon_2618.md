@@ -1,12 +1,4 @@
-# "Straightway"
-
-(No. 2618)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 16, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 15, 1882.
+# Sermon 2618 | "Straightway"
 
 "They straightway left their nets, and followed Him." Matthew 4:20.
 

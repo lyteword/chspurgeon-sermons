@@ -1,6 +1,4 @@
-# Flesh And Spirit--A Riddle
-
-Sermon No. 467 - Delivered on Sunday Morning, August 31st, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 467 | Flesh And Spirit--A Riddle
 
 > "So foolish was I and ignorant: I was as a beast before You. Nevertheless I am continually with You: You have held me by my right hand. You shall guide me with Your counsel and afterward receive me to glory. Whom ha ve I in Hea ven but You? And there is none upon earth that I desire besides You."  
 > Psalm 73:22-25.  

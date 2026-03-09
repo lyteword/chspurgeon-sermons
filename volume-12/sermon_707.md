@@ -1,6 +1,4 @@
-# Heavenly Geometry
-
-Sermon No. 707 - Delivered on Sunday Evening, August 19th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 707 | Heavenly Geometry
 
 > "That He would grant you, according to the riches of His glory, to be strengthened with might by His Spirit in the inner man; that Christ may dwell in your hearts by faith; that you, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passes knowledge, that you might be filled with all the fullness of God."  
 > Ephesians 3:16-19.  

@@ -1,12 +1,4 @@
-# A New Song For New Hearts
-
-(No. 928)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 1, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 928 | A New Song For New Hearts
 
 "And in that day you shall say, O Lord, I will praise You: though You were angry with me, Your anger is turned away, and You comfort me." Isaiah 12:1.
 

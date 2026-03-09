@@ -1,12 +1,4 @@
-# Belief, Baptism, Blessing
-
-(No. 2275)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 25, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING. FEBRUARY 9, 1890.
+# Sermon 2275 | Belief, Baptism, Blessing
 
 "And he took them the same hour of the night, and washed their stripes; and was baptized, he and all his, straightway. And when he bad brought them into his house, he set meat before them, and rejoiced, believing in God with all his house." Acts 16:33,34.
 

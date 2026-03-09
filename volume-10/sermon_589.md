@@ -1,10 +1,4 @@
-# Jesus Meeting His Warriors
-
-Sermon No. 589 - Delivered on Sunday Morning, September 11th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-
-DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 11, 1864, BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 589 | Jesus Meeting His Warriors
 
 "And Melchizedek king of Salem brought forth bread and wine: and he was the priest of the Most High God. And he blessed him and said, Blessed be Abram of the Most High God, possessor of Heaven and earth: and blessed be the Most High God, which has delivered your enemies into your hand. And he ga ve him tithes of all."--Genesis 14:18-20.
 

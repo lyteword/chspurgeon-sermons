@@ -1,12 +1,4 @@
-# Abraham, A Pattern To Believers
-
-(No. 2292)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 22, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2292 | Abraham, A Pattern To Believers
 
 "By faith he (Abraham) sojourned in the land of promise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker is God." Hebrews 11:9,10.
 

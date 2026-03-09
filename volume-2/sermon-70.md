@@ -1,6 +1,4 @@
-# Good Works
-
-Sermon No. 70 - Delivered on Sabbath Morning, March 16, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 70 | Good Works
 
 > Zealous of good works.    
 > Titus 2:14.    

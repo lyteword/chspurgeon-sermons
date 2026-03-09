@@ -1,12 +1,4 @@
-# Christian Conversation
-
-(No. 2695)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 7, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1858.
+# Sermon 2695 | Christian Conversation
 
 "They shall speak of the Glory of Your Kingdom, and talk of Your power." Psalm 145:11.
 

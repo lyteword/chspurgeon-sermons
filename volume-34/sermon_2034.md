@@ -1,6 +1,4 @@
-# Peter's Restoration
-
-Sermon No. 2034 - Delivered on Sunday Morning, July 22nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2034 | Peter's Restoration
 
 > "And immediately, while he yet spoke, the cock crowed. And the Lord turned and looked upon Peter. And Peter remembered the word of the Lord, how He had said unto him, Before the cock crowed, you shall deny Me thrice. And Peter went out and wept bitterly."  
 > Luke 22:60-62.  

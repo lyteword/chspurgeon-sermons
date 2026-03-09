@@ -1,12 +1,4 @@
-# Buying the Truth
-
-(No. 3449)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 11, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING JUNE 26, 1870
+# Sermon 3449 | Buying the Truth
 
 "Buy the truth, and sell it not." Proverbs 23:23.
 

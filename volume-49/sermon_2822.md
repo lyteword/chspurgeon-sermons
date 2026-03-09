@@ -1,12 +1,4 @@
-# Christ in Bonds
-
-(No. 2822)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 28, 1877.
+# Sermon 2822 | Christ in Bonds
 
 "Now Annas had sent Hum bound unto Caiaphas the high priest." (The Revised Version says, "Annas therefore sent Him bound unto Caiaphas the high priest").
 

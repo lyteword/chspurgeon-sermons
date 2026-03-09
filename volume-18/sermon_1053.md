@@ -1,12 +1,4 @@
-# Testimony And Experience
-
-(No. 1053)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 2, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1053 | Testimony And Experience
 
 "And many of the Samaritans of that city believed in Him because of the saying of the woman, who testified, 'He told me all that I ever did.'So when the Samaritans had come to Him, they urged Him to stay with them; and He stayed there two days. And many more believed because of His own word. Then they said to the woman, 'Now we believe, not because of what you said, for we have heard Him ourselves, and we know that this is, indeed, the Christ, the Savior of the world." John 4:39-42.
 

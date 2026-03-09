@@ -1,16 +1,7 @@
-# "Your Salvation"
-
-(No. 1417)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 2, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1417 | "Your Salvation"
 
 "Then took he Him up in his arms, and blessed God, and said, Lord, now let Your servant depart in peace, according to Your word: for my eyes have seen Your salvation." Luke 2:28-30.
 
-LAST Lord's-day morning [No. 1416, The Faithful Saying] we used the broad axe to clear the forest of self-righteousness--one after another human hopes were made to fall, for the axe was laid at the root of the trees. Now let us cultivate the clearing and sow the good seed! We might have had for our slogan, then, "The Lord of Hosts has purposed it, to stain the pride of all glory and to bring into contempt all the honorable of the earth." We tried to sweep away every vestige of anything like self-trust as we showed that Christ Jesus came to save men as sinners and that only as sinners could they have any part or lot in Him. Our Lord gave Himself for our sins, but He never gave Himself for our righteousness! We bore witness that human goodness is a mere fiction and that it is rather a hindrance than a help to the work of salvation, since it opposes itself to the grand principle of Grace by which, alone, men can be saved. So far our work has been to root out, to pull down, to destroy and to throw down. And we hope it has been done very thoroughly.
 
 But there is a time to build up as well as a time to break down. And as we showed on the former occasion where salvation is not and cannot be, so today let us, by the help of God's Spirit, endeavor to point out where salvation really is--so that those who have learned to look away from themselves may now be taught to look to Christ! May the Holy Spirit grant us this desire of our heart and may thousands, by this sermon, find salvation!
 

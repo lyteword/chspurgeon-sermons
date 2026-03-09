@@ -1,12 +1,4 @@
-# "Our Light Affliction"
-
-(No. 3244)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 6, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 29, 1870.
+# Sermon 3244 | "Our Light Affliction"
 
 "Our light affliction." 2 Corinthians 4:17.
 

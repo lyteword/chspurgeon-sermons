@@ -1,12 +1,4 @@
-# My Hourly Prayer
-
-(No. 1657)
-
-DELIVERED ON LORD'S-DAY EVENING, FEBRUARY 26, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1657 | My Hourly Prayer
 
 "Hold You me up, and I shall be safe: and I will have respect unto Your statutes continually." Psalm 119:117.
 

@@ -1,12 +1,4 @@
-# The Way of Wisdom
-
-(No. 2862)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 28, 1872.
+# Sermon 2862 | The Way of Wisdom
 
 "There is a path which no fowl knows, and which the vulture's eyes have not seen; the lion's whelps have not trodden it, nor the fierce lion passed by it." Job 28:7,8.
 

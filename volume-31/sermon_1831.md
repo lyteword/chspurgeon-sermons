@@ -1,12 +1,4 @@
-# Smoking Flax
-
-(No. 1831)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON JUNE 1, 1884.
+# Sermon 1831 | Smoking Flax
 
 "The smoking flax shall He not quench." Isaiah 42:3.
 

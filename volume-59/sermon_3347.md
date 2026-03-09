@@ -1,12 +1,4 @@
-# Things to Be Remembered
-
-(No. 3347)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 27, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3347 | Things to Be Remembered
 
 "A Psalm of David to bring to remembrance." Psalm 38:(Title).
 

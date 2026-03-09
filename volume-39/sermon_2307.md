@@ -1,12 +1,4 @@
-# The Greatest Exhibition of the Age
-
-(No. 2307)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 7, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 5, 1889.
+# Sermon 2307 | The Greatest Exhibition of the Age
 
 "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes.'" 1 Corinthians 11:26.
 

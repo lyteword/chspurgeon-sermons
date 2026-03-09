@@ -1,12 +1,4 @@
-# An Unalterable Law
-
-(No. 3418)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 6, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3418 | An Unalterable Law
 
 "Without shedding of blood there is no remission." Hebrews 9:22.
 

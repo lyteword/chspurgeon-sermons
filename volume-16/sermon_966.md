@@ -1,12 +1,4 @@
-# Joseph's Bones
-
-(No. 966)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 18, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 966 | Joseph's Bones
 
 "By faith Joseph, when he died, made mention of the departing of the children of Israel. And gave commandment concerning his bones." Hebrews 11:22.
 

@@ -1,18 +1,4 @@
-# Christ's Marvellous Giving
-
-A Sermon
-
-(No. 3513)
-
-Published on Thursday, May 25th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [21]the Metropolitan Tabernacle, Newington.
-
-ON Lord's-day Evening, November 25th, 1866.
+# Sermon 3513 | Christ's Marvellous Giving
 
 "Who gave himself for us."--Titus 2:14.
 

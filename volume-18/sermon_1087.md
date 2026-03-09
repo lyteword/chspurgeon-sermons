@@ -1,12 +1,4 @@
-# The Hexapla Of Mystery
-
-(No. 1087)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 22, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1087 | The Hexapla Of Mystery
 
 "And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory." 1 Timothy 3:16.
 

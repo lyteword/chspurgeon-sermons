@@ -1,16 +1,6 @@
-# Christ Seen as God's Salvation
-
-(No. 3177)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 23, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3177 | Christ Seen as God's Salvation
 
 "My eyes have seen Your Salivation." Luke 2:30.
-
-[Other Sermons by Mr. Spurgeon upon the same text are #1417, Volume 24--"YOUR SALVATION" and #2293, Volume 39-- SIMEON'S SWAN SONG]
 
 THOUSANDS of times that song of Simeon has been sung by careless, thoughtless persons, but surely it is one of those songs that ought never to come except from believing lips. To make it merely a part of a liturgy and for shamelessly living men to say, "My eyes have seen Your Salvation," must be an atrocious sin before God! Let all who have ventured to use such words as these without having thought of their meaning, confess their sin before God and ask that He would make those words to be true which have up to now been so frivolously uttered and that before they close their eyes in death, they maysee God's Salvation!
 

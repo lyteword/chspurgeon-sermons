@@ -1,12 +1,4 @@
-# Delight in the Almighty
-
-(No. 1839)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 3, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1839 | Delight in the Almighty
 
 "For then shall you have your delight in the Almighty, and shall lift up your face unto God." Job 22:26.
 

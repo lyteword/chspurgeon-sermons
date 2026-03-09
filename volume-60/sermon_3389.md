@@ -1,12 +1,4 @@
-# The Soul's Awakening
-
-(No. 3389)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 15, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 3389 | The Soul's Awakening
 
 "Verily, verily, I say unto you, the hour is coming when the dead shall hear the voice of the Son of God, and they that hear shall live." John 5:25.
 

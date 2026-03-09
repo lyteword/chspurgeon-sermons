@@ -1,12 +1,4 @@
-# Faith Tried and Triumphing
-
-(No. 3265)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3265 | Faith Tried and Triumphing
 
 "Though He slays me, yet will I trust in Him." Job 13:15.
 

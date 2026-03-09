@@ -1,12 +1,4 @@
-# "I Have Enough"
-
-(No. 2739)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 11, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 9, 1880.
+# Sermon 2739 | "I Have Enough"
 
 "Esau said, I have enough. Jacob said, I have enough." Genesis 33:9,11.
 

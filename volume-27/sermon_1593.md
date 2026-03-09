@@ -1,12 +1,4 @@
-# Rejecters Of The Gospel Admonished
-
-(No. 1593)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 17, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1593 | Rejecters Of The Gospel Admonished
 
 "To whom He said, This is the rest with which you may cause the weary to rest; and this is the refreshing: yet they would not hear." Isaiah 28:12.
 

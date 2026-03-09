@@ -1,12 +1,4 @@
-# The Two Builders And Their Houses
-
-(No. 918)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 918 | The Two Builders And Their Houses
 
 "Therefore whosoever hears these sayings of Mine, and does them, I will liken him unto a wise man, which built his house upon a rock: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell not: for it was founded upon a rock. And everyone that hears these sayings of Mine, and does them not, shall be likened unto a foolish man, which built his house upon the sand: and the rain descended, and the floods came, and the winds blew, and beat upon that house. And it fell: and great was the fall of it." Matthew 7:24-27.
 

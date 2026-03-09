@@ -1,8 +1,4 @@
-# The Panting Deer
-
-A Sermon (No. 822)
-
-Delivered on Lord's-Day Morning, July 20, 1868, by C. H. SPURGEON, at the [32]Metropolitan Tabernacle, Newington.
+# Sermon 822 | The Panting Deer
 
 "As the deerpants after the water brooks, so pants my soul after You, O God." Psalm 42:1.
 

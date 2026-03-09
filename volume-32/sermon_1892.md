@@ -1,18 +1,4 @@
-# Why They Leave Us
-
-A Sermon
-
-(No. 1892)
-
-Suggested by the death of CHARLES STANFORD, D.D.,
-
-Minister of Denmark Place Chapel, Camberwell,
-
-Delivered on Lord's-day Morning, March 21st, 1886, by
-
-H. SPURGEON,
-
-At [5]the Metropolitan Tabernacle, Newington
+# Sermon 1892 | Why They Leave Us
 
 "Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world."--John 17:24.
 

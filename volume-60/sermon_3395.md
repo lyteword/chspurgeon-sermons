@@ -1,12 +1,4 @@
-# The Savior's Precious Blood
-
-(No. 3395)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 26, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3395 | The Savior's Precious Blood
 
 "Theprecious blood of Christ." 1 Peter 1:19.
 

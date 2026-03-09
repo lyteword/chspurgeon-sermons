@@ -1,14 +1,4 @@
-# Israel's God and God's Israel
-
-A Sermon
-
-(No. 803)
-
-Delivered on Lord's-Day Morning, March 29, 1868, by
-
-H. SPURGEON,
-
-at the [15]Metropolitan Tabernacle, Newington.
+# Sermon 803 | Israel's God and God's Israel
 
 "There is none like unto the God of Jeshurun, who rides upon the Hea ven in your help, and in His excellency on the sky. The eternal God is your refuge, and underneath are the everlasting arms: and He shall thrust out the enemy from before you; and shall say, Destroy them. Israel then shall dwell in safety alone: the fountain of Jacob shall be upon a land of corn and wine; also His heavens shall drop down dew." Deuteronomy 33:26-28.
 

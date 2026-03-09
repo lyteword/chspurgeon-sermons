@@ -1,6 +1,4 @@
-# Adoption--The Spirit and the Cry
-
-Sermon No. 1435 - Delivered on Lord's-Day Morning, April 14th, 1878 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1435 | Adoption--The Spirit and the Cry
 
 > "And because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father."  
 > Galatians 4:6.  

@@ -1,12 +1,4 @@
-# The Cast-Off Sash
-
-(No. 1706)
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1706 | The Cast-Off Sash
 
 "Thus said the Lord unto me, Go and get a linen sash, and put it around your waist, and put it not in water. So I got a sash, according to the word of the Lord, and put it around my waist. And the word of the Lord came unto me the second time, saying, Take the sash that you acquired, which is around your waist, and arise, go to the Euphrates, and hide it there in a hole of the rock. So I went, and hid it by the Euphrates, as the Lord commanded me. And it came to pass after many days, that the Lord said unto me, Arise, go to the Euphrates, and take the sash from there, which I commanded you to hide there. Then I went to the Euphrates, and dug, and took the sash from the place where I had hid it: and, behold, the sash was marred, it was profitable for nothing. Then the word of the Lord came unto me, saying, Thus says the Lord, After this manner willImar thepride of Judah, and the great pride of Jerusalem. This evil people, who refuse to hear My words, who follow the dictates of their hearts and walk after other gods, to serve them, and to worship them, shall even be as this sash, which is good for nothing. For as the sash clings to the waist of a man, so ha ve I caused to cling unto Me the whole house of Israel and the whole house of Judah, says the Lord; that they might be unto Me for a people, and for a name, and for a praise, and for a glory: but they would not hear." Jeremiah 13:1-11.
 

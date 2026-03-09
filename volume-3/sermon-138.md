@@ -1,6 +1,4 @@
-# Prayer&mdash;the Forerunner of Mercy
-
-Sermon No. 138 - Delivered on Sabbath Morning, June 28, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 138 | Prayer&mdash;the Forerunner of Mercy
 
 > Thus saith the Lord God; I will yet for this be enquired of by the house of Israel to do it for them; I will increase them with men like a flock.    
 > Ezekiel 36:37.    

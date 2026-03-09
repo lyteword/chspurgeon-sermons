@@ -1,12 +1,4 @@
-# The Story of a Runaway Slave
-
-(No. 1268)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1268 | The Story of a Runaway Slave
 
 "Perhaps he therefore departed for a season, that you should receive him forever." Philemon 1:15.
 

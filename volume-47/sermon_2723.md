@@ -1,12 +1,4 @@
-# God's Dealings With Egypt and Israel
-
-(No. 2723)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 21, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 27, 1880.
+# Sermon 2723 | God's Dealings With Egypt and Israel
 
 "And smote all the first-born in Egypt; the chief of their strength in the tabernacles of Ham: but made His own people to go forth like sheep, and guided them in the wilderness like a flock." Psalm 78:51, 52.
 

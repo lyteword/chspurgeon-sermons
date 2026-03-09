@@ -1,12 +1,4 @@
-# Both Sides of the Shield
-
-(No. 2233)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 6, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 14, 1891.
+# Sermon 2233 | Both Sides of the Shield
 
 "Then came Amalek, and fought with Israel in Rephidim. And Moses said unto Joshua, Choose us out men, and go out, fight with Amalek: tomorrow I will stand on the top of the hill with the rod of God in my hand." Exodus 17:8,9.
 

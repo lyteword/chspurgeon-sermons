@@ -1,12 +1,4 @@
-# The Harvest and the Vintage
-
-(No. 2910)
-
-A SERMON PUBLISHED ON TUESDAY, NOVEMBER 17, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 17, 1876.
+# Sermon 2910 | The Harvest and the Vintage
 
 "And I looked, and behold a white cloud, and upon the cloud One sat like unto the Son of Man, having on His head a golden crown, and in His hand a sharp sickle. And another angel came out of the temple, crying with a loud voice to Him that sat on the cloud, Thrust in Your sickle, and reap: for the time is come for You to reap; for the harvest of the earth is ripe. And He that sat on the cloud thrust in His sickle on the earth, and the earth was reaped. And another angel came out of the temple which is in Heaven, he also having a sharp sickle. And another angel came out from the altar, which had power over fire; and cried with a loud cry to him that had the sharp sickle, saying, Thrust in your sharp sickle, and gather the clusters of the vine of the earth; for her grapes are fully ripe. And the angel thrust in his sickle into the earth, and gathered the vine of the earth, and cast it into the great winepress of the wrath of God and the winepress was trodden outside the city, and blood came out of the winepress even unto the horse bridles, by the space of a thousand and six hundred furlongs." Revelation 14:14-20.
 

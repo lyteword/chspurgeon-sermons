@@ -1,12 +1,4 @@
-# "My Garden"--"His Garden"
-
-(No. 2475)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 26, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 20, 1882.
+# Sermon 2475 | "My Garden"--"His Garden"
 
 "Awake, O north wind, and come, you south; blow upon my garden, that the spices thereof may flow out. Let my Beloved come into His garden and eat His pleasant fruits." Song of Solomon 4:16.
 

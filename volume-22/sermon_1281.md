@@ -1,12 +1,4 @@
-# "Do You Love Me?"
-
-(No. 1281)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1281 | "Do You Love Me?"
 
 "Simon, son of Jonas, do you love Me?" John 21:16.
 

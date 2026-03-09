@@ -1,12 +1,4 @@
-# Faith Among Mockers
-
-(No. 1767)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1767 | Faith Among Mockers
 
 "He trusted on the Lord that He would deliver Him: let Him deliver Him, seeing He delighted in Him." Psalm 22:8.
 

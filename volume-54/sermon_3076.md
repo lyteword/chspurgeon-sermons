@@ -1,12 +1,4 @@
-# The Cause and Effect of Heart Trouble
-
-(No. 3076)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 23, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 12, 1874.
+# Sermon 3076 | The Cause and Effect of Heart Trouble
 
 "Let not your heart be troubled, neither Jet it be afraid." John 14:27.
 

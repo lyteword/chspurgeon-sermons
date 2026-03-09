@@ -1,12 +1,4 @@
-# God's Glorious and Everlasting Name
-
-(No. 2229)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 8, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 15, 1891.
+# Sermon 2229 | God's Glorious and Everlasting Name
 
 "To make Himself an everlasting name...To make Yourself a glorious name." Isaiah 63:12,14.
 

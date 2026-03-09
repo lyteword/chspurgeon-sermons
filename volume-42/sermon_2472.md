@@ -1,12 +1,4 @@
-# The Best of the Best
-
-(No. 2472)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 19, 1881.
+# Sermon 2472 | The Best of the Best
 
 "I am the rose of Sharon, and the lily of the valleys." Song of Solomon 2:1.
 

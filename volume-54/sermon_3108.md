@@ -1,12 +1,4 @@
-# The House of Mourning and The House of Feasting
-
-(No. 3108)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, SEPTEMBER 3, 1854.
+# Sermon 3108 | The House of Mourning and The House of Feasting
 
 "It is better to go to the house of mourning, than to go to the house of feasting." Ecclesiastes 7:2.
 

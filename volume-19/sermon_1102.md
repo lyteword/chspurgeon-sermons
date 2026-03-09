@@ -1,12 +1,4 @@
-# Royal Homage
-
-(No. 1102)
-
-A SERMON DELIVERED
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1102 | Royal Homage
 
 "And cast their crowns before the Throne." Revelation 4:10.
 

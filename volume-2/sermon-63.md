@@ -1,6 +1,4 @@
-# Marvellous Increase of the Church
-
-Sermon No. 63 - Delivered on Sabbath Morning, January 27, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 63 | Marvellous Increase of the Church
 
 > Who are these that fly as a cloud, and as the doves to their windows?    
 > Isaiah 60:8.    

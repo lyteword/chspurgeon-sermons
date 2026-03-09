@@ -1,12 +1,4 @@
-# Forts Demolished and Prisoners Taken
-
-(No. 1473)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 11, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1473 | Forts Demolished and Prisoners Taken
 
 "Casting down imaginations, and every high thing that exalts itself against the knowledge of God, and bringing into captivity every thought to the obedience of Christ." 2 Corinthians 10:5.
 

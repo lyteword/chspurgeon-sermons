@@ -1,6 +1,4 @@
-# In the Garden With Him
-
-Sermon No. 2106 - Delivered on Thursday, August 8, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2106 | In the Garden With Him
 
 > "One of the servants of the high priest, being his kinsman whose ear Peter cut off, said, Did not I see you in the garden with Him?"  
 > John 18:26  

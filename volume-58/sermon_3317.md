@@ -1,12 +1,4 @@
-# A Sweet Bow
-
-(No. 3317)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3317 | A Sweet Bow
 
 "He delights in mercy." Micah 7:18.
 

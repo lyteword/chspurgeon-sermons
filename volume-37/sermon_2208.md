@@ -1,12 +1,4 @@
-# The Statute of David for the Sharing of the Spoil
-
-(No. 2208)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 7, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2208 | The Statute of David for the Sharing of the Spoil
 
 "And David came to the two hundred men, which were so faint that they could not follow David, whom they had made also to abide at the brook Besor: and they went forth to meet David, and to meet the people that were with him: and when David came near to the people, he saluted them. Then answered all the wicked men and men of Belial, of those that went with David, and said, Because they went not with us, we will not give them any of the spoil that we have recovered, save to every man his wife and his children, that they may lead them away, and depart. Then said David, You shall not do so, my Brethren, with that which the Lord has given us, who has preserved us, and delivered the company that came against us into our hands. For who will hearken unto you in this matter? But as his part is that goes down to the battle so shall his part be that tarries by the stuff: they shall part alike. And it was so from that day forward, that he made it a statute and an ordinance for Israel unto this day." 1 Samuel 30:21-26.
 

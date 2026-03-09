@@ -1,6 +1,4 @@
-# A Revival Sermon
-
-Sermon No. 296 - Delivered on Sabbath Morning, January 26th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 296 | A Revival Sermon
 
 > Behold, the days come, saith the Lord, that the plowman shall overtake the reaper, and the treader of grapes him that soweth seed; and the mountains shall drop sweet wine, and all the hills shall melt.    
 > Amos 9:13.    

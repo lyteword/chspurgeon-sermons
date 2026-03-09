@@ -1,12 +1,4 @@
-# Satan, Self, Sin and the Savior
-
-(No. 3306)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 13, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 19, 1866.
+# Sermon 3306 | Satan, Self, Sin and the Savior
 
 "And He asked him, What is your name? And he answered, saying, My name is Legion: for we are many." Mark 5:9.
 

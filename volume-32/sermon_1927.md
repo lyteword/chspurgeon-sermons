@@ -1,12 +1,4 @@
-# Our Sympathizing High Priest
-
-(No. 1927)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 31, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1927 | Our Sympathizing High Priest
 
 "Who in the days of His flesh, when He had offered up prayers and supplication, with strong crying and tears unto Him that was able to sa ve Him from death, and was heard in that He feared; though He were a Son, yet He learned obedience by the things which He suffered and, being made perfect, He became the Author of eternal salvation unto all who obey Him, called by God as High Priest after the order of Melchisedec." Hebrews 5:7-10.
 

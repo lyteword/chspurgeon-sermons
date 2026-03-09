@@ -1,12 +1,4 @@
-# The Covenant Promise of the Spirit
-
-(No. 2200)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2200 | The Covenant Promise of the Spirit
 
 "And I will put My Spirit within you." Ezekiel 36:27.
 

@@ -1,12 +1,4 @@
-# Daniel--a Pattern for Pleaders
-
-(No. 3484)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 4, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 25, 1870.
+# Sermon 3484 | Daniel--a Pattern for Pleaders
 
 "O Lord, hear; O Lord, forgive; O Lord, listen and do; defer not, for Your own sake, O my God, for Your city and Your people are called by Your name." Daniel 9:19.
 

@@ -1,18 +1,4 @@
-# Immeasurable Love
-
-A Sermon
-
-(No. 1850)
-
-Intended for reading on Lord's-Day, July 26th, 1885,
-
-Delivered by
-
-H. SPURGEON,
-
-At [14]the Metropolitan Tabernacle, Newington,
-
-On the evening of June 7th, 1885
+# Sermon 1850 | Immeasurable Love
 
 "For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life."--John 3:16
 

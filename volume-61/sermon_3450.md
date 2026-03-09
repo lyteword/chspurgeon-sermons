@@ -1,12 +1,4 @@
-# Dangerous Lingering
-
-(No. 3450)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3450 | Dangerous Lingering
 
 "He lingered." Genesis 19:16.
 

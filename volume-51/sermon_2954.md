@@ -1,12 +1,4 @@
-# The Big Gates Wide Open
-
-(No. 2954)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 6, 1875.
+# Sermon 2954 | The Big Gates Wide Open
 
 "All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out." John 6:37.
 

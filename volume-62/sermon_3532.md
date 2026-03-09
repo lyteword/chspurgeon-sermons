@@ -1,12 +1,4 @@
-# Christ's Great Mission
-
-(No. 3532)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3532 | Christ's Great Mission
 
 "Even as the Son of Man came not to be served, but to serve, and to give His Life a ransom for many." Matthew 20:28.
 

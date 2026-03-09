@@ -1,12 +1,4 @@
-# Man Transient--god's Word Eternal
-
-(No. 3439)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 26, 1868.
+# Sermon 3439 | Man Transient--god's Word Eternal
 
 "The grass withers, the flower fades; but the Word of our God stands forever." Isaiah 40:8.
 

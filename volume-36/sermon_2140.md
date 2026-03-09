@@ -1,6 +1,4 @@
-# A Homily for Humble Folks
-
-Sermon No. 2140 - Delivered on Sunday Morning, April 27th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2140 | A Homily for Humble Folks
 
 > "Surely I am more stupid than any man, and have not the understanding of a man."  
 > Proverbs 30:2.  

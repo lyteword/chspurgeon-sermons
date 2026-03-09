@@ -1,12 +1,4 @@
-# A Command and a Promise
-
-(No. 3212)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 25, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 19, 1863.
+# Sermon 3212 | A Command and a Promise
 
 "Draw near to God, and He will draw near to you." James 4:8.
 

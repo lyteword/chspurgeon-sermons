@@ -1,12 +1,4 @@
-# The Model Home Mission and the Model Home Missionary
-
-(No. 929)
-
-DELIVERED ON THURSDAY EVENING, APRIL 14, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON,
+# Sermon 929 | The Model Home Mission and the Model Home Missionary
 
 "Who went about doing good." Acts 10:38.
 

@@ -1,12 +1,4 @@
-# Covenant Blessings
-
-(No. 2681)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 1, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1858.
+# Sermon 2681 | Covenant Blessings
 
 "He has given meat unto them that fear Him: He will always be mindful of His Covenant." Psalm 111:5.
 

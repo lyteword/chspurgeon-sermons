@@ -1,12 +1,4 @@
-# Saints Guarded From Stumbling
-
-(No. 2296)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 19, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2296 | Saints Guarded From Stumbling
 
 "Now unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and forever. Amen." Jude 1:24,25.
 

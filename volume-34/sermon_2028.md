@@ -1,6 +1,4 @@
-# The Love of God and the Patience of Christ
-
-Sermon No. 2028 - Delivered on Sunday Morning, June 17th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2028 | The Love of God and the Patience of Christ
 
 > "And the Lord direct your hearts into the love of God, and into the patient waiting for Christ."  
 > 2 Thessalonians 3:5.  

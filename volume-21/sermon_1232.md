@@ -1,12 +1,4 @@
-# Solomon's Plea
-
-(No. 1232)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 2, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1232 | Solomon's Plea
 
 "For You did separate them from among all the people of the earth, to be Your inheritance" 1 Kings 8:53.
 

@@ -1,12 +1,4 @@
-# On Laying Foundations
-
-(No. 1702)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 21, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1702 | On Laying Foundations
 
 "And why do you call Me, Lord, Lord, and not do the things which I say? Whoever comes to Me, and hears My sayings, and does them, I will show you whom he is like: he is like a man which built a house, and dug deep, and laid the foundation on a rock: and when the flood arose, the stream beat vehemently upon that house, and could not shake it: for it was founded upon a rock. But he that hears, and does not, is like a man that without a foundation built a house upon the earth; against which the stream did beat vehemently, and immediately it fell; and the ruin of that house was great." Luke 6:46-49.
 

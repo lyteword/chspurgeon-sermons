@@ -1,14 +1,4 @@
-# Resurrection With Christ
-
-A Sermon
-
-(No. 805)
-
-Delivered on Lord's-Day Morning, April 12, 1868, by
-
-H. SPURGEON,
-
-at the [16]Metropolitan Tabernacle, Newington.
+# Sermon 805 | Resurrection With Christ
 
 "But God, who is rich in mercy, because of His great love with which He loved us, even when we were dead in sins, has quickened us together with Christ, (by Grace you are saved)." Ephesians 2:4, 5.
 

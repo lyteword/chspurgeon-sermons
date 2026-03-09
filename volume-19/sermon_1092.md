@@ -1,12 +1,4 @@
-# A Holy Celebration
-
-(No. 1092)
-
-A SERMON DELIVERED BY
-
-REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1092 | A Holy Celebration
 
 "It is a night to be much observed unto the Lord." Exodus 12:42.
 

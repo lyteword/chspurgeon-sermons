@@ -1,12 +1,4 @@
-# The Multitude Before the Throne
-
-(No. 3403)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 23, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3403 | The Multitude Before the Throne
 
 "After this Ibeheld, and lo, a great multitude, which no man could number, of allnations, tribes, people and tongues stood before the Throne, and before the Lamb, clothed with white robes, and palms in their hands, and cried with a loud voice, saying, Salvation to our God which sits upon the Throne, and unto the Lamb." Revelation 7:9,10.
 

@@ -1,12 +1,4 @@
-# Enquiring of God
-
-(No. 2996)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 12, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 10, 1863.
+# Sermon 2996 | Enquiring of God
 
 "And it came to pass after this, that David enquired of the LORRD, saying, Shall I go up to any of the cities of Judah?" 2 Samuel 2:1.
 

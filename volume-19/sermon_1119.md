@@ -1,12 +1,4 @@
-# The Spur
-
-(No. 1119)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1119 | The Spur
 
 "Whatever your hand finds to do, do it with allyour might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, where you go." Ecclesiastes 9:10.
 

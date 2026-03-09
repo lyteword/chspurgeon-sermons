@@ -1,12 +1,4 @@
-# The Believer's Heritage of Joy
-
-(No. 2415)
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 2, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 22, 1887.
+# Sermon 2415 | The Believer's Heritage of Joy
 
 "Your testimonies have I taken as an heritage forever: for they are the rejoicing of my heart." Psalm 119:111.
 

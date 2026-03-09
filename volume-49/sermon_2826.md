@@ -1,12 +1,4 @@
-# The King in Pilate's Hall
-
-(No. 2826)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 4, 1884.
+# Sermon 2826 | The King in Pilate's Hall
 
 "Pilate therefore said unto Him, Are You a king, then? Jesus answered, You say that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the Truth. Everyone that is of the Truth hears My voice." John 18:37.
 

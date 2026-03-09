@@ -1,12 +1,4 @@
-# The Education of Sons of God
-
-(No. 2722)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 14, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 10, 1880.
+# Sermon 2722 | The Education of Sons of God
 
 "Though He were a Son, yet learned He obedience by the things which He suffered." Hebrews 5:8.
 

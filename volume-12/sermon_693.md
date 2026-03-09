@@ -1,6 +1,4 @@
-# The Garden Of The Soul
-
-Sermon No. 693 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 693 | The Garden Of The Soul
 
 > "A place called Gethsemane."  
 > Matthew 26:36.  

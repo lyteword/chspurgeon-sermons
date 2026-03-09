@@ -1,12 +1,4 @@
-# Christ and His Hearers
-
-(No. 3410)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 11, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3410 | Christ and His Hearers
 
 "Then drew near unto Him all the publicans and sinners to hear Him, and the Pharisees and Scribes murmured, saying, This Man receives sinners and eats with them." Luke 15:1,2.
 

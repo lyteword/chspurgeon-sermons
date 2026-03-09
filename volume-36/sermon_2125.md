@@ -1,9 +1,4 @@
-# Hope for Your Future
-
-Sermon No. 2125 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-
-> ""  
-> e.  
+# Sermon 2125 | Hope for Your Future
 
 We knew, then, we were newly cleansed sinners! Oh, that blessed period! Our earthly comforts were forgotten in the greater sweetness and our earthly sorrows ceased because guilt was gone. Taken out of the bonds of iniquity, our hearts danced at the very sound of the redeeming name. We sang, "I am forgiven! I am forgiven!" We wanted to tell the angels this strange wonder of almighty love. That was one of the good things of our beginning. We recollect very well, too, that we had, then, a delicious enjoyment of the good things of the Covenant of Grace. We did not know a tenth of what we know now, but we intensely enjoyed what we did know.
 

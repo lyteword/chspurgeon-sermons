@@ -1,12 +1,4 @@
-# Forgetting God
-
-(No. 2975)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY MORNING, SEPTEMBER 9, 1876.
+# Sermon 2975 | Forgetting God
 
 "Therefore have they forgotten Me." Hosea 13:6.
 

@@ -1,6 +1,4 @@
-# The Golden Key Of Prayer
-
-Sermon No. 619 - Delivered on Sunday Morning, March 12th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 619 | The Golden Key Of Prayer
 
 > Call unto Me and I will answer you and show you great and mighty things, which you know not.    
 > Jeremiah 33:3.    

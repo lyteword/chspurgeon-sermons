@@ -1,12 +1,4 @@
-# Christ's Transfigured Face
-
-(No. 2729)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 2, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1880.
+# Sermon 2729 | Christ's Transfigured Face
 
 "His face did shine as the sun." Matthew 17:2.
 

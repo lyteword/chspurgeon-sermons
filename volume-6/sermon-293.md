@@ -1,6 +1,4 @@
-# The King's Highway Opened and Cleared
-
-Sermon No. 293 - Delivered on Sabbath Morning, January 8th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 293 | The King's Highway Opened and Cleared
 
 > And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.    
 > Acts. 16:31.    

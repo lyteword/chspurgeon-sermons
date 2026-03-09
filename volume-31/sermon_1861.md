@@ -1,7 +1,4 @@
-# The Lowly King
-
-Sermon No. 1861 - Delivered on Thursday Evening, June 25th, 1885 the REV. C.H. SPURGEON at the [15]Metropolitan Tabernacle, Newington.
-(No. 1861)
+# Sermon 1861 | The Lowly King
 
 DO not intend to expound the whole text at any length, but simply to dwell upon the lowliness of Jesus. Yet this much I may say: whenever God would have his people especially glad, it is always in himself. If it be written, "Rejoice greatly," then the reason is, "Behold, thy King cometh unto thee!" Our chief source of rejoicing is the presence of King Jesus in the midst of us. Whether it be his first or his second advent, his very shadow is delight. His footfall is music to our ear.
 

@@ -1,12 +1,4 @@
-# The Two Appearings and the Discipline of Grace
-
-(No. 1894)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1894 | The Two Appearings and the Discipline of Grace
 
 "For the Grace of God that brings salvation has appeared to all men, teaching us that denying ungodliness and worldly lusts, we should live soberly, righteously and godly in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Savior Jesus Christ, who gave Himself for us, that He might redeem us from alliniquity, and purify unto Himself a peculiar people, zealous of good works." Titus 2:11-14.
 

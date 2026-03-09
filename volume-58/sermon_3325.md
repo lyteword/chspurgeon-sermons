@@ -1,12 +1,4 @@
-# Solace for Sad Hearts
-
-(No. 3325)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 24, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3325 | Solace for Sad Hearts
 
 "To console them that mourn in Zion." Isaiah 61:3.
 

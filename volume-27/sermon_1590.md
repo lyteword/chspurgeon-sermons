@@ -1,12 +1,4 @@
-# The Barrier
-
-(No. 1590)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 27, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1590 | The Barrier
 
 "And there shall in nowise enter into it anything that defiles, neither whatever works abomination, or makes a lie: but they which are written in the Lamb's Book of Life." Revelation 21:27.
 

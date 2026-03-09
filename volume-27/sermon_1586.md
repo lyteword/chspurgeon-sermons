@@ -1,12 +1,4 @@
-# Holy Longings
-
-(No. 1586)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 27, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1586 | Holy Longings
 
 "My soul breaks with longing for Your Judgments at all times." Psalm 119:20.
 

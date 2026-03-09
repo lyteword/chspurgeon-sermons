@@ -1,12 +1,4 @@
-# Gathering Without Planting
-
-(No. 3248)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 4, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 26, 1879.
+# Sermon 3248 | Gathering Without Planting
 
 "You eat of the vineyards and olive groves which you did not plant." Joshua 24:13.
 

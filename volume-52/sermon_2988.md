@@ -1,12 +1,4 @@
-# Great Pardon for Great Sin
-
-(No. 2988)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 17, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
+# Sermon 2988 | Great Pardon for Great Sin
 
 "For Your name's sake, O Lord, pardon my iniquity, for it is great." Psalm 25:11.
 

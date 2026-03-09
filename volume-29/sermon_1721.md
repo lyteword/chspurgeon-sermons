@@ -1,12 +1,4 @@
-# Glory!
-
-(No. 1721)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 20, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1721 | Glory!
 
 "Who has called us unto His eternal glory." 1 Peter 5:10.
 

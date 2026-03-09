@@ -1,12 +1,4 @@
-# Behold The Lamb!
-
-(No. 1060)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 14 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1060 | Behold The Lamb!
 
 "Behold the Lamb of God!" John 1:36.
 

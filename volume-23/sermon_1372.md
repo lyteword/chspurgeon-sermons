@@ -1,12 +1,4 @@
-# God Our Portion and His Word Our Treasure
-
-(No. 1372)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 2, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1372 | God Our Portion and His Word Our Treasure
 
 "You are my portion, O Lord: I have said that I would keep Your Words." Psalm 119:57.
 

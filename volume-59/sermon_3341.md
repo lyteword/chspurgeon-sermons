@@ -1,12 +1,4 @@
-# "The Oil of Joy for Mourning"
-
-(No. 3341)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 13, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3341 | "The Oil of Joy for Mourning"
 
 "The oil of joy for mourning." Isaiah 61:3.
 

@@ -1,12 +1,4 @@
-# Christ Receiving Sinners
-
-(No. 2889)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 23, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
+# Sermon 2889 | Christ Receiving Sinners
 
 "And it came to pass, as Jesus sat at the table in the house, behold, manypublicans and sinners came and sat down with Him and His disciples." Matthew 9:10.
 

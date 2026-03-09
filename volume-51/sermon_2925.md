@@ -1,12 +1,4 @@
-# Reasons For Doubting Christ
-
-(No. 2925)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 2, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SUNDAY EVENING, NOVEMBER 26, 1876.
+# Sermon 2925 | Reasons For Doubting Christ
 
 "Why did you doubt?" Matthew 14:31.
 

@@ -1,12 +1,4 @@
-# A Question for You
-
-(No. 3132)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 18, 1909.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 9, 1874.
+# Sermon 3132 | A Question for You
 
 "Do you believe on the Son of God?" John 9:35.
 

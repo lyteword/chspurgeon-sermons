@@ -1,6 +1,4 @@
-# The Character of Christ's People
-
-Sermon No. 78 - Delivered on Thursday Evening, November 22, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 78 | The Character of Christ's People
 
 > They are not of the world, even as I am not of the world.    
 > John 17:16.    

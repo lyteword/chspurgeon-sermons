@@ -1,8 +1,4 @@
-# Effectual Calling--Illustrated by the Call of Abram
-
-A Sermon (No. 843)
-
-Delivered on Lord's-Day Morning, November 29, 1868, by C. H. SPURGEON, at the [50]Metropolitan Tabernacle, Newington.
+# Sermon 843 | Effectual Calling--Illustrated by the Call of Abram
 
 "They went forth to go into the land of Canaan; and into the land of Canaan they came.'" Genesis 12:5.
 

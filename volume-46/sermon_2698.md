@@ -1,12 +1,4 @@
-# The First and the Second
-
-(No. 2698)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 28, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 9, 1881.
+# Sermon 2698 | The First and the Second
 
 "He takes away the first, that He may establish the second." Hebrews 10:9.
 

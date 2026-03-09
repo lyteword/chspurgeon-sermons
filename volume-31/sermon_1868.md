@@ -1,12 +1,4 @@
-# Death and Life--the Wage and the Gift
-
-(No. 1868)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 1, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1868 | Death and Life--the Wage and the Gift
 
 "For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord." Romans 6:23.
 

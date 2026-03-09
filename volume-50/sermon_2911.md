@@ -1,12 +1,4 @@
-# "Cases of Conscience"
-
-(No. 2911)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 24, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1862.
+# Sermon 2911 | "Cases of Conscience"
 
 "For my iniquities are gone over my head: as a heavy burden they are too heavy for me." Psalm 38:4.
 

@@ -1,12 +1,4 @@
-# The Beloved Pastor's Plea for Unity
-
-(No. 2320)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 6, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 7, 1889.
+# Sermon 2320 | The Beloved Pastor's Plea for Unity
 
 "To all that are in Rome, beloved of God, called to be saints: Grace to you and peace from God our Father, and the Lord Jesus Christ." Romans 1:7.
 

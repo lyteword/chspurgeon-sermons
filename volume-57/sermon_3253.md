@@ -1,12 +1,4 @@
-# Faith Hand in Hand With Fear
-
-(No. 3253)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 8, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3253 | Faith Hand in Hand With Fear
 
 "What time I am afraid, I will trust in You." Psalm 56:3.
 

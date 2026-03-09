@@ -1,12 +1,4 @@
-# Priest and Victim
-
-(No. 2693)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 23, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 28, 1881.
+# Sermon 2693 | Priest and Victim
 
 "He offered up Himself." Hebrews 7:27.
 

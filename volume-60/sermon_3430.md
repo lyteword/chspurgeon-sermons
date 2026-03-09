@@ -1,12 +1,4 @@
-# Chiding and Cheering
-
-(No. 3430)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3430 | Chiding and Cheering
 
 "Have I been with you so long, and yet have you not known Me, Philip?" John 14:9.
 

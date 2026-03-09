@@ -1,12 +1,4 @@
-# Five Divine Declarations
-
-(No. 2793)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 24, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 15, 1878.
+# Sermon 2793 | Five Divine Declarations
 
 "Surely, shall one say, in the LORD I have righteousness and strength: even to Him shall men come; and all that are incensed against Him shall be ashamed. In the LORD all the seed of Israel shall be justified, and shall glory." Isaiah 45:24,26.
 

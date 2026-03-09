@@ -1,12 +1,4 @@
-# To Those Who Are Angry With Their Godly Friends
-
-(No. 1929)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1929 | To Those Who Are Angry With Their Godly Friends
 
 "And the Lord said unto Cain, Why are you angry? And why is your countenance fallen? If you do well, will you not be accepted? And if you do not do well, sin lies at the door. And unto you shall be his desire and you shall rule over him." Genesis 4:6, 7.
 

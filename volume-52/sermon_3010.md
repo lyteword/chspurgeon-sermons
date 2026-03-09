@@ -1,12 +1,4 @@
-# Jacob's Model Prayer
-
-(No. 3010)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 18, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 16, 1867.
+# Sermon 3010 | Jacob's Model Prayer
 
 And Jacob said, O God of my father Abraham, and God of my father Isaac, the LORD who said unto me, Return unto your country, and to your kindred, and I will deal well with you: I am not worthy of the least of all the mercies, and of all the truth which You have showed unto Your servant, for with my staff I passed over this Jordan, and now I am become two bands. Deliver me, I pray You, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, and the mother with the children. And You said, I will surely do you good, and make your seed as the sand of the sea, which cannot be numbered for multitude."
 

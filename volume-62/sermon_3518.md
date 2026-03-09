@@ -1,12 +1,4 @@
-# The Powerful Truth of God
-
-(No. 3518)
-
-A SERMON PUBLISHED ON THURSDAY JUNE 29, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, FEBRUARY 11, 1872.
+# Sermon 3518 | The Powerful Truth of God
 
 "Many of them also which used curious arts brought their books together and burned them before all men and they counted the price of them, and found it fifty thousand pieces of silver. So mightily grew the Word of God and prevailed." Acts 19:19,20.
 

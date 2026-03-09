@@ -1,6 +1,4 @@
-# How Hearts Are Softened
-
-Sermon No. 1983 - Delivered on Sunday Morning, September 18th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1983 | How Hearts Are Softened
 
 > "And I will pour on the house of David and on the inhabitants of Jerusalem the Spirit of grace and of supplications: then they will look upon Me whom they have pierced, and they shall mourn for Him as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his first-born. In that day shall there be a great mourning in Jerusalem, as the mourning of Hadad Rimmon in the valley of Megiddo."  
 > Zechariah 12:10,11.  

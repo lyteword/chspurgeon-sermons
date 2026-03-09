@@ -1,12 +1,4 @@
-# Life More Abundant
-
-(No. 1150)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 4, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1150 | Life More Abundant
 
 "I am come that they might ha ve life, and that they might have it more abundantly." John 10:10.
 

@@ -1,12 +1,4 @@
-# The Novelties of Divine Mercy
-
-(No. 3170)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 11, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3170 | The Novelties of Divine Mercy
 
 "His compassions...are new every morning: great is Your faithfulness." Lamentations 3:22,23.
 

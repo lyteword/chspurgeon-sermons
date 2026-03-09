@@ -1,14 +1,4 @@
-# Nearer and Dearer
-
-A sermon
-
-(No. 793)
-
-Delivered on Lord's-Day Morning, February 2, 1868, by
-
-H. SPURGEON
-
-at the [6]Metropolitan Tabernacle, Newington.
+# Sermon 793 | Nearer and Dearer
 
 "I sleep, but my heart wakes: it is the voice of my beloved that knocks, saying, Open to me, my sister, my love, my dove, my undefiled: for my head is filled with dew, and my locks with the drops of the night. I have put off my coat; how shall I put it on? I have washed my feet; how shall I defile them? My beloved put his hand by the hole of the door, and my heart was moved for him. I rose up to open to my beloved; and my hands dropped with myrrh, and my fingers with sweet smelling myrrh, upon the handles of the lock. I opened to my beloved; but my beloved had withdrawn himself, and was gone: my soul failed when he spoke: I sought him, but I could not find him; I called him, but he gave me no answer. The watchmen that want about the city found me, they smote me, they wounded me; the keepers of the walls took away my veil from me. I charge you, O daughters of Jerusalem, if you find my beloved, that you tell him that I am sick of love." Song of Solomon 5:2-8.
 

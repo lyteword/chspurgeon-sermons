@@ -1,12 +1,4 @@
-# Filling the Empty Vessels
-
-(No. 1712)
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 17, 1882,
-
-BY C, H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1712 | Filling the Empty Vessels
 
 "But my God shall supply all your need according to His riches in glory by Christ Jesus." Philippians 4:19.
 

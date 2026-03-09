@@ -1,12 +1,4 @@
-# The Ever-Living Priest
-
-(No. 1915)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1915 | The Ever-Living Priest
 
 "And they truly were many priests, because they were not suffered to continue by reason of death: but this Man, because He continues forever, has an unchangeable priesthood. Therefore He is able to sa ve them to the uttermost who come to God by Him, seeing He lives forever to make intercession for them." Hebrews 7:23-25.
 

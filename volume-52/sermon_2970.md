@@ -1,12 +1,4 @@
-# God's Jewels
-
-(No. 2970)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2970 | God's Jewels
 
 "And they shall be Mine, says the LORD of Hosts, in that day when I make up My jewels." Maalachi 3:17.
 

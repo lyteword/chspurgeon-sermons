@@ -1,12 +1,4 @@
-# The Divine Discipline
-
-(No. 3335)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 2, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 9, 1867.
+# Sermon 3335 | The Divine Discipline
 
 "As am eagle stirs up her nest, flutters over her young, spreads abroad her wings, takes them, bears them on her wings: so the Lord alone did lead him, and there was no strange god with him." Deuteronomy 32:11,12.
 

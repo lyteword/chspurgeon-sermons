@@ -1,6 +1,4 @@
-# Gethsemane
-
-Sermon No. 493 - Delivered on Sunday Morning, February 8th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 493 | Gethsemane
 
 > "And being in an agony he prayed more earnestly: and his sweat was as it were great drops of blood falling down to the ground."  
 > Luke 22:44.  

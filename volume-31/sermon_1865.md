@@ -1,12 +1,4 @@
-# The Nobleman's Faith
-
-(No. 1865)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 11, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1865 | The Nobleman's Faith
 
 "There was a certain nobleman, whose son was sick at Capernaum. When he heard that Jesus was come out of Judea into Galilee, he went unto Him, and besought Him that He would come down, and heal his son: for he was at thepoint of death. Then said Jesus unto him, Except you see signs and wonders, you will not believe. The nobleman said unto Him, Sir, come down before my child dies. Jesus said unto him, Go your way, your son lives. And the man believed the word that Jesus had spoken unto him and he went his way. And as he was now going down, his servants met him, and told him, saying, Your son lives. Then inquired he of them the hour when he began to mend. And they said unto him, yesterday at the seventh hour the fever left him. So the father knew that it was at the same hour in which Jesus said unto him, Your Son lives: and he believed, and his whole house." John 4:46-53.
 

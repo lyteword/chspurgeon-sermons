@@ -1,8 +1,4 @@
-# The Pleiades and Orion
-
-A Sermon (No. 818)
-
-Delivered on Lord's-Day Morning, June 28, 1868, by C. H. SPURGEON, at the [28]Metropolitan Tabernacle, Newington.
+# Sermon 818 | The Pleiades and Orion
 
 "Can you bind the sweet influences of Pleiades, or loose the bands of Orion?" Job 38:31.
 

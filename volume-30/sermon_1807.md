@@ -1,12 +1,4 @@
-# A Call to the Lord's Own Flock
-
-(No. 1807)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1807 | A Call to the Lord's Own Flock
 
 "Thus shall they know that I, the Lord their God, am with them, and that they, the house of Israel, are My people, says the Lord God. And you are My flock, the flock of My pasture, you are men, and I am your God, says the Lord God." Ezekiel 34:30,31.
 

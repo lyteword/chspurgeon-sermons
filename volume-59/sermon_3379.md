@@ -1,12 +1,4 @@
-# Rough, But Friendly
-
-(No. 3379)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 6, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3379 | Rough, But Friendly
 
 "Then Joseph commanded to fill their sacks with corn, and to restore every man's money into his sack, and to give them provisions for the way: and thus did he unto them." Genesis 42:25.
 

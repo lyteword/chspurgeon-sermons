@@ -1,12 +1,4 @@
-# Our Sanctuary
-
-(No. 1786)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 15, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1786 | Our Sanctuary
 
 "A glorious high throne from the beginning is the place of our sanctuary. O LORD, the hope of Israel, all that forsake You shall be ashamed, and they that depart from Me shall be written in the earth because they have forsaken the LORD, the fountain of living waters. Heal me, O LORD, and I shall be healed, save me, and I shall be saved: for You are my praise." Jeremiah 17:12,13,14.
 

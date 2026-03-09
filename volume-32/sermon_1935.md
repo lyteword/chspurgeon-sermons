@@ -1,12 +1,4 @@
-# "Where Are The Nine?"--or, Praise Neglected
-
-(No. 1935)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1886, DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 7, 1886.
+# Sermon 1935 | "Where Are The Nine?"--or, Praise Neglected
 
 "And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face atHis feet, givingHim thanks. Andhe was a Samaritan. And Jesus answering said, Were there not 10 cleansed? But where are the nine? Were there not any found that returned to give glory to God, except this foreigner? And He said to him, Arise, go your way: your faith has made you whole." Luke 17:15 -19.
 

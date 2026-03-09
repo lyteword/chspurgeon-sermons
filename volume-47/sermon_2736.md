@@ -1,12 +1,4 @@
-# The Great Miracle Worker
-
-(No. 2736)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 21, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 21, 1880.
+# Sermon 2736 | The Great Miracle Worker
 
 "Then gathered the chief priests and the Pharisees a council, and said, What shall we do? For this Man does many miracles." John 11:47.
 

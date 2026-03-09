@@ -1,12 +1,4 @@
-# Opening the Mouth
-
-(No. 1221)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1221 | Opening the Mouth
 
 "Open your mouth wide, and I will fill it." Psalm 81:10.
 

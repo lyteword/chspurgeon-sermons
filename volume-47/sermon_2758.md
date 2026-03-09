@@ -1,12 +1,4 @@
-# "Return Unto Your Rest"
-
-(No. 2758)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 22, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 7, 1879.
+# Sermon 2758 | "Return Unto Your Rest"
 
 "Return to your rest, O my soul; for the Lord hats dealt bountifully with you." Psalm 116:7.
 

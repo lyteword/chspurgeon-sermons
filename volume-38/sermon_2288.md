@@ -1,12 +1,4 @@
-# The Empty Place--a Christmas Day Sermon
-
-(No. 2288)
-
-INTENDED ON READING ON LORD'S-DAY, DECEMBER 25, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A CHRISTMAS DAY EVENING.
+# Sermon 2288 | The Empty Place--a Christmas Day Sermon
 
 "And David's place was empty." 1 Samuel 20:25.
 

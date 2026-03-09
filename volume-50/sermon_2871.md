@@ -1,12 +1,4 @@
-# Anxiety, Ambition, Indecision
-
-(No. 2871)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 18, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 27, 1876.
+# Sermon 2871 | Anxiety, Ambition, Indecision
 
 "Neither be you of a doubtful mind." Luke 12:29.
 

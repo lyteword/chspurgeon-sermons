@@ -1,12 +1,4 @@
-# Dagon's Ups and Downs
-
-(No. 1342)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1342 | Dagon's Ups and Downs
 
 "When the Philistines took the Ark of God, they brought it into the house of Dagon, and set it by Dagon. And when they of Ashdod arose early on the morrow, behold, Dagon was fallen upon his face to the earth before the Ark of the Lord. And they took Dagon, and set him in his place again. And when they arose early on the morrow morning, behold, Dagon was fallen upon his face to the ground before the Ark of the Lord; and the head of Dagon and both the palms of his hands were cut off upon the threshold; only the stump of Dagon was left to him." 1 Samuel 5:2-4.
 

@@ -1,6 +1,4 @@
-# Brought Up from the Horrible Pit
-
-Sermon No. 1674 - Delivered on Lord's-Day Morning, August 13th, 1882 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1674 | Brought Up from the Horrible Pit
 
 I waited patiently for the LORD; and he inclined unto me, and heard my cry. He brought me up also out of an horrible pit, out of the miry clay, and set my feet upon a rock, and established my goings. And he hath put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the Lord.'Psalm 40:1-3.
 

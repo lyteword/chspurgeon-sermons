@@ -1,12 +1,4 @@
-# The Message from the Lord's Mouth
-
-(No. 1431)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 1, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1431 | The Message from the Lord's Mouth
 
 "Son of man I have made you a watchman for the house of Israel: therefore hear the word from My mouth, and give them warning from Me." Ezekiel 3:17.
 

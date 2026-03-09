@@ -1,12 +1,4 @@
-# The Gospel in Power
-
-(No. 3551)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 28, 1872.
+# Sermon 3551 | The Gospel in Power
 
 "For our Gospel came not unto you in word only," etc., [down to] "from the wrath to come" 1 Thessalonians 1:5-10.
 

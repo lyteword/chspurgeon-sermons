@@ -1,12 +1,4 @@
-# A Sabbath Miracle
-
-(No. 2891)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 11, 1876.
+# Sermon 2891 | A Sabbath Miracle
 
 "And He was teaching in one of the synagogues on the Sabbath. And, behold, there was a woman which had a spirit ofinfrmity eighteen years, and was bowed together, and could in no wise lift herself up. And when Jesus sawher, He called her to Him and said unto her, Woman, you are loosed f-omt your infirmity. And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:10-13.
 

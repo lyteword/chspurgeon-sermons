@@ -1,12 +1,4 @@
-# The Drawings of Love
-
-(No. 3561)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 26, 1917.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3561 | The Drawings of Love
 
 "The Lord has appeared of old unto me, saying, Yes, Ihave loved you with an everlasting love; therefore, with loving kindness have I drawn you." Jeremiah 31:3.
 

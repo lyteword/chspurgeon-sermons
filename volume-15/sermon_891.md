@@ -1,7 +1,4 @@
-# The Vital Force
-
-Sermon No. 891 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 891 | The Vital Force
 
 "Now, the just shall live by faith."- Hebrews 10:38.
 

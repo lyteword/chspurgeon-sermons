@@ -1,12 +1,4 @@
-# Twelve Covenant Mercies
-
-(No. 2316)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 9, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 30, 1889.
+# Sermon 2316 | Twelve Covenant Mercies
 
 "Incline your ear, and come unto Me: hear, and your soul shall live: and I will make an everlasting Covenant with you, even the sure mercies of David." Isaiah 55:3.
 

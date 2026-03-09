@@ -1,6 +1,4 @@
-# Predestination and Calling
-
-Sermon No. 241 - Delivered on Sabbath Morning, March 6th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 241 | Predestination and Calling
 
 > Moreover whom he did predestinate, them he also called.    
 > Romans 8:30    

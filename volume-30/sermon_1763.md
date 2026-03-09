@@ -1,6 +1,4 @@
-# Knowledge. Worship. Gratitude.
-
-Sermon No. 1763 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1763 | Knowledge. Worship. Gratitude.
 
 So that they are without excuse: because that, when they knew God, they glorified him not as God, neither were thankful.'Romans 1:20, 21
 

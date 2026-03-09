@@ -1,12 +1,4 @@
-# A Proclamation from the King of Kings
-
-(No. 1833)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON OCTOBER 16, 1884.
+# Sermon 1833 | A Proclamation from the King of Kings
 
 "Go and proclaim these words toward the north, and say, Return, you backsliding Israel, says the Lord; and I will not cause My anger to fall upon you: for I am merciful, says the Lord, and I will not remain angry forever. Only acknowledge your iniquity, that you have transgressed against the Lord your God, and have scattered your ways to the strangers under every green tree, and you have not obeyed My voice, says the Lord." Jeremiah 3:12,13.
 

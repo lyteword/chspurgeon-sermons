@@ -1,12 +1,4 @@
-# The Truth Of God's Salvation
-
-(No. 2356)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 15, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 16, 1888.
+# Sermon 2356 | The Truth Of God's Salvation
 
 "O God, in the multitude of Your mercy hear me, in the Truth of your salvation." Psalm 69:13.
 

@@ -1,12 +1,4 @@
-# Sympathy and Song
-
-(No. 3517)
-
-A SERMON PUBLISHED ON THURSDAY JUNE 22, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 7, 1872.
+# Sermon 3517 | Sympathy and Song
 
 "Rejoice with them who rejoice." Romans 12:15.
 

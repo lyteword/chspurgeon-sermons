@@ -1,12 +1,4 @@
-# The Main Matter
-
-(No. 1631)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 6, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1631 | The Main Matter
 
 "Many other signs truly did Jesus in the presence of His disciples, which are not written in this book: but these are written that you might believe that Jesus is the Christ, the Son of God, and that, believing, you might have life through His name." John 20:30,31.
 

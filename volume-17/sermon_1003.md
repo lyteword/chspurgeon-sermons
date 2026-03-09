@@ -1,6 +1,4 @@
-# Your Own Salvation
-
-Sermon No. 1003 - Delivered on Lord's-day Morning, July 30th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1003 | Your Own Salvation
 
 > "Your own salvation."  
 > Philippians 2:12.  

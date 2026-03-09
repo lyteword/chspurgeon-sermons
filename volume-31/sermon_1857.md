@@ -1,12 +1,4 @@
-# The Necessity of Growing Faith
-
-(No. 1857)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 30, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1857 | The Necessity of Growing Faith
 
 "We are bound to thank God always for you, Brethren, as it is fitting, because your faith grows exceedingly, and the charity of every one of you all abounds toward each other." 2 Thessalonians 1:3.
 

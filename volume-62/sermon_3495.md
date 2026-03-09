@@ -1,16 +1,4 @@
-# The Judgment Upon Zacharias
-
-A Sermon
-
-(No. 3495)
-
-Published on Thursday, January 20th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [3]the Metropolitan Tabernacle, Newington.
+# Sermon 3495 | The Judgment Upon Zacharias
 
 "Thou shalt be dumb and not able to speak until the day that these things shall be performed, because thou believest not my words, which shall be fulfilled in their season."--Luke 1:20.
 

@@ -1,16 +1,7 @@
-# With Golden Band Girded
-
-(No. 3555)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 15, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3555 | With Golden Band Girded
 
 "He was girded about the chest with a golden band." Revelation 1:13
 
-[The original title of this sermon was WITH GOLDEN GIRDLE GIRT.]
 
 BE assured, my Brothers and Sisters, the more real Jesus Christ is to us, the more power there will be in our religion. Those men whose religion lies in believing certain doctrines and contending for certain modes of expression, may be strong enough in bigotry, but they often fail entirely in developing the spirit of true Christianity. There may be minds so constituted that they can live under the power of an idea and they might possibly be able to die for it. But these, I think, must be comparatively few. To draw out enthusiasm among men, there must generally be a man as leader and commander in whom the people can implicitly trust, to whom they will voluntarily tender obedience. Individual men have worked wonders. The thoughts which they incarnated may have been, in themselves, strong, yet their strength was never so forcible as when the men who represented those thoughts were present to give them currency. Then the blood of the many was stirred and every man's heart beat high. The presence of Oliver Cromwell in a regiment was equal to any ten thousand men. He had only to appear and all his soldiers felt so sure of victory, they would dash upon the cavaliers as some mighty tornado, driving them like chaff before the wind! The presence of Napoleon at any moment in a battle was almost always sufficient to turn the scale. Let but "the little corporal" appear and wave his sword, and men seemed to lose all sense of their own personal danger and rushed into the very mouth of death to gain the victory! In those old days of the Huguenots when they were warring for their liberties, what shouts there were, what beating of hearts, what a glamour of trumpets, what exultation, when Henry of Navarre came riding down the ranks! Then each man felt he had a giant's arm and, as he rode to battle, struck home for God and for the truth as he gave out his watchword, "Remember St. Bartholomew!"
 

@@ -1,6 +1,4 @@
-# Barabbas Preferred To Jesus
-
-Sermon No. 595 - Delivered on Sunday Morning, October 16th 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 595 | Barabbas Preferred To Jesus
 
 > "Then cried they all again, saying, Not this man, but Barabbas. Now Barabbas was a robber."  
 > John 18:40.  

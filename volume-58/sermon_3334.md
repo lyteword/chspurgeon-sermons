@@ -1,12 +1,4 @@
-# Lovely, But Lacking
-
-(No. 3334)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3334 | Lovely, But Lacking
 
 "One thing you lack." Mark 10:21.
 

@@ -1,12 +1,4 @@
-# The Jewel of Peace
-
-(No. 1343)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 18, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1343 | The Jewel of Peace
 
 "Now the Lord of Peace Himself give you peace always by all means. The Lord be with you all." 2 Thessalonians 3:16.
 

@@ -1,12 +1,4 @@
-# Deliverance From the Power of Darkness
-
-(No. 3366)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 7, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 29, 1866.
+# Sermon 3366 | Deliverance From the Power of Darkness
 
 "He has delivered us from the power of darkness." Colossians 1:13.
 

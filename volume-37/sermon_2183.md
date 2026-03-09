@@ -1,12 +1,4 @@
-# A Gracious Dismissal
-
-(No. 2183)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 11, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2183 | A Gracious Dismissal
 
 "And He said to the woman, Your faith has saved you; go in peace." Luke 7:50.
 

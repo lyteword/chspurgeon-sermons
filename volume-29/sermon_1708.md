@@ -1,12 +1,4 @@
-# The Holy Spirit's Threefold Conviction of Men
-
-(No. 1708)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1708 | The Holy Spirit's Threefold Conviction of Men
 
 "And when He is come, He wiil reprove the world of sin, and of righteousness, and of judgment: of sin, because they believe not on Me; of righteousness, because I go to My Father, and you see Me no more; of judgment, because the prince of this world is judged." John 16:8-11.
 

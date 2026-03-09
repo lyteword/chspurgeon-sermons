@@ -1,12 +1,4 @@
-# A New Leaf for the New Year
-
-(No. 2497)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 27, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 27, 1864.
+# Sermon 2497 | A New Leaf for the New Year
 
 "And they said one to another, We are truly guilty concerning our brother." Genesis 42:21.
 

@@ -1,12 +1,4 @@
-# A Voice With Four Messages
-
-(No. 3171)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 18, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 31, 1873.
+# Sermon 3171 | A Voice With Four Messages
 
 "And He said, Go forth, and stand upon the mount before the LORD. And, behold, the LORDpassed by, and a great and strong wind tore the mountains and broke in pieces the rocks before the LORD; but the LORD was not in the wind: and after the wind, an earthquake; but the LORD was not in the earthquake: and after the earthquake, a fire, but the LORD was not in the fire: and after the fire, a still small voice. Andit was so, when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entrance of the cave. And, behold, there came a voice unto him, and said, What are you doing here, Elijah?" 1 Kings 19:11-13.
 

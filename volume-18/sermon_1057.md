@@ -1,12 +1,4 @@
-# Untrodden Ways
-
-(No. 1057)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 23, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1057 | Untrodden Ways
 
 "For you have not passed this way before." Joshua 3:4.
 

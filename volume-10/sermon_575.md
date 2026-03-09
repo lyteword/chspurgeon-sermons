@@ -1,6 +1,4 @@
-# The Pierced One Pierces The Heart
-
-Sermon No. 575 - Delivered on Sunday Morning, June 19th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 575 | The Pierced One Pierces The Heart
 
 > "And I will pour upon the house of David and upon the inhabitants of Jerusalem, the spirit of Grace and of supplications: and they shall look upon Me whom they have pierced and they shall mourn for Him, as one mourns for his only son and shall be in bitterness for Him, as one that is in bitterness for his first-born."  
 > Zechariah 12:10.  

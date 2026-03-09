@@ -1,12 +1,4 @@
-# "Is God In the Camp?"
-
-(No. 2239)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 17, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 9, 1891.
+# Sermon 2239 | "Is God In the Camp?"
 
 "And the Philistines were afraid, for they said, God is come into the camp. And they said, Woe unto us! For there has not been such a thing before" 1 Samuel 4:7.
 

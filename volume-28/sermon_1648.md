@@ -1,12 +1,4 @@
-# Pilate and Ourselves Guilty of the Savior's Death
-
-(No. 1648)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1648 | Pilate and Ourselves Guilty of the Savior's Death
 
 "When Pilate saw that he could prevail nothing, but that rather a tumult was made, he took water, and washed his hands before the multitude, saying, I am innocent of the blood of this just Person: see you to it. Then answered all thepeople, and said, His blood be on us, and on our children." Matthew 27:24,25.
 

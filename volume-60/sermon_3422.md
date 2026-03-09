@@ -1,12 +1,4 @@
-# A Call to the Depressed
-
-(No. 3422)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3422 | A Call to the Depressed
 
 "Shakeyourself from the dust, arise and sit down, O Jerusalem: loosen yourself from the bonds of your neck, O captive daughter of Zion." Isaiah 52:2.
 

@@ -1,6 +1,4 @@
-# Intimate Knowledge of the Holy Spirit
-
-Sermon No. 2074 - Delivered on Sunday, March 10th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2074 | Intimate Knowledge of the Holy Spirit
 
 > "The Spirit of Truth, whom the world cannot receive, because it sees Him not, neither knows Him; but you know Him, for He dwells with you and shall be in you."  
 > John 14:17.  

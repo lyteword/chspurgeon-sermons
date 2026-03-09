@@ -1,6 +1,4 @@
-# Christ Our Life--Soon To Appear
-
-Sermon No. 617 - Delivered on Sunday Morning, February 26th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 617 | Christ Our Life--Soon To Appear
 
 > When Christ, who is our life, shall appear, then shall you also appear with Him in glory.    
 > Colossians 3:4.    

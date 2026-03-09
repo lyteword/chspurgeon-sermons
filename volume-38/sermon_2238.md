@@ -1,12 +1,4 @@
-# "You Are Now the Blessed of the Lord"
-
-(No. 2238)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 10, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 3, 1891.
+# Sermon 2238 | "You Are Now the Blessed of the Lord"
 
 "You are now the blessed of the Lord." Genesis 26:29.
 

@@ -1,12 +1,4 @@
-# Our Champion
-
-(No. 3009)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 11, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1861.
+# Sermon 3009 | Our Champion
 
 "And Samson lay till midnight, and arose at midnight, and took the doors of the gate of the city, and the two posts, and went away with them, bar and all, and put them upon his shoulders, and carried them up to the top of the hill that faces Hebron." Judges 16:3.
 

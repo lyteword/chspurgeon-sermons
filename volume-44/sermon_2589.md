@@ -1,12 +1,4 @@
-# The Christian's Glorious Inventory
-
-(No. 2589)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 25, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY MORNING, IN THE YEAR 1856.
+# Sermon 2589 | The Christian's Glorious Inventory
 
 "Therefore let no maun glory in men. For all things are yours; whether Paul, or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come-- all are yours. And you are Christ's, and Christ is God's." 1 Corinthians 3:21-23.
 

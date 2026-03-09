@@ -1,10 +1,4 @@
-# Unto You, Young Men
-
-A Sermon (No. 811)
-
-Delivered on Wednesday Evening, May 13, 1868, by C. H. SPURGEON, at Westminster Chapel.
-
-Being the Annual Sermon to Young Men in Connection with the London Missionary Society.
+# Sermon 811 | Unto You, Young Men
 
 "I have written unto you, young men, because you are strong, and the Word of God abides in you, and you have overcome the Wicked One." 1 John 2:14.
 

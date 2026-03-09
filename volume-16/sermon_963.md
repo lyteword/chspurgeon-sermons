@@ -1,12 +1,4 @@
-# Our King, Our Joy
-
-(No. 963)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 27, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 963 | Our King, Our Joy
 
 "Let the children of Zion bejoyful in their King." Psalm 149:2.
 

@@ -1,12 +1,4 @@
-# Mistrust of God Deplored and Denounced
-
-(No. 1498)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 5, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1498 | Mistrust of God Deplored and Denounced
 
 "How long will it be before they believe Me?" Numbers 14:11.
 

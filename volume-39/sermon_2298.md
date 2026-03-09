@@ -1,12 +1,4 @@
-# The Christ-Given Rest
-
-(No. 2298)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 5, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2298 | The Christ-Given Rest
 
 "I will give you rest." Matthew 11:28.
 

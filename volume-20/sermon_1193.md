@@ -1,12 +1,4 @@
-# Girding on the Harness
-
-(No. 1193)
-
-A SERMON DELIVERED ON THURSDAY EVENING, AUGUST 6, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1193 | Girding on the Harness
 
 "And the king of Israel answered and said, Tell him, Let not him that girds on his harness boast himself as he that takes it off" 1 Kings 20:11.
 

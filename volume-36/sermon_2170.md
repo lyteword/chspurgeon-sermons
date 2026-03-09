@@ -1,6 +1,4 @@
-# The Blessing of the High Priest
-
-Sermon No. 2170 - Delivered on Sunday Morning, October 26th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2170 | The Blessing of the High Priest
 
 > "And the Lord spoke unto Moses, saying, Speak unto Aaron and unto his sons saying, On this wise you shall bless the children of Israel, saying unto them, The Lord bless you, and keep you: the Lord make His face shine upon you, and be gracious unto you: the Lord lift up His Countenance upon you, and give you peace. And they shall put My name upon the children of Israel; and I will bless them."  
 > Numbers 6:22-27.  

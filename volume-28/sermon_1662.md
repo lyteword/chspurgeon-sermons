@@ -1,12 +1,4 @@
-# The Indwelling and Outflowing of the Holy Spirit
-
-(No. 1662)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 28, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1662 | The Indwelling and Outflowing of the Holy Spirit
 
 "He that believes on Me, as the Scripture has said, out of his belly shall flow rivers of living water. (But this spoke He of the Spirit, which they that believe on Him should receive: for the Holy Spirit was not yet given; because that Jesus was not yet glorified)." John 7:38,39.
 

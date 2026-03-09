@@ -1,12 +1,4 @@
-# A Lost Christ Found
-
-(No. 2611)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 26, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1857.
+# Sermon 2611 | A Lost Christ Found
 
 "But they, supposing Him to have been in the company, went a day's journey; and they sought Him among their kinsfolk and acquaintances. And when they found Him not, they turned back, again, to Jerusalem, seeking Him. And it came to pass that after three days they found Him in the Temple sitting in the midst of the doctors, both hearing them and asking them questions." Luke 2:44-46.
 

@@ -1,12 +1,4 @@
-# The Well-beloved's Vineyard
-
-(No. 3319)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 12, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-TO A COMPANY OF BELIEVERS AT MENTONE.
+# Sermon 3319 | The Well-beloved's Vineyard
 
 "My Well-Beloved has a vineyard on a very fruitful hill." Isaiah 5:1.
 

@@ -1,12 +1,4 @@
-# A Cheery Word in Troublous Times
-
-(No. 1335)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1335 | A Cheery Word in Troublous Times
 
 "Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me." Acts 27:25.
 

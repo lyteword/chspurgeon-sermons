@@ -1,12 +1,4 @@
-# Titles of Honor
-
-(No. 3300)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 2, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 5, 1886.
+# Sermon 3300 | Titles of Honor
 
 "Brethren beloved of the Lord." 2 Thessalonians. 2:13.
 

@@ -1,12 +1,4 @@
-# Despised Light Withdrawn
-
-(No. 2413)
-
-INTENDED FOR READING ON LORD'S DAY, MAY 19, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 15, 1887.
+# Sermon 2413 | Despised Light Withdrawn
 
 "While you have light, believe in the light, that you may be the children of light. These things spoke Jesus, and departed, and did hide Himself from them." John 12:36.
 

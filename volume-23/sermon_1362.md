@@ -1,12 +1,4 @@
-# Mourning For Christ
-
-(No. 1362)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 1, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1362 | Mourning For Christ
 
 "I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications. And they shall look upon Me whom they have pierced, and they shall mourn for Him, as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his firstborn." Zechariah 12:10.
 

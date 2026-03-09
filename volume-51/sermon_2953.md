@@ -1,12 +1,4 @@
-# Spiritual Sight and Eternal Life
-
-(No. 2953)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1905,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 3, 1875.
+# Sermon 2953 | Spiritual Sight and Eternal Life
 
 "Yet a little while, and the world sees Me no more, but you see Me: because I live, you shall live also." John 14:19.
 

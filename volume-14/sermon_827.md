@@ -1,8 +1,4 @@
-# The Faculty Baffled, The Great Physician Successful
-
-A Sermon (No. 827)
-
-Delivered on Lord's Day Morning, August 23, 1868, by C. H. SPURGEON at the [37]Metropolitan Tabernacle, Newington.
+# Sermon 827 | The Faculty Baffled, The Great Physician Successful
 
 "And a certain woman, which had an issue of blood 12 years, and had suffered many things of many physicians, and had spent all that she had, and was nothing bettered, but rather grew worse, when she had heard of Jesus, came in the press behind, and touched His garment. For she said, If I may touch but His clothes, I shall be whole." Mark 5:25-28.
 

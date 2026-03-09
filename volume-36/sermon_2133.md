@@ -1,6 +1,4 @@
-# "My God, My God, Why Have You Forsaken Me?"
-
-Sermon No. 2133 - Delivered on Sunday Morning, March 2 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2133 | "My God, My God, Why Have You Forsaken Me?"
 
 > "And about the ninth hour Jesus cried with a loud voice, crying, Eli, Eli, lama Sabachthani? that is to say, My God, My God, why have You forsaken Me?"  
 > Matthew 27:46.  

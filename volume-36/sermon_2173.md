@@ -1,6 +1,4 @@
-# Little Faith and Great Faith
-
-Sermon No. 2173 - Delivered on Sunday Morning, November 16th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2173 | Little Faith and Great Faith
 
 > "O you of little faith, why did you doubt?"  
 > Matthew 14:31.  

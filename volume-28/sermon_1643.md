@@ -1,12 +1,4 @@
-# Our Lord's Trial before the Sanhedrin
-
-(No. 1643)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1643 | Our Lord's Trial before the Sanhedrin
 
 "And they all condemned Him to be guilty of death." Mark 14:64.
 

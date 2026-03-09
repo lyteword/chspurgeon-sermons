@@ -1,12 +1,4 @@
-# The Faithful Olive Tree
-
-(No. 3208)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 28, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 29, 1879.
+# Sermon 3208 | The Faithful Olive Tree
 
 "The trees once went forth on a time to anoint a king over them; and they said unto the olive tree, Reign over us. But the olive tree said to them, Should I cease giving my oil, wherewith by me they honor God and man, and go to be promoted over the trees?" Judges 9:8,9.
 

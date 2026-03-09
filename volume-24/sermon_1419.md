@@ -1,12 +1,4 @@
-# Encouragement to Trust and Pray
-
-(No. 1419)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 16, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1419 | Encouragement to Trust and Pray
 
 "He will be very gracious unto you at the voice of your cry; when He shall hear it, He will answer you." Isaiah 30:19.
 

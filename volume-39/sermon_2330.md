@@ -1,12 +1,4 @@
-# Witnessing Better Than Knowing the Future
-
-(No. 2330)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 15, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 29, 1889.
+# Sermon 2330 | Witnessing Better Than Knowing the Future
 
 "When they therefore were come together, they asked of Him, saying, Lord, willyou at this time restore again the kingdom to Israel? And He said unto them, It is not for you to know the times or the seasons which the Father has put in His own power. But you shall receive power when the Holy Spirit has come upon you: andyou shall be witnesses unto Me both in Jerusalem, and in all Judea, and in Samaria, and unto the uttermost part of the earth." Acts 1:6-8.
 

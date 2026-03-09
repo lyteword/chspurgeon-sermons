@@ -1,10 +1,4 @@
-# The Suffering Christ Satisfied
-
-(No. 3465)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 1, 1915.
-
-DELIVERED BY C. H. SPURGEON, ON LORD'S-DAY EVENING, MARCH 29, 1888.
+# Sermon 3465 | The Suffering Christ Satisfied
 
 "He stall see ofthe travail of His soul and shall be satisfied. By His knowledge shall My righteous Servant justify many." Isaiah 53:11.
 

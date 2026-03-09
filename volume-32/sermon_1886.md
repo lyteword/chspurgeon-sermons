@@ -1,12 +1,4 @@
-# God's Remembrance of His Covenant
-
-(No. 1886)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, FEBRUARY 14, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1886 | God's Remembrance of His Covenant
 
 "Nevertheless He regarded their affliction, when He heard their cry: And He remembered, for their sake, His Covenant, and repented according to the multitude of His mercies." Psalm 106:44,45.
 

@@ -1,6 +1,4 @@
-# Walking In The Light And Washed In The Blood
-
-Sermon No. 663 - Delivered on Sunday Morning, December 3rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 663 | Walking In The Light And Washed In The Blood
 
 > But if we walk in the light, as He is in the light, we have fellowship one with another and the blood of Jesus Christ, His Son, cleanses us from all sin.    
 > 1 John 1:7.    

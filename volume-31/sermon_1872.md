@@ -1,12 +1,4 @@
-# My Comfort In Affliction
-
-(No. 1872)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON JULY 7, 1881.
+# Sermon 1872 | My Comfort In Affliction
 
 "This is my comfort in my affliction, for Your Word has quickened me." Psalm 119:50.
 

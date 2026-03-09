@@ -1,12 +1,4 @@
-# "The Lord Is My Shepherd"
-
-(No. 3006)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE BAPTIST CHAPEL, BROMLEY, KENT, ON TUESDAY AFTERNOON, OCTOBER 16, 1866.
+# Sermon 3006 | "The Lord Is My Shepherd"
 
 "The LORD is my shepherd."
 

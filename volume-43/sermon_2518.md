@@ -1,12 +1,4 @@
-# A Sad Interior and a Cheery Messenger
-
-(No. 2518)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 23, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER. 18, 1885.
+# Sermon 2518 | A Sad Interior and a Cheery Messenger
 
 "And she went and told them that had been with Him, as they mourned and wept." Mark 16:10.
 

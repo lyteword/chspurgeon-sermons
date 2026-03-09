@@ -1,12 +1,4 @@
-# Sealed and Open Evidences
-
-(No. 2297)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 26, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2297 | Sealed and Open Evidences
 
 "Thus says the LORD of Hosts, the God of Israel; Take these deeds, this deed of the purchase, which is sealed, and this deed which is open; and put them in an earthen vessel, that they may last many days." Jeremiah 32:14.
 

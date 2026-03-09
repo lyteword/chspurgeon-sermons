@@ -1,12 +1,4 @@
-# A Solemn Impeachment of Unbelievers
-
-(No. 1207)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 13, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1207 | A Solemn Impeachment of Unbelievers
 
 "He that believes not God has made Him a liar; because he believes not the record that God gave of His Son." 1 John 5:10.
 

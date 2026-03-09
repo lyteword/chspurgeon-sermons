@@ -1,12 +1,4 @@
-# The Lesson of Uzza
-
-(No. 2855)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 4, 1888.
+# Sermon 2855 | The Lesson of Uzza
 
 "And David and all Israel played before God with all their might, and with singing and with harps and with psalteries, and with timbrels, and with cymbals, and with trumpets." 1 Chronicles 13:8.
 

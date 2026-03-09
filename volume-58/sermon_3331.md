@@ -1,12 +1,4 @@
-# Knowing and Believing
-
-(No. 3331)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 5, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 30, 1866.
+# Sermon 3331 | Knowing and Believing
 
 "I know whom I have believed." 2 Timothy 1:12.
 

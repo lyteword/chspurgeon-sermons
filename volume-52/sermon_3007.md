@@ -1,12 +1,4 @@
-# Gadding About
-
-(No. 3007)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 27, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3007 | Gadding About
 
 "Why do you gad about so much to change your way?
 

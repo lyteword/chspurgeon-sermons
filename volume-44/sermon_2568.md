@@ -1,12 +1,4 @@
-# Sabbath-work
-
-(No. 2568)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 1, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 18, 1883.
+# Sermon 2568 | Sabbath-work
 
 "And on the same day was the SSabbath." John 5:9.
 

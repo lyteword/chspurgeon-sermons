@@ -1,12 +1,4 @@
-# A Sad Confession
-
-(No. 3530)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3530 | A Sad Confession
 
 "We hid, as it were, our faces from Him." Isaiah 53:3.
 

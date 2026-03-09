@@ -1,12 +1,4 @@
-# The Sacred Love-Token
-
-(No. 1251)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 22, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1251 | The Sacred Love-Token
 
 "And the blood shall be to you for a token." Exodus 12:13.
 

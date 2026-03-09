@@ -1,12 +1,4 @@
-# Watching For Christ's Coming
-
-(No. 2302)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 2, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 7 1889.
+# Sermon 2302 | Watching For Christ's Coming
 
 "Blessed are those servants whom the master, when he comes, shall find watching: verily I say unto you, that he shall gird himself, and make them to sit down to eat, and will come forth and serve them. And if he shall come in the second watch, or come in the third watch, and find them so, blessed are those servants." Luke 12:37,38.
 

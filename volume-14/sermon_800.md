@@ -1,14 +1,4 @@
-# The Centurion's Faith and Humility
-
-A Sermon
-
-(No. 800)
-
-Delivered on Lord's-Day Morning, March 15, 1868, by
-
-H. SPURGEON,
-
-at the [13]Metropolitan Tabernacle, Newington.
+# Sermon 800 | The Centurion's Faith and Humility
 
 "Then Jesus went with them. And when He was now not far from the house, the centurion sent friends to Him, saying unto Him, Lord, trouble not Yourself: for Iam not worthy that You should enter under my roof. Why neither thought I myself worthy to come unto You: but say in a word, and my servant shall be healed. For Ialso am a man set under authority, having under me soldiers, and I say unto one, Go, and he goes; and to another, Come, and he comes; and to my servant, Do this, and he does it." Luke 7:6-8.
 

@@ -1,12 +1,4 @@
-# The Lad's Loaves in the Lord's Hands
-
-(No. 2216)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 9, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2216 | The Lad's Loaves in the Lord's Hands
 
 "Jesus took the loaves." John 6:11.
 

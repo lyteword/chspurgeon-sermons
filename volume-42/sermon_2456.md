@@ -1,12 +1,4 @@
-# The Lamb Our Leader
-
-(No. 2456)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 7, 1886.
+# Sermon 2456 | The Lamb Our Leader
 
 "These are they which follow the Lamb wherever He goes." Revelation 14:4.
 

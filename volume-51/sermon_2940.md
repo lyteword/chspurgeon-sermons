@@ -1,12 +1,4 @@
-# "He Must Reign"
-
-(No. 2940)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 15, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 18, 1875.
+# Sermon 2940 | "He Must Reign"
 
 "For He must reign till He has put all enemies under His feet" 1 Corinthians 15:25.
 

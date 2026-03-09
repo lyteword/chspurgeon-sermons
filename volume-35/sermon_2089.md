@@ -1,6 +1,4 @@
-# Profitable Mixture
-
-Sermon No. 2089 - Delivered on Sunday, June 9, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2089 | Profitable Mixture
 
 > "For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it."  
 > Hebrews 4:2.  

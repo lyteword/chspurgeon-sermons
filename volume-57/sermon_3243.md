@@ -1,12 +1,4 @@
-# The Vine of Israel
-
-(No. 3243)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 30, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. On behalf of the British Society for the Propagation of the Gospel among the Jews, ON THURSDAY EVENING, MAY 9, 1878.
+# Sermon 3243 | The Vine of Israel
 
 "Return, we beseech You, O God ofHosts: look down from Heaven, and behold, and visit this vine." Psalm 80:14.
 

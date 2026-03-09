@@ -1,12 +1,4 @@
-# Experiencing Confirming Testimony
-
-(No. 3396)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 5, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 27, 1869.
+# Sermon 3396 | Experiencing Confirming Testimony
 
 "As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God." Psalm 48:8.
 

@@ -1,12 +1,4 @@
-# The Man Of Sorrows
-
-(No. 1099)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 2, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1099 | The Man Of Sorrows
 
 "A Man of sorrows, and acquainted with grief." Isaiah 53:3.
 

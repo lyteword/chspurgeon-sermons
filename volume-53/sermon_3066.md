@@ -1,12 +1,4 @@
-# The Everlasting Counselor
-
-(No. 3066)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 14, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3066 | The Everlasting Counselor
 
 "Has your Counselor perished?" Micah 4:9.
 

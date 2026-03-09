@@ -1,6 +1,4 @@
-# Jesus Wept
-
-Sermon No. 2091 - Delivered on Sunday, June 23, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2091 | Jesus Wept
 
 > "Jesus wept."  
 > John 11:35.  

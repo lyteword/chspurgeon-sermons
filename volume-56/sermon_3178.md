@@ -1,12 +1,4 @@
-# The Preparatory Prayers of Christ
-
-(No. 3178)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 30TH, 1909,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 7, 1873.
+# Sermon 3178 | The Preparatory Prayers of Christ
 
 "Now when all the people were baptized, it came to pass that Jesus, also being baptized, and praying, the Heaven was opened, and the Holy Spirit descended in a bodily shape like a dove upon Him, and a voice came from Heaven, which said, You are My Beloved Son, in You I am well pleased." Luke 3:21,22.
 

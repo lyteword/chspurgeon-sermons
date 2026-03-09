@@ -1,12 +1,4 @@
-# The Hungry Filled, the Rich Emptied
-
-(No. 3019)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 20, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 26, 1869.
+# Sermon 3019 | The Hungry Filled, the Rich Emptied
 
 "He has filled the hungry with good things; and the rich He hats sent away empty." Luke 1:53.
 

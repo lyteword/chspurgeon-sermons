@@ -1,12 +1,4 @@
-# Black Clouds and Bright Blessings
-
-(No. 3215)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 15, 1910.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3215 | Black Clouds and Bright Blessings
 
 "If the clouds aire full of rain, they empty themselves upon the earth." Ecclesiastes 11:3.
 

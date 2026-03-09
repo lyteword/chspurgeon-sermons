@@ -1,12 +1,4 @@
-# God's Unspeakable Gift
-
-(No. 2290)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 8, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2290 | God's Unspeakable Gift
 
 "Thanks be unto God for His unspeakable Gift." 2 Corinthians 9:15.
 

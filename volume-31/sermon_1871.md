@@ -1,12 +1,4 @@
-# Love's Transformations--a Communion Meditation
-
-(No. 1871)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SEPTEMBER 4, 1881.
+# Sermon 1871 | Love's Transformations--a Communion Meditation
 
 "If you loved Me, you would rejoice because I said, I go unto the Father." John 14:28.
 

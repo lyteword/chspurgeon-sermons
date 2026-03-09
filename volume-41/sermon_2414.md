@@ -1,12 +1,4 @@
-# The Prodigal's Climax
-
-(No. 2414)
-
-INTENDED FOR READING ON LORD'S DAY, MAY 26, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 19, 1887.
+# Sermon 2414 | The Prodigal's Climax
 
 "When he came to himself." Luke 15:17.
 

@@ -1,12 +1,4 @@
-# Abraham's Trial--a Lesson for Believers
-
-(No. 2223)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 27, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 12, 1891.
+# Sermon 2223 | Abraham's Trial--a Lesson for Believers
 
 "And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: and he said, Behold, here I am." Genesis 22:1.
 

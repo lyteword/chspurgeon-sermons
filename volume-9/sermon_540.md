@@ -1,6 +1,4 @@
-# The Lambs And Their Shepherd
-
-Sermon No. 540 - Delivered on Sunday Morning, November 15th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 540 | The Lambs And Their Shepherd
 
 > "He shall gather the lambs with His arm and carry them in His bosom.'"  
 > Isaiah 40:11.  

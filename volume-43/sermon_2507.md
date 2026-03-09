@@ -1,12 +1,4 @@
-# He Ran, and He Ran
-
-(No. 2507)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 7, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 2, 1885.
+# Sermon 2507 | He Ran, and He Ran
 
 "But when he saw Jesus afar off, he ran and worshipped Him." Mark 5:6.
 

@@ -1,12 +1,4 @@
-# Preparation for the Lord's Supper
-
-(No. 3391)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 29, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3391 | Preparation for the Lord's Supper
 
 "Let a man examine himself, and so let him eat of that bread and drink ofthat cup." 1 Corinthians 11:28.
 

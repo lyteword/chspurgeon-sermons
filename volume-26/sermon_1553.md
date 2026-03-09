@@ -1,12 +1,4 @@
-# Faith Working By Love
-
-(No. 1553)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1553 | Faith Working By Love
 
 "Faith which works by love." Galatians 5:6.
 

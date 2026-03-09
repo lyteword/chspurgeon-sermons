@@ -1,8 +1,4 @@
-# The Best Cloak
-
-A Sermon (No. 832)
-
-Delivered by C. H. SPURGEON at the [41]Metropolitan Tabernacle, Newington.
+# Sermon 832 | The Best Cloak
 
 "And was clad with zeal as a cloak.'" Isaiah 59:17.
 

@@ -1,12 +1,4 @@
-# The Agony in Gethsemane
-
-(No. 1199)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING. OCTOBER 18, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1199 | The Agony in Gethsemane
 
 "And being in an agony He prayed more earnestly: and His sweat was, as it were, great drops of blood falling down to the ground." Luke 22:44.
 

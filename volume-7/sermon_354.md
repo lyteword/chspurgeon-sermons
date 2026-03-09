@@ -1,6 +1,4 @@
-# A Sermon For The Week Of Prayer
-
-Sermon No. 354 - Delivered on Sabbath Morning, January 6th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 354 | A Sermon For The Week Of Prayer
 
 > "Continue in prayer, and watch in the same with thanksgiving."  
 > Colossians 4:2.   

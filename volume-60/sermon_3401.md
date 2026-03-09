@@ -1,12 +1,4 @@
-# Sharing Christ's Life
-
-(No. 3401)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 9, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 1, 1867.
+# Sermon 3401 | Sharing Christ's Life
 
 "Yet a little while, and the world will see Me no more; but you will see Me. Because I live, you shall live also." John 14:19.
 

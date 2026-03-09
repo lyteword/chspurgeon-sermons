@@ -1,12 +1,4 @@
-# The Memory Of Christ's Love
-
-(No. 2294)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 5, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 2, 1890.
+# Sermon 2294 | The Memory Of Christ's Love
 
 "We will remember Your love more than wine: the upright love You." Song of Solomon 1:4.
 

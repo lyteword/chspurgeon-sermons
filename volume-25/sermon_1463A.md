@@ -1,10 +1,4 @@
-# The Gazelles and the Deer
-
-(No. 1463A)
-
-WRITTEN AT MENTONE
-
-BY C. H. SPURGEON.
+# Sermon 1463A | The Gazelles and the Deer
 
 "By the gazelles, and by the deer of the field." Solomon's Song 2:7.
 

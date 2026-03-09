@@ -1,12 +1,4 @@
-# The Way To Honor
-
-(No. 1118)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1118 | The Way To Honor
 
 "Whoe ver keeps the fig tree shall eat the fruit thereof: so he who waits on his master shall be honored." Proverbs 27:18.
 

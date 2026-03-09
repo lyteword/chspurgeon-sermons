@@ -1,12 +1,4 @@
-# The Headstone of the Corner
-
-(No. 1420)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 23, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1420 | The Headstone of the Corner
 
 "The stone which the builders refused is become the headstone of the corner. This is the Lord's doing; itis marvelous in our eyes. This is the day which the Lordhas made; we willrejoice and be glad in it, Save now, I beseech You, O Lord: O Lord, I beseech You, send now prosperity." Psalm 118:22-25.
 

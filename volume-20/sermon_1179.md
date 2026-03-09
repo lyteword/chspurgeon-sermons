@@ -1,12 +1,4 @@
-# Forty Years
-
-(No. 1179)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 14, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1179 | Forty Years
 
 "For the Lord your God has blessed you in all the works of your hands: He knows your walking through this great wilderness: these forty years the Lord your God has been with you; you have lacked nothing." Deuteronomy 2:7.
 

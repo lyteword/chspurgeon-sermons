@@ -1,6 +1,4 @@
-# The Silver Trumpet
-
-Sermon No. 366 - Delivered on Sabbath Morning, March 24th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 366 | The Silver Trumpet
 
 > "Come now, and let us reason together, says the Lord, though your sins are like scarlet, they shall be as white as snow; though they are redlike crimson, they shall be as wool"  
 > Isaiah 1:18.  

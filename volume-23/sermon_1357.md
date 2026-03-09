@@ -1,12 +1,4 @@
-# A Business-Like Account
-
-(No. 1357)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 3, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1357 | A Business-Like Account
 
 "But what things were gain to me, those I counted loss for Christ. Yet indeed, I also count all things loss for the excellency of the knowledge of Christ Jesus my Lord, for whom I have suffered the loss of all things, and count them but dung, that Imay win Christ, and be found in Him, not having my own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith." Philippians 3:7-9.
 

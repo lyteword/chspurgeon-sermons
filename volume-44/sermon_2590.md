@@ -1,12 +1,4 @@
-# Hearing, Seeking, Finding
-
-(No. 2590)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 2, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 24, 1883.
+# Sermon 2590 | Hearing, Seeking, Finding
 
 "Lo, we heard of it at Ephratah: we found it in the fields of the woods. We will go into His tabernacles: we will worship at His footstool." Psalm 132:6, 7.
 

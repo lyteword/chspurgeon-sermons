@@ -1,12 +1,4 @@
-# The Good Shepherd
-
-(No. 3060)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 3, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3060 | The Good Shepherd
 
 "The LORD is my shepherd; I shall not want." Psalm 23:1.
 

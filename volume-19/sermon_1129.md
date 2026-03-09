@@ -1,12 +1,4 @@
-# The Heart Of Flesh
-
-(No. 1129)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 31, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1129 | The Heart Of Flesh
 
 "I will take away the stony heart out of your flesh, and I will give you an heart of flesh.'' Ezekiel 36:26.
 

@@ -1,12 +1,4 @@
-# A Visit to the Tomb
-
-(No. 1081)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1081 | A Visit to the Tomb
 
 "He is not here: for He is risen, as He said. Come, see the place where the Lord lay." Matthew 28:6.
 

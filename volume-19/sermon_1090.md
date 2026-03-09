@@ -1,12 +1,4 @@
-# For The Troubled
-
-(No. 1090)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 12, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1090 | For The Troubled
 
 "Your wrath lies hard upon me, and You have afflicted me with all Your waves." Psalm 88:7.
 

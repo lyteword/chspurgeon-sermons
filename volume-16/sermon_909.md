@@ -1,12 +1,4 @@
-# Voices from the Excellent Glory
-
-(No. 909)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 9, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 909 | Voices from the Excellent Glory
 
 "And Jesus, when He was baptized, went up straightway out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit of God descending like a dove, and lighting upon Him: and lo a voice from Heaven, saying, This is My Beloved Son, in Whom I am well-pleased." Matthew 3:16,17.
 

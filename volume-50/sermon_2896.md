@@ -1,12 +1,4 @@
-# Harvest Time
-
-(No. 2896)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 11, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, AUGUST 11, 1854.
+# Sermon 2896 | Harvest Time
 
 "Is today not the wheat harvest?" 1 Samuel 12:17.
 

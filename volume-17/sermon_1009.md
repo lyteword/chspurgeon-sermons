@@ -1,6 +1,4 @@
-# Travailing for Souls
-
-Sermon No. 1009 - Delivered on Lord's-day Morning, September 3rd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1009 | Travailing for Souls
 
 > "As soon as Zion travailed, she brought forth her children."  
 > Isaiah 66:8.  

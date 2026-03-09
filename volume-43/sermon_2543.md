@@ -1,12 +1,4 @@
-# Good Reasons for a Good Resolution
-
-(No. 2543)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 11, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1884.
+# Sermon 2543 | Good Reasons for a Good Resolution
 
 "I will greatly rejoice in the Lord, my soul shall be joyful inn my God; for He has clothed me with the garments of salvation, He has covered me with the robe of righteousness, as a bridegroom decks himself with ornaments, and as a bride adorns herself with her jewels." Isaiah 61:10.
 

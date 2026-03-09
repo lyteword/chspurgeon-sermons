@@ -1,12 +1,4 @@
-# Living Temples for the Living God
-
-(No. 1083)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1083 | Living Temples for the Living God
 
 "Thus says the Lord, Hea ven is My throne and earth is My footstool. Where is the house that you build unto Me? And where is the place of My rest? For all those things has My hand made, and all those things have been, says the Lord; but to this man will I look, even to him that is poor and of a contrite spirit and trembles at My Word." Isaiah 66:1,2.
 

@@ -1,12 +1,4 @@
-# The Wondrous Covenant
-
-(No. 3326)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 31, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3326 | The Wondrous Covenant
 
 "For this is the Covenant that I will make with the house of Israel after those days, says the Lord; I will put My Laws into their mind, and write them in their hearts; and I will be to them a God, and they shall be to Me a people." Hebrews 8:10.
 

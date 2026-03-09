@@ -1,12 +1,4 @@
-# The Old Man's Sermon
-
-(No. 1256)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 26, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1256 | The Old Man's Sermon
 
 "O God, You ha ve taught me from my youth: and until this time ha ve I declared Your wondrous works. Now, also, when I am old and gray-headed, O God, forsake me not, until I have showed Your strength unto this generation, and Your power to everyone that is to come." Psalm 71:17,18.
 

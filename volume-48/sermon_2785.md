@@ -1,12 +1,4 @@
-# Christ's Love for His Vineyard
-
-(No. 2785)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 29, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE SUMMER OF 1860.
+# Sermon 2785 | Christ's Love for His Vineyard
 
 "My vineyard, which is Mine, is before Me: you, O Solomon, must have a thousand, and those that keep the fruit thereof two hundred." Song of Solomon 8:12.
 

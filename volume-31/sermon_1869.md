@@ -1,12 +1,4 @@
-# Hagar at the Fountain
-
-(No. 1869)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 8, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1869 | Hagar at the Fountain
 
 "And she called the name of the Lord that spoke unto her, You-Are-the-God-Who-Sees: for she said, Have I, also, here looked after Him who sees me? Therefore the well was called Beer-Lahai-Roi." Genesis 16:13,14.
 

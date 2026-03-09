@@ -1,6 +1,4 @@
-# Pride and Humility
-
-Sermon No. 97 - Delivered on Sabbath Morning, August 17, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 97 | Pride and Humility
 
 > Before destruction the heart of man is haughty, and before honor is humility.    
 > Proverbs 18:12.    

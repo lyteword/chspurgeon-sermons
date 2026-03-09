@@ -1,12 +1,4 @@
-# The Proof of Our Ministry
-
-(No. 1788)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 29, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1788 | The Proof of Our Ministry
 
 "Since you seek a proof of Christ speaking in me, who is not weak towardsyou, butis mighty in you. For though He was crucified in weakness, yet He lives by the power of God. For we, also, are weak in Him, but we shall live with Him by the power of God toward you. Examine yourselves, as to whether you are in the faith. Test yourselves. Do you not know, yourselves, that Jesus Christ is in you--unless you are reprobates?" 2 Corinthians 13:3,4.
 

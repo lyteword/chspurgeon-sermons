@@ -1,12 +1,4 @@
-# The Right Keynote for the New Year
-
-(No. 2289)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 1, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2289 | The Right Keynote for the New Year
 
 "But we will bless the LORD from this time forth and forevermore. Praise the LORD." Psalm 115:18.
 

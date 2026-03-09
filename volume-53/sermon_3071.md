@@ -1,12 +1,4 @@
-# Idolatry Condemned
-
-(No. 3071)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 19, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1874.
+# Sermon 3071 | Idolatry Condemned
 
 "Little children, keep yourselves from idols. Amen." 1 John 5:21.
 

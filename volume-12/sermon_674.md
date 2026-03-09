@@ -1,6 +1,4 @@
-# The Mighty Arm
-
-Sermon No. 674 - Delivered on Sunday Morning, February 4th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 674 | The Mighty Arm
 
 > "You have a mighty arm: strong is Your hand, and high is Your right hand."  
 > Psalm 89:13.  

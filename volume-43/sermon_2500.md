@@ -1,12 +1,4 @@
-# Number 2500--or, "entrance and Exclusion"
-
-(No. 2500)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 17 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 21, 1885.
+# Sermon 2500 | Number 2500--or, "entrance and Exclusion"
 
 "And they that were ready went in with him to the marriage: and the door was shut." Matthew 25:10.
 

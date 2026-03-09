@@ -1,12 +1,4 @@
-# Plenary Absolution
-
-(No. 1108)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1108 | Plenary Absolution
 
 "As far as the east is from the west, so far has He removed our transgressions from us." Psalm 103:12.
 

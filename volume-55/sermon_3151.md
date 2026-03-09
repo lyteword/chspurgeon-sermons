@@ -1,12 +1,4 @@
-# The Lord's Supper--simple But Sublime!
-
-(No. 3151)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 1, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING IN THE YEAR 1866.
+# Sermon 3151 | The Lord's Supper--simple But Sublime!
 
 "This do you, as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:25,26.
 

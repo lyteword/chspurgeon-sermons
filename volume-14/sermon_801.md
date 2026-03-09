@@ -1,14 +1,4 @@
-# The Woman Which Was a Sinner
-
-A Sermon
-
-(No. 801)
-
-Delivered on Lord's-Day Morning, March 22, 1868, by
-
-H. SPURGEON,
-
-at the [14]Metropolitan Tabernacle, Newington.
+# Sermon 801 | The Woman Which Was a Sinner
 
 "And, behold, a woman in the city, which was a sinner, when she knew that Jesus sat at meat in the Pharisee's house, brought an alabaster box of ointment, and stood at His feet behind Him weeping, and began to wash His feet with tears, and did wipe them with the hairs of her head, and kissed His feet, and anointed them with the ointment." Luke 7:37-38.
 

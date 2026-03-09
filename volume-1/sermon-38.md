@@ -1,6 +1,4 @@
-# Storming the Battlements
-
-Sermon No. 38 - Delivered on Sabbath Morning, September 16, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 38 | Storming the Battlements
 
 > Go ye up upon her walls, and destroy; but make not a full end: take away her battlements; for they are not the Lord's.    
 > Jeremiah 5:10.    

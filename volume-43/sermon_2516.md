@@ -1,12 +1,4 @@
-# Jesus and His Brethren
-
-(No. 2516)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 9 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER 4, 1885.
+# Sermon 2516 | Jesus and His Brethren
 
 "Then Joseph could not refrain himself before all them that stood by him, and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren. And he wept aloud: and the Egyptians and the house ofPharaoh heard. And Joseph said unto his brethren, I am Joseph; does my father yet live? And his brethren could not answer him; for they were troubled at his presence. And Joseph said unto his brethren, Come near to me, I pray you. And they came near. And he said, I am Joseph your brother, whom you sold into Egypt. Now therefore be not grieved, nor angry with yourselves, that you sold me here: for God did send me before you to preserve life." Genesis 45:1-5.
 

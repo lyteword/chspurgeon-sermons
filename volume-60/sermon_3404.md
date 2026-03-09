@@ -1,12 +1,4 @@
-# A Gross Indignity
-
-(No. 3404)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 30, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3404 | A Gross Indignity
 
 "And they spit upon Him." Matthew 27:30.
 

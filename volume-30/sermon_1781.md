@@ -1,12 +1,4 @@
-# Two Pauls and a Blinded Sorcerer
-
-(No. 1781)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 18, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1781 | Two Pauls and a Blinded Sorcerer
 
 "Then the deputy, when he saw what was done, believed, being astonished at the Doctrine of the Lord." Acts 13:12.
 

@@ -1,12 +1,4 @@
-# A Clear Conscience
-
-(No. 1443)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1443 | A Clear Conscience
 
 "Then shall I not be ashamed, when I ha ve respect unto all Your commandments." Psalm 119:6.
 

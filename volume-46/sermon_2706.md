@@ -1,12 +1,4 @@
-# Feeding on the Bread of Life
-
-(No. 2706)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 23, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 6, 1881.
+# Sermon 2706 | Feeding on the Bread of Life
 
 "Verily, verily, I say unto you, He that believes on Me hats everlasting life. I am that bread of life." John 6:47, 48.
 

@@ -1,6 +1,4 @@
-# Man's Weakness&mdash;God's Anointing
-
-Sermon No. 334 - Delivered on Sabbath Morning, September 9th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 334 | Man's Weakness&mdash;God's Anointing
 
 > I am this day weak, though anointed king; and these men, the sons of Zeruiah, are too hard for me.    
 > 2 Samuel 3:39.    

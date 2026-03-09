@@ -1,12 +1,4 @@
-# Shame Leading to Salvation
-
-(No. 2491)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 15, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 31, 1886.
+# Sermon 2491 | Shame Leading to Salvation
 
 "Fill their faces with shame; that they may seek Your name, O LORRD!" Psalm 83:16.
 

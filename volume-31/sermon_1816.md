@@ -1,7 +1,4 @@
-# Sermon for New Year's-Day
-
-Sermon No. 1816 - Delivered on Thursday Evening, January 1st, 1885 the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
-(No. 1816)
+# Sermon 1816 | Sermon for New Year's-Day
 
 HOW PLEASED WE ARE with that which is new! Our children's eyes sparkle when we talk of giving them a toy or a book which is called new; for our short-lived human nature loves that which has lately come, and is therefore like our own fleeting selves. In this respect, we are all children, for we eagerly demand the news of the day, and are all too apt to rush after the "many inventions" of the hour. The Athenians, who spent their time in telling and hearing some new thing, were by no means singular persons: novelty still fascinates the crowd. As the world's poet says
 

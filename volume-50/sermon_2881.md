@@ -1,12 +1,4 @@
-# Feeble Faith Appealing to a Strong Savior
-
-(No. 2881)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 28, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 19, 1876.
+# Sermon 2881 | Feeble Faith Appealing to a Strong Savior
 
 "And immediately the father of the child cried out and said with tears, Lord, I believe; help my unbelief." Mark 9:24.
 

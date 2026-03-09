@@ -1,12 +1,4 @@
-# A Painful and Puzzling Question
-
-(No. 3241)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 16, 1911.
-
-DELIVERED BY C. H. SPURRGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3241 | A Painful and Puzzling Question
 
 "How is it that you have no faith?" Mark 4:40.
 

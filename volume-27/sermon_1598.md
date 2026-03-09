@@ -1,12 +1,4 @@
-# The Substance Of True Religion
-
-(No. 1598)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 15, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1598 | The Substance Of True Religion
 
 "But you should say, Why persecute we him, seeing the root of the matter is found in me?" Job 19:28.
 

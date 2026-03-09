@@ -1,12 +1,4 @@
-# Speaking on God's Behalf
-
-(No. 3543)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3543 | Speaking on God's Behalf
 
 "I have yet to speak on God's behalf." Job 36:2.
 

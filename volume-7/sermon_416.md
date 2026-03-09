@@ -1,6 +1,4 @@
-# The Shield Of Faith
-
-Sermon No. 416 - Delivered on Sunday Morning, October 27th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 416 | The Shield Of Faith
 
 > "Above all, taking the shield of faith, wherewith you shall be able to quench all the fiery darts of the wicked."  
 > Ephesians 6:16.  

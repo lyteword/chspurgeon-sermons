@@ -1,12 +1,4 @@
-# Forgiveness, Freedom, Favor
-
-(No. 2276)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 2 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 10, 1890.
+# Sermon 2276 | Forgiveness, Freedom, Favor
 
 "And this is the manner of the release: Every creditor that lends anything unto his neighbor shall release it; he shall not exact it of his neighbor, or of his brother; because it is called the LORD'S release." Deuteronomy 15:2.
 

@@ -1,6 +1,4 @@
-# The Form and Spirit of Religion
-
-Sermon No. 186 - Delivered on Sabbath Morning, April 4, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 186 | The Form and Spirit of Religion
 
 > Let us fetch the ark of the covenant of the Lord out of Shiloh unto us, that, when it cometh among us, it may save us out of the hand of our enemies.    
 > 1 Samuel 4:3.    

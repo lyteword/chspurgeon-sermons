@@ -1,9 +1,4 @@
-# Meeting Of The Neighboring Churches
-
-Sermon No. 372 - Delivered on Wednesday, March 27, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-
-> ""  
-> e.  
+# Sermon 372 | Meeting Of The Neighboring Churches
 
 THE invitation to the ministers and members of neighboring churches, to show their support in the opening of the new Tabernacle, by attending especially at a meeting held this evening, was most cordially accepted, and the number present proved the heartiness of the response. An audience approaching 4,000 in number assembled on the occasion, while on the platform and pulpit were a goodly array of ministerial Brothers. The CHAIR was occupied by the Rev. Dr. STEANE.
 

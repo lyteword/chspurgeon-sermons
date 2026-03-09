@@ -1,12 +1,4 @@
-# Communion With Christ--a Baptizing Sermon
-
-(No. 2668)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 1, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1858.
+# Sermon 2668 | Communion With Christ--a Baptizing Sermon
 
 "Cain two walk together, unless they are agreed?" Amos 3:3.
 

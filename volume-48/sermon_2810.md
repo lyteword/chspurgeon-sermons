@@ -1,12 +1,4 @@
-# "Nevertheless at Your Word"
-
-(No. 2810)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 21, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 3, 1877.
+# Sermon 2810 | "Nevertheless at Your Word"
 
 "Nevertheless at Your word." Luke 5:5.
 

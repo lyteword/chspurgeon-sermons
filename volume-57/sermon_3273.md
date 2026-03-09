@@ -1,12 +1,4 @@
-# A Sermon to Ministers and Other Tried Believers
-
-(No. 3273)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DURING THE SUMMER OF 1881.
+# Sermon 3273 | A Sermon to Ministers and Other Tried Believers
 
 "Casting all your care upon Him, for He cares for you." 1 Peter 5:7
 

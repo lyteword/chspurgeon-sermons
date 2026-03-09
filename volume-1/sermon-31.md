@@ -1,6 +1,4 @@
-# The Desire of the Soul in Spiritual Darkness
-
-Sermon No. 31 - Delivered on Sabbath Morning, June 24, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 31 | The Desire of the Soul in Spiritual Darkness
 
 > With my soul have I desired thee in the night.    
 > Isaiah 26:9.    

@@ -1,12 +1,4 @@
-# David Warned and Rewarded
-
-(No. 2775)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 20, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 29, 1881.
+# Sermon 2775 | David Warned and Rewarded
 
 "Moreover by them Your servant is warned: and in keeping them there is great reward." Psalm 19:11.
 

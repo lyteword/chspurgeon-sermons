@@ -1,12 +1,4 @@
-# A Dire Disease Strangely Cured
-
-(No. 2887)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 9, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 28, 1876.
+# Sermon 2887 | A Dire Disease Strangely Cured
 
 "With His stripes we are healed." Isaiah 53:5.
 

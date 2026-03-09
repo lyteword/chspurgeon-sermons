@@ -1,6 +1,4 @@
-# Human Depravity And Divine Mercy
-
-Sermon No. 615 - Delivered on Sunday Morning, February 19th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 615 | Human Depravity And Divine Mercy
 
 > And the Lord smelled a sweet savor. And the Lord said in His heart, I will not again curse the ground anymore for man's sake; for the imagination of man's heart is evil from his youth; neither will I again destroy anymore every thing living as I have done.    
 > Genesis 8:21.    

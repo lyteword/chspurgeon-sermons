@@ -1,12 +1,4 @@
-# The Holy Spirit in the Covenant
-
-(No. 3048)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 11, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY MORNING IN 1856.
+# Sermon 3048 | The Holy Spirit in the Covenant
 
 "And I will put My Spirit within you." Ezekiel 36:27.
 

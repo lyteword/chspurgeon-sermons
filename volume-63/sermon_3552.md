@@ -1,12 +1,4 @@
-# The Soul's Desertion
-
-(No. 3552)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3552 | The Soul's Desertion
 
 "My beloved had withdrawn himself, and was gone." Solomon's Song 5:6.
 

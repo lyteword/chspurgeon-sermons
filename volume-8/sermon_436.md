@@ -1,6 +1,4 @@
-# A Sermon For Spring
-
-Sermon No. 436 - Delivered on Sunday Morning, February 23rd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 436 | A Sermon For Spring
 
 > "My Beloved spoke and said unto me, Rise up, my love, my fair one and come way. For, lo, the winter is past, the rain is over and gone, the flowers appear on the earth, the time of the singing of birds is come and the voice of the turtle is heard in our land. The fig tree puts forth her green figs and the vines with the tender grape give a good smell. Arise, my love, my fair one and come away."  
 > Song of Solomon 2:10-13.  

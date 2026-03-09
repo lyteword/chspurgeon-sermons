@@ -1,12 +1,4 @@
-# Harvest Joy
-
-(No. 2265)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 17, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 6, 1890.
+# Sermon 2265 | Harvest Joy
 
 "You have magnified the nation, and increased the joy: they joy before You according to the joy in harvest, and as men rejoice when they divide the spoil." Isaiah 9:3.
 

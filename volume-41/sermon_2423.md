@@ -1,12 +1,4 @@
-# The Model Soul-winner
-
-(No. 2423)
-
-INTENDED FOR READING ON LORD'S DAY, JULY 28, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 10, 1887.
+# Sermon 2423 | The Model Soul-winner
 
 "There came a woman of Samaria to draw water: Jesus said to her, Give Me a drink." John 4:7.
 

@@ -1,12 +1,4 @@
-# On Whose Side Are You?
-
-(No. 1531)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 4, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1531 | On Whose Side Are You?
 
 "Then Moses stood in the gate of the camp and said, Who is on the Lord's side? Let him come unto me." Exodus 32:26.
 

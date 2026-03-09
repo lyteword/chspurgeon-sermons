@@ -1,12 +1,4 @@
-# Achsah's Asking--a Pattern of Prayer
-
-(No. 2312)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 11, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 2, 1889.
+# Sermon 2312 | Achsah's Asking--a Pattern of Prayer
 
 "And Caleb said, He that smites Kirjathsepher, and takes it, to him will I give Achsah, my daughter, to wife. And Othniel the son of Kenaz, Caleb's younger brother, took it: and he gave him Achsah, his daughter, to wife. And it came to pass, when she came to him, that she moved him to ask of her father a field: and she lighted from off her ass; and Caleb said unto her, What wiil you? And she said unto him, Give me a blessing: for you ha ve given me a south land; give me also springs of water. And Caleb ga ve her the upper springs and the lower springs." Judges 1:12-15.
 

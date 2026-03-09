@@ -1,12 +1,4 @@
-# Elijah's Plea
-
-(No. 1832)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON NOVEMBER 9, 1884.
+# Sermon 1832 | Elijah's Plea
 
 "Let it be known that I have done all these things at Your word." 1Kings 18:36.
 

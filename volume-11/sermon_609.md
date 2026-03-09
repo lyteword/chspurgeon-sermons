@@ -1,6 +1,4 @@
-# Knowledge Commended
-
-Sermon No. 609 - Delivered on Sunday Morning, January 15th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 609 | Knowledge Commended
 
 > But the people that know their God shall be strong and do exploits. And they that understand among the people shall instruct many.    
 > Daniel 11:32,33.    

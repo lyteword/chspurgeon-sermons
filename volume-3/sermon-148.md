@@ -1,6 +1,4 @@
-# Five Fears
-
-Sermon No. 148 - Delivered on Sabbath Morning, August 23, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 148 | Five Fears
 
 > Yet surely I know that it shall be well with them that fear God, which fear before him.    
 > Ecclesiastes 8:12.    

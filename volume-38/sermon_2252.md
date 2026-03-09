@@ -1,12 +1,4 @@
-# The Unknown Giver and the Misused Gifts
-
-(No. 2252)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 17, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 25, 1890.
+# Sermon 2252 | The Unknown Giver and the Misused Gifts
 
 "For she did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold, which they prepared for Baal. Therefore I wiil return, and take away My corn in the time thereof, and My wine in the season thereof, and will recover My wool and flax." Hosea 2:8,9.
 

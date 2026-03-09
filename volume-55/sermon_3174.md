@@ -1,12 +1,4 @@
-# Concentration and Diffusion
-
-(No. 3174)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 9, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3174 | Concentration and Diffusion
 
 "Then took Mary a pound of ointment of spikenard, very costly, and anointed the feet of Jesus, and wiped His feet with her hair: and the house was filled with the odor of the ointment." John 12:3.
 

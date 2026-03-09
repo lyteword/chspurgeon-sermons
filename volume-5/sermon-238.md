@@ -1,6 +1,4 @@
-# Reform
-
-Sermon No. 238 - Delivered on Sabbath Morning, February 13th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 238 | Reform
 
 > Now when all this was finished, all Israel that were present went out to the cities of Judah, and brake the images in pieces, and cut down the groves, and threw down the high places and the altars out of all Judah and Benjamin, in Ephraim also and Manasseh, until they had utterly destroyed them all.    
 > 2 Chronicles 31:1.    

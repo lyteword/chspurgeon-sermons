@@ -1,12 +1,4 @@
-# Shining Christians
-
-(No. 2617)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 9, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 1, 1882.
+# Sermon 2617 | Shining Christians
 
 "Arise shine; for your light is come, and the Glory ofthe LORD is risen upon you." Isaiah 60:1.
 

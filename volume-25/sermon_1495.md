@@ -1,12 +1,4 @@
-# The King-Priest
-
-(No. 1495)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 21, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1495 | The King-Priest
 
 "He shall sit and rule on His throne; and He shall be a priest on His throne: and the counsel of peace shall be between them both." Zechariah 6:13.
 

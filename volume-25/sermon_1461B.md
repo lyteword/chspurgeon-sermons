@@ -1,12 +1,4 @@
-# Eyes Opened
-
-(No. 1461B)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1461B | Eyes Opened
 
 "And God opened her eyes." Genesis 21:19.
 

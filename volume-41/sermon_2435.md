@@ -1,12 +1,4 @@
-# The Everlasting Arms
-
-(No. 2435)
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 20, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 6, 1887.
+# Sermon 2435 | The Everlasting Arms
 
 "Underneath are the everlasting arms." Deuteronomy 33:27.
 

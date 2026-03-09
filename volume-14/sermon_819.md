@@ -1,8 +1,4 @@
-# The Minstrelsy of Hope
-
-A Sermon (No. 819)
-
-Delivered on Lord's Day Morning, July 5, 1868, by C. H. SPURGEON, at the [29]Metropolitan Tabernacle, Newington.
+# Sermon 819 | The Minstrelsy of Hope
 
 "God, even our own God, shall bless us. God shall bless us." Psalm 67:6, 7.
 

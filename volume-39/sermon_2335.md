@@ -1,12 +1,4 @@
-# Three Texts, But One Subject-- Faith
-
-(No. 2335)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 19, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 22, 1889.
+# Sermon 2335 | Three Texts, But One Subject-- Faith
 
 "In the shadow of Your wings will I make my refuge." Psalm 57:1.
 

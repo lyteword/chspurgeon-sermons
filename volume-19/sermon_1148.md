@@ -1,12 +1,4 @@
-# The Parent's and Pastor's Joy
-
-(No. 1148)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 21 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1148 | The Parent's and Pastor's Joy
 
 "I have no greater joy than to hear that my children walk in truth." 3 John 1:4.
 

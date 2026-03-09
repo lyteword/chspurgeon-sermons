@@ -1,12 +1,4 @@
-# "Marvelous Things"
-
-(No. 3086)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 2, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 7, 1874.
+# Sermon 3086 | "Marvelous Things"
 
 "O sing unto the LORD a new song, for He hats done marvelous things: His right hand and His holy arm have gotten Him the victory. The LORD has made known His salvation: His righteousness has He openly showed in the sight of the heathen." Psalm 98:1,2.
 

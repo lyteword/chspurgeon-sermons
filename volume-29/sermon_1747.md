@@ -1,12 +1,4 @@
-# Marvelous! Marvelous!
-
-(No. 1747)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 28, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1747 | Marvelous! Marvelous!
 
 "Thus says the LORD of Hosts: If it is marvelous in the eyes of the remnant of this people in these days, will it also be marvelous in My eyes? says the LORD of Hosts." Zechariah 8:6.
 

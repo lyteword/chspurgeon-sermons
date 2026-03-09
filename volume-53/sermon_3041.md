@@ -1,12 +1,4 @@
-# The Sparrow and the Swallow
-
-(No. 3041)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 23, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 30, 1870.
+# Sermon 3041 | The Sparrow and the Swallow
 
 "Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young, even Your altars, O LORD of Hosts, my King, and my God." Psalm 84:3.
 

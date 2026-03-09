@@ -1,6 +1,4 @@
-# A Word for the Persecuted
-
-Sermon No. 1188 - Delivered on Lord's-Day Morning, August 16th, 1874 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1188 | A Word for the Persecuted
 
 What if thy father answer thee roughly?''1 Samuel 20:10.
 

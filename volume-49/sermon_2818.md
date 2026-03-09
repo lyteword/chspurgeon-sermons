@@ -1,12 +1,4 @@
-# Jesus and His Forerunner
-
-(No. 2818)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 15, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 24, 1877.
+# Sermon 2818 | Jesus and His Forerunner
 
 "Therefore they sought again to take Him: but He escaped out of their hands, and went away again beyond the Jordan to the place where John at first baptized, and there He abode. And many resorted unto Him and said, John did no miracle: but all things that John spoke of this Man were true. And many believed on Him there." John 10:39-42.
 

@@ -1,12 +1,4 @@
-# Without Christ--Nothing
-
-(No. 1625)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 23, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1625 | Without Christ--Nothing
 
 "Without Me you can do nothing." John 15:5.
 

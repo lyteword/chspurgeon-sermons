@@ -1,12 +1,4 @@
-# The Blessings of Public Worship
-
-(No. 2395)
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 13, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 3, 1887.
+# Sermon 2395 | The Blessings of Public Worship
 
 "Two men went up into the Temple to pray; the one a Pharisee, and the other a publican." Luke 18:10.
 

@@ -1,7 +1,4 @@
-# A Prayer for the Church Militant
-
-Sermon No. 768 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 768 | A Prayer for the Church Militant
 
 "Save Your people, and bless Your inheritance: feed them also, and lift them up forever."- Psalm 28:9.
 

@@ -1,12 +1,4 @@
-# Shall and Will
-
-(No. 3416)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 23, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3416 | Shall and Will
 
 "He shall call upon Me, and I will answer him." Psalm 91:15.
 

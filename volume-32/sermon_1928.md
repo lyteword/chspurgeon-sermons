@@ -1,12 +1,4 @@
-# Our Ascended Lord
-
-(No. 1928)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 7, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1928 | Our Ascended Lord
 
 "Who has gone into Hea ven and is at the right hand of God; angels and authorities and po wers being made subject to Him." 1 Peter 3:22.
 

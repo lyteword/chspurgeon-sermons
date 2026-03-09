@@ -1,6 +1,4 @@
-# Supposing Him to be the Gardener
-
-Sermon No. 1699 - Delivered on Lord's Day Morning, December 31st, 1882 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1699 | Supposing Him to be the Gardener
 
 > "Supposing him to be the gardener."  
 > John 20:15.  

@@ -1,12 +1,4 @@
-# A Powerful Reason For Coming To Christ
-
-(No. 1529)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 21, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1529 | A Powerful Reason For Coming To Christ
 
 "A great multitude, when they had heard what great things He did, came unto Him." Mark 3:8.
 

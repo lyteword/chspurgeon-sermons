@@ -1,18 +1,4 @@
-# Accidents, Not Punishments
-
-Spurgeon preached this message in response to two disasters that had hit very close to home. On Sunday, August 25, 1861, a nightmarish collision between two trains in the Clayton Tunnel (a 1.5-mile long tunnel between London and Brighton) had claimed 23 lives and severely injured hundreds. Barely more than two weeks later, on Monday, September 2, another train wreck in Kentish Town Fields (in North London) claimed 15 more lives. See:
-
-[1]http://ukhrail.uel.ac.uk/glossary/clayton.html
-
-[2]http://ukhrail.uel.ac.uk/glossary/sigs.html
-
-[3]http://www.hassocksuk.com/clayton_tunnel.htm
-
-A Sermon
-
-(No. 408)
-
-Delivered on Sunday Morning, September the 8th, 1861 by the
+# Sermon 408 | Accidents, Not Punishments
 
 Rev. C. H. SPURGEON,
 

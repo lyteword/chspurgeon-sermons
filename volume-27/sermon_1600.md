@@ -1,6 +1,4 @@
-# A Greater Than Solomon
-
-Sermon No. 1600 - Delivered on Lord's-Day Evening, February 6th, 1881 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1600 | A Greater Than Solomon
 
 Behold a greater than Solomon is here''Luke 11:31.
 

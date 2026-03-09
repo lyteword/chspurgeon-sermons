@@ -1,6 +1,4 @@
-# Paul--His Cloak And His Books
-
-Sermon No. 542 - Delivered on Sunday Morning, November 29th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 542 | Paul--His Cloak And His Books
 
 > "The cloak that I left at Troas with Carpus, when you come, bring with you, and the books, but especially the parchments."  
 > 2 Timothy 4:13.  

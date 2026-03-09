@@ -1,12 +1,4 @@
-# Think Well And Do Well
-
-(No. 956)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 23, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 956 | Think Well And Do Well
 
 "For Your loving kindness is before my eyes: and I have walked in Your Truth." Psalm 26:3.
 

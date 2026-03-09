@@ -1,12 +1,4 @@
-# The Resurrection Credible
-
-(No. 1067)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 25, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1067 | The Resurrection Credible
 
 "Why should it be thought a thing incredible with you, that God should raise the dead?" Acts 26:8.
 

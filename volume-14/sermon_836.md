@@ -1,8 +1,4 @@
-# Sown Light
-
-A Sermon (No. 836)
-
-Delivered on Lord's-Day Morning, October 11, 1868, by C. H. SPURGEON, at the [45]Metropolitan Tabernacle, Newington.
+# Sermon 836 | Sown Light
 
 "Light is sown for the righteous, and gladness for the upright in heart." Psalm 97:11.
 

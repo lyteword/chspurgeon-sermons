@@ -1,12 +1,4 @@
-# The Word of the Cross
-
-(No. 1611)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 31, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1611 | The Word of the Cross
 
 "For the preaching of the Cross is to them that perish foolishness; but unto us which are sa ved it is the power of God." 1 Corinthians 1:18.
 

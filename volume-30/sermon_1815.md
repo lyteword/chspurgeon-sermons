@@ -1,12 +1,4 @@
-# The Great Birthday and Our Coming of Age
-
-(No. 1815)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 21, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1815 | The Great Birthday and Our Coming of Age
 
 "Even so we, when we were children, were in bondage under the elements of the world. But when the fullness of the time had come, God sent forth His Son, made of a woman, born under the Law, to redeem those who were under the Law, that we might receive the adoption of sons. And because you are sons, God has sent forth the Spirit of His Son into your hearts, crying, "Abba, Father." Galatians 4:3-6.
 

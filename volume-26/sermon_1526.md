@@ -1,12 +1,4 @@
-# The Fair Portrait of a Saint
-
-(No. 1526)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 7, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1526 | The Fair Portrait of a Saint
 
 "My foot has held fast to His steps, His way have I kept and not declined. Neither have I gone back from the commandment of His lips; I have esteemed the words of His mouth more than my necessary food." Job 23:11,12.
 

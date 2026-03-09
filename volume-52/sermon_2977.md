@@ -1,12 +1,4 @@
-# Plowing Rock
-
-(No. 2977)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 12, 1876.
+# Sermon 2977 | Plowing Rock
 
 "Shall horses run upon the rocks? Will oneplow there with oxen?" Amos 6:12.
 

@@ -1,7 +1,4 @@
-# A God Ready to Pardon
-
-Sermon No. 1272 - Delivered on Lord's-Day Morning, January 9th, 1876 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
-(No. 1272)
+# Sermon 1272 | A God Ready to Pardon
 
 WHEN A MAN'S CONSCIENCE is so awakened to the existence of sin that he cannot perceive any plea for mercy within himself, it is his wisdom to look for a plea in the nature and character of God. Now, brethren, if we search ourselves through and through, we cannot find anything in our fallen nature which can recommend us to the Most High. If we think that we have a claim upon God's goodness, we are in darkness, and deceive ourselves. When the true light comes, it reveals our bareness of all merit or excuse, and shows that there is nothing in human nature but that which provokes the Lord. This is the fact as to our condition while we are unregenerate, and oftentimes the true believer, when darkness gathers around him, finds himself to be in much the same condition. His evidences burn dimly, the candle of the Lord seems quenched within his spirit, and, worst of all, the sun of divine favor is not discernible; then groping all around he can discover nothing in himself but that which causes him to sigh and groan, being burdened. In such a plight he should cast overboard the great anchor of faith, and escape from himself to his God. It were well for him always to do so, but especially in the cloudy and dark day. To whom should he turn for light but to the Sun of Righteousness? Where look for grace but to the God of all grace? Where for all but to the All in all? If what I am makes me despair, let me consider what God in Christ is and I shall have hope.
 

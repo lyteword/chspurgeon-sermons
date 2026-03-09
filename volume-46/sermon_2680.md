@@ -1,12 +1,4 @@
-# Ruth Deciding for God
-
-(No. 2680)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 24, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 21, 1881.
+# Sermon 2680 | Ruth Deciding for God
 
 "And Ruth said, Entreat me not to leave you, or to return from following after you: for where you go, I will go; and where you lodge, I will lodge: your people shall be my people, and your God my God." Ruth 1:16.
 

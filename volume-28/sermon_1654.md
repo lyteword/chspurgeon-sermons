@@ -1,12 +1,4 @@
-# "At Your Word"
-
-(No. 1654)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 16, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1654 | "At Your Word"
 
 "And Simon answering said unto Him, Master, we have toiled all the night, and have taken nothing: nevertheless at Your word I will let down the net." Luke 5:5.
 

@@ -1,12 +1,4 @@
-# Heedful Hearing
-
-(No. 3357)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 5, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 23, 1868.
+# Sermon 3357 | Heedful Hearing
 
 "Take heed, therefore, how you hear." Luke 8:18.
 

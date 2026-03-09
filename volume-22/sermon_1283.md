@@ -1,12 +1,4 @@
-# Conversions Encouraged
-
-(No. 1283)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 12, 1876,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1283 | Conversions Encouraged
 
 "But if from there you shall seek the Lord your God, you shall find Him, if you seek Him with all your heart and with all your soul. When you are in tribulation, and all these things are come upon you, even in the latter days, if you turn to the Lord your God, and shall be obedient unto His voice; (for the Lord your God is a merciful God); He will not forsake you, neither destroy you, nor forget the Covenant of your fathers which He swore unto them." Deuteronomy 4:29-31.
 

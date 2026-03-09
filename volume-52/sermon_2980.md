@@ -1,12 +1,4 @@
-# A Lift for the Prostrate
-
-(No. 2980)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 22, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 19, 1875.
+# Sermon 2980 | A Lift for the Prostrate
 
 "And he (that is, Jesus) came and took her by the hand, and lifted her up; and immediately the fever left her, and she ministered unto them." Mark 1:31.
 

@@ -1,12 +1,4 @@
-# Jonah's Resolve--or, "Look Again!"
-
-(No. 1813)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 14, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1813 | Jonah's Resolve--or, "Look Again!"
 
 "Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple." Jonah 2:4.
 

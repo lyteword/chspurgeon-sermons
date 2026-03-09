@@ -1,12 +1,4 @@
-# Strange Dispensations and Matchless Consolations
-
-(No. 2754)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 24, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE AUTUMN OF 1859.
+# Sermon 2754 | Strange Dispensations and Matchless Consolations
 
 "Therefore, behold, I will allure her, and bring her into the wilderness, and speak comfortably to her." Hosea 2:14.
 

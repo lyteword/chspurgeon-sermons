@@ -1,12 +1,4 @@
-# An Indictment with Four Counts
-
-(No. 1580)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1580 | An Indictment with Four Counts
 
 "She obeyed not His voice; she received not correction; she trusted not in the Lord; she drew not near to her God." Zephaniah 3:2.
 

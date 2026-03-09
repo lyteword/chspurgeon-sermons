@@ -1,16 +1,7 @@
-# The Fear of Death
-
-(No. 3286)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 25, 1912,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 25, 1866.
+# Sermon 3286 | The Fear of Death
 
 "Forasmuch then as the children are partakers of flesh and blood, He Himself likewise shared in the same, that through death He might destroy him who had the power of death, that is, the devil, and deliver those who through fear of death were all their lifetime subject to bondage." Hebrews 2:14,15.
 
-[Another Sermon by Mr. Spurgeon, upon verse 14, is No. 166, Volume 4, in The New Park Street Pulpit, "The Destroyer Destroyed:"]
 
 BEFORE speaking upon the main subject of the text, I cannot help drawing your attention to those two words, "the children." Hear that sweet expression again, for it is one of the choicest descriptions of the saints, "the children." "You are all the children of God by faith in Christ Jesus." What a wonderful influence the children have in the house! How many of the arrangements are made especially with a view to them! How much of the wear and tear of life to their parents is for their sakes! And we may truly say, concerning our Father in Heaven, that His plans, His arrangements, His actions, His gifts are very emphatically for the children! He uses all things in this great house of His for the education of the children--and when their education shall be finished--He will clear all these things away just as the builder takes down the scaffolding around the house when it is complete.
 
@@ -110,17 +101,14 @@ For I delivered unto you first of all that which I, also, received, The preacher
 
 3, 4. How that Christ died for our sins according to the Scripture; and that He was buried, and that He rose again the third day according to the Scriptures. There are many passages in the Old Testament which describe the Messiah as dying for sinners, especially the chapter of Isaiah's prophecy. There are others that speak of Him as being buried, yet not corrupting in the tomb. These were facts which the Apostle had received upon the testimony of others; now comes the great fact of the Resurrection.
 
-5-8. And that He was seen of Cephas, then of the twelve: after that, He was seen of above five hundred brethren at once; of whom the greater part remain unto this present, but some are fallen asleep. After that, He was seen of James; then of all the Apostle and last of all He was seen of me, also, as of one born out of due time. [See Metropolitan Tabernacle Pulpit, No. 2663, Volume 433--" A Leap Year Sermon." ] The Apostle does not attempt to defend the doctrine of the Resurrection by an argument fetched from reason, but he proves it by undoubted evidence. If I had to prove that there existed such a tree as the cedar, I should not use logical arguments further than this--I produce a certain number of men who have seen a cedar and the thing is proved by their testimony. If the evidence of honest men is not accepted, then there is an end, not only to Christianity, but to all the sciences--and you and I must wander forever in a maze of doubts. Now, of all the facts recorded in history, there is not one which is better attested than the Resurrection of Jesus Christ. The men who testified that they had seen the risen Christ evidently had no selfish reason for doing so. What is the result of their testimony? They were cast into prison! They were stoned! They were sawn asunder, simply for believing the evidence of their own senses, and testifying what they knew to be true! It is clear that they would have had no interest in publishing this fact if it had not been true--their interest would have lain quite the other way. Besides, it was not as if only a few had seen Him, but over 500 brethren at once beheld Him. For 40 days He was gazed upon by different persons and the feat is proved beyond all doubt.
 
 For I am the least of the Apostles and am not meet to be called an Apostle because Ipersecuted the Church of God. "God has forgiven me," said a good man once, "but I shall never forgive myself." So was it with the Apostle Paul. He knew that God had forgiven him and honored him by making him an Apostle, but he could not forgive himself and, no
 
 doubt, the tears gushed from his eyes when he wrote these words, "I am not meet to be called an Apostle because I persecuted the Church of God."
 
-But by the Grace of God I am what I am: and His Grace which was bestowed upon me was not in vain, but I labored more abundantly than they all: yet not I, but the Grace of God which was with me. [See Metropolitan Tabernacle Pulpit, No. 2833, Volume 499--" Lessons on Divine Glory."] In what humble tones Paul speaks! He will not deny what Divine Grace has done in him and by him, but he will ascribe it all to God. Brothers and Sisters, you are not to shut your eyes to the gracious change which God's Holy Spirit has worked in you! You may speak of it and speak of it often, but always guard against taking any of the honor to yourselves--and be especially careful to put the crown upon the right head.
 
 11, 12. Therefore whether it were I or they, so we preach, and so you believed. Now if Christ is preached that He rose from the dead, how say some among you that there is no resurrection of the dead?For Christ was the pattern Man to all His people. He is their Representative. Whatever He did, He did for them and whatever was worked in Him shall be surely worked in them. So if Christ rose from the dead, then all who are members of His mystical body must rise, too, for when the Head comes out of the grave, you cannot retain the members in it! Prove that Christ rose and you prove that His people rise, for they are one with Him.
 
-But if there is no resurrection of the dead, then is Christ not risen. [See Metropolitan Tabernacle Pulpit, No. 2287,Volume 38-- "If There Is No Resurrection,"] Yet it is proved by hundreds of credible witnesses that Christ is risen, therefore there is a resurrection.
 
 And if Christ is not risen, then is our preaching vain, and your faith is also vain. This Truth of God is the keystone of the arch--put this away and the whole tumbles down! It is upon this that the whole Christian system rests. If the Resurrection of Christ is a mere myth and not a positive matter of fact, preaching and faith are equally vain.
 
@@ -142,6 +130,5 @@ Otherwise what shall they do who are baptized for the dead, if the dead rise not
 
 And why stand we in jeopardy every hour? Why were the Apostles always subjecting themselves to cruel persecution?
 
-I protest by your rejoicing which I have in Christ Jesus our Lord, I did daily. [See Metropolitan Tabernacle Pulpit, No. 828, Volume 14--" Dying Daily."] He was so hunted about everywhere that there was not a day in which he felt secure of his life, so he asks, "Why should I endure this if there is no world to come ?"
 
 If after the manner of men I have fought with beasts at Ephesus, what advantage is it to me, if the dead rise not?It is quite possible that Paul was thrown to the lions in the theater at Ephesus and that he fought with them and came off a conqueror. "But why," he asks, "did I try to save my life for future labor and for future suffering if the dead rise not?" 32. Let us eat and drink; for tomorrow we die. This is the best philosophy in the world if there is no life to come. So Paul has proved his point right well by every argument that he has used.

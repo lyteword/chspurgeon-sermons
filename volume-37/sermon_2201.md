@@ -1,12 +1,4 @@
-# The Sword of the Spirit
-
-(No. 2201)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2201 | The Sword of the Spirit
 
 "Take the sword of the Spirit, which is the Word of God." Ephesians 6:17.
 

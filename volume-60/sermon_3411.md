@@ -1,12 +1,4 @@
-# Joining the Church
-
-(No. 3411)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 18, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING OCTOBER 24, 1869.
+# Sermon 3411 | Joining the Church
 
 "And this they did, not as we hoped, but first gave their own selves unto the Lord, and unto us by the will of God." 2 Corinthians 8:5.
 

@@ -1,12 +1,4 @@
-# Justification by Faith
-
-(No. 3392)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 5, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, APRIL 28, 1867.
+# Sermon 3392 | Justification by Faith
 
 "Therefore, being justified by faith, we have peace with God through our Lord Jesus Christ." Romans 5:1.
 

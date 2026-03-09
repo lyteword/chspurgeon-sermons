@@ -1,12 +1,4 @@
-# The Trees in God's Courts
-
-(No. 1365)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1365 | The Trees in God's Courts
 
 "Those that are planted in the house of the Lord shall flourish in the courts of our God. They shall still bring forth fruit in old age; they shall be fat and flourishing; to show that the Lord is upright; He is my rock, and there is no unrighteousness in Him." Psalm 92:13-15.
 

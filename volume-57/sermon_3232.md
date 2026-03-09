@@ -1,12 +1,4 @@
-# Facts and Inferences
-
-(No. 3232)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 12, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 13, 1863.
+# Sermon 3232 | Facts and Inferences
 
 "I have seen the wicked in great power, and spreading himself like a green bay tree, Yet he passed away, and, lo, he was not: yes, I sought him, but he could not be found. Mark the perfect man, and behold the upright for the end of that man is peace." Psalm 37:35-37.
 

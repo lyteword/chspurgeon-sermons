@@ -1,12 +1,4 @@
-# The Believer's Glad Prospects
-
-(No. 3323)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 10, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3323 | The Believer's Glad Prospects
 
 "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of BBether." Solomon's Song 2:17.
 

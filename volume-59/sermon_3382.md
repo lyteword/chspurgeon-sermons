@@ -1,12 +1,4 @@
-# Our Lord's Transcendent Greatness
-
-(No. 3382)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 27, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, DECEMBER 2, 1866.
+# Sermon 3382 | Our Lord's Transcendent Greatness
 
 "Now shall He be great unto the ends of the earth." Micah 5:4.
 

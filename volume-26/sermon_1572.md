@@ -1,12 +1,4 @@
-# Untitled Sermon
-
-(No. 1572)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 12, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1572 | Untitled Sermon
 
 "The righteousness of Your testimonies is everlasting: give me understanding and I shall live." Psalm 119:144.
 

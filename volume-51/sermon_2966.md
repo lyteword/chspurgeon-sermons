@@ -1,12 +1,4 @@
-# Resistance to Salvation
-
-(No. 2966)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 12, 1875.
+# Sermon 2966 | Resistance to Salvation
 
 "What have I to do with You, Jesus, You Son of the Most High God?" Mark 5:7.
 

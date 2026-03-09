@@ -1,12 +1,4 @@
-# A Family Sermon
-
-(No. 1336)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1336 | A Family Sermon
 
 "And the Lord said unto Noah, Come you and all your house into the ark...And Noah went in, and his sons, and his wife, and his sons' wives with him, into the ark, because of the waters of the flood." Genesis 7:1, 7.
 

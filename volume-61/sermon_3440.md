@@ -1,12 +1,4 @@
-# Attention!
-
-(No. 3440)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 7, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3440 | Attention!
 
 "Hear you Him." Matthew 17:5.
 

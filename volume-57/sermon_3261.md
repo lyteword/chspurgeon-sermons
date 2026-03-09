@@ -1,12 +1,4 @@
-# The Covenant
-
-(No. 3261)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3261 | The Covenant
 
 "He will ever be mindful of His Covenant." Psalm 111:5.
 

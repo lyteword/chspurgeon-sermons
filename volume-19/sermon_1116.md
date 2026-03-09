@@ -1,12 +1,4 @@
-# Medicine For The Distracted
-
-(No. 1116)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1116 | Medicine For The Distracted
 
 "In the multitude of my thoughts within me Your comforts delight my soul." Psalm 94:19.
 

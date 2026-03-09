@@ -1,12 +1,4 @@
-# A Definite Challenge for Definite Prayer
-
-(No. 3537)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3537 | A Definite Challenge for Definite Prayer
 
 "And Jesus answered and said unto him, What do you want Me to do for you?" Mark 10:51.
 

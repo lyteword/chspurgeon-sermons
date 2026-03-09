@@ -1,12 +1,4 @@
-# The Monster Dragged to Light
-
-(No. 1095)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 9, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1095 | The Monster Dragged to Light
 
 "Sin, that it might appear sin, working death in me by that which is good, that sin by the commandment might become exceedingly sinful." Romans 7:13.
 

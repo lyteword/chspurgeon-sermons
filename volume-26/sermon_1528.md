@@ -1,12 +1,4 @@
-# "They Were Tempted"
-
-(No. 1528)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 14, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1528 | "They Were Tempted"
 
 "They were tempted." Hebrews 11:37.
 

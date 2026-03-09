@@ -1,12 +1,4 @@
-# Freedom At Once and Forever
-
-(No. 2371)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 29, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 13, 1888
+# Sermon 2371 | Freedom At Once and Forever
 
 "To proclaim liberty to the captives." Isaiah 61:1.
 

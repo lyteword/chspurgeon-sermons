@@ -1,12 +1,4 @@
-# "Your Rowers Have Brought You Into Great Waters"
-
-(No. 1933)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 12, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 10 1885.
+# Sermon 1933 | "Your Rowers Have Brought You Into Great Waters"
 
 "Your rowers have brought you into great waters." Ezekiel 27:26.
 

@@ -1,12 +1,4 @@
-# The Voice from the Cloud and the Voice of the Beloved
-
-(No. 1727)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 24, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1727 | The Voice from the Cloud and the Voice of the Beloved
 
 "While He yet spoke, behold, a bright cloud overshadowed them: and behold a voice out of the cloud, which said, This is My beloved Son, in whom I am well pleased; hear Him. And when the disciples heard it, they fell on their faces, and were afraid. And Jesus came and touched them, and said, Arise, and be not afraid." Matthew 17:5, 6, 7.
 

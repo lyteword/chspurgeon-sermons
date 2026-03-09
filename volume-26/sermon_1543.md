@@ -1,12 +1,4 @@
-# The Sheep Before The Shearers
-
-(No. 1543)
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 20, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1543 | The Sheep Before The Shearers
 
 "As a sheep before her shearers is dumb, so He opens not His mouth." Isaiah 53:7.
 

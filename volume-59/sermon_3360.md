@@ -1,12 +1,4 @@
-# Pleading With the Indifferent
-
-(No. 3360)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 26, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3360 | Pleading With the Indifferent
 
 "Is it nothing to you, all you that pass by? Behold, and see if there is any sorrow like unto my sorrow, which is done unto me, wherewith the Lord has afflicted me in the day ofHis fierce anger." Lamentations 1:12.
 

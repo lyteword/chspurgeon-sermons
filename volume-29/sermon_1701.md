@@ -1,12 +1,4 @@
-# Gladness For Sadness
-
-(No. 1701)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 14, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1701 | Gladness For Sadness
 
 "Make us glad according to the days in which You have afflicted us, and the years in which we have seen evil. Let Your work appear to Your servants, and Your glory to their children. And let the beauty of the Lord our God be upon us, and establish the work of our hands for us; yes, establish the work of our hands." Psalm 90:15-17.
 

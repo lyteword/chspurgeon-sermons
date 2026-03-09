@@ -1,6 +1,4 @@
-# The New Nature
-
-Sermon No. 398 - Delivered on Sunday Morning, June the 30th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 398 | The New Nature
 
 > "Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for over. For all flesh is as grass, and all the glory of man as the flower of grass. The grass withereth, and the flower thereof falleth away: but the word of the Lord endureth for ever. And this is the word which by the gospel is preached unto you."  
 > 1 Peter 1:23-25.  

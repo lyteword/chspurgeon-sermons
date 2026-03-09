@@ -1,7 +1,4 @@
-# The Perseverance of the Saints
-
-Sermon No. 872 - Delivered on Sunday Morning, MAY 23, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 872 | The Perseverance of the Saints
 
 "Being confident of this very thing, that He who has begun a good work in you will perform it until the day of Jesus Christ."- Philippians 1:6.
 

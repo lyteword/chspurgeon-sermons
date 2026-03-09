@@ -1,12 +1,4 @@
-# A Challenge and a Shield
-
-(No. 2240)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 24, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 24, 1890.
+# Sermon 2240 | A Challenge and a Shield
 
 "Who is he that condemns? It is Christ that died." Romans 8:34.
 

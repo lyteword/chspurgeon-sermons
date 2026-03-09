@@ -1,14 +1,4 @@
-# The Cripple at Lystra
-
-A Sermon
-
-(No. 559)
-
-by the
-
-Rev. C. H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
+# Sermon 559 | The Cripple at Lystra
 
 "The same heard Paul speak: who stedfastly beholding him, and perceiving that he had faith to be healed, said with a loud voice, Stand upright on thy feet. And he leaped and walked."--Acts 14:9-10.
 

@@ -1,14 +1,4 @@
-# The Arrows of the Bow Broken in Zion
-
-A Sermon
-
-(No. 791)
-
-Delivered on Lord's-Day Morning, January 19, 1868, by
-
-H. SPURGEON,
-
-at the [4]Metropolitan Tabernacle, Newington.
+# Sermon 791 | The Arrows of the Bow Broken in Zion
 
 "There broke He the arrows of the bow, the shield, and the sword, and the battle." Psalm 76:3.
 

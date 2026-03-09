@@ -1,6 +1,4 @@
-# Consider Before You Fight
-
-Sermon No. 632 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 632 | Consider Before You Fight
 
 > What king, going to make war against another king, sits not down first and consults whether he is able with ten thousand to meet him that comes against him with twenty thousand? Or else, while the other is yet a great way off, he sends a delegation and desires conditions of peace.    
 > Luke 14:31,32.    

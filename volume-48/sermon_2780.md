@@ -1,12 +1,4 @@
-# The Sojourn in Mesech
-
-(No. 2780)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 25, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE SPRING OF 1860.
+# Sermon 2780 | The Sojourn in Mesech
 
 "Woe is me, that I sojourn in Mesech, that I dwell in the tents of Kedar!" Psalm 120:5.
 

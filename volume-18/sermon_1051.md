@@ -1,12 +1,4 @@
-# Golden Bowls Full Of Incense
-
-(No. 1051)
-
-A SERMON DELIVERED ON SUNDAY MORNING, MAY 19, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1051 | Golden Bowls Full Of Incense
 
 "Golden vials full of incense, which are the prayers of saints." Revelation 5:8.
 

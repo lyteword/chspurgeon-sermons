@@ -1,12 +1,4 @@
-# "The True Sayings of God"
-
-(No. 3144)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 13, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 23, 1873
+# Sermon 3144 | "The True Sayings of God"
 
 "These are the true sayings ofGod." Revelation 19:9.
 

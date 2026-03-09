@@ -1,12 +1,4 @@
-# "The Zeal of the Lord"
-
-(No. 3432)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3432 | "The Zeal of the Lord"
 
 "The zeal of the Lord of Hosts will perform this." Isaiah 9:7.
 

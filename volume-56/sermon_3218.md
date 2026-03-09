@@ -1,12 +1,4 @@
-# Preaching Christ Crucified
-
-(No. 3218)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 6, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 23, 1863.
+# Sermon 3218 | Preaching Christ Crucified
 
 "But we preach Christ crucified." 1 Corinthians 1:23.
 

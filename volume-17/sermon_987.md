@@ -1,6 +1,4 @@
-# Marah; or, The Bitter Waters Sweetened
-
-Sermon No. 987 - Delivered on Lord's-day Morning, April 23rd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 987 | Marah; or, The Bitter Waters Sweetened
 
 > "And when they came to Marah, they could not drink of the waters of Marah for they were bitter: therefore the name of it was called Marah. And the people murmured against Moses, saying, What shall we drink? And he cried unto the Lord, and the Lord showed him a tree, which when he had cast into the waters, the waters were made sweet."  
 > Exodus 15:23-25.  

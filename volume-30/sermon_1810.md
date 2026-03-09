@@ -1,12 +1,4 @@
-# The Lion and the Bear--Trophies Hung Up
-
-(No. 1810)
-
-A SERMON DELIVERED ON THURSDAY EVENING, SEPTEMBER 25, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1810 | The Lion and the Bear--Trophies Hung Up
 
 "Your servant slew both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he has defied the armies of the living God. David said moreover, The Lord that delivered me out of the paw of the lion, and out of the paw of the bear, He will deliver me out of the hand of this Philistine." 1 Samuel 17:36,37.
 

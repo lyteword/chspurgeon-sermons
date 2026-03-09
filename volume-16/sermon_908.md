@@ -1,12 +1,4 @@
-# Assured Security In Christ
-
-(No. 908)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 2, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 908 | Assured Security In Christ
 
 "I know Whom I have believed, and am persuaded that He is able to keep that which Ihave committed unto Him against that day." 2 Timothy 1:12.
 

@@ -1,12 +1,4 @@
-# Sleepers Awakened
-
-(No. 2903)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 29, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 27, 1876.
+# Sermon 2903 | Sleepers Awakened
 
 "But Jonah was gone down into the lowest part of the ship; and he lay there and was fast asleep." Jonah 1:5.
 

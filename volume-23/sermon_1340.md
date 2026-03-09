@@ -1,12 +1,4 @@
-# Manoah's Wife and Her Excellent Argument
-
-(No. 1340)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1340 | Manoah's Wife and Her Excellent Argument
 
 "And Manoah said unto his wife, We shall surely die, because we have seen God. But his wife said unto him, If the Lord were pleased to kill us, He would not have received a burnt offering and a meat offering at our hands, neither would He have showed us all these things, nor would He at this time ha ve told us such things as these." Judges 13:22,23.
 

@@ -1,12 +1,4 @@
-# The Soul's Best Food
-
-(No. 2786)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 6, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 13, 1878.
+# Sermon 2786 | The Soul's Best Food
 
 "Eat what is good, and let your soul delight itself in fatness." Isaiah 55:2.
 

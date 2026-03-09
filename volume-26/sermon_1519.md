@@ -1,12 +1,4 @@
-# At School
-
-(No. 1519)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1519 | At School
 
 "Teach me to do Your will; for You are my God." Psalm 143:10.
 

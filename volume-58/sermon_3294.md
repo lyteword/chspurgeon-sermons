@@ -1,12 +1,4 @@
-# The Lord's Eternal Rest
-
-(No. 3294)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 21, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 22, 1886.
+# Sermon 3294 | The Lord's Eternal Rest
 
 "This is My rest forever: here will I dwell; for I have desired it" Psalm 132:14.
 

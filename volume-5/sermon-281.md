@@ -1,6 +1,4 @@
-# The Saviour's Many Crowns
-
-Sermon No. 281 - Delivered on Sabbath Morning, October 30th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 281 | The Saviour's Many Crowns
 
 > On his head were many crowns.    
 > Revelation 19:12.    

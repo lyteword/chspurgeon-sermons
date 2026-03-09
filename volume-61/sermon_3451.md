@@ -1,12 +1,4 @@
-# Grand Glorying
-
-(No. 3451)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 25, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, JULY 5, 1868.
+# Sermon 3451 | Grand Glorying
 
 "But God forbid that I should glory, save in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world." Galatians 6:14.
 

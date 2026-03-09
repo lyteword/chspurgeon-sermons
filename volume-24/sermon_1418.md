@@ -1,12 +1,4 @@
-# The Holdfast
-
-(No. 1418)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 9, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1418 | The Holdfast
 
 "Take fast hold of instruction; let her not go: keep her; for she is your life." Proverbs 4:13.
 

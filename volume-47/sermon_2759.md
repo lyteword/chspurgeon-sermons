@@ -1,12 +1,4 @@
-# The Pleasures of Piety
-
-(No. 2759)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 29, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE SUMMER OF 1858.
+# Sermon 2759 | The Pleasures of Piety
 
 "My meditation of Him shall be sweet." Psalm 104:34.
 

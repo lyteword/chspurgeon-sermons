@@ -1,12 +1,4 @@
-# Life From the Dead
-
-(No. 2267)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 31, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 13, 1890.
+# Sermon 2267 | Life From the Dead
 
 "And you has He quickened, who were dead in trespasses and sins." Ephesians 2:1.
 

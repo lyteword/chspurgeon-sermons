@@ -1,12 +1,4 @@
-# "There Is Forgiveness"
-
-(No. 2422)
-
-INTENDED FOR READING ON LORD'S DAY, JULY 21, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 23, 1887.
+# Sermon 2422 | "There Is Forgiveness"
 
 "But there is forgiveness with You, that You may be feared." Psalm 130:4.
 

@@ -1,12 +1,4 @@
-# Sihon and Og, or Mercies in Detail
-
-(No. 1285)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1285 | Sihon and Og, or Mercies in Detail
 
 "To Him which smote great kings: for His mercy endures fore ver: and slew famous kings: for His mercy endures forever: Sihon king of the Amorites: for His mercy endures forever: and Og the king of Bashan: for His mercy endures forever: and ga ve their land for a heritage: for His mercy endures forever: even a heritage unto Israel His servant: for His mercy endures forever." Psalm 136:17-22.
 

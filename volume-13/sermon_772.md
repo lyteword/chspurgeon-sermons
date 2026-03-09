@@ -1,7 +1,4 @@
-# Delay Is Dangerous
-
-Sermon No. 772 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 772 | Delay Is Dangerous
 
 "And her brother and her mother said, Let the damsel abide with us a few days, at least ten; after that she shall go." Genesis 24:55.
 

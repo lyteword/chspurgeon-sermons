@@ -1,12 +1,4 @@
-# Love Abounding, Love Complaining, Love Abiding
-
-(No. 1895)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 11, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1895 | Love Abounding, Love Complaining, Love Abiding
 
 "But now thus says the Lord that created you, O Jacob, and He that formed you O Israel, Fear not: for I have redeemed you, I ha ve called you by your name, you are Mine. When you pass through the waters, I will be with you; and through the rivers, they shall not overflow you: when you walk through the fire, you shall not be burned, neither shall the flame kindle upon you. For I am the Lord your God, the Holy One of Israel, your Savior: I ga ve Egypt for your ransom, Ethiopia and Seba for you. Since you were precious in My sight, you have been honorable, and I have loved you: therefore will I give men for you, and people for your life." Isaiah 43:1-4
 

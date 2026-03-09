@@ -1,12 +1,4 @@
-# John's First Doxology
-
-(No. 1737)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1737 | John's First Doxology
 
 "Unto Him that loved us, and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father; to Him be glory and dominion forever and ever. Amen." Revelation 1:5, 6
 

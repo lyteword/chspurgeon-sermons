@@ -1,12 +1,4 @@
-# An Astounding Miracle
-
-(No. 1765)
-
-A SERMON PREACHED ON LORD'S-DAY MORNING, FEBRUARY 10, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1765 | An Astounding Miracle
 
 "And they went into Capernaum, and straightway on the Sabbath day He entered into the synagogue, and taught. And they were astonished at His doctrine: for He taught them as one that had authority, and not as the scribes. And there was in their synagogue a man with an unclean spirit, and he cried out, saying, Let us alone, what have we to do with You, Jesus of Nazareth? Have You come to destroy us? I know who You are, the Holy One of God. And Jesus rebuked him, saying, Hold your peace, and come out of him. And when the unclean spirit had convulsed him, and cried with a loud voice, he came out of him. And they were all amazed, so that they questioned among themselves, saying, What thingis this? What new doctrine is this? For with authority commands He even the unclean spirits, and they do obey Him. And immediately His fame spread abroad throughout all the region round about Galilee." Mark 1:21-28.
 

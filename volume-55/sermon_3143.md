@@ -1,12 +1,4 @@
-# Shoes for Pilgrims and Warriors
-
-(No. 3143)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 6, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3143 | Shoes for Pilgrims and Warriors
 
 "And your feet shod with the preparation of the Gospel of Peace." Ephesians 6:15.
 

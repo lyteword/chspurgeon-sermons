@@ -1,12 +1,4 @@
-# A Call For Revival
-
-(No. 1066)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 18, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1066 | A Call For Revival
 
 "Come my beloved, let us go forth into the field, let us lodge in the villages. Let us get up early to the vineyards; let us see if the vine flourish, whether the tender grapes appear, and the pomegranates bud forth: there willI give you my loves. The mandrakes give a smell, and at our gates are all manner of pleasant fruits, new and old, which I have laid up for you, O my beloved." Song of Solomon 7:11-13.
 

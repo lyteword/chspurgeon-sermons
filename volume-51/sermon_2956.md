@@ -1,12 +1,4 @@
-# A Handkerchief
-
-(No. 2956)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 13, 1875.
+# Sermon 2956 | A Handkerchief
 
 "Jesus said to her, Woman, why are you weeping? Whom are you seeking?" John 20:15.
 

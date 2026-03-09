@@ -1,12 +1,4 @@
-# David's Prayer in the Cave
-
-(No. 2282)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 13, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 18, 1890.
+# Sermon 2282 | David's Prayer in the Cave
 
 "Maschil of David; A Prayer when he was in the cave." Title of Psalm 142.
 

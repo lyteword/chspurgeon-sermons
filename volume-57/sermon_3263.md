@@ -1,12 +1,4 @@
-# Intelligent Obedience
-
-(No. 3263)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3263 | Intelligent Obedience
 
 "Keep and seek for all the commandments of the LORD your God." 1 Chronicles 28:8.
 

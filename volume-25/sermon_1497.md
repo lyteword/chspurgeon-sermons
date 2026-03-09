@@ -1,12 +1,4 @@
-# Self-righteousness--a Smoldering Heap of Rubbish
-
-(No. 1497)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 28, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1497 | Self-righteousness--a Smoldering Heap of Rubbish
 
 "Which say, Stand by yourself, come not near to me; for I am holier than you. These are a smoke in My nose, a fire that burns all the day." Isaiah 65:5.
 

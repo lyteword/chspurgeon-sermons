@@ -1,12 +1,4 @@
-# Return! Return!
-
-(No. 2931)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 13, 1905,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 17, 1876.
+# Sermon 2931 | Return! Return!
 
 "Return, you backsliding Israel. Turn, O backsliding children. Return, you backsliding children." Jeremiah 3:12,14,22.
 

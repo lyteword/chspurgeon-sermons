@@ -1,12 +1,4 @@
-# Jacob and Doubting Souls a Parallel
-
-(No. 2470)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1896,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 20, 1886.
+# Sermon 2470 | Jacob and Doubting Souls a Parallel
 
 "And Israel said, It is enough; Joseph my son is still alive: I will go and see him before I die." Genesis 45:28.
 

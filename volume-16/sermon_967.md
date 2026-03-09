@@ -1,12 +1,4 @@
-# The Sages, The Star, and The Savior
-
-(No. 967)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 25, 1870
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 967 | The Sages, The Star, and The Savior
 
 "Where is He that is born King of the Jews? For we have seen His star in the East, and are come to worship Him." Matthew 2:2.
 

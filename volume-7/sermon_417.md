@@ -1,6 +1,4 @@
-# Scourge For Slumbering Souls
-
-Sermon No. 417 - Delivered on Sunday Morning, November 3rd, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 417 | Scourge For Slumbering Souls
 
 > "Woe to them that are at ease in Zion."  
 > Amos 6:1.   

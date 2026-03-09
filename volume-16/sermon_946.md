@@ -1,12 +1,4 @@
-# The Profit Of Godliness In The Life To Come
-
-(No. 946)
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 19, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 946 | The Profit Of Godliness In The Life To Come
 
 "Godliness is profitable unto all things, having the promise of the life that now is, and of that which is to come." 1 Timothy 4:8.
 

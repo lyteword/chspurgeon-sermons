@@ -1,12 +1,4 @@
-# The Need and Nature of Conversion
-
-(No. 2797)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 21, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER13, 1878.
+# Sermon 2797 | The Need and Nature of Conversion
 
 "Let the wicked forsake his ways, and the unrighteous man his thoughts: and let him return to the LORRD, and He will have mercy upon him; and to our God, for He will abundantly pardon." Isaiah 55:7.
 

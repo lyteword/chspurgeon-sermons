@@ -1,12 +1,4 @@
-# A Clear Understanding
-
-(No. 3305)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 6, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3305 | A Clear Understanding
 
 "Jesus said unto them, Have you understood all these things?" Matthew 13:51.
 

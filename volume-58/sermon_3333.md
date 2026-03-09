@@ -1,12 +1,4 @@
-# God's King Magnified
-
-(No. 3333)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 19, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 2, 1866.
+# Sermon 3333 | God's King Magnified
 
 "His enemies will I clothe with shame: but upon Himself shall His crown flourish." Psalm 132:18.
 

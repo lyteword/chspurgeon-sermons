@@ -1,12 +1,4 @@
-# False Justification and True
-
-(No. 2932)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 20, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 15, 1876.
+# Sermon 2932 | False Justification and True
 
 "If I justify myself, my on mouth shall condemn me." Job 9:20.
 

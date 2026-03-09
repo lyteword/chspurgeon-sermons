@@ -1,12 +1,4 @@
-# The Resurrection of Our Lord Jesus
-
-(No. 1653)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 9, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1653 | The Resurrection of Our Lord Jesus
 
 "Remember that Jesus Christ of the seed of David was raised from the dead according to my Gospel." 2 Timothy 2:8.
 

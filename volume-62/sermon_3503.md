@@ -1,18 +1,4 @@
-# Joy in Salvation
-
-A Sermon
-
-(No. 3503)
-
-Published on Thursday, March 16th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [11]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, July 30th, 1871.
+# Sermon 3503 | Joy in Salvation
 
 "I will rejoice in thy salvation."--Psalm 9:4.
 

@@ -1,6 +1,4 @@
-# "Magnificat"
-
-Sermon No. 340 - Delivered on Sabbath Morning, October 14th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 340 | "Magnificat"
 
 > Awake, awake, Deborah; quake, awake, utter a song; arise, Barak, and lead thy captivity captive, thou son of Abinoam.    
 > Judges 5:12.    

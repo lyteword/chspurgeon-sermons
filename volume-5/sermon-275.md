@@ -1,6 +1,5 @@
-# Who Can Tell?
+# Sermon 275 | Who Can Tell?
 
-Sermon No. 275 - Delivered on Sabbath Morning, September 18th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
 
 > Who can tell if God will turn and repent, and turn away from his fierce anger, that we perish not?    
 > Jonah 3:9.    

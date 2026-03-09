@@ -1,12 +1,4 @@
-# A Private Enquiry
-
-(No. 2184)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 18, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, OCTOBER 9, 1890.
+# Sermon 2184 | A Private Enquiry
 
 "What is the thing that the Lord has said unto you?" 1 Samuel 3:17.
 

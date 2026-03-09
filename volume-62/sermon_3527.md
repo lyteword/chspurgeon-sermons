@@ -1,12 +1,4 @@
-# The Divided Heart
-
-(No. 3527)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1916,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, APRIL 14, 1872.
+# Sermon 3527 | The Divided Heart
 
 "Their heart is divided; now they are held guilty." Hosea 10:2.
 

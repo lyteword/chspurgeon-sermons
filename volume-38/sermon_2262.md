@@ -1,12 +1,4 @@
-# Christ's Curate In Decapolis
-
-(No. 2262)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1890.
+# Sermon 2262 | Christ's Curate In Decapolis
 
 "And they began to pray Him to depart out of their coasts. And when He was come into the ship, he that had been possessed with the devil prayed Him thathe might be with Him. However, Jesus suffered him not, but said unto him, Go home to your friends, and tell them what great things the Lord has done for you, and how He has had compassion on you." Mark 5:17-19.
 

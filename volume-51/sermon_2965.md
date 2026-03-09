@@ -1,12 +1,4 @@
-# Prepared to Meet God
-
-(No. 2965)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1875.
+# Sermon 2965 | Prepared to Meet God
 
 "Therefore thus will I do unto you, O Israel: and because I will do this unto you, prepare to meet your God, O Israel." Amos 4:12.
 

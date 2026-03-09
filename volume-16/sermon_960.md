@@ -1,12 +1,4 @@
-# Iconoclast
-
-(No. 960)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 13, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 960 | Iconoclast
 
 "He removed the high places, and broke the images, and cut down the groves, and broke in pieces the bronze serpent that Moses had made; for until those days the children of Israel did burn incense to it. And he called it Nehushtan. He trusted in the Lord God of Israel, so that after him was none like him among all the kings of Judah, nor any that were before him." 2 Kings 18:4,5.
 

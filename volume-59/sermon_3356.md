@@ -1,12 +1,4 @@
-# David's Sublime Consolation
-
-(No. 3356)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 29, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 23, 1867.
+# Sermon 3356 | David's Sublime Consolation
 
 "Although my house is not so with God; yet He has made with me an everlasting Covenant, orderedin all things and sure: for this is all my salvation, and all my desire, although He makes it not to grow." 2 Samuel 23:5.
 

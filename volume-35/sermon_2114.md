@@ -1,6 +1,4 @@
-# The Burden of the Word of the Lord
-
-Sermon No. 2114 - Delivered on 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2114 | The Burden of the Word of the Lord
 
 > "The burden of the Word of the Lord."  
 > Malachi 1:1.  

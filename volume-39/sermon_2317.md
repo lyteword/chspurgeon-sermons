@@ -1,12 +1,4 @@
-# Obeying Christ's Orders
-
-(No. 2317)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 16, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 13, 1889.
+# Sermon 2317 | Obeying Christ's Orders
 
 "His mother said unto the servants, Whatever He says unto you, do it." John 2:5.
 

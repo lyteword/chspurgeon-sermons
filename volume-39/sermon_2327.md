@@ -1,12 +1,4 @@
-# The Whole Machinery of Salvation
-
-(No. 2327)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 24, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 18, 1889.
+# Sermon 2327 | The Whole Machinery of Salvation
 
 "How then shall they call on Him in whom they ha ve not believed? And ho w shall they believe in Him of whom they ha ve not heard? And how shall they hear without a preacher? And how shall they preach, except they are sent? As it is written, How beautiful are the feet of them that preach the Gospel of peace, and bring glad tidings of good things!" Romans 10:14,15.
 

@@ -1,12 +1,4 @@
-# Prayer, the Proof of Godliness
-
-(No. 2437)
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 3, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 27, 1837.
+# Sermon 2437 | Prayer, the Proof of Godliness
 
 "For this cause shall everyone thatis godly pray unto You in a time when You may be found." Psalm 32:6.
 

@@ -1,6 +1,4 @@
-# The Day of Atonement
-
-Sermon No. 95 - Delivered on Sabbath Morning, August 10, 1856, by the REV. C.H. SPURGEON At New Park Street Chapel, Southwark.
+# Sermon 95 | The Day of Atonement
 
 > This shall be an everlasting statute unto you, to make an atonement for the children of Israel for all their sins once a year.    
 > Leviticus 16:34.    

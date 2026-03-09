@@ -1,12 +1,4 @@
-# Who Loves Christ More?
-
-(No. 2873)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 3,1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 3, 1876.
+# Sermon 2873 | Who Loves Christ More?
 
 "There was a certain creditor who had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. Tell me, therefore, which of them will love him more? Simon answered and said, I suppose that he to whom he forgave more. And He said unto him, You have rightly judged." Luke 7:41-43.
 

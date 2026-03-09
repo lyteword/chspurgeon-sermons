@@ -1,12 +1,4 @@
-# "Lo, I Come"--Exposition
-
-(No. 2202)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING. APRIL 26, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2202 | "Lo, I Come"--Exposition
 
 "Sacrifice and offering You did not desire, My ears ha ve You opened: burnt offering and sin offering have You not required. Then said I, Lo, I have come--in the volume of the Book it is written of Me--I delight to do Your will, O My God: yes, Your Law is within My heart." Psalm 40:6-8.
 

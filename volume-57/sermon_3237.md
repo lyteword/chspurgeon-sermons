@@ -1,12 +1,4 @@
-# Our Lord's Preaching
-
-(No. 3237)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3237 | Our Lord's Preaching
 
 "The Lord has anointed Me to preach good tidings unto the meek; He has sent Me to bind up the brokenhearted." Isaiah 61:1.
 

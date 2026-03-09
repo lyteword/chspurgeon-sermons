@@ -1,6 +1,4 @@
-# Indwelling Sin
-
-Sermon No. 83 - Delivered on Sabbath Morning, June 1, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 83 | Indwelling Sin
 
 > Then Job answered the Lord and said, Behold, I am vile.    
 > Job 40:3-4.    

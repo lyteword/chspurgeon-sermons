@@ -1,12 +1,4 @@
-# Visits From the Lord
-
-(No. 3481)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 14, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1871.
+# Sermon 3481 | Visits From the Lord
 
 "Therefore, that disciple whom Jesus loved said unto Peter, It is the Lord. Now when Simon Peter heard that it was the Lord, heput on his outer garment (for he was naked), and plunged into the sea. But the other disciples came in the little boat; for they were not far from land (about two hundred cubits), dragging the net with fishes." John 21:7, 8.
 

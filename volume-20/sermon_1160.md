@@ -1,12 +1,4 @@
-# The Entreaty of the Holy Spirit
-
-(No. 1160)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 1, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1160 | The Entreaty of the Holy Spirit
 
 "Therefore, as the Holy Spirit says, Today if you will hear His voice, harden not your hearts." Hebrews 3:7.
 

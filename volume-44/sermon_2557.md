@@ -1,12 +1,4 @@
-# A Vexed Soul Comforted
-
-(No. 2557)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 20, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 21, 1883.
+# Sermon 2557 | A Vexed Soul Comforted
 
 "The Almighty hats vexed my soul." Job 27:2.
 

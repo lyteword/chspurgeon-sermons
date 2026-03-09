@@ -1,12 +1,4 @@
-# Small Things Not to Be Despised
-
-(No. 2601)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 18, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1883.
+# Sermon 2601 | Small Things Not to Be Despised
 
 "For who has despised the day of small things?" Zechariah 4:10.
 

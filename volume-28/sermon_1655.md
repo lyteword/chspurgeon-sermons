@@ -1,12 +1,4 @@
-# The Blessed Guest Detained
-
-(No. 1655)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 23, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1655 | The Blessed Guest Detained
 
 "Then they drew near unto the village where they were going, and He made as though He would have gone further. But they constrained Him, saying, Abide with us, for it is toward evening, and the day is far spent. And He went in to stay with them." Luke 24:28,29.
 

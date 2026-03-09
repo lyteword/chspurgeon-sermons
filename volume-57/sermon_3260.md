@@ -1,12 +1,4 @@
-# Spiritual Convalescence
-
-(No. 3260)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 27, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 17, 1864.
+# Sermon 3260 | Spiritual Convalescence
 
 "And I will strengthen them in the LORD; and they shall walk up and down in His name, says the LORD." Zechariah 10:12.
 

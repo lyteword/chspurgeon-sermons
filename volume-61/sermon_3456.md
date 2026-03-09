@@ -1,12 +1,4 @@
-# "Peace Be Unto You"
-
-(No. 3456)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 29, 1915.
-
-DELIVERED BY C H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, OCTOBER 2, 1878.
+# Sermon 3456 | "Peace Be Unto You"
 
 "And as they thus spoke.. .Peace be unto you." Luke 24:36.
 

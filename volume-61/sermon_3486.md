@@ -1,12 +1,4 @@
-# God's Desire for Us, and His Work in Us
-
-(No. 3486)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 18, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON AUGUST 11, 1870.
+# Sermon 3486 | God's Desire for Us, and His Work in Us
 
 "Behold You desire truth in the inward parts: and in the hidden part You shall make me to know wisdom." Psalm 51:6.
 

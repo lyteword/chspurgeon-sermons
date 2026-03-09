@@ -1,12 +1,4 @@
-# Our Lord before Herod
-
-(No. 1645)
-
-DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 19, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1645 | Our Lord before Herod
 
 "And when Herod saw Jesus, he was exceedingly glad: for he was desirous to see Him for a long season, because he had heard many things of Him; and he hoped to ha ve seen some miracle done by Him. Then he questioned Him in many words; but He answered him nothing." Luke 23:8.9.
 

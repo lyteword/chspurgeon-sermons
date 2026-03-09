@@ -1,12 +1,4 @@
-# The God of Bethel
-
-(No. 1267)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1267 | The God of Bethel
 
 "I am the God of Bethel." Genesis 31:13.
 

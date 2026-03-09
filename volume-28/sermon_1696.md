@@ -1,12 +1,4 @@
-# The Bird Escaped from the Snare
-
-(No. 1696)
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1696 | The Bird Escaped from the Snare
 
 "Our soul is escaped as a bird out of the snare of the fowlers; the snare is broken, and we are escaped." Psalm 124:7.
 

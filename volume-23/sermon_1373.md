@@ -1,12 +1,4 @@
-# Our Last Journey
-
-(No. 1373)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 9, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1373 | Our Last Journey
 
 "When a few years are come, then I shall go the way from where I shall not return." Job 16:22.
 

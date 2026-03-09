@@ -1,6 +1,4 @@
-# The Parable of the Lost Sheep
-
-Sermon No. 1801 - Delivered on Lord's-Day Morning, September 28th, 1884 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1801 | The Parable of the Lost Sheep
 
 What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, until he find it? And when he hath found it, he layeth it on his shoulders, rejoicing. And when he cometh home, he calleth together his friends and neighbours, saying unto them, Rejoice with me; for I have found my sheep which was lost. I say unto you, that likewise joy shall be in heaven over one sinner that repenteth, more than over ninety and nine just persons, which need no repentance'Luke 15:4-7.
 

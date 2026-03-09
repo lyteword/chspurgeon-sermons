@@ -1,12 +1,4 @@
-# Certain Singular Subjects
-
-(No. 1718)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1718 | Certain Singular Subjects
 
 "And I gave unto Isaac, Jacob and Esau: and I gave unto Esau Mount Seir, to possess it; but Jacob and his children went down into Egypt." Joshua 24:4.
 

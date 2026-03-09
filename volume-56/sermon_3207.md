@@ -1,12 +1,4 @@
-# Secret Disciples Encouraged
-
-(No. 3207)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 21, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3207 | Secret Disciples Encouraged
 
 "Are not you also one of His disciples?" John 18:25.
 

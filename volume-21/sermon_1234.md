@@ -1,12 +1,4 @@
-# The Final Separation
-
-(No. 1234)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1234 | The Final Separation
 
 "And before Him shall be gathered all nations: and He shall separate them, one from another, as a shepherd divides his sheep from the goats." Matthew 25:32.
 

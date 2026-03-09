@@ -1,12 +1,4 @@
-# Spiritual Knowledge and Its Practical Results
-
-(No. 1742)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 30 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1742 | Spiritual Knowledge and Its Practical Results
 
 "For this cause we, also, since the day we heard it, do not cease to pray for you, and to desire that you might be filled with the knowledge of His will in all wisdom and spiritual understanding; that you might walk worthy of the Lord unto all pleasing, being fruitful in every good work, and increasing in the knowledge of God." Colossians 1:9,10.
 

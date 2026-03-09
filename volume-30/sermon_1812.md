@@ -1,12 +1,4 @@
-# A Wonder Explained By Greater Wonders
-
-(No. 1812)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 7, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1812 | A Wonder Explained By Greater Wonders
 
 "You drewnear in the day thatIcalled upon You: You said, Fear not." Lamentations 3:57.
 

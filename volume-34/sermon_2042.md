@@ -1,6 +1,4 @@
-# The Maintenance of Good Works
-
-Sermon No. 2042 - Delivered on Sunday Morning, September 2nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2042 | The Maintenance of Good Works
 
 > "For we ourselves also were sometimes foolish, disobedient, deceived, serving many lusts and pleasures, living in malice and envy, hateful, and hating one another. But after that the kindness and love of God our Savior toward man appeared, not by works of righteousness which we ha ve done but according to His mercy He sa ved us, by the washing of regeneration and renewing of the Holy Spirit; which He shed on us abundantly through Jesus Christ our Savior. That being justified by His Grace, we should be made heirs according to the hope of eternal life. This is a faithful saying and these things I will that you affirm constantly, that they which have believed in God might be careful to maintain good works. These things are good and profitable unto men."  
 > Titus 3:3-8.  

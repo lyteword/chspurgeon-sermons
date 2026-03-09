@@ -1,12 +1,4 @@
-# Departed Saints Yet Living
-
-(No. 1863)
-
-SUGGESTED BY THE DECEASE OF THE EARL OF SHAFTESBURY.
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 4, 1885, BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1863 | Departed Saints Yet Living
 
 "But even Moses showed in the burning bush passage that the dead are raised, when he called the Lord, 'the God of Abraham, the God of Isaac, and the God of Jacob.' For He is not the God of the dead but of the living, for all live to Him." Luke 20:37,38.
 

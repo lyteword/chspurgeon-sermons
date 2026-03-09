@@ -1,12 +1,4 @@
-# Faith Without Sight
-
-(No. 2721)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 6, 1880.
+# Sermon 2721 | Faith Without Sight
 
 "Jesus said to him, Thomas, because you have seen Me, you have believed: blessed are they that have not seen, and yet have believed." John 20:29.
 

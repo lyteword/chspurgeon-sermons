@@ -1,12 +1,4 @@
-# Before Daybreak with Christ
-
-(No. 1769)
-
-A SERMON DELIVERED ON THURSDAY EVENING, FEBRUARY 14, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1769 | Before Daybreak with Christ
 
 "And in the morning, rising up a great while before day, He went out, and departed into a solitary place, and there prayed. And Simon and they that were with Him followed after Him. And when they had found Him, they said unto Him, All men seek for You. And He said unto them, Let us go into the next towns, that I may preach there also for therefore came I forth. And He preached in their synagogues throughout all Galilee, and cast out devils." Mark 1:35-39.
 

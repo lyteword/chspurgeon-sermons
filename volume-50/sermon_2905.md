@@ -1,12 +1,4 @@
-# The Father and the Son
-
-(No. 2905)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 13, 1904,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 3, 1876.
+# Sermon 2905 | The Father and the Son
 
 "And truly our fellowship is with the Father and with His Son Jesus Christ." 1 John 1:3.
 

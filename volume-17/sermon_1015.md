@@ -1,6 +1,4 @@
-# The One Thing Needful
-
-Sermon No. 1015 - Delivered on Lord's-day Morning, October 15th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1015 | The One Thing Needful
 
 > "But one thing is needful."  
 > Luke 10:42.  

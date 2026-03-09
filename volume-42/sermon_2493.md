@@ -1,12 +1,4 @@
-# "A Man Named Matthew"
-
-(No. 2493)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 29, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 12, 1885.
+# Sermon 2493 | "A Man Named Matthew"
 
 "As Jesus passed forth from there, he saw a man named Matthew, sitting at the receipt of custom: and He said to him, Follow Me. And he arose and followed Him." Matthew 9:9.
 

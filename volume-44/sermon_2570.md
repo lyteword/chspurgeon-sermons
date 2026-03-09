@@ -1,12 +1,4 @@
-# Jesus Sitting on the Well
-
-(No. 2570)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 15, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 25, 1883.
+# Sermon 2570 | Jesus Sitting on the Well
 
 "Jesus therefore, being wearied with His journey, sat thus on the well: and it was about the sixth hour." John 4:6.
 

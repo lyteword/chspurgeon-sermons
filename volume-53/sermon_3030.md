@@ -1,12 +1,4 @@
-# A Consistent Walk for Time to Come
-
-(No. 3030)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 7, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DURING THE YEAR 1864.
+# Sermon 3030 | A Consistent Walk for Time to Come
 
 "As you have therefore received Christ Jesus the Lord, so walk in Him." Colossians 2:6.
 

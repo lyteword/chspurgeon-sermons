@@ -1,12 +1,4 @@
-# Increased Faith the Strength of Peace Principles
-
-(No. 1318)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 15, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1318 | Increased Faith the Strength of Peace Principles
 
 "The Apostle said unto the Lord, increase our faith." Luke 17:5.
 

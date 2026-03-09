@@ -1,12 +1,4 @@
-# Neither Forsaken Nor Forgotten
-
-(No. 2672)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 29, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 5, 1882.
+# Sermon 2672 | Neither Forsaken Nor Forgotten
 
 "Behold, I have engraved you upon the palms of My hands." Isaiah 49:16.
 

@@ -1,12 +1,4 @@
-# The Spirit of Bondage and Adoption
-
-(No. 1759)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1759 | The Spirit of Bondage and Adoption
 
 "For you have not received the Spirit of bondage again to fear, but you ha ve received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit, Himself, bears witness with our spirit, that we are the children of God." Romans 8:15,16.
 

@@ -1,12 +1,4 @@
-# Ingratitude of Man
-
-(No. 1055)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 9, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1055 | Ingratitude of Man
 
 "He came unto His own, and His own received Him not." John 1:11.
 

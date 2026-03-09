@@ -1,12 +1,4 @@
-# The Commissariat of the Universe
-
-(No. 3149)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 17, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3149 | The Commissariat of the Universe
 
 "What You give them they gather." Psalm 104:28.
 

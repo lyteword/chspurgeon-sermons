@@ -1,12 +1,4 @@
-# The New Song and the Old Story
-
-(No. 2850)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2850 | The New Song and the Old Story
 
 "O sing unto the Lord a new song: sing unto the LORRD, all the earth. Sing unto the LORD, bless His name; show forth His salvation from day to day. Declare His glory among the heathen, His wonders among all people." Psalm 96:1-3.
 

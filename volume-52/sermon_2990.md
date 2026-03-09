@@ -1,12 +1,4 @@
-# The Believer Not An Orphan
-
-(No. 2990)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 31, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2990 | The Believer Not An Orphan
 
 "I will not leave you comfortless: I will come to you." John 14:18.
 

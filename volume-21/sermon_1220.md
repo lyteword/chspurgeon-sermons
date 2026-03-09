@@ -1,12 +1,4 @@
-# The Leading of the Spirit, The Secret Token of the Sons of God
-
-(No. 1220)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1220 | The Leading of the Spirit, The Secret Token of the Sons of God
 
 "As many as are led by the Spirit of God, they are the sons of God." Romans 8:14.
 

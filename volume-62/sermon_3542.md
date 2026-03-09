@@ -1,12 +1,4 @@
-# A Precious Promise for a Pure People
-
-(No. 3542)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3542 | A Precious Promise for a Pure People
 
 "Your eyes will see the King in His beauty." Isaiah 33:17.
 

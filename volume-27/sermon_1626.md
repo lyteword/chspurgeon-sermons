@@ -1,12 +1,4 @@
-# The Principal Wheat
-
-(No. 1626)
-
-DELIVERED ON THURSDAY EVENING, AUGUST 25, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1626 | The Principal Wheat
 
 "The principal wheat." Isaiah 28:25.
 

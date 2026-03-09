@@ -1,12 +1,4 @@
-# The Holy Road
-
-(No. 1912)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 1, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1912 | The Holy Road
 
 "And an highway shall be there, and a way, and it shall be called The way of Holiness; the unclean shall not pass over it, but it shall be for others. The wayfaring men, though fools, shall not err in it." Isaiah 35:8.
 

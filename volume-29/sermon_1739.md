@@ -1,12 +1,4 @@
-# Bankrupt Debtors Discharged
-
-(No. 1739)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 16, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1739 | Bankrupt Debtors Discharged
 
 "And when they had nothing to pay, he frankly forgave them both." Luke 7:42.
 

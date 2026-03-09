@@ -1,12 +1,4 @@
-# Burden-bearing
-
-(No. 2831)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 26, 1886.
+# Sermon 2831 | Burden-bearing
 
 "Bear you one another's burdens, and so fulfill the law of Christ.. .Every man shall bear his own burden." Galatians 6:2,5.
 

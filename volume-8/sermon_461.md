@@ -1,6 +1,4 @@
-# Am I Clear Of His Blood?
-
-Sermon No. 461 - Delivered on Sunday Morning, July 20th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 461 | Am I Clear Of His Blood?
 
 > "The voice of your brother's blood cries out to Me from the ground."  
 > Genesis 4:10.  

@@ -1,12 +1,4 @@
-# Mediation of Moses
-
-(No. 2398)
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 3, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 17, 1887.
+# Sermon 2398 | Mediation of Moses
 
 "And the LORD repented of the evil which He thought to do unto His people." Exodus 32:14.
 

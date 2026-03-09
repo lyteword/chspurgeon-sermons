@@ -1,12 +1,4 @@
-# Paul's Parenthesis
-
-(No. 3084)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 19, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 26, 1874.
+# Sermon 3084 | Paul's Parenthesis
 
 "By the Grace of God I am what I am." 1 Corinthians 15:10.
 

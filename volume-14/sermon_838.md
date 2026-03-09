@@ -1,8 +1,4 @@
-# Sins of Omission
-
-A Sermon (No. 838)
-
-Delivered on Lord's-Day Morning, October 25, 1868, by C. H. SPURGEON, at the Metropolitan Tabernacle, Newington.
+# Sermon 838 | Sins of Omission
 
 "Yet they obeyed not, nor inclined their ear, but walked every one in the imagination of their evil heart: therefore I will bring upon them all the words of this covenant which I commanded them to do; but they did them not." Jeremiah 11:8.
 

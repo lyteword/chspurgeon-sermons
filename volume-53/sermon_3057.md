@@ -1,12 +1,4 @@
-# Following Christ
-
-(No. 3057)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 12, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 11, 1873.
+# Sermon 3057 | Following Christ
 
 "What is that to you? You follow Me." John 21:22.
 

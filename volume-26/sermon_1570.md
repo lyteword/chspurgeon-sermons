@@ -1,12 +1,4 @@
-# The Lamentations of Jesus
-
-(No. 1570)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 28, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1570 | The Lamentations of Jesus
 
 "When He had come near, He beheld the city and wept over it." Luke 19:41.
 

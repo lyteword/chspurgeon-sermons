@@ -1,12 +1,4 @@
-# Spices, Flowers, Lilies and Myrrh
-
-(No. 2479)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 23, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 5, 1880.
+# Sermon 2479 | Spices, Flowers, Lilies and Myrrh
 
 "His cheeks are as a bed of spices, as sweet flowers: His lips like lilies, dropping sweet-smelling myrrh." Song of Solomon 5:13.
 

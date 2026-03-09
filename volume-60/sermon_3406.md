@@ -1,12 +1,4 @@
-# Fullness of Joy Our Privilege
-
-(No. 3406)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 14, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3406 | Fullness of Joy Our Privilege
 
 "And these things we write unto you, that your joy may be full." 1 John 1:4.
 

@@ -1,12 +1,4 @@
-# Jehovah's Challenge
-
-(No. 2675)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 20, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 31, 1882.
+# Sermon 2675 | Jehovah's Challenge
 
 "Is there anything too hard for Me?" Jeremiah 32:27.
 

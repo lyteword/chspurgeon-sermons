@@ -1,6 +1,4 @@
-# "He Comes With Clouds"
-
-Sermon No. 1989 - Delivered on 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1989 | "He Comes With Clouds"
 
 > "Behold, He comes with clouds; and every eye shall see Him, and they also which pierced Him: and all kindreds of the earth shall wail because of Him. Even so, Amen."  
 > Revelation 1:7.  

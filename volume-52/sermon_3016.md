@@ -1,12 +1,4 @@
-# Good Cheer From Forgiven Sin
-
-(No. 3016)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 29, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3016 | Good Cheer From Forgiven Sin
 
 "And, behold they brought to Him a man sick ofthe palsy lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; your sins are forgiven you." Matthew 9:2.
 
@@ -16,7 +8,6 @@ Mark2:3-5.
 
 "And, behold, men brought in a bed a man which was taken with a palsy: and they sought means to bring him in, and to lay him before Him. And when they could not find by what way they might bring him in because of the multitude, they went upon the housetop and let him down through the tiling with his couch into the midst before Jesus. And when He saw their faith, He said unto Him, Son, your sins are forgiven you." Luke 5:18-20.
 
-[Other sermons upon this miracle are as follows--No. 2,337, Volume 39, THE PHYSICIAN PARDONS HIS PALSIED PATIENT and No. 2,417, Volume 41, FIRST FORGIVENESS, THEN HEALING]
 
 THIS man was paralyzed in body, but he was very far from being paralyzed in mind. From the little we know of him, he would appear to have been earnest, resolute, energetic and persevering. You very seldom find persons attempting more for you than you, yourself, desire--and if the four men who carried this paralytic person were so zealous in getting him under the Lord's notice, we may be morally certain that he, himself, was even more set upon it. His bearers would never have gone the length of breaking up the roof and letting him down upon the heads of the crowd unless he had urged them to do so. He was something more than passive under such heroic treatment! If he did not suggest the plan, he evidently entered into it most willingly.
 

@@ -1,12 +1,4 @@
-# The Search after Happiness
-
-(No. 3105)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3105 | The Search after Happiness
 
 "There aire many who say, Who will show us any good? LORD, lift up the light of Your Countenance upon us." Psalm 4:6.
 

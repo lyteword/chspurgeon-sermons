@@ -1,12 +1,4 @@
-# Sorrow and Sorrow
-
-(No. 2691)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 9, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 31, 1881.
+# Sermon 2691 | Sorrow and Sorrow
 
 "For godly sorrow works repentaance to salivation not to be repented of: but the sorrow of the world works death." 2 Corinthians 7:10.
 

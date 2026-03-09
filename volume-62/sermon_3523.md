@@ -1,12 +1,4 @@
-# A Type and Its Teaching
-
-(No. 3523)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3523 | A Type and Its Teaching
 
 "And Abraham said, My son, God willprovide Himself a lamb for a burnt offering." Genesis 22:8.
 

@@ -1,12 +1,4 @@
-# Harvest Men Needed
-
-(No. 1127)
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, AUGUST 17 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1127 | Harvest Men Needed
 
 "Then said He unto His disciples, The harvest truly is plenteous, but the laborers are few, pray you therefore the Lord of the harvest, that He will send forth laborers into His harvest. And when He had called unto Him His twelve disciples, He ga ve them power against unclean spirits, to cast them out, and to heal all manner of sickness and all manner of disease." Matthew 9:37,38; 10:1.
 

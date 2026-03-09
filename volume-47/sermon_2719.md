@@ -1,12 +1,4 @@
-# True Learning
-
-(No. 2719)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 24, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 20, 1880.
+# Sermon 2719 | True Learning
 
 "But you have not so learned Christ, if, indeed, you have heard Him and have been taught by Him, as the truth is in Jesus." Ephesians 4:20,21.
 

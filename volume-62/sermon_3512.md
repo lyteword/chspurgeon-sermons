@@ -1,16 +1,4 @@
-# Are You Mocked?
-
-A Sermon
-
-(No. 3512)
-
-Published on Thursday, May 18th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [20]the Metropolitan Tabernacle, Newington.
+# Sermon 3512 | Are You Mocked?
 
 ON Lord's-day Evening, September 17th, 1871.
 

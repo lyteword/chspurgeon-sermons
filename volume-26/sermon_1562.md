@@ -1,12 +1,4 @@
-# Harvest Past, Summer Ended and Men Unsaved
-
-(No. 1562)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 17, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1562 | Harvest Past, Summer Ended and Men Unsaved
 
 "The harvest is past, the summer is ended and we are not saved." Jeremiah 8:20.
 

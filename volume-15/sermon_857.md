@@ -1,7 +1,4 @@
-# Timely Reflections
-
-Sermon No. 857 - Delivered on Lord's-day Evening, DECEMBER 27, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 857 | Timely Reflections
 
 "Now is our salvation nearer than when we believed."- Romans 13:11.
 

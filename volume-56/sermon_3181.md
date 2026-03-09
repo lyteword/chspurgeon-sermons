@@ -1,12 +1,4 @@
-# A Sermon for a Winter's Evening
-
-(No. 3181)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 20, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3181 | A Sermon for a Winter's Evening
 
 "And the servants and officers stood there, who had made a fire of coals, for it was cold: and they warmed themselves: and Peter stood with them, and warmed himself." John 18:18.
 

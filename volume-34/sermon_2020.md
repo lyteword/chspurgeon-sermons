@@ -1,6 +1,4 @@
-# Is Anything Too Hard for the Lord?
-
-Sermon No. 2020 - Delivered on Sunday Morning, April 22nd, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2020 | Is Anything Too Hard for the Lord?
 
 > "Then came the word of the Lord unto Jeremiah, saying, Behold, I am the Lord, the God of all flesh: is there anything too hard for Me?"  
 > Jeremiah 32:26,27.  

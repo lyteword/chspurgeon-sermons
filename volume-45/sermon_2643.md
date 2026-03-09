@@ -1,12 +1,4 @@
-# The Honored Servant
-
-(No. 2643)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 8, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 22, 1882.
+# Sermon 2643 | The Honored Servant
 
 "Whoever keeps the fig tree shall eat the fruit thereof: so he that waits on his master shall be honored." Proverbs 27:18.
 

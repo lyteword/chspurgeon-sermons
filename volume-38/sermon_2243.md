@@ -1,12 +1,4 @@
-# His Own Funeral Sermon*
-
-(No. 2243)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 14, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 19, 1890.
+# Sermon 2243 | His Own Funeral Sermon*
 
 "For David, after he had served his own generation by the will of God, fell on sleep." Acts 13:36.
 

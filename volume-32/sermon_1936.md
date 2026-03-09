@@ -1,12 +1,4 @@
-# The Unkept Vineyard--or, Personal Work Neglected
-
-(No. 1936)
-
-A SERMON DELIVERED ON LORD'S DAY EVENING, SEPTEMBER 19, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1936 | The Unkept Vineyard--or, Personal Work Neglected
 
 "They made me the keeper of the vineyards, but my own vineyard have I not kept." Song of Solomon 1:6.
 

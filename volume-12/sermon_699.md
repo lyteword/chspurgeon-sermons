@@ -1,6 +1,4 @@
-# Sin Condemned And Executed By Christ Jesus
-
-Sermon No. 699 - Delivered on Sunday Morning, July 8th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 699 | Sin Condemned And Executed By Christ Jesus
 
 > "For what the law could not do in that it was weak through the flesh, God did by sending His own Son in the likeness of sinful flesh, on account of sin: He condemned sin in the flesh."  
 > Romans 8:3.  

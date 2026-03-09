@@ -1,14 +1,4 @@
-# Taking Hold of God's Covenant
-
-(No. 2762)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 19, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 5, 1879.
-
-"And takes hold of My Covenant." Isaiah 56:4.
+# Sermon 2762 | Taking Hold of God's Covenant
 
 "And takes hold of My Covenant." Isaiah 56:6.
 

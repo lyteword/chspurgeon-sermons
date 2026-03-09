@@ -1,12 +1,4 @@
-# The Putting Away Of Sin
-
-(No. 911)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 16, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 911 | The Putting Away Of Sin
 
 "Now once in the end of the world has He appeared to put a way sin by the sacrifice of Himself." Hebrews 9:26.
 

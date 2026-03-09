@@ -1,12 +1,4 @@
-# Good Cheer From Grace Received
-
-(No. 3020)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 27, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE. NEWINGTON.
+# Sermon 3020 | Good Cheer From Grace Received
 
 "And, behold, a woman, which was diseased with an issue of blood twelve years, came behind Him, and touched the hem of His garment: for she said within herself, If Imay but touch His garment, I shall be whole. But Jesus turned Him about, and when He saw her, He said, Daughter, be of good comfort; your faith has made you whole. And the woman was made whole from that hour." Matthew 9:20-22.
 
@@ -15,7 +7,6 @@ AT THE METROPOLITAN TABERNACLE. NEWINGTON.
 
 Luke 8:42-48
 
-[Other Sermons by Mr. Spurgeon, upon this Miracle, published in the Metropolitan Tabernacle Pulpit, are as follows--No. 1809, Volume 30-- MAY I?; No. 2018, Volume 34--CURED AT LAST and No. 2019, Volume 34--SHE WAS NOT HID.]
 
 THE words of good cheer which our Savior spoke to this woman were not given to her while she was coming to Him, for that would have been premature. She had not avowed her desire to be healed. She had uttered no prayer. She had actually as yet sought nothing at the Savior's hands and, therefore, she had not reached the stage at which comfort is fitting. She does not appear to have required comfort in taking her first step--she was resolved upon that and she took it without fail. It is one of the most unwise things under Heaven to comfort people who do not require it. When we are dealing with enquirers, our love may bring them loss if we offer them words of cheer when they need admonition or rebuke. Any comfort which keeps a soul short of Christ is dangerous. A sinner's main business is to get to Jesus, to exercise personal faith in the personal Savior--and we have no right to a gleam of comfort until we have heartily and honestly trusted in Christ. If encouragements to believe are used as a sort of halfway house to rest in before actually believing, they are mischievously used and may ruin our souls!
 

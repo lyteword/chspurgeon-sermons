@@ -1,12 +1,4 @@
-# Shutting, Sealing and Covering--or, Messiah's Glorious Work
-
-(No. 1681)
-
-DELIVERED ON LORD'S DAY MORNING, SEPTEMBER 24, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1681 | Shutting, Sealing and Covering--or, Messiah's Glorious Work
 
 Seventy weeks are determined upon your people and upon your holy city, to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness, and to seal up the vision andprophecy, and to anoint the Most Holy."
 

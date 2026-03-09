@@ -1,12 +1,4 @@
-# How "The Unspeakable" is Spoken of
-
-(No. 1828)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON OCTOBER 9, 1884.
+# Sermon 1828 | How "The Unspeakable" is Spoken of
 
 "And men shall speak of the might of Your terrible acts: and I will declare Your greatness. They shall abundantly utter the memory of Your great goodness, and shall sing of Your righteousness." Psalm 145:6, 7.
 

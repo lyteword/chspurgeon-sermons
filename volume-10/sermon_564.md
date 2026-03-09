@@ -1,6 +1,4 @@
-# A Promise For Us And For Our Children
-
-Sermon No. 564 - Delivered on Sunday Morning, April 10th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 564 | A Promise For Us And For Our Children
 
 > "Yet now hear, O Jacob, My servant. And Israel, whom I have chosen: thus says the Lord thatmadeyou and formed you from the womb, which will help you. Fear not, O Jacob, My servant. And you, Jesurun, whom Ihave chosen. For I will pour water upon him that is thirsty and floods upon the dry ground: I will pour My Spirit upon your seed and My blessing upon your offspring: and they shall spring up as among the grass, as willows by the water courses. One shall say, I am the Lord's, and another shall call himself by the name of Jacob. And another shall subscribe with his hand unto the Lord, and surname himself by the name of Israel."  
 > Isaiah 44:1-5.  

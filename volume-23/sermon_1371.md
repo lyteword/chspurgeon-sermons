@@ -1,12 +1,4 @@
-# Brave Waiting
-
-(No. 1371)
-
-DELIVERED ON LORDS-DAY MORNING, AUGUST 26, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1371 | Brave Waiting
 
 "Wait on the Lord: be of good courage and He shall strengthen your heart: wait, I say, on the Lord." Psalm 27:14.
 

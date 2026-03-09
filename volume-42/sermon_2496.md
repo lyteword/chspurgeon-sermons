@@ -1,12 +1,4 @@
-# Joyful Anticipation of the Second Advent
-
-(No. 2496)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 23, 1885.
+# Sermon 2496 | Joyful Anticipation of the Second Advent
 
 "And when these things begin to come to pass, then look up, and lift up your heads, for your redemption draws near. And He spoke to them a parable, Behold this fig tree and all the trees. When they are budding, you see and know, yourselves, that summer is now near. So likewise, when you see these things happening, you know that the Kingdom of God is near." Luke 21:28-31.
 

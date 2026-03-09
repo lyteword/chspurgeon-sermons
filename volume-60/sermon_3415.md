@@ -1,12 +1,4 @@
-# Right-hand Sins
-
-(No. 3415)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 16, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 27, 1868.
+# Sermon 3415 | Right-hand Sins
 
 "And if your hand offends you, cut it off." Mark 9:43.
 

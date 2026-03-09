@@ -1,6 +1,4 @@
-# God's Will and Man's Will
-
-Sermon No. 442 - Delivered on Sunday Morning, March 30th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 442 | God's Will and Man's Will
 
 > "So then it is not of him that willeth, nor of him that runneth, but of God that showeth mercy."  
 > Romans 9:16  

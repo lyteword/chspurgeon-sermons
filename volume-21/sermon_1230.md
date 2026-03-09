@@ -1,12 +1,4 @@
-# A Holy and Homely Resolve
-
-(No. 1230)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1230 | A Holy and Homely Resolve
 
 "I will behave myself wisely in a perfect way. O when will You come unto me? I will walk within my house with a perfect heart." Psalm 101:2.
 

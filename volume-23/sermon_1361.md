@@ -1,12 +1,4 @@
-# The Final Perseverance of the Saints
-
-(No. 1361)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 24, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1361 | The Final Perseverance of the Saints
 
 "The righteous, also, shall hold on his way." Job 17:9.
 

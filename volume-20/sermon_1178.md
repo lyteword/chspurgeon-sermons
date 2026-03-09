@@ -1,12 +1,4 @@
-# Glorying in the Lord
-
-(No. 1178)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1178 | Glorying in the Lord
 
 "He that glories, let him glory in the Lord." 1 Corinthians 1:31.
 

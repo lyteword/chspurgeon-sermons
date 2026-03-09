@@ -1,12 +1,4 @@
-# The Two Gatherings
-
-(No. 3216)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 22, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 16, 1863.
+# Sermon 3216 | The Two Gatherings
 
 "Gather My saints together unto Me, those that have made a covenant with Me by sacrifice." Psalm 50:5.
 

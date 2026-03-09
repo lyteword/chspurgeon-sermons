@@ -1,12 +1,4 @@
-# Christ's Rest and Ours
-
-(No. 2542)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 7, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 6, 1884.
+# Sermon 2542 | Christ's Rest and Ours
 
 "His rest shall be glorious." Isaiah 11:10.
 

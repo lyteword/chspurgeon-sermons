@@ -1,12 +1,4 @@
-# Unparalleled Loving Kindnesses
-
-(No. 3242)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 23, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON TUESDAY EVENING, NOVEMBER 17, 1863.
+# Sermon 3242 | Unparalleled Loving Kindnesses
 
 "Lord, where are Your former loving kindnesses, which You swore unto David in Your truth?" Psalm 89:49.
 

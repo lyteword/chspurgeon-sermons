@@ -1,12 +1,4 @@
-# The Objective of Christ's Death
-
-(No. 2483)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 20, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 15, 1886.
+# Sermon 2483 | The Objective of Christ's Death
 
 "Who gave Himself for our sins that He might deliver us from this present evil world, according to the will of God and our Father: to whom be glory forever and ever. Amen." Galatians 1:4, 5.
 

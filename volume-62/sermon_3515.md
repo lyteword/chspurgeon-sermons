@@ -1,18 +1,4 @@
-# The Fruits of Grace
-
-A Sermon
-
-(No. 3515)
-
-Published on Thursday, June 8th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [23]the Metropolitan Tabernacle, Newington.
-
-On Lord's day Evening, January 21st, 1872.
+# Sermon 3515 | The Fruits of Grace
 
 "In that day shall five cities in the land of Egypt speak the language of Canaan, and swear to the Lord of hosts; one shall be called the city of destruction. In that day shall there be an altar to the Lord in the midst of the land of Egypt, and a pillar at the border thereof to the Lord. And it all be for a sign and for a witness unto the Lord of hosts in the land of Egypt: for they shall cry unto the Lord because of the oppressors, and he shall send them a Saviour, and a great one, and he shall deliver them. And the Lord shall be known to Egypt, and the Egyptians shall know the Lord in that day, and shall do sacrifice and oblation; yea, they shall vow a vow unto the Lord, and perform it. And the Lord shall smite Egypt: he shall smite and heal it: and they shall return even to the Lord, and he shall be intreated of them, and shall heal them. In that day shall there be a highway out of Egypt to Assyria, and the Assyrian shall come into Egypt, and the Egyptian into Assyria, and the Egyptians shall serve with the Assyrians. In that day shall Israel be the third with Egypt and with Assyria, even blessing in the midst of the land: whom the Lord of hosts shall bless, saying, Blessed be Egypt my people, and Assyria the, work of my hands, and Israel mine inheritance."--Isaiah 19:18-25.
 

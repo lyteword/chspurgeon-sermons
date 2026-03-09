@@ -1,12 +1,4 @@
-# Supposing Him to Have Been in the Company
-
-(No. 1724)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 3, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1724 | Supposing Him to Have Been in the Company
 
 "Supposing Him to ha ve been in the company." Luke 2:44.
 

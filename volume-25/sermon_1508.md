@@ -1,12 +1,4 @@
-# The Philosophy of Promise
-
-(No. 1508)
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 29, 1879,
-
-BY C.H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1508 | The Philosophy of Promise
 
 "New things do I declare: before they spring forth I tell you of them." Isaiah 42:9.
 

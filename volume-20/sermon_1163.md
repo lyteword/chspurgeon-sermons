@@ -1,12 +1,4 @@
-# Redemption and Its Claims
-
-(No. 1163)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, MARCH 8, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1163 | Redemption and Its Claims
 
 "You are bought with a price." 1 Corinthians 6:20. "You are bought with a price." 1 Corinthians 7:23.
 

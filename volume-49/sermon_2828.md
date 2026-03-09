@@ -1,12 +1,4 @@
-# Startling!
-
-(No. 2828)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 26, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE LORD'S-DAY EVENING, IN THE SUMMER OF 1861.
+# Sermon 2828 | Startling!
 
 "And Hazael said, Why does my lord weep? And he answered, Because I know the evil that you will do unto the children of Israel...And Hazael said, But what, is your servant a dog, that he should do this great thing?" 2 Kings 8:12,13.
 

@@ -1,12 +1,4 @@
-# A Vivid Contrast
-
-(No. 3003)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 30, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 17, 1864.
+# Sermon 3003 | A Vivid Contrast
 
 "And every man went unto his own house." John 7:53.
 

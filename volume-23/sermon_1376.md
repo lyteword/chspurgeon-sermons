@@ -1,12 +1,4 @@
-# The True Priesthood, Temple and Sacrifice
-
-(No. 1376)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 30, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1376 | The True Priesthood, Temple and Sacrifice
 
 "To whom coming, as unto a living stone, disallowed, indeed, of men, but chosen of God, and precious, you also, as living stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ." 1 Peter 2:4,5.
 

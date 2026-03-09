@@ -1,12 +1,4 @@
-# The Good Ananias--a Lesson for Believers
-
-(No. 1838)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 26, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1838 | The Good Ananias--a Lesson for Believers
 
 "And there was a certain disciple at Damascus, named Ananias, and to him said the Lord in a vision, Ananias. And he said, Behold, I am here, Lord." Acts 9:10.
 

@@ -1,6 +1,4 @@
-# Love To Jesus
-
-Sermon No. 338 - Delivered on Sabbath Morning, September 30th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 338 | Love To Jesus
 
 > O You whom my soul loves.    
 > Song of Solomon 1:7.    

@@ -1,12 +1,4 @@
-# A View of God's Glory
-
-(No. 3120)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3120 | A View of God's Glory
 
 "And he said, I beseech You, show me Your Glory." Exodus 33:18.
 

@@ -1,12 +1,4 @@
-# One Lion, Two Lions, No Lion at All!
-
-(No. 1670)
-
-DELIVERED ON THURSDAY EVENING, JUNE 8, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1670 | One Lion, Two Lions, No Lion at All!
 
 "The slothful man says, There is a lion outside, I shall be slain in the streets." Proverbs 22:13.
 

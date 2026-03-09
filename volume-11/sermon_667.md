@@ -1,6 +1,4 @@
-# Last Things
-
-Sermon No. 667 - Delivered on Sunday Morning, December 31st, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 667 | Last Things
 
 > At the last.    
 > Proverbs 5:11    

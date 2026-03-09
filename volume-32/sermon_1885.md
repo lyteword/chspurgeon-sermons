@@ -1,12 +1,4 @@
-# The Problem of the Age
-
-(No. 1885)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 7, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1885 | The Problem of the Age
 
 "And His disciples answered Him, How can a man satisfy these men with bread here in the wilderness?'" Mark 8:4.
 

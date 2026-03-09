@@ -1,12 +1,4 @@
-# Satan in a Rage
-
-(No. 1502)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 2, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1502 | Satan in a Rage
 
 "Woe to the inhibitors of the earth and of the sea! For the devil has come down to you, having great wrath, because he knows that he has but a short time." Revelation 12:12.
 

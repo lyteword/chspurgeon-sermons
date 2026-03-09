@@ -1,12 +1,4 @@
-# Maschil Of Ethan, A Majestic Song
-
-(No. 1565)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1565 | Maschil Of Ethan, A Majestic Song
 
 "I will sing of the mercies of the Lord forever: with my mouth will I make known Your faithfulness to all generations. ForIhave said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens." Psalm 89:1,2.
 

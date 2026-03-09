@@ -1,12 +1,4 @@
-# Am I My Brother's Keeper?
-
-(No. 1399)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1399 | Am I My Brother's Keeper?
 
 "Am I my brother's keeper?" Genesis 4:9.
 

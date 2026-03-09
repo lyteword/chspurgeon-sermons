@@ -1,12 +1,4 @@
-# Fearing and Hoping
-
-(No. 2524)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 4, 1897.
-
-DELIVERED BY C. H, SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 28, 1885.
+# Sermon 2524 | Fearing and Hoping
 
 "The Lord takes pleasure in them that fear Him, in those that hope in His mercy." Psalm 147:11.
 

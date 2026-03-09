@@ -1,7 +1,4 @@
-# A Monument for the Dead, and a Voice to the Living
-
-Sermon No. 1700 - Delivered on Lord's-Day Morning, January 7th, 1883 the REV. C.H. SPURGEON at the [2]Metropolitan Tabernacle, Newington.
-(No. 1700)
+# Sermon 1700 | A Monument for the Dead, and a Voice to the Living
 
 YOU see by this mourning that our church has been bereaved. I have lost a friend tender and true to me, and my heart is too full for utterance. [1] I scarcely knew what to preach from this morning; but at last I settled in my mind that I would raise a memorial to my departed friend by preaching a sermon which should be connected with himself. Therefore I cast about me, and I considered what subject he would wish me to preach from if he were sitting behind me this morning as he was last Lord's-day. I had no difficulty in answering that question. His life and death pointed in one direction. He was a man of rare common sense, straightforward and downright in his aims, and most pithy in his speech, with such a mixture of mother-wit that he might have been taken for John Ploughman's brother, as indeed he was. He cared nothing for oratory, which I have heard him call "a flash in the pan"; he delighted in the plain, solid gospel of Jesus Christ. I know that he would have said to me,Give them Christ crucified, and salvation by grace through faith, as plainly as ever you can; for when he was sore sick and in the very agony of death, he repeated as his dying creed
 

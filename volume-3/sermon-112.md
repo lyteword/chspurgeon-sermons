@@ -1,6 +1,4 @@
-# The War of Truth
-
-Sermon No. 112 - Delivered on Sabbath Morning, January 11, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 112 | The War of Truth
 
 > And Moses said unto Joshua, Choose us out men and go out, fight with Amalek; to-morrow I will stand on the top of the hill with the rod of God in mine hand.    
 > Exodus 17:9.    

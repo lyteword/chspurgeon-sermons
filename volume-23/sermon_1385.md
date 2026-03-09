@@ -1,12 +1,4 @@
-# Jesus Interceding For Transgressors
-
-(No. 1385)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 18, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1385 | Jesus Interceding For Transgressors
 
 "And made intercession for the transgressors." Isaiah 53:12.
 

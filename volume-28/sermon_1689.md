@@ -1,12 +1,4 @@
-# The General Convocation Around Mount Zion
-
-(No. 1689)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 5, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1689 | The General Convocation Around Mount Zion
 
 "Butyou are come unto mountZion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and church of the first-born, which are written in Heaven, and to God the Judge of all, and to the spirits of just men made perfect, and to Jesus the Mediator of the new covenant, and to the blood of sprinkling, that speaks better things than that of Abel." Hebrews 12:22-24.
 

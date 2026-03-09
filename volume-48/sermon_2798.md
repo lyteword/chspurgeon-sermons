@@ -1,12 +1,4 @@
-# Sweet Stimulants for the Fainting Soul
-
-(No. 2798)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 28, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE WINTER OF 1860.
+# Sermon 2798 | Sweet Stimulants for the Fainting Soul
 
 "O my God, my soul is cast down within me: therefore will I remember You from the land of Jordan, and of the Hermonites, from the Hill Mizar." Psalm 42:6.
 

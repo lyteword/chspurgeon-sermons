@@ -1,6 +1,4 @@
-# A Home Question
-
-Sermon No. 294 - Delivered on Sabbath Morning, January 15th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 294 | A Home Question
 
 > But are there not with you, even with you, sins against the Lord your God?    
 > 2 Chron. 28:10.    

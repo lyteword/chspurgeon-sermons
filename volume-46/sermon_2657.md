@@ -1,12 +1,4 @@
-# All the Promises
-
-(No. 2657)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 14, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 31, 1882.
+# Sermon 2657 | All the Promises
 
 "For all the promises of God in Him are Yes, and in Him Amen, to the glory of God through us." 2 Corinthians 1:20.
 

@@ -1,12 +1,4 @@
-# Things Unknown
-
-(No. 2664)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 4, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1858.
+# Sermon 2664 | Things Unknown
 
 "Call unto Me, and I will answer you, and show you great and mighty things which you know not." Jeremiah 33:3.
 

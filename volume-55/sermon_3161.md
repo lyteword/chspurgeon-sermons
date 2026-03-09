@@ -1,12 +1,4 @@
-# Positivism
-
-(No. 3161)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 9, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1875.
+# Sermon 3161 | Positivism
 
 "We know...And we know...And we know." 1 John 5:18-20.
 

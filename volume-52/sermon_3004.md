@@ -1,12 +1,4 @@
-# The Christian's Manifestation
-
-(No. 3004)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 6, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 5, 1866.
+# Sermon 3004 | The Christian's Manifestation
 
 "Beloved, now are we the sons of God, and it does not yet appear what we shall be; but we know that when He shall appear, we shall be like Him; for we shall see Him as He is." 1 John 3:2.
 

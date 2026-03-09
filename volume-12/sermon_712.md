@@ -1,6 +1,4 @@
-# War With Amalek
-
-Sermon No. 712 - Delivered on Sunday Evening, September 23rd, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 712 | War With Amalek
 
 > "Then came Amalek, and fought with Israel in Rephidim."  
 > Exodus 17:8.  

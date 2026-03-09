@@ -1,12 +1,4 @@
-# Real Contact With Jesus
-
-(No. 3124)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3124 | Real Contact With Jesus
 
 "And Jesus said, Somebody touched Me: for I perceived power going out from Me." Luke 8:46.
 

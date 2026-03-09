@@ -1,12 +1,4 @@
-# The True Lineage
-
-(No. 3018)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 13 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
+# Sermon 3018 | The True Lineage
 
 "And it came to pass, as He spoke these things, a certain woman of the company lifted up her voice, and said unto Him, Blessed is the womb that bore You, and the breasts which nursed You. But He said, More than that, blessed are they that hear the Word of God, and keep it." Luke 11:27,28.
 

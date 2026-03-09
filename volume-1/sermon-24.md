@@ -1,6 +1,4 @@
-# Forgiveness
-
-Sermon No. 24 - Delivered on Sabbath Morning, May 20, 1855, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 24 | Forgiveness
 
 > I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.    
 > Isaiah 43:25.    

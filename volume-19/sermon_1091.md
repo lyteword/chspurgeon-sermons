@@ -1,12 +1,4 @@
-# Prayer Certified Of Success
-
-(No. 1091)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 19, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1091 | Prayer Certified Of Success
 
 "And I say unto you, Ask, and it shall be given you; seek, and you shall find; knock, and it shall be opened unto you. For everyone that asks receives and he that seeks finds; and to him that knocks it shall be opened." Luke 11:9-10.
 

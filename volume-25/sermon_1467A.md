@@ -1,10 +1,4 @@
-# The Oil and the Vessels
-
-(No. 1467A)
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
+# Sermon 1467A | The Oil and the Vessels
 
 "And it came to pass, when the vessels were full, that she said unto her son, Bring me another vessel. And he said unto her, There is not a vessel more. And the oil ceased."
 

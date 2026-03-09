@@ -1,12 +1,4 @@
-# Why Christ Is Not Esteemed
-
-(No. 3033)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 28, 1907.
-
-DELIVERED BY C. H. SPURGEON
-
-AT MAZE POND CHAPEL, LONDON
+# Sermon 3033 | Why Christ Is Not Esteemed
 
 "We esteemed Him not." Isaiah 53:3.
 

@@ -1,12 +1,4 @@
-# Secondhand
-
-(No. 2624)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 28, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 12, 1882.
+# Sermon 2624 | Secondhand
 
 "Are you speaking for yourself about this, or did others tell you this concerning Me?" John 18:34.
 

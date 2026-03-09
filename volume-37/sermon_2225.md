@@ -1,12 +1,4 @@
-# A Clarion Call to Saints and Sinners
-
-(No. 2225)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 11, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 2, 1891.
+# Sermon 2225 | A Clarion Call to Saints and Sinners
 
 "Arise you, and depart; for this is not your rest: because it is polluted, it shall destroy you, even with a sore destruction." Micah 2:10.
 

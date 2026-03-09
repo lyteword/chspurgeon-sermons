@@ -1,12 +1,4 @@
-# The Errand of Mercy
-
-(No. 3050)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 25, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DURING THE YEAR 1863.
+# Sermon 3050 | The Errand of Mercy
 
 "For the Son of Mann is come to seek and to save that which was lost." Luke 19:10.
 

@@ -1,6 +1,4 @@
-# Three Sights Worth Seeing
-
-Sermon No. 1979 - Delivered on Thursday Evening, March 24th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1979 | Three Sights Worth Seeing
 
 > "For this cause also thank we God without ceasing, because, when ye received the word of God which ye heard of us, ye received it not as the word of men, but as it is in truth, the word of God, which effectually worketh also in you that believe. For ye brethren, became followers of the churches of God which in Judea are in Christ Jesus for ye also have suffered like things of your own countrymen, even as they have of the Jews."  
 > 1 Thessalonians 2:13-14.  

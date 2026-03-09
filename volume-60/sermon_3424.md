@@ -1,12 +1,4 @@
-# Meat Indeed, and Drink Indeed
-
-(No. 3424)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3424 | Meat Indeed, and Drink Indeed
 
 "For My flesh is meat indeed, and My blood is drink indeed." John 6:55.
 

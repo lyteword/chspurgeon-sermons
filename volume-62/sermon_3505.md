@@ -1,16 +1,4 @@
-# A Miracle of Grace
-
-A Sermon
-
-(No. 3505)
-
-Published on Thursday, March 30th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [13]the Metropolitan Tabernacle, Newington.
+# Sermon 3505 | A Miracle of Grace
 
 "So Manasseh made Judah and the inhabitants of Jerusalem to err, and to do worse than the heathen, whom the Lord had destroyed before the children of Israel. And the Lord spake to Manasseh and to his people; but they would not hearken. Wherefore the Lord brought upon them the captains of the host of the king of Assyria, which took Manasseh among the thorns, and bound him with fetters, and carried him to Babylon. And when he was in affliction, he besought the Lord, his God, and humbled himself greatly before the God of his fathers, and prayed unto him and he was entreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that the Lord he was God."--2 Chron. 33:9-13.
 

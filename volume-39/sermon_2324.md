@@ -1,12 +1,4 @@
-# The Followers of the Lamb
-
-(No. 2324)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 4, 1889.
+# Sermon 2324 | The Followers of the Lamb
 
 "These are they which follow the Lamb wherever He goes. These were redeemed from among men, being the first fruits unto God and to the Lamb. And in their mouth was found no guile: for they are without fault before the Throne of God." Revelation 14:4,5.
 

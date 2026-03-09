@@ -1,12 +1,4 @@
-# Faith Seeing God's Glory
-
-(No. 3342)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 20, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3342 | Faith Seeing God's Glory
 
 "Jesus said unto her, Said I not unto you that if you would believe, you would see the Glory of God?" John 11:40.
 

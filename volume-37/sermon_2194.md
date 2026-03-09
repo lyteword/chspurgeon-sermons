@@ -1,12 +1,4 @@
-# Between the Two Appearings
-
-(No. 2194)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 15, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2194 | Between the Two Appearings
 
 "Now once in the end of the world has He appeared to put away sin by the sacrifice of Himself. And as it is appointed unto men once to die, but after this the judgment: so Christ was once offered to bear the sins of many; and unto them that look for Him shall He appear the second time without sin unto salvation." Hebrews 9:26-28.
 

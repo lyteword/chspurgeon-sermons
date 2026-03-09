@@ -1,12 +1,4 @@
-# Ask and Have
-
-(No. 1682)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 1, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1682 | Ask and Have
 
 "You lust, and have not: you kill, and desire to have, and cannot obtain: you fight and war, yet you have not, because you ask not. You ask, and receive not, because you ask amiss, that you may consume it upon your lusts." James 4:2,3.
 

@@ -1,12 +1,4 @@
-# "He Shall Be Great"
-
-(No. 1760)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, DECEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1760 | "He Shall Be Great"
 
 "He shall be great." Luke 1:32.
 

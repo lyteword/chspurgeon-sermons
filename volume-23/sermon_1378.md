@@ -1,12 +1,4 @@
-# The Righteous Father Known and Loved
-
-(No. 1378)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 14, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1378 | The Righteous Father Known and Loved
 
 "O righteous Father, the world has not known You. But Ihave known You, and these have known that You have sent Me. And Ihave declared unto them Your name, and will declare it; that the love with which You have loved Me may be in them, and I in them." John 17:25,26.
 

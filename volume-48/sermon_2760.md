@@ -1,12 +1,4 @@
-# A King Sent in Love
-
-(No. 2760)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 5, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 14, 1879.
+# Sermon 2760 | A King Sent in Love
 
 "Then Hiram the king of Tyre answered in writing, which he sent to Solomon, Because the LORD has loved His people, He has made you king over them." 2 Chronicles 2:11.
 

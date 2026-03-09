@@ -1,12 +1,4 @@
-# The Two "Comes"
-
-(No. 1331)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 31, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1331 | The Two "Comes"
 
 "And the Spirit and the bride say, Come! And let him who hears say, Come! And let him who thirsts come. And whoever will, let him take the water of life freely." Revelation 22:17.
 

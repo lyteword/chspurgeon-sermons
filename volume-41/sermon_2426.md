@@ -1,12 +1,4 @@
-# A Prayer for Revival
-
-(No. 2426)
-
-INTENDED FOR READING ON LORD'S DAY, AUGUST 18, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 14, 1887.
+# Sermon 2426 | A Prayer for Revival
 
 "Will You not revive us again that Your people may rejoice in You" Psalm 85:6.
 

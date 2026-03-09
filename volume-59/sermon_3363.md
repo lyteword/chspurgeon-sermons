@@ -1,12 +1,4 @@
-# Witnessing at the Cross
-
-(No. 3363)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 17, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3363 | Witnessing at the Cross
 
 "And one of the malefactors who was hanged, railed on Him, saying, If you are Christ, save Yourself and us. But the other answering rebuked him, saying, Do not you fear God, seeing you are in the same condemnation? And we, indeed, justly, for we receive the due reward of our deeds; but this Man has done nothing amiss. And he said unto Jesus, Lord, remember me when You come into Your Kingdom. And Jesus said unto him, Verily, I say unto you, today shall you be with Me in Paradise." Luke 23:39-43.
 

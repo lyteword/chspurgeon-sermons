@@ -1,10 +1,4 @@
-# Satan's Punctuality, Power and Purpose
-
-(No. 1459A)
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
+# Sermon 1459A | Satan's Punctuality, Power and Purpose
 
 "Then comes the devil, and takes away the Word out of their hearts, lest they should believe and be saved." Luke 8:12.
 

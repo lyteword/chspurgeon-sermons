@@ -1,12 +1,4 @@
-# A Man of God Alone With God
-
-(No. 2796)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 14, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 26, 1878.
+# Sermon 2796 | A Man of God Alone With God
 
 "I have declared my ways, and You heard me: teach me Your statutes." Psalm 119:26.
 

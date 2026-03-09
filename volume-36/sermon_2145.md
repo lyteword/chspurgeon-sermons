@@ -1,6 +1,4 @@
-# Scriptural Salvation
-
-Sermon No. 2145 - Delivered on Sunday Morning, May 18th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2145 | Scriptural Salvation
 
 > "For the Scripture says, Whoever believes on Him shall not be ashamed."  
 > Romans 10:11.  

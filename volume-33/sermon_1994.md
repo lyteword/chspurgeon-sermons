@@ -1,6 +1,4 @@
-# Sweet Peace For Tried Believers
-
-Sermon No. 1994 - Delivered on Sunday Morning, December 4th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1994 | Sweet Peace For Tried Believers
 
 > "These things I have spoken to you, that in Me you might have peace. In the world you will have tribulation: but be of good cheer; I have overcome the world."  
 > John 16:33.  

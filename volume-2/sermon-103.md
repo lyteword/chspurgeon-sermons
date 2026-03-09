@@ -1,6 +1,4 @@
-# Christ in the Covenant
-
-Sermon No. 103 - Delivered on Sabbath Morning, August 31, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 103 | Christ in the Covenant
 
 > I will give thee for a covenant of the people.    
 > Isaiah 49:8.    

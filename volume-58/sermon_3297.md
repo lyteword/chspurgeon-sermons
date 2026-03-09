@@ -1,12 +1,4 @@
-# David and His Volunteers
-
-(No. 3297)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 11, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3297 | David and His Volunteers
 
 "And of the Gadites there separated themselves unto David into the hold to the wilderness men of might, and men ofwar fit for the battle, that could handle shield and buckler, whose faces were like the faces of lions, and were as swift as the roes upon the mountains; Ezer the first, Obadiah the second, Eliab the third, Mishmannah the fourth, Jeremiah the fifth, Attai the sixth, Eliel the seventh, Johanan the eighth, Elzabad the ninth, Jeremiah the tenth, Machbanai the eleventh. These were of the sons of God, captains of the host: one of the least was over an hundred, and the greatest over a thousand. These are they that went over Jordan in the first month when it had overflowed all his banks; and they put to flight all them of the valleys, both toward the east, and toward the west" 1 Chronicles 12:8-15.
 

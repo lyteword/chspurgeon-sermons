@@ -1,6 +1,4 @@
-# A Preacher from the Dead
-
-Sermon No. 143 - Delivered on Sabbath Morning, July 26, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 143 | A Preacher from the Dead
 
 > And he said unto him, if they hear not Moses and the prophets, neither will they be persuaded though one rose from the dead.    
 > Luke 16:31.    

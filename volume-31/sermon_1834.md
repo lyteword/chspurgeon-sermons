@@ -1,12 +1,4 @@
-# To Lovers of Jesus--an Example
-
-(No. 1834)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON NOVEMBER 2, 1884.
+# Sermon 1834 | To Lovers of Jesus--an Example
 
 "She has worked a good work for Me." Mark 14:6.
 

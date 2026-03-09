@@ -1,12 +1,4 @@
-# That Horrible East Wind!
-
-(No. 1693)
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1693 | That Horrible East Wind!
 
 "And let the peace of God rule in your hearts, to which you are also called in one body; and be you thankful." Colossians 3:15.
 

@@ -1,6 +1,4 @@
-# Zealots
-
-Sermon No. 639 - Delivered on Sunday Morning, July 16th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 639 | Zealots
 
 > Simon called the Zealot.    
 > Luke 6:15.    

@@ -1,6 +1,4 @@
-# The Snare of the Fowler
-
-Sermon No. 124 - Delivered on Sabbath Morning, March 29, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 124 | The Snare of the Fowler
 
 > Surely he shall deliver thee from the snare of the fowler.    
 > Psalm 91:3.    

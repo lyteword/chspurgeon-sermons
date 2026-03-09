@@ -1,12 +1,4 @@
-# Pride Catechized
-
-(No. 2670)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 15, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2670 | Pride Catechized
 
 "Should it be according to your mind? He will recompense it whether you refuse, or whether you choose; and not I: therefore speak what you know." Job 34:33.
 

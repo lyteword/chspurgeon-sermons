@@ -1,12 +1,4 @@
-# The Best Friend
-
-(No. 2627)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 18, 1899.
-
-DELIVERED BY C. H. SPURGE0N,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 23, 1882.
+# Sermon 2627 | The Best Friend
 
 "Your own friend, and your father's friend, forsake not." Proverbs 27:10.
 

@@ -1,6 +1,4 @@
-# God's Estimate Of Time
-
-Sermon No. 447 - Delivered on Sunday Morning, April 27th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 447 | God's Estimate Of Time
 
 > "But, Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years and a thousand years as one day."  
 > 2 Peter 3:8.  

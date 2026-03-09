@@ -1,12 +1,4 @@
-# What Is Essential in Coming to God?
-
-(No. 2740)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 18, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 12, 1880.
+# Sermon 2740 | What Is Essential in Coming to God?
 
 "Without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him." Hebrews 11:6.
 

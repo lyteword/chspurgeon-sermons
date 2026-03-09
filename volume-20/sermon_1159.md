@@ -1,12 +1,4 @@
-# Counting the Cost
-
-(No. 1159)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1159 | Counting the Cost
 
 "For which of you, intending to build a tower, sits not down first, and counts the cost, whether he has sufficient to finish it? Lest haply, after he has laid the foundation, and is not able to finish it, all that behold it begin to mock him, saying, This man began to build, and was not able to finish." Luke 14:28-30.
 

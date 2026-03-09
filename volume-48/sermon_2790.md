@@ -1,12 +1,4 @@
-# Our Lord's Substitution
-
-(No. 2790)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 3, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 23, 1878.
+# Sermon 2790 | Our Lord's Substitution
 
 "Who Himself bore our sins in His own body on the tree." 1 Peter 2:24.
 

@@ -1,12 +1,4 @@
-# An All-important Question
-
-(No. 3008)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 4, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 13, 1867.
+# Sermon 3008 | An All-important Question
 
 "Doyou believe in the Son of God?" John 9:35.
 

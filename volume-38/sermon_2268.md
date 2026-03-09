@@ -1,12 +1,4 @@
-# A Question for Communicants
-
-(No. 2268)
-
-INTENDED FOR READING ON LORD'S-DAY AUGUST 7, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 1, 1890.
+# Sermon 2268 | A Question for Communicants
 
 "What do you mean by this service?" Exodus 12:26.
 

@@ -1,12 +1,4 @@
-# "Whose Goodness Never Fails"
-
-(No. 2919)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 19, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1876.
+# Sermon 2919 | "Whose Goodness Never Fails"
 
 "I am the Good Shepherd: the Good Shepherd gives His life for the sheep." John 10:11.
 

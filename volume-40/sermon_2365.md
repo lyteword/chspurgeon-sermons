@@ -1,12 +1,4 @@
-# "Goodness, as a Morning Cloud"
-
-(No. 2365)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 17, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 25, 1888.
+# Sermon 2365 | "Goodness, as a Morning Cloud"
 
 "And Joash did that which was right in the sight of the LORD all the days of Jehoiada the priest." 2 Chronicles 24:2.
 

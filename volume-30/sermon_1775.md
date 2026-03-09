@@ -1,12 +1,4 @@
-# "My Lord and My God!"
-
-(No. 1775)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 13, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1775 | "My Lord and My God!"
 
 "And Thomas answered and said unto Him, 'My Lord and my God!'" John 20:28.
 

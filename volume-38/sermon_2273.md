@@ -1,12 +1,4 @@
-# Fickle Followers
-
-(No. 2273)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 11, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 27, 1890.
+# Sermon 2273 | Fickle Followers
 
 "And it came to pass, that, as they went in the way, a certain man said unto Him, Lord, I will follow You wherever You go. And Jesus said unto him, Foxes have holes, and birds of the air have nests; but the Son of Man has not where to lay His head. And He said unto another, FollowMe. But he said, Lord, suffer me first to go and bury my father. Jesus said unto him, Let the dead bury their dead: but go you and preach the Kingdom of God. And another also said, Lord, I will follow You; but let me first go bid them farewell, which are at home at my house. And Jesus said unto him, No man, having put his hand to the plow, and looking back, is fit for the Kingdom of God." Luke 9:57-62.
 

@@ -1,12 +1,4 @@
-# Other Sheep and One Flock
-
-(No. 1713)
-
-DELIVERED ON LORD'S-DAY MORNING, MARCH 25, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1713 | Other Sheep and One Flock
 
 "And other sheep I ha ve which are not of this fold; them also I must bring, and they shall hear My voice and they shall be one fold and one shepherd (or more correctly one flock; one shepherd)." John 10:16.
 

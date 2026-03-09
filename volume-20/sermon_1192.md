@@ -1,12 +1,4 @@
-# Hindrances to Prayer
-
-(No. 1192)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 13, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1192 | Hindrances to Prayer
 
 "That your prayers be not hindered." 1 Peter 3:7.
 

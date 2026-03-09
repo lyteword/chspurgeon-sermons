@@ -1,6 +1,4 @@
-# The Resurrection of the Dead
-
-Sermon No. 66 & 67 - Delivered on Sabbath Morning, February 17, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 66 & 67 | The Resurrection of the Dead
 
 > There shall be a resurrection of the dead, both the of the just and unjust.    
 > Acts 24:15.    

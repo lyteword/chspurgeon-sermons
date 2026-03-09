@@ -1,12 +1,4 @@
-# The Claims of God
-
-(No. 1197)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 11, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1197 | The Claims of God
 
 "Know you that the Lord, He is God: it is He that has made us, and not we, ourselves; we are His people, and the sheep of His pasture. Enter into His gates with thanksgiving, and into His courts with praise: be thankful unto Him, and bless His name. For the Lord is good; His mercy is everlasting: and His Truth endures to all generations." Psalm 100:3,4,5.
 

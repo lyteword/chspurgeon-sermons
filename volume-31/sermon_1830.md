@@ -1,12 +1,4 @@
-# All Or None--or, Compromises Refused-- a Sermon With Five Texts
-
-(No. 1830)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON NOVEMBER 25, 1883.
+# Sermon 1830 | All Or None--or, Compromises Refused-- a Sermon With Five Texts
 
 "There shall not an hoof be left behind." Exodus 10:26.
 

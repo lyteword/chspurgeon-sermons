@@ -1,12 +1,4 @@
-# Blessed Promises For Dying Outcasts
-
-(No. 1753)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 2, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1753 | Blessed Promises For Dying Outcasts
 
 "For I will restore health unto you, and I will healyou of your wounds, says the Lord; because they called you an outcast, saying, This is Zion, whom no man seeks after." Jeremiah 30:17.
 

@@ -1,12 +1,4 @@
-# Christ's Motive and Ours
-
-(No. 2232)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 29, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2232 | Christ's Motive and Ours
 
 "For your sakes." 2 Corinthians 8:9.
 

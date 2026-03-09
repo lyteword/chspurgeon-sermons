@@ -1,12 +1,4 @@
-# God's Prison, Warden and Prisoner
-
-(No. 3378)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 30, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 4, 1866.
+# Sermon 3378 | God's Prison, Warden and Prisoner
 
 "Keep yourselves in the love of God." Jude 1:21
 

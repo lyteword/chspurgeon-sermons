@@ -1,12 +1,4 @@
-# God Our Continual Resort
-
-(No. 1858)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 6, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1858 | God Our Continual Resort
 
 "Be You my strong habitation, whereunto I may continually resort." Psalm 71:3.
 

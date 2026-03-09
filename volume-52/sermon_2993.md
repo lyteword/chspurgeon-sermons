@@ -1,12 +1,4 @@
-# "That King Ahaz"
-
-(No. 2993)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 21, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 8, 1863.
+# Sermon 2993 | "That King Ahaz"
 
 "And in the time of his distress did he trespass yet more against the LORD: this is that king Ahaz." 2 Chronicles 28:22.
 
@@ -101,7 +93,6 @@ HYMNS FROM "OUR OWN HYMN BOOK"--509, 473, 514.
 
 EXPOSITION BY C. H. SPURGEON: 2 THESSALONIANS 1; 2:1-4.
 
-[This Exposition belongs to Sermon No. 2991, Volume 52--WHAT WE HAVE, AND ARE TO HAVE--but there was not space available for it there.]
 
 2 Thessalonians 1:1, 2. Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians in God our Father and the Lord Jesus Christ Grace unto you, and peace, from God our Father and the Lord Jesus Christ. All nations have their special forms of salutation and this is the Christian's greeting to his fellow Christians--"Grace unto you, and peace." How much there is in this prayer! "Grace"--the free favor of God, the active energy of the Divine Power. And, "peace"--reconciliation to God, peace of conscience, peace with all men! My Brothers and Sisters, what better things could I desire for you, and what better things could you wish for your best beloved friends than these, "Grace unto you, and peace from God our Father and the Lord Jesus Christ"?
 

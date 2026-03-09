@@ -1,12 +1,4 @@
-# Daniel's Band
-
-(No. 2256)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 15, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 3, 1890.
+# Sermon 2256 | Daniel's Band
 
 "O Daniel, a man greatly beloved." Daniel 10:11.
 

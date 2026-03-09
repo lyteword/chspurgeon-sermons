@@ -1,12 +1,4 @@
-# Wanted!--Volunteers
-
-(No. 2227)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 25, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 22, 1891.
+# Sermon 2227 | Wanted!--Volunteers
 
 "And next to him was Amasiah the Son of Zichri, who willingly offered himself to the Lord; and with him two hundred thousand mighty men of valor." 2 Chronicles 17:16.
 

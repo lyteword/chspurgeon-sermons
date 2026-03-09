@@ -1,12 +1,4 @@
-# For or Against?
-
-(No. 2773)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 6, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING MARCH 24, 1878.
+# Sermon 2773 | For or Against?
 
 "And the guards shook for fear of him, and became as dead men. And the angel answered and said unto the women, Do not be afraid, for I know that you seek Jesus, who was crucified. He is not here, for He is risen, as He said." Matthew 28:4-6.
 

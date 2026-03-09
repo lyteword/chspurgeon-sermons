@@ -1,6 +1,4 @@
-# "All the Day Long"
-
-Sermon No. 2150 - Delivered on Sunday Morning, June 22nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2150 | "All the Day Long"
 
 > "Let not your heart envy sinners: but be you in the fear of the Lord all the day long. For surely there is an end, and your expectation shall not be cut off."  
 > Proverbs 23:17,18.  

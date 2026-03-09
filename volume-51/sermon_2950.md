@@ -1,12 +1,4 @@
-# True and Not True
-
-(No. 2950)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 23, 1875.
+# Sermon 2950 | True and Not True
 
 "Now we know that God hears not sinners." John 9:31.
 

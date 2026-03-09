@@ -1,12 +1,4 @@
-# Feeding On a Whole Christ
-
-(No. 2407)
-
-INTENDED FOR READING ON LORD'S DAY APRIL 7, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY, EVENING, APRIL 3, 1887.
+# Sermon 2407 | Feeding On a Whole Christ
 
 "The fourteenth day of the second month at even they shall keep it, and eat it with unlea vened bread and bitter herbs. They shall leave none of it unto the morning, nor break any bone of it: according to all the ordinances of the Passover they shall keep it." Numbers 9:11,12.
 

@@ -1,16 +1,4 @@
-# Divine Destruction and Protection
-
-A Sermon
-
-(No. 3494)
-
-Published on Thursday, January 13th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [2]the Metropolitan Tabernacle, Newington.
+# Sermon 3494 | Divine Destruction and Protection
 
 "And all the trees of the field shall know that I, Jehovah, have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree to flourish. I, Jehovah, have spoken and have done it."--Ezekiel 17:29.
 

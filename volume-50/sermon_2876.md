@@ -1,12 +1,4 @@
-# Christ's Crowning Glory
-
-(No. 2876)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 24, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 5, 1876.
+# Sermon 2876 | Christ's Crowning Glory
 
 "His glory is great in Your salvation: honor and majesty have You laid upon Him." Psalm 21:5.
 

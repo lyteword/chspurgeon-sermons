@@ -1,12 +1,4 @@
-# Salvation by Faith and the Work of the Spirit
-
-(No. 1228)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 11 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1228 | Salvation by Faith and the Work of the Spirit
 
 "For we, through the Spirit, wait for the hope of righteousness by faith" Galatians 5:5.
 

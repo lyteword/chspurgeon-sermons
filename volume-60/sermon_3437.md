@@ -1,12 +1,4 @@
-# Friendship's Guide
-
-(No. 3437)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 17, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 11, 1870.
+# Sermon 3437 | Friendship's Guide
 
 "You are My friends if you do whatever I command you." John 15:14.
 

@@ -1,12 +1,4 @@
-# Cumbered With Much Serving
-
-(No. 3163)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 23, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1866.
+# Sermon 3163 | Cumbered With Much Serving
 
 "Martha was cumbered about much serving." Luke 10:40.
 

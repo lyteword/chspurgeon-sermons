@@ -1,12 +1,4 @@
-# The Unconquerable King
-
-(No. 949)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 4, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 949 | The Unconquerable King
 
 "At the end of the days I, Nebuchadnezzar, lifted up my eyes unto Heaven, and my understanding returned unto me, and I blessed the Most High, and I praised and honored Him that lives forever, whose dominion is an everlasting dominion, and His kingdom is from generation to generation: and all the inhabitants of the earth are reputed as nothing: and He does according to His will in the army of Heaven, and among the inhabitants of the earth: and none can stay His hand, or say unto Him, What do You?" Daniel 4:34,35.
 

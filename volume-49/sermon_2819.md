@@ -1,12 +1,4 @@
-# A Caution for Sin-sick Souls
-
-(No. 2819)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 22, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1861.
+# Sermon 2819 | A Caution for Sin-sick Souls
 
 "When Ephraim saw his sickness, and Judah saw his wound, then Ephraim went to Assyria, and sent to King Jareb: yet he cannot heal you, nor cure you of your wound." Hosea 5:13.
 

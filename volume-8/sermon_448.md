@@ -1,6 +1,4 @@
-# Another And A Nobler Exhibition
-
-Sermon No. 448 - Delivered on Sunday Morning, May 4th, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 448 | Another And A Nobler Exhibition
 
 > "To the intent that now unto the principalities and powers in heavenly places might be known by the Church the manifold wisdom of God."  
 > Ephesians 3:10.  

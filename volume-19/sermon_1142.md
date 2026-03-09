@@ -1,12 +1,4 @@
-# Free Pardon
-
-(No. 1142)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1142 | Free Pardon
 
 "I, even I, am He that blots outyour transgressions for My own sake, and will not remember your sins." Isaiah 43:25.
 

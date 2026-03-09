@@ -1,12 +1,4 @@
-# Power With God
-
-(No. 2978)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 8TH, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 16, 1876.
+# Sermon 2978 | Power With God
 
 "As a prince have you power with God." Genesis 32:28.
 

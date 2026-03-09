@@ -1,12 +1,4 @@
-# Blessed Discipline
-
-(No. 2374)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 19, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 24, 1888.
+# Sermon 2374 | Blessed Discipline
 
 "Blessed is the man whom You chasten, O LORD, and teach out of Your Law; that You may give him rest from the days of adversity, until the pit is dug for the wicked. For the LORD will not cast off His people, neither will He forsake His inheritance. But judgment shall return unto righteousness: and all the upright in heart shall follow it." Psalm 94:12-15.
 

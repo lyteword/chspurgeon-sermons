@@ -1,12 +1,4 @@
-# Unreasonable Reasons
-
-(No. 3247)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 27, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3247 | Unreasonable Reasons
 
 "O you oflittle faith, why did you doubt?" Matthew 14:31.
 

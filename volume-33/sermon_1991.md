@@ -1,6 +1,4 @@
-# "Sitting By"
-
-Sermon No. 1990 - Delivered on Sunday Morning, Novsmber 13th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1990 | "Sitting By"
 
 > "And it came to pass on a certain day, as He was teaching, that there were Pharisees and doctors of the Law sitting by."  
 > Luke 5:17.  

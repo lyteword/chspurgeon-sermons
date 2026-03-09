@@ -1,12 +1,4 @@
-# The Red Heifer
-
-(No. 1481)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 29, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1481 | The Red Heifer
 
 "For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifies to the purifying of the flesh: how much more shall the blood of Christ, who through the Eternal Spirit offered Himself without spot to God, purge your conscience from dead works to serve the living God?" Hebrews 9:13,14.
 

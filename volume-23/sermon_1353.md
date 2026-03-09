@@ -1,12 +1,4 @@
-# Ecce Rex
-
-(No. 1353)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 6, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1353 | Ecce Rex
 
 "He said unto the Jews, Behold your King." John 19:14.
 

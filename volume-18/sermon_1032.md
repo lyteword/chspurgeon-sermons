@@ -1,6 +1,4 @@
-# The Two Yokes
-
-Sermon No. 1032 - Delivered on Lord's Day Evening, January 14th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1032 | The Two Yokes
 
 'Thus saith the Lord; Thou hast broken the yokes of wood; but thou shalt make for them yokes of iron.''Jeremiah 28:13.
 

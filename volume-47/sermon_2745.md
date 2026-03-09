@@ -1,12 +1,4 @@
-# Intercession and Supplication
-
-(No. 2745)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 22, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1879.
+# Sermon 2745 | Intercession and Supplication
 
 "Are You not He, O Lord our God? Therefore we will wait for You" Jeremiah 14:22.
 

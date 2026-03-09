@@ -1,12 +1,4 @@
-# Some Marks of God's People
-
-(No. 2662)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 18, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 10, 1882.
+# Sermon 2662 | Some Marks of God's People
 
 "Your God has commanded your strength: Strengthen, O God, what You have done for us." Psalm 68:28.
 

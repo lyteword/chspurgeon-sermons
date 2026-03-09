@@ -1,12 +1,4 @@
-# Jesus Near but Unrecognized
-
-(No. 1180)
-
-A SERMON DELIVERED BY
-
-H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1180 | Jesus Near but Unrecognized
 
 "But their eyes were restrained that they should not know Him." Luke 24:16.
 

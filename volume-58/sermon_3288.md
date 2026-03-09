@@ -1,12 +1,4 @@
-# Why the Gospel Is Hidden
-
-(No. 3288)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1912.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY, 11, 1866.
+# Sermon 3288 | Why the Gospel Is Hidden
 
 "But if our Gospel is hidden, it is hidden to those who aire lost." 2 Corinthians 4:3.
 

@@ -1,12 +1,4 @@
-# The Double Cleansing
-
-(No. 2431)
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 22, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 18, 1887.
+# Sermon 2431 | The Double Cleansing
 
 "In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem for sin and for uncleanness. And it shall come to pass in that day, says the LORD of Hosts, that I will cut off the names of the idols out of the land, and they shall no more be remembered: and also I will cause the prophets and the unclean spirit to pass out of the land." Zechariah 13:1,2.
 

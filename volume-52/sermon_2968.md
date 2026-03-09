@@ -1,12 +1,4 @@
-# "His Great Love"
-
-(No. 2968)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 15, 1875.
+# Sermon 2968 | "His Great Love"
 
 "His great love with which He loved us, even when we were dead in sins." Ephesians 2:4,5.
 

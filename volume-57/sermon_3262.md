@@ -1,12 +1,4 @@
-# Satan's Arrows and God's
-
-(No. 3262)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 27, 1864.
+# Sermon 3262 | Satan's Arrows and God's
 
 "He has bent His bow and set me as a mark for the arrow. He has caused the arrows of His quiver to pierce my soul." Lamentations 3:12,13.
 

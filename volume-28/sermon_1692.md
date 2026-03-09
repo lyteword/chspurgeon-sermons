@@ -1,12 +1,4 @@
-# "Without Carefulness"
-
-(No. 1692)
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1692 | "Without Carefulness"
 
 "I would have you without carefulness." 1 Corinthians 7:32.
 

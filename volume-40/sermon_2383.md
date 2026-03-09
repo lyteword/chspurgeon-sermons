@@ -1,12 +1,4 @@
-# Seeing and Testifying
-
-(No. 2383)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 21,1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 29, 1888.
+# Sermon 2383 | Seeing and Testifying
 
 "And we have seen and testify that the Father sent the Son to be the Savior of the world." 1 John 4:14.
 

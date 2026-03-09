@@ -1,12 +1,4 @@
-# Life, and the Path to It
-
-(No. 2813)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 11, 1903,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 7, 1877.
+# Sermon 2813 | Life, and the Path to It
 
 "You will show me the path of life: in Your Presence is fullness ofjoy; at Your right hand there are pleasures forevermore." Psalm 16:11.
 

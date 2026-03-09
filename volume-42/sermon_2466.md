@@ -1,12 +1,4 @@
-# Unpurchasable Love
-
-(No. 2466)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 24, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 6, 1872.
+# Sermon 2466 | Unpurchasable Love
 
 "If a man would give all the substance of his house for love, it would be utterly despised." Song of Solomon 8:7.
 

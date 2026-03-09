@@ -1,12 +1,4 @@
-# Bad Lodgers and How To Treat Them
-
-(No. 1573)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1573 | Bad Lodgers and How To Treat Them
 
 "O Jerusalem, wash your heart from wickedness that you may be saved. How long shall your vain thoughts lodge within you?" Jeremiah 4:14.
 

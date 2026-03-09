@@ -1,12 +1,4 @@
-# Boldness at the Throne
-
-(No. 3182)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 27, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 14, 1873.
+# Sermon 3182 | Boldness at the Throne
 
 "Let us therefore come boldly unto the Throne of Grace." Hebrews 4:16.
 

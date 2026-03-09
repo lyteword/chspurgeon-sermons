@@ -1,12 +1,4 @@
-# Number 2400--or, "Escape for Your Life!"
-
-(No. 2400)
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 17, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 27, 1887.
+# Sermon 2400 | Number 2400--or, "Escape for Your Life!"
 
 "Escape for your life." Genesis 19:17.
 

@@ -1,12 +1,4 @@
-# "Persecuted, But Not Forsaken"
-
-(No. 2574)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 12, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 8, 1883.
+# Sermon 2574 | "Persecuted, But Not Forsaken"
 
 "Many a time have they afflicted me from my youth. Let Israel now say: many a time have they afflicted me from my youth: yet they have not prevailed against me. The plowers plowed upon my back: they made long their furrows. The Lord is righteous: He has cut asunder the cords of the wicked. Let them all be confounded and turned back that hate Zion. Let them be as the grass upon the housetops, which withers before it grows up: which the mower fills not his hand; nor he that binds sheaves his arms. Neither do they which go by say, The blessing of the LORD be upon you: we bless you in the name of the LORD." Psalm 129.
 

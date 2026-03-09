@@ -1,12 +1,4 @@
-# Inexcusable Irreverence and Ingratitude
-
-(No. 2257)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 22, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 13, 1890.
+# Sermon 2257 | Inexcusable Irreverence and Ingratitude
 
 "They are without excuse: because that, when they knew God, they glorified Him not as God, neither were thankful." Romans 1:20,21.
 

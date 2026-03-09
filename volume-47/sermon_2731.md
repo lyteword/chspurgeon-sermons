@@ -1,12 +1,4 @@
-# Bringing Sinners to the Savior
-
-(No. 2731)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 16, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 22, 1880.
+# Sermon 2731 | Bringing Sinners to the Savior
 
 "And one of the multitude answered and said, Master, Have brought unto You my son, who has a dumb spirit; and wherever he takes him, he tears him: and he foams, and gnashes with his teeth, and pines away: and I spoke to Your disciples that they should cast him out; and they could not. He answered him, and said, O faithless generation, how long shall I be with you? How long shall I bear with you? Bring him to Me. And they brought him to Him: and when he saw Him, straightway the spirit convulsed him; and he fell on the ground, and wallowed foaming at the mouth." Mark 9:17-20.
 

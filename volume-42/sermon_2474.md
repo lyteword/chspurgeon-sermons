@@ -1,12 +1,4 @@
-# The Great Change
-
-(No. 2474)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 18, 1886.
+# Sermon 2474 | The Great Change
 
 "Ephraim shall say, What ha ve I to do anymore with idols? I have heard him, and observed him: I am like a green fir tree. From Me is your fruit found." Hosea 14:8.
 

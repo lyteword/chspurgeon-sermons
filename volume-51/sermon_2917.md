@@ -1,12 +1,4 @@
-# The Doors of the Shadow of Death
-
-(No. 2917)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 5, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 24, 1876.
+# Sermon 2917 | The Doors of the Shadow of Death
 
 "Have you seen the doors of the shadow of death?" Job 38:17.
 

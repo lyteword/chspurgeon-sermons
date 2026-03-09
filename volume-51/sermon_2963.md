@@ -1,12 +1,4 @@
-# Unmitigated Prosperity
-
-(No. 2963)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2963 | Unmitigated Prosperity
 
 "The pleasure of the LORD shall prosper in His hands." Isaiah 53:10.
 

@@ -1,12 +1,4 @@
-# Adorning the Gospel
-
-(No. 2416)
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 9, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, THURSDAY EVENING, MAY 26, 1887.
+# Sermon 2416 | Adorning the Gospel
 
 "That they may adorn the doctrine of God our Savior in all things." Titus 2:10.
 

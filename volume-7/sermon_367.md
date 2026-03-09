@@ -1,6 +1,4 @@
-# The Great Supreme
-
-Sermon No. 367 - Delivered on Sabbath Evening, September 28th, 1856, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 367 | The Great Supreme
 
 > "Ascribe you greatness to our God."  
 > Deuteronomy 32:3.   

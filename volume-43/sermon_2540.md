@@ -1,12 +1,4 @@
-# Declaring the Works of the Lord
-
-(No. 2540)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 24, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, In connection with the dedication of the Jubilee House, which commemorated the completion of the beloved Pastor's 500hyear, June 19, 1884.
+# Sermon 2540 | Declaring the Works of the Lord
 
 "I shall not die, but live, and declare the works of the Lord." Psalm 118:17.
 

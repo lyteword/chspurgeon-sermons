@@ -1,12 +1,4 @@
-# Christ the Maker of All Things New
-
-(No. 1328)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, DECEMBER 10, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1328 | Christ the Maker of All Things New
 
 "Therefore if any man is in Christ, he is a new creature: old things are passed away; behold, all things are become new." 2 Corinthians, 5:17.
 

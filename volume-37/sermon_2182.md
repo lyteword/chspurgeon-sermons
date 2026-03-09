@@ -1,12 +1,4 @@
-# Jehovah-shammah--a Glorious Name for the New Year
-
-(No. 2182)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 4, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2182 | Jehovah-shammah--a Glorious Name for the New Year
 
 "The name of the city from that day shall be, The Lord Is There [or in the Hebrew, 'Jehovah-Shammah.']" Ezekiel 48:35
 

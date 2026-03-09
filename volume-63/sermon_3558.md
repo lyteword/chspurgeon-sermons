@@ -1,12 +1,4 @@
-# A Plea From the Cross
-
-(No. 3558)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 5, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE LORD'S-DAY EVENING, JANUARY29, 1871.
+# Sermon 3558 | A Plea From the Cross
 
 "Father, forgive them, for they know not what they do." Luke 23:34.
 

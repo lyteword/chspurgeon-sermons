@@ -1,12 +1,4 @@
-# Preparation for Heaven
-
-(No. 3538)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3538 | Preparation for Heaven
 
 "Now He who has prepared us for this very thing is God, who has also given us the earnest of the Spirit." 2 Corinthians 5:5.
 

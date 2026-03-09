@@ -1,12 +1,4 @@
-# Ruth's Reward--or, Cheer for Converts
-
-(No. 1851)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 29, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1851 | Ruth's Reward--or, Cheer for Converts
 
 "The Lord recompense your work, and a full reward be given you of the Lord God of Israel under whose wings you are come to trust." Ruth 2:12.
 

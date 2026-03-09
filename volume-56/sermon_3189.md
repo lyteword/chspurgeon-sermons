@@ -1,12 +1,4 @@
-# The Tenderness of God's Comfort
-
-(No. 3189)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 17, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3189 | The Tenderness of God's Comfort
 
 "As one whom his mother comforts, so will I comfort you; and you shall be comforted in Jerusalem." Isaiah 66:13.
 

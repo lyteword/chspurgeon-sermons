@@ -1,12 +1,4 @@
-# Peter's Shortest Prayer
-
-(No. 3186)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 24, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 2, 1873.
+# Sermon 3186 | Peter's Shortest Prayer
 
 "Lord, save me." Matthew 14:30.
 

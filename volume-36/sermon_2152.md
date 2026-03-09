@@ -1,6 +1,4 @@
-# Three Important Precepts
-
-Sermon No. 2152 - Delivered on Sunday Evening, June 22nd the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2152 | Three Important Precepts
 
 > "Hear you, my son, and be wise, and guide your heart in the way."  
 > Proverbs 23:19.  
@@ -37,7 +35,6 @@ That poor relative who gets 19 guineas lays the codicil to heart and can almost 
 
 And then, dear Friends, hear when the sermon is done. "How can I hear when it is all done?" This is a very important point. I went to see a poor woman in the hospital one day and she said to me, speaking of the sermons she had heard, "Sir, you seem to talk to me all day and all night while I am lying here." I said, "Well, I hope I do not keep you awake." "No," she said, "but as I am awake I hear you talking to me through everything I see. You have used so many things as illustrations that everywhere I am I have you in my memory." I was pleased, and inwardly wished that I could always preach in the way which she described--and I should do so if I always had hearers such as that sick woman had evidently been.
 
-Ah, dear Friends! The way to hear a sermon is to hear it when you get home. Pray remember the Scripture verse in my sermon of this morning, "Be in the fear of the Lord all the day long." ["All the Day Long," No. 2150.] I want you to hear that word when you are dressing tomorrow, when you are taking down the shutters, when you are dealing across the counter and when you are among the children. If you are tempted to do a dishonest deed, I would have you hear a still small voice saying to you, "Be in the fear of the Lord all the day long." A sermon ought to be like a musical box--we wind it up when we preach it--and then it goes on playing till its tune is through. It should be said of a good sermon, "It being ended still speaks." Hear what you hear in such a way that it shall be like a seed which will grow in the garden of your heart.
 
 Above all, hear the Gospel as the voice of God. When a man hears the preacher, not as a man speaking on his own account but as God's servant--and when the Truth spoken is not measured by its oratory, nor weighed by its logic, but is judged of by the Bible as to whether it is the very Truth of God or not--then it is that men hear to profit. Those who compare sermons with Scripture are noble, like the Bereans of old. If you can say, "I hear the word, not as the word of man, but as the Word of God," it will have its effect upon your heart. Oh, that the word may come to you with demonstration of the Spirit! You will never lose the good effect of Gospel preaching if the Spirit of God seals it on your mind!
 

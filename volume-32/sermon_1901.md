@@ -1,12 +1,4 @@
-# Mysterious Meat
-
-(No. 1901)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 23, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1901 | Mysterious Meat
 
 "In the meantime His disciples urged Him, saying, Master, eat. But He said to them, I have meat to eat that you know not of. Therefore the disciples said to one another, Has anyone brought Him anything to eat? Jesus said to them, My meat is to do the will of Him who sent Me and to finish His work Do you not say, There are yet four months, and then comes harvest? Behold, I say unto you, Lift up your eyes, and look at the fields, for they are already ripe for harvest! And he who reaps receives wages, and gathers fruit for eternal life, that both he who sows andhe who reaps may rejoice together. For in this the sayingis true, One sows, and another reaps. I sent you to reap that for which you have not labored; others have labored, and you have entered into their labors." John 4:31-38.
 

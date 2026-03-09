@@ -1,12 +1,4 @@
-# "Who Is on the Lord's Side?"
-
-(No. 2884)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 19, 1904.
-
-DELIVERED BY CHSPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 9, 1876.
+# Sermon 2884 | "Who Is on the Lord's Side?"
 
 "Then Moses stood in the entrance of the camp, and said, Whoever is on the LORD'S side--come to me! And all the sons of Levi gathered themselves together to him." Exodus 32:26.
 

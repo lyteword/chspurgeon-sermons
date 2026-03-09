@@ -1,12 +1,4 @@
-# A Poor Man's Cry--and What Came Of It
-
-(No. 2193)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, MARCH 8, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2193 | A Poor Man's Cry--and What Came Of It
 
 "This poor man cried, and the Lord heard him, and saved him out of all his troubles." Psalm 34:6
 

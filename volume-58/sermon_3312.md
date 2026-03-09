@@ -1,12 +1,4 @@
-# The Carpenter's Son and His Relations
-
-(No. 3312)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 25, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY MORNING, MAY 20, 1866.
+# Sermon 3312 | The Carpenter's Son and His Relations
 
 "Is not this the carpenter's son? Is not His mother called Mary? And His brothers, James, and Joses, and Simon, and Judas? And His sisters, are they not all with us? Where, then, has this Man all these things?" Matthew 13:55,56.
 

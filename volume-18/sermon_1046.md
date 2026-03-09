@@ -1,12 +1,4 @@
-# Covenant Blessings
-
-(No. 1046)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 14, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1046 | Covenant Blessings
 
 "A newheart also willI give you, and a new spirit will Iput within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. And I willput My Spirit within you, and cause you to walk in My statutes and you shall keep My judgments, and do them." Ezekiel 36:26,27.
 

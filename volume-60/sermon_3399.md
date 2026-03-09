@@ -1,12 +1,4 @@
-# Good Talk
-
-(No. 3399)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 26, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3399 | Good Talk
 
 "Talk you of all His wondrous works." 1 Chronicles 16:9.
 

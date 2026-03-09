@@ -1,12 +1,4 @@
-# "Out Of The Depths"
-
-(No. 2353)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 25, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 26, 1888.
+# Sermon 2353 | "Out Of The Depths"
 
 "For innumerable evils have compassed me about: my iniquities have taken hold upon me, so that I am not able to look up; they are more than the hairs of my head: therefore my heart fails me. Be pleased, O LORD, to deliver me: O LORD make haste to help me." Psalm 40:12,13.
 

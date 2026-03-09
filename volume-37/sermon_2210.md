@@ -1,12 +1,4 @@
-# The Agreement Of Salvation By Grace With Walking In Good Works
-
-(No. 2210)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 28, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2210 | The Agreement Of Salvation By Grace With Walking In Good Works
 
 "Not of works, lest any man should boast. For we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them" Ephesians 2:9,10.
 

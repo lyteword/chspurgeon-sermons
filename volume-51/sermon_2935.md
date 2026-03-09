@@ -1,12 +1,4 @@
-# Christ's Joy and Ours
-
-(No. 2935)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 11, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 3, 1875.
+# Sermon 2935 | Christ's Joy and Ours
 
 "These things have I spoken unto you, that My joy might remain in you, and that your joy might be full." John 15:11.
 

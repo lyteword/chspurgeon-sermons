@@ -1,12 +1,4 @@
-# Enquiring the Way to Zion
-
-(No. 3035)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 11, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 9, 1870.
+# Sermon 3035 | Enquiring the Way to Zion
 
 "They shall ask the way to Zion with their faces toward it." Jeremiah 50:5.
 

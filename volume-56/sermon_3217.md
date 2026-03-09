@@ -1,12 +1,4 @@
-# An Earnest Warning Against Unbelief
-
-(No. 3217)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 29, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3217 | An Earnest Warning Against Unbelief
 
 "And to whom swore He that they should not enter into His rest, but to them that believed not? So we see that they could not enter in because of unbelief." Hebrews 8:18,19.
 

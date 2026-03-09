@@ -1,12 +1,4 @@
-# Gone, Gone Forever
-
-(No. 1296)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 28, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1296 | Gone, Gone Forever
 
 "And as your servant was busy here and there, he was gone." 1 Kings 20:40.
 

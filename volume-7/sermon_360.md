@@ -1,6 +1,4 @@
-# Adoption
-
-Sermon No. 360 - Delivered on Sabbath Evening, February 10th, 1861, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 360 | Adoption
 
 > "Having predestinated us unto the adoption of children by Jesus Christ to Himself, according to the good pleasure of His will."  
 > Ephesians 1:5.  

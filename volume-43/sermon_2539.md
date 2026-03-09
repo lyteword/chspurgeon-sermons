@@ -1,12 +1,4 @@
-# The Joy of Holy Households
-
-(No. 2539)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 17, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, In connection with the dedication of the Jubilee House, which commemorated the completion of the beloved Pastor's 50 year, June 19,1884.
+# Sermon 2539 | The Joy of Holy Households
 
 "The voice of rejoicing and salvation is in the tabernacles of the righteous: the right hand of the Lord does valiantly. The right hand of the Lord is exalted: the right hand of the Lord does valiantly." Psalm 118:15,16.
 

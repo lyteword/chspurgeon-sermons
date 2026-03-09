@@ -1,12 +1,4 @@
-# "The King Can Do No Wrong"
-
-(No. 2420)
-
-INTENDED FOR READING ON LORD'S DAY, JULY 7, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 16, 1887.
+# Sermon 2420 | "The King Can Do No Wrong"
 
 "And all the people took notice of it, and it pleased them: as whatever the king did pleased all the people." 2 Samuel 3:36.
 

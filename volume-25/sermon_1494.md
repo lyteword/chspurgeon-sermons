@@ -1,12 +1,4 @@
-# The One Foundation
-
-(No. 1494)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 14, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1494 | The One Foundation
 
 "For no other Foundation can anyone lay than that which is laid, which is Jesus Christ." 1 Corinthians 3:11.
 

@@ -1,12 +1,4 @@
-# The Redeemer Described by Himself
-
-(No. 2827)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 1, 1877.
+# Sermon 2827 | The Redeemer Described by Himself
 
 "Why, when I came, was there no man? Why, when I called, was there none to answer? Is My hand shortened at all, that it cannot redeem? Or have I no power to deliver? Behold, at My rebuke I dry up the sea, I make the rivers a wilderness: their fish stink because there is no water, and die for thirst. I clothe the heavens with blackness, and I make sackcloth their covering. The Lord GOD has given Me the tongue of the learned, that I should know how to speak a word in season to him that is weary: He wakens Me morning by morning, he wakens My ears to hear as the learned. The Lord GOD has opened My ears, and I was not rebellious, nor did I turn away. I gave My back to the smiters, and My cheeks to them that plucked off the hair: I hid not My face from shame and spitting." Isaiah 50:2-6.
 

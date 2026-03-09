@@ -1,12 +1,4 @@
-# Dwell Deep, O Dedan!
-
-(No. 1085)
-
-DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1085 | Dwell Deep, O Dedan!
 
 "Dwell deep, O inhabitants of Dedan." Jeremiah 49:8.
 

@@ -1,6 +1,4 @@
-# Preparation for the Coming of the Lord
-
-Sermon No. 2105 - Delivered on Sunday, September 22, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2105 | Preparation for the Coming of the Lord
 
 > "And now, little children, abide in Him. That, when He shall appear, we may have confidence and not be ashamed before Him at His coming."  
 > 1 John 2:28.  

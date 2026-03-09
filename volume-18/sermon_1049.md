@@ -1,12 +1,4 @@
-# Intercessory Prayer
-
-(No. 1049)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 5, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1049 | Intercessory Prayer
 
 "For yet my prayer also shall be in their calamities." Psalm 141:5.
 

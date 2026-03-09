@@ -1,12 +1,4 @@
-# Our Banner
-
-(No. 2979)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2979 | Our Banner
 
 "You have given a banner to those who fear You, that it may be displayed because of the truth." Psalm 60:4.
 

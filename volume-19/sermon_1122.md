@@ -1,12 +1,4 @@
-# Fresh Grace Confidently Expected
-
-(No. 1122)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 20, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1122 | Fresh Grace Confidently Expected
 
 "I shall be anointed with fresh oil." Psalm 92:10.
 

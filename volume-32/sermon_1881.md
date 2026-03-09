@@ -1,12 +1,4 @@
-# The Dying Thief in a New Light
-
-(No. 1881)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 31, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 23, 1885.
+# Sermon 1881 | The Dying Thief in a New Light
 
 "But the other, answering, rebuked him, saying, Do you not fear God, seeing you are in the same condemnation? And we, indeed, justly; for we receive the due reward of our deeds: but this Man has done nothing wrong. And he said unto Jesus, Lord, remember me when You come into Your Kingdom." Luke 23:40-42.
 

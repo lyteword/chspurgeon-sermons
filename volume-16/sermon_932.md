@@ -1,12 +1,4 @@
-# How God Condemned Sin
-
-(No. 932)
-
-DELIVERED ON LORD'S-DAY EVENING, MAY 8, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 932 | How God Condemned Sin
 
 "For what the Law could not do, in that it was weak through the flesh, God sending His o wn Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh." Romans 8:3.
 

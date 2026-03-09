@@ -1,6 +1,4 @@
-# Love's Logic
-
-Sermon No. 1008 - Delivered on Lord's-day Morning, August 27th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1008 | Love's Logic
 
 > "We love him because he first loved us."  
 > 1 John 4:19.  

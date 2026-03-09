@@ -1,12 +1,4 @@
-# Jacob Worshipping on His Staff
-
-(No. 1401)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1401 | Jacob Worshipping on His Staff
 
 "By faith Jacob, when he was dying, blessed both the sons of Joseph, and worshiped, leaning on the top of his staff." Hebrews 11:21.
 

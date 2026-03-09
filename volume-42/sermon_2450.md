@@ -1,12 +1,4 @@
-# The Joy of Redemption
-
-(No. 2450)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 2, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2450 | The Joy of Redemption
 
 "Sing, O you Heavens, for the LORD has done it: shout, you lower parts of the earth: break forth into singing, you mountains, O forest, and every tree in it! For the LORD has redeemed Jacob, and glorified Himself in Israel." Isaiah 44:23.
 

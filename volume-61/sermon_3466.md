@@ -1,12 +1,4 @@
-# A Warning to Believers
-
-(No. 3466)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 8, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 16, 1870.
+# Sermon 3466 | A Warning to Believers
 
 "Let no man beguile you of your reward." Colossians 2:18.
 

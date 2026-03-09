@@ -1,12 +1,4 @@
-# Praise for the Gift of Gifts
-
-(No. 2247)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 13, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 27, 1890.
+# Sermon 2247 | Praise for the Gift of Gifts
 
 "Thanks be unto God for His unspeakable gift." 2 Corinthians 9:15.
 

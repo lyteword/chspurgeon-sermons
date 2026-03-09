@@ -1,12 +1,4 @@
-# High Doctrine And Broad Doctrine
-
-(No. 1762)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT EXETER HALL.
+# Sermon 1762 | High Doctrine And Broad Doctrine
 
 "All that the Father gives Me shall come to Me, and him that comes to Me I will by no means cast out." John 6:37.
 

@@ -1,12 +1,4 @@
-# Pardon and Justification
-
-(No. 3054)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 22, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3054 | Pardon and Justification
 
 "Blessed is he whose transgression is forgiven, whose sin is covered." Psalm 32:1.
 

@@ -1,12 +1,4 @@
-# A Plain Man's Sermon
-
-(No. 1879)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 17, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1879 | A Plain Man's Sermon
 
 "It must be perfect to be accepted; there shall be no defect in it." Leviticus 22:21.
 

@@ -1,12 +1,4 @@
-# The Man Greatly Beloved
-
-(No. 1089)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JANUARY 5, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1089 | The Man Greatly Beloved
 
 "O man greatly beloved, fear not: peace be unto you, be strong, yes, be strong." Daniel 10:19.
 

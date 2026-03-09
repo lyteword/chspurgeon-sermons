@@ -1,12 +1,4 @@
-# The Covenant Pleaded
-
-(No. 1451B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1451B | The Covenant Pleaded
 
 "Have respect unto the Covenant." Psalm 74:20.
 

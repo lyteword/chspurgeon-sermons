@@ -1,12 +1,4 @@
-# Abraham's Double Blessing
-
-(No. 2523)
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 27, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 8, 1885.
+# Sermon 2523 | Abraham's Double Blessing
 
 "I will bless you, and you shall be a blessing." Genesis 12:2.
 

@@ -1,8 +1,4 @@
-# Noah's Flood
-
-A Sermon (No. 823)
-
-Delivered on thursday evening, march 5, 1868, by C. H. SPURGEON, at the [33]Metropolitan Ttabernacle, Newington.
+# Sermon 823 | Noah's Flood
 
 "The flood came and took them all away." Matthew 24:39.
 

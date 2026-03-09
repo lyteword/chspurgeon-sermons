@@ -1,12 +1,4 @@
-# The Glory, Unity and Triumph of the Church
-
-(No. 1472)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 4, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1472 | The Glory, Unity and Triumph of the Church
 
 "And the Glory which You gave Me, I have given them; that they may be one, even as We are One: fin them, and You in Me, that they may be made perfect in one; and that the world may know that You ha ve sent Me and ha ve lo ved them, as You have loved Me." John 17:22-3.
 

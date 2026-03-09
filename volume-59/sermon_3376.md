@@ -1,12 +1,4 @@
-# God's Answer to Persistent Prayer
-
-(No. 3376)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 16, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 2, 1868.
+# Sermon 3376 | God's Answer to Persistent Prayer
 
 "There is a sound of abundance of rain." 1 Kings 18:41.
 

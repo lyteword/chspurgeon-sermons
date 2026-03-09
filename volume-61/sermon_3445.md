@@ -1,12 +1,4 @@
-# Strong Faith in a Faithful God
-
-(No. 3445)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3445 | Strong Faith in a Faithful God
 
 "I will cry unto God Most High; unto God that performs all things form." Psalm 57:2.
 

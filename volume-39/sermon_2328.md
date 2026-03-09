@@ -1,12 +1,4 @@
-# Micah's Message for Today
-
-(No. 2328)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 1, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 22, 1889.
+# Sermon 2328 | Micah's Message for Today
 
 "Walk humbly with your God." Micah 6:8.
 

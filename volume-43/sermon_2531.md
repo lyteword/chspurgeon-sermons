@@ -1,12 +1,4 @@
-# A Boundless Benediction
-
-(No. 2531)
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 22, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 10, 1884.
+# Sermon 2531 | A Boundless Benediction
 
 "By the Almighty, who shall bless you with blessings of Heaven above, blessings of the deep that lies under." Genesis 49:25.
 

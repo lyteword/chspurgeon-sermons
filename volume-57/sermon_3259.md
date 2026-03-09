@@ -1,12 +1,4 @@
-# Faith's Way of Approach
-
-(No. 3259)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 20, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3259 | Faith's Way of Approach
 
 "So then faith comes by hearing, and hearing by the Word of God." Romans 10:17.
 

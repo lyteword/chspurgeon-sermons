@@ -1,12 +1,4 @@
-# Fearing and Trusting--trusting and Not Fearing
-
-(No. 3362)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 10, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, DECEMBER 15, 1867.
+# Sermon 3362 | Fearing and Trusting--trusting and Not Fearing
 
 "What time I am afraid, I will trust in You." Psalm 56:3.
 

@@ -1,12 +1,4 @@
-# Chariots of Iron
-
-(No. 1690)
-
-DELIVERED ON THURSDAY EVENING, SEPTEMBER 28, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1690 | Chariots of Iron
 
 "And the Lord was with Judah; and he drove out the inhabitants of the mountain; but could not drive out the inhabitants of the valley, because they had chariots of iron. And they gave Hebron unto Caleb, as Moses said: and he expelled from there the three sons of Anak." Judges 1:19,20.
 

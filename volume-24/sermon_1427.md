@@ -1,12 +1,4 @@
-# A Wilderness Cry
-
-(No. 1427)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 4, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1427 | A Wilderness Cry
 
 "O God, You are my God; early will I seek You: my soul thirsts for You, my flesh longs for You in a dry and thirsty land, where there is no water; to see Your power and Your Glory, so as I have seen You in the sanctuary." Psalm 63:1,2.
 

@@ -1,12 +1,4 @@
-# "Forever With The Lord"
-
-(No. 1374)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 16, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1374 | "Forever With The Lord"
 
 "So shall we be forever with the Lord." 1 Thessalonians 4:17.
 

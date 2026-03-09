@@ -1,12 +1,4 @@
-# "I Thought"
-
-(No. 1173)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1173 | "I Thought"
 
 "I thought." 2 Kings 5:11.
 

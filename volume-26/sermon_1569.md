@@ -1,12 +1,4 @@
-# The Golden Lamp and Its Goodly Lessons
-
-(No. 1569)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1569 | The Golden Lamp and Its Goodly Lessons
 
 "And the angel that talked with me came again and awakened me, as a man that is wakened out of his sleep and said unto me, What do you see? And I said, I have looked and behold a candlestick all of gold, with a bowl upon the top of it and it has seven lamps thereon and seven pipes to the seven lamps, which are upon the top: and two olive trees by it, one upon the right side of the bowl and the other upon the left side. And I answered again and said unto him, What are these two olive branches which through the two golden pipes empty the golden oil out of themselves? And he answered me and said, Don't you know what these are? And I said, No, my lord. Then he said, These are the two anointed ones that stand by the Lord of the whole earth." Zechariah 4:1-3; 12-14.
 

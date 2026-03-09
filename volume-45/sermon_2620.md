@@ -1,12 +1,4 @@
-# Christ's Prayer for Peter
-
-(No. 2620)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 30, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 22, 1882.
+# Sermon 2620 | Christ's Prayer for Peter
 
 "But I have prayed for you, that your faith fail not." Luke 22:32.
 

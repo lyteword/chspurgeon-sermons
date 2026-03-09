@@ -1,6 +1,4 @@
-# The Tender Enquiry of a Friend
-
-Sermon No. 2025 - Delivered on 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2025 | The Tender Enquiry of a Friend
 
 > "How long will you cut yourself?"  
 > Jeremiah 47:5.  

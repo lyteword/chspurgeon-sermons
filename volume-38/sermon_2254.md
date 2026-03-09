@@ -1,12 +1,4 @@
-# The Two Guards Praying and Watching
-
-(No. 2254)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 1, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 24, 1890.
+# Sermon 2254 | The Two Guards Praying and Watching
 
 "Nevertheless we made our prayer unto our God, and set a watch against them day and night, because of them." Nehemiah 4:9.
 

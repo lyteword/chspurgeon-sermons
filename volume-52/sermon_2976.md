@@ -1,12 +1,4 @@
-# Order Is Heaven's First Law
-
-(No. 2976)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2976 | Order Is Heaven's First Law
 
 "Neither shall one thrust another; they shall walk everyone in his path." Joel 2:8.
 

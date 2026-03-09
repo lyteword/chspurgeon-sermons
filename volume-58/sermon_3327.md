@@ -1,12 +1,4 @@
-# Our Lord's Heroic Endurance
-
-(No. 3327)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 7, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 29, 1866.
+# Sermon 3327 | Our Lord's Heroic Endurance
 
 "For consider Him that endured such contradiction of sinners against Himself lest you be weary and faint in your minds." Hebrews 12:3.
 

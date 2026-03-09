@@ -1,18 +1,4 @@
-# A Free Grace Promise
-
-A Sermon
-
-(No. 2082)
-
-Intended for Reading on Lord's-day, May 5th, 1888.
-
-Delivered by
-
-H. SPURGEON,
-
-At the [4]Metropolitan Tabernacle, Newington,
-
-On Thursday Evening, October 11th, 1888.
+# Sermon 2082 | A Free Grace Promise
 
 "And it shall come to pass, that whosoever shall call on the name of the Lord shall be delivered."'Joel 2:32.
 

@@ -1,12 +1,4 @@
-# A Welcome for Jesus
-
-(No. 2593)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 23, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 17, 1883.
+# Sermon 2593 | A Welcome for Jesus
 
 "And it came topass, that when Jesus was returned, the people gladly received Him, for they were all waiting for Him." Luke 8:40.
 

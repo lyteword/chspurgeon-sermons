@@ -1,7 +1,4 @@
-# A Sharp Knife for the Vine Branches
-
-Sermon No. 774 - Delivered on Lord's-day Morning, OCTOBER 6, 1867 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 774 | A Sharp Knife for the Vine Branches
 
 "Every branch in Me that bears not fruit He takes away: and every branch that bears fruit, He purges it, that it may bring forth more fruit."- John 15:2.
 

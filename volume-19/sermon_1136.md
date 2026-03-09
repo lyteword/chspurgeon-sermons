@@ -1,12 +1,4 @@
-# "Forever With The Lord"
-
-(No. 1136)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1136 | "Forever With The Lord"
 
 "To be with Christ, which is far better." Philippians 1:23.
 

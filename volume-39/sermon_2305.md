@@ -1,12 +1,4 @@
-# No Fixity Without Faith
-
-(No. 2305)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 11, 1889.
+# Sermon 2305 | No Fixity Without Faith
 
 "If you will not believe, surely you shall not be established." Isaiah 7:9.
 

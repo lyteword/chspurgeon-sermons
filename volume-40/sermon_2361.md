@@ -1,12 +1,4 @@
-# Hopeful, Yet Doubtful
-
-(No. 2361)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 20, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 8, 1888.
+# Sermon 2361 | Hopeful, Yet Doubtful
 
 "And a certain scribe came and said unto Him, Master I wiil follow You wherever You go. And Jesus said to him, The foxes have holes, and the birds of the air have nests; but the Son of Man has not where to lay His head." Matthew 8:19,20.
 

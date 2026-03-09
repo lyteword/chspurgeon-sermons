@@ -1,6 +1,4 @@
-# Prevenient Grace
-
-Sermon No. 656 - Delivered on 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 656 | Prevenient Grace
 
 > When it pleased God, who separated me from my mother's womb and called me by His Grace, to reveal His Son in me.    
 > Galatians 1:15.    

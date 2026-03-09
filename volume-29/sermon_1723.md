@@ -1,12 +1,4 @@
-# "Knock!"
-
-(No. 1723)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 27, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1723 | "Knock!"
 
 "Knock, and it shall be opened unto you." Matthew 7:12.
 

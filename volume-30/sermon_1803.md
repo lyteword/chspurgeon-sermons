@@ -1,12 +1,4 @@
-# Jehovah-Jireh
-
-(No. 1803)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 12, 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1803 | Jehovah-Jireh
 
 "And Abraham called the name of that place Jehovah-jireh: as it is said to this day, In the mount of the Lord it shall be seen." Genesis 22:14.
 

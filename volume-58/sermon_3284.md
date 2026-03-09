@@ -1,12 +1,4 @@
-# The Sequel to Divine Sovereignty
-
-(No. 3284)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1912.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 4, 1866.
+# Sermon 3284 | The Sequel to Divine Sovereignty
 
 "The LORD reigns; let the people tremble." Psalm 99:1.
 

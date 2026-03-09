@@ -1,12 +1,4 @@
-# "No Root in Themselves"
-
-(No. 2846)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 23, 1888.
+# Sermon 2846 | "No Root in Themselves"
 
 "And have no root in themselves." Mark 4:17.
 

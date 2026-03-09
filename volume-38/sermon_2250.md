@@ -1,12 +1,4 @@
-# Words To Rest On
-
-(No. 2250)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 3, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 18, 1890.
+# Sermon 2250 | Words To Rest On
 
 "And the people rested themselves upon the words of Hezekiah, king of Judah." 2 Chronicles 32:8.
 

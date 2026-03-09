@@ -1,12 +1,4 @@
-# The Memorable Hymn
-
-(No. 2982)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 5, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2982 | The Memorable Hymn
 
 "And when they had sung a hymn, they went out to the Mount of Olives." Matthew 26:30.
 

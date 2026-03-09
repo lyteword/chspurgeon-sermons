@@ -1,12 +1,4 @@
-# The Ministry Of Gratitude
-
-(No. 1071)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 15, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 1071 | The Ministry Of Gratitude
 
 "And immediately she arose and ministered unto them." Luke 4:39.
 

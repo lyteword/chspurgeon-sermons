@@ -1,12 +1,4 @@
-# Self-destroyed, Yet Saved
-
-(No. 2425)
-
-INTENDED FOR READING ON LORD'S DAY, AUGUST 11, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 11, 1887.
+# Sermon 2425 | Self-destroyed, Yet Saved
 
 "O Israel, you have destroyed yourself; but in Me is your help." Hosea 13:9.
 

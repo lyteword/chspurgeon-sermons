@@ -1,12 +1,4 @@
-# The Turning Of Job's Captivity
-
-(No. 1262)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1262 | The Turning Of Job's Captivity
 
 "The Lord turned the captivity of Job, when he prayed for his friends: also the Lord ga ve Job twice as much as he had before." Job 42:10.
 

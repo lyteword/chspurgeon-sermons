@@ -1,6 +1,4 @@
-# The Minister's Farewell
-
-Sermon No. 289 - Delivered on Sabbath Morning, December 11th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens,.
+# Sermon 289 | The Minister's Farewell
 
 Upon the last occasion of his preaching in that place.
 

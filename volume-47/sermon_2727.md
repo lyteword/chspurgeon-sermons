@@ -1,12 +1,4 @@
-# Bitter Herbs
-
-(No. 2727)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 19, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 25, 1880.
+# Sermon 2727 | Bitter Herbs
 
 "With bitter herbs they shall eat it." Exodus 12:8.
 

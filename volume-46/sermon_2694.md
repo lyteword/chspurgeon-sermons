@@ -1,12 +1,4 @@
-# Grace Preferred to Gifts
-
-(No. 2694)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3O, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 1, 1881.
+# Sermon 2694 | Grace Preferred to Gifts
 
 "But covet earnestly the best gifts: and yet I show you a more excellent way." 1 Corinthians 12:31.
 

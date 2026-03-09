@@ -1,12 +1,4 @@
-# God, the Husband of His People
-
-(No. 3419)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 30, 1869.
+# Sermon 3419 | God, the Husband of His People
 
 "Although I was a Husband unto them, says the Lord." Jeremiah 31:32.
 

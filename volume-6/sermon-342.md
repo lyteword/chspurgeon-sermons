@@ -1,12 +1,4 @@
-# Grace Reviving Israel
-
-A Sermon
-
-(No. 342)
-
-Delivered at Tottenham Court Road Chapel, by the
-
-REV. C. H. Spurgeon.
+# Sermon 342 | Grace Reviving Israel
 
 "I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon. His branches shall spread, and his beauty shall be as the olive tree, and his smell as Lebanon. They that dwell under his shadow shall return; they shall revive as the corn, and grow as the vine: the scent thereof shall be as the wine of Lebanon."&mdash;Hosea 14:5-7.
 

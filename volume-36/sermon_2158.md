@@ -1,6 +1,4 @@
-# Christ's Testimony Received
-
-Sermon No. 2158 - Delivered on Sunday Morning, August 10th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2158 | Christ's Testimony Received
 
 > "He that has received His testimony has set to his seal that God is true."  
 > John 3:33.  

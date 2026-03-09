@@ -1,12 +1,4 @@
-# To Sunday School Teachers And Other Soul-winners
-
-(No. 1137)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 19, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1137 | To Sunday School Teachers And Other Soul-winners
 
 "Brethren, if any of you do err from the truth, and one converts him, lethim know, thathe which converts the sinner from the error ofhis way shall save a soul from death, and shall hide a multitude of sins." James 5:19,20.
 

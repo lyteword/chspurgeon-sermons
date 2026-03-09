@@ -1,12 +1,4 @@
-# A Song Concerning Loving Kindnesses
-
-(No. 1126)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 10, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1126 | A Song Concerning Loving Kindnesses
 
 "I will mention the loving kindnesses of the Lord, and the praises of the Lord, according to all that the Lord has bestowed on us, and the great goodness toward the house of Israel, which He has bestowed on them according to His mercies, and according to the multitude of His loving kindnesses." Isaiah 63:7.
 

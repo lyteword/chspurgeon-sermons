@@ -1,12 +1,4 @@
-# Spiritual Revival--the Need of the Church
-
-(No. 2598)
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON, AT WHITEFIELD'S TABERNACLE, TOTTENHAM COURT ROAD,
-
-AT THE CENTENARY COMMEMORATION, ON TUESDAY AFTERNOON, NOVEMBER 11, 1856.
+# Sermon 2598 | Spiritual Revival--the Need of the Church
 
 "OLORD, revive Your work." Habakkuk 3:2.
 

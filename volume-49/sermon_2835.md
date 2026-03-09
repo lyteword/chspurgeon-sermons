@@ -1,12 +1,4 @@
-# Patients for the Great Physician
-
-(No. 2835)
-
-A SERMON INTENDED FOR READING ON HOSPITAL SUNDAY.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY, FEBRUARY 15, 1863.
+# Sermon 2835 | Patients for the Great Physician
 
 "And Jesus answering said unto them, They that are whole need not a physician; but they that are sick." Luke 5:31.
 

@@ -1,6 +1,4 @@
-# Quiet Musing!
-
-Sermon No. 576 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 576 | Quiet Musing!
 
 > "While I was musing the fire burned."  
 > Psalm 39:3.  

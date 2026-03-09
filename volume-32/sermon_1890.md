@@ -1,6 +1,4 @@
-# Our Lord's Prayer for His People's Sanctification
-
-Sermon No. 1890 - Delivered on Lord's-day Morning, March 7th, 1886 the REV. C.H. SPURGEON at [3]the Metropolitan Tabernacle, Newington.
+# Sermon 1890 | Our Lord's Prayer for His People's Sanctification
 
 > "Sanctify them through thy truth: thy word is truth."  
 > John 17:17.  

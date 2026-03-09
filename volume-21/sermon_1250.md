@@ -1,12 +1,4 @@
-# The Priest Dispensed With
-
-(No. 1250)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1250 | The Priest Dispensed With
 
 "He that believes on the Son of God has the witness in himself." 1 John 5:10.
 

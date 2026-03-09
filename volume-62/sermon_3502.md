@@ -1,16 +1,4 @@
-# Powerful Persuasives
-
-A Sermon
-
-(No. 3502)
-
-Published on Thursday, March 9th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [10]the Metropolitan Tabernacle, Newington.
+# Sermon 3502 | Powerful Persuasives
 
 "All things are delivered unto me of my Father: and no man knoweth the Son, but the Father; neither knoweth any man the Father, save the Son, and he to whomsoever the Son will reveal him. Come unto me, all ye that labour and are heavy laden, and I will give you rest."--Matthew 11:27-28.
 

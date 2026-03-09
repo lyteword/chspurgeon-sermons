@@ -1,12 +1,4 @@
-# Before Sermon, At Sermon and After Sermon
-
-(No. 1847)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 28, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1847 | Before Sermon, At Sermon and After Sermon
 
 "Therefore lay aside all filthiness and superfluity of naughtiness, and receive with meekness the engrafted Word, which is able to save your souls. But be you doers of the Word, and not hearers only, deceiving yourselves." James 1:21,22.
 

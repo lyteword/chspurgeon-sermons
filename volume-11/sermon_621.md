@@ -1,6 +1,4 @@
-# The Precious Blood Of Christ
-
-Sermon No. 621 - Delivered on Sunday Morning, March 26th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 621 | The Precious Blood Of Christ
 
 > The precious blood of Christ.    
 > 1 Peter 1:19.    

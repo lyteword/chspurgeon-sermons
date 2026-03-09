@@ -1,12 +1,4 @@
-# Let Him Alone
-
-(No. 1140)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1140 | Let Him Alone
 
 "Ephraim is joined to idols: let him alone." Hosea 4:17.
 

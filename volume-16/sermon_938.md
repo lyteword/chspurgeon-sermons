@@ -1,12 +1,4 @@
-# A Good Soldier Of Jesus Christ
-
-(No. 938)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 26, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 938 | A Good Soldier Of Jesus Christ
 
 "A good soldier of Jesus Christ." 2 Timothy 2:2,3.
 

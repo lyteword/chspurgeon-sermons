@@ -1,8 +1,4 @@
-# "All These Things"--A Sermon with Three Texts
-
-A Sermon (No. 837)
-
-Delivered on Sunday Morning, October 18, 1868, by C. H. SPURGEON, at the [46]Metropolitan Tabernacle, Newington.
+# Sermon 837 | "All These Things"--A Sermon with Three Texts
 
 "And Jacob their father said unto them, You have bereaved me of my children: Joseph is not, and Simeon is not, and you will take Benjamin away: all these things are against me." Genesis 42:36.
 

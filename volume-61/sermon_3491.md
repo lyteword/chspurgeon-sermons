@@ -1,12 +1,4 @@
-# The Savior's Charity
-
-(No. 3491)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 23, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3491 | The Savior's Charity
 
 "Jesus answered and said unto Aim, What do you want Me to do for you?" Mark 10:51.
 

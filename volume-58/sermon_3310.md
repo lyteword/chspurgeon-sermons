@@ -1,12 +1,4 @@
-# Prompt Obedience
-
-(No. 3310)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 11H, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 17, 1866.
+# Sermon 3310 | Prompt Obedience
 
 "As soon as they hear of me, they shall obey me: the strangers shall submit themselves unto me." Psalm 18:44.
 

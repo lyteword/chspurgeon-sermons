@@ -1,12 +1,4 @@
-# The Common Salvation
-
-(No. 1592)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 10, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1592 | The Common Salvation
 
 "The common salvation." Jude 1:3.
 

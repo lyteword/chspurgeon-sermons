@@ -1,12 +1,4 @@
-# The Lord's Famous Titles
-
-(No. 2347)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 11, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 10, 1889.
+# Sermon 2347 | The Lord's Famous Titles
 
 "The LORD looses the prisoners: the LORD opens the eyes of the blind: the LORD raises them that are bowed down: the LORD lo ves the righteous: the LORD preserves the strangers, He relie ves the fatherless and widow: but the way of the wicked He turns upside down." Psalm 146:7-9.
 

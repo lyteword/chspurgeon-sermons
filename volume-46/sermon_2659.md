@@ -1,16 +1,4 @@
-# Fallen Asleep
-
-(No. 2659)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 28, 1900.
-
-(C. H. Spurgeon Memorial Sabbath).
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 29, 1882.
-
-[Just 10 years before he fell asleep in Jesus.]
+# Sermon 2659 | Fallen Asleep
 
 "Some are fallen asleep." 1 Corinthians 15:6.
 

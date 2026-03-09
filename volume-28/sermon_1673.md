@@ -1,12 +1,4 @@
-# Who Is This?
-
-(No. 1673)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 6, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1673 | Who Is This?
 
 "For who is this that engaged His heart to approach unto Me? says the Lord." Jeremiah 30:21.
 

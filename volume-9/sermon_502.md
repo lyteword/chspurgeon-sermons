@@ -1,6 +1,4 @@
-# A Jealous God
-
-Sermon No. 502 - Delivered on Sunday Morning, March 29th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 502 | A Jealous God
 
 > "For the Lord, whose name is jealous, is a jealous God."  
 > Exodus 34:14.  

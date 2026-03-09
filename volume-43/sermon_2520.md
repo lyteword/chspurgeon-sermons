@@ -1,12 +1,4 @@
-# A Program Never Carried Out
-
-(No. 2520)
-
-INTENDED FOR READING ON LORD'S-DAY JUNE 6, 1897.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER. 25, 1885.
+# Sermon 2520 | A Program Never Carried Out
 
 "And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. And the son said unto him, Father, Ihave sinned against Heaven, and in your sight, and am no more worthy to be called your son." Luke 15:20,21.
 

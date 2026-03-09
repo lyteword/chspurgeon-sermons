@@ -1,12 +1,4 @@
-# Night--and Jesus Not There!
-
-(No. 2945)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 20, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 29, 1875.
+# Sermon 2945 | Night--and Jesus Not There!
 
 "And it was now dark, and Jesus had not come to them." John 6:17.
 

@@ -1,12 +1,4 @@
-# The Rule and Reward of Serving Christ
-
-(No. 2449)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 26, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 27, 1889.
+# Sermon 2449 | The Rule and Reward of Serving Christ
 
 "If anyone serves Me, let him follow Me, and where I am there My servant will be also: if anyone serves Me, him will My Father honor." John 12:26.
 

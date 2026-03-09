@@ -1,12 +1,4 @@
-# Christians, and Their Communion With God
-
-(No. 2430)
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 15, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 15, 1887.
+# Sermon 2430 | Christians, and Their Communion With God
 
 "Yes, in the way of Your judgments, O LORD have we waited for You, the desire of our soul is for Your name, and for the remembrance of You. With my soul have I desired You in the night; yes, by my spirit within me will I seek You early." Isaiah 26:8,9.
 

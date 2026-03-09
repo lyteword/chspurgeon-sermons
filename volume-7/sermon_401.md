@@ -1,6 +1,4 @@
-# Jacob's Waking Exclamation
-
-Sermon No. 401 - Delivered on Sunday Morning, July the 21st, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 401 | Jacob's Waking Exclamation
 
 > "And Jacob awaked out of his sleep, and he said, Surely the Lord in this place; and I knew it not."  
 > Genesis 28:16.  

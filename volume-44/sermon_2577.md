@@ -1,12 +1,4 @@
-# Living on the Word
-
-(No. 2577)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 3, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 15, 1883.
+# Sermon 2577 | Living on the Word
 
 "Man does not live by bread only, but by every word that proceeds out ofthe mouth of the LORRD does man live." Deuteronomy 8:3.
 

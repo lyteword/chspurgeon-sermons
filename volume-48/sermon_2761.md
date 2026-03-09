@@ -1,12 +1,4 @@
-# The Free Agency of Christ
-
-(No. 2761)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 12, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 21, 1879.
+# Sermon 2761 | The Free Agency of Christ
 
 "And He came to Bethsaida; and they brought a blind man to Him, and begged Him to touch him. So He took the blind man by the hand and led him out of the town. And when He had spit on his eyes and put His hands on him, He asked him ifhe saw anything. And he looked up and said, Isee men as trees, walking. After that Heput His hands again upon his eyes, and made him look up: and he was restored, and saw everyone clearly." Mark 8:22-25.
 

@@ -1,12 +1,4 @@
-# Praise for Jesus
-
-(No. 3296)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 4, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 25, 1866.
+# Sermon 3296 | Praise for Jesus
 
 "Judah, you are he whom your brothers shall praise." Genesis 49:8.
 

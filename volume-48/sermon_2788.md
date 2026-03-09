@@ -1,12 +1,4 @@
-# Prayer for the Church
-
-(No. 2788)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 20, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 20, 1878.
+# Sermon 2788 | Prayer for the Church
 
 "Cause Your face to shine upon Your sanctuary." Daniel 9:17.
 

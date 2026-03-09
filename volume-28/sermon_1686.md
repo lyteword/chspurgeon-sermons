@@ -1,12 +1,4 @@
-# With the Disciples on the Lake of Galilee
-
-(No. 1686)
-
-DELIVERED ON THURSDAY EVENING, OCTOBER 6, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1686 | With the Disciples on the Lake of Galilee
 
 "The men marveled, saying, What manner of Man is this, that even the winds and the sea obey Him!" Matthew 8:27.
 

@@ -1,12 +1,4 @@
-# A Memorable Milestone
-
-(No. 2916)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 29, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 25, 1886.
+# Sermon 2916 | A Memorable Milestone
 
 "I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, You know. I have not hid Your righteousness within my heart; I have declared Your faithfulness and Your salvation: I have not concealed Your loving-kindness and Your truth from the great congregation. Withhold not Your tender mercies from me, O Lord: let Your loving-kindness and Your truth continually preserve me." Psalm 40:9-11.
 

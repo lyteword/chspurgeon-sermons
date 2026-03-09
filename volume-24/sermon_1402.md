@@ -1,12 +1,4 @@
-# "Lead Us Not Into Temptation"
-
-(No. 1402)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1402 | "Lead Us Not Into Temptation"
 
 "Lead us not into temptation." Matthew 6:13.
 

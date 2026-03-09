@@ -1,12 +1,4 @@
-# Unwillingness to Come to Christ
-
-(No. 1324)
-
-A SERMON DELIVERED ON THURSDAY EVENING, NOVEMBER 2, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1324 | Unwillingness to Come to Christ
 
 "And you will not come to Me, that you might have life." John 5:40.
 

@@ -1,6 +1,4 @@
-# The Word a Sword
-
-Sermon No. 2010 - Delivered on Thursday Evening, May 17th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2010 | The Word a Sword
 
 > "For the Word of God is quick and powerful and sharper than any two-edged sword, piercing even to the dividing asunder of soul and spirit and of the joints and marrow and is a discerner of the thoughts and intents of the heart."  
 > Hebrews 4:12.  

@@ -1,12 +1,4 @@
-# Laboring And Not Fainting
-
-(No. 1069)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 8, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1069 | Laboring And Not Fainting
 
 "For My name's sake you ha ve labored and ha ve not fainted." Revelation 2:3.
 

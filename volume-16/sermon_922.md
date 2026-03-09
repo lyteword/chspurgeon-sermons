@@ -1,12 +1,4 @@
-# Sincerity And Duplicity
-
-(No. 922)
-
-DELIVERED ON LORD'S-DAY EVENING, MARCH 6, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 922 | Sincerity And Duplicity
 
 "Hereby we do know that we know Him, if we keep His commandments. He that says, I know Him, and keeps not His commandments, is a liar, and the Truth is not in him." 1 John 2:3,4.
 

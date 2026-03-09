@@ -1,7 +1,4 @@
-# Safe Shelter
-
-Sermon No. 902 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 902 | Safe Shelter
 
 "He shall cover you with His feathers, and under His wings shall you trust."- Psalm 91:4.
 

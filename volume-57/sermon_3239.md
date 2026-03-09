@@ -1,12 +1,4 @@
-# Woe and Weal
-
-(No. 3239)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 2, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3239 | Woe and Weal
 
 "I will bear the indignation of the LORD, because I have sinned against Him, until He pleads my cause, and executes judgment for me, He will bring me forth to the light and I shall behold His righteousness." Micah 7:9.
 

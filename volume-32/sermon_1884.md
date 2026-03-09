@@ -1,18 +1,9 @@
-# Exhortation--"Set Your Heart"
-
-(No. 1884)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1884 | Exhortation--"Set Your Heart"
 
 "Now set your heart and your soul to seek the Lord your God." 1 Chronicles 22:19.
 
 THE PASTOR'S RETURN. THREE SPECIALLY- SELECTED SERMONS TO HIS CHURCH, CONGREGATION, READERS AND FRIENDS, CONSISTING OF
 
-A RETROSPECT, A PROSPECT [No. 1883] AND AN EXHORTATION [No. 1884.]
 
 THIS exhortation may be most fitly directed to those who are already saved. It was first given to the elders of Israel and we would gladly hope that they were already good men and true, but, secondly, the language might be very fitly addressed to the unconverted. There may be a little straining in this latter case, for we can hardly call the Lord, their God as yet, but still we shall venture to say to the unconverted who have come up with God's people, "Set your heart and your soul to seek the Lord your God."
 

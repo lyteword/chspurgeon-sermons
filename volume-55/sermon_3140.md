@@ -1,12 +1,4 @@
-# The Glory of Our Strength
-
-(No. 3140)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 15, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 13, 1873.
+# Sermon 3140 | The Glory of Our Strength
 
 "For You are the glory of their strength." Psalm 89:17.
 

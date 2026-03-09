@@ -1,12 +1,4 @@
-# Holding Fast Our Profession
-
-(No. 1897)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1897 | Holding Fast Our Profession
 
 "Let us holdfast the profession of our faith without wavering; (for He is faithful who promised)." Hebrews 10:23.
 

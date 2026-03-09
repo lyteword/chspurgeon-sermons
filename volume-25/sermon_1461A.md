@@ -1,10 +1,4 @@
-# The Seven Sneezes
-
-(No. 1461A)
-
-WRITTEN AT MENTONE,
-
-BY C. H. SPURGEON.
+# Sermon 1461A | The Seven Sneezes
 
 "The child sneezed seven times." 2 Kings 4:35.
 

@@ -1,12 +1,4 @@
-# The Sweetness of God's Word
-
-(No. 3197)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 12, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT UPTON CHAPEL, LAMBETH, ON TUESDAY AFTERNOON, MARCH 12, 1867.
+# Sermon 3197 | The Sweetness of God's Word
 
 "How sweet aire Your Words to my taste! Yes, sweeter than honey to my mouth!" Psalm 119:103.
 

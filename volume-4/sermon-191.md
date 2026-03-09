@@ -1,6 +1,4 @@
-# Christ Glorified as the Builder of His Church
-
-Sermon No. 191 - Delivered on Sabbath Morning, May 2, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 191 | Christ Glorified as the Builder of His Church
 
 > He shall build the temple of the Lord, and he shall bear the glory.    
 > Zechariah 6:13.    

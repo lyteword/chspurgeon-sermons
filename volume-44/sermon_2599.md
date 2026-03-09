@@ -1,12 +1,4 @@
-# A Visit From the Lord
-
-(No. 2599)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 4, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT CHRIST CHURCH, WESTMINSTER BRIDGE ROAD, (during the renovation of the Tabernacle), ON THURSDAY EVENING, AUGUST 30, 1883.
+# Sermon 2599 | A Visit From the Lord
 
 "O visit me with Your salvation." Psalm 106:4.
 

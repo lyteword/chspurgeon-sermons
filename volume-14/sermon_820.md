@@ -1,8 +1,4 @@
-# Working Out What is Worked In
-
-A Sermon (No. 820)
-
-Delivered on Lord's-Day Morning, July 12, 1868, by C. H. SPURGEON, at the [30]Metropolitan Tabernacle, Newington.
+# Sermon 820 | Working Out What is Worked In
 
 "Work out your own salvation with fear and trembling. For it is God which works in you both to will and to do of His good pleasure." Philippians 2:12,13.
 

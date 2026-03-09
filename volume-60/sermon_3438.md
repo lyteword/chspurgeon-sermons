@@ -1,12 +1,4 @@
-# The Compassion of Jesus
-
-(No. 3438)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3438 | The Compassion of Jesus
 
 "He was moved with compassion." Matthew 9:36.
 

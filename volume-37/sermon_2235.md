@@ -1,12 +1,4 @@
-# A Warrant for Your Apprehension
-
-(No. 2235)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 19, 1891.
+# Sermon 2235 | A Warrant for Your Apprehension
 
 "The word of the Lord is against you." Zephaniah 2:5.
 

@@ -1,12 +1,4 @@
-# God's Providence
-
-(No. 3114)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
+# Sermon 3114 | God's Providence
 
 "Now as I beheld the living creatures, behold one wheel upon the earth by the living creatures, with his four faces. The appearance of the wheels and their work was like unto the color of a beryl: and they four had one likeness: and their appearance and their work was, as it were, a wheel in the middle of a wheel. Where they went, they went upon their four sides: and they turned not when they went As for their rims, they were so high that they were dreadful; and their rims were full of eyes round about them four And when the living creatures went, the wheels went by them, and when the living creatures were lifted up from the earth, the wheels were lifted up." Ezekiel 1:15-19.
 

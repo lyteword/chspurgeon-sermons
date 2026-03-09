@@ -1,12 +1,4 @@
-# One Aspect of Christ's Death
-
-(No. 2986)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 3, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 14, 1875.
+# Sermon 2986 | One Aspect of Christ's Death
 
 "Greater love has no man than this, that a man lay down his life for his friends." John 15:13.
 

@@ -1,12 +1,4 @@
-# A Strange Yet Gracious Choice
-
-(No. 2600)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 11, 1898.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, (on its re-opening after repairs), ON THURSDAY EVENING, SEPTEMBER 6, 1883.
+# Sermon 2600 | A Strange Yet Gracious Choice
 
 "For the LORD has chosen Jacob unto Himself, and Israel for His peculiar treasure." Psalm 135:4.
 

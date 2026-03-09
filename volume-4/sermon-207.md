@@ -1,6 +1,4 @@
-# Sovereign Grace and Man's Responsibility
-
-Sermon No. 207 - Delivered on Sabbath Morning, August 1, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 207 | Sovereign Grace and Man's Responsibility
 
 > But Esaias is very bold, and saith, I was found of them that sought me not; I was made manifest unto them that asked not after me. But to Israel he saith, all day long I have stretched forth my hands unto a disobedient and gainsaying people.    
 > Romans 10:20-21.    

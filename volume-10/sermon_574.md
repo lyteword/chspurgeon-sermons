@@ -1,6 +1,4 @@
-# The Superlative Excellence Of The Holy Spirit
-
-Sermon No. 574 - Delivered on Sunday Morning, June 12th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 574 | The Superlative Excellence Of The Holy Spirit
 
 > "Nevertheless I tell you the truth. It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send Him unto you."  
 > John 16:7.  

@@ -1,12 +1,4 @@
-# Why Men Do Not Believe
-
-(No. 3463)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 17, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 11, 1868.
+# Sermon 3463 | Why Men Do Not Believe
 
 "How can you believe, who receive honor one of mother" John 5:46.
 

@@ -1,12 +1,4 @@
-# Mary's Magnificat
-
-(No. 2941)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 22, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 22, 1875.
+# Sermon 2941 | Mary's Magnificat
 
 "And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savor." Luke 1:46, 47.
 

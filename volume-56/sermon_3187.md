@@ -1,12 +1,4 @@
-# The Great Pot and the Twenty Loaves
-
-(No. 3187)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 3, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3187 | The Great Pot and the Twenty Loaves
 
 "Set on the great pot." 2 Kings 4:38.
 

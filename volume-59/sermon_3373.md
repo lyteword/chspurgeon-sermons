@@ -1,12 +1,4 @@
-# Man's Scorn and God's Succor
-
-(No. 3373)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 25, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, MAY 12, 1867.
+# Sermon 3373 | Man's Scorn and God's Succor
 
 "My friends scorn me; but my eyes pour out tears unto God." Job 16:20.
 

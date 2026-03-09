@@ -1,12 +1,4 @@
-# God's Glory and His Goodness
-
-(No. 3448)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 4, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE.
+# Sermon 3448 | God's Glory and His Goodness
 
 "And he said, I beseech You, show me Your Glory. And He said, I will make all My goodness pass before you, and I will proclaim the name of the Lord before you; and will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy. And He said, You cannot see My face: for there shall no man see Me, and live. And the Lord said, Behold, there is aplace by Me, and you shall stand upon a rock: and it shall come to pass, while My Glory passes by, that I will put you in a cliff of the rock, and will cover you with My hand when I pass by: and I will take away My hand, andyou shall see My back parts: but My face shall not be seen." Exodus 33:18-23.
 

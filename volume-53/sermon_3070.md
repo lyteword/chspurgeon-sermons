@@ -1,12 +1,4 @@
-# A Visit to Christ's Hospital
-
-(No. 3070)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER I2, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3070 | A Visit to Christ's Hospital
 
 "Fools because of their transgression and because of their iniquities, are afflicted. Their soul abhors all manner of meat; and they draw near unto the gates ofdeath. Then they cry unto the Lord in their trouble, and He saves them out of their distresses. He sent His Word and healed them, and delivered them from their destructions. Oh that men would praise the LORD for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing." Psalm 107:17-22.
 

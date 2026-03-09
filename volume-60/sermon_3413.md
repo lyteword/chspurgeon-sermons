@@ -1,12 +1,4 @@
-# God's Mercy Going Before
-
-(No. 3413)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 2, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY10,1870.
+# Sermon 3413 | God's Mercy Going Before
 
 "The God of my mercy shall prevent [go before] me." Psalm 59:10.
 

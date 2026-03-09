@@ -1,6 +1,4 @@
-# Little Sins
-
-Sermon No. 248 - Delivered on Sabbath Morning, April 17th, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 248 | Little Sins
 
 > Is it not a little one?    
 > Genesis 19:20.    

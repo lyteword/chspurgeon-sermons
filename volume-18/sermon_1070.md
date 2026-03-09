@@ -1,12 +1,4 @@
-# Wrecked, But Not reckless
-
-(No. 1070)
-
-A SERMON DELIVERED ON LORD'S-DAY EVENING, JUNE 9, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1070 | Wrecked, But Not reckless
 
 "All hope that we should be sa ved was then taken away." Acts 27:20.
 

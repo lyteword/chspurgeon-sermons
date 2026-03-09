@@ -1,6 +1,4 @@
-# Creation's Groans and the Saints' Sighs
-
-Sermon No. 788 - Delivered on Lord's-Day Morning, January 5TH, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, .
+# Sermon 788 | Creation's Groans and the Saints' Sighs
 
 > "We know that the whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves also, which have the first-fruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body."  
 > Romans 8:22-23.  

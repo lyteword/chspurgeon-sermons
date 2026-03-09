@@ -1,16 +1,4 @@
-# The Fainting Soul Revived
-
-A Sermon
-
-(No. 3510)
-
-Published on Thursday, May 4th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [18]the Metropolitan Tabernacle, Newington.
+# Sermon 3510 | The Fainting Soul Revived
 
 "When my soul fainted within me, I remembered the Lord."--Jonah 2:7.
 

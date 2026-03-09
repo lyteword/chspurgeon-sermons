@@ -1,12 +1,4 @@
-# Faith--What Is It? How Can It Be Obtained?
-
-(No. 1609)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 17, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1609 | Faith--What Is It? How Can It Be Obtained?
 
 "By Grace are you saved through faith." Ephesians 2:8.
 

@@ -1,12 +1,4 @@
-# Who Found It Out?
-
-(No. 1903)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JUNE 6, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1903 | Who Found It Out?
 
 "And there were four leprous men at the entrance of the gate and they said to one another, Why are we sitting here until we die? If we say, We will enter into the city, then the famine is in the city, and we shall die there. And if we sithere, we die also. Now therefore, come, let us surrender to the army of the Syrians. If they keep us alive, we shall live, and if they kill us, we shall only die. And they rose at twilight, to go to the camp of the Syrians: and when they had come to the outskirts of the Syrian camp, to their surprise, no one was there. For the Lord had made the host of the Syrians to hear a noise of chariots, and a noise of horses even the noise of a great host: and they said to one another, Look the king of Israel has hired against us the kings of the Hittites, and the kings of the Egyptians, to come upon us. Therefore they arose and fled in the twilight, and left their tents, and their horses, and their asses, even the camp as it was, and fled for their lives." 2 Kings 7:3-7.
 

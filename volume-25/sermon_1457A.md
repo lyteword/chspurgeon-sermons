@@ -1,12 +1,4 @@
-# Seekers Directed and Encouraged
-
-(No. 1457A)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1457A | Seekers Directed and Encouraged
 
 "And you shall seek Me and find Me, when you shall search for Me with all your heart." Jeremiah 29:13.
 

@@ -1,12 +1,4 @@
-# The Saint's Trials and the Divine Deliverances
-
-(No. 3548)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 25, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 11, 1872.
+# Sermon 3548 | The Saint's Trials and the Divine Deliverances
 
 "I cried unto God... You led Your people like a flock by the hand of Moses and Aaron." Psalm 77:1-20.
 

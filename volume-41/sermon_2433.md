@@ -1,12 +1,4 @@
-# Heman's Sorrowful Psalm
-
-(No. 2433)
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 6, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 25, 1887.
+# Sermon 2433 | Heman's Sorrowful Psalm
 
 "But unto You have I cried, O Lord; and in the morning shall my prayer come before You." Psalm 88:13.
 

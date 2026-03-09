@@ -1,6 +1,4 @@
-# The Rainbow
-
-Sermon No. 517 - Delivered on Sunday Morning, June 28th, 1863, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 517 | The Rainbow
 
 > "And the bow shall be in the cloud and I will look upon it, that I may remember the Everlasting Covenant between God and every living creature of all flesh that is upon the earth."  
 > Genesis 9:16.  

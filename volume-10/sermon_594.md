@@ -1,6 +1,4 @@
-# An Awful Premonition
-
-Sermon No. 594 - Delivered on by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 594 | An Awful Premonition
 
 > "Assuredly I say unto you, there are some standing here who shall not taste of death till they see the Son of Man coming in His kingdom."  
 > Matthew 16:28.  

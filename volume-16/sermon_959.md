@@ -1,12 +1,4 @@
-# Right Replies To Right Requests
-
-(No. 959)
-
-DELIVERED ON LORDS-DAY MORNING, NOVEMBER 6, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 959 | Right Replies To Right Requests
 
 "If a son shall ask for bread of any of you that is a father, will he give him a stone? Or if he asks for a fish, will he for a fish give him a serpent? Or if he shall ask for an egg, will he offer him a scorpion? If you then, being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask Him?" Luke 11:11-13.
 

@@ -1,12 +1,4 @@
-# The Crisis Of This World
-
-(No. 2338)
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 10, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 6, 1889.
+# Sermon 2338 | The Crisis Of This World
 
 "Now is the judgment of this world: nowshall theprince of this world be cast out. And I, if Iam lifted up from the earth, will draw all men unto Me. This He said, signifying what death He should die." John 12:31-33.
 

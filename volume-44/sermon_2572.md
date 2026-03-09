@@ -1,12 +1,4 @@
-# Fellowship With Christ
-
-(No. 2572)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 29, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, EARLY IN THE YEAR 1856.
+# Sermon 2572 | Fellowship With Christ
 
 "The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ?" 1 Corinthians 10:16.
 

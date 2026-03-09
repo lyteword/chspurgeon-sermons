@@ -1,12 +1,4 @@
-# The Day of Atonement
-
-(No. 3400)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 2, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING MAY 9, 1869.
+# Sermon 3400 | The Day of Atonement
 
 "And this shall be an everlasting statute unto you, to make an atonement for the children of Israel, for all their sins, once a year." Leviticus 16:34.
 

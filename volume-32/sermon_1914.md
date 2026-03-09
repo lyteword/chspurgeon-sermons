@@ -1,12 +1,4 @@
-# Secret Drawings Graciously Explained
-
-(No. 1914)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 15, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1914 | Secret Drawings Graciously Explained
 
 "The Lord has appeared of old unto me, saying, Yes, Ihave loved you with an everlasting love: therefore with loving kindness have Idrawn you." Jeremiah 31:3.
 

@@ -1,12 +1,4 @@
-# A Challenge and War Cry
-
-(No. 2929)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 30, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
+# Sermon 2929 | A Challenge and War Cry
 
 "O Death, where is your sting? O Grave, where is your victory? The sting of death is sin, and the strength of sin is the law. But thanks be to God, who gives us the victory through our Lord Jesus Christ. Therefore, my Beloved brethren, be you steadfast, immovable, always abounding in the work of the Lord, for so much as you know that your labor is not in vain in the Lord." 1 Corinthians 15:55-58.
 

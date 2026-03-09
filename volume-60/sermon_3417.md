@@ -1,12 +1,4 @@
-# Our Youth Renewed
-
-(No. 3417)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 30, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING FEBRUARY 24, 1870.
+# Sermon 3417 | Our Youth Renewed
 
 "Who satisfies your mouth with good things, so that your youth is renewed like the eagle's." Psalm 103:5.
 

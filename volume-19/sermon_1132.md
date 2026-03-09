@@ -1,12 +1,4 @@
-# The Seed Upon Stony Ground
-
-(No. 1132)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 14, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1132 | The Seed Upon Stony Ground
 
 "And some fell on stony ground, where it had not much earth, and immediately it sprang up, because it had no depth of earth: but when the sun was up, it was scorched; and because it had no root, it withered away." Mark 4:5, 6.
 

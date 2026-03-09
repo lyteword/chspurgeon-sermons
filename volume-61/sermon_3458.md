@@ -1,12 +1,4 @@
-# Redeeming the Unclean
-
-(No. 3458)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 13, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 9, 1868.
+# Sermon 3458 | Redeeming the Unclean
 
 "And every first-born of a donkey you shall redeem with a lamb; and if you will not redeem it, then you shall break its neck." Exodus 13:13.
 

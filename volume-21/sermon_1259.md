@@ -1,12 +1,4 @@
-# There Go The Ships
-
-(No. 1259)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1259 | There Go The Ships
 
 "There go the ships." Psalm 104:26.
 

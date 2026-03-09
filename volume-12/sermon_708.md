@@ -1,6 +1,4 @@
-# The Blood Of Abel And The Blood Of Jesus
-
-Sermon No. 708 - Delivered on Sunday Evening, September 2nd, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 708 | The Blood Of Abel And The Blood Of Jesus
 
 > "And He said, 'Whathave you done? The voice of your brother's blood cries unto Me from the ground.'"  
 > Genesis 4:10.  

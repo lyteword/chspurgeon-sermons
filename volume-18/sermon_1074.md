@@ -1,12 +1,4 @@
-# The Paraclete
-
-(No. 1074)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 6, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1074 | The Paraclete
 
 "I will pray the Father, and He shall give you another Comforter, that He may abide with you forever." John 14:16.
 

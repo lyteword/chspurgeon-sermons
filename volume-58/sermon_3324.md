@@ -1,12 +1,4 @@
-# Turning From Death
-
-(No. 3324)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 17, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, JULY, 22, 1866.
+# Sermon 3324 | Turning From Death
 
 "Turn you, turn you from your evil ways; for why will you die, O house of Israel?" Ezekiel 33:11.
 

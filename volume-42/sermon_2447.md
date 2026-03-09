@@ -1,12 +1,4 @@
-# "God, and Not Man"--What Does It Mean?
-
-(No. 2447)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 12, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 17, 1889.
+# Sermon 2447 | "God, and Not Man"--What Does It Mean?
 
 "I will not return to destroy Ephraim: for I am God, and not man." Hosea 11:9.
 

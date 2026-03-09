@@ -1,12 +1,4 @@
-# Life's Inevitable Burden
-
-(No. 3355)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 22, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 16, 1867.
+# Sermon 3355 | Life's Inevitable Burden
 
 "For every man shall bear his own burden." Galatians 6:6.
 

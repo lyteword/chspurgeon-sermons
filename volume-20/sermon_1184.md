@@ -1,12 +1,4 @@
-# The Sad Plight and Sure Relief
-
-(No. 1184)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1184 | The Sad Plight and Sure Relief
 
 "For when we were yet without strength, in due time Christ died for the ungodly." Romans 5:6.
 

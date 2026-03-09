@@ -1,12 +1,4 @@
-# "The Disciple Whom Jesus Loved"
-
-(No. 1539)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 23, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1539 | "The Disciple Whom Jesus Loved"
 
 "The disciple whom Jesus loved; who also leaned on His breast at supper." John 21:20.
 

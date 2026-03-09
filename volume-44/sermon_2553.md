@@ -1,12 +1,4 @@
-# The Enemies of the Cross of Christ
-
-(No. 2553)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 23, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER. 26 1884.
+# Sermon 2553 | The Enemies of the Cross of Christ
 
 "For many walk, of whom Have toldyou often, and now tell you even weeping, that they are the enemies of the Cross of Christ: whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things. Philippians 3:18,19.
 

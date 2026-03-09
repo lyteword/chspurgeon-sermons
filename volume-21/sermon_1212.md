@@ -1,12 +1,4 @@
-# Faith and Its Attendant Privileges
-
-(No. 1212)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1212 | Faith and Its Attendant Privileges
 
 "He came unto His own, and His own received Him not. But as many as received Him, to them gave He power to become the sons of God, even to them which believe on His name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God." John 1:11-13.
 

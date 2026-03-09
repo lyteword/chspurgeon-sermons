@@ -1,12 +1,4 @@
-# Negotiations For Peace
-
-(No. 952)
-
-DELIVERED ON LORD'S-DAY EVENING, SEPTEMBER 18, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 952 | Negotiations For Peace
 
 "Preaching peace by Jesus Christ; (He is Lord of all)." Acts 10:36.
 

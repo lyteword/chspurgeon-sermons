@@ -1,12 +1,4 @@
-# God's Writing Upon Man's Heart
-
-(No. 2992)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 14, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
+# Sermon 2992 | God's Writing Upon Man's Heart
 
 "I will put My law in their minds, and write it on their hearts." Jeremiah 31:33.
 

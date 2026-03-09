@@ -1,6 +1,4 @@
-# Christ&mdash;Our Substitute
-
-Sermon No. 310 - Delivered on Sabbath Evening, April 15th, 1860, by the REV. C.H. SPURGEON at New Park Street, Southwark.
+# Sermon 310 | Christ&mdash;Our Substitute
 
 > For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.    
 > 2 Corinthians 5:21.    

@@ -1,12 +1,4 @@
-# Pride the Destroyer
-
-(No. 2591)
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 27, 1883.
+# Sermon 2591 | Pride the Destroyer
 
 "Behold the proud, his soul which is lifted up is not upright in him; but the just shall live by his faith." Habakkuk 2:4.
 

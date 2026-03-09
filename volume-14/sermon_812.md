@@ -1,8 +1,4 @@
-# The Deep-Seated Character of Sin
-
-A Sermon (No. 812)
-
-Delivered on Sunday Morning, May 17, 1868, by C. H. SPURGEON, at the [22]Metropolitan Tabernacle, Newington.
+# Sermon 812 | The Deep-Seated Character of Sin
 
 "The sin of Judah is written with a pen of iron, and with the point of a diamond: it is engraved upon the tablet of their heart, and upon the horns of your altars." Jeremiah 17:1.
 

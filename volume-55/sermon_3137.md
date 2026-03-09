@@ -1,12 +1,4 @@
-# Soul Satisfaction
-
-(No. 3137)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 25, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3137 | Soul Satisfaction
 
 "Say unto my soul, I am your salvation." Psalm 35:3.
 

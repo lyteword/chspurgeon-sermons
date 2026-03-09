@@ -1,12 +1,4 @@
-# Exceeding Gladness
-
-(No. 1827)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON DECEMBER 21, 1884.
+# Sermon 1827 | Exceeding Gladness
 
 "For You have made Him most blessed forever: You have made Him exceedingly glad with Your countenance." Psalm 21:6.
 

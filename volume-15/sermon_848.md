@@ -1,7 +1,4 @@
-# Jesus Christ Immutable
-
-Sermon No. 848 - Delivered on Lord's-day Morning, JANUARY 3, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 848 | Jesus Christ Immutable
 
 "Jesus Christ the same yesterday and today and forever."- Hebrews 13:8.
 

@@ -1,12 +1,4 @@
-# Fear of Death
-
-(No. 3125)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1908, DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON,
-
-ON THURSDAY EVENING, DECEMBER 17,1874.
+# Sermon 3125 | Fear of Death
 
 "And deliver them who through fear of death were all their lifetime subject to bondage." Hebrews 2:15.
 

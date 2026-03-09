@@ -1,12 +1,4 @@
-# The Sunday School and the Scriptures
-
-(No. 1866)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 18, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1866 | The Sunday School and the Scriptures
 
 "And that from childhood you have known the Holy Scriptures, which are able to make you wise unto salvation through faith which is in Christ Jesus." 2 Timothy 3:15.
 

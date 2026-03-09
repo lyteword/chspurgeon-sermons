@@ -1,12 +1,4 @@
-# Till We Meet Again
-
-(No. 1628)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1628 | Till We Meet Again
 
 "The Grace of our Lord Jesus Christ be with you all. Amen." Revelation 22:21.
 

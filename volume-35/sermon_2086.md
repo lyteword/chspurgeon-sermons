@@ -1,6 +1,4 @@
-# Taking Possession Of Our Inheritance
-
-Sermon No. 2086 - Delivered on Sunday, May 12th, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2086 | Taking Possession Of Our Inheritance
 
 > "Moses My servant is dead. Now therefore arise, go over this Jordan, you and all this people, unto the land which I do give to them, even to the children of Israel. Everyplace that the sole of your foot shall tread upon, that have I given unto you, as I said unto Moses."  
 > Joshua 1:2,3.  

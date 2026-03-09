@@ -1,12 +1,4 @@
-# Great Spoil
-
-(No. 1641)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 22, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1641 | Great Spoil
 
 "I rejoice at Your Word, as one that finds great spoil." Psalm 119:162.
 

@@ -1,12 +1,4 @@
-# Seeing Christ's Day
-
-(No. 2652)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 10, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 23, 1882.
+# Sermon 2652 | Seeing Christ's Day
 
 "Your father Abraham rejoiced to see My day: and he saw it, and was glad." John 8:56.
 

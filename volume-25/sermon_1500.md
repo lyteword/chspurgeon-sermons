@@ -1,12 +1,4 @@
-# Number 1500, Or Lifting Up the Bronze Serpent
-
-(No. 1500)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 19, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1500 | Number 1500, Or Lifting Up the Bronze Serpent
 
 "And Moses made a serpent of brass, and putit upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived." Numbers 21:9.
 

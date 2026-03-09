@@ -1,12 +1,4 @@
-# The Queen of Sheba
-
-(No. 3351)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 24, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 8, 1867.
+# Sermon 3351 | The Queen of Sheba
 
 "The Queen of the South shall rise up in thejudgment with this generation, and condemn it: for she came from the ends of the earth to hear the wisdom of Solomon and, behold, a greater than Salomon is here." Matthew 12:42.
 

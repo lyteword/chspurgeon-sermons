@@ -1,6 +1,4 @@
-# The Comforter
-
-Sermon No. 5 - Delivered on Sabbath Evening, January 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 5 | The Comforter
 
 > But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things and bring all things to your remembrance, whatsoever I have said unto you.    
 > John 14:26.    

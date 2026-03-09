@@ -1,12 +1,4 @@
-# The Disowned
-
-(No. 2808)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 7, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 22, 1877.
+# Sermon 2808 | The Disowned
 
 "Not everyone who says to Me, Lord, Lord, shall enter the kingdom of Heaven; but he who does the will of My Father in Heaven. Many will say to Me in that day, Lord, Lord, have we not prophesied in Your name? And in Your name have cast out devils? And in Your name done many wonderful works? And then I will declare to them, I never knew you: depart from Me, you that work iniquity." Matthew 7:21-23.
 

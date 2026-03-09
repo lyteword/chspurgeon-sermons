@@ -1,7 +1,4 @@
-# Daniel Facing the Lions' Den
-
-Sermon No. 1154 - Delivered on Delivered the REV. C.H. SPURGEON at the [1]Metropolitan Tabernacle, Newington.
-(No. 1154)
+# Sermon 1154 | Daniel Facing the Lions' Den
 
 Daniel was of royal race, and, what is far better, he was, of royal character. He is depicted on the pages of scriptural history as one of the greatest and most faultless of men. How grand and impressive his first appearance as a young man, when he was introduced to Nebuchadnezzar! The Chaldeans and magicians and astrologers had all failed to divine the secret which perplexed the king and troubled his spirit; till at length there stood up before him this young prince of the house of Judah to tell his dream and the interpretation thereof. No wonder that the excellent spirit which shone in him led to his being made a great man, procured for him rich gifts, and led to his promotion amongst the governor, of Babylon. In after days he showed his dauntless courage when he interpreted the memorable dream of Nebuchadnezzar, in which the king's pride was threatened with a terrible judgment. It needed that he should be a lion-like man to say to the king, "Thou, O king, shalt be driven from among men, and eat grass as oxen, and thy body shall be wet with the dew of heaven, till thy hairs are grown like eagles' feathers, and thy nails like birds' claws." Yet what he told him came true, for all this, came upon the king Nebuchadnezzar. Daniel discharged his duty to his conscience, so there was nothing to disquiet him. Well might he have said
 

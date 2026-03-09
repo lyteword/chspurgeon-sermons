@@ -1,12 +1,4 @@
-# The Works of the Devil Destroyed
-
-(No. 1728)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 1, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1728 | The Works of the Devil Destroyed
 
 "For this purpose the Son of God was manifested, that He might destroy the works of the devil." 1 John 3:8.
 

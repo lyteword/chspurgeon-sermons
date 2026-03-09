@@ -1,6 +1,4 @@
-# Forgiveness Made Easy
-
-Sermon No. 1448 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1448 | Forgiveness Made Easy
 
 > "Forgiving one another, even as God for Christ's sake hath forgiven you."  
 > Ephesians 4:82.  

@@ -1,12 +1,4 @@
-# Comforted and Comforting
-
-(No. 2640)
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 17, 1899,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 15, 1882.
+# Sermon 2640 | Comforted and Comforting
 
 "Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforts us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God." 2 Corinthians 1:3, 4.
 

@@ -1,12 +1,4 @@
-# "Beautiful Forever"
-
-(No. 2508)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 14, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 5, 1885.
+# Sermon 2508 | "Beautiful Forever"
 
 "He will beautify the meek with salivation." Psalm 149:4.
 

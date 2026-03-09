@@ -1,12 +1,4 @@
-# The Sixth Beatitude
-
-(No. 3159)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 26, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1873.
+# Sermon 3159 | The Sixth Beatitude
 
 "Blessed aire the pure in heart: for they shall see God." Matthew 5:8.
 

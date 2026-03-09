@@ -1,6 +1,4 @@
-# Faith in Perfection
-
-Sermon No. 231 - Delivered on Sabbath Morning, January 2nd, 1859, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 231 | Faith in Perfection
 
 > The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands.    
 > Psalm 138:8.    

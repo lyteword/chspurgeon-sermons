@@ -1,12 +1,4 @@
-# Impotence and Omnipotence
-
-(No. 2269)
-
-INTENDED FOR READING ON LORD'S-DAY AUGUST 14, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 16, 1890.
+# Sermon 2269 | Impotence and Omnipotence
 
 "And a certain man was there, which had an infirmity thirty-eight years. When Jesus sawhim lying there, and knew that he had been in that case a long time, He said to him, Willyou be made whole? The impotent man answered him, Sir, I have no man, when the water is troubled, to put me into the pool; but while I am coming, another steps down before me. Jesus said to him, Rise, take up your bed, and walk. And immediately the man was made whole, and took up his bed and walked." John 5:5-9.
 

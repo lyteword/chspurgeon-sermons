@@ -1,12 +1,4 @@
-# Beloved, and yet Afflicted
-
-Notes of a Sermon
-
-(No. 1518)
-
-PREACHED BEFORE AN AUDIENCE OF INVALID LADIES AT MENTONE, BY
-
-H. SPURGEON,
+# Sermon 1518 | Beloved, and yet Afflicted
 
 Lord, behold, he whom Thou lovest is sick.'John 11:3.
 

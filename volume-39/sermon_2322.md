@@ -1,12 +1,4 @@
-# When Can We Find Comforters?
-
-(No. 2322)
-
-INTENDED FOR, READING ON LORD'S-DAY, AUGUST 20, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 21, 1889.
+# Sermon 2322 | When Can We Find Comforters?
 
 "Where shall I seek comforters for you?" Nahum 3:7.
 

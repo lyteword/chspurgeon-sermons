@@ -1,8 +1,4 @@
-# Taught That We May Teach
-
-(No. 1578)
-
-DELIVERED BY C. H. SPURGEON, AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1578 | Taught That We May Teach
 
 "And the Man said to me, Son of man, behold with your eyes, and hear with your ears, and set your heart upon all that I shall show you; for to the intent that I might show them unto you are you brought here: declare all that you see to the house of Israel." Ezekiel 40:4.
 

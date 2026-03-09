@@ -1,6 +1,4 @@
-# Christ's Prayer for His People
-
-Sermon No. 47 - Delivered on Sabbath Morning, October 21, 1855, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 47 | Christ's Prayer for His People
 
 > I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.    
 > John 17:15.    

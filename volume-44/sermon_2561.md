@@ -1,12 +1,4 @@
-# "Noli Me Tangere" ("Touch Me Not")
-
-(No. 2561)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 20, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 4, 1888.
+# Sermon 2561 | "Noli Me Tangere" ("Touch Me Not")
 
 "Jesus said unto her, Touch Me not, for I am not yet ascended to My Father: but go to My brethren, and say unto them, I ascend unto My Father, and your Father; and to My God, and your God." John 20:17.
 

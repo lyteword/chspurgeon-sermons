@@ -1,12 +1,4 @@
-# Concerning Saints
-
-(No. 1796)
-
-A SERMON PREACHED ON A THURSDAY EVENING IN THE SUMMER OF 1884,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1796 | Concerning Saints
 
 "All Your works shall praise You, O LORD; and Your saints shall bless You." Psalm 145:10.
 

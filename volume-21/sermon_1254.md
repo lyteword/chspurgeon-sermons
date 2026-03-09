@@ -1,12 +1,4 @@
-# Jesus In Our Midst
-
-(No. 1254)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 12, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1254 | Jesus In Our Midst
 
 "Then the same day at evening, being the first day of the week, when the doors were shut where the disciples were assembled for fear of the Jews, Jesus came and stood in their midst, and said unto them, Peace be with you." John 20:19.
 

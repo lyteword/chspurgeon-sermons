@@ -1,12 +1,4 @@
-# The Gospel Cordial
-
-(No. 3236)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 9, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 20, 1863.
+# Sermon 3236 | The Gospel Cordial
 
 "Give strong drink unto him that is ready to perish, and wine unto those that are of heavy heart. Let him drink and forget his poverty, and remember his misery no more." Proverbs 31:6, 7.
 

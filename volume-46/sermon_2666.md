@@ -1,12 +1,4 @@
-# The Sorrowful Man's Question
-
-(No. 2666)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 18, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 8, 1882.
+# Sermon 2666 | The Sorrowful Man's Question
 
 "Why is light given to a man whose way is hidden, and whom God has hedged in?" Job 3:23.
 

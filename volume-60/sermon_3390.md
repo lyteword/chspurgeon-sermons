@@ -1,12 +1,4 @@
-# Hoping in God's Mercy
-
-(No. 3390)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 22, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, FEBRUARY 16, 1868.
+# Sermon 3390 | Hoping in God's Mercy
 
 "Behold, the eye of the Lordis on those who fear Him, on those who hope in His mercy." Psalm 33:18.
 

@@ -1,12 +1,4 @@
-# Preparation Necessary for the Communion
-
-(No. 2647)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 5, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1857.
+# Sermon 2647 | Preparation Necessary for the Communion
 
 "Let a maun examine himself, and so let him eat of the bread, and drink of the cup." 1 Corinthians 11:28.
 

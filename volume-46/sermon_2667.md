@@ -1,12 +1,4 @@
-# A Pressed Man Yielding to Christ
-
-(No. 2667)
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 25, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON THURSDAY EVENING, OCTOBER 12, 1882.
+# Sermon 2667 | A Pressed Man Yielding to Christ
 
 "Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him? And Jesus said unto him, You have both seen Him, and it is He that talks with you. And he said, Lord, I believe. And he worshipped Hun." John 9:35-38.
 

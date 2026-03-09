@@ -1,12 +1,4 @@
-# Love to Jesus the Great Test
-
-(No. 1257)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 3, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1257 | Love to Jesus the Great Test
 
 "Jesus said unto them, If God were your Father, you would love Me: for I proceeded forth and came from God; neither came I of Myself, but He sent Me." John 8:42.
 

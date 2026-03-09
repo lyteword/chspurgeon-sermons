@@ -1,12 +1,4 @@
-# Christ's Plea for Ignorant Sinners
-
-(No. 2263)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 3, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 5, 1890.
+# Sermon 2263 | Christ's Plea for Ignorant Sinners
 
 "Then said Jesus, Father, forgive them; for they know not what they do." Luke 23:34.
 

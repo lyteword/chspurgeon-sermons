@@ -1,12 +1,4 @@
-# Conversions Desired
-
-(No. 1282)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 5, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1282 | Conversions Desired
 
 "And the hand of the Lord was with them: and a great number believed, and turned unto the Lord." Acts 11:21.
 

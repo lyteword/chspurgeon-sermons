@@ -1,6 +1,4 @@
-# Suffering And Reigning With Jesus
-
-Sermon No. 547 - Delivered on Sunday Morning, January 3rd, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 547 | Suffering And Reigning With Jesus
 
 > "If we suffer, we shall also reign with Him: if we deny Him, He also will deny us."  
 > 2 Timothy 2:12.  

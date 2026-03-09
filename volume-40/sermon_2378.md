@@ -1,12 +1,4 @@
-# Pardon for the Greatest Guilt
-
-(No. 2378)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 16, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 8, 1888.
+# Sermon 2378 | Pardon for the Greatest Guilt
 
 "Manasseh did that which was evil in the sight of the LORD, like unto the abominations of the heathen, whom the LORD had cast out before the children of Israel. And when he was in affliction, he asked the LORD, his God, and humbled himself greatly before the God of his fathers, and prayed unto Him: and He was entreated of him, and heard his supplication, and brought him, again, to Jerusalem into his kingdom. Then Manasseh knew that the LORD, He was God." 2 Chronicles 33:2,12,13.
 

@@ -1,12 +1,4 @@
-# Greater Things Yet Who Shall See Them?
-
-(No. 1478)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 8, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1478 | Greater Things Yet Who Shall See Them?
 
 "Jesus answered and said unto him, Because I said unto you, I saw you under the fig tree, do you believe? You shall see greater things than these. And He said unto him, Verily, verily, I say unto you, Henceforth you shall see Heaven open, and the angels of God ascending and descending upon the Son of Man." John 1:50,51.
 

@@ -1,14 +1,4 @@
-# Lingerers Hastened
-
-A Sermon
-
-(No. 789)
-
-Delivered on Lord's-Day Morning, January 12, 1868, by
-
-H. SPURGEON,
-
-at the [1]Metropolitan Tabernacle, Newington.
+# Sermon 789 | Lingerers Hastened
 
 "And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters the Lord being merciful unto him: and they brought him forth, and set him outside the city." Genesis 19:16.
 

@@ -1,6 +1,4 @@
-# Our Watchword
-
-Sermon No. 1013 - Delivered on Lord's-day Morning, October 1st, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1013 | Our Watchword
 
 > "Let such as love thy salvation say continually, Let God be magnified."  
 > Psalm 70:4.  

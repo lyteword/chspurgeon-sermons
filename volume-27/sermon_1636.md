@@ -1,12 +1,4 @@
-# Chastened Happiness
-
-(No. 1636)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER. 25, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1636 | Chastened Happiness
 
 "They shall fear and tremble for all the goodness and for all the prosperity that I procure unto it." Jeremiah 33:9.
 

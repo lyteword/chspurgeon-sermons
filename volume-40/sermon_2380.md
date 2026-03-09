@@ -1,12 +1,4 @@
-# Encouragements To Prayer
-
-(No. 2380)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 30, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 19, 1888.
+# Sermon 2380 | Encouragements To Prayer
 
 "I am the LORD your God, which brought you out of the land of Egypt: open your mouth wide, and I will fill it." Psalm 81:10.
 

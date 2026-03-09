@@ -1,12 +1,4 @@
-# A Marvelous Change
-
-(No. 2661)
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1900.
-
-DELIVERED BY C. HSPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 7, 1882.
+# Sermon 2661 | A Marvelous Change
 
 "Know you not that the unrighteous shall not inherit the Kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind, nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners shall inherit the Kingdom of God. And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus, and by the Spirit of our God." 1 Corinthians 6:9-11.
 

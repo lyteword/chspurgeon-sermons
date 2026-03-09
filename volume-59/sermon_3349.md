@@ -1,12 +1,4 @@
-# "The Garment of Praise"
-
-(No. 3349)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 10, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3349 | "The Garment of Praise"
 
 "The garment of praise for the spirit of heaviness." Isaiah 61:3.
 

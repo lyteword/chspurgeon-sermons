@@ -1,12 +1,4 @@
-# Established Work
-
-(No. 3142)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 29, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 20, 1873.
+# Sermon 3142 | Established Work
 
 "Establish the work of our hands for us; yes, establish the work of our hands." Psalm 90:17.
 

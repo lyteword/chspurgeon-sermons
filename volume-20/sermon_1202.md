@@ -1,12 +1,4 @@
-# Holy Water
-
-(No. 1202)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 8, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1202 | Holy Water
 
 "Whoever drinks of the water that Ishall give him shall never thirst. But the water that I shall give him shall be in him a well of water springing up into everlasting life." John 4:14.
 

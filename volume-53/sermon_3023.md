@@ -1,12 +1,4 @@
-# John Mark--or, Haste in Religion
-
-(No. 3023)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 17, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
+# Sermon 3023 | John Mark--or, Haste in Religion
 
 "And they all forsook Him, and fled. And there followed Him a certain young man, having a linen cloth cast about his naked body; and the young men laid hold on him: and he left the linen cloth, and fled from them naked." Mark 14:50-52.
 

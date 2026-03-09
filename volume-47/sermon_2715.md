@@ -1,12 +1,4 @@
-# Christian Resignation
-
-(No. 2715)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 24, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
+# Sermon 2715 | Christian Resignation
 
 "Not as I will, but as You will." Matthew 26:39.
 

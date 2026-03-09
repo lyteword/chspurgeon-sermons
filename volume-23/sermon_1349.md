@@ -1,12 +1,4 @@
-# Faith Purifying the Heart
-
-(No. 1349)
-
-DELIVERED ON LORD'S-DAY MORNING, APRIL 15, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1349 | Faith Purifying the Heart
 
 "Purifying their hearts by faith." Acts 15:9.
 

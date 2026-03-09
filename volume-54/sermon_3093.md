@@ -1,12 +1,4 @@
-# The Church of God and the Truth of God
-
-(No. 3093)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 21, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, SEPTEMBER 14, 1856.
+# Sermon 3093 | The Church of God and the Truth of God
 
 "The house of God, which is the Church of the living God, the pillar and ground of the Truth." 1 Timothy 3:15.
 

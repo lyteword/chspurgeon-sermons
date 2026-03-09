@@ -1,12 +1,4 @@
-# The Power of the Risen Savior
-
-(No. 1200)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 25, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1200 | The Power of the Risen Savior
 
 "And Jesus came and spoke unto them, saying, All power is given unto Me in Hea ven and in earth. Go you, therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit teaching them to observe all things whatever I have commanded you: and, lo, I am with you always, even unto the end of the world. Amen." Matthew 28:18-20.
 

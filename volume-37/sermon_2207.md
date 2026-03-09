@@ -1,12 +1,4 @@
-# Redemption Through Blood--The Gracious Forgiveness Of Sins
-
-(No. 2207)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 7, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON
+# Sermon 2207 | Redemption Through Blood--The Gracious Forgiveness Of Sins
 
 "In whom we have redemption through His blood, the forgiveness of sins, according to the riches of His Grace." Ephesians 1:7.
 

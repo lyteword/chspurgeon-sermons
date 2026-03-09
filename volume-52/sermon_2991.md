@@ -1,12 +1,4 @@
-# What We Have, and Are to Have
-
-(No. 2991)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 7, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 28, 1876.
+# Sermon 2991 | What We Have, and Are to Have
 
 "Now our Lord Jesus Christ Himself, and God, our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work." 2 Thessalonians 2:16,17
 

@@ -1,12 +1,4 @@
-# Faith Justifying Speech
-
-(No. 3200)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 2, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 9, 1873.
+# Sermon 3200 | Faith Justifying Speech
 
 "Ibelieved, therefore have I spoken." Psalm 116:10.
 

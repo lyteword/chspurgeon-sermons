@@ -1,18 +1,4 @@
-# The Feast of the Lord
-
-A Sermon
-
-(No. 3501)
-
-Published on Thursday, March 2nd, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [9]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, August 6th, 1871.
+# Sermon 3501 | The Feast of the Lord
 
 "For as often as ye eat this bread and drink this cup, ye do show the Lord's death till he come."--1 Cor. 11:26.
 

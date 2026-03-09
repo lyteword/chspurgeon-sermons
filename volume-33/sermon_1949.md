@@ -1,6 +1,4 @@
-# A Sermon for the Worst Man on Earth
-
-Sermon No. 1949 - Delivered on Sunday Morning, February 20th, 1887 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1949 | A Sermon for the Worst Man on Earth
 
 > "And the publican, standing afar off, would not lift up so much as his eyes unto Heaven, but smote upon his breast, saying, God be merciful to me a sinner."  
 > Luke 18:13.  

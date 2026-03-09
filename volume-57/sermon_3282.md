@@ -1,12 +1,4 @@
-# Preparing for the Week of Prayer
-
-(No. 3282)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 3, 1864.
+# Sermon 3282 | Preparing for the Week of Prayer
 
 "And another angel came and stood at the altar, having a golden censer; and then was given unto him much incense, that he should offer it with the prayers of all saints upon the golden altar which was before the throne. And the smoke of the incense which came with the prayers of the saints, ascended up before God out of the angel's hand." Revelation 8:3,4.
 

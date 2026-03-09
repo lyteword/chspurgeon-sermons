@@ -1,12 +1,4 @@
-# Unanswered Prayer
-
-(No. 3344)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 6, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, SEPTEMBER 20, 1866.
+# Sermon 3344 | Unanswered Prayer
 
 "O My God, I cry in the daytime, but You hear not; and in the night season, and am not silent." Psalm 22:2.
 

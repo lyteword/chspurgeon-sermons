@@ -1,12 +1,4 @@
-# Open Praise and Public Confession
-
-(No. 2604)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 8, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY, OCTOBER 11, 1883.
+# Sermon 2604 | Open Praise and Public Confession
 
 "I will praise You with my whole heart: before the gods will I sing praise unto You. I will worship toward Your holy Temple, and praise Your name for Your loving kindness and for Your Truth: for You have magnified Your Word above all Your name. In the day when I cried, You answered me, and strengthened me with strength in my soul." Psalm 138:1-3.
 

@@ -1,12 +1,4 @@
-# Jesus and the Children
-
-(No. 1925)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, OCTOBER 17, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1925 | Jesus and the Children
 
 "And they brought young children to Him, that He should touch them: and His disciples rebuked those who brought them. But when Jesus saw it, He was much displeased and said to them, Suffer the little children to come to Me, and forbid them not: for of such is the Kingdom of God. Verily I say unto you, Whoever shall not receive the Kingdom of God as a little child, he shall not enter in it. And He took them up in His arms, put His hands upon them and blessed them." Mark 10:13-16.
 

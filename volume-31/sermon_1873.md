@@ -1,12 +1,4 @@
-# The Dream of the Barley Cake
-
-(No. 1873)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 22, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1873 | The Dream of the Barley Cake
 
 "And when Gideon had come, behold, there was a man that told a dream unto his companion and said, Behold, I dreamed a dream, and, lo, a cake of barley bread tumbled into the host of Midian, and came unto a tent, and smote it thatit fell, and overturned it, that the tentlay along. And his fellow answered and said, This is nothing else sa ve the sword of Gideon the son of Joash, a man of Israel: for into his hand has God delivered Midian, and all the host." Judges 7:13,14.
 

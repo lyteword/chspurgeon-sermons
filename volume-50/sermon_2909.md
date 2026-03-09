@@ -1,12 +1,4 @@
-# Job's Sure Knowledge
-
-(No. 2909)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 10, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 10, 1876,
+# Sermon 2909 | Job's Sure Knowledge
 
 "For I know that my Redeemer lives." Job 19:25.
 

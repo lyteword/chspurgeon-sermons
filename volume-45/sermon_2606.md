@@ -1,12 +1,4 @@
-# Choice Teaching for the Chosen
-
-(No. 2606)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 22, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 21, 1883.
+# Sermon 2606 | Choice Teaching for the Chosen
 
 "It is written in the Prophets, 'And they shall be all taught of God.' Every man, therefore, that has heard and has learned of the Father, comes unto Me." John 6:45.
 

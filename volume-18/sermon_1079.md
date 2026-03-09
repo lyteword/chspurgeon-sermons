@@ -1,12 +1,4 @@
-# The Secret Food And The Public Name
-
-(No. 1079)
-
-A SERMON DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1079 | The Secret Food And The Public Name
 
 "Your Words were found, and I did eat them; and Your Word was unto me the joy and rejoicing of my heart: for I am called by Your name, O Lord God of Hosts." Jeremiah 15:16.
 

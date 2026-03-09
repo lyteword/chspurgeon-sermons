@@ -1,12 +1,4 @@
-# Accomplices in Sin
-
-(No. 3055)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 30, 1873.
+# Sermon 3055 | Accomplices in Sin
 
 "Neither be partaker of other men's sins." 1 Timothy 5:22.
 

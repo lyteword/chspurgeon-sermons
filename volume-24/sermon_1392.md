@@ -1,12 +1,4 @@
-# A Catechism for the Proud
-
-(No. 1392)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 6, 1878,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1392 | A Catechism for the Proud
 
 "For who makes you to differ from another? And what have you that you did not receive? Now if you did receive it, why do you glory, as if you had not received it?" 1 Corinthians 4:7.
 

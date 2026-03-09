@@ -1,6 +1,4 @@
-# The Waterer Watered
-
-Sermon No. 626 - Delivered on Sunday Morning, April 23rd, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 626 | The Waterer Watered
 
 > He that waters shall be watered also himself.    
 > Proverbs 11:25.    

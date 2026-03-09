@@ -1,6 +1,4 @@
-# Children's Bread Given To Dogs
-
-Sermon No. 715 - Delivered on Sunday Evening, October 14th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 715 | Children's Bread Given To Dogs
 
 > "And she said, Truth, Lord: yet even the little dogs eat of the crumbs which fall from their masters' table."  
 > Matthew 15:27.  

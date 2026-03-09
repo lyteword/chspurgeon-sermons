@@ -1,12 +1,4 @@
-# The Overflowing Cup
-
-(No. 1222)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1222 | The Overflowing Cup
 
 "My cup runs o ver." Psalm 23:5.
 

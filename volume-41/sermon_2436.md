@@ -1,12 +1,4 @@
-# "How Good to Those Who Seek!"
-
-(No. 2436)
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 27, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 23, 1887.
+# Sermon 2436 | "How Good to Those Who Seek!"
 
 "The LORD is good to the soul that seeks Him." Lamentations 3:25.
 

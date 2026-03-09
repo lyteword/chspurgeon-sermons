@@ -1,6 +1,5 @@
-# Preaching! Man's Privilege and God's Power
+# Sermon 347 | Preaching! Man's Privilege and God's Power
 
-Sermon No. 347 - Delivered on Sabbath Morning, November 25th, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
 
 > For Herod feared John, knowing that he was a just man and an holy, and observed him; and when he heard him, he did many things, and heard him gladly.    
 > Mark 6:20.    

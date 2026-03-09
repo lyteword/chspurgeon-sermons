@@ -1,12 +1,4 @@
-# Beholding God's Church
-
-(No. 3423)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 10, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 14, 1870.
+# Sermon 3423 | Beholding God's Church
 
 "Walk about Zion, and go round about her: count the towers thereof. Mark you well her bulwarks, consider her palaces; that you may tell it to the generation following. For this (God is our God forever and ever: He will be our guide even unto death." Psalm 48:12-14.
 

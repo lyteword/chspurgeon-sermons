@@ -1,14 +1,4 @@
-# Spots in Our Feats of Charity
-
-A Sermon
-
-(No. 797)
-
-Delivered on Lord's-Day Morning, February 23, 1868, by
-
-H. SPURGEON,
-
-at the [10]Metropolitan Tabernacle, Newington.
+# Sermon 797 | Spots in Our Feats of Charity
 
 "These are spots in your feasts of charity, when they feast with you, feeding themselves without fear." Jude 1:12.
 

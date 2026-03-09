@@ -1,12 +1,4 @@
-# Good Cheer From Christ's Real Presence
-
-(No. 3128)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 21, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3128 | Good Cheer From Christ's Real Presence
 
 "Immediately He constrained His disciples to get into the boat, and to go before Him to the other side to Bethsaida, while He sent away the people. And when He hadsent them away, He departed into a mountain topray. And when evening was come, the boat was in the midst of the sea, and He alone on the land. And He saw them toiling in rowing, for the wind was contrary unto them: and about the fourth watch of the night He came to them, walking upon the sea, and would have passed by them. But when they saw Him walking upon the sea, they supposedit had been a spirit, and cried out: for they all saw Him, and were troubled. And immediately He talked with them, and said unto them, Be of good cheer: it is I, be not afraid. And He went up unto them into the boat, and the wind ceased: and they were sorely amazed among themselves beyond measure, and wondered. For they considered not the miracle of the loaves: for their hearts were hardened." Mark 6:45-52.
 

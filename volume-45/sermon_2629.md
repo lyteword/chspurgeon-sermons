@@ -1,12 +1,4 @@
-# God's Work in Man
-
-(No. 2629)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 2, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE SUMMER OF 1857.
+# Sermon 2629 | God's Work in Man
 
 "And it shall be in that day, says the LORRD, that you shall call Me, Ishi; and shall call Me no more, Baali. For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name." Hosea 2:16.
 

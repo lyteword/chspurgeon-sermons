@@ -1,12 +1,4 @@
-# The Head and the Body
-
-(No. 2653)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 17, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 6, 1882.
+# Sermon 2653 | The Head and the Body
 
 "The head, even Christ: from whom the whole body fitly joined together and compacted by that which every joint supplies, according to the effectual working in the measure of every part, makes increase of the body unto the edifying of itself in love." Ephesians 4:15,16.
 

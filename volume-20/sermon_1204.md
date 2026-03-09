@@ -1,12 +1,4 @@
-# The Reception of Sinners
-
-(No. 1204)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 22, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1204 | The Reception of Sinners
 
 "But the father said to his servants, Bring forth the best robe, and put it on him, and put a ring on his hand, and shoes on his feet: And bring here the fatted calf, and kill it; and let us eat and be merry." Luke 15:22,23.
 

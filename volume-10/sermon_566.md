@@ -1,6 +1,4 @@
-# General And Yet Particular
-
-Sermon No. 566 - Delivered on Sunday Morning, April 24th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 566 | General And Yet Particular
 
 > "You have given Him power o ver all flesh, that He should give eternal life to as many as You have given Him."  
 > John 17:2.  

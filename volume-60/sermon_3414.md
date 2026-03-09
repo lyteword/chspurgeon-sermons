@@ -1,12 +1,4 @@
-# "Brief Life Is Here Our Portion"
-
-(No. 3414)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 9, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3414 | "Brief Life Is Here Our Portion"
 
 "LORD make me to know my end and the measure of my days, what it is, that I may know how frail I am." Psalm 39:4.
 

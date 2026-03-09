@@ -1,8 +1,4 @@
-# The Horns of the Altar
-
-Sermon No. 1826 - Delivered on Delivered the REV. C.H. SPURGEON at [8]the Metropolitan Tabernacle, Newington,.
-
-On March 23rd, 1884,
+# Sermon 1826 | The Horns of the Altar
 
 "And he said, Nay; but I will die here."--1 Kings 2:30
 

@@ -1,12 +1,4 @@
-# Confidence and Concern
-
-(No. 1913)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, AUGUST 8, 1886,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1913 | Confidence and Concern
 
 "For this reason I also suffer these things; nevertheless I am not ashamed, for I know whom I have believed and am persuaded that He is able to keep that which I have committed unto Him against that day. Hold fast the form of sound words, which you have heard of me, in faith and love which is in Christ Jesus. That good thing which was committed unto you keep by the Holy Spirit which dwells in us." 2 Timothy 1:12-14.
 

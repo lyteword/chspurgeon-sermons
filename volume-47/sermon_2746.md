@@ -1,12 +1,4 @@
-# The Nature and Design of Divine Chastening
-
-(No. 2746)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 29, 1901.
-
-DELIVERED BY C H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE AUTUMN OF 1859.
+# Sermon 2746 | The Nature and Design of Divine Chastening
 
 "When we are judged, we are chastened of the Lord, that we should not be condemned with the world." 1 Corinthians 11:32.
 

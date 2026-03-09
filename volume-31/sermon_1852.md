@@ -1,12 +1,4 @@
-# The Modern Dead Sea and the Living Waters
-
-(No. 1852)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 19, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1852 | The Modern Dead Sea and the Living Waters
 
 "The waters shall be healed." Ezekiel 47:8.
 

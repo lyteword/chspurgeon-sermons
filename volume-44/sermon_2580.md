@@ -1,12 +1,4 @@
-# Partnership With Christ
-
-(No. 2580)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 24, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 29, 1883.
+# Sermon 2580 | Partnership With Christ
 
 "God is faithful, by whom you were called into the fellowship of His Son Jesus Christ our Lord." 1 Corinthians 1:9.
 

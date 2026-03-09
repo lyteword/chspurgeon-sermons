@@ -1,12 +1,4 @@
-# A New Year's Benediction
-
-(No. 3387)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 1, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 3, 1868.
+# Sermon 3387 | A New Year's Benediction
 
 "Let your conversation be without covetousness; and be content with such things as you have, for He has said, I willnever leave you, nor forsake you." Hebrews 13:5.
 

@@ -1,12 +1,4 @@
-# The Blessings Of Following On
-
-(No. 1246)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1246 | The Blessings Of Following On
 
 "Then shall we know, if we follow on to know the Lord. His going forth is prepared as the morning, and He shall come unto us as the rain, as the latter and former rain unto the earth." Hosea 6:3.
 

@@ -1,12 +1,4 @@
-# Martha and Mary
-
-(No. 3469)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3469 | Martha and Mary
 
 "And Jesus answered and said unto her, Martha, Martha, you are careful and troubled about many things: but one thing is necessary; and Mary has chosen that goodpart which shall not be taken away from her." Luke 10:41-42.
 

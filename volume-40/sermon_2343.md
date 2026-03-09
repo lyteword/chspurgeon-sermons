@@ -1,12 +1,4 @@
-# Faint--but Not Faint-Hearted
-
-(No. 2343)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 14, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, OCTOBER 17, 1889.
+# Sermon 2343 | Faint--but Not Faint-Hearted
 
 "Faint, yet pursuing." Judges 8:4.
 

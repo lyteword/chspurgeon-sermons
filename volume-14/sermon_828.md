@@ -1,8 +1,4 @@
-# Dying Daily
-
-A Sermon (No. 828)
-
-Delivered on lord's day morning, august 30, 1868, by C. H. SPURGEON, at the [38]Metropolitan Tabernacle, Newington.
+# Sermon 828 | Dying Daily
 
 "I die daily." 1 Corinthians 15:31.
 

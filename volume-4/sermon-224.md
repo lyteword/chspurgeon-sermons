@@ -1,6 +1,4 @@
-# Samson Conquered
-
-Sermon No. 224 - Delivered on Sabbath Morning, November 21st, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 224 | Samson Conquered
 
 > And she said, the Philistines be upon thee, Samson. And he awoke out of his sleep, and said, I will go out as at other times before, and shake myself. And he wist not that the Lord was departed from him. But the Philistines took him, and put out his eyes, and brought him down to Gaza, and bound him with fetters of brass; and he did grind in the prison house.    
 > Judges 16:20-21.    

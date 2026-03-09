@@ -1,12 +1,4 @@
-# The Bitterness of the Cross
-
-(No. 2683)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 15, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 12, 1881.
+# Sermon 2683 | The Bitterness of the Cross
 
 "They...shall be in bitterness for Him." Zechaariah 12:10.
 

@@ -1,12 +1,4 @@
-# Assurance Sought
-
-(No. 3546)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3546 | Assurance Sought
 
 "Say unto my soul, I am your salvation." Psalm 35:3.
 

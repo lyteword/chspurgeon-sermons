@@ -1,12 +1,4 @@
-# A Blessed Wonder
-
-(No. 936)
-
-DELIVERED ON LORD'S-DAY EVENING, JUNE 12, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 936 | A Blessed Wonder
 
 "When Jesus heard it, He marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel." Matthew 8:10.
 

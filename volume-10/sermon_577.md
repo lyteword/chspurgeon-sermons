@@ -1,6 +1,4 @@
-# Let Us Go Forth
-
-Sermon No. 577 - Delivered on Sunday Morning, June 26th, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 577 | Let Us Go Forth
 
 > "Let us go forth therefore unto Him outside the camp, bearing His reproach."  
 > Hebrews 13:13.  

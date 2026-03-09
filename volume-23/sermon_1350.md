@@ -1,12 +1,4 @@
-# Enlivening and Invigorating
-
-(No. 1350)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1350 | Enlivening and Invigorating
 
 "Quicken me according to Your Word." Psalm 119:25.
 

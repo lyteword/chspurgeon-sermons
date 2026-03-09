@@ -1,12 +1,4 @@
-# The Welcome Visitor
-
-(No. 3461)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 3, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3461 | The Welcome Visitor
 
 "And when she had so said, she went her way, and secretly called Mary, her sister, saying, The Master is come, and calls foryou. As soon as she heard that, she arose quickly, and came unto Him. Now Jesus was not yet come into the town, but was in that place where Martha met Him. The Jews who were with her in the house, and comforted her, when they saw Mary, that she rose up hastily and went out, followed her, saying, She goes unto the grave to weep there. Then when Mary was come where Jesus was, and saw Him, she fell down at His feet, saying unto Him, Lord, if You had been here, my brother had not died." John 11:28-32.
 

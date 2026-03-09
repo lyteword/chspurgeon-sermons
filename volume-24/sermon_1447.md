@@ -1,12 +1,4 @@
-# Three Crosses
-
-(No. 1447)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1447 | Three Crosses
 
 "But God forbid that I should glory, save in the Cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world." Galatians 6:14.
 

@@ -1,12 +1,4 @@
-# The Stern Teacher
-
-(No. 1196)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1196 | The Stern Teacher
 
 "Therefore the Law was our schoolmaster to bring us unto Christ, that we might bejustified by faith. But after faith has come, we are no longer under a schoolmaster." Galatians 3:24-26.
 

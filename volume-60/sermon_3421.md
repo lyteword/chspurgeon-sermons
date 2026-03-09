@@ -1,12 +1,4 @@
-# Prayer Meetings
-
-(No. 3421)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, AUGUST 30, 1868.
+# Sermon 3421 | Prayer Meetings
 
 "These all continued with one accord in prayer and supplication." Acts 1:14.
 

@@ -1,12 +1,4 @@
-# "As" and "So"
-
-(No. 3173)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 2, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 3, 1873.
+# Sermon 3173 | "As" and "So"
 
 "As you have therefore received Christ Jesus the Lord, so walk you in Him." Colossians 2:6.
 

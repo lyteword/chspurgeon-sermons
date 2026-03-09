@@ -1,12 +1,4 @@
-# Belief in the Resurrection
-
-(No. 3452)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 1, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 15, 1870.
+# Sermon 3452 | Belief in the Resurrection
 
 "He is risen." Mark 16:6.
 

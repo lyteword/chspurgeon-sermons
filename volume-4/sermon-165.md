@@ -1,6 +1,4 @@
-# The Warning Neglected
-
-Sermon No. 165 - Delivered on Sabbath Morning, November 29, 1857, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 165 | The Warning Neglected
 
 > He heard the sound of the trumpet, and took not warning; his blood shall be upon him.    
 > Ezekiel 33:5.    

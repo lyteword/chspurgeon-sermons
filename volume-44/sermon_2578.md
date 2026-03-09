@@ -1,12 +1,4 @@
-# Refusing to Be Comforted
-
-(No. 2578)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 1O, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 18, 1883.
+# Sermon 2578 | Refusing to Be Comforted
 
 "My soul refused to be comforted." Psalm 77:2.
 

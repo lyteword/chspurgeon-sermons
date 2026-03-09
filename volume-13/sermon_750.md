@@ -1,7 +1,4 @@
-# A Triumphal Entrance
-
-Sermon No. 750 - Delivered on Thursday Evening, DECEMBER 13, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 750 | A Triumphal Entrance
 
 "Lift up your heads, O you gates! Lift them up, you everlasting doors! And the King of glory shall come in."- Psalm 24:9.
 

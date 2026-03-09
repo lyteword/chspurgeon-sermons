@@ -1,12 +1,4 @@
-# "Hiding in You!"
-
-(No. 2930)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 6, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 14, 1876.
+# Sermon 2930 | "Hiding in You!"
 
 "I flee unto You to hide me." Psalm 143:9.
 

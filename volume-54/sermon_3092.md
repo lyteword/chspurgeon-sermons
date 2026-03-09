@@ -1,12 +1,4 @@
-# Knowing and Doing
-
-(No. 3092)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 14, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 17, 1874.
+# Sermon 3092 | Knowing and Doing
 
 "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, that you, through Hispoverty, might be rich." 2 Corinthians 8:9.
 

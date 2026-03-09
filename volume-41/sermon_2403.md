@@ -1,12 +1,4 @@
-# The Sweet and the Sweetener
-
-(No. 2403)
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 10, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 6, 1887.
+# Sermon 2403 | The Sweet and the Sweetener
 
 "My meditation of Him shall be sweet." Psalm 104:34.
 

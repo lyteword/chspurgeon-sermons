@@ -1,12 +1,4 @@
-# The Singing Army
-
-(No. 2923)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 23, 1876.
+# Sermon 2923 | The Singing Army
 
 "And Judah gathered themselves together to ask help of the Lord." 2 Chronicles 20:4.
 

@@ -1,12 +1,4 @@
-# The Dual Nature and the Duel Within
-
-(No. 1459B)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1459B | The Dual Nature and the Duel Within
 
 "But I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin, which is in my members." Romans 7:23.
 

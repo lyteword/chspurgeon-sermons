@@ -1,12 +1,4 @@
-# The Last Words of Christ on the Cross
-
-(No. 2644)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 15, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 25, 1882.
+# Sermon 2644 | The Last Words of Christ on the Cross
 
 "And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost" Luke 23:46.
 

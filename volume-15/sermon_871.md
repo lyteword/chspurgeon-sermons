@@ -1,7 +1,4 @@
-# To Those Who Are "Almost Persuaded"
-
-Sermon No. 871 - Delivered on Lord's-day Morning, MAY 16, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 871 | To Those Who Are "Almost Persuaded"
 
 "Then Agrippa said unto Paul, You almost persuade me to be a Christian."- Acts 26:28.
 

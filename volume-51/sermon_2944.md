@@ -1,12 +1,4 @@
-# Urging Lot
-
-(No. 2944)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 13, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 25, 1875.
+# Sermon 2944 | Urging Lot
 
 "When the morning arose, then the angels urged Lot" Genesis 19:15.
 

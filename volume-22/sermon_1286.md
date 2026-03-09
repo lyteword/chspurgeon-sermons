@@ -1,12 +1,4 @@
-# A Weighty Charge
-
-(No. 1286)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 26 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1286 | A Weighty Charge
 
 "Keep yourselves in the love of God." Jude 1:21.
 

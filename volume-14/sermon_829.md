@@ -1,8 +1,4 @@
-# The Perfuming of the Heart
-
-A Sermon (No. 829)
-
-Delivered on Lord's Day Morning, September 6 1868, by C. H. SPURGEON, at the [39]Metropolitan Tabernacle, Newington.
+# Sermon 829 | The Perfuming of the Heart
 
 "And hope makes not ashamed; because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us." Romans 5:5.
 

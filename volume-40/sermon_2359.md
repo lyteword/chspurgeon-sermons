@@ -1,12 +1,4 @@
-# Personal and Effectual Calling
-
-(No. 2359)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 6, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 26, 1888.
+# Sermon 2359 | Personal and Effectual Calling
 
 "He calls His own sheep by name, and leads them out." John 10:3.
 

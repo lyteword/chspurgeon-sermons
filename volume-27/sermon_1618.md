@@ -1,12 +1,4 @@
-# Holiness, The Law of God's House
-
-(No. 1618)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 11, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1618 | Holiness, The Law of God's House
 
 "This is the law of the house; Upon the top of the mountain the whole limit thereof round about shall be most holy. Behold, this is the law of the house." Ezekiel 43:12.
 

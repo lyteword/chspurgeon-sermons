@@ -1,12 +1,4 @@
-# A Mighty Plea
-
-(No. 1144)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 23, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1144 | A Mighty Plea
 
 "You have been my help; leave me not, neither forsake me." Psalm 27:9.
 

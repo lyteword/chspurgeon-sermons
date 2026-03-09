@@ -1,12 +1,4 @@
-# A Call To Prayer and Testimony
-
-(No. 2189)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 8, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2189 | A Call To Prayer and Testimony
 
 "I have set watchmen upon your walls, O Jerusalem, which shall never hold their peace day nor night: you that make mention of the Lord, keep not silent, and give Him no rest, till He establishes, and till he makes Jerusalem a praise in the earth." Isaiah 62:6, 7.
 

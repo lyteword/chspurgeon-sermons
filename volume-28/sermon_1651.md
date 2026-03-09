@@ -1,12 +1,4 @@
-# A Delusion Dispelled
-
-(No. 1651)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1651 | A Delusion Dispelled
 
 "Though Noah, Daniel and Job were in it, as I live, says the Lord God, they shall deliver neither son nor daughter; they shall but deliver their own souls by their righteousness." Ezekiel 14:20.
 

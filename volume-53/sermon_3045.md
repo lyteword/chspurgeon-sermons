@@ -1,12 +1,4 @@
-# Believers A Blessing
-
-(No. 3045)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 20, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 12, 1871.
+# Sermon 3045 | Believers A Blessing
 
 "You shall be a blessing," Zechariah 8:13.
 

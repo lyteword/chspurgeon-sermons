@@ -1,12 +1,4 @@
-# All For Jesus!
-
-(No. 1205)
-
-A SERMON DELIVERED OF LORD'S-DAY MORNING, NOVEMBER 29, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1205 | All For Jesus!
 
 "You serve the Lord Christ." Colossians 3:24.
 

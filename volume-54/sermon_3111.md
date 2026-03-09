@@ -1,12 +1,4 @@
-# Warning and Encouragement
-
-(No. 3111)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 13, 1874.
+# Sermon 3111 | Warning and Encouragement
 
 "And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept." Genesis 27:38.
 

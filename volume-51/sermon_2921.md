@@ -1,12 +1,4 @@
-# An Old-fashioned Remedy
-
-(No. 2921)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 2, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 29, 1876.
+# Sermon 2921 | An Old-fashioned Remedy
 
 "He sent His Word and healed them." Psalm 107:20.
 

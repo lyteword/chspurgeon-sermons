@@ -1,12 +1,4 @@
-# Christ's Prayer for Believers
-
-(No. 3133)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25, 1909.
-
-DELIVERED BY C. H. SPURGEON, AT UNICORN YARD CHAPEL, SOUTHWARK, ON WEDNESDAY EVENING, AUGUST 29, 1855,
-
-[ON BEHALF OF THE GOSPEL MINISTERS' RELIEF SOCIETY.]
+# Sermon 3133 | Christ's Prayer for Believers
 
 "Neither pray I for these alone, but for them also who shall believe on Me through their word." John 17:20.
 

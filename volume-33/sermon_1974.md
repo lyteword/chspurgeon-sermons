@@ -1,14 +1,4 @@
-# The Suffering Savior's Sympathy
-
-A Sermon
-
-(No. 1974)
-
-Delivered1887, by
-
-H. SPURGEON,
-
-At the Metropolitan Tabernacle, Newington
+# Sermon 1974 | The Suffering Savior's Sympathy
 
 "For in that He Himself has suffered being tempted, He is able to succor them that are tempted."--Hebrews 2:18.
 

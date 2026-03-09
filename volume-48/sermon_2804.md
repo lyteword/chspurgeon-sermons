@@ -1,12 +1,4 @@
-# Disobedience to the Gospel
-
-(No. 2804)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 9, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 14, 1877.
+# Sermon 2804 | Disobedience to the Gospel
 
 "But they have not all obeyed the Gospel." Romans 10:16.
 

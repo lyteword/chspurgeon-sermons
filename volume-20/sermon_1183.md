@@ -1,12 +1,4 @@
-# Is Conversion Necessary?
-
-(No. 1183)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 19, 1874,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1183 | Is Conversion Necessary?
 
 "Therefore if any man is in Christ, he is a new creature: old things are passed away; behold, all things are become new." 2 Corinthians 5:17.
 

@@ -1,12 +1,4 @@
-# Men Bewitched
-
-(No. 1546)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1546 | Men Bewitched
 
 "O foolish Galatians, who has bewitched you, that you should not obey the truth, before whose eyes Jesus Christ has been evidently set forth, crucified among you?" Galatians 3:1.
 

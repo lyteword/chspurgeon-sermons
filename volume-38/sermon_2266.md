@@ -1,12 +1,4 @@
-# Blessing for Blessing
-
-(No. 2266)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 24, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 26, 1890.
+# Sermon 2266 | Blessing for Blessing
 
 "Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenlyplaces in Christ: according as He has chosen us in Him before the foundation of the world, that we should be holy and without blame before Him in love." Ephesians 1:3, 4.
 

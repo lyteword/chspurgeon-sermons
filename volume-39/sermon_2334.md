@@ -1,12 +1,4 @@
-# Our Service For Christ Never Finished
-
-(No. 2334)
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 12, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 19, 1889.
+# Sermon 2334 | Our Service For Christ Never Finished
 
 "But which of you, having a servant plowing or feeding cattle, will say unto him, by-and-by, when he is come from the field, Go and sit down to meat? And will not rather say unto him, Make ready wherewith I may sup, and gird yourself, and serve me, till I have eaten and drunk; and afterward you shall eat and drink? Does he thank that servant because he did the things that were commanded him? I think not. So likewise you, when you shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do." Luke 17:7-10.
 

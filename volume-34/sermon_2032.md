@@ -1,6 +1,4 @@
-# The Charge of the Angel
-
-Sermon No. 2032 - Delivered on Sunday Morning, July 8th, 1888 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2032 | The Charge of the Angel
 
 > "But the angel of the Lord by night opened the prison doors, and brought them forth, and said, Go, stand and speak in the temple to the people all the words of this life."  
 > Acts 5:19,20.  

@@ -1,12 +1,4 @@
-# Joy in Place of Sorrow
-
-(No. 2525)
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 11, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 10, 1884.
+# Sermon 2525 | Joy in Place of Sorrow
 
 "And you now, therefore, have sorrow: but I will see you again, and your heart shall rejoice, and your joy no man takes from you." John 16:22.
 

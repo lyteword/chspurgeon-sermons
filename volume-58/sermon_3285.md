@@ -1,12 +1,4 @@
-# Good Cheer From Christ's Victory Over the World
-
-(No. 3285)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 18, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3285 | Good Cheer From Christ's Victory Over the World
 
 "These things Ihave spoken unto you, that in Me you night have peace. In the world you shall have tribulation: but be of good cheer, I have overcome the world." John 16:33
 

@@ -1,12 +1,4 @@
-# One More Cast of the Great Net
-
-(No. 1931)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 28, 1886,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY MORNING, NOVEMBER 14, 1886.
+# Sermon 1931 | One More Cast of the Great Net
 
 "And it shall come to pass that whoever shall call on the name of the Lord shall be delivered: for in mount Zion and in Jerusalem shall be deliverance, as the Lord has said, and in the remnant whom the Lord shall call." Joel 2:32.
 

@@ -1,12 +1,4 @@
-# Renewing Strength
-
-(No. 1756)
-
-SUITABLE FOR THE CLOSE OF THE YEAR, DELIVERED
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1756 | Renewing Strength
 
 "They that wait upon the Lord shall renew their strength." Isaiah 40:31.
 

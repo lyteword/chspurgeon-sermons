@@ -1,12 +1,4 @@
-# Certain Curious Calculations About Loaves and Fishes
-
-(No. 1822)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 15, 1885,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON OCTOBER 30, 1884.
+# Sermon 1822 | Certain Curious Calculations About Loaves and Fishes
 
 "When I broke the five loaves among five thousand, how many baskets full of fragments did you take up? They said unto Him, Twelve. And when the seven among four thousand, how many baskets full of fragments did you take up? And they said, Seven. And He said unto them, How is it that you do not understand?" Mark 8:19-21.
 
@@ -48,7 +40,6 @@ Brethren, hoping for the help of God's good Spirit, I would take you, secondly, 
 
 But all the time that they were thus fall of fidgeting and worries, there stood the Master, calm as a sweet summer's evening, not in the least disturbed or troubled. What a difference between the feebleness and unbelief of the disciples and
 
-the mighty confidence of the Lord Jesus! How much need that we be changed from glory to glory as by the image of the Lord, for we, also, are very far, as yet, from being like He in our tone and spirit! We have not yet entered fully into His rest, nor shall we, till we learn His faith in God. Why was Jesus Christ, our Master, so calm? I have upon my mind the savor of a word the Lord once gave me for you upon that text, "Jesus knew what He would do." [See No. 1,605, Volume 27--Jesus Knew What He Would Do] It is in great part our ignorance which puts us into such a quandary. We do not know what is going to be done; we are in suspense and suspense eats into the soul as an acid eats into metal. "From where? How? When? Where?"--all these questions prick us like so many daggers and each prick kills a joy. "Our thoughts are all a case of knives," as George Herbert puts it, and every knife in that case destroys a hope.
 
 But the Master had no suspense--He knew what He would do! We shall get peace, Brothers and Sisters, when we also know what we shall do. "Oh," you say, "I thought you were going to say when we know what HE will do." Oh, no! We probably shall not know that till He does it. It is enough for us to know what we shall do. "But," says one, "that is what we do not know." I answer--that is what we ought to know. We ought to know that we mean to leave everything with our Lord. If we once settled it in our minds that we would trust and not be afraid, what peace we would enjoy! If we will leave God's work with God and simply trust, we shall drink into the peace of God!
 

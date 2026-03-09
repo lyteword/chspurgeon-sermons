@@ -1,12 +1,4 @@
-# A Comforting Message for the Closing Year
-
-(No. 2393)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 30, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 1, 1863.
+# Sermon 2393 | A Comforting Message for the Closing Year
 
 "Rest in the Lord." Psalm 37:7.
 

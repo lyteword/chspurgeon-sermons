@@ -1,12 +1,4 @@
-# The Way
-
-(No. 942)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 24, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 942 | The Way
 
 "Jesus said unto him, I am the way." John 14:6.
 

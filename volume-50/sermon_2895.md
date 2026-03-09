@@ -1,12 +1,4 @@
-# A Blessed Gospel Chain
-
-(No. 2895)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 4, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 2, 1876.
+# Sermon 2895 | A Blessed Gospel Chain
 
 "Jesus answered and said unto him, If a man loves Me, he will keep My words; and My Father will love him, and We will come unto him, and make Our abode with him." John 14:23.
 

@@ -1,12 +1,4 @@
-# The Sealing of the Spirit
-
-(No. 1284)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 19, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1284 | The Sealing of the Spirit
 
 "In whom you also trusted, after that you heard the word of truth, the Gospel of your salvation: in whom also after that you believed, you were sealed with that Holy Spirit of promise, which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of His glory." Ephesians 1:13,14.
 

@@ -1,12 +1,4 @@
-# Grace Abounding
-
-(No. 3304)
-
-A SERMON PUBLISHED ON THURSDAY, MAY 30, 1912.
-
-DELIVERED BY C H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 15, 1866,
+# Sermon 3304 | Grace Abounding
 
 "But where sin abounded, Grace did much more abound." Romans 5:20.
 

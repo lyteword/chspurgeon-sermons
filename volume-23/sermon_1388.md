@@ -1,12 +1,4 @@
-# Jesus Christ Himself
-
-(No. 1388)
-
-DELIVERED ON LORD'S-DAY MORNING, DECEMBER 9, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1388 | Jesus Christ Himself
 
 "Jesus Christ Himself." Ephesians 2:20.
 

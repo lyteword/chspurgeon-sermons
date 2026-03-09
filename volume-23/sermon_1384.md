@@ -1,12 +1,4 @@
-# A Round of Delights
-
-(No. 1384)
-
-DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 11, 1877,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1384 | A Round of Delights
 
 "Now the God of Hope fill you with all joy and peace in believing, that you may abound in hope, through the power of the Holy Spirit." Romans 15:13.
 

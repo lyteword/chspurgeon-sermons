@@ -1,12 +1,4 @@
-# Christ's Past and Present Witnesses
-
-(No. 2709)
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 13, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 7, 1880.
+# Sermon 2709 | Christ's Past and Present Witnesses
 
 "And you also shall bear witness, because you have been with Me from the beginning." John 15:27.
 

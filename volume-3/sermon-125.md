@@ -1,6 +1,4 @@
-# The Fruitless Vine
-
-Sermon No. 125 - Delivered on Sabbath Evening, March 22, 1857, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 125 | The Fruitless Vine
 
 > And the word of the Lord came unto me, saying, Son of man, What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?    
 > Ezekiel 15:1-2.    

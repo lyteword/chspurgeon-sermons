@@ -1,6 +1,4 @@
-# More and More
-
-Sermon No. 998 - Delivered on Lord's-day Morning, July 2nd, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 998 | More and More
 
 > "But I will hope continually, and will yet praise thee more and more."  
 > Psalm 71:14.  

@@ -1,12 +1,4 @@
-# The Lord Chiding His People
-
-(No. 1171)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 3, 1874, BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1171 | The Lord Chiding His People
 
 "He will not always chide: neither will He keep His anger forever." Psalm 103:9.
 

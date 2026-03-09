@@ -1,12 +1,4 @@
-# Universal Fatherhood--a Lie!
-
-(No. 2560)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 13, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 1, 1883.
+# Sermon 2560 | Universal Fatherhood--a Lie!
 
 "I speak that which I have seen with My Father: and you do that which you have seen with your father." John 8:38.
 

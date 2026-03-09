@@ -1,12 +1,4 @@
-# Singing in the Ways of the Lord
-
-(No. 1615)
-
-DELIVERED ON THURSDAY EVENING, AUGUST 11, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1615 | Singing in the Ways of the Lord
 
 "Yes, they shall sing in the ways of the Lord: for great is the glory of the Lord." Psalm 138:5.
 

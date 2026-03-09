@@ -1,12 +1,4 @@
-# Divine Love and Its Gifts
-
-(No. 1096)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 16, 1873,
-
-BY REV. C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1096 | Divine Love and Its Gifts
 
 "Now may our Lord Jesus Christ Himself, and God, even our Father, which has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts, and establish you in every good word and work." 2 Thessalonians 2:16,17.
 

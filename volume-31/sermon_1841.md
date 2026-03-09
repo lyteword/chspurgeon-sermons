@@ -1,12 +1,4 @@
-# Divine Forgiveness Admired and Imitated
-
-(No. 1841)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1841 | Divine Forgiveness Admired and Imitated
 
 "Forbearing one another, and forgiving one another, if anyone has a quarrel against any: even as Christ forgave you, so also do you." Colossians 3:13.
 

@@ -1,12 +1,4 @@
-# The Savior Resting in His Love
-
-(No. 2720)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 31, 1901.
-
-DELIVERED BY C. H. SPURGEON.
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
+# Sermon 2720 | The Savior Resting in His Love
 
 "He will rest in His love." Zephaniah 3:17.
 

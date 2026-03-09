@@ -1,12 +1,4 @@
-# A Plain Talk Upon An Encouraging Topic
-
-(No. 3101)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 16, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3101 | A Plain Talk Upon An Encouraging Topic
 
 "When my soul fainted within me I remembered the LORD: and my prayer came in unto You, into Your holy Temple." Jonah 2:7.
 

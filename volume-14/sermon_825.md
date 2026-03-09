@@ -1,8 +1,4 @@
-# The Sieve
-
-A Sermon (No. 825)
-
-Delivered on lord's-day morning, august 16, 1868, by C. H. SPURGEON, at the [35]Metropolitan Tabernacle, Newington.
+# Sermon 825 | The Sieve
 
 "For, lo, I will command, and I will sift the house of Israel among all nations, like as corn is sifted in a sieve, yet shall not the least grain fall upon the earth." Amos 9:9.
 

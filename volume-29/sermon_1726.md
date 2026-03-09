@@ -1,12 +1,4 @@
-# Buying Without Money
-
-(No. 1726)
-
-DELIVERED ON LORD'S-DAY MORNING, JUNE 17, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1726 | Buying Without Money
 
 "He that has no money; come, buy, and eat." Isaiah 55:1.
 

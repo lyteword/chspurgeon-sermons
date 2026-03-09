@@ -1,12 +1,4 @@
-# The Spur
-
-(No. 943)
-
-DELIVERED ON LORD'S-DAY MORNING, JULY 31, 1870,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 943 | The Spur
 
 "I must work the works of Him that sent Me, while it is day: the night comes, when no man can work." John 9:4.
 

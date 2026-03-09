@@ -1,6 +1,4 @@
-# Precious Deaths
-
-Sermon No. 1036 - Delivered on Lord's Day Morning, February 18th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1036 | Precious Deaths
 
 'Precious in the sight of the Lord is the death of his saints.''Psalm 116:15.
 

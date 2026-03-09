@@ -1,12 +1,4 @@
-# The Priest Ordained by the Oath of God
-
-(No. 1597)
-
-DELIVERED ON LORD'S-DAY MORNING, MAY 1, 1881,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1597 | The Priest Ordained by the Oath of God
 
 "And inasmuch as not without an oath He was made Priest, (for those priests were made without an oath; but this with an oath by Him that said unto Him, The Lord swore and will not repent, You are a Priest forever after the order of Melchisedec), by so much more was Jesus made a surety of a better Testament." Hebrews 7:20-22.
 

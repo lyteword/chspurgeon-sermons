@@ -1,6 +1,4 @@
-# Religion--a Reality
-
-Sermon No. 457 - Delivered on Sunday Morning, June 22nd, 1862 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 457 | Religion--a Reality
 
 > "For it is not a vain thing for you, because it is your life."  
 > Deuteronomy 32:47.  

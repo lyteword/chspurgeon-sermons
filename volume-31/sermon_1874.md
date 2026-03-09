@@ -1,12 +1,4 @@
-# A Discourse Upon True Blessedness Here and Hereafter
-
-(No. 1874)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 13, 1885.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 2, 1885.
+# Sermon 1874 | A Discourse Upon True Blessedness Here and Hereafter
 
 "Blessed is the man that endures temptation: for when he is tried, he shall receive the crown of life, which the Lord has promised to them that love Him." James 1:12.
 

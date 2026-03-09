@@ -1,6 +1,4 @@
-# The Last Census
-
-Sermon No. 382 - Delivered on Sunday Morning, April 14th, 1861 by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 382 | The Last Census
 
 > "The Lord shall record, when He registers the people, that this man was born there."  
 > Psalm 87:6.   

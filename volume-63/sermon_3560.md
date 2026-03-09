@@ -1,12 +1,4 @@
-# The Strait Gate
-
-(No. 3560)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 19, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3560 | The Strait Gate
 
 "Strive to enter in at the strait gate; for many, I say unto you, will seek to enter in, and shall not be able." Luke 13:24.
 

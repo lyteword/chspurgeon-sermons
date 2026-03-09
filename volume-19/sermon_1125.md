@@ -1,12 +1,4 @@
-# The World On Fire
-
-(No. 1125)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 3, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1125 | The World On Fire
 
 "But the day of the Lord will come as a thief in the night; in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up. Seeing then that all these things shall be dissolved, what manner of persons ought you to be in all holy con versation and godliness?" 2 Peter 3:10,11.
 

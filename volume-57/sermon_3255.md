@@ -1,12 +1,4 @@
-# The Pearl of Patience
-
-(No. 3255)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 22, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY AFTERNOON IN JANUARY, 1880.
+# Sermon 3255 | The Pearl of Patience
 
 "You have heard of the patience of Job, and have seen the end of the Lord, that the Lord is full of pity and of tender mercy." James 5:11.
 

@@ -1,6 +1,4 @@
-# The Lamb--The Light
-
-Sermon No. 583 - Delivered on Sunday Morning, July 31st, 1864, by the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 583 | The Lamb--The Light
 
 > "And the city had no need of the sun, neither of the moon, to shine in it: for the Gory of God did lighten it and the Lamb is its light."  
 > Revelation 21:23.  

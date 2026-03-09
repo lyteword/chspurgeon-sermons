@@ -1,6 +1,4 @@
-# The Real Presence, the Great Want of the Church
-
-Sermon No. 1035 - Delivered on Lord's Day Morning, February 11th, 1872 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 1035 | The Real Presence, the Great Want of the Church
 
 'It was but a little that I passed from them, but I found him whom my soul loveth: I held him, and would not let him go, until I had brought him into my mother's house, and into the chamber of her that conceived me. I charge you, O ye daughters of Jerusalem, by the roes, and by the hinds of the field, that ye stir not up, nor awake my love, till he please.''Song of Solomon 3:4-5.
 

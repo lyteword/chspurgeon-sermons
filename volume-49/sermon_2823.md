@@ -1,12 +1,4 @@
-# One Trophy for Two Exploits
-
-(No. 2823)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, IN THE SUMMER OF 1861.
+# Sermon 2823 | One Trophy for Two Exploits
 
 "For by You I have run through a troop; and by My God have Heaped over a wall" Psalm 18:29.
 

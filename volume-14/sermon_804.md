@@ -1,6 +1,4 @@
-# Apostolic Exhortation
-
-Sermon No. 804 - Delivered on Lord's-Day Morning, April 5th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, .
+# Sermon 804 | Apostolic Exhortation
 
 > "Repent ye therefore, and be converted, that your sins may be blotted out, when the times of refreshing shall come from the presence of the Lord."  
 > Acts 3:19.  

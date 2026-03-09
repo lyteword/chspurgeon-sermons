@@ -1,6 +1,4 @@
-# Good Earnests of Great Success
-
-Sermon No. 802 - Delivered on Lord's-Day Evening, January 12th, 1868 the REV. C.H. SPURGEON at the Metropolitan Tabernacle,.
+# Sermon 802 | Good Earnests of Great Success
 
 > "And the word of God increased; and the number of the disciples multiplied in Jerusalem greatly; and a great company of the priests were obedient to the faith."  
 > Acts 6:7.  

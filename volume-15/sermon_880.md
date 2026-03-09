@@ -1,7 +1,4 @@
-# The Former and the Latter Rain
-
-Sermon No. 880 - Delivered on Sunday Morning, JULY 11, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 880 | The Former and the Latter Rain
 
 "Let us now fear the Lord our God, who gives rain, both the former and the latter, in its season. He reserves for us the appointed weeks of the harvest."- Jeremiah 5:24.
 

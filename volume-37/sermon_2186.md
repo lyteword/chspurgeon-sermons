@@ -1,12 +1,4 @@
-# Our Expectation
-
-(No. 2186)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 2186 | Our Expectation
 
 "He shall see His seed." Isaiah 53:10.
 

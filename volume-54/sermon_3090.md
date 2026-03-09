@@ -1,12 +1,4 @@
-# Loving the Law of the Lord
-
-(No. 3090)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 30, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 10, 1874.
+# Sermon 3090 | Loving the Law of the Lord
 
 "O how I love Your Law! It is my meditation all the day. You, through Your commandments, have made me wiser than my enemies: for they are ever with me. I have more understanding than all my teachers: for Your testimonies are my meditation. I understand more than the ancients because I keep Your precepts." Psalm 119:97-100.
 

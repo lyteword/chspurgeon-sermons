@@ -1,12 +1,4 @@
-# Freedom Through Christ's Blood
-
-(No. 3106)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 20, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 2, 1874.
+# Sermon 3106 | Freedom Through Christ's Blood
 
 "As for you also, by the blood of your covenant Have set forth your prisoners out of the pit wherein is no water. Turn you to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you." Zechariah 9:11,12.
 

@@ -1,6 +1,4 @@
-# The Rough Hewer
-
-Sermon No. 2134 - Delivered on Sunday Morning, March 9th the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2134 | The Rough Hewer
 
 > "O Ephraim, what shall I do to you? O Judah, what shall I do to you? for your goodness is as a morning cloud, and as the early dew it goes away. Therefore ha ve I hewed them by the Prophets; I have slain them by the Words of My mouth: and your judgments are as the light that goes forth."  
 > Hosea 6:4,5.  

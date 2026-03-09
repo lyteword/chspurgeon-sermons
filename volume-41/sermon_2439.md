@@ -1,12 +1,4 @@
-# Five Links in a Golden Chain
-
-(No. 2439)
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 17, 1895,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 6, 1887.
+# Sermon 2439 | Five Links in a Golden Chain
 
 "To Titus, my own [or, "true"] son after the common faith: Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Savior." Titus 1:4.
 

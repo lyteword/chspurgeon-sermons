@@ -1,12 +1,4 @@
-# Entangled in the Land
-
-(No. 2188)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 8, 1891
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, SEPTEMBER 21, 1890.
+# Sermon 2188 | Entangled in the Land
 
 "For Pharaoh will say of the children of Israel, They are entangled in the land, the wilderness has shut them in." Exodus 14:3.
 

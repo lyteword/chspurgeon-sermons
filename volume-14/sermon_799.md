@@ -1,14 +1,4 @@
-# Jesus, the Example of Holy Praise
-
-A Sermon
-
-(No. 799)
-
-Delivered on Lord's-Day Morning, March 8, 1868, by
-
-H. SPURGEON,
-
-at the [12]Metropolitan Tabernacle, Newington.
+# Sermon 799 | Jesus, the Example of Holy Praise
 
 "I will declare Your name unto My brethren: in the midst of the congregation will I praise You. You that fear the Lord, praise Him; all you the seed of Jacob, glorify Him; and fear Him, all you the seed of Israel." Psalm22:22,23.
 

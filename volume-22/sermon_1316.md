@@ -1,12 +1,4 @@
-# Why the Heavenly Robes are White
-
-(No. 1316)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 24, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1316 | Why the Heavenly Robes are White
 
 "These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb" Revelation 7:14.
 

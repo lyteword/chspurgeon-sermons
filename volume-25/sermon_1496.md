@@ -1,12 +1,4 @@
-# Among Lions
-
-(No. 1496)
-
-DELIVERED ON THURSDAY EVENING, SEPTEMBER 4, 1879,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1496 | Among Lions
 
 "My soul is among lions." Psalm 57:4.
 

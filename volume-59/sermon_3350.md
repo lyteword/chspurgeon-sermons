@@ -1,12 +1,4 @@
-# "Stewards"
-
-(No. 3350)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 17, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-TO THE ANNUAL CONFERENCE OF THE PASTORS' COLLEGE ASSOCIATION, 1887.
+# Sermon 3350 | "Stewards"
 
 "Let a maun so consider us, as of the ministers of Christ, and stewards of the mysteries of God. Moreover, it is required in stewards that a man be found faithful." 1 Corinthians 4:1,2.
 

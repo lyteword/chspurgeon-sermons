@@ -1,14 +1,4 @@
-# Joshua's Obedience
-
-A Sermon
-
-(No. 796)
-
-Delivered by
-
-H. SPURGEON,
-
-at the [9]Metropolitan Tabernacle, Newington.
+# Sermon 796 | Joshua's Obedience
 
 "Only be you strong and very courageous, that you may observe to do according to all the Law which Moses, My servant commanded you: turn not from it to the right hand or to the left, that you may prosper where ever you go." Joshua 1:7.
 

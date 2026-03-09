@@ -1,7 +1,4 @@
-# The Stone Rolled Away
-
-Sermon No. 863 - Delivered on Lord's-day Morning, MARCH 28, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 863 | The Stone Rolled Away
 
 "The angel of the Lord descended from Heaven and came and rolled back the stone from the door, and sat upon it."- Matthew 28:2.
 

@@ -1,12 +1,4 @@
-# Marrow and Fatness
-
-(No. 1166)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 29, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1166 | Marrow and Fatness
 
 "Then went King David in, and sat before the lord, and he said, Who am I, O Lord God? and what is my house, that You have brought me up to now? And this was yet a small thingin Your sight, O Lord God, but You have spoken also of Your servant's house for a great while to come. And is this the manner of man, O Lord God? And what can David say more unto You? for You, Lord God, know Your servant. For Your word's sake, and according to Your own heart, have You done all these great things, to make Your servant know them. Therefore You are great, O Lord God: for there is none like You, neither is there any God beside You, according to all that we have heard with our ears." 2 Samuel 7:18-22.
 

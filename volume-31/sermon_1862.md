@@ -1,8 +1,5 @@
-# The True Tabernacle, and Its Glory of Grace and Peace
+# Sermon 1862 | The True Tabernacle, and Its Glory of Grace and Peace
 
-Sermon No. 1862 - Delivered on Lord's-day Morning, September 27th, 1885 the REV. C.H. SPURGEON at [16]the Metropolitan Tabernacle, Newington.
-
-> "And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth." John 1:14.  
 > "And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth." John 1:14.  
 
 "For the law was given by Moses, but grace and truth came by Jesus Christ." John 1: 17.

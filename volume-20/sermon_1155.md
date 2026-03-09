@@ -1,12 +1,4 @@
-# The Chariots Of Amminadib
-
-(No. 1155)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1155 | The Chariots Of Amminadib
 
 "Before I was even aware, my soul made me like the chariots of Amminadib." Song of Solomon 6:12.
 

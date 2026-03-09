@@ -1,12 +1,4 @@
-# A Witness and a Partaker
-
-(No. 2610)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 19, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 4, 1883.
+# Sermon 2610 | A Witness and a Partaker
 
 "The elders which are among you I exhort, who am also an elder, and a witness of the sufferings of Christ, and also a partaker of the glory that shall be revealed." 1 Peter 5:1.
 

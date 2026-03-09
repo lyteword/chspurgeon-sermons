@@ -1,12 +1,4 @@
-# Strengthening Medicine For God's Servants
-
-(No. 1214)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1214 | Strengthening Medicine For God's Servants
 
 "I will not fail you, nor forsake you." Joshua 1:5.
 

@@ -1,6 +1,4 @@
-# Preparation for Revival
-
-Sermon No. 597 - Delivered on Sunday October 30th, 1864 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 597 | Preparation for Revival
 
 > "Can two walk together, except they be agreed?"  
 > Amos 3:3.  

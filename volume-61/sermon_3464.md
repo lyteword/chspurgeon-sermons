@@ -1,12 +1,4 @@
-# True Worship
-
-(No. 3464)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 24, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 1, 1870.
+# Sermon 3464 | True Worship
 
 "Offer unto God thanksgiving; and pay your vows unto the Most High: and call upon Me in the day of trouble. I will deliver you, and you shall glorify Me." Psalm 50:14,15.
 

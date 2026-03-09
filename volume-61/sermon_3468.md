@@ -1,12 +1,4 @@
-# Consolation for Poor Petitioners
-
-(No. 3468)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 22, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 10, 1870.
+# Sermon 3468 | Consolation for Poor Petitioners
 
 "Like a crane or a swallow, so did I chatter: I did mourn as a dove: my eyes fail with looking upward. O Lord, I am oppressed; undertake for me." Isaiah 38:14.
 

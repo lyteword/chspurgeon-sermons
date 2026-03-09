@@ -1,12 +1,4 @@
-# The Valley Of The Shadow Of Death
-
-(No. 1595)
-
-DELIVERED ON THURSDAY EVENING, AUGUST 12, 1880,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1595 | The Valley Of The Shadow Of Death
 
 "Yea, though I walk through the valley of the shadow of death, I will fear no evil, for You are with me; Your rod and Your staff, they comfort me." Psalm 23:4.
 

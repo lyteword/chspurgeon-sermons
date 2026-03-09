@@ -1,12 +1,4 @@
-# The Sinner's Refuge
-
-(No. 2621)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 7, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1857.
+# Sermon 2621 | The Sinner's Refuge
 
 "Then you shall appoint you cities to be cities of refuge for you; that the slayer may flee there, who kills any person at unawares." Numbers 35:11.
 

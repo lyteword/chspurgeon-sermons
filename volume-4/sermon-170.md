@@ -1,6 +1,4 @@
-# The Immutability of Christ
-
-Sermon No. 170 - Delivered on Sabbath Morning, January 3, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 170 | The Immutability of Christ
 
 > Jesus Christ the same yesterday, and to-day, and for ever.    
 > Hebrews 13:8.    

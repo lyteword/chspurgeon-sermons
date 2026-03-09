@@ -1,12 +1,4 @@
-# Good Cheer For Outcasts
-
-(No. 1302)
-
-A SERMON DELIVERED ON THURSDAY EVENING, JUNE 15, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1302 | Good Cheer For Outcasts
 
 "He gathers together the outcasts of Israel." Psalm 147:2.
 

@@ -1,12 +1,4 @@
-# One War Over and Another Begun
-
-(No. 1679)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 17, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1679 | One War Over and Another Begun
 
 "And when Gideon perceived that He was the Angel of the Lord, Gideon said, Alas, O Lord God! For I have seen the Angel of the Lord face to face. And the Lord said unto him, Peace be unto you; fear not: you shall not die. Then Gideon built an altar there unto the Lord, and called it Jehovah-Shalom." Judges 6:22-24.
 

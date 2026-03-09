@@ -1,12 +1,4 @@
-# An Urgent Necessity
-
-(No. 3557)
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 29, 1917.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY31, 1870.
+# Sermon 3557 | An Urgent Necessity
 
 "It is time to seek the Lord till He comes and rains righteousness upon you." Hosea 10:12.
 

@@ -1,12 +1,4 @@
-# Goodness Going Before
-
-(No. 3329)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 21, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 9, 1866.
+# Sermon 3329 | Goodness Going Before
 
 "You prevent Him with the blessings of goodness." Psalm 21:3.
 

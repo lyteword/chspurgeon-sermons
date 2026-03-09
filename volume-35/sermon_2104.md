@@ -1,6 +1,4 @@
-# The Inner Side of Conversion
-
-Sermon No. 2104 - Delivered on Sunday, September 15, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2104 | The Inner Side of Conversion
 
 > "I have surely heard Ephraim bemoaning himself thus: You have chastised me and I was chastised, as a bullock unaccustomed to the yoke: turn You me and I shall be turned. For You are the Lord my God. Surely after that I was turned, I repented; and after that I was instructed, I smote upon my thigh: I was ashamed, yes, even confounded, because I did bear the reproach of my youth. Is Ephraim My dear son? Is he a pleasant child? For since I spoke against him, I do earnestly remember him still: therefore My heart is troubled for him. I will surely have mercy upon him, says the Lord."  
 > Jeremiah 31:18-20.  

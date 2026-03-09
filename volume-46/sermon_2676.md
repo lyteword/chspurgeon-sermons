@@ -1,12 +1,4 @@
-# Comfort From the Future
-
-(No. 2676)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 27, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 30, 1881.
+# Sermon 2676 | Comfort From the Future
 
 "You shall forget your misery, and remember it as waters that pass away." Job 11:16.
 

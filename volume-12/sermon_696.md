@@ -1,6 +1,4 @@
-# Turning Back in the Day of Battle
-
-Sermon No. 696 - Delivered on Delivered the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 696 | Turning Back in the Day of Battle
 
 > "The children of Ephraim, being armed, and carrying bows, turned back in the day of battle."  
 > Psalm 78:9.  

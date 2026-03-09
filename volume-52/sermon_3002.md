@@ -1,12 +1,4 @@
-# The Best Thing in the Best Place
-
-(No. 3002)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 23, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 31, 1875.
+# Sermon 3002 | The Best Thing in the Best Place
 
 "The Law of his God is in his heart; none of his steps shall slide." Psalm 37:31.
 

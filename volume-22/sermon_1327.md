@@ -1,12 +1,4 @@
-# Christ the Overcomer of the World
-
-(No. 1327)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, DECEMBER 3, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
+# Sermon 1327 | Christ the Overcomer of the World
 
 "Be of good cheer; I have overcome the world." John 16:33.
 

@@ -1,12 +1,4 @@
-# Must He?
-
-(No. 2755)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 1, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 27, 1879.
+# Sermon 2755 | Must He?
 
 "And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must stay at your house." Luke 19:5.
 

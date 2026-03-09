@@ -1,6 +1,4 @@
-# Filling With the Spirit and Drunkenness With Wine
-
-Sermon No. 2111 - Delivered on Sunday Evening, May 26, 1889 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 2111 | Filling With the Spirit and Drunkenness With Wine
 
 > "And be not drunk with wine, wherein is excess. But be filled with the Spirit."  
 > Ephesians 5:18.  

@@ -1,6 +1,4 @@
-# The Withering Work of the Spirit
-
-Sermon No. 999 - Delivered on Lord's-day Morning, July 9th, 1871 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 999 | The Withering Work of the Spirit
 
 > "The voice said, Cry. And he said, What shall I cry? All flesh is grass, and all the goodliness thereof is as the flower of the field: the grass withereth, the flower fadeth: because the Spirit of the Lord bloweth upon it surely the people is grass. The grass withereth, the flower fadeth: but the word of our God shall stand for ever."  
 > Isaiah 40:6-8.  

@@ -1,6 +1,4 @@
-# A Merry Christmas
-
-Sermon No. 352 - Delivered on Sabbath Morning, December 23rd, 1860, by the REV. C.H. SPURGEON at Exeter Hall, Strand.
+# Sermon 352 | A Merry Christmas
 
 > "And his sons went and feasted in their houses, every one his day; and sent and called for their three sisters to eat and to drink with them. And it was so, when the days of their feasting were gone about, that Job sent and sanctified them, and rose up early in the morning, and offered burnt offerings according to the number of them all: for Job said, It may be that my sons have sinned and cursed God in their hearts. Thus did Job continually.  
 > Job 1:4,5.  

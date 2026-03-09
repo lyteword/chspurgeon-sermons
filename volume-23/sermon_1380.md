@@ -1,12 +1,4 @@
-# Vanities and Verities
-
-(No. 1380)
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1380 | Vanities and Verities
 
 "We look not at the things which are seen, but at the things which are notseen: for the things which are seen are temporal; but the things which are not seen are eternal." 2 Corinthians 4:18.
 

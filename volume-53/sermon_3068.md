@@ -1,12 +1,4 @@
-# Unknown Depths and Heights
-
-(No. 3068)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 28, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING IN THE YEAR 1861.
+# Sermon 3068 | Unknown Depths and Heights
 
 "Then said Jesus, Father, forgive them; for they know not what they do." Luke 23:34.
 

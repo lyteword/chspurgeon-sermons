@@ -1,12 +1,4 @@
-# An Infallible Sign Of Revival
-
-(No. 2922)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 9, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 12, 1876.
+# Sermon 2922 | An Infallible Sign Of Revival
 
 "The Lord alone shall be exalted in that day." Isaiah 2:11.
 

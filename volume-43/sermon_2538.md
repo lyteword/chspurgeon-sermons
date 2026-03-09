@@ -1,12 +1,4 @@
-# An Epistle Illustrated by a Psalm
-
-(No. 2538)
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 10, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, In connection with the dedication of the Jubilee House, which commemorated the completion of the beloved Pastor's 500th year, June 19, 1886.
+# Sermon 2538 | An Epistle Illustrated by a Psalm
 
 "You have pushed me violently that I might fall: but the LORD helped me. The Lord is my strength and song, and He has become my salvation." Psalm 118:13,14.
 

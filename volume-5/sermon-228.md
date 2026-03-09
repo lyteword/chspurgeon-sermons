@@ -1,6 +1,4 @@
-# The Blood
-
-Sermon No. 228 - Delivered on Sabbath Morning, December 12th, 1858, by the REV. C.H. SPURGEON at the Music Hall, Royal Surrey Gardens.
+# Sermon 228 | The Blood
 
 > When I see the blood, I will pass over you.    
 > Exodus 12:13.    

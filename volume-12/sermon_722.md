@@ -1,6 +1,4 @@
-# The Captive Savior Freeing His People
-
-Sermon No. 722 - Delivered on Sunday Morning, November 25th, 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 722 | The Captive Savior Freeing His People
 
 > "Jesus answered, 'I have told you that I am He. If therefore you seek Me, let these go their way,' that the saying might be fulfilled, which He spoke, 'Of them whom You gave Me have I lost none.'"  
 > John 18:8,9.  

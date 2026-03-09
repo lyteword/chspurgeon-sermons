@@ -1,12 +1,4 @@
-# Three Arrows--or Six?
-
-(No. 2303)
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 9, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 25, 1889.
+# Sermon 2303 | Three Arrows--or Six?
 
 "And he said, Take the arrows. And he took them. And he said unto the king of Israel, Strike the ground. And he struck three times, and stopped. And the man of God was angry with him, and said, You should have struck five or six times; then had you struck Syria till you had consumed it: whereas now you shall strike Syria only three times." 2 Kings 13:18,19.
 

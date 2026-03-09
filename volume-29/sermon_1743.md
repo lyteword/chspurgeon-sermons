@@ -1,12 +1,4 @@
-# A Loving Entreaty
-
-(No. 1743)
-
-DELIVERED ON LORD'S-DAY MORNING, OCTOBER 7, 1883,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1743 | A Loving Entreaty
 
 "Put Me in remembrance: let us plead together: declare you, that you may bejustified.'" Isaiah 43:26.
 

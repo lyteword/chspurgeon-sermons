@@ -1,12 +1,4 @@
-# Sacred Memories
-
-(No. 2648)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 12, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 9, 1882.
+# Sermon 2648 | Sacred Memories
 
 "Let Jerusalem come into Your mind." Jeremiah 51:50.
 

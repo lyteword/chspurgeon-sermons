@@ -1,12 +1,4 @@
-# Blessings Traced to Their Source
-
-(No. 3213)
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 1, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3213 | Blessings Traced to Their Source
 
 "All my springs are in You." Psalm 87:7.
 

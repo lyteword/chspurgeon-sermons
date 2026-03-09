@@ -1,12 +1,4 @@
-# The Climax of God's Love No. 2571
 
-(No. 2571)
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 22, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 1, 1883.
 
 "And it shall be at that day, says the Lord, that you shall call Me, Ishi; and shall call Me no more, Baali. For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name." Hosea 2:16,17.
 

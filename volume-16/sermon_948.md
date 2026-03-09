@@ -1,12 +1,4 @@
-# A String Of Pearls
-
-(No. 948)
-
-DELIVERED ON LORD'S-DAY MORNING, AUGUST 28, 1870,
-
-BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 948 | A String Of Pearls
 
 "Blessed be the God and Father of our Lord Jesus Christ, which according to His abundant mercy has begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead, to an inheritance incorruptible, and undefiled, and that fades not away, reserved in Heaven for you, who are kept by the power of God through faith unto salvation ready to be revealed in the last time." 1 Peter 1:3-5.
 

@@ -1,12 +1,4 @@
-# Hiding Among the Stuff
-
-(No. 3322)
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 3, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 19, 1866.
+# Sermon 3322 | Hiding Among the Stuff
 
 "Therefore they enquired of the LORRD further, if the man should yet come there. And the LORRD answered, Behold, he has hid himself among the stuff. And they ran and fetched him from there." 1 Samuel 10:22-23.
 

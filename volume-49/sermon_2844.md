@@ -1,12 +1,4 @@
-# The Seed Upon a Rock
-
-(No. 2844)
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1888.
+# Sermon 2844 | The Seed Upon a Rock
 
 "Some fell upon stony places, where they had not much earth: and forthwith they sprung up, because they had no deepness of earth: and when the sun was up, they were scorched; and because they had no root, they withered away." Matthew 13:5, 6.
 

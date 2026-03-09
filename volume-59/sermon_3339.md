@@ -1,12 +1,4 @@
-# The Heart Perfumed
-
-(No. 3339)
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 30, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING SEPTEMBER 13, 1866.
+# Sermon 3339 | The Heart Perfumed
 
 "The love of God is shed abroad in our hearts by the Holy Spirit who was given unto us." Romans 5:5.
 

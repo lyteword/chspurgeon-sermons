@@ -1,12 +1,4 @@
-# Migratory Birds
-
-(No. 2858)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 28, 1870.
+# Sermon 2858 | Migratory Birds
 
 "Yes, the stork in the heavens knows her appointed times, and the turtledove and crane and the swallow observe the time of their coming, but My people know not the judgment of the Lord." Jeremiah 8:7.
 

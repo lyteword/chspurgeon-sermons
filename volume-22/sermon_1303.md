@@ -1,12 +1,4 @@
-# The Believer in the Body and Out of the Body
-
-(No. 1303)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 2, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1303 | The Believer in the Body and Out of the Body
 
 "Now He that has prepared us for the same thing is God, who also has given unto us the earnest of the Spirit. Therefore we are always confident, knowing that, while we are at home in the body, we are absent from the Lord, (for we walk by faith, not by sight). We are confident, I say, and willing rather to be absent from the body, and to be present with the Lord. Therefore we labor, that, whether present or absent, we may be accepted of Him. For we must all appear before the Judgment Seat of Christ, that everyone may receive the things done in his body, according to that he has done, whether it is good or bad." 2 Corinthians 5:5-10.
 

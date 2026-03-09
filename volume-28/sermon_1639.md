@@ -1,12 +1,4 @@
-# Acceptable Service
-
-(No. 1639)
-
-DELIVERED ON LORD'S-DAY MORNING, JANUARY 15, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1639 | Acceptable Service
 
 "Therefore, since we are receiving a kingdom which cannot be moved, let us have Grace, by which we may serve God acceptably with reverence and godly fear. For our God is a consuming fire." Hebrews 12:28,29.
 

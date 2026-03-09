@@ -1,12 +1,4 @@
-# The Door
-
-(No. 2752)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 10, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 15, 1879.
+# Sermon 2752 | The Door
 
 "I am the door. If anyone enters by Me, he will be saved, and will go in and out, and find pasture." John 10:9.
 

@@ -1,12 +1,4 @@
-# The Orphan's Father
-
-(No. 1695)
-
-DELIVERED AT THE THURSDAY EVENING LECTURE,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1695 | The Orphan's Father
 
 "For in You the fatherless finds mercy." Hosea 14:3.
 

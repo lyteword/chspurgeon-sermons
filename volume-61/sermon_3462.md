@@ -1,12 +1,4 @@
-# To the Rescue
-
-(No. 3462)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 10, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3462 | To the Rescue
 
 "Shall the prey be taken from the mighty, or the lawful captive be delivered?" Isaiah 49:24
 

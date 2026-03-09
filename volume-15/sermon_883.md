@@ -1,7 +1,4 @@
-# Multitudinous Thoughts And Sacred Comforts
-
-Sermon No. 883 - Delivered on Sunday Morning, AUGUST 1, 1869 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
-A sermon
+# Sermon 883 | Multitudinous Thoughts And Sacred Comforts
 
 "In the multitude of my thoughts within me, Your comforts delight my soul."- Psalm 94:19.
 

@@ -1,12 +1,4 @@
-# Repentance after Conversion
-
-(No. 2419)
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 30, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 12, 1887.
+# Sermon 2419 | Repentance after Conversion
 
 "The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, You will not despise." Psalm 51:17.
 

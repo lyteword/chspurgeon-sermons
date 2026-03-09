@@ -1,18 +1,4 @@
-# Our Lord's Solemn Enquiry
-
-A Sermon
-
-(No. 3507)
-
-Published on Thursday, April 13th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [15]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, April 7th, 1872.
+# Sermon 3507 | Our Lord's Solemn Enquiry
 
 "Eli, Eli, lama sabachthani? That is to say, My God, my God, why hast thou forsaken me?"--Matthew 27:46.
 

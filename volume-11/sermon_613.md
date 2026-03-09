@@ -1,6 +1,4 @@
-# The Strong One Driven Out By A Stronger One
-
-Sermon No. 613 - Delivered on Sunday Morning, February 5th, 1865 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 613 | The Strong One Driven Out By A Stronger One
 
 > When a strong man armed keeps his palace, his goods are in peace: but when a stronger than he shall come upon him and overcome him, he takes from him all his armor wherein he trusted, and divides his spoils. He that is not with Me is against Me: and he that gathers not with Me scatters. When the unclean spirit is gone out of a man, he walks through dry places, seeking rest. And finding none, he says, I will return unto my house from where I came out. And when he comes, he finds it swept and garnished. Then goes he and takes to him seven other spirits more wicked than himself; and they enter in and dwell there: and the last state of that man is worse than the first.    
 > Luke 11:21-26.    

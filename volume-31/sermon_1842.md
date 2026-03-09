@@ -1,12 +1,4 @@
-# The Private Tutor
-
-(No. 1842)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 24, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1842 | The Private Tutor
 
 "He that loves Me not keeps not My sayings: and the Word which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things, and bring all things to your remembrance, Whatever I have said unto you." John 14:24-26.
 

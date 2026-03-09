@@ -1,6 +1,4 @@
-# Obedience Better Than Sacrifice
-
-Sermon No. 686 - Delivered on 1866 the REV. C.H. SPURGEON at the Metropolitan Tabernacle, Newington.
+# Sermon 686 | Obedience Better Than Sacrifice
 
 > "Behold, to obey is better than sacrifice, and to hearken than the fat of rams."  
 > 1 Samuel 15:2.  

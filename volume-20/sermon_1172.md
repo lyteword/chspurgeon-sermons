@@ -1,12 +1,4 @@
-# The Savior You Need
-
-(No. 1172)
-
-A SERMON DELIVERED ON LORD'S DAY MORNING, MAY 10, 1874,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1172 | The Savior You Need
 
 "Andbeing made perfect, He became the Author of eternal salvation unto all them that obey Him." Hebrews 5:9.
 

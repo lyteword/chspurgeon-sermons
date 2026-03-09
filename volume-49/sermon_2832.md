@@ -1,12 +1,4 @@
-# Christ's Yoke and Burden
-
-(No. 2832)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 24, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 2, 1886.
+# Sermon 2832 | Christ's Yoke and Burden
 
 "My yoke is easy and My burden is light." Matthew 11:30.
 

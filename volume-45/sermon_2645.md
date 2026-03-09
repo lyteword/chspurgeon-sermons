@@ -1,12 +1,4 @@
-# "The Time of Jacob's Trouble"
-
-(No. 2645)
-
-A SERMON INTENDED FOR READING ON LORD'S-DRY, OCTOBER 22, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 29, 1882.
+# Sermon 2645 | "The Time of Jacob's Trouble"
 
 "It is even the time of Jacob's trouble; but he shall be saved out of it." Jeremiah 30:7.
 

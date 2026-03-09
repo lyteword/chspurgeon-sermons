@@ -1,12 +1,4 @@
-# Found By Jesus--And Finding Jesus
-
-(No. 2375)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 26, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 24 ,1888.
+# Sermon 2375 | Found By Jesus--And Finding Jesus
 
 "The day following, Jesus would go forth into Galilee, and He found Philip, and said to him, Follow Me. Now Philip was of Bethsaida, the city of Andrew and Peter. Philip found Nathanael, and said to him, We have found Him, of whom Moses in the Law, and the Prophets, did write, Jesus of Nazareth, the son of Joseph." John 1:43-45.
 
@@ -125,7 +117,6 @@ tation, and He was Jesus of Bethlehem quite as much as He was Jesus of Nazareth-
 
 And Nathanael said unto him, Can there be any good thing come out of Nazareth? Philip said to him, Come and see. Christ had said, "Come and see." Now Philip used the same words, "Come and see." It is always right to follow the example that the Lord Jesus has set for us!
 
-47, 48. Jesus saw Nathanael coming to Him and said of him, Behold an Israelite, indeed, in whom is no guile! Nathanael said to Him, When did You know me? You may remember that, a short time ago, I preached a sermon upon Nathanael. [See Volume 34, No. 2021, "Nathanael--Or, the Ready Believer and His Reward.] He was a kind of Jewish John Blunt, a man who always spoke his mind. He had a mind and he had a mind to speak it--and he spoke his mind! So, the moment that Christ spoke of him, he asked, "When did You know me?" He was conscious that Christ knew him and, being a man who was altogether free from cunning and craftiness, he pointedly asked how Christ came to know him.
 
 Jesus answered and said unto him, Before that Philip called you, when you were under the fig tree, I saw you. What was he doing under the fig tree? Jesus knew and Nathanael knew, but nobody else knew and, perhaps, nobody else ever will know. That was a secret between Christ and Nathanael. He was doing something there that he regarded as quite private--and the Savior's allusion to his being under the fig tree was the most plain proof he could have of Christ's Divinity. "Oh," he thought, "He who can remind me of that secret transaction must be God."
 

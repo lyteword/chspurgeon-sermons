@@ -1,6 +1,4 @@
-# Effectual Calling
-
-Sermon No. 73 - Delivered on Sabbath Morning, March 30, 1856, by the REV. C.H. SPURGEON at New Park Street Chapel, Southwark.
+# Sermon 73 | Effectual Calling
 
 > When Jesus came to the place, he looked up, and saw him, and said unto him, Zaccheus, make haste and come down; for to-day I must abide at thy house.    
 > Luke 19:5.    

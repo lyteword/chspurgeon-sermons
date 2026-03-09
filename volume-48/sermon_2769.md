@@ -1,12 +1,4 @@
-# The Weakened Christ Strengthened
-
-(No. 2769)
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 9, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 5, 1881.
+# Sermon 2769 | The Weakened Christ Strengthened
 
 "And there appeared an angel unto Him from Heaven, strengthening Him." Luke 22:43.
 

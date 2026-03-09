@@ -1,12 +1,4 @@
-# The Little Dogs
-
-(No. 1309)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 6, 1876,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1309 | The Little Dogs
 
 "But He answered and said, It is not meet to take the children's bread, and to cast it to dogs. And she said, Truth, Lord: yet the dogs eat of the crumbs which fall from their masters' table." Matthew 15:26,27.
 

@@ -1,12 +1,4 @@
-# Fine Pleading
-
-(No. 3539)
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 24, 1871.
+# Sermon 3539 | Fine Pleading
 
 "Remember me, O Lord, with the favor that You have toward Your people; O visit me with Your salvation." Psalm 106:4.
 

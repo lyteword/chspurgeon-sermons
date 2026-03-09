@@ -1,12 +1,4 @@
-# Saints In Heaven And Earth One Family
-
-(No. 1249)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, AUGUST 8, 1875,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1249 | Saints In Heaven And Earth One Family
 
 "The whole family in Hea ren and earth." Ephesians 3:15.
 

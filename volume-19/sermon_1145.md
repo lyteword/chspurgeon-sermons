@@ -1,12 +1,4 @@
-# The Great Jail--and How To Get Out Of It
-
-(No. 1145)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, NOVEMBER 30, 1873,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1145 | The Great Jail--and How To Get Out Of It
 
 "But the Scripture has confined all under sin, that the promise by faith of Jesus Christ might be given to them that believe." Galatians 3:22.
 

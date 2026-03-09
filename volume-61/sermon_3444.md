@@ -1,12 +1,4 @@
-# Keeping the Soul Alive
-
-(No. 3444)
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 27, 1870.
+# Sermon 3444 | Keeping the Soul Alive
 
 "None can keep alive his own soul." Psalm 22:29.
 

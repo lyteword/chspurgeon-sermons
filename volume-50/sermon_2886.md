@@ -1,12 +1,4 @@
-# Restless! Peaceless!
-
-(No. 2886)
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 2, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 21, 1876.
+# Sermon 2886 | Restless! Peaceless!
 
 "But the wicked are like the troubled sea when it cannot rest, whose waters cast up mire and dirt. There is no peace, says my God, to the wicked." Isaiah 57:20,21.
 

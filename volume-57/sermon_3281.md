@@ -1,12 +1,4 @@
-# The Broad Wall
-
-(No. 3281)
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3281 | The Broad Wall
 
 "The broad wall." Nehemiah 3:8.
 

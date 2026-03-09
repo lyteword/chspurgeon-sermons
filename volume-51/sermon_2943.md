@@ -1,12 +1,4 @@
-# Restraining Prayer
-
-(No. 2943)
-
-A SERMON PUBLISHED ON THURSDAY, JULY 6, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
+# Sermon 2943 | Restraining Prayer
 
 "You...restrain prayer before God." Job 15:4.
 

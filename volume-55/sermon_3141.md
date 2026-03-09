@@ -1,12 +1,4 @@
-# Women's Rights--a Parable
-
-(No. 3141)
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 22, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 3141 | Women's Rights--a Parable
 
 "And Moses brought their cause before the LORD." Numbers 17:5.
 

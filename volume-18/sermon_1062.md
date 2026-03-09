@@ -1,12 +1,4 @@
-# Why Am I Thus?
-
-(No. 1062)
-
-A SERMON DELIVERED ON THURSDAY EVENING, MARCH 14, 1872,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1062 | Why Am I Thus?
 
 "I delight in the Law of God after the inward man. But I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members." Romans 7:22,23.
 

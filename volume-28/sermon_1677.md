@@ -1,12 +1,4 @@
-# A Great Mistake and the Way to Rectify It
-
-(No. 1677)
-
-DELIVERED ON LORD'S-DAY MORNING, SEPTEMBER 3, 1882,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1677 | A Great Mistake and the Way to Rectify It
 
 "Because you say, I am rich, and increased with goods, and have need of nothing; and know not that you are wretched, and miserable, and poor, and blind, and naked: I counsel you to buy of Me gold tried in the fire, that you may be rich; and white raiment, that you may be clothed, and that the shame of your nakedness does not appear; and anoint your eyes with eye salve, that you may see." Revelation 3:17,18.
 

@@ -1,12 +1,4 @@
-# The Birth Of Christ
-
-(No. 2392)
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 23, 1891.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, DECEMBER 24, 1854.
+# Sermon 2392 | The Birth Of Christ
 
 "Behold, a virgin shall conceive and bear a Son, and shall call His name Immanuel. Butter and honey shall He eat, that He may know to refuse the evil, and choose the Good." Isaiah 7:14,15.
 

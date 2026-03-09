@@ -1,12 +1,4 @@
-# The Looking Glass
-
-(No. 1848)
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, JULY 5, 1885,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
+# Sermon 1848 | The Looking Glass
 
 "For if anyone is a hearer of the Word, and not a doer, he is like unto a man beholding his natural face in a glass: for he beholds himself, and goes his way, and straightway forgets what manner of man he was. But he who looks into the perfect Law of liberty, and continues in it, he beingnot a forgetful hearer, but a doer of the work, this man shall be blessedin his deed." James 1:23-25.
 
