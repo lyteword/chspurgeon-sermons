@@ -1,12 +1,5 @@
 # Sermon 2229 | God's Glorious and Everlasting Name
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 8, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 15, 1891.
-
 "To make Himself an everlasting name...To make Yourself a glorious name." Isaiah 63:12,14.
 
 MAN'S chief end is to glorify and enjoy God. God's greatest and highest objective is to make to Himself a glorious and an everlasting name. Since God is God, it must be so, for He is full of love and kindness to His creatures, and He cannot more fully bless His creatures than by making Himself known to them. Everything that is good, true, holy, excellent and loving, is in God. He is not only the Giver of "every good and every perfect gift," but He is, Himself, the sum and substance of all blessing! And it is for the highest good of all the creatures He has made, that they should know their God. "Man, know yourself," is a frequent exhortation of the philosophers of earth--and self-knowledge is said to be the highest form of knowledge, but it is not. "Man, know your God," is a far wiser precept, for knowledge of God as far excels all other knowledge as the heavens are higher than the earth! It is life eternal to know Him, the only true God, and Jesus Christ whom He has sent. Know your God, then, for here your hope, your comfort, your holiness, your Heaven will be found!

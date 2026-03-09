@@ -1,12 +1,5 @@
 # Sermon 2383 | Seeing and Testifying
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 21,1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 29, 1888.
-
 "And we have seen and testify that the Father sent the Son to be the Savior of the world." 1 John 4:14.
 
 THERE are two things joined together in the text which must never be parted--"We have seen and testify." In the first place, never let any man testify what he has not seen. If you are not personally aware of it, do not tell it--it is the personality of the testimony that is the power of the testimony. That Truth of God which you have never experienced, you had better leave to somebody else to preach. This is the cause of the failure of a great many ministers--there is no personal conversion at the back of their ministry and, consequently, no Christian life within them. Their preaching is the testimony of a man who says that he heard such and such a thing and you know how a judge will stop a witness when he begins to say what others have told him. "No, no," he says, "what did you see, yourself, my good man? What do you know about this business on your own account? I do not want to know what others said to you about it." So is it with the message delivered from the pulpit--what is needed is that the preacher should bear testimony of what he has seen, tasted, felt and handled. When you try to bring others to Christ, you must do it by bearing witness of what Christ has done for you. If He has never done anything for you--personally for you--you cannot testify for Him and must not pretend to do so.

@@ -1,12 +1,5 @@
 # Sermon 2373 | The Weary Dove's Return
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 12, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 20, 1888.
-
 "But the dove found no rest for the sole of her foot and she returned into the ark to him, for the waters were on the face of the whole earth. So he put out his hand and took her, and drew her into the ark to himself." Genesis 8:9.
 
 NOAH knew that God would, in due time, let him out of the ark. He was quite sure that the Lord had not put him into the ark to make a great coffin of it--that he and all those living creatures that went in with him should perish there. And, because he believed in God, he, therefore, removed the covering of the ark and looked abroad, expecting, by-and-by, to see not only the tops of the mountains, but also a dry and green earth once more. True faith often goes to the window. If your faith turns her face to the wall and expects nothing, I do not think it is genuine faith. Faith has eyes and, therefore, she looks afar off, and she often watches as the watchman of the night looks for the gray dawn of the morning. You remember the story of the child who went to a Prayer Meeting which was called together to pray for rain? She expected that God would send the rain, so she took her umbrella with her because she needed to get home dry. I wish that you and I had learned the same simple art of faith. Having prayed, and having believed, let us expect! Let us open the window and look out! God never failed an expectant people, yet, but a great many of His people fail to expect. And if you do not expect, you are not likely to receive! David said, "My soul, wait only upon God, for my expectation is from Him." And when your expectation is from Him, it will not be disappointed. It is a great pity when we keep the shutters up so that we cannot look out of the window to see the dry land.

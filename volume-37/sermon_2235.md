@@ -1,12 +1,5 @@
 # Sermon 2235 | A Warrant for Your Apprehension
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 19, 1891.
-
 "The word of the Lord is against you." Zephaniah 2:5.
 
 The word of the Lord was against the land to which these words were spoken. The whole verse reads, "Woe unto the inhabitants of the seacoast, the nation of the Cherethites! The word of the Lord is against you; O Canaan, the land of the Philistines, I will even destroy you, that there shall be no inhabitant." This contest could have only one end, for behind "the word of the Lord" was the Lord Himself. "Woe unto him that strives with his Maker!" Who shall dare to oppose His sovereign will? All forces are at His command and they are foolish, indeed, who say to Him, "What are You doing?" I have not come here, however, to speak to you simply about the land of the Philistines and the sinners who dwelt there. The burden of my sermon is concerning men and women who are now living and to whom I may truthfully say, "The Word of the Lord is against you." May you wake up to see the truth of this terrible sentence and, by the power of the Holy Spirit, be at once moved to flee from the wrath to come!

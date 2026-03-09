@@ -1,12 +1,5 @@
 # Sermon 2313 | Charity and Purity
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 18, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 23, 1889.
-
 "Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep ourselves unspotted from the world." James 1:27.
 
 THERE is a great deal said, a great deal written, a great deal of zeal on the one side and of anger on the other, expended upon the externals of religion. Some think that they should be very fine, not to say gaudy, very impressive, not to say imposing. They like what they call, "bright" services, though we might call them by another name. But the great question with many people is, "What are to be the externals of religion?" What dress is religion to wear? Shall it be robed in the plainness of Quakerdom, or shall it be adorned with all the brilliance of Romanism? Which shall it be?

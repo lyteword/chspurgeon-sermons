@@ -1,12 +1,5 @@
 # Sermon 2196 | Hosanna!
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 22, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the multitudes that went before, and that followed, cried saying, Hosanna to the son of David: Blessed is He that comes in the name of the Lord; Hosanna in the highest" Matthew 2:19.
 
 AFTER the miracle of the raising of Lazarus, a great fame went abroad concerning our Lord. He still rested at Bethany and the people came up to the feast in great number--an easy walk from Jerusalem to Bethany--to see Jesus and to see Lazarus, who had been raised from the dead. These people, on a certain day, formed a company and marched with Jesus towards Jerusalem. On the way our Lord sent two of His disciples to fetch a donkey and its colt--and upon this last He rode into the city. Another crowd, coming out of Jerusalem, met the company attending upon Jesus and, forming one great procession, the whole multitude marched into the city escorting the Lord Jesus in humble state and paying Him honor as King in Zion. Upon no stately warhorse, but riding upon a colt, the foal of a donkey, the meek and lowly King entered the city of David attended by vast and enthusiastic crowds who strewed the fronds of palms, the branches of trees and their own garments in the way along which He rode. Our Lord thus received a right royal and popular reception to the metropolis of His nation. This was a strange event, so very different from anything else that happened to our Savior, that one wonders at it with great wonderment. That it is to be viewed as an important event is clear, since every one of the four Evangelists takes pains to record it (see Matthew 21, Mark 11, Luke 19 and John 12). Even of certain of the greater events of our Lord's life the Holy Spirit has not preserved us four accounts, but since He has done so in this case, He thereby calls us to give the more earnest heed to it. Herein is a mine of teaching--let us dig into it.

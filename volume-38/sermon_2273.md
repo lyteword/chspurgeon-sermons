@@ -1,12 +1,5 @@
 # Sermon 2273 | Fickle Followers
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 11, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 27, 1890.
-
 "And it came to pass, that, as they went in the way, a certain man said unto Him, Lord, I will follow You wherever You go. And Jesus said unto him, Foxes have holes, and birds of the air have nests; but the Son of Man has not where to lay His head. And He said unto another, FollowMe. But he said, Lord, suffer me first to go and bury my father. Jesus said unto him, Let the dead bury their dead: but go you and preach the Kingdom of God. And another also said, Lord, I will follow You; but let me first go bid them farewell, which are at home at my house. And Jesus said unto him, No man, having put his hand to the plow, and looking back, is fit for the Kingdom of God." Luke 9:57-62.
 
 SOMETIMES nobody appeared to come to Christ. He preached, but no followers appeared as the result of His preaching. At another time, we see that many came and desired to be numbered with His disciples, but they were not all of the right kind. Luke has collected here three instances which I think are typical of many more of those who seemed to be true followers of Jesus, who, nevertheless, did not continue with Him and were not really converts. I think that these three are put together, here, for the comfort of those of us who preach the Gospel--that when we are disappointed, we may perceive that we are not worse off than our Master was--and that, when we think that we have brought men to conversion and find, after all, that they are not converted, we may not give up the work or be discouraged, but may say to ourselves, "It was always so. It was so with the Prince of Preachers. May we not reasonably expect that it will be so with us, also?"

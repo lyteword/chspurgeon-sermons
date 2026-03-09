@@ -1,12 +1,5 @@
 # Sermon 2206 | "Am I A Sea, Or A Whale?"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 31, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON BEHALF OF THE BRITISH AND FOREIGN SAILORS' SOCIETY, ON THURSDAY EVENING, MAY 7, 1891.
-
 "Am I a sea, or a whale, that You set a watch over me?" Job 7:12.
 
 JOB was in great pain when he thus bitterly complained. These moans came from him when his skin was broken and had become loathsome and he sat upon a dunghill and scraped himself with a potsherd. We are amazed at his patience, but we are not amazed at his impatience! He had fits of complaining and failed in that very patience for which he was noted. Where God's saints are most glorious, there you will find their spots. The weaknesses of the saints lie near their strength. Elijah is the bravest of the brave and flees from Jezebel. Moses is the meekest of the meek and speaks in passion. Job is the most patient of men and cries, "I will not refrain my mouth; I will speak in the anguish of my spirit; I will complain in the bitterness of my soul." As part of his bitter complaint, he asks, "Am I a sea, or a whale, that You set a watch over me?"

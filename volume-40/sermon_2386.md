@@ -1,12 +1,5 @@
 # Sermon 2386 | The Drawings Of Divine Love
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 11, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 26, 1888.
-
 "No man can come to Me, except the Father who sent Me draws him and I will raise him up at the last day. It is written in the Prophets, 'And they shall all be taught by God.' Therefore, everyone who has heard, and has learned of the Father, comes unto Me." John 6:44,45.
 
 THERE is something here which troubles many seeking souls. They hear the Gospel preached in this manner, "Look and live," or, "Believe on the Lord Jesus Christ, and you shall be saved." This comforts them and they say to themselves, "This is a way in which we can run. We delight to be told of salvation by faith in Christ." By-and-by, they hear a discourse upon our Savior's Words, "You must be born again," or they listen to descriptions of the inward experience of a child of God. They are taught that there must be a brokenness of heart before there can be a true binding up. There must be a stripping before there can be a clothing. There must be death before there can be resurrection and then they say to themselves, "This, we fear, is true. But how different it is from the message we heard the other day! Are there two things equally true--salvation by simple faith in Christ--and yet the necessity of a new heart and a right spirit?"

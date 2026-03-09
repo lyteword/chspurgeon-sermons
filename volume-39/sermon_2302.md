@@ -1,12 +1,5 @@
 # Sermon 2302 | Watching For Christ's Coming
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 2, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 7 1889.
-
 "Blessed are those servants whom the master, when he comes, shall find watching: verily I say unto you, that he shall gird himself, and make them to sit down to eat, and will come forth and serve them. And if he shall come in the second watch, or come in the third watch, and find them so, blessed are those servants." Luke 12:37,38.
 
 I AM about to speak of the Second Coming of Christ and I felt thankful that my dear Brother's prayer, although we had not been in consultation with one another upon the matter, was in every way so suitable to the subject upon which I am to speak. He led us in prayer to think of our coming Lord, so that I trust you are on the margin of the subject, now, and that you will not have to make any very great exertion of mind to plunge into mid-stream and be carried away with the full current of thought concerning the Second Advent of the Savior. It is a very appropriate topic when we come to the Lord's Table, for, as that prayer reminded us, the Lord's Supper looks backward, and is a memorial of His agony. But it also looks forward and is an anticipation of His Glory. Paul wrote to the Church at Corinth, "For as often as you eat this bread, and drink this cup, you show the Lord's death till He comes." By looking forward, in a right state of heart, to that Second Coming of Christ which is the joy of His Church, you will also be in a right state of heart for coming to the Communion Table. May the Holy Spirit make it to be so!

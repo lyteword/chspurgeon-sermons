@@ -1,12 +1,5 @@
 # Sermon 2345 | Moses' Dying Charge to Israel
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 28, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 17, 1888.
-
 "And you shall remember all the way which the LORD your God led you these forty years in the wilderness, to humble you, and to prove you, to know what was in your heart, whether you would keep His commandments, or no." Deuteronomy 8:2.
 
 These are the words of Moses, the man of God, when he was near his departure. They make up a part of what has been called his "swan song." He did not often sing--he did give us at least one song, but when he came near the time he was to die, like the fabled swan, he began to sing--and most sweetly did he sing!

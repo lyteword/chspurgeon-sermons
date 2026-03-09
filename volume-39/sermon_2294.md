@@ -1,12 +1,5 @@
 # Sermon 2294 | The Memory Of Christ's Love
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 5, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 2, 1890.
-
 "We will remember Your love more than wine: the upright love You." Song of Solomon 1:4.
 
 I Do not think I can preach tonight. I feel so weary, and worn, and ill. Still, I can talk to you a little concerning the great love of Christ. If I were dying, I think I could speak upon that theme, and oh, when we rise again, how we shall talk forever and ever about Christ's love! This will be our endless theme throughout the eternal ages, "His great love wherewith He loved us, even when we were dead in sins."

@@ -1,12 +1,5 @@
 # Sermon 2269 | Impotence and Omnipotence
 
-
-INTENDED FOR READING ON LORD'S-DAY AUGUST 14, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 16, 1890.
-
 "And a certain man was there, which had an infirmity thirty-eight years. When Jesus sawhim lying there, and knew that he had been in that case a long time, He said to him, Willyou be made whole? The impotent man answered him, Sir, I have no man, when the water is troubled, to put me into the pool; but while I am coming, another steps down before me. Jesus said to him, Rise, take up your bed, and walk. And immediately the man was made whole, and took up his bed and walked." John 5:5-9.
 
 THIS man had been lying, with many others, round the pool, hoping that it would be stirred by the angel, and that he might be the first put into the water and so might be healed. There he waited long, and waited in vain. Why did he wait? Because Jesus was not there. Where Jesus is not, you must wait! If it is only an angel and a pool, you must wait-- and one may get a blessing--and many may get no blessing. But when Jesus came, there was no waiting. He walked in among the crowd of sick folk, spied out this man, bade him to take up his mattress and walk home--and he was healed at once.

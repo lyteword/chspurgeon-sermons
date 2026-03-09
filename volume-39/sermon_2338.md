@@ -1,12 +1,5 @@
 # Sermon 2338 | The Crisis Of This World
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 10, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 6, 1889.
-
 "Now is the judgment of this world: nowshall theprince of this world be cast out. And I, if Iam lifted up from the earth, will draw all men unto Me. This He said, signifying what death He should die." John 12:31-33.
 
 OUR Lord passed through His passion in a kind of rehearsal before it came. He saw those Greeks who came to Philip and whom Andrew and Philip brought to Him, and His heart was flushed with joy. This was to be the result of His death, that the Gentiles would be gathered to Him! That thought reminded Him of His approaching decease. It was very near-- only a few days would elapse and then He would die upon the Cross. In anticipation of Calvary, His soul was full of trouble--not that He feared death, but His death was to be a very peculiar one. He was to die the Just for the unjust. He was to bear our sins in His own body on the tree and His pure and holy soul shrank from contact with sin! To stand in the sinner's place--to bear His Father's wrath--this bewildered Him. He was very faint of heart and He cried, "What shall I say? Father, save Me from this hour: but for this cause came I unto this hour. Father, glorify Your name." Without any wicked weakness, He proved how truly human He was--without any sinful repining at His Father's will, He saw how terrible that will was and He shuddered at what it included. This was a kind of rehearsal for Gethsemane. It was a sipping of that cup of which He was to drink until His sweat was, as it were, great drops of blood falling down to the ground, while His whole soul poured out the agonized petition, "O My Father, if it is possible, let this cup pass from Me: nevertheless not as I will, but as You will."

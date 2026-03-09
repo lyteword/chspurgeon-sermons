@@ -1,12 +1,5 @@
 # Sermon 2255 | God Justified, Though Man Believes Not
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 8, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 31, 1890.
-
 "For what if some did not believe? Shall their unbelief make the faith of God without effect? God forbid: yes, let God be true, and every man a liar; as itis written, That You might be justified in Your sayings, and might overcome when You are judged." Romans 3:3,4.
 
 THE seed of Israel had great privileges even before the coming of Christ. God had promised by Covenant that they should have those privileges and they enjoyed them. They had Revelation and a Divine Light, while all the rest of the world sat in heathen darkness. Yet so many Jews did not believe, that, as a whole, the nation missed the promised blessing. A great multitude of them only saw the outward symbols and never understood their spiritual meaning. They lived and died without the blessing promised to their fathers. Did this make the Covenant of God to be void? Did this make the faithfulness of God to be a matter of question? "No, no," says Paul, "if some did not believe, and so did not gain the blessing, this was their own fault; but the Covenant of God stood fast, and did not change because men were untrue." He remained just as true as ever and He will be able to justify all that He has said and all that He has done--and He will do so even to the end. When the great drama of human history shall have been played out, the net result will be that the ways of God shall be vindicated notwithstanding all the unbelief of men!

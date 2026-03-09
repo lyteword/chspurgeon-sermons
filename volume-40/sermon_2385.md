@@ -1,12 +1,5 @@
 # Sermon 2385 | Another Lesson From Manasseh's Life
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 4, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 19, 1888.
-
 "And the Lord spoke to Manasseh, and to his people: but they would not listen. Therefore the Lord brought upon them the captains of the host of the king of Assyria; which took Manasseh among the thorns, and bound him with fetters, and carried him to Babylon." 2 Chronicles 33:10,11.
 
 THE proper way for a sinner to be brought to God is for God to speak to him and for him to hear. Manasseh would not come that way--"The Lord spoke to Manasseh, and to his people: but they would not listen." Therefore, as God determined to save the rebellious king, He fetched him back by a rougher road--He sent the captains of the host of the king of Assyria, who took him among the thorns.

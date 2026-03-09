@@ -1,12 +1,5 @@
 # Sermon 2372 | A Page From a Royal Diary
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 5, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 17, 1888.
-
 "Look You upon me and be merciful to me, as You used to do to those who love Your name." Psalm 119:132.
 
 ["We believe that David wrote this Psalm. It is Davidic in tone and expression and it tallies with David's experience in many interesting points. In our youth, our teachers called it, 'David's pocketbook,' and we incline to the opinion often expressed that here we have the royal diary written at various times throughout a long life."--C. H. SPURGEON'S Note in The Treasury of David as to the author of Psalm 119.]

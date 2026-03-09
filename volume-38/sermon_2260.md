@@ -1,12 +1,5 @@
 # Sermon 2260 | Christ's Hospital
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 12, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 9, 1890.
-
 "He heals the broken in heart, and binds up their wounds." Psalm 147:3.
 
 OFTEN as we have read this Psalm, we can never fail to be struck with the connection in which this verse stands, especially its connection with the verse that follows. Read the two together--"He heals the broken in heart, and binds up their wounds. He counts the number of the stars; He calls them all by their names." What condescension and grandeur! What pity and Omnipotence! He who leads out yonder ponderous orbs in almost immeasurable orbits, nevertheless, is the Surgeon of men's souls and stoops over broken hearts! And with His own tender fingers closes up the gaping wound and binds it with the liniment of love. Think of it and if I should not speak as well as I could desire upon the wonderful theme of His condescension, yet help me by your own thoughts to do reverence to the Maker of the stars, who is, at the same time, the Physician for broken hearts and wounded spirits!

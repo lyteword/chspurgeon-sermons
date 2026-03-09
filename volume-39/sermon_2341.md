@@ -1,12 +1,5 @@
 # Sermon 2341 | The Underlying Gospel for the Dying Year
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 31, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 20, 1889.
-
 "For when we were yet without strength, in due time Christ died for the ungodly." Romans 5:6.
 
 BELOVED Friends, whatever the condition of a child of God is, he is not without hope. A believer in the Lord Jesus Christ may be very sorely tried. His afflictions may be multiplied and they may be very keen, but, even in that condition, he has hope. It is not possible for him to be forsaken of God--his God must help him. If the worst comes to the worst, and he is altogether forsaken of men and sees no way of escape out of his tremendous difficulties, still, his God must help him. He has no right whatever to be afraid!

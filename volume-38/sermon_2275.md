@@ -1,12 +1,5 @@
 # Sermon 2275 | Belief, Baptism, Blessing
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 25, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING. FEBRUARY 9, 1890.
-
 "And he took them the same hour of the night, and washed their stripes; and was baptized, he and all his, straightway. And when he bad brought them into his house, he set meat before them, and rejoiced, believing in God with all his house." Acts 16:33,34.
 
 THE Gospel, attended by the Spirit of God, is always victorious, but it is very pleasant to make notes of its victories. The Gospel came to Lydia, a devout woman, who was one given to prayer, and who worshipped God, although she did not know the Lord Jesus Christ. She was a woman of tender heart and she was soon won. The Lord gently knocked at the door of her heart and it was opened. She heard Paul's plain preaching, she received the Truth of God, was baptized, and became the cornerstone of the Church at Philippi. "Well," says one, "that is an instance of what the Gospel does with delicate, tender, gentle natures."

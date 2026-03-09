@@ -1,12 +1,5 @@
 # Sermon 2321 | The Heavenly Singers and Their Song
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 13, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 14, 1889.
-
 "And when He had taken the Book, the four beasts and twenty-four elders fell down before the Lamb, having, every one of them, harps and golden vials full of odors, which are theprayers of saints. And they sung a new song, saying, You are worthy to take the Book, and to open its seals: for You were slain and have redeemed us to God by Your blood out of every kindred, and tongue, and people, and nation; and have made us unto our God kings and priests: and we shall reign on the earth." Revelation 5:8-10.
 
 THIS morning [Sermon #2095, Volume 35--The Lamb in Glory.] we had a picture of our Lord Jesus Christ appearing in Heaven in His Sacrificial Character, being adored in that Character, looking like a Lamb that had been slain, and being worshipped under that aspect in the very center of Heaven. I tried, as far as ever I could, to insist upon it that we must never hide the Atoning Sacrifice--that Christ, as the Lamb of God which takes away the sin of the world--is always to be brought to the front, to be put foremost in our preaching and in our practice, too. In this verse we go a step further. This blessed Lamb appears in Heaven as the Mediator between God and men. At God's right hand was the Book of His Eternal Purposes. None dared even to look upon it--it was hopeless that any creature should be able to loose its seven seals. But there came forward this glorious Lamb who had the marks of His slaughter upon Him and He took the Book out of the right hand of Him that sat upon the Throne of God! Thus He acted as Mediator, Interpreter--taking the will of God and translating it--letting us know the meaning of that writing of the right hand of God which we could never have deciphered, but which, when Christ looses the seals, is made clear to us!

@@ -1,12 +1,5 @@
 # Sermon 2286 | An Ancient Question Modernized
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 11, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 4, 1890.
-
 "And the people said unto me, Will you not tell us what these things mean to us, that you behave so?" Ezekiel 24:19.
 
 EZEKIEL'S wife died. His heart was bleeding, but he received orders from his Divine Master that he should not mourn, nor weep, nor make any sign of mourning whatever. It was a strange command, but he obeyed it. The people understood that Ezekiel was a Prophet to them in all that he did--his actions did not only concern himself. He was a teacher, not only by his words, but by his actions, so the people gathered round him and said to him, "What is the meaning of this? It has some bearing upon our conduct; tell us what it has to do with us." He soon explained to them that, before long, they, also, would lose by sword, pestilence and famine, the dearest that they had, and they would not be able to have any mourning for the dead. They would be in such a state of distress that the dead would die unlamented, the living having enough to do to mourn over their own personal sorrows. It was a terrible lesson and it was terribly taught.

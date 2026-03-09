@@ -1,12 +1,5 @@
 # Sermon 2213 | "Honey In The Mouth!"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1891,
-
-DELIVERED BY C. H. SPURGEON, ON FRIDAY MORNING, APRIL 24, 1891,
-
-AT THE CONFERENCE OF THE PASTORS' COLLEGE EVANGELICAL ASSOCIATION.
-
 "He shall glorify Me: for He shall receive of Mine, and shall show it unto you. All things that the Father has are Mine: therefore said I, that He shall take of Mine and shall show it unto you." John 16:14,15.
 
 BELOVED Friends, here you have the Trinity, and there is no salvation apart from the Trinity! It must be the Father, the Son and the Holy Spirit. "All things that the Father has are Mine," says Christ, and the Father has all things. They were always His; they are still His; they always will be His--and they cannot become ours till they change ownership--till Christ can say, "All things that the Father has are Mine"--for it is by virtue of the representative Character of Christ standing as the Surety of the Covenant, that the "all things" of the Father are passed over to the Son, that they might be passed over to us. "It pleased the Father that in Him should all fullness dwell; and of His fullness have all we received." But yet we are so dull that though the conduit pipe is laid on to the great fountain, we cannot get at it. We are lame. We cannot reach it, but in comes the third Person of the Divine Unity, even the Holy Spirit, and He receives of the things of Christ and then delivers them over to us! So we actually receive, through Jesus Christ, by the Spirit, what is in the Father!

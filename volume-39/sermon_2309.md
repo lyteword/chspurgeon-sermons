@@ -1,12 +1,5 @@
 # Sermon 2309 | God's Works Made Manifest
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 12, 1880.
-
 "Jesus answered, Neither has this man sinned, nor his parents" (that he was born blind): "but that the works of God should be made manifest in him." John 9:3.
 
 NEVER attribute any special sorrow endured by men to some special sin. There is a tendency to consider that those on whom the tower in Siloam fell must have been sinners above all men that dwelt in Jerusalem. And if any have met with a very sudden death, we are apt to suppose that they must have been exceedingly guilty--but it is not so. Very godly men have been burned to death in a train. I remember one who came to that terrible end. Many holy men have been drowned on board ship when they have been going about their Master's errands. Some of the most gracious men that I ever met have dropped dead without a moment's warning. You cannot judge of a man's state before God by that which happens to him in the order of Providence. And it is very unkind, ungenerous and almost inhuman, to sit down, like the friends of Job, and suppose that because Job is greatly afflicted, he must, therefore, be greatly sinful. It is not so. All afflictions are not chastisements for sin--there are some afflictions that have quite another end and objective. They are sent to refine, sent as a holy discipline, sent as sacred excavators to make more room in the heart for Christ and His love. Indeed, you know that it is written, "As many as I tenderly love, I rebuke and chasten." "Whom the Lord loves, He chastens, and scourges every son whom He receives."

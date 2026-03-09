@@ -1,12 +1,5 @@
 # Sermon 2281 | Our Lord in the Valley of Humiliation
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 6, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 5, 1890.
-
 "And being found in fashion as a Mian, He humbled Himself, and became obedient unto death, even the death of the Cross." Philippians 2:8.
 
 PAUL wishes to unite the saints in Philippi in the holy bands of love. To do this, he takes them to the Cross. Beloved, there is a cure for every spiritual disease in the Cross. There is food for every spiritual virtue in the Savior. We never go to Him too often. He is never a dry well or a vine from which every cluster has been taken. We do not think enough of Him. We are poor because we do not go to the gold country which lies round the Cross. We are often sad because we do not see the bright light that shines from the constellation of the Cross. The beams from that constellation would give us instantaneous joy and rest if we perceived them. If any lover of the souls of men would do for them the best possible service, he would constantly take them near to Christ. Paul is always doing so--and he is doing it here.

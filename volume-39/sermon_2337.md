@@ -1,12 +1,5 @@
 # Sermon 2337 | The Physician Pardons His Palsied Patient
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 3, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 3, 1889.
-
 "And, behold, they brought to Him a man sick of the palsy, lying on a bed: and Jesus, seeing their faith, said unto the sick of thepalsy; Son, be of good cheer;your sins are forgiven you. And, behold, certain of the scribes said within themselves, This Man blasphemes. And Jesus, knowing their thoughts, said, Why do you think evil in your hearts? For which is easier, to say, Your sins are forgiven you; or to say, Arise, and walk? But that you may know that the Son of Man has power on earth to forgive sins, (then He said to the man sick of thepalsy), Arise, take up your bed, and go to you house. And he arose, and departed to his house." Matthew 9:2-7.
 
 I REMARKED in the reading that the Gospel of Matthew is especially the Gospel of the Kingdom and of the King. All through Matthew's writing, the title of King constantly occurs in connection with Christ, and His kingliness is prominent from the opening chapter to the close. Here we see the King exercising His royal prerogatives. In this passage we have several instances of Christ acting as He could not have acted if He had not possessed a royal and Divine Power.

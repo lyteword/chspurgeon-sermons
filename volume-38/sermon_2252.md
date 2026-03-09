@@ -1,12 +1,5 @@
 # Sermon 2252 | The Unknown Giver and the Misused Gifts
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 17, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 25, 1890.
-
 "For she did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold, which they prepared for Baal. Therefore I wiil return, and take away My corn in the time thereof, and My wine in the season thereof, and will recover My wool and flax." Hosea 2:8,9.
 
 IN reading any of the records concerning the people of Israel and the people of Judah, one stands amazed at two things, and scarcely knows which to wonder at the most. The first thing which causes astonishment is the great sin of the people. And the next thing, which is even more marvelous, is the great patience of God. I scarcely know which of the two things causes me greater surprise--that men should be so guilty, or that God should be so gracious! On every page of Israel's history, the kindness and forbearance of Jehovah are manifested towards the people whom He had betrothed unto Himself. Even in the midst of their backsliding and idolatry, He did not forget the Covenant which He had made with their fathers. Yet, in spite of all this goodness, the people sinned times without number and grieved His Spirit again and again! Instead of being led to repentance, they sinned yet more and more! Their iniquity and the forbearance of God stand like two mountain summits of the history of the chosen yet wayward people.

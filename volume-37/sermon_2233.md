@@ -1,12 +1,5 @@
 # Sermon 2233 | Both Sides of the Shield
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 6, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 14, 1891.
-
 "Then came Amalek, and fought with Israel in Rephidim. And Moses said unto Joshua, Choose us out men, and go out, fight with Amalek: tomorrow I will stand on the top of the hill with the rod of God in my hand." Exodus 17:8,9.
 
 IN trying to understand the Truth of God we are in great danger of being one-sided. One man catches at part of a Truth of God and says, "That is it and that is the whole of it." Another man lays hold of another side of the Truth of God and he says, "This is the whole of it" and, straightaway, there arises a contention between them. They are like the men who quarreled as to the material of which a certain shield was made. One of them said that it was a golden shield. The other was equally sure that it was a silver one, whereas it so happened that it was gold on one side and silver on the other. So they fiercely wrangled when they might very well have been agreed if they had known a little more. Most Truths of God have two sides and it is well to try to see both of them. Nearly every doctrine in the Word of God is balanced by some other doctrine and many of the differences among the people of God have arisen from the undue stress which has been laid on one aspect of the Truth while the other side has been altogether neglected. This danger very frequently besets us.

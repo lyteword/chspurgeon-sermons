@@ -1,12 +1,5 @@
 # Sermon 2344 | Christ's Dying Word for His Church
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 21, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, NOVEMBER 3, 1889.
-
 "It is finished." John 19:30.
 
 IN the original Greek of John's Gospel there is only one word for this utterance of our Lord. To translate it into English, we have to use three words, but when it was spoken, it was only one--an ocean of meaning in a drop of language, a mere drop, for that is all that we can call one word! "It is finished." Yet it would need all the other words that ever were spoken, or ever can be spoken, to explain this one word. It is altogether immeasurable! It is high--I cannot attain to it. It is deep--I cannot fathom it. "Finished." I can half imagine the tone in which our Lord uttered this word, with a holy glorying, a sense of relief, the bursting out of a heart that had long been shut up within walls of anguish. "Finished." It was a Conqueror's cry--it was uttered with a loud voice! There is nothing of anguish about it, there is no wailing in it. It is the cry of One who has completed a tremendous labor and is about to die--and before He utters His death-prayer, "Father, into Your hands I commend My spirit," He shouts His life's last hymn in that one word, "Finished."

@@ -1,12 +1,5 @@
 # Sermon 2218 | "Is the Spirit of the Lord Straitened?"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 23, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 26, 1891.
-
 "O you that are named the house of Jacob, is the Spirit of the Lord straitened?" Micah 2:7.
 
 THERE may be some who think they can convert the world by philosophy; that they can renew the heart by eloquence; or that, by some witchcraft of ceremonies, they can regenerate the soul. But we depend wholly and simply and only on the Spirit of God! He, alone, works all our works in us and, in going forth to our holy service, we take with us no strength and we rely upon no power except that of the Spirit of the Most High. When Asher's foot was dipped in oil, no wonder he left a footprint wherever he went! But if his foot had not first been anointed, there would have been small trace of him and, unless we have the unction of the Holy One, and are endued with power from on high, in vain shall we seek to preach good tidings to the meek, to bind up the broken-hearted, or to proclaim the opening of the prison to them that are bound!

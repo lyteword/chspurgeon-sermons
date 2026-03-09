@@ -1,12 +1,5 @@
 # Sermon 2349 | All Comers To Christ Welcomed
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 25, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 17, 1889.
-
 "Him that comes to Me I will in no wise cast out." John 6:37.
 
 EOD CHRIST will not die in vain. His Father gave Him a certain number to be the reward of His soul travail and He will have every one of them, as He said, "All that the Father gives Me shall come to Me." Almighty Grace shall sweetly constrain them all to come. My father recently gave me some letters which I wrote to him when I began to preach. They are almost boyish epistles, but, in reading through them, again, I noticed in one of them this expression, "How I long to see thousands of men saved, but my great comfort is that some will be saved, must be saved, shall be saved, for it is written, 'All that the Father gives Me shall come to Me.'"

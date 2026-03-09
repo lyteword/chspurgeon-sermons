@@ -1,12 +1,5 @@
 # Sermon 2197 | Christ's Resurrection and Our Newness Of Life
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 29, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore we are buried with Him through baptism into death: that just as Christ was raised up from the dead by the Glory of the Father, even so we also should walk in newness of life." Romans 6:4.
 
 I have preached before upon the whole verse, so that this morning I shall take the liberty to dwell chiefly upon the latter part of it--"Just as Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life."

@@ -1,12 +1,5 @@
 # Sermon 2282 | David's Prayer in the Cave
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 13, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 18, 1890.
-
 "Maschil of David; A Prayer when he was in the cave." Title of Psalm 142.
 
 "A PRAYER when he was in the cave." David prayed when he was in the cave. If he had prayed half as much when he was in the palace as he did when he was in the cave, it would have been better for him. But, alas, when he was king, we find him rising from his bed in the evening, looking from the roof of the house, and falling into temptation. If he had been looking up to Heaven--if his heart bad been in communion with God--he might never have committed that great crime which has so deeply stained his whole character.

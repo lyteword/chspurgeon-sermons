@@ -1,12 +1,5 @@
 # Sermon 2210 | The Agreement Of Salvation By Grace With Walking In Good Works
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 28, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Not of works, lest any man should boast. For we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them" Ephesians 2:9,10.
 
 I shall call your attention to the near neighborhood of these two phrases, "Not of works" and, "Created in Christ Jesus unto good works." The text reads with a singular sound, for it seems strange to the ear that good works should be given such a negative description as to the cause of salvation and then should be spoken of as the great end of it! You may put it down among what the Puritans called, "Orthodox Paradoxes," if you please, though it is hardly so difficult a matter as to deserve the name.

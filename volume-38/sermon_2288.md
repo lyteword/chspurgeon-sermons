@@ -1,12 +1,5 @@
 # Sermon 2288 | The Empty Place--a Christmas Day Sermon
 
-
-INTENDED ON READING ON LORD'S-DAY, DECEMBER 25, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A CHRISTMAS DAY EVENING.
-
 "And David's place was empty." 1 Samuel 20:25.
 
 THERE may be much to learn from an empty place. The world thinks much of the places which have been emptied through the home-going of its celebrated men. Those who have served the world are remembered by it. Those who have served the Church are remembered, too, and empty chairs in the world, in the Church, and in the family awaken a great many memories.

@@ -1,12 +1,5 @@
 # Sermon 2191 | Believing On Jesus--and Its Counterfeits
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 22, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As He spoke these words, many believed on Him. Then said Jesus to those Jews which had believed Him, If you continue in My Word, then are you My disciples, indeed; and you shall know the truth, and the truth shall make you free." John 8:30-32.
 
 Our Lord, on this occasion, was surrounded by quibblers. We must not be astonished if the like should happen to us when declaring the Gospel. Our Lord went on preaching, all the same, and He did not conceal objectionable Truth because of opposition--say, rather, that He set it forth with greater boldness and decision when surrounded by His enemies! The more they opposed, the more He testified.

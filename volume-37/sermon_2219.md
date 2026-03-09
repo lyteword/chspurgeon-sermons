@@ -1,12 +1,5 @@
 # Sermon 2219 | A Harp of Ten Strings
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 30, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Mary said, My soul does magnify the Lord, and my spirit has rejoiced in God my Savior." Luke 1:46, 47.
 
 IT is very clear that Mary was not beginning a new thing, for she speaks in the present tense, and in a tense which seems to have been present for a long time, "My soul does magnify the Lord." Ever since she had received the wonderful tidings of the choice which God had made of her for her high position, she had begun to magnify the Lord. And when once a soul has a deep sense of God's mercy and begins magnifying Him, there is no end to it. This grows by what it feeds upon--the more you magnify God, the more you can magnify Him. The higher you rise, the more you can see. Your view of God is increased in extent and, whereas you praised Him somewhat at the bottom of the hill, when you get nearer and nearer to the top of His exceeding goodness, you lift up the strain still more loudly and your soul does more fully and exultantly magnify the Lord!

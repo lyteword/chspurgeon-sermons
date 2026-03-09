@@ -1,12 +1,5 @@
 # Sermon 2215 | Young Man! A Prayer For You
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Elisha prayed, and said, Lord, I pray, open his eyes, that he may see! And the Lord opened the eyes of the youngman, and he saw. And, behold, the mountain was full of horses and chariots of fire all around Elisha" 2 Kings 6:17.
 
 This young man waited upon a Prophet--he could not have had a more instructive occupation, yet his eyes needed to be opened. He was well disposed towards good things, for the tone of his language to his master shows that he was heartily at one with him--but his eyes were not yet half opened. Being in great alarm for his master's safety, he ran to him to warn him--good servants should be their master's best friends. In return, his believing master prays for him. If we desire the good of our servants, our children and our friends, let us take care that we make supplication for them! All that we can do for them at our best is to give them secondary blessings, but if we pray to God for them, they will receive the best of gifts from Him who sends down in His mercy nothing but good gifts and perfect gifts. When we have come to the end of our teaching, example and persuasion, let us hand our young friends over to the Lord who works effectually unto eternal salvation.

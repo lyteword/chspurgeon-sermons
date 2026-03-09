@@ -1,12 +1,5 @@
 # Sermon 2354 | Scarlet Sinners Pardoned and Purified
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 1, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 29, 1888,
-
 "Come, now, and let us reason together, says the LORD: though your sins are as scarlet, they shallbe as white as snow; though they are redlike crimson, theyshallbe as wool." Isaiah 1:18.
 
 THERE is a quarrel between man and his Maker. It is a sad thing that the creature should have fallen out with his Creator. It is a pitiful business that those who are dependent upon the bounty of God should have rebelled against the hand that has fed them, yet it is so. Man has turned aside from the way of God's Commandments--he will not submit to Jehovah's sway.

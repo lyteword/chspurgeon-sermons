@@ -1,12 +1,5 @@
 # Sermon 2381 | "I Would, But You Would Not"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 7, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 22, 1888.
-
 "O Jerusalem, Jerusalem, you that kill the Prophets, and stone them which are sent to you, how often would I have gathered your children together, even as a hen gathers her chicks under her wings, and you were not willing!" Matthew 23:37.
 
 THIS is not and could not be the language of a mere man. It would be utterly absurd for any man to say that he would have gathered the inhabitants of a city together, "even as a hen gathers her chicks under her wings." Besides, the language implies that for many centuries, by the sending of the Prophets, and by many other warnings, God would often have gathered the children of Jerusalem together as a hen gathers her chicks under her wings. Now, Christ could not have said that throughout those ages He would have gathered those people, if He had been only a man. If His life began at Bethlehem, this would be an absurd statement, but, as the Son of God, always loving the sons of men, ever desirous the good of Israel, He could say that in sending the Prophets, even though they were stoned and killed, He had, again and again, shown His desire to bless His people till He could truly say, "How often would I have gathered your children together!" Some who have found difficulties in this lament have said that it was the language of Christ as Man. I beg to put in a very decided negative to that--it is, and it must be, the utterance of the Son of Man, the Son of God, the Christ in His complex Person as Human and Divine. I am not going into any of the difficulties just now, but you could not fully understand this passage, from any point of view, unless you believed it to be the language of One who was both God and Man.

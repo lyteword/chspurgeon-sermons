@@ -1,12 +1,5 @@
 # Sermon 2223 | Abraham's Trial--a Lesson for Believers
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 27, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 12, 1891.
-
 "And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: and he said, Behold, here I am." Genesis 22:1.
 
 WE may regard the father of the faithful as being a pattern of his children. As God dealt with Abraham, so will He deal in measure with all those who, as Believers, are the children of believing Abraham. Everything that will abide the fire shall go through the fire, that it may be both proved and improved. We clearly understand that when God is said to "tempt" Abraham, the word used does not carry its ordinary meaning. "Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempts He any man." But Jehovah is accustomed to try and test His people and this is what we are here to understand. The Revised Version renders the words, "God did prove Abraham" and, as I have said, God works by the same method with all His saints.

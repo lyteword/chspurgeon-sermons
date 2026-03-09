@@ -1,12 +1,5 @@
 # Sermon 2211 | God Rejoicing in the New Creation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Behold, I create new hea vens and a new earth: and the former shall not be remembered, nor come into mind. But be you glad and rejoice forever in that which I create: for, behold, I create Jerusalem a rejoicing, and her people a joy. And I wiil rejoice in Jerusalem, and joy in My people." Isaiah 65:17-19.
 
 THIS passage, like the rest of Isaiah's closing chapters, will have complete fulfillment in the latter days when Christ shall come, when the whole company of His elect ones shall have been gathered out from the world, when the whole creation shall have been renewed, when new heavens and a new earth shall be the product of the Savior's power, when, forever and forever, perfected saints of God shall behold His face and joy and rejoice in Him. I hope and believe that the following verses will actually describe the condition of the redeemed during the reign of Christ upon the earth--"There shall be no more thence an infant of days, nor an old man that has not filled his days: for the child shall die an hundred years old. They shall build houses, and inhabit them; and they shall plant vineyards, and eat the fruit of them. They shall not build, and another inhabit; they shall not plant, and another eat: for as the days of a tree are the days of My people, and My elect shall long enjoy the work of their hands. They shall not labor in vain, nor bring forth for trouble; for they are the seed of the blessed of the Lord, and their offspring with them. And it shall come to pass, that before they call, I will answer; and while they are yet speaking, I will hear. The wolf and the lamb shall feed together, and the lion shall eat straw like the bullock: and dust shall be the serpent's meat. They shall not hurt nor destroy in all My holy mountain, says the Lord."

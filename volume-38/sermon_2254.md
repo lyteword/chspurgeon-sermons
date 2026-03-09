@@ -1,12 +1,5 @@
 # Sermon 2254 | The Two Guards Praying and Watching
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 1, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 24, 1890.
-
 "Nevertheless we made our prayer unto our God, and set a watch against them day and night, because of them." Nehemiah 4:9.
 
 NEHEMIAH and the Jews with him were rebuilding the walls of Jerusalem. Sanballat and others were angry with them and tried to stop the work. They determined to pounce upon the people on a sudden and slay them--and so put an end to what they were doing. Our text tells us what Nehemiah and his companions did in this emergency--"Nevertheless we made our prayer unto our God, and set a watch against them day and night, because of them."

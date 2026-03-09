@@ -1,12 +1,5 @@
 # Sermon 2187 | Jesus--"All Blessing and All Blessed"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 1, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Men shall be blessed in Him: all nations shall call Him blessed." Psalm 72:17.
 
 THERE are many famous names in human history, but many of them are connected with deeds which have brought no blessing upon mankind. To bless and to be blessed is the noblest sort of fame and yet how few have thought it worth the seeking! Full many a name in the roll of fame has been written there with a finger dipped in blood. It would seem as if men loved those most who have killed the most of them! They call those greatest who have been the greatest cutthroats! They make their greatest illuminations over massacres of their fellows, calling them victories. To be set aloft upon a column, or represented by a public statue, or to have poets ringing out your name, it seems necessary to grasp the sword and to hack and slay your fellow men! Is it not too sadly true that when men have been cursed by one of their leaders, they, from then on call him great? O misery, that wholesale murder should be the shortest method of becoming illustrious!

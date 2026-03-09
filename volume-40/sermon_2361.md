@@ -1,12 +1,5 @@
 # Sermon 2361 | Hopeful, Yet Doubtful
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 20, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 8, 1888.
-
 "And a certain scribe came and said unto Him, Master I wiil follow You wherever You go. And Jesus said to him, The foxes have holes, and the birds of the air have nests; but the Son of Man has not where to lay His head." Matthew 8:19,20.
 
 "A CERTAIN scribe"--"One scribe"--it is said in the original. Perhaps to mark the noteworthy fact that he should be a scribe, and yet should wish to be a disciple of Christ. The Lord has some of His own in every class of men. You may go as low as you will, but Grace can go lower! You may look as high as you please, but Grace can rise higher! In Heaven we shall find a multitude of those who were considered to be the base people of this world and, here and there, we shall find a king. So there was one scribe, a certain scribe, who desired to be a follower of Christ. Let us not despair of anybody. If God has not shut them out of our commission and He certainly has not, for He has bid us preach the Gospel to every creature, then let us not shut them out from our hopefulness, but let us expect to see even "a certain scribe" coming forward and declaring, "Master, I will follow You wherever You go."

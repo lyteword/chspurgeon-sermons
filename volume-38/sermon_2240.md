@@ -1,12 +1,5 @@
 # Sermon 2240 | A Challenge and a Shield
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 24, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 24, 1890.
-
 "Who is he that condemns? It is Christ that died." Romans 8:34.
 
 HERE are two very wonderful challenges thrown out by the Apostle Paul. First, he boldly defies anyone to charge the chosen of God with sin--"Who shall lay anything to the charge of God's elect?" and then, even if any charges should be brought against them, he defies all our foes to secure an adverse verdict--"Who is he that condemns?" This would be a very bold challenge even for a man who had been righteous from his youth up! If there had been a man in the history of the world, who, from his infancy, had known God and who had grown up serving Him, devoting himself entirely to the cause of the Lord Christ, and if he had kept the Commandments without fail, as far as man could judge, it would be a very hazardous thing, even for him to say, "Who is he that condemns?" For human righteousness is only human--being human, it is finite and, being finite, it falls short somewhere or other. The best of men are but men at the best! To be a man is to be a fallen creature and, being fallen creatures, we cannot, of ourselves, perfectly please the thrice-holy Jehovah. In many things we all offend.

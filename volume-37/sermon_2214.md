@@ -1,12 +1,5 @@
 # Sermon 2214 | Barriers Broken Down
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 26, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For they, being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God." Romans 10:3.
 
 You that have your Bibles open, kindly follow me from the first verse of the chapter. It begins, "Brethren, my heart's desire and prayer to God for Israel is that they might be saved." If you really desire that men should be saved, pray for them! It is an empty wish, a mere formality, if you do not turn it into prayer. Every loving desire for any man or woman should, by the Believer, be taken before God in prayer. We cannot expect that God will save men unless His people pray for it. There must be travail before the birth and there must be travail in prayer with God before we can expect that many will be born, again, into the Church of God. Oh, for more prayer! Let us cry to God in secret, in the family and in all our assemblies, that God would save the sons of men!

@@ -1,12 +1,5 @@
 # Sermon 2228 | The Law's Failure and Fulfillment
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 1, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 1, 1891.
-
 "For what the Law could not do, in that it was weak through the flesh, God, sending His own Son in the likeness of sinful flesh and for sin, condemned in the flesh. That the righteousness of the Law might be fulfilled in us, who walk not after the flesh, but after the Spirit." Romans 8:3,4.
 
 THE Law of God is perfect. You cannot add anything to it, nor take anything from it, without spoiling it. If you will read the Ten Commandments and understand them in their spiritual meaning, you will find that they are far-reaching and that they deal with every sin. I noticed, some time ago, that a learned prelate said that he could not find any Commandment against gambling. Where were his eyes? Is it not plainly written, "You shall not covet"? What is gambling but covetousness in action? Most manifestly, the gambler desires his neighbor's goods and this desire gives zest to the vice which the Law of God quite plainly condemns. Depend upon it, there is nothing wrong but the Law of God condemns it and there is nothing right but the Law approves it. The Decalogue is an absolutely perfect Law.

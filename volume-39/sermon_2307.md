@@ -1,12 +1,5 @@
 # Sermon 2307 | The Greatest Exhibition of the Age
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 7, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 5, 1889.
-
 "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes.'" 1 Corinthians 11:26.
 
 FIRST, let me say that the Lord's Supper is nothing to us unless we partake of it as spiritual persons in a spiritual way. We must understand what we are doing in coming to the Communion Table. The mere mechanical celebration will be vanity. It may even be a sin. To observe this ordinance aright, you must bring your mind in an awakened state. You must come with holy faith, love and concentrated thought. I pray that we may so come, tonight. I know how mechanical we all get. We even stand up and sing and, oftentimes, we forget what we are singing while the sounds issue from our lips. We cover our eyes in prayer, but we do not always pray. There is such a thing as preaching from the mouth outward, instead of speaking from the heart. And I believe there is a kind of hearing which is dreadfully superficial and can do the hearer no good. Now, if you come to the Supper, tonight, bring your hearts with you! And if your hearts are warm with love to Christ, desire to have them yet more full of love to your Lord.

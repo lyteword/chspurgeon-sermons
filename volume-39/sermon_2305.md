@@ -1,12 +1,5 @@
 # Sermon 2305 | No Fixity Without Faith
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 11, 1889.
-
 "If you will not believe, surely you shall not be established." Isaiah 7:9.
 
 As I told you in the reading, Isaiah had a very heavy commission from God. He was to go and speak to people who would not hear him and to be to them a messenger rather of death, than of life. Though the message, itself, would be full of life, yet they would refuse it, and so bring upon themselves a tenfold death. As a sort of experiment in his work, he was called upon, first, to go and speak to king Ahaz, that wicked king. He knew in his own soul that what he had to say would be rejected, but, nevertheless, at the command of God, he went to speak to the king. He was told where he would meet him. God knows where to send His faithful servants. He has arranged every circumstance about the true preacher-- what he shall say and where he shall say it--and every congregation is a picked congregation for God's sent servants. He knows who comes and who is away. He knows how to adapt the message with great specialty to the individual case of each person who is within sound of the preacher's voice and He knows how to adapt even the voice, itself, to the ears of every hearer. We know all this, for we have had abundant evidence of it again and again.

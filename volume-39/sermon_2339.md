@@ -1,12 +1,5 @@
 # Sermon 2339 | Baptism Essential To Obedience
 
-
-INTENDED FOR READING ON LORDS'S-DAY, DECEMBER 17, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 13, 1889.
-
 "He who believes and is baptized shall be saved." Mark 16:16.
 
 IF our congregations were what they ought to be, it would be a very simple matter to preach, for a sermon would then only need to be like the orders given by a commanding officer to his troops--short, sharp, plain, clear, distinct! Our hearers would not need illustrations and metaphors--they would simply ask to be told what they must do to be saved--and the more plainly they could be told, the better pleased would they be. I am going to try, this evening, to preach that kind of sermon, sinking the preacher into the teller of good news, plainly speaking of the way of salvation. If you want to be saved, listen to my message. If you do not care for salvation, yet, perhaps, while you hear it, you may be set a-longing, and God may bless you. My text is preceded and followed by other important words, "Go you into all the world and preach the Gospel to every creature. He who believes and is baptized shall be saved; but he that believes not shall be damned."

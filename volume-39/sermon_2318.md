@@ -1,12 +1,5 @@
 # Sermon 2318 | God's Pupil, God's Preacher--an Autobiography
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 23, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 28, 1889.
-
 "O God, You ha ve taught me from my youth: and until this time ha ve I declared Your wondrous works." Psalm 71:17.
 
 You notice how much David is at home with God. He talks about Him. He does better, he talks to Him. He hears God speaking to him and he keeps up a dialog with God. Where did this holy familiarity come from? It sprang from long acquaintance! David as a boy had known God. He knew Him when he was old and gray-headed and, you know, old friends use language to one another which would not be tolerated in occasional acquaintances. There are certain things which they who have long known the Lord and who abide in Him, may say to God and of God, which might not be said by others. It might even verge on blasphemy if others were to say the same things. When you read books like Rutherford's Letters, or Madame Guyon's Sonnets, or George Herbert's Poems, you must not think that everybody may speak so. These were the Johns and the Marys, the favorites of Heaven--they had dwelt so long with the King that He permitted to them, no, He fostered in them, things that would be impertinences in strangers and might not even be seemly to beginners in the things of God. Oh, may you and I live long enough and well enough to be on very intimate terms with God! May we walk with Him till, one of these days, we walk away with Him, and they say of us, "He was not, for God took him"!

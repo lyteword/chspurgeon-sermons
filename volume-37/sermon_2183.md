@@ -1,12 +1,5 @@
 # Sermon 2183 | A Gracious Dismissal
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 11, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He said to the woman, Your faith has saved you; go in peace." Luke 7:50.
 
 THE main part of my subject will be--that gracious dismissal, "Go in peace." To her who had been so lately blessed, the word, "Go," sounded mournfully, for she would gladly have remained through life with her pardoning Lord, but the added words, "in peace," turned the wormwood into honey--there was now peace for her who had been so long hunted and harried by her sins! Rising from the feet she had washed with tears, she went forth to keep her future footsteps such as those of a believing and, therefore, saved woman ought to be.

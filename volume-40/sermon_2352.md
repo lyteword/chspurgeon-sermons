@@ -1,12 +1,5 @@
 # Sermon 2352 | Great Joy In the City
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 18, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, JANUARY 22, 1888.
-
 "And there was great joy in that city." Acts 8:8.
 
 "Philip went down to the city of Samaria and preached Christ to them," and the result of his preaching was that "there was great joy in that city." He had a very speedy and very remarkable success. He scarcely opened his mouth without gaining attention and had not long proclaimed his message before people willingly received it and many were converted to Christ, so that, "there was great joy in that city."

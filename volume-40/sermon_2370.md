@@ -1,12 +1,5 @@
 # Sermon 2370 | "Christ First, Me Last--Nothing Between But Love"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 22, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 10, 1888.
-
 "The faith of the Son of God, who loved me, and gave Himself for me," Galatians 2:20.
 
 Paul looks at the matter of salvation from the point of view suggested by Grace. If any man might have said, "The Son of God, whom I have loved, and to whom I have given myself," it would have been the Apostle. On another occasion, speaking of the Lord, he said, "Whose I am, and whom I serve." But here he thinks not of himself, or of what he had been led to do for the Lord, but only of what the Lord had done for him! He dug down to the foundation of salvation--he traced the stream of Grace back to the Fountainhead and, therefore, he spoke of "the Son of God, who loved me, and gave Himself for me."

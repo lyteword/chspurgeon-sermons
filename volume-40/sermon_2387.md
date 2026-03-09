@@ -1,12 +1,5 @@
 # Sermon 2387 | Good Advice For Troublous Times
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 18, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 9, 1888.
-
 "Come, My people, enter your chambers, and shut your doors behind you: hide yourself, as it were, for a little moment, until the indignation is past." Isaiah 26:20.
 
 THE Lord has a very peculiar care for His own people. He is their Shepherd and He feeds them like a flock. He is their Father and He guards them as His own dear children. Whenever times of great trouble come, He thinks especially of them. He drowned the antediluvian world, but not till Noah was safely in the ark. He burned Sodom and Gomorrah, but not till Lot had escaped to the little city called Zoar. In all His judgments He remembers His mercy towards His believing people--He does not suffer them to be destroyed even in the day of the destruction of the ungodly. Child of God, your Father's eyes are lovingly fixed upon you. His heart cares for you every moment. Unhappy are the men and women of whom we cannot say this! Unhappy are you who have never trusted and never loved your God, your Maker, and your best Friend! But thrice happy is the poorest and most tried among us who knows that the Lord is his refuge, his castle and high tower, his Defender and Provider, his God and his All!

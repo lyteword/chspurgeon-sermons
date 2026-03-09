@@ -1,12 +1,5 @@
 # Sermon 2369 | Blood Even on the Golden Altar
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 15, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 6, 1888.
-
 "And the priest shall put some of the blood upon the horns of the altar of sweet incense before the LORD, which is in the Tabernacle of the Congregation." Leviticus 4:7.
 
 ALL through Holy Scripture you constantly meet with the mention of "blood." "Without shedding of blood is no remission." "The blood of Jesus Christ, His Son, cleanses us from all sin." "You were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers, but with the precious blood of Christ." The word, "blood," is recorded over and over again, and if any complain of the preacher that he frequently uses this expression, he makes no kind of apology for it--he would be ashamed of himself if he did not often speak of the blood! The Word of God is as full of references to blood as the body of a man is full of life and blood.

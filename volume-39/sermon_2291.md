@@ -1,12 +1,5 @@
 # Sermon 2291 | "Dare To Be a Daniel"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 15, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But Daniel purposed in his heart that he would not defile himself with the portion of the king's meat, nor with the wine which he drank." Daniel 1:8.
 
 VERY much of our future life will depend upon our earliest days. I like a remark of Mr. Ruskin's that I remember to have read, though I cannot quote it verbatim. He says, "People often say, 'We excuse the thoughtlessness of youth,'" but he says, "No, it never ought to be excused. I had far rather hear of thoughtless old age, when a man has done his work-- but what excuse can be found for a thoughtless youth? The time for thought is at the beginning of life and there is no period which so much demands, or so much necessitates, thoughtfulness as our early days." I would that all young men would think so. They say that they must sow their "wild oats." No, no, my dear young Friend, think before you sow such seed as that, and remember what the reaping will be. See whether there is not better corn to be found than wild oats and try to sow that. Then think how you will sow it and when you will sow it, for, if you do not think about the sowing--

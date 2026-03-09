@@ -1,12 +1,5 @@
 # Sermon 2277 | Sychar's Sinner Saved
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 9 1892.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 13, 1890.
-
 "Jesus answered and said unto her, If you knew the gift of God, and who itis thatsays to you, Give Me to drink; you would have asked of Him, and He would have given you living water." John 4:10.
 
 I COULD not help saying, in the reading, that the woman's answer to our Lord was, at least, somewhat abrupt, if not really rude, but, with great meekness, Jesus took no notice of it so as to blame her for her tone, or for her unkind manner. He was too intent upon saving her soul to care about a little rudeness on her part. Learn a lesson from your Lord's conduct! When you are dealing with souls, do not always expect them to yield to you at once. Do not expect them, even, to receive your expostulations with thankfulness. Be prepared to be repelled and even to be ridiculed. And when it so happens, do not be put out of temper, or out of heart, but go straight on with your work whichever way they may go.

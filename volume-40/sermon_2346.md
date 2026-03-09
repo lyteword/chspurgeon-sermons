@@ -1,12 +1,5 @@
 # Sermon 2346 | Earth's Vanities and Heaven's Verities
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 4, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING NOVEMBER 7, 1889.
-
 "Surely every man walks in a vain show: surely they are disquieted in vain: he heaps up riches and knows not who shall gather them. And now, Lord, what wait I for? My hope is in You. Deliver me from all my transgressions: make me not the reproach of the foolish." Psalm 39:6-8.
 
 These are solemn words. Sometimes we have a more joyful theme than this, but I believe that, spiritually, as well as naturally, it is better to go to the house of mourning than to the house of feasting. A meditation of a quiet kind, on things not as they are in fiction, but as they prove to be in fact, is always salutary. There is a great mass of sorrow in the world and all of us meet with something, every now and then, to calm our spirit and cool our blood. So, tonight, if we think a little of the fleeting character of this world, and of the real world where certainty, alone, is to be found--and if we school ourselves to learn facts and realities, by the blessing of God's Spirit--we may go away even more lastingly refreshed than if our hearts were made to leap for joy by meditation upon some transporting theme.

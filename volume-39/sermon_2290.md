@@ -1,12 +1,5 @@
 # Sermon 2290 | God's Unspeakable Gift
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 8, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Thanks be unto God for His unspeakable Gift." 2 Corinthians 9:15.
 
 IF you will read, at home, the chapter from which our text is taken, you will find that Paul was stirring up the Corinthians to an act of liberality. He had boasted of what they would do, but he had just a little fear that they might fall behind and not quite come up to what he had promised on their behalf. He stirred them up to liberal giving, telling them that they who sowed liberally, should reap liberally, and they who sowed sparingly would reap sparingly. Once upon that theme of giving, the Apostle could not help speaking of another gift. He saw a track just off the main road and he felt that it led him straight away to his God and to his Savior. And so, while the ink was yet flowing in his pen, he began to write about it as though he would say, "I am not thinking now, my Brethren, so much of your gifts as I am of another gift--not so much of your gifts to the Lord's poor people as of the Lord's great Gift to you--His poor people. "Thanks be unto God for His unspeakable Gift."

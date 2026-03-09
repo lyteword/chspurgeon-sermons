@@ -1,12 +1,5 @@
 # Sermon 2279 | Joy Hindering Faith
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 23, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 25, 1890.
-
 "And while they yet believed not for joy, and wondered, He said unto them, Have you here any meat? And they ga ve Him a piece of a broiled fish, and of an honeycomb. And He took it, and did eat before them. And He said unto them, These are the words which I spoke unto you, while I was yet with you, that all things must be fulfilled, which were written in the Law of Moses, and in the Prophets, and in the Psalms, concerning Me. And He opened their understanding, that they might understand the Scriptures." Luke 24:41-45.
 
 THE disciples were gathered together with the doors of the house fast closed, for they were afraid of the Jewish mob. Suddenly HE came, HE who was chief in their thoughts, the Christ whom they had seen dead upon the Cross, whom some of them had helped to bury! There He stood before them and, "they were terrified and frightened." As on a former occasion, on the Sea of Galilee, so now they said, "It is a spirit," and they cried out for fear. The Savior did His best to correct their minds of their mistake. He said to them, "Handle Me, and see, for a spirit has not flesh and bones, as you see I have. And when He had thus spoken, He showed them His hands and His feet." He went as far as He well could go to prove that He was a real Man, composed of real flesh and bones.

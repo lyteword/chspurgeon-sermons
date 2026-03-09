@@ -1,12 +1,5 @@
 # Sermon 2390 | A Royal Funeral
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 9, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 7, 1888.
-
 "And after this, Joseph of Arimathea, being a disciple of Jesus, but secretly, for fear of the Jews, asked Pilate that he might take away the body of Jesus: and Pilate ga ve him leave. He came, therefore, and took the body of Jesus. And there came, also, Nicodemus, which at the first came to Jesus by night, and brought a mixture of myrrh and aloes, about an hundred pounds weight. Then took they the body of Jesus and wound it in linen strips with the spices, as the manner of the Jews is to bury. Nowin theplace where He was crucified there was a garden; and in the garden a new sepulcher, wherein was never man yet laid. There laid they Jesus, therefore, because of the Jews'preparation day; for the sepulcher was near at hand." John 19:38-42.
 
 LET US go to this grave, but not to weep there--no, not to shed so much as a single tear! The stone is rolled away, our Lord's precious body is not there, for Christ has risen from the dead! It may be that, like Mary at the sepulcher, we shall see a vision of angels, but if not, we may behold a company of comforting Truths of God which still linger about the empty tomb of our ascended Lord!

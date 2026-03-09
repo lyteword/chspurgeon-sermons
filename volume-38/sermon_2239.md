@@ -1,12 +1,5 @@
 # Sermon 2239 | "Is God In the Camp?"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 17, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 9, 1891.
-
 "And the Philistines were afraid, for they said, God is come into the camp. And they said, Woe unto us! For there has not been such a thing before" 1 Samuel 4:7.
 
 ISRAEL was out of gear with God. The people had forgotten the Most High and had gone aside to the worship of Baal. They had neglected the things of God and, therefore, they were given up to their enemies. When Jehovah had brought them out of Egypt, He instructed them how they were to live in the land to which He would bring them, and warned them that if they forsook Him, they would be chastened. His words were very plain--"If you will not, for all this, hearken unto Me, but walk contrary unto Me; then I will walk contrary unto you also in fury; and I, even I, will chastise you seven times for your sins." In fulfillment of this threat, the Philistines had been Divinely permitted to make great havoc of the idolatrous Israelites and to hold them in cruel slavery.

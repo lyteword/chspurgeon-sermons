@@ -1,12 +1,5 @@
 # Sermon 2258 | Where Is the Lord?
 
-
-NTENDED FOR READING ON LORD'S-DAY, MAY 29, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 4, 1890.
-
 "Then he remembered the days of old, Moses, and his people, saying, Where is He that brought them up out of the sea with the shepherd of His flock? Where is He that put His holy Spirit within him? That led them by the right hand of Moses with His glorious arm, dividing the water before them, to make Himself an everlasting name? That led them through the deep, as an horse in the wilderness, that they should not stumble? As a beast goes down into the valley, the Spirit of the Lord caused him to rest: so did You lead Your people, to make Yourself a glorious name." Isaiah 63:11-14.
 
 I told you, in the reading, that Israel had a golden age, a time of great familiarity with God, when Jehovah was very near to His people in their sufferings and was afflicted in their affliction--when He helped them in everything they did and the Angel of His Presence saved them. But after all that the Lord had done for them, there came a cold period. The people went astray from the one living and true God. They fell into the ritualism of the golden calf. They must have something visible, something that they could see and worship. Even after they were brought into the Promised Land and the Lord had worked great wonders for them, they turned aside to false gods till they worshipped strange deities that were no gods and provoked Jehovah to jealousy. "They rebelled and vexed His Holy Spirit: therefore He was turned to be their enemy and He fought against them." Not that He ceased to love His chosen, but He must be just and He could not patronize sin--so He sent their enemies against them and they were sorely smitten, and brought very low. Then it was that they began to remember the days of old and to sigh for Him whom they had treated so evilly. And they said, one to another, "Where is He that brought them up out of the sea with the shepherd of His flock? Where is He that put His holy Spirit within him? That led them by the right hand of Moses with His glorious arm, dividing the water before them, to make Himself an everlasting name? That led them through the deep, as an horse in the wilderness, that they should not stumble? As a beast goes down into the valley, the Spirit of the Lord caused him to rest: so did You lead Your people to make Yourself a glorious name."

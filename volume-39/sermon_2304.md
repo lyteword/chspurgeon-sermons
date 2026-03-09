@@ -1,12 +1,5 @@
 # Sermon 2304 | Blinded By Satan
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 16, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 31, 1889.
-
 "The god of this world has blinded the minds of them which believe not." 2 Corinthians 4:4.
 
 THE practice of blinding men is a horrible process, too horrible for us to say another word about it, but there is also a spiritual blindness which comes upon some men. These are, to begin with, unbelievers. The god of this world does not blind Believers--but he blinds the minds of them which believe not. It is, therefore, a very dangerous thing not to believe on the Son of God. The penalty of unbelief is death and condemnation--and that penalty begins to fall on men when, in consequence of their unbelief, their foolish heart is darkened, their intellect loses the power to perceive spiritual ob-jects--and the god of this world blinds their mental vision. Ah, my Hearers, how anxious Satan is to secure your destruction, since, rather than that you should see the saving Light of God, he takes the trouble to blind your eyes! God grant that no man here may die under this dreadful deprivation of Light which is caused by Satanic influence upon the minds of men who have not believed in Jesus!

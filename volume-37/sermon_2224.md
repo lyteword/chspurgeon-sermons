@@ -1,12 +1,5 @@
 # Sermon 2224 | "If You Can"--"If You Can"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 4, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN, NEWINGTON.
-
 "If You can do anything, have compassion on us, and help us. Jesus said unto him, If you can believe, all things are possible to him that believes." Mark 9:22,23.
 
 WE are all familiar with the story of this youth who was possessed by a dumb spirit which caused him to fall into violent fits of epilepsy and worked worse evils, casting him, at times, into the waters and into the fire to destroy him. The father intended to bring his child to Jesus, of whom he had heard so much, but our Lord, being absent, he made his application to the disciples. They failed to effect a cure but, by-and-by, the Master came from the mountaintop and then the father addressed himself to the Lord. I shall need you to notice some lessons from this story before I come to the text.

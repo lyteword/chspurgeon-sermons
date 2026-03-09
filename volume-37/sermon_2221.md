@@ -1,12 +1,5 @@
 # Sermon 2221 | The First, Last--And the Last, First
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 13, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 12, 1891.
-
 "But many who are first will be last, and the last, first." Matthew 19:30.
 
 "So the last will be first, and the first, last." Matthew20:16.

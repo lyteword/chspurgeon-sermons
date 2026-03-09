@@ -1,12 +1,5 @@
 # Sermon 2312 | Achsah's Asking--a Pattern of Prayer
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 11, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 2, 1889.
-
 "And Caleb said, He that smites Kirjathsepher, and takes it, to him will I give Achsah, my daughter, to wife. And Othniel the son of Kenaz, Caleb's younger brother, took it: and he gave him Achsah, his daughter, to wife. And it came to pass, when she came to him, that she moved him to ask of her father a field: and she lighted from off her ass; and Caleb said unto her, What wiil you? And she said unto him, Give me a blessing: for you ha ve given me a south land; give me also springs of water. And Caleb ga ve her the upper springs and the lower springs." Judges 1:12-15.
 
 IN domestic life we often meet with pictures of life in the House of God. I am sure that we are allowed to find them there, for our Savior said, "If you, then, being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask Him?" God is a Father and He likens Himself to us as fathers. And we who are Believers are God's children and we are permitted to liken ourselves to our own children--and just as our children would deal with us and we would deal with them--so may we deal with God and expect God to deal with us! This little story of a daughter and her father is recorded twice in the Bible. You will find it in the 15th chapter of the Book of Joshua, as well as in this first chapter of the Book of Judges. It is not inserted twice without good reasons. I am going to use it, tonight, simply in this manner--the way in which this woman went to her father, and the way in which her father treated her. May it teach us how to go to our Father who is in Heaven--and what to expect if we go to Him in that fashion.

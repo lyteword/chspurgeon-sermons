@@ -1,12 +1,5 @@
 # Sermon 2272 | Longing To Find God
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 4, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 14, 1890.
-
 "Oh, that I knew where I might find Him!" Job 23:3.
 
 Oh, that I knew where I might find Him!" Observe that Job is so taken up with his one great desire that he forgets that everybody else is not thinking in the same way--and he uses a pronoun, though he has not before uttered the name of God. The man is carried away with his desire. He does not say, "Oh, that I knew where I might find God!" but, "where I might find Elm'" An overwhelming passion will often speak like that. See how the Song of Songs, that sweet canticle of love, begins, "Let Him kiss me with the kisses of His mouth for Your love is better than wine." There is no mention of any person's name. We forget many things when we are taken up with one thing. We forget that, as Madame Guyon wrote--

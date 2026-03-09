@@ -1,12 +1,5 @@
 # Sermon 2199 | Israel's Hope--Or, The Center of the Target
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let Israel hope in the Lord: for with the Lord there is mercy, and with Him is plenteous redemption." Psalm 130:7.
 
 When he penned this Psalm, the writer, David, was in deep distress, if not of circumstances, yet of conscience. He constantly mentions iniquities and begs forgiveness. He felt like a shipwrecked mariner, carried overboard into the raging sea. Thus he reviews the situation--"Out of the depths have I cried unto You, O Lord." Yet he lived to tell the tale of deliverance! His prayer from among the waves was a memory worth preserving and he preserves it. The mercy of God to him he weaves into a song for us--and in this our text is found.

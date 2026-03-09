@@ -1,12 +1,5 @@
 # Sermon 2379 | A Discourse to the Despairing
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 23, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 15, 1888.
-
 "Now when Jacob saw that there was corn in Egypt, Jacob said to his sons, Why do you look, one upon another? And he said, Behold, I have heard that there is corn in Egypt: get down there, and buy for us there; that we may live, and not die." Genesis 42:1,2.
 
 JACOB had reached an age in which natural vigor had gone out of him. He was getting very old and was worn and weary, yet here he seems to lead the way in providing for his family. It was he who spoke to the younger men, his sons, and urged them to go down into Egypt to buy food. Jacob was of a timorous disposition in his latter days--he had an old man's fear of that which is high and the grasshopper had become a burden to him--yet he proposed to his sons that they should make a venturesome journey into Egypt! It was a great undertaking for them, for they were stay-at-homes, and not travelers. They were shepherds, whose time was occupied in looking after the welfare of their flocks, and not in roaming over foreign countries. They thought it would be a burdensome responsibility and a perilous risk to cross the desert and go down into Egypt, yet Jacob proposed this to them as the only way of escape from famine and death. Here is an instance in which an aged father woke up his sons to action by telling them good news and by chiding them because of their despairing looks and words.

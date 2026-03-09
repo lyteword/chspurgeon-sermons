@@ -1,12 +1,5 @@
 # Sermon 2317 | Obeying Christ's Orders
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 16, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 13, 1889.
-
 "His mother said unto the servants, Whatever He says unto you, do it." John 2:5.
 
 IT does not need a strong imagination to picture Mary, probably at that time the widowed mother of our Lord. She is full of love and of a naturally kind, sympathetic disposition. She is at a marriage and she is very pleased that her Son is there, with the first handful of His disciples. Their being there has made a greater demand upon the provisions than was expected and the supply is running short, so she, with an anxiety that was natural to such a mother of her years, and of her gentle spirit, thinks that she will speak to her Son and tell Him that there is a need. So she says to Him, "They have no wine."

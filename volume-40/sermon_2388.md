@@ -1,12 +1,5 @@
 # Sermon 2388 | Once Dead, Now Alive
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 25, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 30, 1888.
-
 "And you has He quickened, who were dead in trespasses and sins." Ephesians 2:1.
 
 I PREACHED to you, this morning, [Sermon #2046, Volume 34--Consolation from Resurrection] the Doctrine of the Resurrection of the Dead and its various bearings. But unless you have experienced spiritual resurrection, you do not understand that doctrine and you cannot grasp its meaning. Spiritual resurrection may be understood in theory, but it cannot be really comprehended until we, ourselves, have been raised out of spiritual death. Always remember that in the things of God, knowledge is only to be gained by personal experience. If you would understand regeneration, you must be born again. If you would understand faith, simple as it is, you must, yourselves, believe.

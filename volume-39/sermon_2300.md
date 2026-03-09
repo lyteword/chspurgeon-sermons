@@ -1,12 +1,5 @@
 # Sermon 2300 | The Whole Gospel In A Single Verse
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 19, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 28, 1889.
-
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners, of whom I am chief." 1 Timothy 1:15.
 
 I SPOKE, yesterday, with a brother minister who had been a pastor in America, and I asked him why he was so anxious to go back again where the climate had so greatly tried him. He answered, "I love the people to whom I preach." "What sort of people are they?" I enquired. "Well," he replied, "they are a people who come together anxious to get good. They do not try to find fault with me, but they seek to get all the good they can out of the Gospel I preach." "Well," I said, "it is worth while crossing the ocean to go to a congregation of that sort of people." You know, dear Friends, how it is with some people, as it was with one friend to whom I spoke last Tuesday. God had blessed the Word to his soul and he was converted, but he had been hearing me some time before and I said to him, "How was it, do you think, that during those other years that you came here, you did not find the Savior?" "Oh, Sir!" he answered, "I am afraid it was because I came to hear you, and when I had been here and heard you, I was quite satisfied. But when God taught me to come here to look for Christ, and to seek eternal life, then I obtained the blessing." Now, will you who are here, tonight, especially you who are not saved, try to hear me in that fashion, not noticing how I preach, because I do not care much about that, myself--and you need to care about it far less--but only to think what good can be got out of it? Let each hearer ask himself, "Is there anything of saving benefit to my soul in what the preacher will say tonight?"

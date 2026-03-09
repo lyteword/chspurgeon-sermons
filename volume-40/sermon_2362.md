@@ -1,12 +1,5 @@
 # Sermon 2362 | The King and His Court
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 27, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 11, 1888.
-
 "My eyes shall be upon the faithful of the land, that they may dwell with me: he that walks in a perfect way, he shall serve me." Psalm 101:6.
 
 DAVID is going to be king and these are the resolutions that he makes before he ascends the throne. He meant that he would look for the best men in the nation and that he would take care of them. He would give them offices about his court so that he might have his work done well --that his people might be judged by wise and righteous men--and all the affairs of state should be managed by those who were faithful to God. This was a very proper thing for him to do. I wish that those who are not kings, but who are placed in any position of influence, would have their eyes upon the faithful of the land. Good men should patronize good men. Those who have it in their power, should, to the utmost of their ability, advance those whom they know to be upright and true and gracious men. But, my dear Friends, we are not going to talk about David, now, but about the Son of David, "great David's greater Son," the King of Kings and Lord of Lords! There is no doubt that in His Kingdom His eyes are upon the faithful. He looks upon the faithful among His people. He takes them into communion with Himself and He uses them as His servants in conspicuous and remarkable ways--"My eyes shall be upon the faithful of the land, that they may dwell with Me: he that walks in a perfect way, he shall serve Me."

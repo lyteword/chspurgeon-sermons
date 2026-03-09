@@ -1,12 +1,5 @@
 # Sermon 2367 | God's Hidden Ones
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 1, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 8, 1888.
-
 "Your hidden ones." Psalm 83:3.
 
 IT was the desire of Asaph to obtain for his nation help from God. Israel was exposed to great danger--ten confederate nations had conspired, with desperate hate, to assail the chosen people. They were determined to root out the very name of Israel from among the nations! They joined together in a wicked league for this purpose and they came from all quarters--north, south, east and west--in order to utterly devour the little insignificant people whom God had called His own. It was the Psalmist's desire to bring God into this quarrel, to stir Him up to take the part of Israel and he, therefore cried, "Keep not Your silence, O God: hold not Your peace, and be not still, O God. For, lo, Your enemies make a tumult: and they that hate You have lifted up the head. They have taken crafty counsel against Your people, and consulted against Your hidden ones."

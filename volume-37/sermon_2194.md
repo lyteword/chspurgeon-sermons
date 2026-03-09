@@ -1,12 +1,5 @@
 # Sermon 2194 | Between the Two Appearings
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 15, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now once in the end of the world has He appeared to put away sin by the sacrifice of Himself. And as it is appointed unto men once to die, but after this the judgment: so Christ was once offered to bear the sins of many; and unto them that look for Him shall He appear the second time without sin unto salvation." Hebrews 9:26-28.
 
 The two great links between earth and Heaven are the two advents of our Lord, or, rather, He is the great bond of union, by these two appearings. When the world had revolted and God had been defied by His own creatures, a great gulf was opened between God and man. The First Coming of Christ was like a bridge which crossed the chasm and made a way of access from God to man--and then, from man to God. Our Lord's Second Advent will make that bridge far broader, until Heaven shall come down to earth and, ultimately, earth shall go up to Heaven. At these two points a sinful world is drawn into closest contact with a gracious God. Jesus herein is seen as opening the door which none can shut, by means of which the Lord is beheld as truly Emmanuel, "God with us."

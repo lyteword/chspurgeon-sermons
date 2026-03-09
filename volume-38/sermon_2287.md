@@ -1,12 +1,5 @@
 # Sermon 2287 | "If There Is No Resurrection"
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 18, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 20, 1890.
-
 "Now if Christ is preached that He rose from the dead, how say some among you that there is no resurrection of the dead? But if there is no resurrection of the dead, then is Christ not risen: and if Christ is not risen, then is our preaching in vain, and your faith is also in vain. Yes, and we are found false witnesses of God; because we have testified of God that He raised up Christ: whom He raised not up, if it is so that the dead rise not. For if the dead rise not then is not Christ raised: and if Christ is not raised, your faith is in vain; you are yet in your sins. Then they also which are fallen asleep in Christ are perished. If in this life only we have hope in Christ, we are of all men most miserable." 1 Corinthians 15:12-19.
 
 OUR religion is not based upon opinions, but upon facts. We hear persons sometimes saying, "Those are your views, and these are ours." Whatever your "views" may be, is a small matter--what are the facts of the case? We must, after all, if we want a firm foundation, come down to matters of fact. Now, the great facts of the Gospel are that God was Incarnate in Christ Jesus, that He lived, here, a life of holiness and love, that He died upon the Cross for our sins, that He was buried in the tomb of Joseph, that the third day He rose, again, from the dead, that after a while He ascended to His Father's Throne where He now sits--and that He shall come, by-and-by, to be our Judge--and in that day the dead in Christ shall rise by virtue of their union with Him.

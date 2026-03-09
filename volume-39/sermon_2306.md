@@ -1,12 +1,5 @@
 # Sermon 2306 | Servitude Or Service--Which?
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 30, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 14, 1889.
-
 "Nevertheless they shall be his servants; that they may know My service, and the service of the kingdoms of the countries." 2 Chronicles 12:8.
 
 THE people of God had left their God and He had left them, so that Shishak, the king of Egypt, came against them, and though the Lord had respect to their humble prayer and would not suffer Shishak to destroy Jerusalem, yet He brought them into subjection to the Egyptian king. Our text tells us the reason for this servitude--"They shall be his servants; that they may know My service, and the service of the kingdoms of the countries."

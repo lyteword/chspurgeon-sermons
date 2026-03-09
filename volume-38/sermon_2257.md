@@ -1,12 +1,5 @@
 # Sermon 2257 | Inexcusable Irreverence and Ingratitude
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 22, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 13, 1890.
-
 "They are without excuse: because that, when they knew God, they glorified Him not as God, neither were thankful." Romans 1:20,21.
 
 THIS first chapter of the Epistle to the Romans is a dreadful portion of the Word of God. I should hardly like to read it all through aloud--it is not intended to be so used. Read it at home and be startled at the awful vices of the Gentile world. Unmentionable crimes were the common pleasures of those wicked ages! But the chapter is also a striking picture of heathenism at the present time. After a missionary had gone into a certain part of India and had given away New Testaments, a Hindu waited upon him and asked him this question--"Did you not write that first chapter in the Epistle to the Romans after you came here?" "No," replied the missionary, "I did not write it at all. It has been there nearly two thousand years." The Hindu said, "Well, if it has not been written since you came here, all I can say is, that it might have been so written, for it is a fearfully true description of the sin of India."

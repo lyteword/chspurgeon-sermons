@@ -1,12 +1,5 @@
 # Sermon 2285 | Paul, the Ready
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 4, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY, EVENING, MAY 22, 1890.
-
 "I am ready." Romans 1:15.
 
 I THINK Paul might have used these words as his motto. We had once a Saxon king called Ethelred the Unready. Here we have an Apostle who might be called Paul the Ready. The Lord Jesus no sooner called to him out of Heaven, "Saul, Saul, why do you persecute Me?" than he answered, "Who are You, Lord? " Almost directly after, his question was, "Lord, what will You have me to do?" He was no sooner converted than he was ready for holy service and, "straightway, he preached Christ" in the synagogues at Damascus. All through his life, whatever happened to him, he was always ready. If he had to speak to crowds in the street, he had the fitting word, or if to the elite upon Mars' Hill, he was ready for the philosophers. If he talked to the Pharisees, he knew how to address them and when he was brought before the Sanhedrim, and perceived the Pharisaic and Sadducean elements in it, he knew how to avail himself of their mutual jealousies to help his own escape.

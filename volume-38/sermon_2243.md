@@ -1,12 +1,5 @@
 # Sermon 2243 | His Own Funeral Sermon*
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 14, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 19, 1890.
-
 "For David, after he had served his own generation by the will of God, fell on sleep." Acts 13:36.
 
 *This sermon was preached on the Lord's-Day evening after Mr. William Olney "fell on sleep." Long before the beloved preacher was "called Home," it was selected for publication this week. Mrs. Spurgeon feels that her dear husband could not have delivered a more suitable discourse for "his own funeral sermon." She has, therefore, given it that title in the hope that many will be blessed by the message which "he, being dead, yet speaks." Believing that many friends will wish to have this sermon for widespread circulation, the publishers will, at once, issue it, in book form. Price one penny.

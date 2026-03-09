@@ -1,12 +1,5 @@
 # Sermon 2274 | God's People Melted and Tried
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 18, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 19, 1891.
-
 "Therefore thus says the LORD of Hosts, Behold, I will melt them, and try them; for how shall I deal with the daughter of My people?" Jeremiah 9:7.
 
 OBSERVE, here, that God represents Himself as greatly concerned to know what to do with His people. Of course, He speaks after the manner of men, for, as the infinitely wise God, knowing all things from the beginning, Jehovah knew what He would do. But yet, in order that we may understand something of the workings of the Divine mind, He represents Himself as brought to a non-plus and saying, in the words of our text, "How shall I deal with the daughter of My people?" There are some men and women in the world who seem to greatly perplex those who love them and who desire their welfare. They are a great perplexity to those with whom they live and who labor for their good--and it seems as if God, Himself, regarded it as a matter of perplexity when He said, "How shall I deal with the daughter of My people?"

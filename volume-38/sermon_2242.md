@@ -1,12 +1,5 @@
 # Sermon 2242 | God's Will About the Future
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 16, 1890.
-
 "Come now, you that say, today or tomorrow we will go into such a city, and continue there a year, and buy and sell, and get gain: whereas you know not what shall be on the morrow. For what is your life? It is even a vapor, that appears for a little time, and then vanishes away. For that you ought to say, If the Lord wills, we shall live, and do this or that. But now you rejoice in your boasting: all such rejoicing is evil. Therefore to him that knows to do good, and does it not, to him it is sin." James 4:13-17
 
 ["It is remarkable that the sermon selected for this week should be so peculiarly suitable for the present trying time. It ought to be read with special solemnity. Oh, that it may be the means of leading many to make the great preparation for the future which only Believers in the Lord Jesus Christ have made!"--Words noted at the bottom of page one

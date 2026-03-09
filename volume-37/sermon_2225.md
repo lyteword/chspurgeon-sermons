@@ -1,12 +1,5 @@
 # Sermon 2225 | A Clarion Call to Saints and Sinners
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 11, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 2, 1891.
-
 "Arise you, and depart; for this is not your rest: because it is polluted, it shall destroy you, even with a sore destruction." Micah 2:10.
 
 THERE is a miserable tendency in men to cling to things that are seen. Though that which we behold is only temporal and shadowy, lacking any true substance or permanence--though the things round about us can only endure for a little while and then will vanish away--yet we give our hearts to them and are ensnared by their false glitter and glamour. Like the poor birds that light on birdlime and cannot get away, we are entangled by the things of time and sense, instead of rising, as on eagle wings, to a higher sphere. Forgetting that the soul of man cannot be satisfied with the poor baubles of earth, nor his yearning heart filled with the fleeting joys of time, we often put away from us the things that are unseen and eternal. One of the most necessary words for us to hear at such a time is this, "Arise you, and depart; for this is not your rest."

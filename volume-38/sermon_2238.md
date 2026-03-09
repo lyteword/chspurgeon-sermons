@@ -1,12 +1,5 @@
 # Sermon 2238 | "You Are Now the Blessed of the Lord"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 10, 1892,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 3, 1891.
-
 "You are now the blessed of the Lord." Genesis 26:29.
 
 THESE words truly describe the position of many whom I address at this time. There are hundreds here upon whom my eyes can rest and to any one of whom I might point with this finger, or rather, to whom I might extend this hand, to give a hearty shake, and say, "You are now the blessed of the Lord." I need not say it in the same spirit, nor for the same reason that the Philistines did. They had behaved basely towards Isaac and now that he had prospered, they urged him to forget the past. They meant, "This is why we trust that you will deal kindly with us and overlook our harsh conduct, for, in spite of all, God has so blessed you that you need not be fretful and pettish and remember what we have done." I am glad that I am under no necessity to strive to make up a quarrel in this way! These many years we have dwelt in peace and have enjoyed sweet fellowship together. You have often borne with my weaknesses and bestowed upon me a wealth of affection which I am sure I do not deserve. So, though I use the language of Abimelech and his friends, my motive is a very different one! Yet the truth is the same concerning many a one here--"You are now the blessed of the Lord."

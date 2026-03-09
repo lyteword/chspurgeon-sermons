@@ -1,12 +1,5 @@
 # Sermon 2271 | Alone, Yet Not Alone
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 28, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 2, 1900.
-
 "Jesus answered them, Do you now believe? Behold, the hour comes, yes, is now come, that you shall be scattered, every man to his own, and shall leave Me alone: and yet I am not alone, because the Father is with Me." John 16:31,32.
 
 OUR Lord looks for faith as the result of His teaching and I think that I hear Him say, at the end of every service, "Do you now believe? You have listened. You have made remarks about the speaker--do you now believe? You have been made to feel, you have brushed the tears away, but do you now believe? For anything short of believing leaves you short of salvation." I would like to put the question of my text to every hearer in this great house tonight. You have listened, now, to years of sermons--"Do you now believe?" You are getting gray. The Gospel is very familiar to you--you have heard it preached for many, many years--but, "do you now believe?" This is the crucial point. According to your answer truthfully given to this question, you may decide as to your condition before God, "Do you now believe?"

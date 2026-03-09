@@ -1,12 +1,5 @@
 # Sermon 2227 | Wanted!--Volunteers
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 25, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 22, 1891.
-
 "And next to him was Amasiah the Son of Zichri, who willingly offered himself to the Lord; and with him two hundred thousand mighty men of valor." 2 Chronicles 17:16.
 
 IT was a great thing for King Jehoshaphat to have such a pious lord-lieutenant, one who could command an army and, at the same time, obey the commands of God. Christian men ought greatly to value Christian servants, especially if such persons are employed in positions of trust. If we can have godly men to occupy our offices and transact our business, we should be very grateful and do our best to encourage and cheer them. It is true that sometimes those who make the loudest profession of religion are the least trustworthy, but that very fact shows that there is something in the religion they falsely profess, which, if really laid hold of, makes a man more upright and reliable. Otherwise why should it be counterfeited? The larger the responsibility, the more necessary it is to have men who can be depended upon to manage the business. It was for the great benefit of Jehoshaphat, as king, that he should have a godly captain over so large a part of his army as 200,000 mighty men of valor.

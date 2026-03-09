@@ -1,12 +1,5 @@
 # Sermon 2251 | Our Compassionate High Priest
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 10, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 3, 1890.
-
 "We can have compassion on the ignorant, and on them that are out of the way; for he, himself is also compassed with infirmity." Hebrews 5:2.
 
 THE High Priest looked Godward and, therefore, he had need to be holy, for he had to deal with things pertaining to God. But at the same time he looked manward--it was for men that he was ordained--that, through him, they might deal with God and, therefore, he had need to be tender. It was necessary that he should be one who could have sympathy with men, otherwise, even if he could succeed Godward, he would fail to be a link between God and man from lack of tenderness and sympathy with those whom he sought to bring near to Jehovah.

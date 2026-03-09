@@ -1,12 +1,5 @@
 # Sermon 2261 | One Worker Preparing For Another
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 19, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 14, 1890.
-
 "Now behold, in my trouble I have prepared for the House of the LORD an hundred thousand talents of gold, and a thousand talents of silver; and of brass andiron without weight: for it is in abundance: timber also and stone ha ve I prepared; and you may add thereto." 1 Chronicles 22:14.
 
 [This sermon is intended for reading on the first anniversary of the beloved preacher's birthday since his death. While he was with us, he always looked for special contributions for the Stockwell Orphanage at this season. He did not seek birthday presents for himself, but he desired that all friends who wished to show their love to him would do so by helping to maintain his fatherless family of 500 children. We trust that no one will allow this useful institution to suffer because his voice can no longer plead for it, but that through this sermon each reader will hear him saying, "Dear Friend, the Orphanage still needs your loving and generous assistance. You have often helped it by your gifts in the past and you may add hereto--or if you have not given to it, others have--and you may add thereto." Contributions will be gratefully received by the Treasurer, Spurgeon's Orphan Home, Stockwell Orphanage, Chapman Road, London. Collecting-cards and boxes may be obtained from the Secretary. The Annual Festival will be held on Wednesday afternoon and evening, June 22n. All friends are invited to be present. --Postscript at bottom offirst page of this sermon.]

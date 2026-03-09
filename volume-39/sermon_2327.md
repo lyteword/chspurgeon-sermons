@@ -1,12 +1,5 @@
 # Sermon 2327 | The Whole Machinery of Salvation
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 24, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 18, 1889.
-
 "How then shall they call on Him in whom they ha ve not believed? And ho w shall they believe in Him of whom they ha ve not heard? And how shall they hear without a preacher? And how shall they preach, except they are sent? As it is written, How beautiful are the feet of them that preach the Gospel of peace, and bring glad tidings of good things!" Romans 10:14,15.
 
 PLEASE notice, dear Friends, that in the 13th verse we have the way of salvation set before us in the plainest terms-- "Whoever shall call upon the name of the Lord shall be saved." I remember well when I lived on that verse for many months. I longed for salvation. I could not see that there was any way of hope for me. I thought that I must be left out, that I was too sinful, or too hard, or too something or other, so that others might be saved, but I could not be. But when I read this verse, I did what I ask you to do, I caught at it--it seemed like a life-line thrown to a sinking man! I clung to it and it became a life buoy to me--"Whoever shall call upon the name of the Lord shall be saved." "Ah," I thought, "I do call on that blessed name. I will call on that glorious name! If I perish, I will never cease to invoke that sacred name." An invocation of the name of God, a trusting in God and a consequent calling upon God and acknowledgment of God-- this it is that saves the soul!

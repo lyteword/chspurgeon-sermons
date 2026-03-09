@@ -1,12 +1,5 @@
 # Sermon 2301 | Marah Better Than Elim
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 26, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 4, 1889.
-
 "So Moses brought Israel from the Red Sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water. And when they came to Marah, they could not drink of the waters of Marah, for they were bitter: therefore the name of it was called Marah. And the people murmured against Moses, saying, What shall we drink? And he cried unto the LORD; and the LORD showed him a tree, which when he had cast into the waters, the waters were made sweet: there He made for them a statute and an ordinance, and there He proved them, and said, If you will diligently hearken to the voice of the LORD your God, and will do that which is right in His sight, and will give ear to His commandments, and keep all His statutes, I will put none of these diseases upon you, which I have brought upon the Egyptians: for I am the LORD that heals you." Exodus 15:22-26.
 
 AFTER I had fallen down at Mentone, and was grievously ill, a Brother in Christ called to me and said, "My dear Friend, you have now come to Marah." I replied, "Yes, and the waters are bitter." He then said, "But Marah is better than Elim, for in Elim the Israelites only drank of the water and ate of the fruit of the palm trees, and that was soon over. But at Marah we read that God, 'made for them a statute and an ordinance,' and that was never over. That statute and ordinance stood fast and will stand fast for Israel as long as they are a nation. There is much more benefit to be reaped from Marah than from Elim." I thanked my friend for that good word. I had found it true before. I have found it true since then and you and I, if we are, indeed, the people of God, will find it true to the end, that Marah, though it is bitter, is also better. And albeit that we do not like it, yet in the end there shall be no bitterness in it, but an unutterable sweetness which shall be ours through time and eternity!

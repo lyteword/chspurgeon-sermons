@@ -1,12 +1,5 @@
 # Sermon 2343 | Faint--but Not Faint-Hearted
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 14, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, OCTOBER 17, 1889.
-
 "Faint, yet pursuing." Judges 8:4.
 
 THESE three hundred men, though faint, were not faint-hearted. If they had been cowards, they would have left Gideon when he made the proclamation, "Whoever is fearful and afraid, let him return and depart early from Mount Gilead." Twenty-two thousand accepted that permission and left their general with ten thousand. Out of that smaller company, which was yet too large, these 300 had been selected as the men that lapped. While others unloosed their helmets and lay prone upon the grass to take a luxurious drink, these men acted like a hasty dog who, running by the side of a stream, laps and runs, and laps and runs--and wastes no time in drinking. They were men who had given themselves wholly up to this holy war and who were determined to smite these foes of God and His people--and yet they were faint. They were not faint because they were dispirited, for they had just won a great victory. They had broken the pitchers, unveiled the lamps, blown the trumpets and had shouted, "The sword of the Lord and of Gideon," and they had seen the vast host of Midian melt away before their eyes! They had plunged with fervor into the battle, chasing the flying foe and laying tens of thousands dead at their feet. Every man among them was a hero--and yet they were faint.

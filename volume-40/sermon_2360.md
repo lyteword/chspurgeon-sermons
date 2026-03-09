@@ -1,12 +1,5 @@
 # Sermon 2360 | Come, My Beloved!
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MAY 13, 1984.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 4, 1888.
-
 "Make haste, my Beloved, and be like a roe or a young hart upon the mountains of spices." Song of Solomon 8:14.
 
 THE Song of Songs describes the love of Jesus Christ to His people and it ends with an intense desire on the part of the Church that the Lord Jesus should come back to her. The last word of the lover to the Beloved One is, "Speed Your return; make haste and come back." Is it not somewhat singular that, as the last verse of the Book of Love has this note in it, so the last verses of the whole Book of God, which I may also call the Book of Love, have that same thought in them? At the 20th verse of the last chapter of the Revelation, we read, "He which testifies these things says, Surely I come quickly. Amen. Even so, come, Lord Jesus." The Song of Love and the Book of Love end in almost the same way--with a strong desire for Christ's speedy return.

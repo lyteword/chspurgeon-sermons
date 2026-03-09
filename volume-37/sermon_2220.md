@@ -1,12 +1,5 @@
 # Sermon 2220 | Three Decisive Steps
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 6, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 8, 1891.
-
 "Audit came to pass, while the ark abode in Kirjath Jearim, that the time was long; for it was twenty years. And all the house of Israel lamented after the Lord. And Samuel spoke to all the house of Israel, saying, If you return to the Lord with all your hearts, then put away the strange gods and Ashtaroth from amongyou, andprepare your hearts for the Lord, and serve Him only: and He will deliver you out of the hands of the Philistines. Then the children of Israel put away Baalim and Ashtaroth, and served the Lord only. And Samuel said, Gather all Israel to Mizpeh, and I will pray to the Lord for you." 1 Samuel 7:2-5.
 
 Two enemies held Israel in subjection. The Philistines had fought against them and defeated them, even though they sent to Shiloh and brought the Ark of the Covenant, the symbol of Jehovah's Presence, into their camp. The Lord was not with them, so they were smitten with a great slaughter. The crowning disaster of the day was "the Ark of God was taken." The Philistines carried it away to Ashdod and set it in the house of Dagon, their idol. You remember how God, jealous for His honor and Glory, worked mighty wonders, causing Dagon to fall and inflicting punishment on every city where the ark came, until, at last, the Philistines, wearied with their trials, sent the Ark back to the people on whose behalf Jehovah had shown Himself so strong. Twenty years the Ark abode at Kirjath Jearim and, during all that time, Israel was under the hand of the Philistines.

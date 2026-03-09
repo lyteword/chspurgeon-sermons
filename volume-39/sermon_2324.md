@@ -1,12 +1,5 @@
 # Sermon 2324 | The Followers of the Lamb
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 4, 1889.
-
 "These are they which follow the Lamb wherever He goes. These were redeemed from among men, being the first fruits unto God and to the Lamb. And in their mouth was found no guile: for they are without fault before the Throne of God." Revelation 14:4,5.
 
 WHATEVER the saints are in Heaven, they began to be on earth. There is, no doubt, a perfection of character in the world to come, but the character must be formed here. In the next world there will be no real change--where the tree falls, there it will lie. He that is filthy will be filthy, still. He that is holy will be holy, still. I am going to talk to you, tonight, about those who surround the Lamb and are with Him in the blaze of His Glory, singing to His honor. I say that what they are in Heaven they were, in a measure, on earth. The life of Glory is the life of Grace. That life which men have in Heaven comes to them in regeneration on earth. When they are born again, they are born for Heaven--then it is that they receive the life which lives on throughout the eternal ages. If you do not have that life, here, you will never have it. If you die dead in sin, there is nothing for you, forever, but the abode of the dead, "where their worm dies not and their fire is not quenched." Today is the only time which we have for forming our character. Earth is the great place for making instruments of music--here they are tuned and prepared. Up there, they play them! But they will never play them, there, unless they have had them made and tuned here.

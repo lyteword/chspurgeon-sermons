@@ -1,12 +1,5 @@
 # Sermon 2212 | The Private Thoughts and Words of Jesus
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 12, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 26, 1891
-
 "And Jesus, going up to Jerusalem, took the twelve disciples apart in the way, and said unto them, Behold, we go up to Jerusalem; and the Son of Man shall be betrayed unto the chief priests and unto the scribes, and they shall condemn Him to death, and shall deliver Him to the Gentiles to mock, and to scourge, and to crucify Him: and the third day He shall rise again." Matthew 20:17-19.
 
 You have this same story in Matthew, Mark and Luke, a little differently told, as would naturally be the case when the information came from three different observers. It will be to our edification to put the three accounts together, so as to get a complete view of the incident, for each Evangelist mentions something omitted by the others.

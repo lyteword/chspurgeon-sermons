@@ -1,12 +1,5 @@
 # Sermon 2276 | Forgiveness, Freedom, Favor
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 2 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 10, 1890.
-
 "And this is the manner of the release: Every creditor that lends anything unto his neighbor shall release it; he shall not exact it of his neighbor, or of his brother; because it is called the LORD'S release." Deuteronomy 15:2.
 
 THIS wonderful transaction of "the Lord's release" came at the end of every seven years. It was according to the gracious Law of God for Israel that there should be, first of all, a rest one day in seven. Next, there were feast days one month in seven--and then there came, every seventh year, a year of rest for the land in which they did not till it, but left it to lie fallow. Then after the seven sevens were complete, there came on the 50th year, an extraordinary year of rest, in addition to the usual one--this was called the Year of Jubilee.

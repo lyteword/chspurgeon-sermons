@@ -1,12 +1,5 @@
 # Sermon 2262 | Christ's Curate In Decapolis
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1890.
-
 "And they began to pray Him to depart out of their coasts. And when He was come into the ship, he that had been possessed with the devil prayed Him thathe might be with Him. However, Jesus suffered him not, but said unto him, Go home to your friends, and tell them what great things the Lord has done for you, and how He has had compassion on you." Mark 5:17-19.
 
 THAT is a striking name for a man, "he that had been possessed with the devil." It would stick to him as long as he lived and it would be a standing sermon wherever he went. He would be asked to tell the story of what he used to be and how the change came about. What a story for any man to tell! It would not be possible for us to describe his life while he was a demoniac--the midnight scenes among the tombs, the cutting himself with stones, the howling, the frightening away of all the travelers that went near him, the binding with chains, the snapping of the manacles, the breaking of the fetters--and a great many details that he, alone, could enter into when he told the story among his own familiar friends. With what tenderness would he tell how Jesus came that way and how the evil spirit forced him to confront Him! He would say, "That was the best thing that could have happened to me, to be brought to the Master of that desperate legion of demons which had encamped within my nature and made my soul to be its barracks." He would tell how, in a moment, out went the whole legion at the word of Christ!

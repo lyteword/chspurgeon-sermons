@@ -1,12 +1,5 @@
 # Sermon 2334 | Our Service For Christ Never Finished
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 12, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 19, 1889.
-
 "But which of you, having a servant plowing or feeding cattle, will say unto him, by-and-by, when he is come from the field, Go and sit down to meat? And will not rather say unto him, Make ready wherewith I may sup, and gird yourself, and serve me, till I have eaten and drunk; and afterward you shall eat and drink? Does he thank that servant because he did the things that were commanded him? I think not. So likewise you, when you shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do." Luke 17:7-10.
 
 THESE words are not addressed to the general congregation. You notice that the chapter begins, "Then said He unto the disciples." Even they felt as if Christ's words were too heavy for them and so, when you get to the fifth verse, you read, "And the Apostles said unto the Lord, Increase our faith," as if only the very strongest of them were able to receive His teaching just then--He was describing such difficult duties and prescribing so peculiar a path. Mark you, He was not laying down the way of salvation, but pointing out a path of service for those who were already saved. We must be saved, first, and must serve afterwards. To hope to serve Christ so as to win salvation is a fallacy, a delusion of our proud hearts. But to be saved by His Grace as a matter of pure favor and then, afterwards, to serve Him, having gratitude for our great motive, is the right order and a very different thing from self-righteousness. It is to disciples, then, that the words about which I speak, tonight, are addressed.

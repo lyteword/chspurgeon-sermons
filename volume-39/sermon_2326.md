@@ -1,12 +1,5 @@
 # Sermon 2326 | Satan Departing, Angels Ministering
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 17, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 15, 1889.
-
 "And when the devil had ended all the temptation, he departed from Him for a season." Luke 4:13.
 
 "Then the devil left Him, and behold, angels came and ministered unto Him."

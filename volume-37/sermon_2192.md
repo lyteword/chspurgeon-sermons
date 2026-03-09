@@ -1,12 +1,5 @@
 # Sermon 2192 | The Joyous Return
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MARCH 1, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O Israel, return unto the Lordyour God; for you have fallen by your iniquity. Take with you words, and turn to the Lord: say unto Him, Take away all iniquity, and receive us graciously: so will we render the calves of our lips. Ashur shall not save us, we willnotride upon horses: neither will we say any more to the work of our hands, You are our gods: for in You the fatherless find mercy." Hosea 14:1-3.
 
 We are in the last chapter of the book of the Prophet Hosea. Throughout the book there has been thunder-- sometimes a low rumbling, as of a distant tempest--sometimes peal on peal, as of a storm immediately overhead. And now the tempest has gathered all its force. Here it culminates. You expect the bolt of Heaven to destroy. Lo, instead thereof, a silver shower of mercy! The gentle drops come down plenteously and you hear them fall upon the tender herb like soft and low music. God does not say, "O Israel, depart accursed!" But instead thereof, in dulcet tones He cries, "O Israel, return unto the Lord your God." In the midst of wrath He remembers mercy--

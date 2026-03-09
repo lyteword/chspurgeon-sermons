@@ -1,12 +1,5 @@
 # Sermon 2204 | Sin--Its Springhead, Stream and Sea
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 10, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Our fathers understood not Your wonders in Egypt; they remembered not the multitude of Your mercies; but provoked Him at the sea, even at the Red Sea." Psalm 106:7.
 
 OUR fathers! From them we derive our nature. We inherit our fathers' propensities, for that which is born of the flesh is flesh. As is the nature, such is the conduct. Hence the Psalmist writes in verse 6, "We have sinned with our fathers, we have committed iniquity, we have done wickedly." If we must mention our fathers' faults, it is not to screen ourselves, for we have to confess that our life's story is no brighter than theirs. It is not because the fathers have eaten sour grapes that the children's teeth are set on edge, for we, ourselves, have greedily devoured those evil clusters--"We have sinned with our fathers." "As in water, face answers to face, so the heart of man to man." When we read of the sins of others, we ought to be humbled and warned, for, "all we, like sheep, have gone astray; we have turned, everyone, to his own way." We have no space wherein to set up a monument to our own glory. As we cannot boast in our pedigree, for we are the children of sinners, so we cannot exalt ourselves because of our personal excellence, for there is none that does good, no not one. We come before God and confess our iniquities as a race and as individuals. And we cry unto Him, in the words of the 47th verse, "Save us, O Lord our God."

@@ -1,12 +1,5 @@
 # Sermon 2393 | A Comforting Message for the Closing Year
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 30, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 1, 1863.
-
 "Rest in the Lord." Psalm 37:7.
 
 IT is certain, Christian, that you have nowhere else to rest. Of the whole of this time-state it was well said, "This is not your rest," and of all the comfort that you find in earthly friendships and relationships, in the good things of this life, or in any hopes short of Heaven, we may truly say, "This is not your rest." The other day, at Highgate, I passed some fine old trees that were marked with a white cross, to indicate, no doubt, that they were to be cut down. So, everything we have here is marked with the woodman's cross and the axe must fell all our joys. You birds of paradise, build not your nests on trees that are marked to fall! This earth is not your rest! You shall fly the wide world over till your wings are weary, but, you doves of Christ, you shall find no rest till you come back to the hand of your Noah and nestle in His ark of Covenant Grace. "Rest in the Lord," says the text, and in saying so it does, as it were, condemn all other pretended rests and fancied refuges! May everyone of you who have wandered hear the voice of Wisdom and may your hearts say, "Return unto your rest, O my Soul, for the Lord has dealt bountifully with you!"

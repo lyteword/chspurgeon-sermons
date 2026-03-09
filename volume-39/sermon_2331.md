@@ -1,12 +1,5 @@
 # Sermon 2331 | Christ's Pastoral Prayer for His People
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 22, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 1, 1889.
-
 "I pray for them: Ipray not for the world, but for them which You have given Me; for they are Yours. And all Mine are Yours, and Yours are Mine; and I am glorified in them." John 17:9,10.
 
 To begin with, I remark that our Lord Jesus pleads for His own people. When He puts on His priestly breastplate, it is for the tribes whose names are there. When He presents the atoning Sacrifice, it is for Israel whom God has chosen, and He utters this great Truth of God, which some regard as narrow, but which we adore, "I pray for them: I pray not for the world." The point to which I want to call attention is this--the reason why Christ prays not for the world, but for His people. He puts it, "For they are Yours," as if they were all the dearer to Him because they were the Father's--"I pray for them: I pray not for the world, but for them which You have given Me, for they are Yours." We might have half thought that Jesus would have said, "They are Mine and, therefore, I pray for them." It would have been true, but there would not have been the beauty of Truth about it which we have here. He loves us all the better and He prays for us all the more fervently because we are the Father's. Such is His love to His Father, that our being the Father's sheds upon us an extra halo of beauty! Because we belong to the Father, therefore does the Savior plead for us with all the greater earnestness at the Throne of the heavenly Grace.

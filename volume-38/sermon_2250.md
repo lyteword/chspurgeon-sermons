@@ -1,12 +1,5 @@
 # Sermon 2250 | Words To Rest On
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 3, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 18, 1890.
-
 "And the people rested themselves upon the words of Hezekiah, king of Judah." 2 Chronicles 32:8.
 
 IT is very beautiful reading, the story of Hezekiah, to see how the people always went with him. God had prepared the nation for a change and when the hour came, the man came with it. Under his father Ahaz, the people had been idolaters and had forsaken God. But, when Hezekiah became king, he had a zeal for the worship of Jehovah, and on the very threshold of his reign he began what proved to be a glorious reformation in the land. He seems to have been a man who was attractive to the people and they took up his line of things at once with enthusiasm. Whether he proposed to break down the idols, to cleanse the Temple, or to bring tithes into the House of God, they made no objections, but, on the contrary, they followed his word with much vigor and earnestness. It is a grand thing when God sends a man who can guide others aright--especially when, in times of apostasy and spiritual declension, a leader is given who becomes a guide back to the old paths. We should feel exceedingly grateful whenever, in any place, God raises up a judge to deliver Israel and when the people serve God all the days of that judge.

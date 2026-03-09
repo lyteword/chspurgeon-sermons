@@ -1,14 +1,5 @@
 # Sermon 2245 | "Living, Loving, Lasting Union"
 
-
-FUNERAL ADDRESS
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 28 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE FUNERAL OF MR. WILLIAM OLNEY, OCTOBER 22, 1890.
-
 "For we are members of His body, of His flesh, and of His bones." Ephesians 5:30.
 
 BEFORE the funeral, at Norwood Cemetery, of the late Mr. William Olney, senior deacon of the Church at the Metropolitan Tabernacle, a service was held in the Tabernacle. The building was crowded with sympathizing friends who came to testify the affection they bore to the beloved deacon who had been so suddenly called from their midst. The senior Pastor presided. The hymn, "They are gathering homeward one by one," was sung, and Pastor James A. Spurgeon offered prayer.

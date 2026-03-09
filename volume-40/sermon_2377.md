@@ -1,12 +1,5 @@
 # Sermon 2377 | Love Stronger Than Death
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 9, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 5, 1888.
-
 "When Jesus knew that His hour was come that He should depart out of this world unto the Father, having loved His own which were in the world, He loved them unto the end." John 13:1.
 
 THIS is a kind of preface to the story of the foot-washing, and a very wonderful preface it is, when coupled with the third and fourth verses, upon which I commented. "Jesus knowing that the Father had given all things into His hands, and that He had come from God, and was going to God, rose from supper and laid aside His garments; and took a towel, and girded Himself." This is the frame of the picture that is here presented to us. To what shall I compare it? It is like unto a gate of the Golden City--each gate is one huge pearl and surely this verse is a jewel of inestimable price! The foot-washing picture is set within this precious frame.

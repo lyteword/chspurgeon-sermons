@@ -1,12 +1,5 @@
 # Sermon 2209 | The Best Strengthening Medicine
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Out of weakness were made strong." Hebrews 11:34.
 
 THOSE who out of weakness were made strong are written among the heroes of faith and are, by no means, the least of them. Believers "quenched the violence of fire, escaped the edge of the sword, out of weakness were made strong." Who shall tell which of the three grand deeds of faith is the greatest? Many of us may never have to brave the fiery stake, nor to bow our necks upon the block, to die as Paul did, but if we have Divine Grace enough to be out of weakness, made strong, we shall not be left out of the roll of the nobles of faith--and God's name shall not fail to be glorified in our persons.

@@ -1,12 +1,5 @@
 # Sermon 2380 | Encouragements To Prayer
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 30, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 19, 1888.
-
 "I am the LORD your God, which brought you out of the land of Egypt: open your mouth wide, and I will fill it." Psalm 81:10.
 
 The preceding verse bids us turn away from any strange God--"There shall no strange god be in you; neither shall you worship any strange god." Idolatry is the natural sin of man. It covers a very large surface of the realm of sin and it is always cropping up in some form or other. Idolatry is not merely the bowing before graven images--the essence of it lies in putting trust in any other than the great invisible God. We can easily make to ourselves gods of our experience, of our wealth, of our talents. We can make idols of our children, of our wives, of our husbands, of our friends. We can make a god of anything by valuing it more than we do our Savior, or by trusting in it beyond our God, or by refusing to trust in Him apart from it. You can make a god of the means of Grace--when you think more of the means of Grace than of God and the Grace of the means! You can make a god of your Bible when you think that the reading of it, apart from the illumination of the Holy Spirit, will be all that you require! So you see that it is very easy for man to fall into idolatry.

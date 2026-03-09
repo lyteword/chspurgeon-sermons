@@ -1,12 +1,5 @@
 # Sermon 2328 | Micah's Message for Today
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 1, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 22, 1889.
-
 "Walk humbly with your God." Micah 6:8.
 
 THIS is the essence of the Law of God, the spiritual side of it--its Ten Commandments are an enlargement of this verse. The Law is spiritual and touches the thoughts, the intents, the emotions, the words, the actions--but especially God demands the heart. Now it is our great joy that what the Law requires, the Gospel gives. "Christ is the end of the Law for righteousness to everyone that believes." In Him we meet the requirements of the Law, first, by what He has done for us and next, by what He works in us. He conforms us to the Law of God. He makes us, by His Spirit, not for our righteousness, but for His Glory, to render to the Law the obedience which we could not present of ourselves. We are weak through the flesh, but when Christ strengthens us, the righteousness of the Law is fulfilled in us who walk not after the flesh, but after the Spirit.

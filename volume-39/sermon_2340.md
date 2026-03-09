@@ -1,12 +1,5 @@
 # Sermon 2340 | The Best Christmas Fare
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 24, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE EVENING OF CHRISTMAS DAY, 1881.
-
 "How sweet are Your Words unto my taste! Yes, sweeter than honey to my mouth!" Psalm 119:103.
 
 THIS is a time of feasting and we may as well have our feast as other people have theirs. Let us see whether there is not something for our spiritual palate, something to satisfy our spiritual appetite, that we may eat, and be content, and rejoice before the Lord. Do you not think that two of the words in our text are very strange? If you had written them, would you not have said, "How sweet are Your Words unto my ears"? The Psalmist says, "How sweet are Your Words unto my palate!" for that is the word in the margin. He did not write, "Yes, sweeter than honey to my hearing!" but, "sweeter than honey to my mouth!" Are words, then, things that we can taste and eat? No, not if they are the words of man--it would take many of our words to fill a hungry belly. "Be you warmed and filled." It would take many tons of that sort of fodder to feed "a Brother or Sister destitute of daily food," for man's words are air and airy, light and frothy. They often deceive, they mock, they awaken hopes which are never realized. But God's Words are full of sub-stance--they are spirit, they are life, they are to be fed upon by the spiritually hungry!

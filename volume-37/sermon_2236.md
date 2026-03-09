@@ -1,12 +1,5 @@
 # Sermon 2236 | Prodigal Love for the Prodigal Son
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 27, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 29, 1891.
-
 "And kissed him." Luke 15:20.
 
 IN the Revised Version, if you will kindly look at the margin, you will find that the text there reads, "and kissed him much." This is a very good translation of the Greek which might bear the meaning, "Kissed him earnestly," or, "Kissed him eagerly," or, "Kissed him often." I prefer to have it in very plain language and, therefore, adopt the marginal reading of the Revised Version, "Kissed him much," as the text of my sermon, the subject of which will be the overflowing love of God toward the returning sinner.

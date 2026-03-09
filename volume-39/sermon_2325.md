@@ -1,12 +1,5 @@
 # Sermon 2325 | The Far-off, Near--the Near, Far Off
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 10, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 11, 1889.
-
 "Now when Jesus was born in Bethlehem of Judea in the days of Herod the King, behold, there came wise men from the East to Jerusalem, saying, Where is He who has been born King of the Jews? For we have seen His star in the East, and have come to worship Him. When Herod the king had heard these things, he was troubled, and all Jerusalem with him. And when he had gathered all the chief priests and scribes of the people together, he inquired of them where the Christ was to be born." Matthew 2:1-4.
 
 I AM not going to expound the whole passage that I have read as a text, but I desire to help you to gather some lessons from this familiar narrative.

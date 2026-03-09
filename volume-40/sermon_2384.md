@@ -1,12 +1,5 @@
 # Sermon 2384 | "Forget You, I Will Not"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, OCTOBER 28, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 12, 1888.
-
 "You are My servant: O Israel, you shall not be forgotten of Me." Isaiah 44:21.
 
 The idols said nothing to their worshippers. They had mouths, but they spoke not. You might go on worshipping an image for 20 years, but you would never get a reply to anything you said to it. It could not see you, it could not hear you, it could not answer you. That is a poor kind of worship! I do not think that I would care to go on worshipping a Madonna even if she winked--one cannot make much out of a wink--we need something more than that from the object of our adoration.

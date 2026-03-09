@@ -1,12 +1,5 @@
 # Sermon 2348 | The Lord Leading--David Following
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, FEBRUARY 18, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 14, 1889.
-
 "And let it be, whien you hiear he sound of a going in he tops of he mulberry trees, hat hen you shiall bestir yourself: for hen shiall he LORD go out before you, to smite he hiost of he Phiilistines. And David did so, as he LORD haadd commanded Aim and smote tie Phiilistines from Geba until you come to Gazer." 2 Samuel 5:24,25.
 
 In anticipation of an Evangelistic Mission to be conducted by Messrs. Fullerton and Smith.

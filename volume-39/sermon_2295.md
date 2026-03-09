@@ -1,12 +1,5 @@
 # Sermon 2295 | God's People--or Not God's People
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 12, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will have mercy upon her that had not obtained mercy; and I will say to them which were not My people, You are My people; and they shall say, You are my God." Hosea 2:23.
 
 "As He says also in Hosea, I will call them My people, which were not My people; and her beloved, which was not beloved." Romans 9:25.

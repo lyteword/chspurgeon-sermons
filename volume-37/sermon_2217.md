@@ -1,12 +1,5 @@
 # Sermon 2217 | Three Names High on the Muster Roll
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 16, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Shadrach, Meshach, and Abed-Nego answered and said to the king, O Nebuchadnezzar, we are not careful to answer you in this matter. If it is so, our God whom we serve is able to deliver us from the burning fiery furnace, and He will deliver us out of your hands, O king. But if not, be it known unto you, O king, that we will not serve your gods, nor worship the golden image which you ha ve set up." Daniel 3:16-18.
 
 IF YOU read the second chapter of the Book of Daniel, you will think that Nebuchadnezzar was not far from the Kingdom of God. His dream had troubled him, but Daniel had explained it. Then the king made this confession to Daniel, "Of a truth it is, that your God is a God of gods, and a Lord of kings, and a revealer of secrets, seeing you could reveal this secret." He acknowledged that Jehovah, the God of the Jews, was the greatest of gods, and was a great interpreter of secrets, but in a short time we find this man setting up an idol and persecuting to the death those who would not worship it. He seems, indeed, to have turned the blessing into a curse, and made the image of his dream the pattern of the idol he set up for the nation to worship, thus making that through which God had graciously revealed His power and wisdom, the very instrument of his folly and vainglory.

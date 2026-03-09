@@ -1,12 +1,5 @@
 # Sermon 2185 | Our Manifesto
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 25, 1891,
-
-BY C. H. SPURGEON, AT AN ASSEMBLY OF MINISTERS OF THE GOSPEL.
-
-DELIVERED ON FRIDAY MORNING, APRIL 25, 1890.
-
 "But I make known to you, Brethren, that the Gospel which was preached of me is not after man."
 
 Galatians 1:11.

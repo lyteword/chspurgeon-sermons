@@ -1,12 +1,5 @@
 # Sermon 2356 | The Truth Of God's Salvation
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 15, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 16, 1888.
-
 "O God, in the multitude of Your mercy hear me, in the Truth of your salvation." Psalm 69:13.
 
 I WOULD have you admire the educational power of prayer, for prayer is, in itself, an education for a saint. God might have given us every blessing at once without our asking Him for anything, but He says, even of that which He has promised to His people, "I will yet for this be enquired of by the house of Israel, to do it for them," the reason being that, sometimes, the prayer for the blessing is as beneficial to us as the blessing, itself, and thus we are twice blessed--first in asking--and then in receiving! Prayer brings the mercy, but in fetching it for us, prayer, itself, gives us an additional blessing. We are, ourselves, graciously helped of God as we pray, and we grow thereby.

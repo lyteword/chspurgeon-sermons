@@ -1,12 +1,5 @@
 # Sermon 2188 | Entangled in the Land
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 8, 1891
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, SEPTEMBER 21, 1890.
-
 "For Pharaoh will say of the children of Israel, They are entangled in the land, the wilderness has shut them in." Exodus 14:3.
 
 ISRAEL was clean escaped from Egypt. Not a hoof of their cattle was left behind, nor foot of child or aged man remained in the house of bondage. But though they were gone, they were not forgotten by the tyrant who had enslaved them. They had been a very useful body of workers, for they had built treasure cities and storehouses for Pharaoh. Compelled to work without wages, they cost the tyrant nothing but the expenditure of the lash. His exactions of forced labor had grown intolerable to the people, but the buildings erected had been a joy to the lord of Egypt. When they were quite gone, Pharaoh woke up to a sense of his loss and his attendants felt the same. So they cried, "Why have we done this, that we have let Israel go from serving us?" Then they resolved to drive them back, again, and they thought it easy to do so, for they said, "They are entangled in the land, the wilderness has shut them in." They knew that the Israelites had no spirit for war and they felt sure that they had only to overtake them and hurry them back like a drove of cattle. They had found them such submissive servants that they expected to fit their fetters on them, again, and rivet them forever. Perhaps their God had shot His last arrow and Egypt might capture His people, again, without fear of plagues. Thus men thought--but the Lord thought otherwise.

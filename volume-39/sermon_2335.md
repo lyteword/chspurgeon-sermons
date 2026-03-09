@@ -1,12 +1,5 @@
 # Sermon 2335 | Three Texts, But One Subject-- Faith
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 19, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 22, 1889.
-
 "In the shadow of Your wings will I make my refuge." Psalm 57:1.
 
 "Cast your burden upon the LORD, and He shall sustain you." Psalm 55:22.

@@ -1,12 +1,5 @@
 # Sermon 2247 | Praise for the Gift of Gifts
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 13, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 27, 1890.
-
 "Thanks be unto God for His unspeakable gift." 2 Corinthians 9:15.
 
 IN the chapter from which my text is taken, Paul is stirring up the Christians at Corinth to be ready with liberal gifts for the poor saints at Jerusalem. He finishes by reminding them of a greater gift than any they could bring and, by this one short word of praise, "Thanks be unto God for His unspeakable gift," he sets all their hearts a-singing! Let men give as liberally as they may, you can always proclaim the value of their gift. You can cast it up and reckon its worth, but God's gift is unspeakable, unreckonable! You cannot fully estimate the value of what God gives. The Gospel is a Gospel of giving and forgiving. We may sum it up in those two words and, therefore, when the true spirit of it works upon the Christian, he forgives freely and he also gives freely. The large heart of God breeds large hearts in men and they who live upon His bounty are led by His Spirit to imitate that bounty according to their power.

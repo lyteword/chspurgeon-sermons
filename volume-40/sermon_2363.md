@@ -1,12 +1,5 @@
 # Sermon 2363 | Comfort and Constancy
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY JUNE 3, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 15, 1888.
-
 "Now our Lord Jesus Christ, Himself, and God, even our Father, which has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good Word and work." 2 Thessalonians 2:16,17.
 
 THE Thessalonians had been a good deal confused by certain persons who had said that the coming of the Lord was immediately at hand. Paul, therefore, bade them to be steadfast and not be worried and perplexed by any such teaching. And then he presented this prayer to God for them, that they might have these two things, comfort and constancy--that God would comfort their hearts and establish them--"in every good Word and work." It is a very blessed and comprehensive prayer and, while we are thinking of it, let us be praying it for ourselves and for one another, that the Lord may comfort our hearts and establish us "in every good Word and work."

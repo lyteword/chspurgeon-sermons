@@ -1,12 +1,5 @@
 # Sermon 2268 | A Question for Communicants
 
-
-INTENDED FOR READING ON LORD'S-DAY AUGUST 7, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 1, 1890.
-
 "What do you mean by this service?" Exodus 12:26.
 
 IN a spiritual religion everything must be understood. That which is not spiritual, but ritualistic, contents itself with the outward form. Under the Jewish dispensation there was a very strong tendency in that direction, but it was kept in check to some extent. Under the Christian faith this tendency must not be tolerated at all. We must know the meaning of what we do, otherwise we are not profited. We do not believe in the faith of the man who was asked what he believed and replied that he believed what the church believed. "But what does the church believe?" "The church believes what I believe." "Well, but what do you and the church believe?" "We both believe the same thing." He would not explain himself any further. We look upon such expressions as the talk of ignorance and not the language offaith. Faith knows what she believes and can give a reason for the hope that is in her meekness and fear.

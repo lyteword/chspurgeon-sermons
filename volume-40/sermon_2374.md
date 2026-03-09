@@ -1,12 +1,5 @@
 # Sermon 2374 | Blessed Discipline
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 19, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 24, 1888.
-
 "Blessed is the man whom You chasten, O LORD, and teach out of Your Law; that You may give him rest from the days of adversity, until the pit is dug for the wicked. For the LORD will not cast off His people, neither will He forsake His inheritance. But judgment shall return unto righteousness: and all the upright in heart shall follow it." Psalm 94:12-15.
 
 THERE are times when the wicked seem to have things all their own way. This earth is not the realm of final justice--we are not yet standing before the Lord's great Judgement Seat. God permits many things to be, for a while, in confusion. They who are highest with Him are often lowest with men and, those for whom He has no regard seem to heap up the treasures of the world till their eyes stand out with fatness, and they have more than heart can wish! Let no child of God be astonished at this arrangement. It has often been so in the past and it has been the great enigma that has puzzled the world. The children of God have also sat down and looked into it, but it has been, even to them, a great deep which they could not fathom. They have sighed over it, but their sighs have not altered the facts. It is still true that often the wicked triumph and the servants of iniquity delight themselves in the high places of the earth. The righteous need not wonder that they suffer, now, for that has been the lot of God's people all along, and there have been certain times in human history when God has seemed to be altogether deaf to the cries of His suffering people. Remember the martyr age and the days of the Covenanters, who were hunted upon the mountains like the partridge. You must not wonder if the easy places of the earth are not yours and if the sentinel's stern duties should fall to your lot. It is so, and so it must be, for God has so ordained it.

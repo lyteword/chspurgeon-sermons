@@ -1,12 +1,5 @@
 # Sermon 2365 | "Goodness, as a Morning Cloud"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 17, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 25, 1888.
-
 "And Joash did that which was right in the sight of the LORD all the days of Jehoiada the priest." 2 Chronicles 24:2.
 
 "Now after the death of Jehoiada came the princes of Judah, and made obeisance to the king. Then the king listened to them. And they left the house of the LORD God of their fathers, and served groves and idols: and wrath came upon Judah and Jerusalem for this, their trespass."

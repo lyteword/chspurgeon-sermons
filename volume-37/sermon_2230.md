@@ -1,12 +1,5 @@
 # Sermon 2230 | Loved and Washed
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 15, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 22, 1891.
-
 "Unto Him that loved us, and washed us from our sins in His own blood, and has made us kings and priests unto God and His Father; to Him be glory and dominion forever and ever. Amen." Revelation 1:5, 6.
 
 John was the beloved disciple, the choicest spirit of the twelve, the one nearest to the heart of Christ. Not only was he that disciple whom Jesus loved, but he was full of love to his Lord in return. John leaned his head on Christ's bosom. All his soul seemed to be aflame with affection towards Christ. "We love Him, because He first loved us," are words which come with great power from such a heart--they were so wonderfully true in his own experience. But now, when he comes to sing a Psalm of praise to his Lord, he does not mention his love to his Master. He dwells not on that, for his confidence lies deeper than anything in himself, even in the love of the Son of God to him. Would you not wish to be like he? Then "keep yourselves in the love of God," as, on the opposite page of your Bible, you read in the Epistle of Jude. Meditate much on your Master and on your Master's love--dwell with Christ--and whether you realize your love to Him or not, drink in daily the sweetness of His wondrous love to you. Live on that and often let your heart lift up a song of praise because of it. Then shall the blessing of Benjamin be yours--"The beloved of the Lord shall dwell in safety by Him; and the Lord shall cover him all the day long, and he shall dwell between His shoulders."

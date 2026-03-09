@@ -1,12 +1,5 @@
 # Sermon 2308 | Ten Wrong Kinds of Hearers
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 14, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 21, 1889.
-
 "Cry aloud, spare not, lift up your voice like a trumpet, and show My people their transgression, and the house of Jacob their sins. Yet they seek Me daily and delight to know My ways, as a nation that did righteousness, and forsook not the ordinance of their God: they ask of Me the ordinances of justice; they take delight in approaching to God." Isaiah 58:1,2.
 
 IF we would understand these words aright, we must remember that the people here mentioned were not good people--they were a set of hypocrites. This is quite clear if we read the verses that follow our text--"Why have we fasted, they say, and You see not? Why have we afflicted our souls and You take no notice? Behold, in the day of your fast you find pleasure, and exploit all your laborers. Behold, you fast for strife and debate, and to strike with the fist of wickedness. You shall not fast as you do this day, to make your voice to be heard on high. Is it such a fast that I have chosen? A day for a man to afflict his soul? Is it to bow down his head as a bulrush, and to spread sackcloth and ashes under him? Will you call this a fast and an acceptable day to the Lord? Is not this the fast that I have chosen? To loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that you break every yoke? Is it not to share your bread with the hungry, and that you bring the poor that are cast out to your house? When you see the naked, that you cover him; and that you hide not yourself from your own flesh? Then shall your light break forth as the morning, and your health shall spring forth speedily: and your righteousness shall go before you; the Glory of the Lord shall be your rear guard."

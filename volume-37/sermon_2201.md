@@ -1,12 +1,5 @@
 # Sermon 2201 | The Sword of the Spirit
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 19, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Take the sword of the Spirit, which is the Word of God." Ephesians 6:17.
 
 To be a Christian is to be a warrior. The good soldier of Jesus Christ must not expect to find ease in this world--it is a battlefield! Neither must he reckon upon the friendship of the world, for that would be enmity against God. His occupation is war. As he puts on, piece by piece, the panoply provided for him, he may wisely say to himself, "This warns me of danger; this prepares me for warfare; this prophesies opposition."

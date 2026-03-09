@@ -1,12 +1,5 @@
 # Sermon 2355 | Christ's Negative and Positive Prayer
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, APRIL 8, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 5, 1888.
-
 "I pray not that You should take them out of the world, but that You should keep them from evil." John 17:15.
 
 NOTICE, in the prayer of our Divine Lord, what honor He always puts upon God the Father. He ascribes to God everything--the taking the disciples out of the world, or the keeping them from the evil in the world. Let us never neglect to look for God's hand in all that happens to the saints and let us not fall into the error of those who deny the Great First Cause and are always dealing with appearances, forgetting the Mighty God who shapes our ends and rules our destinies. If we die, it is not by chance, but because God takes us out of the world. Believers fall asleep in Jesus, neither before nor after the predestined time. No disease or accident can cut short their lives and it would not be possible to prolong their existence beyond the time appointed by the Lord. I like to believe--whatever it may be to some of you, to me it is very sweet to believe that--

@@ -1,12 +1,5 @@
 # Sermon 2198 | The Census of Israel
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, APRIL 5, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "These are they that were numbered by Moses and Eleazar, the priest, who numbered the children of Israel in the plains of Moab by Jordan near Jericho. But among these there was not a man ofthem whom Moses and Aaron, the Priest, numbered, when they numbered the children of Israel in the wilderness of Sinai. For the Lordhadsaid of them, They shallsurely die in the wilderness. And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun." Numbers 16:66.
 
 WE have come to another census, an important stopping place in the march of a nation's history. This carries our thoughts back to the ancient Bible story connected with the chosen people of God. A census was taken of the tribes of Israel in the wilderness two years after they had left Egypt. It only numbered males who were over twenty--the men capable of active service in war. By thus taking a census of His people, the Lord showed that He valued each one of them. They were registered by their families and by their names, thus were they personally enrolled in the family book of the living God and He thus, in effect, said to each one of them, "I have called you by your name; you are Mine." By the registration of each man by name, he felt that he was not lost in the crowd, but was, by person and pedigree, acknowledged as one of those to whom the Lord had promised the land which flowed with milk and honey. There was good reason for taking the number of the people just as the nation was forming, so that in the wilderness they might be arranged, marshaled and disciplined for the conflict which lay before them. When commanded of God, because He saw that great ends would be served thereby--and when associated with redemption--a census was by no means a wrong or a dangerous national arrangement. David ordered the people to be numbered, but because his motive and his method were wrong, it brought a pestilence on the land but, in itself, the taking of a census was a wise and useful thing.

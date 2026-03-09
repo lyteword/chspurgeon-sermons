@@ -1,12 +1,5 @@
 # Sermon 2299 | Thorns and Thistles
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 12, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Thorns, also, and thistles shall it bring forth to you." Genesis 3:18.
 
 THIS was not the penalty which might have been pronounced upon Adam. This curse does not fall directly on him-- it glances obliquely and falls upon the ground whereon he stands--"Cursed is the ground for your sake." It is not from materialism that a curse comes upon the spirit of man, but it is from the erring spirit that the curse falls upon the material creation. Let us notice this and learn from it the infinite mercy of God, in that, while the curse falls upon the serpent distinctly, and his head is bruised, yet upon Adam it comes, as I have said, obliquely. "Cursed is the ground for your sake." "Thorns, also, and thistles shall it bring forth to you." God, in His justice, never goes beyond justice even in pronouncing His severest sentence, but here, in this life, He tempers His justice with great patience and long-suffering, "Not willing that any should perish, but that all should come to repentance."

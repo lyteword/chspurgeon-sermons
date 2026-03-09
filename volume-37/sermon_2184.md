@@ -1,12 +1,5 @@
 # Sermon 2184 | A Private Enquiry
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 18, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, OCTOBER 9, 1890.
-
 "What is the thing that the Lord has said unto you?" 1 Samuel 3:17.
 
 THE Lord would not speak directly to Eli, although he was the High Priest. In ordinary circumstances it would have been so, but Eli had grieved the Lord, and thus had lost his honorable standing. God had not cast him off, but He viewed him with such displeasure that He would only speak to him through another person--even as great kings, if they are offended with their courtiers--send them messages by other hands. The Lord sent, first, a man of God to warn Eli of what would be the sure result of his lack of firmness with his sons. And when He gave him a second warning, it was sent through one who was a little underling in his family.

@@ -1,12 +1,5 @@
 # Sermon 2303 | Three Arrows--or Six?
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 9, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 25, 1889.
-
 "And he said, Take the arrows. And he took them. And he said unto the king of Israel, Strike the ground. And he struck three times, and stopped. And the man of God was angry with him, and said, You should have struck five or six times; then had you struck Syria till you had consumed it: whereas now you shall strike Syria only three times." 2 Kings 13:18,19.
 
 IT is a very difficult task to show the meeting place of the purpose of God and the free agency of man. One thing is quite clear--we ought not to deny either of them, for they are both facts. It is a fact that God has purposed all things both great and little. Neither will anything happen but according to His eternal purpose and decree. It is also a sure and certain fact that, oftentimes, events hang upon the choice of men. Their will has a singular potency. In the case before us, the arrows are in the hands of the king of Israel and, according to whether he shall shoot once, twice, three times, or five or six times, so will the nation's history be affected. Now, how these two things can both be true, I cannot tell you. Neither, probably, after long debate, could the wisest men in Heaven tell you, not even with the assistance of cherubim and seraphim! If they could tell you, what would you know, and in what way would you be benefited if you could find out this secret? I believe that it would be as difficult to show that these two things do not agree, as it is to show how they can agree. They are two facts that run side by side, like parallel lines. Things are often left to the will of men, yet everything does come to pass, in the end, according to the will of God! Can you not believe them both? And is not the space between them a very convenient place to kneel in, adoring and worshipping Him whom you cannot understand? If you could understand your religion, it would be one that did not come from God--it would have been made by a man of limited capacity, like yourselves, who was, therefore, able to make what you can comprehend. But inasmuch as there are mysteries in your faith, to the top of which you cannot climb, be thankful that you need not climb them.

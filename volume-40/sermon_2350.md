@@ -1,12 +1,5 @@
 # Sermon 2350 | "Take, Eat"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 4, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, JANUARY 8, 1888.
-
 "And as they were eating, Jesus took bread, and blessed it, and broke it, and gave it to the disciples, and said, Take, eat; this is My body." Matthew 26:26.
 
 WE are all agreed upon this one point, that the Lord's Supper is an emblem of the death of Jesus Christ and of the way by which we receive benefit from Him. The bread sets forth His broken body and the cup His shed blood. These, separated from each other, show forth His death. The way by which we receive this bread and this wine is by eating and drinking-- and this sets forth the way by which we receive the merit and the virtue of the Lord Jesus Christ--by a faith which is like eating, by a trust which is like drinking, by the reception of Christ spiritually into our hearts, even as we naturally receive the bread and the fruit of the vine into our bodies.

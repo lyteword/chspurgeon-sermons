@@ -1,12 +1,5 @@
 # Sermon 2259 | The Simplicity and Sublimity of Salvation
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 5, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 6, 1890.
-
 "He came unto His own, and His own received Him not. But as many as received Him, to them gave He power to become the sons of God, even to them that believe on His name: Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God." John 1:11-13.
 
 EVERYTHING here is simple. Everything is sublime. Here is that simple Gospel by which the most ignorant may be saved! Here are profundities in which the best-instructed may find themselves beyond their depth. Here are those everlasting hills of Divine Truth which man cannot climb! Yet here is that plain path in which the wayfaring man, though a fool, need nor err, nor lose his way. I always feel that I have no time to spare for critical and captious persons. If they will not believe, neither shall they be established. They must take the consequences of their unbelief. But I can spare all day and all night for an anxious enquirer--for one who is blinded by the very blaze of the heavenly Light of God that shines on him and who seems to lose his way by reason of the very plainness of the road that lies before him! In this most simple text are some of the deep things of God and there are souls here that are puzzled by what are simplicities to some of us. And therefore my one aim shall be to handle this text as to help and encourage and cheer some who would gladly touch the hem of the Master's garment, but cannot for the press of many difficulties and grave questions which rise before their minds!

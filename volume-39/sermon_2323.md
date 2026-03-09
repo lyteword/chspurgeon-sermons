@@ -1,12 +1,5 @@
 # Sermon 2323 | Obedience Rewarded
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 27, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 1, 1889.
-
 "And they departed quickly from the sepulcher with fear and great joy; and did run to bringHis disciples word. And as they went to tell His disciples, behold, Jesus met them, saying, All hail. And they came and held Him by the feet, and worshipped Him. Then said Jesus unto them, Be not afraid: go tell My brethren to go into Galilee, and there shall they see Me." Matthew 28:8-10.
 
 THESE holy women, these consecrated Maries, shall be our instructors tonight. They were highly-favored to be the first witnesses for our risen Lord! Do you wonder why He chose them? Was it because their hearts were tender and they were very sad at His death, more sad than the men? And is He not known to come, first, to those who need Him most and to pour in oil and wine where the wound gapes widest? It may be so. Was it because they had been the more faithful of the two and, while some men had denied Him and all had forsaken Him, the women were last at Golgotha, as they were now, first, at the sepulcher? Did their Lord reward them by dealing with them as they had dealt with Him? That is but His pattern. "If you will walk contrary unto Me, then will I also walk contrary unto you," said the Lord to Israel. And He also said, "I love them that love Me; and those that seek Me early shall find Me." These holy women did seek their Lord early on the morning of His Resurrection and they found Him to a certainty before all others! Was this because Jesus had found the women more spiritual than the Apostles? Certainly, I think that was the case. They had attained the very climax of love, washing His feet with their tears. They had reached the very center of discipleship--one of them had chosen the good part, and sat at His feet. Sometimes, where there is less power of understanding, Jesus does give keener powers of perception, and though Mary Magdalene and the other Mary would never have become Pauls, yet they were of quick eye, like John, and were, therefore, the most fit to see the Savior in the dawning of the morning--and so they were permitted to have the first glimpse of Him.

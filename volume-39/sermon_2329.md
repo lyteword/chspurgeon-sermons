@@ -1,12 +1,5 @@
 # Sermon 2329 | The Lamb Of God In Scripture
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 8, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 25, 1889.
-
 "Again, the next day, John stood with two of his disciples. And looking at Jesus as He walked, he said, "Behold the Lamb of God!" John 1:35,36.
 
 You all know the old, old story. The world was lost. God must punish sin. He sent His Son to take our sin upon Him that He might honor the Law of God and establish God's government by being obedient to the Law of God and yielding Himself up to the death penalty. He whom Jehovah loves beyond all else came to earth, became a Man and, as a Man, was obedient unto death, even the death of the Cross. It is He who is called, in our text, "the Lamb of God," the one Sacrifice for man's sin. There is no putting away of sin without sacrifice--there is only one Sacrifice that can put away sin--and that is Jesus Christ, the Righteous. He is Divine, yet Human--Son of God, yet Son of Mary. He yielded up His life, "the Just for the unjust," the Sinless for the sinful, "that He might bring us to God," and reconcile us to the great Father. That is the story and whoever believes in Him shall live. Any man, the world over, who will trust himself to Christ, God's great Sacrifice, shall be saved, for this is our continual witness, "He that believes on the Son has everlasting life." "For God so loved the world, that He gave His only-begotten Son, that whoever believes in Him should not perish but have everlasting life."

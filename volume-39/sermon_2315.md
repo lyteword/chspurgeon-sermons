@@ -1,12 +1,5 @@
 # Sermon 2315 | Paul Apprehended and Apprehending
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 2, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 30, 1889.
-
 "Not as though I had already attained, either were already perfected; but I press on, that I may apprehend that for which also I am apprehended of Christ Jesus." Philippians 3:12.
 
 OBSERVE the Apostle's condition when he wrote these words. I do not think that either you or I will be found to be in a better one. If any are, or think they are, I would suggest a question. I, for my part, would be satisfied to be just as Paul was.

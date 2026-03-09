@@ -1,12 +1,5 @@
 # Sermon 2186 | Our Expectation
 
-
-DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He shall see His seed." Isaiah 53:10.
 
 THE first thought suggested by this text is that Jesus is still alive, for to see anything is the act of a living person. Our Lord Jesus died. We know that He died. We are glad that there is overwhelming evidence that, not in appearance, but in fact, He died. His side was pierced. He was given up by the Roman authorities for burial--the imperial authorities were sure of His death. The soldier had made assurance doubly sure by piercing His side. His disciples buried Him. They would not have left Him in the cave if they had felt any doubt about His death. They went in the morning after the Sabbath to embalm Him. They were all persuaded that He had really died. Blessed be the dying Christ! Here our living hopes take their foundation. If He had not died, we must have died forever. The more assured we are of His death, the more assured we feel of the life of all who are in Him!

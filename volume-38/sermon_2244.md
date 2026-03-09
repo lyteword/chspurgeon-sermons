@@ -1,12 +1,5 @@
 # Sermon 2244 | Members Of Christ
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 21, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 23, 1890.
-
 "For we are members of His body, of His flesh, and of His bones." Ephesians 5:30.
 
 YESTERDAY, when I had the painful task of speaking at the funeral of our dear friend, Mr. William Olney, I took the text which I am going to take again, now. I am using it again because I did not, then, really preach from it at all, but simply reminded you of a favorite expression of his, which I heard from his lips many times in prayer. He very frequently spoke of our being one with Christ in "living, loving, lasting union"--three words which, in addition to being alliterative, are very comprehensive as to the nature of our union with Christ. Those three words, you will remember, were the heads of my discourse in the presence of that remarkable gathering which crowded this place to do honor to the memory of our Brother whose highest ambition was always to honor his Lord, whom he so faithfully served.

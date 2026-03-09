@@ -1,12 +1,5 @@
 # Sermon 2207 | Redemption Through Blood--The Gracious Forgiveness Of Sins
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 7, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON
-
 "In whom we have redemption through His blood, the forgiveness of sins, according to the riches of His Grace." Ephesians 1:7.
 
 READ the chapter and carefully note how the Apostle goes to the back of everything and commences with those primeval blessings which were ours before time began. He dwells on the Divine love of old and the predestination which came out of it--and all that blessed purpose of making us holy and without blame before Him in love, which was comprehended in the Covenant of Grace. It does us good to get back to these antiquities--to these eternal things. You shake off something of the dust of time, as you no longer walk down its restless ages, but traverse the glorious eternity where centuries seem no more than fallen leaves by the way. Thousands of years are less than a drop of a bucket compared with the lifetime of the Almighty! How sublime a thing to climb, in contemplation, to the everlasting God and the eternal council chamber--and to see the heart of love beating towards the chosen people before all time--and the infinite mind of God devising and purposing their good! This is an exceedingly great refreshment and the wonder is that so few Believers dare to ascend this sublime hill of the Lord, there to commune with Him who Was and Is, and is to come!

@@ -1,12 +1,5 @@
 # Sermon 2298 | The Christ-Given Rest
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 5, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will give you rest." Matthew 11:28.
 
 I AM afraid that we have not always noticed the fullness of this promise. Usually the text is preached from as an invitation to the unconverted to come to Christ and, very properly so--"Come unto Me, all you that labor and are heavy laden, and I will give you rest." It is an invitation to all of you who are laboring after salvation, or are heavy laden with a load of sin, or the burden of your daily cares. You may come--you are bid to come to the Lord Jesus--and He has promised that He will give you rest. But I must leave you, tonight, so far as my sermon is concerned, for my main business will be with those who have come to Christ. After having given the invitation to those who are outside the Church of Christ, I pass inside, and I want those who are within to come into sweet communion with their Lord, tonight, while I dwell upon this very gracious promise, "I will give you rest."

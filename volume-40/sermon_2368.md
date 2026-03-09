@@ -1,12 +1,5 @@
 # Sermon 2368 | The Living Care of the Dying Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JULY 8, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 15, 1888.
-
 "Jesus answered, I have told you that I am He: if, therefore, you seek Me, let these go their way: that the saying might be fulfilled which He spoke, Of those which You gave Me have I lost none." John 18:8,9.
 
 THE two remarkable miracles which our Lord worked in the Garden of Gethsemane ought not to be lightly passed over. The first was the falling to the ground of the soldiers and the servants of the priests. Jesus did but speak to them and there was such power and majesty about His Presence and His voice that, "they went backward, and fell to the ground." They were quite unable to seize Him. Here was a display, in some measure, of Christ's Divine Power. These men would have fallen into the grave and into Hell, itself, if Jesus had put forth the full force of His strength! He only spoke a word and down they fell--they had no power whatever against Him. Beloved, take comfort from this miracle! When the enemies and foes of Christ come against Him, He can easily overthrow them. Many times have there been crises in the Church's history when it seemed as if the Truth of God would be destroyed. Then has come the opportunity for Divine interposition. A word from Christ has vanquished His enemies! They that were waiting, like lions, ready to leap upon their prey, have been disappointed. Jesus has but spoken and they have fallen backward to the ground. Therefore, take heart and be not dismayed even in the darkest hour. Let Christ only utter a word and the victory is certain to be with

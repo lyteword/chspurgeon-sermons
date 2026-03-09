@@ -1,12 +1,5 @@
 # Sermon 2205 | "My Times Are In Your Hand"
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, MAY 17, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My times are in Your hand." Psalm 31:15.
 
 DAVID was sad--his life was spent with grief and his years with sighing. His sorrow had wasted his strength and even his bones were consumed within him. Cruel enemies pursued him with malicious craft, even seeking his life. At such a time he used the best resource of grief, for he says in verse 14, "But I trusted in You, O Lord." He had no other refuge but that which he found in faith in the Lord, his God. If enemies slandered him, he did not render railing for railing. If they devised to take away his life, he did not meet violence with violence, but he calmly trusted in the Lord. They ran here and there, using all kinds of nets and traps to make the man of God their victim, but he met all their inventions with the one simple defense of trust in God. Many are the fiery darts of the Wicked One, but our shield is one. The shield of faith not only quenches fiery darts, but it breaks arrows of steel. Though the javelins of the foe were dipped in the venom of Hell, yet our one shield of faith would hold us harmless, casting them off from us!

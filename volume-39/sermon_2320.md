@@ -1,12 +1,5 @@
 # Sermon 2320 | The Beloved Pastor's Plea for Unity
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 6, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 7, 1889.
-
 "To all that are in Rome, beloved of God, called to be saints: Grace to you and peace from God our Father, and the Lord Jesus Christ." Romans 1:7.
 
 IN a few minutes we shall gather together as members of the Church of Christ to celebrate the memorial of His death. It is a memorable sight to see so many Christian people sitting together with the objective of observing this ordinance. Frequently, as I have seen it, I must confess that when sitting in the chair at the head of the table, I often feel overawed with the remembrance that it is the largest gathering of Christians anywhere beneath the sun, and that they have come there with one common objective, namely, to show our Lord's death "till He comes." The question then rises in our minds whether there is real fellowship in all this, for if there is not, it is a great sham, and the more numerous we are, if we have not fellowship with Christ and with one another, the greater is the deception--it is only having a name to live while we are dead. So I want, tonight, not so much to preach to you as to exhort you, who are about to gather to this holy festival, to think that your thoughts shall go out toward all your Christian Brothers and Sisters, and that you shall feel the power of that precious blood which makes us nearer akin than even the blood of Adam--that blood of Jesus which makes us truly Brothers and Sisters, yes, members of one body, and so united by living communion, the one to the other.

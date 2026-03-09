@@ -1,12 +1,5 @@
 # Sermon 2342 | A New Year's Retrospect And Prospect
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 7, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE EVENING OF NEW YEAR'S DAY, 1871.
-
 "LORD, You have heard the desire of the humble: You will prepare their heart, You will cause Your ear to hear." Psalm 10:17.
 
 IT has been sometimes said that a good Sabbath makes a good week. Sir Matthew Hale long ago said--

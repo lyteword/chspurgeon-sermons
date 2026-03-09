@@ -1,12 +1,5 @@
 # Sermon 2351 | Prayer, The Cure for Care
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, MARCH 11, 1984.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 12, 1888.
-
 "Be careful for nothing; but in everything, by prayer and supplication, with thanksgiving, let your requests be made kno wn unto God. And the peace of God, which passes all understanding, shall keep your hearts and minds through Christ Jesus." Philippians 4:6, 7.
 
 We have the faculty of forethought, but, like all our faculties, it has been perverted, and it is often abused. It is good for a man to have a holy care and to pay due attention to every item of his life, but, alas, it is very easy to make it into an unholy care and to try to wrest from the hand of God that office of Providence which belongs to Him and not to ourselves. How often Luther liked to talk about the birds and the way God cares for them! When he was full of his anxieties, he used to constantly envy the birds because they led so free and happy a life. He talks of Dr. Sparrow, Dr. Thrush and others that used to come and talk to Dr. Luther and tell him many a good thing! You know, Brothers and Sisters, the birds out in the open, yonder, cared for by God, fare far better than those that are cared for by man. A little London girl, who had gone into the country, once said, "Look, mamma, at that poor little bird. It has not got any cage!" That would not have struck me as being any loss to the bird--and if you and I were without our cage, and the box of seed, and glass of water, it would not be much of a loss if we were cast adrift into the glorious liberty of a life of humble dependence upon God!

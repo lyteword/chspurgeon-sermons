@@ -1,12 +1,5 @@
 # Sermon 2376 | "I Will," Yet, "Not As I Will"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 2, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 1, 1883.
-
 "Father, I will." "Not as I will." John 7:24, Matthew 16:39.
 
 We have, here, two prayers uttered by the same Person, yet there is the greatest possible contrast between them. How different men are at different times! Yet Jesus was always essentially the same--"the same yesterday, and today, and forever." Still, His mood and state of mind varied from time to time. He seemed calmly happy when He prayed with His disciples and said, "Father, I will that they, also, whom You have given Me, be with Me where I am; that they may behold My Glory, which You have given Me." But He was in an agony when, in Gethsemane, having withdrawn from His disciples and fallen on His face, He prayed, saying, "O My Father, if it is possible, let this cup pass from Me: nevertheless not as I will, but as You will." It is the same Man and an unchangeable Man, too, as to His essence, who uttered both prayers, yet see how different were His frames of mind and how different the prayers He offered! Brother, you may be the same man and quite as good a man when you are groaning before God as when you are singing before Him. There may be more Grace, even, in the submissive, "Not as I will," than in the triumphant, "Father, I will." Do not judge yourselves to have changed in your standing before God because you have undergone an alteration as to your feelings. If your Master prayed so differently at different times, you, who have not the fullness of Grace that He had, must not wonder if you have a great variety of inward experiences.

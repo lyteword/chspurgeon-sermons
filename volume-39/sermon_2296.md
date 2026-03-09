@@ -1,12 +1,5 @@
 # Sermon 2296 | Saints Guarded From Stumbling
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 19, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy, to the only wise God our Savior, be glory and majesty, dominion and power, both now and forever. Amen." Jude 1:24,25.
 
 THE point and pith of what I may have to say will lie in the alteration of this text caused by the revision of the New Testament. The Revised Version runs thus, "Now unto Him that is able to guard you from stumbling.''" I am not going to speak at any length upon the rest of the text, but shall dwell mainly upon this remarkable alteration, which certainly gives the meaning of the original better than the rendering in the Authorized Version.

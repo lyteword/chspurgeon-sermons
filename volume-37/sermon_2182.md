@@ -1,12 +1,5 @@
 # Sermon 2182 | Jehovah-shammah--a Glorious Name for the New Year
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 4, 1891,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The name of the city from that day shall be, The Lord Is There [or in the Hebrew, 'Jehovah-Shammah.']" Ezekiel 48:35
 
 THESE words may be used as a test as well as a text. They may serve for examination as well as consolation and, at the beginning of a year, they may fulfill this useful double purpose. In any case they are full of marrow and fatness to those whose spiritual taste is purified. It is esteemed by the Prophet to be the highest blessing that could come upon a city that its name should be, "JEHOVAH-SHAMMAH, The Lord Is There." Even Jerusalem, in its best estate, would have this for its crowning blessing--nothing could exceed this. Do we reckon the Presence of the Lord to be the greatest of blessings? If in any gathering, even of the humblest people, the Lord God is known to be present in a peculiarly gracious manner, should we make a point of being there? Very much depends upon our answer to these queries.

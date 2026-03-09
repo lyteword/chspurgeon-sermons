@@ -1,12 +1,5 @@
 # Sermon 2256 | Daniel's Band
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 15, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 3, 1890.
-
 "O Daniel, a man greatly beloved." Daniel 10:11.
 
 IT did not do Daniel any harm to know that he was greatly beloved of God, or else he would not have received that information from Heaven. Some people are always afraid that if Christian people obtain full assurance and receive a sweet sense of Divine love, they will grow proud, and be carried away with conceit. Do not have any such fear for other people and especially do not be afraid of it for yourselves! I know of no greater blessing that can happen to any man and woman here than to be assured by the Spirit of God that they are greatly beloved of the Lord. Such knowledge might do some of us, who are Christians, the greatest conceivable good! Daniel was not injured by knowing that he was greatly beloved. It has often been said that Daniel is the John of the Old Testament and John is the Daniel of the New Testament. Those two men, Daniel and John, were choice saints. They rose to the greatest height of spiritual obedience and then to the greatest height of spiritual enjoyment.

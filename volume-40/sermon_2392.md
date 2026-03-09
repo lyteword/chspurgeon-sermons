@@ -1,12 +1,5 @@
 # Sermon 2392 | The Birth Of Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 23, 1891.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, DECEMBER 24, 1854.
-
 "Behold, a virgin shall conceive and bear a Son, and shall call His name Immanuel. Butter and honey shall He eat, that He may know to refuse the evil, and choose the Good." Isaiah 7:14,15.
 
 The kingdom of Judah was in a condition of imminent peril. Two monarchs had leagued themselves against her, two nations had risen up for her destruction. Syria and Israel had come up against the walls of Jerusalem with full intent to raze them to the ground and utterly destroy the monarchy of Judah. Ahaz the king, in great trouble, exerted all his ingenuity to defend the city and, among the other contrivances which his wisdom taught him, he thought it fit to cut off the waters of the upper pool, so that the besiegers might be in distress for lack of water. He goes out in the morning, no doubt attended by his courtiers, makes his way to the conduit of the upper pool, intending to see after the stopping of the stream of water, but lo, he meets with something which sets aside his plans and renders them needless! Isaiah steps forward and tells him not to be afraid for the smoke of those two firebrands, for God should utterly destroy both the nations that had risen up against Judah. Ahaz need not fear the present invasion, for both he and his kingdom would be saved. The king looked at Isaiah with an eye of incredulity, as much as to say, "If the Lord were to send chariots from Heaven, could such a thing as this be? Should He animate the dust and quicken every stone in Jerusalem to resist my foes, could this be done?"

@@ -1,12 +1,5 @@
 # Sermon 2375 | Found By Jesus--And Finding Jesus
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 26, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 24 ,1888.
-
 "The day following, Jesus would go forth into Galilee, and He found Philip, and said to him, Follow Me. Now Philip was of Bethsaida, the city of Andrew and Peter. Philip found Nathanael, and said to him, We have found Him, of whom Moses in the Law, and the Prophets, did write, Jesus of Nazareth, the son of Joseph." John 1:43-45.
 
 FOR a soul to come to Jesus is the grandest event in its history! It is spiritually dead till that day, but it then begins to live--and a saved man may reckon his age from the time in which he first knew the Lord. That day of first knowing Christ is important in the highest degree because it affects all the man's past life. It sheds another light on all the years that have gone by. If he has lived in sin, as no doubt he has, the transaction of that day blots out all the sin. The day in which a man comes to Christ--that very day--his transgressions and iniquities are blotted out, even as the thick clouds are driven from the sky when God's strong wind chases them away! Is not that a grand day, in which our sins are cast into the depths of the sea so that from then on it can be said of them, "They may be sought for, but they shall not be found; yes, they shall not be, says the Lord"?

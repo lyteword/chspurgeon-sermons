@@ -1,12 +1,5 @@
 # Sermon 2311 | Our Lord's Last Cry from the Cross
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 4, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITATN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 9, 1889.
-
 "And when Jesus had cried with a loud voice, He said, Father, into Your hands I commend My spirit: and having said this, He gave up the ghost." Luke 23:46.
 
 THESE were the dying words of our Lord Jesus Christ, "Father, into Your hands I commend My spirit." It may be instructive if I remind you that the Words of Christ upon the Cross were seven. Calling each of His cries, or utterances, by the title of a Word, we speak of the seven last Words of the Lord Jesus Christ. Let me rehearse them in your hearing. The first, when they nailed Him to the Cross, was, "Father, forgive them; for they know not what they do." Luke has preserved that Word. Later, when one of the two thieves said to Jesus, "Lord, remember me when You come into Your Kingdom," Jesus said to him, "Verily I say unto you, Today shall you be with Me in Paradise." This, also, Luke has carefully preserved. Farther on, our Lord, in His great agony, saw His mother, with breaking heart, standing by the Cross and looking up to Him with unutterable love and grief, and He said to her, "Woman, behold. your son!" and to the beloved Apostle, "Behold your mother!" and thus He provided a home for her when He, Himself, should be gone away. This utterance has only been preserved by John.

@@ -1,12 +1,5 @@
 # Sermon 2371 | Freedom At Once and Forever
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 29, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 13, 1888
-
 "To proclaim liberty to the captives." Isaiah 61:1.
 
 I DO not know whether you generally read the daily newspaper. I think we might get up a "Society for the Suppression of Useless Knowledge." A great deal that appears in the newspapers amounts only to that--and much time is wasted reading the paper. But sometimes we get a gem among the news and, to my mind, there was a gem contained in a Reuter's telegram, from Rio Janeiro, May 10th--"The Brazilian Chamber of Deputies has voted the immediate and unconditional abolition of slavery in Brazil." My heart rejoiced as I read that paragraph! I hope it does not mean that this vote can be defeated in some other Chamber, or the abolition can be prevented by some other power. But if it means that slavery is to be immediately and unconditionally abolished in Brazil, I call upon you all to thank God and rejoice in His name! Wherever slavery exists, it is an awful curse, and the abolition of it is an unspeakable blessing. All free men should praise God and especially those whom Christ has made free, for they are, "free indeed."

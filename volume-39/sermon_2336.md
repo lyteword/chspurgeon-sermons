@@ -1,12 +1,5 @@
 # Sermon 2336 | The Love Of Jonathan and the Love Of Jesus
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 26, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 29, 1889.
-
 "Your love to me was wonderful, surpassing the love of women." 2 Samuel 1:26.
 
 DAVID was a poet and when he found that his best-beloved friend had fallen by the arrows of the Philistines, he wept greatly and then he cheered his heart by writing the very fine elegy which, in later years was called, "The Song of the Bow." Even if David's lamentation is judged according to the canons of literary taste, it must be placed among the first of poetical compositions. Thus David tried to keep his friend's memory green--the song was meant to be a memorial of him. Such friends as Jonathan are not common and when we have had them, we must not forget them. It is sad that, in these days, friendship is proverbially a frail thing. Friends are like swallows that are with us in our summertime and gone when the damps of autumn begin to gather. When a man has a faithful friend, let him grapple him to his side with hooks of steel! And when he loses him, let him know that he has lost what will be very hard to replace and let him not forget his friend though he is buried beneath the sod. True friendship likes to fashion memorials of the departed. We keep mementos of the loved ones we have lost. We like to think of the happy days of communion we have had together and we will not allow the cherished name to be blotted out from the memory of men.

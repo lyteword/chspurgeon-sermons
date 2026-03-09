@@ -1,12 +1,5 @@
 # Sermon 2263 | Christ's Plea for Ignorant Sinners
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 3, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 5, 1890.
-
 "Then said Jesus, Father, forgive them; for they know not what they do." Luke 23:34.
 
 WHAT tenderness we have here; what self-forgetfulness; what almighty love! Jesus did not say to those who crucified Him, "Be gone!" One such word and they would have all fled. When they came to take Him in the garden, they went backward and fell to the ground when He spoke but a short sentence! And now that He is on the Cross, a single syllable would have made the whole company fall to the ground, or flee away in fright.

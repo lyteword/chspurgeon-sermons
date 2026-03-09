@@ -1,12 +1,5 @@
 # Sermon 2366 | "The Sure Mercies of David"
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 24, 1894.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 6, 1888.
-
 "And as concerning that He raised Him up from the dead, no w no more to return to corruption, He said on this wise, I will give you the sure mercies of David." Acts 13:34.
 
 WE know from this quotation made by the Apostle Paul in his address at Antioch, that he was alluding not only to David, but to the Lord Jesus, also. "For David, after he had served his own generation by the will of God, fell on sleep, and was laid unto his fathers, and saw corruption: but He, whom God raised again, saw no corruption." There was a Covenant made with David which was intended to be typical of another Covenant--and David, himself, is the special type of that great King with whom God has made a Covenant on behalf of His people. We will leave David somewhat in the background in our meditations tonight. We will only use him as the symbol of the great Christ in whom we rejoice, for God gives to us "the sure mercies of David" in Jesus Christ, His well-beloved Son.

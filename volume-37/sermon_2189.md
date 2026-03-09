@@ -1,12 +1,5 @@
 # Sermon 2189 | A Call To Prayer and Testimony
 
-
-A SERMON DELIVERED ON LORD'S-DAY MORNING, FEBRUARY 8, 1891,
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have set watchmen upon your walls, O Jerusalem, which shall never hold their peace day nor night: you that make mention of the Lord, keep not silent, and give Him no rest, till He establishes, and till he makes Jerusalem a praise in the earth." Isaiah 62:6, 7.
 
 IN the opening verses of this chapter our Lord declares that He will not rest till His purpose of Grace is accomplished. "For Zion's sake will I not hold My peace, and for Jerusalem's sake I will not rest." His soul is set upon the perfection of His Church. There is never a moment when the heart of Christ ceases to beat high with desire for the salvation of His redeemed. From the dreadful work of making Atonement, He stayed not His hand, but set His face like a flint towards it, till He could say, "It is finished." And now, the work of the gathering of His chosen He carries on with quenchless zeal, never staying His Divine intercession, never withholding His hands from wielding that "All Power" which is given Him in Heaven and in earth.

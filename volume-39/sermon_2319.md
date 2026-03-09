@@ -1,12 +1,5 @@
 # Sermon 2319 | The Lord's Chosen Ministers
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 30, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 23, 1889.
-
 "In that hour Jesus rejoiced in spirit, and said, Ithank You, O Father, Lord of Heaven and earth, that You have hid these things from the wise and prudent, and have revealed them unto babes: even so, Father; for so it seemed good in Your sight." Luke 10:21.
 
 THE habitual state of mind of Jesus was, I think, a deep calm. Beyond all ordinary men, He possessed His soul in peace. We find Him sleeping in the midst of a storm, the very best thing that He could do. He knew that, rocked in the cradle of the deep by His great Father, He was supremely safe, so, finding a pillow, and going near the stern of the ship, He fell asleep.

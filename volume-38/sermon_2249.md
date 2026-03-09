@@ -1,12 +1,5 @@
 # Sermon 2249 | Even Now
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1892.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 8, 1891.
-
 "Even now." John 11:22
 
 I HOPE that there are a great many persons here who are interested in the souls of those around them. We shall certainly never exercise faith concerning those for whose salvation we have no care. I trust, also, that we are diligent in looking after individuals, especially those who are among our own family and friends. This is what Martha did--her whole care was for her brother. It is often easier to have faith that Christ can save sinners in general, than to believe that He can come into our own home and save some particular member of our household. But, oh, the joy when this comes to pass--when we are able to kneel beside some of our loved ones and rejoice with them in being made alive by the power of the Holy Spirit! We cannot expect to have this privilege, however, unless, like Martha, we send our prayers to Jesus and go to meet Him and tell Him of our need. In the Presence of Christ it seems very natural to trust Him even at the worst extremity. It is when we are at our wits' end that He delights to help us. When our hopes seem to be buried, then it is that God can give a resurrection! When our Isaac is on the altar, then the heavens are opened and the voice of the Eternal is heard. Are you giving way to despair concerning your dear friend? Are you beginning to doubt your Savior and to complain of His delay? Be sure that Jesus will come at the right time, though He will be the judge of which is the best time for Him to appear.
