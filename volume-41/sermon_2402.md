@@ -1,12 +1,5 @@
 # Sermon 2402 | Under Arrest
 
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 3, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING MARCH 3, 1887.
-
 "Butbefore faith came, we were kept under the Law, shut up unto the faith which should afterwards be revealed." Galatians 3:23.
 
 THIS is a condensed history of the Jews before the Gospel was fully preached to them. Before the clear and plain revelation of the way of salvation--that is to say, before Jesus Christ, Himself, actually appeared among the sons of men--the Hebrew nation was put under the tutorship and governance of the Mosaic Law. So far as salvation was to be obtained by it, that Law was a total failure. It did not make the Jews a holy people--whenever they reached any point of excellence, they soon went back from it, for they were bent on backsliding. Whatever the influence of that blessed Law might be supposed to be, the actual net result was very poor, indeed, for, when Christ came to the chosen people, they were in a most miserable condition, and there was no hope for them at all apart from the promised Messiah. They were shut up to the alternative of receiving Him, or else being put away as a nation for a long time of banishment and exile. This, indeed, they have actually endured through their rejection of the one and only Savior.

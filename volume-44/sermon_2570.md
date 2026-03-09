@@ -1,12 +1,5 @@
 # Sermon 2570 | Jesus Sitting on the Well
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 15, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 25, 1883.
-
 "Jesus therefore, being wearied with His journey, sat thus on the well: and it was about the sixth hour." John 4:6.
 
 IF we were wise, dear Friends, we would find a thousand things in the world to remind us of our blessed Lord. It is well to form the habit of connecting things that are seen with Him, "whom, having not seen, we love." If we do so, there will not be an hour in the day when we shall not be helped to think of Him and scarcely anything that we see in our trade, or in the street, or in the field, or in our house which will not be the means of reminding us of Him. When we rise in the morning, would it not be well to think of how He rose a great while before day that He might have time for private prayer? He had a hard day's work before Him and, therefore, He needed strength with which to do it. And He gained it, not by a longer sleep, but by stealing time from sleep in which to draw near the strengthening Father in prayer! Even when the morning is ended and we come to the middle of the day, if we are hot and weary and the sun scorches us, we shall do well to think of our text, "Jesus therefore, being wearied with His journey, sat thus on the well."

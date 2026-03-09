@@ -1,12 +1,5 @@
 # Sermon 2731 | Bringing Sinners to the Savior
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 16, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 22, 1880.
-
 "And one of the multitude answered and said, Master, Have brought unto You my son, who has a dumb spirit; and wherever he takes him, he tears him: and he foams, and gnashes with his teeth, and pines away: and I spoke to Your disciples that they should cast him out; and they could not. He answered him, and said, O faithless generation, how long shall I be with you? How long shall I bear with you? Bring him to Me. And they brought him to Him: and when he saw Him, straightway the spirit convulsed him; and he fell on the ground, and wallowed foaming at the mouth." Mark 9:17-20.
 
 I DO not intend to speak so much upon the whole of this text as to use the latter part of it as a sort of motto for an appeal to Christian people to be diligent in the service of their Lord. If we wish to do good to our fellow creatures, the best thing that we can do for them is to bring them to the Lord Jesus Christ. At the feet of Jesus we ourselves obtained salvation if we are saved--we never had any true peace of heart until we came to Christ--and we never would have had any if we had remained apart from Him. The great Physician, who healed our soul-sickness, was Christ Jesus the Lord! And if we are to be the means of blessing to the sons of men, we must recommend to them the Physician whom we have proved to be so exceedingly useful to ourselves. They cannot be blessed, any more than we could be, until they are brought to Jesus!

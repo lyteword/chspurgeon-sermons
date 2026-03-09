@@ -1,12 +1,5 @@
 # Sermon 2722 | The Education of Sons of God
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 14, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 10, 1880.
-
 "Though He were a Son, yet learned He obedience by the things which He suffered." Hebrews 5:8.
 
 WERE you ever in a new trouble, one which was so strange that you felt that a similar trial had never happened to you and, moreover, you dreamt that such a temptation had never assailed anybody else? I should not wonder if that was the thought of your troubled heart. And did you ever walk out upon that lonely desert island upon which you were wrecked and say, "I am alone--alone--ALONE--nobody was ever here before me"? And did you suddenly pull up short as you noticed, in the sand, the footprints of a man? I remember right well passing through that experience--and when I looked, lo, it was not merely the footprints of a man that I saw, but I thought I knew whose feet had left those imprints. They were the marks of One who had been crucified, for there was the print of the nails. So I thought to myself, "If He has been here, it is no longer a desert island. As His blessed feet once trod this wilderness-way, it blossoms now like the rose and it becomes to my troubled spirit as a very garden of the Lord!"

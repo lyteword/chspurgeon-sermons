@@ -1,12 +1,5 @@
 # Sermon 2410 | Springtime in Nature and Grace
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 1, 1887.
-
 "For as the rain comes down and the snow from Heaven, andreturns not there, but waters the earth, and makes it bring forth and bud, that it may give seed to the sower, and bread to the eater: so shall My Word be that goes forth out of My mouth: it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing for which I sent it. For you shall go out with joy, and be led forth with peace: the mountains and the hills shall break forth before you into singing, and all the trees of the field shall clap their hands. Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the LORD for a name, for an everlasting sign that shall not be cut off." Isaiah 55:10-13.
 
 THIS is a text for the springtime! If you read it through tomorrow morning, before the smoke has clouded the heavens, while yet the earliest birds are calling up their mates to sing, you will understand its meaning better than I can make you comprehend it by any words of mine. The whole four verses seem to describe a scene in nature which is only to be witnessed about this time of the year, yet I am not going to look into the poetical meaning of the text so much as to use it as a description of personal experience. I think, no--I am sure that there are many of us who have passed through our spiritual winter. We have also had our spring--we are even coming to our summer--and there are some whose ripe and mellow experience has the peacefulness of autumn about it. Our lives are, in miniature, like the years that so quickly follow one another and every year does but repeat the changes in our lives! I want, at this time, to speak about springtime in our spiritual experience--touching, however, upon a more advanced period, as it will be necessary to do--but my first word is to be concerning our springtime experience.

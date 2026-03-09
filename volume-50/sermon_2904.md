@@ -1,12 +1,5 @@
 # Sermon 2904 | The Plumb Line
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 6, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 27, 1876.
-
 "Thus He showed me: and, behold, the Lordstood upon a wall made by a plumb line, with a plumb line in His hand. And the LORD said unto me, Amos, what do you see? And I said, A plumb line. Then said the Lord, Behold, I will set a plumb line in the midst of My people Israel: I will not again pass by them anymore." Amos 7:7, 8.
 
 GOD usually speaks by men according to their natural capacity. Amos was a herdsman. He was not a man of noble and priestly rank, like Ezekiel, nor a man of gigantic intellect and mighty eloquence, like Isaiah. He was a simple herdsman and, therefore, God did not cause him to see the visions of Isaiah, or dazzle his mind with the wondrous revelations that were given to Ezekiel. God's rule is, "Every man in his own order" and if we depart from that, we get out of place and we are apt to try to make others do that which they are not fit to do and then blame them when they fail to accomplish what they should never have attempted! God always uses His servants in the best possible way and as they ought to be used. And so, when the herdsman Amos had a vision, he simply saw a piece of string with a plumb of lead at the bottom of it--a plumb line--a thing which he could easily understand.

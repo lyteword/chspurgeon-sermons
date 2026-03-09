@@ -1,12 +1,5 @@
 # Sermon 2625 | The Dumb Singing
 
-
-INTENDED FOR READING OR LORD'S-DAY, JUNE 4, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT SHOULDHAM STREET CHAPEL, ON WEDNESDAY MORNING, APRIL 29, 1857.
-
 "Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped. Then shall the lame man leap as an hart, and the tongue of the dumb sing: for in the wilderness shall waters break out, and streams in the desert." Isaiah 35:5.
 
 WHAT a difference Divine Grace makes, wherever it enters the heart! In our text we find the blind mentioned, but they are no longer blind when once Grace has touched their eyes! "Then the eyes of the blind" are "opened." We read also of the deaf, but they are not deaf after Grace has operated upon them! "The ears of the deaf are "unstopped." Here are men who have been "lame," but when once the Omnipotent influence of Divine Grace has come upon them, they leap like a hart! And those who used to be speechless, so far from being dumb any longer, have experienced a change that must be radical, for its effects are surprising. "The tongue of the dumb" not only speaks, but it sings! Divine Grace makes a great difference in a man when it enters into him.

@@ -1,12 +1,5 @@
 # Sermon 2886 | Restless! Peaceless!
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 2, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 21, 1876.
-
 "But the wicked are like the troubled sea when it cannot rest, whose waters cast up mire and dirt. There is no peace, says my God, to the wicked." Isaiah 57:20,21.
 
 AMONG the greatest privileges of the Believer in Christ are those choice blessings, rest and peace. Believing in Christ Jesus unto eternal life, he knows that his sin is pardoned, that he is a child of God, that Omnipotence will preserve him even to the end and that he will, by-and-by, be with Christ where he is not only to behold, but also to share His Glory forever and ever. Consequently his heart is at rest, for he leaves all that concerns him--whether in the present or the future--in the hands of his Heavenly Father, casting all his care upon Him who cares for him. And, therefore, he has peace, perfect peace, in his soul. This peace and rest which the Believer enjoys even here and now will deepen and increase until, in eternity, they will reach their perfection and the child of God will, forever and forevermore, in the blessed state above, be without even the slightest disturbance of heart and will rest in the Presence of God with his glorified spirit as full of joy as it can possibly be. The Apostle Paul truly writes, "We which have believed do enter into rest." But he also adds, just as truly, "There remains therefore a rest to the people of God."

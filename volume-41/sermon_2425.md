@@ -1,12 +1,5 @@
 # Sermon 2425 | Self-destroyed, Yet Saved
 
-
-INTENDED FOR READING ON LORD'S DAY, AUGUST 11, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 11, 1887.
-
 "O Israel, you have destroyed yourself; but in Me is your help." Hosea 13:9.
 
 IT would be a very important subject for our meditation if we kept to the text and thought upon its great Truth of God--that the ruin of man is altogether of himself and the salvation of man is altogether of God. These two statements, I believe, comprehend the main points of a sound theology. There have been divisions in the Church over these points where there ought not to have been any. The Calvinist has said and said right bravely, that salvation is of Grace alone. And the Arminian has said and said most truthfully, that damnation is of man's will, alone, and as the result of man's sin, and of that only. Then they have fallen out with one another. The fact is, they had, each one, laid hold of a Truth of God, and if they could have put their heads together and accepted both Truths, it might have been greatly for the advantage of the Church of Christ! These two doctrines are like tram lines that you can travel on with safety and comfort, these parallel lines--ruin, of man; restoration, of God. Sin, of man's will; salvation, of God's will. Reprobation, of man's demerit; election, of God's free and Sovereign Grace. The sinner lost in Hell through himself, alone, the saint lifted up to Heaven wholly and alone by the power and Grace of God!

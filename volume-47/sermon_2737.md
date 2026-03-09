@@ -1,12 +1,5 @@
 # Sermon 2737 | Who Should Be Baptized?
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 28, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1859.
-
 "If you believe with all your heart, you may." Acts 8:37.
 
 IT is not my practice to preach what people commonly call "baptizing sermons." It is very seldom that I even mention the subject of Baptism in my preaching, for I find that many of my hearers learn the Scriptural teaching concerning it without much help from me. Of those who have come to unite with us in Church fellowship, a very large proportion consists of persons who have searched out the Truth of God upon this matter for themselves and could in no wise trace their alteration in sentiment to any remark of mine, but they had seen the ordinance clearly revealed in Holy Scripture. This is a method of arriving at the Truth which I greatly prefer to any instruction imparted by myself, for, in the case of people thus Divinely taught, I know that their faith will "not stand in the wisdom of men, but in the power of God." I refused, on one occasion, to go to Ireland when invited to do so by a Brother who gave, as the reason why he wished me to go, that by going there I should greatly increase the Baptist denomination. "No," I said, "I would not go across the street, much less across the sea, merely to make people Baptists." Wherever I may be, I endeavor, as in the sight of God, so to deal with men as to bring them to Christ, leaving the Spirit of God further to take of the things of Christ and reveal them unto them.

@@ -1,12 +1,5 @@
 # Sermon 2835 | Patients for the Great Physician
 
-
-A SERMON INTENDED FOR READING ON HOSPITAL SUNDAY.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY, FEBRUARY 15, 1863.
-
 "And Jesus answering said unto them, They that are whole need not a physician; but they that are sick." Luke 5:31.
 
 IF you had never heard that passage before, you would be almost certain to know where to look for it. It must be in the Gospel according to Luke, for Luke was the beloved physician and, therefore, while taking notes of our Savior's discourses, he would be able to record anything that would be likely to strike upon a physician's ear and to be stamped upon his memory. Matthew and Mark also record this saying of our Lord, but Luke would have special reasons for mentioning it.

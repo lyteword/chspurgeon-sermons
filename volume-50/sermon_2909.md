@@ -1,12 +1,5 @@
 # Sermon 2909 | Job's Sure Knowledge
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 10, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 10, 1876,
-
 "For I know that my Redeemer lives." Job 19:25.
 
 I DARESAY you know that there are a great many difficulties about the translation of this passage. It is a very complicated piece of Hebrew, partly, I suppose, owing to its great antiquity, being found in what is, probably, one of the oldest Books of the Bible. Besides that, different persons have tried to translate it according to their own varying views. The Jews stiffly fight against the notion of the Messiah and His Resurrection being found in this verve, while many Christian commentators see here everything that we can find in the New Testament and translate the passage as though Job were as well instructed in this matter as we are now that Christ "has brought life and immortality to light through the Gospel." Others say that while there is, no doubt, a reference to the Person and the Resurrection of Christ, yet it is not so vivid as some seem to think.

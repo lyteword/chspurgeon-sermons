@@ -1,12 +1,5 @@
 # Sermon 2773 | For or Against?
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 6, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING MARCH 24, 1878.
-
 "And the guards shook for fear of him, and became as dead men. And the angel answered and said unto the women, Do not be afraid, for I know that you seek Jesus, who was crucified. He is not here, for He is risen, as He said." Matthew 28:4-6.
 
 THIS twofold incident, the trembling of the guards and the comforting of the women, seems to me to have a great deal about it in the form of a type. I think it may be looked upon as an illustration of what has often occurred and will probably occur again and again. And it teaches us how Divine and angelic manifestations have their dark and threatening side for the ungodly, and their bright and cheering side for the people of God. Just as the pillar of cloud which came between the Israelites and the Egyptians, was dark to the Egyptians but gave light to the children of Israel, so, in this case, the appearance of the angel of the Lord made the Roman soldiers shake and swoon away while it brought comfort and encouragement to the humble women who were the followers of the Lord Jesus Christ.

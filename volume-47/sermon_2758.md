@@ -1,12 +1,5 @@
 # Sermon 2758 | "Return Unto Your Rest"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 22, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 7, 1879.
-
 "Return to your rest, O my soul; for the Lord hats dealt bountifully with you." Psalm 116:7.
 
 You who have not be1ieved in our Lord Jesus Christ have no rest to which you can return, for you have never found any. May God grant to you the Grace to come to Christ that you may find rest unto your souls! But we who believe in Him do enter into rest. We are sometimes described as journeying through the wilderness towards Canaan, and the type is quite allowable, but still, it must not be pressed too far, for, in another sense, we have already entered into our rest. We have entered the Canaan which our Joshua has given to us. Moses, by the Law of God, could not lead us into this promised land, but Jesus has brought us into it and we now have our portion and our inheritance in the Covenant blessings which God has provided for His people in Christ Jesus His Son. God's people, when they are as they ought to be, are in a state of rest even now. I do not mean that they will have rest so far as this world is concerned, for this earth is not our rest, it is polluted. But I do mean that as the Apostle Paul writes to the Romans, "There is therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit." I mean that, as he also says, "Being justified by faith, we have peace with God through our Lord Jesus Christ." And that peace includes "rest, sweet rest"--especially that "peace of God, which passes all understanding," which the Apostle declares, "shall keep your hearts and minds through Christ Jesus."

@@ -1,12 +1,5 @@
 # Sermon 2412 | A Special Benediction
 
-
-INTENDED FOR READING ON LORD'S DAY, MAY 12, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 12, 1887.
-
 "Jude, the servant of Jesus Christ, and brother of James, to them that are sanctified by God the Father, and preserved in Jesus Christ, and called: mercy unto you, and peace, and love, be multiplied." Jude 1,2.
 
 THOSE were troublous times in which Jude wrote this very forcible Epistle. The first early days of Christianity, with all the springtime of the singing of birds and the blossoming of flowers had passed away. There had come times of trial for everyone, but worst of all were the troubles within the Church. Unawares, evil men had been admitted into membership. The human mind, always acting like leaven, had begun to corrupt, even, the Truth of the Gospel, so that where there had once been an unadulterated, unmingled preaching of the Cross of Christ, there had come in a savor of Gnosticism and other philosophies of the day. And with all the error there had also come a tendency to tone down the high spirituality, the deep sanctity of Christian life. So the children of God who truly cared for Him and walked with Him, were very sad at heart. I suppose that Paul had gone home to His reward. John still lingered and, perhaps, James and Peter, also, but when the time came for Peter to write his second Epistle, the day was darkening down--and when Jude took up his pen and wrote this short Epistle, the times were getting darker and darker and great foreboding of evil were in the hearts of God's servants--foreboding which were only removed by their joyous faith in Him who had gone from them and who would, by-and-by, come again without a sin-offering unto salvation!

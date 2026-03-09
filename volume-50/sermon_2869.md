@@ -1,12 +1,5 @@
 # Sermon 2869 | Prayer Found in the Heart
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 16, 1876.
-
 "Therefore has Your servant found in his heart to pray this prayer unto You." 2 Samuel 7:27.
 
 It is a very blessed thing for a child of God to be anxious to glorify his Heavenly Father, whether his wish is realized or not. The strong desire to magnify God is acceptable to Him and is an indication of spiritual health. It is certain, in the long run, to bring blessing to our own souls and I have frequently noticed that when we earnestly desire to do something special for the Lord, He generally does something for us very much of the same kind. David wished to build a house for God. "No," says Jehovah, "you have been a man of war and I will not employ a warrior in spiritual business. But I will build you a house." So, although David may not build a house for God, it is well that the plan of it is in his heart and God, in return, builds up his house, and sets his son and his son's son upon the throne after him. But, my dear Friend, if you should not find an opportunity to do all that is in your heart, yet, nevertheless, it is well that it is there. Carry out the project if you can, but if you cannot, it may be that as you have desired to deal with the Lord, so will He deal with you. If you have sown sparingly, you shall reap sparingly. If you have sown liberally, you shall reap largely, for, often and often, the Lord's dealings with His own people are a sort of echo to their hearts of their dealings with Him.

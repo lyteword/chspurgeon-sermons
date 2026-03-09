@@ -1,12 +1,5 @@
 # Sermon 2496 | Joyful Anticipation of the Second Advent
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 20, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 23, 1885.
-
 "And when these things begin to come to pass, then look up, and lift up your heads, for your redemption draws near. And He spoke to them a parable, Behold this fig tree and all the trees. When they are budding, you see and know, yourselves, that summer is now near. So likewise, when you see these things happening, you know that the Kingdom of God is near." Luke 21:28-31.
 
 I have already said that I conceive our Lord Jesus Christ to have regarded the destruction of Jerusalem as "the beginning of the end." Although some 1800 years have rolled away since that terrible event, we, with Him, may make but small account of the interval and regard it all as one dispensation of passing away. That beautiful city was the very crown of the entire earth because God had dwelt there. It may be compared to the diamond in a ring, the jewel whose setting was the whole world--and when that jewel was destroyed and God did, as it were, grind it to powder--it was a warning that the ring, itself, would, by-and-by, be crushed and consumed, for "the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth, also, and the works that are therein shall be burned up." The destruction of Jerusalem was, so to speak, the rolling up of the curtain on the great drama of the world's doom. It will not fall again until all the things that we now see shall have passed away and only the things that cannot be shaken--the things of God and of eternity, which we cannot see--shall remain.

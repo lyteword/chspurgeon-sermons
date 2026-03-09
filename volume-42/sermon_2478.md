@@ -1,12 +1,5 @@
 # Sermon 2478 | Christ's Perfection and Precedence
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 16, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1869.
-
 "My Beloved is white and ruddy, the chiefest among ten thousand." Song of Solomon 5:10.
 
 THE spouse in this verse styles her Lord, "my Beloved," from which it is easy for us to gather that it is of the utmost importance that our heart's affection should be really and truly set upon Christ Jesus, our Lord. We must trust Him and we must love Him. Christ on the Cross saves us when He becomes to us Christ in the heart. It is of small service for us to know of Christ if we do not really trust and love Him. It will be of little use for us to talk of Him unless our heart is really welded and knit to Him. Let us, therefore, dear Friends, commence this evening's meditation with a solemn enquiry made by each one for himself or herself, "Can I call the Lord Jesus Christ, who was crucified on Calvary, but who now reigns at the right hand of the Father--can I truly call Him, 'my Beloved'?" There may be a question raised in your soul by a natural anxiety lest you should presume, but be not content until you have solemnly and seriously searched your hearts, to know whether in very deed and truth an ardent affection burns within your spirit towards the Lord Jesus. It were better for you that you had never been born than that you should live and die without love to Christ. Remember that startling sentence of the Apostle Paul which is so solemn that I can scarcely quote it without tears, "If any man love not the Lord Jesus Christ, let Him be Anathema Maranatha," that is, "let Him be accursed at the coming of the Lord." It will be so with you, dear Friends, however shining your moral attributes may have been, however you may have carved your name upon the rock of history--you will go down to endless misery and shame unless your heart has in it a vital sense of true religion--a sincere love to the crucified Christ of Calvary!

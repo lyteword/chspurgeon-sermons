@@ -1,12 +1,5 @@
 # Sermon 2740 | What Is Essential in Coming to God?
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 18, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 12, 1880.
-
 "Without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him." Hebrews 11:6.
 
 THE Apostle had put Enoch down among the heroes of faith and, to prove that Enoch was a man of faith, he says, "Before his translation he had this testimony, that he pleased God." "Then," argues Paul, "if he pleased God, he must have been a believing man, for the very lowest form of approach to God needs faith--'He that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him.' So, if the very lowest grade of approach to God needs faith, much more does that highest form of it in which a man walks with God so as to obtain the testimony that he pleases God." The argument of the Apostle is clear and convincing. If any man shall be pleasing to God, as Enoch was, it must be the result of faith, since, even to come to God at all, in the very first steps that we take, we must have a measure of faith in Him, we must at least believe that God is and that He is a rewarder of them that diligently seek Him.

@@ -1,12 +1,5 @@
 # Sermon 2658 | Waking to See Christ's Glory
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 21, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 3, 1882.
-
 "And when they were awake, they saw His glory and the two men that stood with Him." Luke 9:32.
 
 It seems, at first sight, a strange thing that the Apostles should have been asleep at such a time, yet, if we think of the circumstances in which they were placed and of the extreme excitement under which they must have labored, it will not appear at all amazing that "Peter and they that were with Him were heavy with sleep." In the 28th verse it is written, concerning our Lord, "He took Peter and John and James, and went up into a mountain to pray. And as He prayed, the fashion of His countenance was altered and His raiment was white and glistening." We know that the Savior frequently retired to some quiet, secluded spot for fellowship with His Father and that, sometimes, He spent the whole night in prayer. It is very probable that on this occasion He had been engaged in earnest prayer for several hours before the Transfiguration came. And it is worthy of note that He was transfigured while He was praying. Every blessing comes to the great Head of the Church and to all the members of His mystical body through prayer! There is nothing promised to us without prayer, but, with prayer, everything is provided for us--and by prayer we shall ascend into Glory.

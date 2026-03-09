@@ -1,12 +1,5 @@
 # Sermon 2829 | Lowly Service
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 3, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 12, 1886.
-
 "This is the service of the families, the Gershonites, to serve, and for burdens: and they shall bear the curtains of the tabernacle, and the tabernacle of the congregation, its covering, and the covering of the badgers' skin that is above upon it, and the hanging for the door of the tabernacle of the congregation, and the hangings of the door, and the hanging for the door of the gate of the court, which is by the tabernacle and by the altar round about, and their cords, and all the instruments of their service, and all that is made for them: so shall they serve." Numbers 4:24-26.
 
 THIS is the gist of the whole matter--"This is the service of the families of the Gershonites, to serve, and for burdens: and they shall bear . . . so shall they serve." The Gershonites were part of the tribe of Levi which God selected, instead of the first-born of all Israel, to serve Him in a very special manner. They were to act as the representatives and substitutes for all the first-born, who were set apart, as the Lord's in a very peculiar sense. The Levites were, therefore, to be regarded as the first-born--a name which is applied by the Apostle Paul to all the regenerate when he speaks of "the general assembly and church of the first-born, which are written in Heaven." Jesus Christ is the true First-Born and all Believers are predestinated to be conformed to the image of Him who is "the First-Born among many brethren."

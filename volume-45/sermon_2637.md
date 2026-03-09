@@ -1,12 +1,5 @@
 # Sermon 2637 | The Place of Prayer and Pardon
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 27, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 1, 1882.
-
 "Whatever burden or whatever sickness there is: then what prayer or what supplication shall be made of any man, or of all Your people Israel, when everyone shall know his own burden and his own grief, and shall spread forth his hands in this house: then hear You from Heaven, Your dwelling place, and forgive, and render unto every man according unto all his ways, whose heart You know (for You, only, know the hearts of the children of men)." 2 Chronicles 6:28-30.
 
 THE Temple was intended to be the center of prayer for all the children of Israel. Those who could do so went up to it a certain number of times every year. Others, who were too far away to go, prayed with their window open towards Jerusalem, for there was the Mercy Seat and beneath the wings of the overshadowing cherubim there dwelt that bright light of the Shekinah which was the index of the Presence of God in the midst of His people. It is not, therefore, to be wondered at that when Solomon dedicated to the Lord the Temple which he had built, his great petition was that God would hear every prayer that should be offered in that place or toward that place! He wished the Temple to always be to Israel the token that God's memorial is that He hears prayer. Solomon therefore presented a wonderfully comprehensive series of supplications in which he appears to have included all the sorrowful conditions of the nation and all the troubles that were likely to fall upon the chosen people.

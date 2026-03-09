@@ -1,12 +1,5 @@
 # Sermon 2911 | "Cases of Conscience"
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 24, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1862.
-
 "For my iniquities are gone over my head: as a heavy burden they are too heavy for me." Psalm 38:4.
 
 I HAVE a special purpose before me this evening. I shall endeavor to describe the state of the sinner's heart when it has been awakened, when conscience is set at work, when sin and the judgment of God upon it occupy the mind's attention--that period which John Bunyan describes in his, "Pilgrim's Progress," as being spent between the City of Destruction and the Wicket Gate--that state of mind in which a man is found when he flees from his former sin and desires to escape from the wrath to come, but has not yet found out the way of salvation so as to realize his own pardon and forgiveness through the great Atonement made upon the Cross.

@@ -1,12 +1,5 @@
 # Sermon 2563 | Grace for the Guilty
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 27, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, NOVEMBER 25, 1855.
-
 "Have blotted out, as a thick cloud, your transgressions and, as a cloud, your sins: return unto Me, for I have redeemed you." Isaiah 44:22.
 
 THIS declaration was not made to a pious and praying people, who kept near their God, but was spoken to idolatrous Israel--to those who, after having drunk from the fountain of living waters, turned aside to drink the drops that were to be found in broken cisterns. It was spoken to a people who, after they had tasted the good things of God and known the high privileges of true religion, yet turned aside with the nations of the world, forsook the God of Jacob, made unto themselves graven images that were not gods, provoked the Lord to jealousy and moved Him to wrath against them on account of their sins. These words of wondrous mercy were not spoken to the nation of Israel while living near God--who, notwithstanding, would have had sins to mourn over and to be forgiven--but they were addressed to a brutish and foolish nation, to a harlot people who had committed wickedness with all the idols of the heathen! They were those who had offered incense on their hills to false gods, who had made their children pass through the fire of Topheth in the Valley of the Children of Hinnom--to men who were filled with abominable and loathsome sins--men who had committed the crimes of Sodom and bowed down to Baal and Ashtaroth!

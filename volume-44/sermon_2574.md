@@ -1,12 +1,5 @@
 # Sermon 2574 | "Persecuted, But Not Forsaken"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 12, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 8, 1883.
-
 "Many a time have they afflicted me from my youth. Let Israel now say: many a time have they afflicted me from my youth: yet they have not prevailed against me. The plowers plowed upon my back: they made long their furrows. The Lord is righteous: He has cut asunder the cords of the wicked. Let them all be confounded and turned back that hate Zion. Let them be as the grass upon the housetops, which withers before it grows up: which the mower fills not his hand; nor he that binds sheaves his arms. Neither do they which go by say, The blessing of the LORD be upon you: we bless you in the name of the LORD." Psalm 129.
 
 You see, dear Friends, the Psalm speaks of two sorts of people--there is Israel and there are those that hate Zion. The first three verses are dedicated to God's people. The last five speak of those who are not God's people, but are the haters of them. From the very first, there have been two seeds in the world. The first man that was born--Cain, was of the seed of the serpent, but the second was, by the Grace of God, of the seed of the woman. And so early, when those two boys had but just developed into manhood, he that was born by Grace served his God and brought a lamb as his sacrifice. But he that was born after the flesh--the firstborn of man--became his brother's murderer. Thus, in the very first household that ever existed, there was a sharp line of demarcation between the man of faith and the man of sense--the man that lived unto God and the man that lived after his own passions. Always and everywhere since that day there have been the same two characters and, albeit there is a large number of persons about whom you or I may not be able to give any decision, for they seem as if they stood between the two! Yet in the sight of God there is a line, narrow, but most sure, which divides the living from the dead--the believing from the unbelieving--the men that fear God from them that fear Him not.

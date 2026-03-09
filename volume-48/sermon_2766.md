@@ -1,12 +1,5 @@
 # Sermon 2766 | The Sluggard's Reproof
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 16, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE WINTER OF 1859.
-
 "The sluggard will not plow because of the cold; therefore shall he beg in harvest and have nothing." Proverbs 20:4.
 
 LAZINESS is the crying sin of Eastern nations. I believe that the peculiar genius of the Anglo-Saxon character prevents our being, as a nation, guilty of that sin. Perhaps we have many other vices more rife in our midst than that, but, in the East, almost every man is a lazy man. If you tell a Turk in Constantinople that his street is filthy--and it certainly is, for there the offal lies and is never swept away--he says, sitting with his legs crossed, and smoking his pipe, "The Lord wills it." If you tell him there is a fire at the bottom of the street, he does not agitate himself, but he says, "God wills it." If you were to tell him that he was sitting on a heap of gunpowder and that he had better take heed lest a spark should blow him up, probably he would never move, or take his pipe out of his mouth, except to say, "God wills it." Some of the most extraordinary instances of idleness are told us of those people by travelers in the East to this day. The further you go East, the less activity there is--the further you go West in the world, the more restless does the human mind become and, consequently, I suppose, the more active.

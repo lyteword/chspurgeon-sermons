@@ -1,12 +1,5 @@
 # Sermon 2874 | Precepts and Promises
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 10, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 13, 1876.
-
 "If anyone serves Me, let him follow Me; and where I am, there shall also My servant be: if anyone serves Me, him My Father will honor." John 12:26.
 
 I HAVE already said, in expounding the chapter from which my text is taken, that the sight of these Greeks who desired to see Jesus seems to have very greatly affected our Savior's mind. [See Exposition at end of sermon.] He had not had much to do with Gentiles, for, as far as His personal ministry upon the earth was concerned, He was not sent to the Gentiles, but only "to the lost sheep of the house of Israel." But now He sees, in those enquiring Greeks, the advance guard of that mighty host of Gentiles who, for these 1,800 years and more, have continued to seek Him out and to call Him their Leader, Friend and Savior! The thought of this great result of His life's work naturally led Him to also think of the Cross from which that result would spring. "These are the redeemed," He seemed to say to Himself, "then it is time for Me to think of the Redemption which I have yet to present on their behalf. These are the first fruits of My great harvest. Then I must see to the sowing of the Seed and I must set my mind steadfastly to think of that sowing, for unless the grain of wheat is cast into the ground, and die, it abides alone." So He began to feel the throes of desire for that Baptism wherewith He was to be baptized, for the joy that was set before Him was, just then, clearer than usual--the joy of winning souls and, especially, the joy of winning Gentile nations unto God and, therefore, His mind fixed itself more than ever upon the plan by which His people's redemption was to be achieved. Hence, I think, arose the words to which I called your attention while we were reading the chapter.

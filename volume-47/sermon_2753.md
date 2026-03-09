@@ -1,12 +1,5 @@
 # Sermon 2753 | Patience, Comfort and Hope From the Scriptures
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 17, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1879.
-
 "For whatever things were written before were written for our learning, that we Through the patience and comfort of the Scriptures might have hope." Romans 15:4.
 
 THE Apostle Paul was an Inspired man when he wrote this Epistle, so there was no necessity on the part of the Holy Spirit, when guiding his mind and pen, to employ words which had been used before in the Scriptures, for His language is unlimited. Yet Paul, Inspired as he was, frequently quoted from the Old Testament and in the verse preceding our text he quotes from the Psalms--"As it is written, The reproaches of them that reproached You fell on Me." One special reason for quoting from the Old Testament was, doubtless, to put honor upon it, for the Holy Spirit foresaw that there would be some in these later days who would speak of it disparagingly. Not so did our Lord Jesus Christ! Not so did His Apostles! Not so did any by whom the Holy Spirit spoke! The Old Testament is not to be regarded with one jot less of reverence and love than is the New Testament--they must remain bound together, for they are the one Revelation of the mind and will of God--and woe be to the man who shall attempt to rend asunder that seamless garment of Holy Scripture!

@@ -1,12 +1,5 @@
 # Sermon 2477 | Darkness Before the Dawn
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 9, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1886.
-
 "Until the day breaks and the shadows flee away, turn, my Beloved, and be like a roe or a young hart upon the mountains of Bether." Song of Solomon 2:17.
 
 THE spouse sings, "Until the day breaks and the shadows flee away," so the beloved of the Lord may be in the dark. It may be night with her who has a place in the heart of the Well-Beloved. A child of God, who is a child of light, may be, for a while, in darkness. First, darkness comparatively, as compared with the light he has sometimes enjoyed, for days are not always equally bright. Some days are bright with a clear sunshine, other days may be overcast. So the child of God may one day walk with full assurance of faith, in close fellowship with the Father and with His Son, Jesus Christ, and at another time he may be questioning his interest in the Covenant of Grace and may be rather sighing than singing, rather mourning than rejoicing. The child of God may be, then, in comparative darkness.

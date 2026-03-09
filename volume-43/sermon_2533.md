@@ -1,12 +1,5 @@
 # Sermon 2533 | The Ever-present Crisis
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 5, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 17, 1884.
-
 "You therefore, Beloved, seeing you know these things before, beware lest you, also, being led away with the error of the wicked, fall from your own steadfastness." 2 Peter 3:17.
 
 The Apostle has told us that there will come, in the last days, scoffers. We, therefore, know this is to be the case, for we have been informed concerning it. Forewarned is forearmed and now that we see the scoffers and cannot help seeing them, we perceive another proof of the truth of Scripture. Every time a blasphemer opens his mouth to deny the truth of Revelation, he will help to confirm us in our conviction of the very Truth of God which he denies! The Holy Spirit told us, by the pen of Peter, that it would be so, and now we see how truly he wrote.

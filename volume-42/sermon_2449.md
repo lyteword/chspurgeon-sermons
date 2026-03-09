@@ -1,12 +1,5 @@
 # Sermon 2449 | The Rule and Reward of Serving Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 26, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 27, 1889.
-
 "If anyone serves Me, let him follow Me, and where I am there My servant will be also: if anyone serves Me, him will My Father honor." John 12:26.
 
 THIS verse is all about serving and service. Three times over you get the word, "serve," or, "servant." Each clause of our text has in it a part of the verb, "to serve." You cannot have Christ if you will not serve Him! If you take Christ, you must take Him in all His Characters, not only as Friend, but also as Master. And if you are to become His disciple, you must also become His servant. I hope that no one here kicks against that Truth of God! Surely it is one of our highest delights on earth to serve our Lord and this is to be our blessed employment even in Heaven, itself--"His servants shall serve Him: and they shall see His face."

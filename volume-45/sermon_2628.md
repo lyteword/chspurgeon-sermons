@@ -1,12 +1,5 @@
 # Sermon 2628 | "All Hail!"
 
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 25, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 5, 1882.
-
 "And as they went to tell His disciples, behold, Jesus met them, saying, All hail! So they came and held Him by the feet and worshipped Him. Then said Jesus to them, Be not afraid. Go and tell My brethren to go into Galilee, and there will they see Me." Matthew 28:9,10.
 
 ON Sabbath mornings, lately, we have been meditating upon the sorrows of our Lord Jesus Christ. We have been, in thought, traveling with Him from dark Gethsemane to still darker Golgotha. We have pictured Him under accusation before Caiaphas, Herod and Pilate. We have, in imagination, heard the cruel shouts of the Jews, "Away with Him! Crucify Him!" These solemn events have been full of pain to us--even the bliss that comes to us through the Cross of Christ has been toned down with intense sorrow as we have thought of the agonies our Savior endured there. But as soon as we get to the other side of the Cross and realize that Christ has risen from the dead, everything is calm, quiet and peaceful! There are none of those rough winds and stormy blasts that come sweeping around us as we stand outside Pilate's palace and Herod's judgment hall. All is spring-like--summer-like, if you will--yes, and autumn-like, for there are most luscious fruits to be gathered in the garden wherein was a new sepulcher out of which the living Christ arose in all the glory of His resurrection from the dead!

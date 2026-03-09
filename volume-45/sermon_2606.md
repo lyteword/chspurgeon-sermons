@@ -1,12 +1,5 @@
 # Sermon 2606 | Choice Teaching for the Chosen
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 22, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 21, 1883.
-
 "It is written in the Prophets, 'And they shall be all taught of God.' Every man, therefore, that has heard and has learned of the Father, comes unto Me." John 6:45.
 
 I SUPPOSE that you never noticed any great literary excellence in Bradshaw's Railway Guide. "No," you say, "one writing would be very much out of place in such a book as that--it is meant to be a plain direction to travelers. When we consult it, we do not wish to be entertained, we want to be guided as to the best and quickest route to our desired destination." Well, that is the sort of sermon I am going to try to preach--one which, I trust, shall be a guide to Heaven to some who hear it, or who may afterwards read it--I long, above all things, that through my words many may find rest and peace in Jesus Christ our Lord.

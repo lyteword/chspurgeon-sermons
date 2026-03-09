@@ -1,12 +1,5 @@
 # Sermon 2675 | Jehovah's Challenge
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 20, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 31, 1882.
-
 "Is there anything too hard for Me?" Jeremiah 32:27.
 
 A Truth of God may be sincerely believed by us and yet it may do us good to have it put in the form of a question. As I read the chapter, I called your attention to Jeremiah's confident declaration to God, "There is nothing too hard for You." Yet in our text, which is only a few verses further on in the chapter, the Lord says to this same Prophet, "Is there anything too hard for Me?" I think the explanation of this mystery is that we do not always thoroughly believe even all that we do truly believe. We may believe it so as to have no doubt about it, but not so believe it as to be prepared to put it into practice. Jeremiah might say to the Lord, "There is nothing too hard for You," and he might be confident of the truth of his words, yet there might be, in the background, so much mistrust, possibly imperceptible to himself, that it might be necessary for God to put the matter to him in the form of a question and to say, even to believing Jeremiah, "Is there anything too hard for Me?" Ah, we little know what unbelievers we really are! The most of us are scarcely aware of what an awful amount of skepticism still lies lurking within our breasts, only waiting for the opportunity to show itself.

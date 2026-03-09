@@ -1,12 +1,5 @@
 # Sermon 2767 | Jesus in Gethsemane
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 23, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 6, 1881.
-
 "When Jesus had spoken these words, He went forth with His disciples over the Brook Kidron, where there was a garden, which He and His disciples entered. And Judas, who betrayed Him, also knew the place; for Jesus often met there with His disciples." John 18:1,2.
 
 I REMEMBER to have read somewhere, though I cannot just now recall the authority, that Bethany--to which place one would have thought the Savior would have gone to spend the night, at the house of Mary and her sister, Martha, was over the brow of the Mount of Olives and was out of the bounds of the city of Jerusalem. Now, at the Passover, it was incumbent that all who kept the feast should spend the whole night within the boundary of the city and our Divine Lord and Master, scrupulous to observe every point of the old Law of God, did not go over the hill, but stayed within the area which was technically considered to be part and parcel of Jerusalem--so that His going to Gethsemane was, in part, a fulfillment of the Ceremonial Law and, for that reason, He went no further and sought no other shelter.

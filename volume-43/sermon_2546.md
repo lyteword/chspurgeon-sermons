@@ -1,12 +1,5 @@
 # Sermon 2546 | A Message to the Glad and the Sad
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 5, 1897,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 17, 1884.
-
 "When men are cast down, then you shall say, there is lifting up; and He shall save the humble person." Job 22:29.
 
 THIS is Eliphaz, the Temanite, who is speaking, and he is telling Job what he thinks would be the condition of a man who had been sincere. He says that surely, God's Presence would be with him, the light would shine upon his ways and then, when he was, himself, happy in the Light of God, when other men were cast down, he would be able to say to them, "there is lifting up." Keeping that thought in mind, I will commence my discourse, this evening, by observing that if any of us have the Light of God, it is not given to us for ourselves alone. There is nothing selfish in the gifts of God. The Jews were elected to receive the Oracles of God, but it was in order that they might keep them for the rest of us, that in the midst of Israel the lamp of the Truth of God might be trimmed and kept burning for the nations that then waited in darkness.

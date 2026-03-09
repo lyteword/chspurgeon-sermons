@@ -1,12 +1,5 @@
 # Sermon 2891 | A Sabbath Miracle
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 11, 1876.
-
 "And He was teaching in one of the synagogues on the Sabbath. And, behold, there was a woman which had a spirit ofinfrmity eighteen years, and was bowed together, and could in no wise lift herself up. And when Jesus sawher, He called her to Him and said unto her, Woman, you are loosed f-omt your infirmity. And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:10-13.
 
 WHAT blessed days Sabbath days are! I mean not only the Jewish Sabbath on the seventh day of the week, but the Christian Sabbath on the first day of the week. I remember a friend in Newcastle telling me that when he was looking at a house in that city which was to be let, he was taken to the top of it and the agent said to him, "You see that there is a fine view from here. You can see a long way today, but on Sundays you can see Durham Cathedral." My friend asked, "Why on Sundays?" And the reply was, "You cannot see it the rest of the week because of the smoke, but, on Sundays it is usually clear enough to get a glimpse of it." What views some of us have had of Heaven and what views of Jesus Christ have been accorded to us on Sabbath days! We might have seen Him on other days if there had not been so much smoke from business, care and sin, but the blessed breath from Heaven has blown it all away on the Lord's Day and we have been able to look even into that which is within the veil!

@@ -1,12 +1,5 @@
 # Sermon 2553 | The Enemies of the Cross of Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 23, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER. 26 1884.
-
 "For many walk, of whom Have toldyou often, and now tell you even weeping, that they are the enemies of the Cross of Christ: whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things. Philippians 3:18,19.
 
 IT would seem, dear Friends, that there have been trials and difficulties connected with the Church of Christ in every age. We dream that our temptations are worse than those of our fathers, but they are not. We fancy that the Church is subject to worse diseases than in her early days, but it is not so. Paul had to complain that even in the Church at Philippi, which was about as good as any, and in some respects much better than most of the Churches, there were false teachers, and false-living men, who professed to be followers of Christ, but who were, in fact, the worst enemies of the Cross of Christ. One thing I wish and that is that, instead of brooding over our present difficulties, we would take them to the Lord in prayer and faith--and so triumph over them. But, at the same time, I wish that we had the same tenderness of heart for the Glory of God which was felt by the Apostle. That we were as sensitive as he was of anything that reflected upon the Divine honor, as jealous as he was, even to tears, lest any who professed to be the friends of the Cross should, by their lives, turn out to be its worst enemies. Oh, for more of Paul's zeal for God as the great motive power of our life, so that we might feel that it mattered little how anything else went so long as the Grace of Christ triumphed, men were saved and God's name was glorified! The Lord bring us to that state of mind! We shall then feel the sins of today even more acutely than we do at present--and we shall the more confidently trust in God as we seek to overcome them.

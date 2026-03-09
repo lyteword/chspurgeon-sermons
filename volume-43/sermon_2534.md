@@ -1,12 +1,5 @@
 # Sermon 2534 | The Greatest Gift in Time or Eternity
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 12, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 20, 1884.
-
 "Behold, I have given Him for a Witness to the people, a Leader and Commander to the people. Behold, You shall call a nation that You know not, and nations that knew not You shall run unto You because ofthe LORD Your God, and for the Holy One of Israel; for He has glorified You. Seek you the LORRD while He may be found, call upon Him while He is near." Isaiah 55:4-6.
 
 We are met together with two objectives. First, there is the preacher's objective, that is, to set forth and to proclaim the blessings of the Covenant of Grace. It is my duty and it is my delight to stand here and cry, "Ho, everyone that thirsts, come you to the waters, and he that has no money, come you, buy, and eat; yes, come, buy wine and milk without money and without price." Then, there is the objective of the hearers--oh, that everyone here were heartily in pursuit of it! No, what is even better, I would that everyone here might attain this objective, for it is that you may feed upon the blessed Covenant provisions mentioned in our text. If there is water, my Brothers and Sisters, let us drink it! If there is wine and milk, let us be satisfied with it. Let us pray that every soul in this place may even now delight itself in fatness!

@@ -1,12 +1,5 @@
 # Sermon 2815 | Good Cheer for Many That Fear
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY, 25, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1861.
-
 "Say to them that are of a fearful heart, Be strong, fear not." Isaiah 35:4.
 
 THIS is an exhortation which is addressed, not to one person, but to several. In the third verse you can see that the message runs, "Strengthen you the weak hands, and confirm the feeble knees." What, Lord? Is not one man sufficient for this task? Will not one of Your servants, when he repeats Your precious promises, be able to drive away the fears of Your people? Will not half a word be enough to put to rout their foolish, groundless suspicions and suppositions? No, they have need of many comforters. It is not enough, O Lord, that one should come and speak in Your name? No, "for precept must be upon precept, precept upon precept; line upon line, line upon line; here a little, and there a little." We are a people of a stubborn will and of a wayward heart, O God. Too often do we wander from Your ways! It is well, therefore, that God has spoken thus, not simply to one of His servants, but to all those who love His appearing and rejoice in the certainty of His promises--"Say you, all of you"--for I may rightly supply the pronoun here--"say you to them that are of a fearful heart, Be strong, fear not."

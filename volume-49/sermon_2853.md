@@ -1,12 +1,5 @@
 # Sermon 2853 | Observing the King's Word
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 21, 1877.
-
 "Now the men did diligently observe whether anything would come from him, and did hastily catch it." 1 Kings 20:33.
 
 You know the circumstances to which these words refer. The boastful Syrian king had been utterly defeated and his army destroyed. He himself had fled into an inner chamber in desperate fear of his life, but, being informed that the kings of Israel were merciful, he sent certain of his attendants, in humblest fashion, with sackcloth on their loins and ropes about their necks, to beg that he might be spared. When they came in before Ahab and began to plead with him for Ben-Hadad, they watched every word that the king uttered--"The men did diligently observe whether anything would come from him." And the moment he said, "He is my brother," they caught at the expression immediately. They were in such anxiety about their king that even half a word that indicated tenderness and mercy brought joy to their hearts!

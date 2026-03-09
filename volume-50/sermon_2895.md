@@ -1,12 +1,5 @@
 # Sermon 2895 | A Blessed Gospel Chain
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 4, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 2, 1876.
-
 "Jesus answered and said unto him, If a man loves Me, he will keep My words; and My Father will love him, and We will come unto him, and make Our abode with him." John 14:23.
 
 THIS is a blessed chain of Gospel experience. Our text is not meant for the men of the world who have their portion in this life, but for the chosen, called and faithful who are brought into the inner circle of Christ's disciples and taught to understand the mysteries of His Kingdom. It was in answer to the question of Judas ("not Iscariot") as to how Christ would manifest Himself to His own and not to the world, that these words were spoken. Christ explained that it would be manifest who were His own people by certain marks and signs. They would be those who love Him and keep His commandments and so win the confidence of the Father--and the Father and the Son would come to these loving and obedient disciples and make Their abode with them. God grant that all of us may be able to take each of the steps here mentioned so that our Lord may manifest Himself to us as He does not unto the world!

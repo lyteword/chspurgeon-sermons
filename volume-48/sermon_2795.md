@@ -1,12 +1,5 @@
 # Sermon 2795 | The Double Drawing Near
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 7, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 22, 1878.
-
 "Draw near to God, and He will draw near to you." James 4:8.
 
 As soon as man had disobeyed God, he ran away from Him. Our first parents hid themselves among the trees of the Garden when they heard the voice of the Lord God calling them. They did not come to Him at once, confess the wrong which they had committed and ask for mercy. The natural effect of their sin was to harden their hearts and not to lead them penitently to the great Father--and it led them impertinently to run away from Him. So, when the Lord came walking in the Garden, in the cool of the day, Adam did not seek Him, to plead for mercy from Him, but the first words had to come from God--"the Lord God called unto Adam, and said unto him, Where are you?" It was God's voice speaking in mercy to His wandering child.

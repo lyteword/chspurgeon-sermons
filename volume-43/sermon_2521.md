@@ -1,12 +1,5 @@
 # Sermon 2521 | Deadness and Quickning
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 13, 1897.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 29, 1885.
-
 "Turn away my eyes from beholding vanity; and quicken me in Your way." Psalm 119:37.
 
 David, when he wrote these words, was in downright earnest. There were times with him when he grew lukewarm and cold and then we remember that he soon fell into grievous sin. But at the time when he was penning this verse, his spirit was lively, active and energetic--then it was that he prayed thus carefully about himself--"Turn away my eyes from beholding vanity; and quicken me in Your way." If you read the preceding verse, you will notice that he was thinking of the reality and depth and power of true religion, for he prayed, "Incline my heart unto Your testimonies and not to covetousness," by which he evidently wished that his whole soul might be set upon things Divine, that, as misers seek after gold and store it up, and feast their eyes upon it, so he might be eager after the things of God and might store them up, making them to be his heavenly delicacies, his peculiar pleasure.

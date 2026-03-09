@@ -1,12 +1,5 @@
 # Sermon 2651 | The Christian's Service and Honor
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, DECEMBER 3, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1857.
-
 "If anyone serves Me, him My Father will honor." John 12:26.
 
 FEW men love service. Man prefers to be his own master, to do as he pleases according to "his own sweet will" and, like the winds, to be under no control whatever. But he who spurns the counsel of God, despises His Law and tramples on His commands, commits an act of suicide to his own liberty! Those who act thus, while they seek to be free, become the truest slaves, for, when they give a loose rein to their lusts, they find them like wild horses dragging them irresistibly along. Passions indulged turn into habits--and those habits hold them fast in their iron grip and they cease to be free any longer. He is the freeman who serves God and not the man who scorns the yoke of Jesus. He is the freeman whose shoulders bear the yoke of Christ. But he who refuses to serve Him is a slave. He who will not obey Jesus, obeys a tyrant master called Satan, or worse still, himself, for, after all, the greatest tyrant to a man is his own sinful self! There is no slavery harder to endure than the despotism of evil habits when they have grown strong upon a man and fixed their chains upon his neck. The service of Jesus is perfect liberty--those who wear the collar of Jesus find it to be a royal badge which makes them far more honorable than would the Order of the Garter, or the Bath. There is nothing that can so exalt a man as to make him a servant of Jesus! And the man who bends his neck willingly to serve Him, manifests the greatest wisdom.

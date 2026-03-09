@@ -1,12 +1,5 @@
 # Sermon 2804 | Disobedience to the Gospel
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 9, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 14, 1877.
-
 "But they have not all obeyed the Gospel." Romans 10:16.
 
 EVEN concerning those who have heard the Gospel, it can still be said, "They have not all obeyed the Gospel." And this, dear Friends, is one of the plainest proofs of the deep depravity of human nature. We might have expected that if God, in the exercise of His marvelous mercy, should stay His hand and not at once execute the sentence of justice upon the guilty--if in His surprising Grace, He should devise a way by which He could be just and yet could justify the ungodly-- I say, we might have supposed that the moment men heard that good news, they would immediately believe it! Seeing that they had offended God and so had brought themselves into a state of condemnation, we might have thought that as soon as ever the God of Grace mentioned the possibility of forgiveness, they would have sought it at His hand! It could never have been imagined--apart from the utter ruin of man's nature by the Fall--that we should have needed so many ministers, so much pleading, so many years of long-suffering on God's part and, above all, that we should have needed the display of the almighty power of the Spirit of God, Himself, before sinners would be willing to obey the Gospel! Yet so it is and nothing that I know of beneath high Heaven, so clearly proves that man's heart is absolutely estranged from all that is good--and that the sinner has really become demented through his sin--as that man rejects the Gospel of Grace, refuses Divine Mercy and often stops his ears to the voice of God's messengers and, in every case, except where the Holy Spirit graciously renews the nature--tramples underfoot the very blood of the Son of God! O Man, you who were at first like the sons of the morning--no, more than that, you who were made in the likeness of God--you whose place was in Eden, the garden of the Lord--how low have you fallen and into what a sad state of estrangement to your God have you come through your sin!

@@ -1,12 +1,5 @@
 # Sermon 2777 | The Queen of Sheba, a Sign
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 4, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 28, 1878.
-
 "The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon is here." Matthew 12:42.
 
 The scribes and Pharisees might easily have ascertained that Jesus was the promised Messiah if they had only taken the trouble to examine His credentials. They had the Law and the testimony at their fingertips and they might also have made an appeal to the Prophets and, then, they could scarcely have failed to note the many wonderful points of resemblance between Jesus of Nazareth and the Messiah who was to come--but they refused to thoroughly investigate His claims, took it for granted that He was an impostor and, therefore, rejected Him. When they were driven into a corner by the Truths of God that He spoke, they demanded of Him a sign--and there again they showed that they were not sincere, for He had given them many signs--some of which they must have recognized, because their anger had been excited by them, as, for instance, when Jesus went into their synagogue and healed on the Sabbath, a man who had a withered hand. They had condemned Him as a Sabbath-breaker because He worked this miracle, so it must certainly have come to their knowledge, yet, while this and multitudes of other miracle were constantly being reported of Him, they still continued to reject Him, disdaining to confess that He was the Christ, even though He proved it to their faces.

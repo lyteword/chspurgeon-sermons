@@ -1,12 +1,5 @@
 # Sermon 2485 | Love's Vigilance Rewarded
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 4, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 7, 1877.
-
 "Scarcely had I passed by them, when I found Him whom my soul loves. I held Him and would not let Him go, until I had brought Him to my mother's house and into the chamber of her that conceived me." Song of Solomon 3:4.
 
 WHEN I look upon this great assembly of people, I think to myself--there will be many here to whom these chapters that we have read out of Solomon's Song will seem very strange. Of course they will, for they are meant for the inner circle of Believers in the Lord Jesus Christ! This sacred Canticle is almost the central Book of the Bible. It seems to stand like the Tree of Life in the midst of the garden of Eden, in the very center of the Paradise of God. You must know Christ and love Christ, or else many of the expressions in this Book will seem to you but as an idle tale.

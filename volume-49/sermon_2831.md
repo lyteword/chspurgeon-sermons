@@ -1,12 +1,5 @@
 # Sermon 2831 | Burden-bearing
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 26, 1886.
-
 "Bear you one another's burdens, and so fulfill the law of Christ.. .Every man shall bear his own burden." Galatians 6:2,5.
 
 OBSERVE, dear Friends, that the Apostle says in the second verse of this chapter, "Bear you one another's burdens, and so fulfill the law of Christ." These Galatians had been trying to bear the heavy burden of the Law of Moses. They had, as far as they could, put themselves, again, under the old Ceremonial Law. They had forsaken the Gospel way of justification by faith and had sought to be made perfect by their personal obedience to the Law of God. Now, the Apostle, as though he would expel one affection by another, says, "You want a law? You wish to be under a law? Well, here is the law of Christ--yield yourselves to it! Instead of observing the outward ceremonies of the Levitical law, here is a living law which touches the heart and influences the life--obey that law. You are Christians. You have come under law to Christ by the very fact that you are not your own, but have been bought with a price by Him--now see to it that you yield implicit obedience to the law of Christ."

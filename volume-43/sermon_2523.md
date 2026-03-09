@@ -1,12 +1,5 @@
 # Sermon 2523 | Abraham's Double Blessing
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 27, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 8, 1885.
-
 "I will bless you, and you shall be a blessing." Genesis 12:2.
 
 THIS was to be the double result of Abraham's coming out from his own country and his father's house. Those Orientals clung with great tenacity to their native homes. We, in these latter ages, are not so restful--we think nothing of crossing the Atlantic and many think little of going to the other side of the globe--but those Easterns trembled, even, to cross the Euphrates or the Tigris! They spoke of the land beyond those rivers as "across the flood," and a journey of two or three hundred miles seemed to them to be an event only second to death, itself. Yet when the Lord said to Abraham, "Get you out of your country, and from your kindred, and from your father's house, unto a land that I will show you," he, "departed, as the Lord had spoken unto him." His obedience was an act of heroic faith!

@@ -1,12 +1,5 @@
 # Sermon 2901 | Mourning at the Cross
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 15, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 23, 1876.
-
 "AndI will pour upon the house ofDavid, and upon the inhabitants of Jerusalem this Spirit of Grace and of supplications: and they shall look upon Me whom they have pierced, and they shall mourn for Him, as one mourns for his only son, and shall be in bitterness for Him, as one that is in bitterness for his first-born." Zechariah 12:10.
 
 NOTICE in this verse the very remarkable change of persons which you find in it, for you have, first, the first person, and then, the third--"They shall look upon Me whom they have pierced, and they shall mourn for Him.''" It is the same Person who speaks in each case and He is speaking concerning Himself in both instances, so it is very remarkable that He should first say, "Me," and then say, "Him." What is this but another illustration of the Unity of the Godhead and yet the Trinity of the adorable Persons in it? Notice that the One who, in this chapter, speaks of Himself as, "Me" and "Him," is none other than Jehovah who made the heavens and the earth. Read the first verse--"The burden of the word of the Lord for Israel, says the Lord, which stretches forth the heavens and lays the foundation of the earth, and forms the spirit of man within him." The Creator of the heavens and the Creator of our spirit is the same Person who was pierced, and who says, "They shall look upon Me." Yet there is a distinction, for we next read, "They shall mourn for Hm" Jesus Christ is God and, therefore, so speaks of Himself. Yet He is also Man and, therefore, He is spoken of in the third person.

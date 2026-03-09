@@ -1,12 +1,5 @@
 # Sermon 2786 | The Soul's Best Food
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 6, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 13, 1878.
-
 "Eat what is good, and let your soul delight itself in fatness." Isaiah 55:2.
 
 ALL life here below needs to be sustained from without by food of some kind or other. We know not how the angels live, yet the Psalmist's expression, "Man did eat angels' food," might lead us to imagine that even the/need to be supplied with nourishment from without, but, certainly, all earthly life requires appropriate nutriment. The physical life of man cannot be sustained unless he has bread to eat. His mental life, too, though that is often forgotten, cannot be in a healthy condition without an adequate supply of understanding and knowledge. The poor creatures which have been confined in prison cells, year after year, with nothing to read or to think upon, have come forth to liberty as imbeciles-- quite unfit to go into society because the mind has wasted away in starvation. You must feed the mental, as well as the physical man, if it is to be in a right and healthy state.

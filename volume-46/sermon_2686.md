@@ -1,12 +1,5 @@
 # Sermon 2686 | The Deceived Heart
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 5, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1858.
-
 "He feeds on ashes: a deceived heart has turned him aside, that he cannot deliver his soul, nor say, Is there not a lie in my right hand?" Isaiah 44:20.
 
 THE Prophet, no doubt, is here primarily referring to the heathen. He accounts for the fact of their gross stupidity in bowing down to worship blocks of wood and stone by asserting that their deceived hearts had turned them aside so that they never sought to know the Truth of God, nor asked the question whether their idol was not a delusion and a snare. The idolater practically never said, "Is there not a lie in my right hand?" With the immediate connection of my text, however, I shall have, at this time, very little to do. I shall only attempt to draw from it a few lessons which, I trust, may be useful to some persons, if God, the blessed Spirit, shall be pleased to apply the Truth to their hearts.

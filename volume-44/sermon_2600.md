@@ -1,12 +1,5 @@
 # Sermon 2600 | A Strange Yet Gracious Choice
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 11, 1898.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, (on its re-opening after repairs), ON THURSDAY EVENING, SEPTEMBER 6, 1883.
-
 "For the LORD has chosen Jacob unto Himself, and Israel for His peculiar treasure." Psalm 135:4.
 
 This is a Psalm of praise all through. It is to be sung to the high-sounding cymbals. There is not a low note anywhere--it is all robust, exhilarating, joyful! It is "Hallelujah!" from beginning to end and it did not seem possible to the Psalmist that he could omit from it the high jubilant note of election, for if there is anything that makes Believers' hearts sing unto the Lord, it is the recollection that He has chosen them and fixed His love upon them! "You have not chosen Me, but I have chosen you," is one of the best reasons in the world why we should adore the Lord with all our heart and mind and soul and strength! If the Lord has made us to be His people, we will, indeed, with joy and gladness declare Him to be our God! If He has blessed us with all spiritual blessings in Christ Jesus, we will make such return to Him as we can, and bless Him with our loudest and sweetest music. Blessed be the Lord because He "has chosen Jacob unto Himself, and Israel for His peculiar treasure."

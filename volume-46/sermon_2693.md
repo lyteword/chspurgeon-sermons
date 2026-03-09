@@ -1,12 +1,5 @@
 # Sermon 2693 | Priest and Victim
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 23, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 28, 1881.
-
 "He offered up Himself." Hebrews 7:27.
 
 I DO not know when I have ever felt a more decided conflict of emotions in my own heart than I do just now. Happy is the man who has such a message as that in my text to deliver to his fellow men--but burdened is the man who feels that the message is far too great for his lips, or, indeed, for any human tongue to convey. To be allowed to announce to men that our Lord Jesus Christ "offered up Himself on their behalf is, indeed, an errand which angels might envy, but the theme is too great for any human being to compass. I comfort myself with the reflection that it does not require any excellence of speech to tell it--the excellence lies in the Truth itself. And if men's minds are in a right condition--if they are conscious of their lost state and they really desire to know what Christ has done to save them from it--they will need no garnishing or tawdry fripperies of human eloquence. All they will need will be to hear, as plainly and as earnestly as it can be spoken, the message of reconciliation which God has sent through Jesus Christ, His Son. Yet I cannot help feeling that the meaning of my text is so weighty that it may break the backs of the words that attempt to bring it to us. The axles of my human medium of conveyance are ready to snap when freighted with such a load of Infinite Love and Wisdom as comes to us in my short, full text--"He offered up Himself."

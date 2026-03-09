@@ -1,12 +1,5 @@
 # Sermon 2550 | Joy in God
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 2, 1898.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 2, 1884.
-
 "And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the atonement" (or, as it should be, "the reconciliation"). Romans 5:11.
 
 You notice, dear Friends, in reading this verse, the "not only so," and the, "also. " And, if you look back to the earlier verses of the chapter, you will see that there is a continual rising, as of one ascending a golden staircase. You get an, "also," and a, "not only so," and then a long succession of Christian attainments rising, one out of the other-- "Tribulation works patience; and patience, experience; and experience, hope; and hope makes not ashamed," and so forth--from all which it clearly appears that the Christian life is one of continuous progress. It would be so without a break if we were more careful and lived nearer to God. We would go steadily on from our spiritual childhood and youth and manhood till we became fathers in Christ and, by-and-by, perfect men in Christ Jesus, having reached the fullness of the stature of men in Christ Jesus. I am afraid that we, sometimes, sadly hinder that progress by our lack of prayer and our neglect of communion with God. Still, this is what true Christian life should be--a continuous going from strength to strength till we, every one of us, appear before God in the Zion above.

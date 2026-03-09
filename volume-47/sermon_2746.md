@@ -1,12 +1,5 @@
 # Sermon 2746 | The Nature and Design of Divine Chastening
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 29, 1901.
-
-DELIVERED BY C H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE AUTUMN OF 1859.
-
 "When we are judged, we are chastened of the Lord, that we should not be condemned with the world." 1 Corinthians 11:32.
 
 THERE had been great irregularities in the Corinthian Church with regard to the Lord's Supper. They had made that solemn festival a scene of gluttony. Each person had brought his own provisions with him and while the rich were feasting on dainties, the poor often had scarcely anything to eat. The Apostle Paul tells them that on that occasion they did not come together for a feast of carnal things. He says, "In eating everyone takes before others his own supper, and one is hungry, and another is drunk. What? Have you not houses to eat and to drink in? Or despise you the Church of God, and shame them that have not? What shall I say to you? Shall I praise you in this? I praise you not."

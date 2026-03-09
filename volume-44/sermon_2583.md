@@ -1,12 +1,5 @@
 # Sermon 2583 | Rain and Grace--a Parallel
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 14, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 5, 1883.
-
 "Who has divided a channel for the overflowing water, or a path for the thunderbolt, to cause it to rain on the earth, where there is no one; on the wilderness, wherein there is no man; to satisfy the desolate and waste ground; and to cause the bud of the tender herb to spring forth?" Job 38:25-27.
 
 JOB was an admirable man, but the Lord meant to make him still better. The best of men are but men at the best and though Job was, in a certain sense, perfect, yet he was not perfectly perfect--there was a further stage beyond that which he had reached, otherwise he would not have been tried as he was. But because the Lord knew that there was something better for Job than he had already attained, he had to be subjected to extraordinary trial. He was such a valuable diamond that there had to be more cutting for him than for a common stone. He was made of such good metal that he paid for being put into the furnace--there would come out something still more pleasing to the great Refiner if He cast that which was so precious into the most fervent heat. Hence it was that Job was so greatly tried. Yet, after all his trials, it seemed as if he would miss their blessed result, for his three friends--the miserable comforters--appeared to be the meddlers in the whole design. By their cruel, cutting, sarcastic observations, they irritated Job so that it looked as if he would be harder instead of softer because of the fires.

@@ -1,12 +1,5 @@
 # Sermon 2395 | The Blessings of Public Worship
 
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 13, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 3, 1887.
-
 "Two men went up into the Temple to pray; the one a Pharisee, and the other a publican." Luke 18:10.
 
 THIS is called a parable, yet it is rather an incident, an anecdote, a statement of facts. You will observe that our Lord never used a fable. Fables may be employed to set forth that which is earth-born, but a parable, which is, in itself, true, is alone adapted to set forth spiritual Truths of God. I say this just now because I read, the other day, an assertion that the story of the rich man and Lazarus was only a fable, like that of Jotham. But the most of our Lord's parables are not only parables, but literal facts--and all of them might be facts. I would almost go the length of saying that all of them have been actual facts and in this case there is nothing parabolic at all. It is the statement of an incident which did literally occur, for truth is best illustrated by truth and, as Christ had nothing to teach but what was pure Truth, He illustrated it by Truth and never went into the realm of fiction, or invented a tale, or told a story which was not a fact, much less did He ever teach by a mere fable!

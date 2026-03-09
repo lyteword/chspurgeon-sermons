@@ -1,12 +1,5 @@
 # Sermon 2742 | Question and Exclamation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-BAY, SEPTEMBER 1, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 13, 1879.
-
 "But I said, How can I put you among the children, and give you a pleasant land, a godly heritage of the hosts of nations? And I said, You shall call Me, My Father; and shall not turn away from Me." Jeremiah 3:19.
 
 MEN think very lightly of sin unless it brings them under the eyes of the law of the land. They smile at it, as though it were a trifle, but God thinks not as they do. He calls sin by very black names. In this chapter, from which our text is taken, the Lord uses very strong terms in describing sin and He knows what sin is. He is a better judge of it than we are, so He does not regard it as a trifle, but He calls it "adultery," which among men is regarded as one of the grossest of wrongs and the foulest of crimes. Oh, if some here who think themselves righteous, could only see themselves, not as their fellow creatures see them, but as God sees them, the sight would appall them!

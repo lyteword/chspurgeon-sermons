@@ -1,12 +1,5 @@
 # Sermon 2846 | "No Root in Themselves"
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 23, 1888.
-
 "And have no root in themselves." Mark 4:17.
 
 THESE rocky-ground hearers have occupied our thoughts twice recently. [Sermon #2844, Volume 49--THESEED UPON A ROCK, and Sermon #2845, Volume 49--LACKING MOISTURE]. Or You remember that the first sermon concerning them was upon the text, "They had no deepness of earth" and that, in it, I tried to show the shallowness of some men's religious character, how the pan of rock below the thin layer of earth had never been broken, so the Seed could not really enter into them, but lay, for a little while, in the soil, rapidly springing up and just as rapidly perishing. The other discourse was upon the words, "It lacked moisture," a very instructive little sentence full of meaning. Only Luke tells us that the rocky-ground hearers "lacked moisture." This, you probably remember, I explained as meaning dry doctrine without gracious feeling, experience without humiliation, practice without heart-love, belief without repentance, confidence without self-diffidence, action without spirituality and zeal without communion. I went somewhat deeply into that part of the subject and I think that there must have been some who trembled as they thought that, possibly, they were among the number of those who have no deepness of earth and who lack moisture.

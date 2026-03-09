@@ -1,12 +1,5 @@
 # Sermon 2825 | Majesty in Misery
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 7, 1883.
-
 "And the men that held Jesus mocked Him and struck Him. And when they had blindfolded Him, they struck Him on the face and asked Him saying, Prophesy, who is it that struck You? And many other things they blasphemously spoke against Him." Luke 22:63-65.
 
 I SUPPOSE that all this cruelty took place while our Lord was before Caiaphas, in the dead of night, before the Sanhedrim had been fully gathered together to hold their trial at daybreak. His enemies were in so great a hurry to condemn Him that as soon as He arrived at the high priest's house, they had a kind of preliminary examination that they might try the tack upon which they meant to sail in endeavoring to procure a conviction against Him. Thus, after He had been, in an informal and illegal way, condemned without any proper trial, they left Him in the custody of their officers until early in the morning when they summoned the rest of their companions, so as to go through again the farce of trying Him whom they knew to be innocent.

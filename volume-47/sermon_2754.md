@@ -1,12 +1,5 @@
 # Sermon 2754 | Strange Dispensations and Matchless Consolations
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 24, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE AUTUMN OF 1859.
-
 "Therefore, behold, I will allure her, and bring her into the wilderness, and speak comfortably to her." Hosea 2:14.
 
 THIS is one of the many instances in the Word of God of His free, rich, Sovereign Grace. The Lord has set the children of Israel before us as a great model. They are our beacons with regard to sin, but they are a pattern to us when we see in them the gracious dealings of a Covenant-keeping God. Often did they rebel, but just as often did the Lord forgive them. Frequently did He smite them with His rod, but He never turned them over to destruction. He still remembered His Covenant made with Abraham, Isaac and Jacob, and He suffered not His faithfulness to fail.

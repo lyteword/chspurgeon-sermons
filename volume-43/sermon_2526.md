@@ -1,12 +1,5 @@
 # Sermon 2526 | "Speak, Lord!"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 18, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 20, 1884.
-
 "Then Samuel answered, Speak; for Your servant hears." 1 Samuel 3:10.
 
 The child Samuel was favored above all the family in which he dwelt. The Lord did not speak by night to Eli, or to any of Eli's sons. In all that house, in all the rows of rooms that were round about the Tabernacle where the Ark of the Lord was kept, there was not one except Samuel to whom Jehovah spoke! The fact that the Lord should choose a child out of all that household and that He should speak to him, ought to be very encouraging to you who think yourself to be the least likely to be recognized by God. Are you so young? Yet, probably, you are not younger than Samuel was at this time. Do you seem to be very insignificant? Yet you can hardly be more so than was this child of Hannah's love! Have you many troubles? Yet you have not more, I daresay, than rested on young Samuel, for it must have been very hard for him, while so young a child, to part from his dear mother, to be so soon sent away from his father's house and so early made to do a servant's work, even though it was in the House of the Lord!

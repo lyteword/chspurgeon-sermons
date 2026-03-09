@@ -1,12 +1,5 @@
 # Sermon 2552 | "Take Heed, Brethren"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 16, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 23, 1884.
-
 "Take heed, brethren, lest there is in any of you an evil heart of unbelief in departing from the living God." Hebrews 3:12.
 
 THIS message is not addressed to strangers far away, but to "brethren." Paul wrote it to the Hebrews, who were his brethren according to the flesh. It was kind of him to call them by that name. He also writes it to all of us who are Believers in Christ, and we ought to receive his word with all the greater intensity of attention because he writes to us as his brethren. The term applies to all who are Brothers and Sisters in Christ--really so--those who are quickened by the one Spirit, made children of the one Father and going to the one heavenly Home. The Apostle would not have us begrudge this title to any genuine member of our Lord Jesus Christ's true Church. It is not for us to read men's hearts--we have not the Lamb's Book of Life in our possession, so we cannot discover whether such-and-such a man's name is really written in it, or not, but, in the judgment of Christian charity, all those who have joined themselves to Christ's Church are our brethren--and the more we recognize that relationship, the better. To all of you, therefore, who bear the Christian name, this message comes with power, "Take heed, brethren, lest there is in any of you an evil heart of unbelief, in departing from the living God."

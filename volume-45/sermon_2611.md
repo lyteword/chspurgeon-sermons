@@ -1,12 +1,5 @@
 # Sermon 2611 | A Lost Christ Found
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 26, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1857.
-
 "But they, supposing Him to have been in the company, went a day's journey; and they sought Him among their kinsfolk and acquaintances. And when they found Him not, they turned back, again, to Jerusalem, seeking Him. And it came to pass that after three days they found Him in the Temple sitting in the midst of the doctors, both hearing them and asking them questions." Luke 2:44-46.
 
 WHAT a precious treasure must the child Jesus have been to His parents! You who have children whom you love, not merely because they are yours, but because you discover in them traits of character which are signs of Divine Grace, can tell, in some measure, how precious the Child Jesus must have been. Born to His mother in a miraculous manner, her heart was set upon Him and, after all the wonderful things that had been said about Him by the angel, by Simeon and by Anna, you cannot wonder that she expected much, although she really expected less than she received. When you think of the perils and troubles to which His parents were exposed for His sake, by the sword of Herod, the flight into Egypt and the cruelty of Archelaus, you cannot wonder that He was a very choice treasure to them, carefully tended and well guarded and protected. They had felt how terrible it would be to lose Him. They knew His worth--at least they guessed something of that inestimable value which must always be attached to the perfect Manhood of our Lord Jesus Christ.

@@ -1,12 +1,5 @@
 # Sermon 2468 | Solitude, Silence, Submission
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 7, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 13, 1886.
-
 "He sits alone and keeps silent, because He has borne it upon him. He puts his mouth in the dust; if so be there may be hope." Lamentations 3:28,29.
 
 THUS the Prophet describes the conduct of a person in deep anguish of heart. When he does not know what to do, his soul, as if by instinct, humbles itself. He gets into some secret place, he utters no speech, he gives himself over to moaning and to tears, and then he bows himself lower and yet lower before the Divine Majesty, as if he felt that the only hope for him in the extremity of his sorrow was to make complete submission to God and to lie in the very dust before

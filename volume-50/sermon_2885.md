@@ -1,12 +1,5 @@
 # Sermon 2885 | Christ's Sympathy With His People
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 26, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
-
 "For in that He Himself has suffered, being tempted, He is able to aid those who are tempted." Hebrews 2:18.
 
 THAT which is the most simple lesson the Gospel has to teach is often the most difficult lesson for the Christian to learn. That simple lesson is that we must not look to ourselves for anything good, but that we must look to the Lord, alone, for all our righteousness. The lesson is short, as well as simple. It is easy to repeat but, as often as our faith is severely tried, we find how apt we are to forget that which is the very Alpha of the Gospel--that man, in himself, is wholly lost and that all his hope of help and salvation must rest on Christ, that apart from God there is nothing upon which faith can fasten itself--and that without the atoning Sacrifice and justifying Righteousness of Christ, the quickening and sanctifying work of the Holy Spirit and the everlasting love of the Father, there is neither joy, nor peace, nor comfort, nor hope to be found anywhere. This seems to be a very easy lesson, yet even aged Believers, when their hair is getting gray and they are about to enter the land of perfect peace and rest, still find the temptation to unbelief too much for them and they begin to look for something good in the creature--and to seek for happiness in themselves--instead of seeking all good in God.

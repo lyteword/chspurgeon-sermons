@@ -1,12 +1,5 @@
 # Sermon 2554 | The Spiritual Resurrection
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 30, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, NOVEMBER 18, 1855.
-
 "And when He thus had spoken, He cried with a loud voice, Lazarus, come forth. And he that was dead came forth, bound hand and foot with grave clothes: and his face was bound about with a napkin. Jesus sail unto them, Loose him, and let him go." John 11:43, 44.
 
 PERHAPS the legitimate topic of this discourse, after such a text, ought to be the resurrection of the dead. Lazarus had died--he had lain in his grave. At the invitation of his sisters, Jesus Christ came to see them and His visit answered the double purpose of comforting the bereaved and restoring the dead. It would be a blessed and an excellent topic were we, for a little while, to dilate upon the wonders of the resurrection. We shall do so for a few moments and then we shall come to the principal theme of this evening which will rather concern spiritual resurrection from a spiritual death, than that natural resurrection which is to take place upon us all, by-and-by.

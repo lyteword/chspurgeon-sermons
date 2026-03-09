@@ -1,12 +1,5 @@
 # Sermon 2662 | Some Marks of God's People
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 18, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 10, 1882.
-
 "Your God has commanded your strength: Strengthen, O God, what You have done for us." Psalm 68:28.
 
 DEAR Friends, at this time there is a special stir among the people. I know, from what I have seen and heard, that many are beginning to seek the Lord and others, who are not yet actually turning unto the Lord, are at least resolved to break off certain grosser sins and seek after something better. Well, there is something to be thankful for even in the waves of hunger pains which the prodigal feels before he says, "I will arise and go to my Father." I value even the pains he has to endure when he would gladly fill his belly with the husks that the swine eat. Before we can pronounce anyone's experience to be proof of the working of God's Grace, we are glad if we see any signs of what usually comes when Grace enters the heart. So I am thankful when an ungodly man says, "It is time I changed my course," for I trust that this is the first chipping upon the marble block--and that the great Sculptor, who fashions us in His own glorious image, will carry on the work and complete it to His own praise!

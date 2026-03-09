@@ -1,12 +1,5 @@
 # Sermon 2751 | "A Prepared Place for a Prepared People"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 3, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 25, 1879.
-
 "I go to prepare a place for you." John 14:2.
 
 "Giving thanks unto the Father, who has qualified us to be partakers of the inheritance of the saints in the light."

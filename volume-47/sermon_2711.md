@@ -1,12 +1,5 @@
 # Sermon 2711 | The Sight of Iniquity
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY JANUARY 27, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE WINTER OF 1858-9.
-
 "Why do You show me iniquity, and cause me to behold grievance?" Habakkuk 1:3.
 
 IN this discourse, it will be my endeavor to assign some reasons why God causes His people to see iniquity in themselves and in others

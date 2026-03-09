@@ -1,12 +1,5 @@
 # Sermon 2551 | God's Knowledge of Sin
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 9, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 19, 1884.
-
 "O God, You know my foolishness; and my sins are not hid from You " Psalm 69:5.
 
 IT seems, then, that the best of men have a measure of foolishness in them and that, sometimes, that foolishness shows itself. How gentle and tender ought we to be with others who are foolish when we remember how foolish we are, ourselves! How sincerely ought we to rejoice in Christ, as made of God unto us wisdom, when we see the folly that is bound up in our hearts and which too often shows itself in our talk and in our acts! Yet while the best of men have folly in them, it is one of the marks of a good man that he knows it to be folly and that he is willing to confess his sin before God. "If we say that we have no sin, we deceive ourselves, and the truth is not in us." If we stand as the Pharisee stood in the Temple and cry, "God, I thank You that I am not as other men are," we shall go home, as the Pharisee did, without the justification which comes from God. It is the truly good man who stands afar off with the publican and cries, "God, be merciful to me, a sinner," and he, also, shall go to his house "justified rather than the other."

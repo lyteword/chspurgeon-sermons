@@ -1,12 +1,5 @@
 # Sermon 2545 | The Greatest Folly in the World
 
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 28, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 10, 1884.
-
 "There is none who understands, there is none who seeks after God." Romans 3:11.
 
 We are told that God looked out of Heaven to see if there were any who had understanding, that did seek after Him. If there had been any, God would have seen them, for He sees all things and all persons. If there had been any good people, God would have discovered them. A good man is quick to see other good folks and the good God would soon have spied out good men. But God's description of the character of men, though we may be certain it is not uncharitable or unjust, is not in the least like that which I have heard ascribed to them by flattering preachers. It has become the fashion of the day to talk about the nobility of manhood and the dignity of manhood. I remember that Mr. Whitefield used to say that man, by nature, before the Grace of God comes to him, is half beast and half devil. I shall leave you to judge who is nearer the truth--a good and faithful preacher of the Lord in the days gone by--or the refined flatterers who are taking out of the Bible everything that is objectionable to the superior minds of this 19th Century and who vainly imagine that, in so doing, they shall be accepted of God.

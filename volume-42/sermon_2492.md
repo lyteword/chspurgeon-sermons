@@ -1,12 +1,5 @@
 # Sermon 2492 | Paul's Persuasion
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 22, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 7, 1886.
-
 "For I am persuaded that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come nor height, nor depth nor any other creature, shall be able to separate us from the love ofGod which is in Christ Jesus our Lord." Romans 8:38,39.
 
 A CHRISTIAN Brother was asked, one day, "To what persuasion do you belong?" He parried the question at first, for he did not think that it was very important for him to answer it. So the enquirer asked him again, "But what is your persuasion?" "Well," he said, "if you must know my persuasion, this is it, 'I am persuaded that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other created thing, shall be able to separate us from the love of God which is in Christ Jesus our Lord.'" I also am of that persuasion. Somebody says, "That is Calvinistic doctrine." If you like to call it so, you may, but I would rather that you made the mistake of the good old Christian woman who did not know much about these things and who said that she herself was "a high Calvaristt" She liked "high Calvary" preaching and so do I. And it is "high Calvary" doctrine that I find in this passage. He who hung on high Calvary was such a lover of the souls of men that from that glorious fact I am brought to this blessed persuasion, "I am persuaded that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other created thing, shall be able to separate us from the love of God which is in Christ Jesus our Lord."

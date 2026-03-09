@@ -1,12 +1,5 @@
 # Sermon 2842 | The Sower
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 6, 1888.
-
 "Behold, a sower went forth to sow." Matthew 13:3.
 
 THIS was a very important event. I do not say that it was important if you took the individual case, alone--but if you took the multitudes of cases in which it was also true, it was overwhelmingly important in the aggregate--"A sower went forth to sow." Yes, Christ thinks it worthwhile to mention that a single sower went forth to sow, that a Christian man went out to address a meeting on a village green, or to conduct a Bible class, or to speak anywhere for the Lord! But when you think of the hundreds of preachers of the Gospel who go out to sow every Lord's-Day and the myriads of teachers who go to instruct the children in our Sunday schools, it is, surely, in the aggregate, the most important event under Heaven! You may omit, O recording angel, the fact that a warrior went forth to fight--it is far more important that you should record that "a sower went forth to sow." You may even forget that a man of science went into his laboratory and made a discovery, for no discovery can equal in importance the usual processes of farming. Do you hear the song of the harvest home? Do you see the loaded wagons follow one another in a long line to the farmer's barn? If so, remember that there would be no harvest home if the sower went not forth to sow! As the flail is falling upon the wheat, or the threshing machine is making the grain to leap from among the chaff and the miller's wheels are grinding merrily, and the women are kneading the dough, and the bread is set upon the table and parents and children are fed to the full, do not forget that all this could never happen unless "a sower went forth to sow." On this action hinges the very life of man! Bread, which is the staff of his life, would be broken and taken from him--and his life could not continue did not a sower still go forth to sow! This seems to me to prove that the event recorded in our text is of prime importance and deserves to be chronicled there.

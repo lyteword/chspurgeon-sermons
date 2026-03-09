@@ -1,12 +1,5 @@
 # Sermon 2717 | Man's Extremity, God's Opportunity
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 10, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 25, 1880.
-
 "For the LORRD shall judge His people, and repent Himself for His servants, when He sees that their power is gone, and there is none shut up, or left." Deuteronomy 32:36
 
 THE same event may happen alike to all, yet it may have a very different meaning to different individuals. Ungodly men are brought low by affliction or poverty, for sinners have no immunity from suffering. Saints, also, are led into trying circumstances, for the utmost holiness will not preserve any man from trial. But what a difference there is between the downfall of the prosperous sinner and of the man whom God loves! The wicked man who continues in his wickedness, falls forever. But the righteous man, though he may fall seven times, rises up again, for he shall not fall finally. How dreadful is the language of Jehovah when speaking of the ungodly! "To Me belongs vengeance, and recompense; their foot shall slide in due time: for the day of their calamity is at hand, and the things that shall come upon them make haste."

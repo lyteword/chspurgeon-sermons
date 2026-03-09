@@ -1,12 +1,5 @@
 # Sermon 2607 | Foretastes of the Heavenly Life
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 29, 1899, (C. H. SPURGEON MEMORIAL SABBATH).
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, EARLY IN THE YEAR 1857.
-
 "And they took of the fruit of the land in their hands, and brought it down unto us, and brought us word again, and said, It is a good land which the Lord our God does give us." Deuteronomy 1:25.
 
 You remember the occasion concerning which these words were written. The children of Israel sent 12 men as spies into the land of Canaan and they brought back with them the fruit of the land, among which was a bunch of grapes from Eshcol too heavy to be borne by one man, and which, therefore, two of them carried on a staff between them. I shall not say much, at this time, concerning the Israelites, but I want to show you that as they learned something of what Canaan was like by the fruit of the land brought to them by the spies, so you and I, even while we are on earth, if we are the Lord's chosen people, may learn something of what Heaven is--the state to which we are to attain hereafter--by certain blessings which are brought to us even while we are here.

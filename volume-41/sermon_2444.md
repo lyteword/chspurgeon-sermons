@@ -1,12 +1,5 @@
 # Sermon 2444 | Cheering Words
 
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 22, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As the Father has loved Me, so have I loved you: continue you in My love." John 15:9.
 
 THE Savior was about to leave His disciples and this was the hardest trial which they had ever experienced. As there could be no trial to them like the loss of the Savior's Presence, it was at this time Jesus brought forth His richest consolation. He seems to have kept the best wine and the most potent cordial till the time when their spirits most required to be comforted. He said to them more fully than He had ever said it before, "Take this for your comfort--live upon it while I am absent from you. Live upon it always--that as the Father has loved Me, so have I loved you."

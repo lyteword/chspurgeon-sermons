@@ -1,12 +1,5 @@
 # Sermon 2486 | Overcoming Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 11, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 8, 1876.
-
 "Turn away your eyes from Me, for they have overcome Me." Song of Solomon 6:5.
 
 THIS is the language of the Heavenly Bridegroom to His spouse. In great condescension, He speaks to her and bids her take note that her eyes have overcome Him. This morning, [Sermon #1317, Volume 22--Overcome Evil with Good] our subject was overcoming evil with good. We have a very different subject this evening, for we are to talk about overcoming Him who is Goodness itself, the perfection of everything that is excellent! Saints first learn the art of overcoming evil and then they learn the way to overcome goodness, too. But how different, dear Friends, are the weapons employed in these two battles, for while, this morning, as we spoke of overcoming evil, we saw that there was much for us to do--and I think that we all felt it was more than we could do apart from Divine Grace--yet here there is nothing to be done but just to give a look! The Heavenly Bridegroom confesses Himself to be overcome by the very lookof the eyes of His spouse. She has but to gaze steadily upon Him and His heart is vanquished by the glances of her eyes!

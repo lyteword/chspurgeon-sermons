@@ -1,12 +1,5 @@
 # Sermon 2881 | Feeble Faith Appealing to a Strong Savior
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 28, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 19, 1876.
-
 "And immediately the father of the child cried out and said with tears, Lord, I believe; help my unbelief." Mark 9:24.
 
 THIS is the case of a man who knew well enough what he wanted and who was full of anxiety to obtain it. Indeed, he was so anxious to obtain it that he prayed most earnestly and most importunately for it. He prayed to the right Person, too, for, after having failed with the disciples, he resorted to their Master, Himself. Yet, not withstanding all this, at the time recorded in our text, he had not obtained the blessing that he sought.

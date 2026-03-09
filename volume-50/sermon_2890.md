@@ -1,12 +1,5 @@
 # Sermon 2890 | Unbelievers Upbraided
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 8, 1876.
-
 "He.. .upbraided them with their unbelief." Mark 16:14.
 
 I SHALL not dwell so much upon this particular instance of the disciples' unbelief as upon the fact that the Lord Jesus upbraided them because of it. This action of His shows us the way in which unbelief is to be treated by us. As our loving Savior felt it right to upbraid rather than to console, He taught us that on some occasions unbelief should be treated with severity rather than with condolence.

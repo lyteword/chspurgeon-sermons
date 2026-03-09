@@ -1,12 +1,5 @@
 # Sermon 2426 | A Prayer for Revival
 
-
-INTENDED FOR READING ON LORD'S DAY, AUGUST 18, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 14, 1887.
-
 "Will You not revive us again that Your people may rejoice in You" Psalm 85:6.
 
 BRETHREN, if you will pray this prayer, it will be better than my preaching from it! And my only motive in preaching from it is that you may pray it. Oh, that at once, before I have uttered more than a few sentences, we might begin to pray by crying, yes, groaning deep down in our souls," Will You not revive us again that Your people may rejoice in You?"

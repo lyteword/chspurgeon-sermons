@@ -1,12 +1,5 @@
 # Sermon 2776 | The Church a Mother
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 27, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPELS SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE SPRING OF 1860.
-
 "The children you willhave, after you have lost the others, willsay again in your ears, The place is too small for me; give me a place where I may dwell. Then will you say in your heart, Who has begotten these for me, since I have lost my children, and am desolate, a captive, and wandering to and fro? And who has brought these up?Behold, I was left alone; but these, where were they?" Isaiah 49:20,21.
 
 I NEVER like to look upon the Bible as merely an old Book, a relic of the past. I like to read it and think of it as a new Book and one applicable to the present time. And I am continually compelled to regard it as such, for I find that it relates to the things passing around me--it deals with my present sorrows, my present doubts and my present joys. It is not merely a record of the saints in olden times--it is a Book of Direction for the saints of the present generation. It not merely gave consolation to those who received the promise centuries ago, but the same promise comes home fresh and sweet to us and we look upon it as being a new and present Revelation from Heaven to us. At least there are times when the Spirit takes of the words of Scripture and makes them as fresh and new to us as though an angel had just flown from Heaven and, for the first time, uttered the gracious words by whispering them in our ears! And the passage which I have read bears to me, just now, though it may not to you, all the freshness and sweetness of a passage made for the occasion. If this Book had been written yesterday, I am sure it could not contain truth more applicable to myself--no, if I had to have it, as Mahommed's followers had the Koran, chapter by chapter, just as they required it, I could not have a Bible more adapted to my daily experience and my daily needs, for so does the Holy Spirit continually take of the things of Christ and not simply apply them unto us, but, apparently, He seems to adapt them to us, or else He brings out to our mind's eye that old original adaptation which God had placed in them, foreknowing for what purpose they would be used in later days.

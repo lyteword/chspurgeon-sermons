@@ -1,12 +1,5 @@
 # Sermon 2441 | The Lord's Knowledge, Our Safeguard
 
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 1, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 30, 1887.
-
 "The Lord knows how to deliver the godly out of temptations, and to reserve the unjust unto the Day of Judgment to be punished." 2 Peter 2:9.
 
 THERE are very narrow limits to our knowledge. There is a great breadth to our conceit, but the things that we really know are very few, after all. He who is wisest will be the first to confess his own ignorance. Our faith in the superior knowledge of God is a great source of comfort to us. That He knows everything is a sort of Omnipresent covering to our naked ignorance. Though we know not as yet, we rejoice that He knows, and it is better that He should know than that we should know. Knowledge is safer in the hands of God than it would be in our hands. Only the Infinite God is to be trusted with infinite knowledge!

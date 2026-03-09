@@ -1,12 +1,5 @@
 # Sermon 2667 | A Pressed Man Yielding to Christ
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 25, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON THURSDAY EVENING, OCTOBER 12, 1882.
-
 "Jesus heard that they had cast him out; and when He had found him, He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him? And Jesus said unto him, You have both seen Him, and it is He that talks with you. And he said, Lord, I believe. And he worshipped Hun." John 9:35-38.
 
 LAST Sabbath morning [Sermon #1683, Volume 28--The Great Cross-Bearer and His Followers] I spoke to you concerning one who was forced into the King's service. That was Simon, the Cyre-nian, who was compelled to bear Christ's Cross. He was not a volunteer, but a pressed man, yet, I think that after he had been forced to bear the Cross, he willingly carried it and I hope that he, afterwards, became a faithful follower of the Lord Jesus Christ.

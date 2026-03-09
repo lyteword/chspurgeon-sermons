@@ -1,12 +1,5 @@
 # Sermon 2605 | Death and Its Sentence Abolished
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 15, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 14, 1883.
-
 "And you, being dead in your sins and the uncircumcision of your flesh, has He quickened together with Him, having forgiven you all trespasses; blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to His Cross." Colossians 2:13,14.
 
 IT tends to excite gratitude in our hearts if we remember what the Lord has done for us. It is not wrong for us to think of all that we still need from God, but it would be exceedingly ungrateful if we were to forget what we have already received. By far the greater part of salvation is already ours and though, in some respects, we have not yet attained, neither are already perfect, yet in other respects we are complete in Christ Jesus. If we are truly believers in Christ, we are already saved--we are not merely in a salvable state, but we have really obtained salvation. In Christ we are delivered from the curse of the Law of God and we have an eternal inheritance already secured to us. I must not dwell on that blessed theme. I only mention it, in passing, to remind you that it encourages our gratitude if we remember what the Lord has done for us.

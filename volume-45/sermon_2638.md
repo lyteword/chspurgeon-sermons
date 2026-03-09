@@ -1,12 +1,5 @@
 # Sermon 2638 | The Right Observance of the Lord's Supper
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 4, 1882.
-
 "For I have received of the Lord that which also I delivered unto you. That the Lord Jesus, the same night in which He was betrayed, took bread: and when Hie had given thanks, He broke it and said, Take, eat: this is My body, which is broken for you: this do in remembrance of Me. After the same manner, also, He took the cup, when He had supped, saying, This cup is the new testament in My blood: this do you as often as you drink it, in remembrance of Me. For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes." 1 Corinthians 11:23-26.
 
 WE have no respect whatever for the ordinances of men in religion. Anything that is only invented by churches, or councils, is nothing whatever to us. We know of two ordinances instituted by the Lord Jesus Christ--the Baptism of Believers and the Lord's Supper. And we utterly abhor and reject all pretended "sacraments" of every kind. And because we observe these two ordinances, and these two, only, we are the more concerned that they should be properly used and duly understood, and that they should minister to the edification of those who participate in them. We would have those who are baptized understand what is meant by that expressive rite--that they, being dead with Christ, should also be buried with Him and rise with Him into newness of life. And when we observe the Lord's Supper, we feel a deep and earnest desire that none should come to the Table in ignorance of the significance of the observance--or that, at least, ignorance may not be an occasion of eating unworthily--but that we may comprehend what we are doing and understand the spiritual meaning of this pictorial instruction by which the Lord Jesus Christ would, even until the end of the age, remind His Church of His great Sacrifice upon the Cross.

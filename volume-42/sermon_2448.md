@@ -1,12 +1,5 @@
 # Sermon 2448 | "Herein Is Love"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY EVENING, JANUARY 19, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins." 1 John 4:10.
 
 As there not scenes and circumstances which, now and then, transpire before us that prompt an exclamation like that of the Apostle, "Herein is love"? When we have seen the devotedness of a mother to her children. When we have marked the affection of friend for friend and caught a glimpse in different human relationships of the kindness that exists in human hearts, we have said, "Herein is love!" Yesterday these words seemed to rise up and float upon my tongue, although I did not use them, for they seemed to be consecrated to something higher than creature affection. I had the painful duty of attending the Abney Park Cemetery, to bury a beloved Sister in Christ, one of the most useful women we had among us--and as I stood there to commit her body to the grave, I was pleased--I cannot tell you how I was beyond measure pleased, on that dark foggy day, at that distance from town, to find nearly a hundred, mostly poor people, gathered there to show their respect to their friend who had helped, in many cases, to feed them and clothe them and, in every instance, had tried to point them to Christ.

@@ -1,12 +1,5 @@
 # Sermon 2657 | All the Promises
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 14, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 31, 1882.
-
 "For all the promises of God in Him are Yes, and in Him Amen, to the glory of God through us." 2 Corinthians 1:20.
 
 As the result of a very simple incident, a sublime Truth of God may be proclaimed. It was so in the instance referred to in this chapter. These Corinthians had misrepresented the Apostle Paul and spoken ill of him. He might have ignored their unkindness and said nothing about it, but, under the guidance of the Holy Spirit, he was led to act otherwise and, while defending his own character for consistency, he also vindicated the consistency and truthfulness of God. We might never have had this precious verse if Paul had not been so ill-treated by these men of Corinth. They did him great wrong and caused him much sorrow of heart, for a man who was so sincere and upright could not but be sorely vexed by their unjust suspicions and misrepresentations. Yet you see how the evil was overruled by God for good and through their unsavory gossip and slander this sweet sentence was pressed out of Paul--"For all the promises of God in Christ are Yes, and in Him Amen, to the glory of God by us.

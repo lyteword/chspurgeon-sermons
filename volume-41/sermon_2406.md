@@ -1,12 +1,5 @@
 # Sermon 2406 | An Appeal to Children of Godly Parents
 
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 31, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 27, 1887.
-
 "My son, keep your father's commandment, and forsake not the law of your mother: bind them continually upon your heart, and tie them about your neck. When you go, it shall lead you; when you sleep, it shall keep you; and when you awake, it shall talk with you. For the commandment is a lamp; and the law is light; and reproofs of instruction are the way of life." Proverbs 6:20-23.
 
 You have here, before you, the advice of King Solomon, rightly reckoned to be one of the wisest of men, and verily he must be wise, indeed, who could excel in wisdom the son of David, the King of Israel. It is worth while to listen to what Solomon has to say--it must be good for the most intelligent young person to listen--and to listen carefully, to what so experienced a man as Solomon has to say to young men. But I must remind you that a greater than Solomon is here, for the Spirit of God inspired the Proverbs! They are not merely jewels from earthly mines, but they are also precious treasures from the heavenly hills, so that the advice we have, here, is not only the counsel of a wise man, but the advice of that Incarnate Wisdom who speaks to us out of the Word of God! Would you become the sons of wisdom? Come and sit at the feet of Solomon! Would you become spiritually wise? Come and hear what the Spirit of God has to say by the mouth of this wise man!

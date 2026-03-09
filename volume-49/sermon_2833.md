@@ -1,12 +1,5 @@
 # Sermon 2833 | Lessons on Divine Grace
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 31, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, IN THE SUMMER OF 1861.
-
 "But by the Grace of God I am what I am." 1 Corinthians 15:10.
 
 THIS confession, suitable on the lips of Paul, is equally appropriate in the mouth of each one of us who have known and proved the Grace of God. We must consider Paul, according to his own account of himself, as being "not meet to be called an Apostle"--though "not a whit behind the very chief Apostles"--because he had persecuted the Church of God. In respect of personal merit, he knew that he did not deserve to be accounted of at all, yet, when the sole ground of approbation was not the service he had rendered to his Sovereign, but the favor which his Sovereign had bestowed upon him, he could say, "By the Grace of God I am what I am." Take the meanest lamb in Jesus' fold, the feeblest heir of Grace, the most timid and fearing--the most hopeless and helpless of all disciples, the man most devoid of talent, the man who stands the very lowest on the list of the saints of God--surely he may and must say that "by the Grace of God" he is what he is, so far as he is in Christ--a Believer, with all the privileges that Believers have a gracious right to claim! Let this be your comfort, you little ones, that the same Grace that made an Apostle of Paul has made a Christian of you. The same power that has quickened the mightiest man in the army of the Lord of Hosts has also quickened you. The Grace that saves the greatest saves the least. If the largest and brightest gem in the crown of Christ reflects His Grace and glorifies His love, even so shall you, though you are as the smallest pearl that shall be set in His glorious diadem of honor!

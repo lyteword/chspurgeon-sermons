@@ -1,12 +1,5 @@
 # Sermon 2733 | Christ's Manifestation to Mary Magdalene
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 30, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE SUMMER OF 1859.
-
 "Jesus said unto her, Touch Me not; for I aim not yet ascended to My Father: but go to My brethren, and say unto them, I ascend unto My Father, and your Father; and to My God, and your God." John 20:17.
 
 THIS was the first appearance of our Lord Jesus Christ after His Resurrection. In sundry places and at divers times, during the ensuing 40 days, He appeared to different disciples, showing Himself openly to them when they were assembled for worship and at other times. But this was the first occasion of His being seen by any of His followers after He had risen from the dead. The whole incident is full of consolation and we who are poor weary pilgrims through this earthly wilderness need some words of comfort every now and then to cheer us on the road. May the Holy Spirit sweetly assist us in meditating now upon the things of Christ--and may our hearts burn within us as He speaks to us by the way!

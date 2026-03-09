@@ -1,12 +1,5 @@
 # Sermon 2689 | The Ever-Living Christ
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 26, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 24, 1881.
-
 "I am He that lives, and was dead, and behold, I am alive forevemore, Amen." Revelation 1:18.
 
 WE long, sometimes, to behold Christ in His Glory. Certainly, it is one of our brightest hopes that we shall see Him as He is. Every true Believer can say, with Job, "I know that my Redeemer lives, and that He shall stand at the latter day upon the earth: and though after my skin, worms destroy this body, yet in my flesh shall I see God: whom I shall see for myself, and my eyes shall behold, and not another." But, Brothers and Sisters, as we are now constituted, we are quite unfit for the vision of our Master's Glory. It was well that, when He was on earth, He veiled himself in the form of man, for when He did lift up the veil a little, as He did on the Mountain of Transfiguration, the sight, though it was but a glimpse, was too much for Peter, James and John. They were overpowered by it! They fell asleep on the holy mount and even when they were awake, they knew not what to say. And as we now are, if we could be favored with a sight of Christ in His Glory, it would be too much for us, also.

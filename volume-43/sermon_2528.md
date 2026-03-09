@@ -1,12 +1,5 @@
 # Sermon 2528 | Eating the Sacrifice
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 1, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 30, 1884.
-
 "And they shall eat those things wherewith the atonement was made, to consecrate and to sanctiiy them: but a stranger shall not eat thereof, because they are holy." Exodus 29:33.
 
 On the last two Sabbath mornings I have spoken concerning the sacrifices under the Law. Our first sermon was, "Putting the Hand upon the Head of the Sacrifice,," and the next was, "Slaying the Sacrifice" (Nos. 1771 and 1772--Volume 30). Now we are to make an advance and to speak about the eating of the sacrifice, for in certain cases the offerer ate a portion of that which had been presented to God.

@@ -1,12 +1,5 @@
 # Sermon 2854 | Lame Sheep
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Make straight paths for your feet, so that what is lame may not be dislocated, but rather be healed." Hebrews 12:13.
 
 THERE are some Believers with strong and vigorous faith. Soaring high, they can mount up with wings as eagles. Fleet of foot, they can run and not be weary, or, with steady progress, they can walk and not faint. But all are not so highly privileged. I suppose there is seldom a family which has no sickly member. However hale and hearty most of the sons and daughters may be, there is likely to be some weak one among them. So it certainly is in the spiritual household and it will be, therefore, my business, just now, to look after the weak ones. I trust that the word which I shall be enabled to speak may lead their companions to look after them and may God grant that by these means, many troubled ones may be conducted into peace and safety!

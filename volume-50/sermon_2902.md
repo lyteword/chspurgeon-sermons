@@ -1,12 +1,5 @@
 # Sermon 2902 | Holiness Demanded
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 22, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, IN 1862.
-
 "Holiness, without which no one shall see the Lord." Hebrews 12:14.
 
 ONE feels most happy when blowing the trumpet of jubilee, proclaiming peace to broken hearts, freedom to the captives and the opening of the prison to them that are bound. But God's watchman has another trumpet which he must sometimes blow, for thus says the Lord to him, "Blow the trumpet in Zion and sound an alarm in My holy mountain." There are times when we must sound the alarm--men must be startled from their sleep, they must be awakened to enquire, "What are we? Where are we? Where are we going?" Nor is it altogether amiss for the wisest virgins to look to the oil in their vessels and for the most sound Christians to sometimes be constrained to examine the foundations of their hope, to trace back their evidences to the beginning and make an impartial survey of their state before God. Partly for this reason, but with a further view to the awakening and stirring up of those who are destitute of all holiness, I have selected for our topic, "Holiness, without which no one shall see the Lord."

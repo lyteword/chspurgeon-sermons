@@ -1,12 +1,5 @@
 # Sermon 2863 | Great Forgiveness for Great Sin
 
-
-A WATCH-NIGHT SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 31, 1876.
-
 "In whom we have redemption through the blood, the forgiveness of sins, according to the riches of His Grace." Ephesians 1:7.
 
 You scarcely need me to say that Paul is here writing concerning the Lord Jesus Christ. Indeed, Christ was his constant theme, both in preaching and writing. I have heard of ministers who can preach a sermon without mentioning the name of Jesus from beginning to end. If you ever hear such a sermon as that, mind that you never hear another from that man! If a baker once made me a loaf of bread without any flour in it, I would take good care that he should never do so again. And I say the same of the man who can preach a Christless Gospel! Let those go and hear him who do not value their immortal souls, but, dear Friends, your soul and mine are too precious to be placed at the mercy of such a preacher. Paul's harp had only one string, but he brought such music out of it as never came from any other! He found such infinite variety in Christ that he never exhausted his theme. With him it was Christ first, Christ last, Christ midst, Christ everywhere--and so he could never have his pen in his hand without writing something in praise of his glorious Lord and Savior!

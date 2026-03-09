@@ -1,12 +1,5 @@
 # Sermon 2589 | The Christian's Glorious Inventory
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 25, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY MORNING, IN THE YEAR 1856.
-
 "Therefore let no maun glory in men. For all things are yours; whether Paul, or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come-- all are yours. And you are Christ's, and Christ is God's." 1 Corinthians 3:21-23.
 
 IT appears, from this Epistle, that the Christians at Corinth were very much divided on account of certain ministers who had, at different times, preached the Word of God among them. Some of them felt a deep attachment to Paul and they said, "We are of Paul." Others preferred Cephas and they cried, "We are of Cephas," while another portion followed after Apollos and declared, "We are of Apollos." So that the Church, which ought to have been one body, was sadly torn and divided by several parties who followed different leaders. Paul wrote this first Epistle to the Corinthians in order to remove their strifes and, if possible, to bind them, again, in the bonds of love and unity--to make of them one Church, serving one Master, striving together for the faith once delivered to the saints.

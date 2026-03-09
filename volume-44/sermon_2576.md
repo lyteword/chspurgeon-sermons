@@ -1,12 +1,5 @@
 # Sermon 2576 | Zion's Prosperity
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 26, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1856.
-
 "You shall arise, and have mercy upon Zion: for the time to favor her, yes, the set time, is come. For Your servants take pleasure in her stones, and favor the dust thereof." Psalm 102:13,14.
 
 A selfish man in trouble is exceedingly hard to comfort because the source of his joy lies entirely within himself and when he is sad, all his springs are dry. But a large-hearted man, a man of benevolence and Christian philanthropy, has other springs from which to supply himself with comfort beside those which are found within himself. He can go to his God, first of all, and there seek abundant help. And we who try to comfort him can use other arguments not relating to himself, but to the world at large, to his country and, above all, to the Church of Christ. The writer of this Psalm seems to have been exceedingly sorrowful. He says, "I am like a pelican of the wilderness: I am like an owl of the desert. I watch, and am as a sparrow alone upon the house top." And, finding there was no solace in his own circumstances, the only way in which he could comfort himself was to believe that God would arise and have mercy upon Zion. Though he was sad, yet Zion should prosper. However low was his own estate, yet Zion should arise. Christian you can always comfort yourself in God's gracious dealings toward the church at large, but, if the church of which you are a member is in a sad and sickly condition, where shall you comfort yourself? Surely, then, you will be compelled to say with the Psalmist, "I have eaten ashes like bread and mingled my drink with weeping because of Your indignation and Your wrath, for You have lifted me up, and cast me down."

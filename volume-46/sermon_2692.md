@@ -1,12 +1,5 @@
 # Sermon 2692 | Church Increase
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 16, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 18, 1881.
-
 "The children which you shall have, after you have lost the other, shall say again in your ears, The place is too small for me: give me aplace that I may dwell. Then you will say in your heart, Who has begotten these for me, seeing I have lost my children, and am desolate, a captive, and wandering to and fro? And who has brought these up? Behold, I was left alone; these, where had they been?" Isaiah 49:20,21.
 
 MEN who have no Grace in their hearts despise the Church of God. Those who have only a little Grace have but slight sympathy with her condition. Men who have great Grace and are conscious of having received much mercy from God have great sympathy with the Church of God, and a deep regard for her. You remember how David, in that memorable penitential Psalm, the 51st, after he had poured out his whole soul in pleading for mercy and forgiveness for himself, concluded his prayer by saying, "Do good in Your good pleasure unto Zion: build You the walls of Jerusalem." In like manner, those who have needed mercy, have pleaded for mercy and have received much mercy, are usually those who are most anxious that the people of God should be happy, that the cause of God should prosper, that the Truth of God should speedily overthrow error and that the Christ of God should be exalted and glorified in the earth.

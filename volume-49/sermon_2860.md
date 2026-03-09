@@ -1,12 +1,5 @@
 # Sermon 2860 | Owl or Eagle?
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 10, 1872.
-
 "I am like an owl of the desert." Psalm 102:6.
 
 "Who satisfies your mouth with good things; so that your youth is renewed like the eagle's."

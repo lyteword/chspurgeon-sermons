@@ -1,12 +1,5 @@
 # Sermon 2826 | The King in Pilate's Hall
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 4, 1884.
-
 "Pilate therefore said unto Him, Are You a king, then? Jesus answered, You say that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the Truth. Everyone that is of the Truth hears My voice." John 18:37.
 
 OUR Lord was being cross-questioned by an unscrupulous, vacillating, contemptuous Roman official. So, as our blessed Lord and Master did not escape the ordeal of malicious questioning, let no disciple of His imagine that he will escape. "The disciple is not above his master, nor the servant above his lord. It is enough for the disciple that he is as his master, and the servant as his lord." Sooner or later the day will come when the profession that you have made shall be questioned and tested. To some of Christ's followers, this time of trial comes very soon after their conversion. Others are assailed at a later period. The cool, calm, calculating doubter suggests a question about this or that and everything that can be moved is shaken. Just as Pilate said to Christ, "Are you a king, then?" so will men say to you, "Are you a Christian? Are you really believing in Jesus? Have you been born-again? Are you a new creature in Christ Jesus? Are you fully sanctified?" And they will make these enquiries in such a tone of contemptuous ridicule that you will need all your strength, all your patience, an increase in your faith and in all your graces if you are to witness a good confession, as your Master did before Pontius Pilate.

@@ -1,12 +1,5 @@
 # Sermon 2757 | Victorious Faith
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 15, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 24, 1879.
-
 "For whatever is born of God overcomes the world. And this is the victory that overcomes the world-- our faith. Who is he that overcomes the world, but he that believes that Jesus is the Son of God?" 1 John 5:4,5.
 
 WHAT is this "world" that we have to overcome? Did not God make the world and did He not see "everything that He had made and, behold, it was very good"? Yes, He did. But after sin entered this world, men came under its power and, now, by "the world" is meant all mankind who remain under the power of sin and are enemies of God. "The world" means the whole corrupt mass of human society out of which God has taken a people whom He has chosen for Himself, whom He quickens by His Divine Spirit and whose business it is to overcome the world. They will find that the world-- the power of evil--will war against them and they also must war against it! And the issue of the battle must not long be doubtful. There remains for us only one of two courses--either the world must overcome us and we must yield to it--or else we must overcome the world and cause it to submit to us.

@@ -1,12 +1,5 @@
 # Sermon 2801 | A Fear to Be Desired
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 19, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 7, 1878.
-
 "They shall fear the LORD and His goodness in the latter days." Hosea 3:5.
 
 THIS passage refers, in the first place, to the Jews. If we read the whole verse and the preceding one, we shall see that they describe the present sad condition of God's ancient people and inspire us with hope concerning their future--"For the children of Israel shall abide many days without a king or prince, without sacrifice, without ephod or teraphim. Afterward the children of Israel shall return and seek the Lord their God and David their king. They shall fear the Lord and His goodness in the latter days." From this and many other texts of Scripture, we may conclude, without a shadow of a doubt, that the Jews shall, one day, acknowledge Jesus to be their King. The Son of David--who is here, doubtless, called by the name of David, and who, when He died upon the Cross, had Pilate's declaration inscribed over His head, "This is Jesus the King of the Jews"--will then be acknowledged by them as their King and then shall they be restored to more than their former joy and glory. God has great things in store for the seed of Abraham in the latter days. He has not finally cast them away and He will be true to that Covenant which He made with their fathers--and on Judaea's plains shall roam a happy people who shall lift up their songs of praise unto Jehovah in the name of Jesus Christ their Lord and Savior! Whenever that shall happen, we, or those who will then be living, may know that the latter days have fully come because it is foretold here and in other passages that this is what will occur in the latter days. I am not going to attempt any explanation of the prophetic intimations concerning the future, but this one fact is plain enough--when the end of the world is approaching and the fullness of the Gentiles is gathered in, and all the splendor of the latter days has really commenced, then "shall the children of Israel return, and seek the Lord their God and David their king. They shall fear the Lord and His goodness."

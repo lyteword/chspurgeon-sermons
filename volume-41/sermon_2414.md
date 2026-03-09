@@ -1,12 +1,5 @@
 # Sermon 2414 | The Prodigal's Climax
 
-
-INTENDED FOR READING ON LORD'S DAY, MAY 26, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 19, 1887.
-
 "When he came to himself." Luke 15:17.
 
 THERE are different stages in the sinner's history and they are worth marking in the prodigal's experience. There is, first, the stage in which the young man sought independence from his father. The younger son said, "Father, give me the portion of goods that falls to me." We know something of that state of mind and, alas, it is a very common one! As yet there is no open profligacy, no distinct rebellion against God. Religious services are attended, the father's God is held in reverence, but in his heart the young man desires a supposed liberty--he wishes to cast off from all restraint. Companions hint that he is too much tied to his mother's apron string. He, himself, feels that there may be some strange delights which he has never enjoyed and the curiosity of Mother Eve to taste the fruit of that tree which was good for food, and pleasant to the eyes, and a tree to be desired to make one wise, comes into the young man's mind--and he wishes to reach out his hand and take the fruit of the Tree of the Knowledge of Good and Evil, that he may eat thereof. He never intends to spend his substance in riotous living, but he would like to have the opportunity of spending it as he likes. He does not mean to be a profligate, still, he would like to have the honor of choosing what is right on his own account. At any rate, he is a man, now--he feels his blushing honors full upon him and he wants, now, to exercise his own freedom of will and to feel that he, himself, is really his own master! Who, indeed, he asks, is Lord over him?

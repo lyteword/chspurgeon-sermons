@@ -1,12 +1,5 @@
 # Sermon 2813 | Life, and the Path to It
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 11, 1903,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 7, 1877.
-
 "You will show me the path of life: in Your Presence is fullness ofjoy; at Your right hand there are pleasures forevermore." Psalm 16:11.
 
 I THINK YOU must have noticed, while I was reading the Psalm from which my text is taken, that I expounded it partly concerning David and partly concerning David's Lord, Jesus, the Messiah. It often happens, in the Psalms, that you can scarcely tell whether it is David, or Jesus, or both of them to whom the writer is referring. Oftentimes you lose sight of David, altogether, and are quite certain that he is not there, while, at other times, the words seem equally suitable either to David, the type, or to Jesus the antitype. I think that this fact is very instructive to us. It looks as if the Hoy Spirit intended, even in those ancient times, to let God's saints know that there is a mysterious union between Christ and His people, so that almost all things which may be said concerning Him may be said, also, concerning those who are in Him. They are so completely one, they are so intimately united in bonds of mystic, vital, eternal union, that it would not be possible to always keep the sayings concerning them apart. As two bank-divided streams flow side by side for a while and, at last, melt into one river--and you can scarcely say which river it is when they are joined in one--so Christ and His Church are united in one mighty stream and, therefore, what is said of the one may, at least in some sense, be said of the other. O Christian, treasure up this precious thought! You are one with Jesus and, consequently, much that is said concerning Him may also be said concerning you!

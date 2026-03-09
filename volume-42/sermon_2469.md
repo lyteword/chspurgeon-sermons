@@ -1,12 +1,5 @@
 # Sermon 2469 | The Incomparable Bridegroom and His Bride
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 23, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 10, 1866.
-
 "What is your Beloved more than another beloved, O you fairest among women? What is your Beloved more than another beloved, that you so charge us?" Song of Solomon 5:9.
 
 THIS morning, [See sermon # 694, Volume 12, "Sin Laid on Jesus."] we had the great privilege of preaching the doctrine of Substitution and of directing the minds of God's people to the solid rock of the meritorious Sacrifice of Christ whereon all their hopes of Heaven must be built. What we have to say, tonight, is less doctrinal and more practical--therefore let us guard ourselves at the outset. If we should, with very much earnestness, urge Believers to good works, let nobody suppose that, therefore, we imagine that men are saved by works! Let no one, for a moment, dream that in urging the Believer to bring forth fruit to righteousness, we are at all teaching that salvation is the work of man! I have no doubt that all of us who know anything of true religion are of the same opinion as that celebrated Scotch Divine, old David Dickson, who was asked, when dying, what was the principal subject on which his thoughts were engaged. He answered, "I am gathering up all my good works and all my bad works, tying them into one bundle and throwing them all, alike, down at the foot of the Cross and am resting alone upon the finished work of Jesus."

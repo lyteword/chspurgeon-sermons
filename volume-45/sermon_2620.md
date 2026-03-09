@@ -1,12 +1,5 @@
 # Sermon 2620 | Christ's Prayer for Peter
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 30, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 22, 1882.
-
 "But I have prayed for you, that your faith fail not." Luke 22:32.
 
 SATAN has a deadly hatred towards all good men and they may rest assured that somewhere or other, he will meet them on their way to the Celestial City. John Bunyan, in his immortal allegory, placed him in one particular spot and described him as Apollyon straddling the road and swearing by his infernal den that the pilgrim should go no further, but that then and there he would spill poor Christian's soul. But the encounter with Apollyon does not happen in the same place to all pilgrims. I have known some of them assailed by him most fiercely at the outset of their march to Zion. Their first days as Christians have been truly terrible to them by reason of the Satanic attacks they have had to endure, but, afterwards, when the devil has left them, angels have ministered to them and they have had years of peace and joy. You remember that in the case of our Savior, no sooner was He baptized than He was led by the Spirit into the wilderness to be tempted by the devil. In like manner, there are those whose fiercest trials from the adversary come at the beginning of their public ministry. Others meet with their greatest conflicts in middle life when, perhaps, they are too apt to think themselves secure against the assaults of Satan and to fancy that their experience and their knowledge will suffice to preserve them against his wiles. I know some, like Martin Luther, in whose voyage of life, the middle passage has been full of storm and tempest, and they have scarcely known what it was to have a moment's rest during all that period. Then there have been others, the first part of whose career has been singularly calm. Their life has been like a sea of glass--scarcely a ripple has been upon the waters--and yet, towards the end, the enemy has made up for it, and he has attacked them most ferociously right up to the last! I have known many instances of eminent saints who have had to die, sword in hand, and enter Heaven--I was about to say, with the marks of their stern conflict fresh upon them. At any rate, they have been crowned on the battlefield and have fallen asleep at the close of a tremendous fight.

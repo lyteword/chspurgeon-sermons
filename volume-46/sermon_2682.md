@@ -1,12 +1,5 @@
 # Sermon 2682 | A Song and a Solace
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 8, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 1, 1881.
-
 "You have granted me life and favor, and Your visitation has preserved my spirit And these things have You hid in Your heart: I know that this is with You." Job 10:12,13.
 
 BEFORE I speak upon these two verses, I will read the four which precede them, that you may note the connection in which they are found. Job is in great trouble, in sore distress of soul. His heart is very heavy and his unfriendly friends are casting salt into his wounds instead of trying to heal them. In his distress, he turns to his God and appeals to Him in this fashion (beginning at the 8th verse)--"Your hands have made me and fashioned me together round about; yet You destroy me. Remember, I beseech You, that You have made me as the clay; and will You bring me into dust again? Have You not poured me out as milk and curdled me like cheese? You have clothed me with skin and flesh, and have fenced me with bones and sinews." Then follows our text--"You have granted me life and favor, and Your visitation has preserved my spirit. And these things have You hid in Your heart: I know that this is with You."

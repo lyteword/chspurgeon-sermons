@@ -1,12 +1,5 @@
 # Sermon 2433 | Heman's Sorrowful Psalm
 
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 6, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 25, 1887.
-
 "But unto You have I cried, O Lord; and in the morning shall my prayer come before You." Psalm 88:13.
 
 WHAT misery of soul some persons endure before they find peace with God! There is no need that it should be so with them--their anguish often arises from a mistake. The Gospel is very simple--it is just--"Believe and live." He that believes in the Lord Jesus Christ is not condemned--he at once receives pardon, passes from death unto life--and he shall never come into condemnation. But a very large number of persons will not go the straight road to Heaven. They cannot believe that it is the right road, so they get troubled in their thoughts--tumbled up and down in their minds--as John Bunyan puts it. They go staggering over dark mountains, stumbling and falling, wounding and bruising themselves, and it is a long time before they come out into the light and joy of peace in believing. I would recommend you young people, especially, to take the straight way to salvation by trusting in Jesus just as you are. You shall, by doing so, avoid the poor pilgrim's Slough of Despond and many other things that might trouble and burden you. But, as I know that many do go round about and so get troubled and perplexed, I am going to talk to them from these words of the Psalmist.

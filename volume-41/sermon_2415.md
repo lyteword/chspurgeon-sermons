@@ -1,12 +1,5 @@
 # Sermon 2415 | The Believer's Heritage of Joy
 
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 2, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 22, 1887.
-
 "Your testimonies have I taken as an heritage forever: for they are the rejoicing of my heart." Psalm 119:111.
 
 WHEN David wrote these words, he was not in a condition of ease and luxury. He was not in a position of assured safety, for he says in the 109th verse, "My soul is continually in my hand." You know what we mean when we say that a man carries his life in his hand--that is to say, he expects death, he is in imminent peril--and may, at any moment, be cut off from his fellows. It was when David was in such a condition as that, hunted, as he tells us in another place, like a partridge upon the mountains, that he could say, "Your testimonies have I taken as an heritage forever." He was rich in his poverty, he was enthroned in his exile, he was happy in his sorrow and they who have enjoyed a similar experience in their times of distress know how this can be!

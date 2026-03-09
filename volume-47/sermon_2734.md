@@ -1,12 +1,5 @@
 # Sermon 2734 | Out of Nothing Comes Nothing
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 7, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 21, 1880.
-
 "Who can bring a clean thing out of an unclean? Not one." Job 14:4.
 
 JOB considered himself to be unclean in the sight of God. Yet, if we speak the plain truth about him, we must say that he was as clean as any man who lived in that age, or, indeed, in any other! We have the witness of the Holy Spirit, in this very Book, that Job, "was perfect and upright, and one that feared God, and eschewed evil." We have also the practical confirmation by the devil of the same fact, for, when the Lord said to him, "Have you considered My servant Job, that there is none like him in the earth, a perfect and an upright man, one that fears God, and eschews evil?" he could not deny it, but could only insinuate that there was an evil motive at the back of the Patriarch's uprightness--"Does Job fear God for nothing?" Sometimes the unwilling acknowledgment of an enemy is a stronger proof than the hearty declaration of a friend--and it was so in Job's case.

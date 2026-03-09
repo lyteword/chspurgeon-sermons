@@ -1,12 +1,5 @@
 # Sermon 2519 | When Should We Pray?
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 30, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTTOBER 22, 1885.
-
 "Men ought always to pray, and not to faint." Luke 18:1.
 
 MY mind alights with great joy upon the simple Truth of God which gleams on the very surface of our text--then, man may pray! If men ought to pray, they maypray. Whatever a man ought to do, it is clear that he has the right and the privilege to do--and though this may seem a very common-place truth to those of us whose hearts are at ease through faith in Jesus and who enjoy daily communion with God in prayer--yet there is an exquisite sweetness about this fact to a man who fears that he may not pray. He has come into such a miserable state of heart that he feels as if he could not pray and he fears that he may not pray. Satan tells him that the door of mercy is shut against him, that his day of Grace is over and that the time of hope for him is now past and gone. But our text says, "Men ought always to pray." Then, men may always pray

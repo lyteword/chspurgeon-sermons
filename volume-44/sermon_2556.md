@@ -1,12 +1,5 @@
 # Sermon 2556 | Life Proved by Love
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 13, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 18, 1883.
-
 "We know that we have passed from death unto life, because we love the brethren." 1 John 3:14.
 
 I HAVE heard it said, by those who would be thought philosophers, that in religion we must believe, but cannot know. I am not very clear about the distinction they draw between knowledge and faith, nor do I care to enquire because I assert that, in matters relating to religion, we do know! In the things of God, we both believe and know. If you will read this Epistle through and, with a pencil draw a line under the word, "know," wherever it occurs, you will be astonished to see how John continually asserts about the great Truths of our faith, "We know, we know, we know, we know." He does not admit that any one of these things is the subject of conjecture, but he asserts it to be a matter of positive knowledge. These philosophical gentlemen call themselves Agnostics--that is a word derived from the Greek and has the same meaning as the word, "ignoramus," which comes from the Latin--and is the English equivalent for a "know-nothing." Well, if they like to be called ignoramuses, I have not the slightest objection to their keeping the title, but they should never presume to argue with Christian men! They put themselves out of court, directly, for we say, " We know." They cannot deny anything we choose to affirm, after that, because confessedly they do not know. If we do know and they cannot allege against us that we are deceivers--if, in any court of law they will admit that our testimony would be taken quite as quickly as theirs, and that our general repute is that we are as upright and as honest as they are--then they ought, in modesty, never to contradict us in anything, but to believe what we declare to be true.

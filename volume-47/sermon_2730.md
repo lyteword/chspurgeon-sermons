@@ -1,12 +1,5 @@
 # Sermon 2730 | The Secret of Love to God
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 9, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 15, 1880.
-
 "We love Him, because He first loved us." 1 John 4:19.
 
 THIS morning, [Sermon #1553, Volume 26--FAITH WORKING BY LOVE]

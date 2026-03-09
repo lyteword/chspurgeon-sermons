@@ -1,12 +1,5 @@
 # Sermon 2683 | The Bitterness of the Cross
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 15, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 12, 1881.
-
 "They...shall be in bitterness for Him." Zechaariah 12:10.
 
 You know, dear Friends, that this text primarily refers to the Jewish nation. They will not always be blinded as they are at present. The veil will ultimately be taken away from their eyes and their heart. And when it is taken away, it will not be by the enlightenment of mere reason, or through the process of argument by itself, but it will be through the outpouring of the Spirit of our God! The verse from which our text is taken makes this quite clear--"I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications."

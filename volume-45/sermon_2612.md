@@ -1,12 +1,5 @@
 # Sermon 2612 | Questions and Answers Concerning Zion
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 5, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 8, 1883.
-
 "What will they answer the messengers of the nation? That the LORRD has founded Zion, and the poor of His people shall trust in it." Isaiah 14:32.
 
 ZION evidently attracted great attention in its own day and, I suppose, the term, "Zion," stood for the whole city. It was a city of many singularities and it was especially remarkable for its worship when Jerusalem was as it should be. It had a Temple, but there was no image in it. Worship was continually carried on there, but the God who was worshipped was invisible. This made Zion and its Temple different from all other cities and all other temples under Heaven, for, wherever else you went, you saw graven images set up and men prostrating themselves before the work of their own hands. It was not so in Zion. There, the one living and true God resided, and the Temple at Jerusalem was the center of His worship for all the faithful--and every type or symbol in His solemn service was meant to teach the people concerning Him. Zion was remarkable, not so much for the strength of its defenses, the beauty of its palaces and the glory of its Temple, as for being "the city of the great King." "God is in the midst of her, she shall not be moved." Hence, although Zion was but a little hill and other hills were great compared with it, yet the fame of it went forth even to the ends of the earth.

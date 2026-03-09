@@ -1,12 +1,5 @@
 # Sermon 2800 | "Pray, Always Pray"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 12, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 3, 1878.
-
 "In that day you will ask in My name, and I do not say to you that I shall pray the Father for you, for the Father Himself loves you, because you have loved Me, and have believed that I came forth from God." John 16:26,27.
 
 THE present time in which we live is highly favored and ought to be highly valued. Let us never grudge the Patriarchs their communion with God when, sometimes, He spoke personally into their ear, or revealed Himself visibly to them. Blessed are our eyes, for they see, and our ears, for they hear the things which kings and Prophets waited for in vain. That which was denied to them has been revealed to us and we are, therefore, peculiarly privileged. Though John the Baptist, living on the very verge of the Gospel dispensation, was the greatest man who had been born of woman, yet the least in the kingdom of Heaven is greater than he--and we are now living in that kingdom of Heaven, although there is, at present, much to mar the glory of the reign of Christ on earth. Be grateful, therefore, O you sons of men who are also sons of God--be grateful that you live in this truly golden age, for, with all its sorrows and all its shortcomings, it is an age of great mercy and of high privilege!

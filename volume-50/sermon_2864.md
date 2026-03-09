@@ -1,12 +1,5 @@
 # Sermon 2864 | God Has Spoken!-- Rejoice!
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 12, 1876.
-
 "God has spoken in His holiness; I will rejoice, I will divide Shechem and measure out the valley of Succoth." Psalm 108:7.
 
 THERE is an old promise concerning God's people which says, "Before they call, I will answer; and while they are yet speaking, I will hear." This text is one of the instances in which the Lord has dealt with His saints upon the lines of that promise. Read the preceding verse. David there prays, "Save with Your right hand and answer me." And while he is waiting for God to answer him, he remembers that God has already spoken. In effect, he says to himself, "I am waiting for an answer, but God has given it to me." Very often the response to a Believer's petition has been practically received before he presents his request--he only needs that God should open his eyes for him to see that before he called, God had answered his supplication! Indeed, Brothers and Sisters in Christ, in one sense all your prayers--that is, your prayers that ought to be answered--are already answered, for whatever there may be that you may rightly ask of God, you really have it, since in giving us Christ, He has already given us all things! An important part of the duty of faith is to believe that you have what you ask in prayer and then you shall have it. This is blessed philosophy--may we all learn it!

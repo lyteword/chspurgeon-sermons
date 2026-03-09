@@ -1,12 +1,5 @@
 # Sermon 2695 | Christian Conversation
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 7, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1858.
-
 "They shall speak of the Glory of Your Kingdom, and talk of Your power." Psalm 145:11.
 
 YOU have only to look at the preceding verse and you will discover, in a single moment, who are the people here spoken of who shall speak of the Glory of God's Kingdom and talk of His power. They are the saints--"All Your works shall praise You, O Lord; and Your saints shall bless You. They shall speak of the Glory of Your Kingdom, and talk of Your power." A saint will often be discovered by his conversation. He is a saint long before he knows it. He is a saint as being set apart unto salvation by God the Father in the Covenant decree of Election from all eternity. And he is a saint as being sanctified in Christ Jesus and called. But he is more especially a saint as being sanctified by the quickening influence of the Holy Spirit which renders him truly sanctified by making him holy and bringing him into conformity with the image of our Lord and Savior Jesus Christ. Yet it is not at all times easy to discern a saint except by Scriptural marks and evidences. There is nothing particular about the countenance or dress of a saint to distinguish him from his fellows. The saints have faces like other men--sometimes they are sadly marred and furrowed by cares and troubles which worldlings do not know. They wear the same kind of garments as other men wear. They may be rich or they may be poor, but, still, there are some marks whereby we can discern them, and one of the special ways of discovering a saint is by his conversation. As I often tell you, you may know the quality of the water in a well by that which is brought up in the bucket--so may we tell a Christian by his conversation.

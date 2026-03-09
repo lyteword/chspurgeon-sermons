@@ -1,12 +1,5 @@
 # Sermon 2787 | Christ's Triple Character
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 13, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 16, 1878.
-
 "Behold, I have given Him for a Witness to the people, a Leader and Commander to the people." Isaiah 55:4.
 
 THERE is no Gospel apart from our Lord Jesus Christ. He is the essence of it. He is everything in it. There would be no Gospel without Him. In this chapter the Holy Spirit had been speaking, very largely, through the Prophet, of Gospel bounties and privileges. He had bid the thirsty to "come to the waters," and the penniless to come and "buy wine and milk without money and without price." When He had commanded men to listen diligently to Him, to eat that which was good and to let their soul delight itself in fatness, you might be quite sure that He would not so speak without very soon mentioning Christ. For if, in His Gospel, there are waters for the thirsty, those waters do not exist apart from Christ! Is not the Gospel that which proceeds out of His lips--no, more--is not Christ Himself--the Water of Life? He still says, "If any man thirsts, let him come unto Me, and drink." It is true that wine and milk are provided, but out of what cluster comes that wine--and where shall the unadulterated milk of the Word be found but in Him? Christ not only supplies the necessities of His people, but He gives them abundant and superabundant joy in the luxuries of His Grace. You do not really preach the Gospel if you leave Christ out--if He is omitted, it is not the Gospel! You may invite men to listen to your message, but you are only inviting them to gaze upon an empty table unless Christ is the very center and substance of all that you set before them!

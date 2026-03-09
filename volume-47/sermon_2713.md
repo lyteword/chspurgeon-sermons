@@ -1,12 +1,5 @@
 # Sermon 2713 | Walking in the Light of the Lord
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 10, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 4, 1880.
-
 "O house of Jacob, come and let us walk in the light of the LORD." Isaiah 2:5.
 
 We may regard this invitation, first of all, as addressed to the Jews. According to the preceding verses, the Gentiles are to be brought in--"And it shall come to pass in the last days, that the mountain of the Lord's house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it. And many people shall go and say, Come, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and He will teach us of His ways, and we will walk in His paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem. And he shall judge among the nations, and shall rebuke many people: and they shall beat their swords into plowshares, and their spears into pruning hooks: nation shall not lift up sword against nation, neither shall they learn war any more." Then, after that, finding the Jews still alienated from God, the Gentiles will turn to them and say, "O house of Jacob, come and let us walk in the light of the Lord."

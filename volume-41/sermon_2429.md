@@ -1,12 +1,5 @@
 # Sermon 2429 | Converts, and Their Confession of Faith
 
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 8, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 4, 1837.
-
 "One shall say, I am the Lord's; and another shall call himself by the name of Jacob; and another shall subscribe with his hand unto the Lord, and surname himself by the name of Israel." Isaiah 44:5.
 
 THIS is to take place after the Lord has poured out His Spirit upon His people, and upon their offspring. The mainspring of everything good and gracious is the Holy Spirit. Where He comes, everything prospers. But when He has gone, nothing but failure and disaster will come. I believe that at this present moment God's people ought to cry to Him day and night that there may be a fresh baptism into the Holy Spirit. There are many things that are desirable for the Church of Christ, but one thing is absolutely necessary, and this is the one thing--the power of the Holy Spirit in the midst of His people. You know the very simple imagery which sets forth this blessing. If you go down to some of our Thames bridges, you will find the barges stuck fast in the mud and you cannot stir them. It would be a very difficult thing to provide machinery with which to move them--all the king's horses and all the king's men could not do it! But wait till the tide comes in! Now every black, heavy old barge "walks the waters like a thing of life!" Everything that can float is movable as soon as the silver flood has returned. So, many of our churches lie in the mud. Everything seems motionless, pow-erless--but when the Spirit of God comes in like a flood, all is altered! Therefore, let us pray--

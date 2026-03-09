@@ -1,12 +1,5 @@
 # Sermon 2438 | "Two Immutable Things"
 
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 10, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 30, 1887.
-
 "Yes, I swore unto you, and entered into a Covenant with you, says the Lord God, and you became Mine." Ezekiel 16:8.
 
 DURING this last summer I took a little journey into the country, as I had an opportunity of preaching and visiting in the region where I lived as a little child and where I afterwards spent some of my school-boy days. Everything was very vividly interesting to me, much more so than it could have been to anybody who was a stranger to the district. Now I want some of you, especially you who love the Lord, to go back in thought to your early days when you were children in Grace. Yes, go back even further than that--to the time of your spiritual birth--those first hours when your love to your Lord was true and fervent, and everything round about you was fresh and bright and joyous.

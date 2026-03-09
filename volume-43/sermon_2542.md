@@ -1,12 +1,5 @@
 # Sermon 2542 | Christ's Rest and Ours
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 7, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 6, 1884.
-
 "His rest shall be glorious." Isaiah 11:10.
 
 THE Lord Jesus Christ, who is "the root of Jesse"--"the shoot from the stock of Jesse," as the first verse of this chapter might be rendered--is the very center of all Israel! And He is also the rallying-point of the Gentiles, for He has made both Jew and Gentile to be one, having "broken down the middle wall of partition between us." And now, around the one ensign of His glorious name, all the believing hosts gather with glad accord. He is the King of the Jews, but He is also our King and, with Paul, we cry, "Now unto the King eternal, immortal, invisible, the only wise God, be honor and glory forever and ever. Amen." Let us, dear Friends, always look upon Christ as the great Standard-Bearer of all the hosts of God and let us pitch our tents as near His ensign as we can, and constantly follow where His banner leads the way.

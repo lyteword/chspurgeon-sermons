@@ -1,12 +1,5 @@
 # Sermon 2532 | God's Love Shamefully Questioned
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 29, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 13, 1884.
-
 "I have loved you, says the Lord. Yet you say, In what way have You loved us?" Malachi 1:2.
 
 Man, by nature, is a lump of ingratitude. He is often ungrateful even to his earthly friends and he is invariably ungrateful to his Best Friend, above, until the Grace of God has changed his heart. Leave him alone and though he may be loaded with mercy, yet he will never bless the hand that gives him the favor. Should he even be allowed to survive so long as a hundred years, unless the Holy Spirit shall deal with him, he will not once remember his God in grateful thankfulness, but he will go on, from the beginning to the end of the century, always receiving, but never rendering back to the Lord anything like gratitude. We often say that ingratitude is one of the worst of sins--and we feel it so when it concerns ourselves. But we quite forget that it must be worse toward God than it is toward us, for, after all, whatever we may do for others, we are only like stepfathers to the blessings we bestow, for every good gift comes directly from the great Father of Lights, even from God, Himself! We may be the channels conveying comfort to others, but the blessing, itself, comes from Him. Shameful, then, is it that all good should come from God and yet that man should be ungrateful to Him who is the great Source of it all. The charge of ingratitude can be made against us all as we are by nature--it is not merely of some base, mean, groveling spirits that we are now speaking--but of mankind as a whole, looking at it on a broad scale.

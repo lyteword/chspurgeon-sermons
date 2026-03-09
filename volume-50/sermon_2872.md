@@ -1,12 +1,5 @@
 # Sermon 2872 | The Lord's Supper
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25,1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1861.
-
 "For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:26.
 
 This solemn ordinance has been instituted and perpetuated to commemorate the death of our Lord Jesus Christ, but there is no ordinance to commemorate His life. One reason for this is because His death implies His life--when you commemorate His death, you testify that He lived. Another reason is that the Christian's life, better than any ordinance, is the proof that Christ lived and the testimony to this world how He lived. A Christian should so act that worldlings would be compelled to ask, "By what power, by what energy, is he actuated to live in a style so superior to that of his fellows?" The answer he should always be prepared to give is something like this, "I live thus because Christ so lived and it is no more I who live, but Christ who lives in me. The love of Christ compels me, so that I am sweetly and blessedly compelled to live, not unto myself, but unto Him who loved me and gave Himself for me." The proof that Christ came into the world should be that His followers are holy! Let their character be blameless and harmless, their conduct so devoted and so full of self-sacrifice that it shall be a constant memorial of that Redeemer whose name they profess. If the mind of Christ is in His people, it will make them so far superior to other men that it must be inferred that some superior energy is in them and that superior energy is none other than the love of Christ.

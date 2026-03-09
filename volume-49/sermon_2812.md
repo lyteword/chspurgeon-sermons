@@ -1,12 +1,5 @@
 # Sermon 2812 | Causes and Cure of Fainting
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 4, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 7, 1877.
-
 "Hegives power to the faint." Isaiah 40:29.
 
 THE connection in which these words stand is very suggestive. The previous verse says, "Have you not known? Have you not heard? The everlasting God, the Lord, the Creator of the ends of the earth, faints not, neither is weary. There is no searching of His understanding." He has the perfection of power and also of wisdom. Unbelief is based upon absurdity, but faith rests upon reason and fact. This may not, at first sight, seem to be true, but it really is. To believe in the almighty and all-wise God is the most rational thing in the world--to disbelieve Him is both the most wicked and the most irrational thing. When a child of God begins to distrust his Father, it must be because he doubts either God's memory or His power. It seems utterly absurd, as well as grievously wrong, to suspect the Lord of fainting or being weary. The moment we give utterance to such a sentiment, we feel as if we must at once withdraw the words. It is so altogether ridiculous and absurd to speak thus of Him who made the heavens and the earth and who supports all things by the word of His power! How can He fail or faint? The Self-Existent One, from whom all the power that ever was, or is, or shall be, and must primarily come--how can He fail or faint? Then would the sun grow dim at noon! Then would earth dissolve and Heaven pass away if once faintness could seize the Deity who supports all things!

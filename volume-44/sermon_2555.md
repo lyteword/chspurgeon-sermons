@@ -1,12 +1,5 @@
 # Sermon 2555 | The Stronghold
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 6, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 11, 1883.
-
 "The LORD is good, a stronghold in the day of trouble, and He knows them that trust in Him." Nahum 1:7.
 
 HAVE you read this chapter through? It is a very terrible one--it is like the rushing of a mighty river when it is nearing a waterfall. It boils, seethes and flows with overwhelming force, bearing everything before it, yet, right in the middle of the surging flood, there stands out, like a green island, this most cheering, comforting and delightful text! Listen a minute to the Prophet's words of terror. "The Lord is slow to anger, and great in power, and will not at all acquit the wicked: the Lord has His way in the whirlwind and in the storm, and the clouds are the dust of His feet. He rebukes the sea, and makes it dry, and dries up all the rivers: Bashan languishes, and Carmel, and the flower of Lebanon languishes. The mountains quake at Him, and the hills melt, and the earth is burned at His Presence, yes, the world, and all that dwell therein. Who can stand before His indignation? And who can abide in the fierceness of His anger? His fury is poured out like fire, and the rocks are thrown down by Him."

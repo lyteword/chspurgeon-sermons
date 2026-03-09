@@ -1,12 +1,5 @@
 # Sermon 2527 | David's Five-stringed Harp
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 25, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 27, 1884.
-
 "I said unto the LORRD, You are my God: hear the voice of my supplications, O Lord. O God, the Lord, the strength of my salvation, You have covered my head in the day of battle. I know that the Lord will maintain the cause of the afflicted and the right of the poor. Surely the righteous shall give thanks unto Your name: the upright shall dwell in Your Presence." Psalm 140: 6,7,12,13.
 
 This Psalm was written by David when he was sorely vexed by many adversaries. These adversaries were bent upon his destruction--they could not bear that the son of Jesse should be favored of God and that he should come to the throne--so they set their wits to work to invent all manner of slanders against him. They misconstrued his actions, they misrepresented his motives. They spat the very venom of asps from their mouths against him and, at the same time, they said to one another, "If we can lead him to do wrong. If we can, somehow or other, entrap him, either in his speech, or in his private character, or in his public actions, then we shall have a weapon wherewith we can smite him." The ungodly are fully aware that slander is, after all, a very dangerous weapon to handle and, like the Australian boomerang, it is very apt to come back to the man who throws it. Stones, hurled into the air, often fall upon the head of the thrower, and slander often recoils upon those who utter it. So, if they can but get a trthflaccusation against a man of God, then they are exceedingly glad. Slander is like shooting at a man with only powder, or with very small shot that can sting, but cannot kill. But, oh, if they can discover some questionable action of the man, or some decided wrongdoing, then they can load their rifles with bullets and have something deadly to fire at the righteous!

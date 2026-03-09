@@ -1,12 +1,5 @@
 # Sermon 2419 | Repentance after Conversion
 
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 30, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 12, 1887.
-
 "The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, You will not despise." Psalm 51:17.
 
 THE French have a phrase which signifies in English, "assisting at a service." A person who has been present at some grand function of the church speaks of himself as having "assisted" at the service. I want that many of us should literally carry out that expression just now. I do not want so much to preach as to lead you in the offering of sacrifices. Somebody says, perhaps, "But I have no bullock, no lamb." No, but you have a heart--and it is a broken and a contrite heart that I propose that we should present to God! I will not invite those of you to do so who have never experienced the working of Divine Grace within your souls. I trust that you will be led to do so by the Spirit of God, but I cannot, just now, invite you to offer that sacrifice, for my appeal is to those who have tasted that the Lord is gracious, to those who have been restored from spiritual death, to those who are debtors to Free Grace and dying love. It is to them I speak and I invite and entreat them to accompany us while we present to God the sacrifices which He will not despise--the sacrifices of a broken spirit and a contrite heart.

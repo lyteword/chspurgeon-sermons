@@ -1,12 +1,5 @@
 # Sermon 2547 | "Return! Return!"
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 12, 1897,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 21, 1884.
-
 "Return now every one from his evil way." Jeremiah 18:11.
 
 As I read the Scripture in your hearing, a few minutes ago, [See the Exposition at the end of the sermon. The verse referred to is Luke

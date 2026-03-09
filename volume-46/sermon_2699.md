@@ -1,12 +1,5 @@
 # Sermon 2699 | Examination Before Communion
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 4, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 2, 1881.
-
 "But let a man examine himself, and so let him eat of that bread, and drink of that cup." 1 Corinthians 11:28.
 
 IT can never be too clearly understood that spiritual ordinances are only for spiritual persons. Baptism and the Lord's Supper belong to Believers and to none but Believers. It is an evil thing for any church to give either the one or the other of those two ordinances to those who are destitute of "repentance toward God, and faith toward our Lord Jesus Christ." There would have been no necessity for Paul to say, "Let a man examine himself," if the Lord's Table were free to all. If every man might come to it, then every man might come simply because he was a man, and he would have no occasion to examine himself at all. The very fact that there is an examination, presupposes that there are some persons who have no right to "eat of that bread, and drink of that cup." And our own personal examination is in order that we may discover whether we have a right to participate in this ordinance or not. Therefore, let every man clearly understand that the Lord's Table is for the Lord's people. As in a man's house, his table is for his family, so, in God's House, His Table is for His family, and if we do not belong to the family of God, we have no right to draw near to His Table at all!

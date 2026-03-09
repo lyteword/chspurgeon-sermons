@@ -1,12 +1,5 @@
 # Sermon 2431 | The Double Cleansing
 
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 22, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 18, 1887.
-
 "In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem for sin and for uncleanness. And it shall come to pass in that day, says the LORD of Hosts, that I will cut off the names of the idols out of the land, and they shall no more be remembered: and also I will cause the prophets and the unclean spirit to pass out of the land." Zechariah 13:1,2.
 
 WHEN you read a letter, it is well to notice the date upon it--you may make mistakes if you do not. The promise in our text is dated, "In that day." If we look a little way back, we shall find, in the 10th verse of the 12th chapter, these words, "I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications: and they shall look upon Me whom they have pierced, and they shall mourn for Him." When the soul learns to mourn before the Cross, then it shall perceive that there is cleansing from sin. If you have looked to Christ whom you have pierced and, if so looking, you have come to lament and loathe your sin, it is in that day that God reveals to you the fountain opened for your sin and for your uncleanness! Are any of you, here, broken down under a sense of sin? Then I am glad that I have such good news for you as my text contains. It is for sinners that Jesus bled and died! It is for you who are conscious of your great guiltiness that the fullness and the freeness of His Grace are manifested. If you are a sinner and Jesus is a Savior, you are well met. If, by faith, you will look to Him, it is a proof that He is looking to you, and He will take away your sin and you shall go your way taking with you a song of love and praise unto Him who has so graciously saved you! So, you see that where there is mourning for sin, there is pardon for sin! When the eyes are full of tears of repentance, they are most fit for looking to Christ who takes all our guilt away. God help every mourner, here, to rejoice in Christ Jesus and His great salvation!

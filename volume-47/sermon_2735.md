@@ -1,12 +1,5 @@
 # Sermon 2735 | Fountains of Repentant Tears
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 14, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 24, 1880.
-
 "And when he thought about it, he wept." Mark 14:72.
 
 TRUE repentance is always the gift of God and the work of the Holy Spirit in the soul. Man, left to himself, continues in sin. If he turns from his iniquity, it is because God turns him. By nature, his mind is set on mischief and if that mind is changed, as it is in genuine repentance, it must be because the Lord Himself has changed it. That repentance which a man works in himself, without the Spirit of God, will turn out to be a repentance that needs to be repented of! But that godly sorrow for sin which the Spirit of God produces in the heart is a sure indication of spiritual life and the constant attendant of saving faith. Whoever truly repents of sin and believes in the Lord Jesus Christ, is a saved man--he shall be among the blessed ones in that day when Christ comes to judge the quick and the dead--and he shall be forever among the glorified!

@@ -1,12 +1,5 @@
 # Sermon 2595 | What the Lord's Supper Sees and Says
 
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 1, 1883.
-
 "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes." 1 Corinthians 11:26.
 
 THERE is something very tender about the Supper which Christ has instituted, for it very specially concerns Himself. Other things set forth the Truths of God which He taught, or the blessings which He purchased, or the duties which He enjoined, but this Supper has mainly to do with our Lord Jesus Christ, Himself. True, as we think and speak of it, we shall learn precious doctrine and we shall be incited to gracious practice, but the central thought at this Table is concerning our Lord, Himself, and that part of Himself which it is most easy for us to realize--His flesh, with which He touches us so tenderly, making Himself bone of our bone and flesh of our flesh. His blood, which makes Him so near akin to us--

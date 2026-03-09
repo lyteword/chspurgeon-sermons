@@ -1,12 +1,5 @@
 # Sermon 2785 | Christ's Love for His Vineyard
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 29, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE SUMMER OF 1860.
-
 "My vineyard, which is Mine, is before Me: you, O Solomon, must have a thousand, and those that keep the fruit thereof two hundred." Song of Solomon 8:12.
 
 You are aware that these Canticles are responsive songs--that one sentence is uttered by Solomon and the next by Solyma, his spouse. We believe that in this "Song of Songs, which is Solomon's," we also hear Christ speaking to His Church, His bride, and the Church responding to His words of love in tones which His love has suggested to her. The fact that it is a responsive song sometimes renders it the more difficult to understand because it is not easy, in every case, to discover whether it is Solomon or Solyma--Christ or His Church--who is speaking. The first sentence in our text is just of that character. It may be Christ who says, "My vineyard, which is Mine, is before Me." Or it may be His Church, who is saying, "My vineyard, which is mine, is before me." With regard to the latter part of the verse, we have no difficulty, for we can see, upon the very face of it, that it is addressed by the spouse, the bride, to her Divine Bridegroom, to whom she says "You, O Solomon, must have a thousand."

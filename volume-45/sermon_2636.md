@@ -1,12 +1,5 @@
 # Sermon 2636 | The Perpetuity of the Gospel
 
-
-INTENDED FOR READING ON LORD'S DAY, AUGUST 20, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 28, 1882.
-
 "Heaven and earth shall pass away, but My Words shall not pass away." Luke 21:33.
 
 LAST Lord's-Day morning I preached upon the perpetuity of the Law of God, [Sermon #1660, Volume 28-- The Perpetuity of the Law of God] basing my remarks upon our Lord's words, "For verily I say unto you, Till Heaven and earth pass, one jot or one tittle shall in no wise pass from the Law till all is fulfilled." Tonight, I am not going to speak of the Law, but of the Gospel. And, by the term, "the Gospel," I mean the summary of all that our Lord Jesus Christ spoke when He was here below. Of that Gospel it may be said, as He, Himself, said of the Law, that not one jot or tittle of it shall pass away till all is fulfilled. The Gospel of Christ is not merely the Gospel of yesterday, but, like Christ Himself, it is "the same yesterday, and today, and forever." It is not a Gospel simply for this age, or for some other age, a Gospel which shall, by-and-by, be worn out and cast aside. But when yon blue heavens shall be folded up, like a worn-out vestment, the Gospel shall still be as powerful as ever. "Heaven and earth shall pass away," says our Lord, "but My Words shall not pass away."

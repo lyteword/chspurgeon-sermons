@@ -1,12 +1,5 @@
 # Sermon 2865 | Fencing the Table
 
-
-A SERMON PUBLISHED ON THURSDAY JANUARY 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 2, 1876.
-
 "But let a main examine himself, and so let him eat of the bread, and drink of the cup." 1 Corinthians 11:28.
 
 THERE are two symbolical ordinances in the Christian Church--and only two--Believers' Baptism and the Lord's Supper. These have been so misinterpreted, perverted and abused that the wish has sometimes crossed the minds of spiritual persons that they had never been instituted. We do not wonder that there should be a denomination of Christians who have given them up, though we think that in this matter they have not acted according to the Word of God. We ourselves retain them for this reason only, because we believe that our Lord Jesus Christ ordained them--and we desire to observe them exactly as Christ ordained them. And only thus shall we find them instructive and helpful to our souls.

@@ -1,12 +1,5 @@
 # Sermon 2520 | A Program Never Carried Out
 
-
-INTENDED FOR READING ON LORD'S-DAY JUNE 6, 1897.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER. 25, 1885.
-
 "And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. And the son said unto him, Father, Ihave sinned against Heaven, and in your sight, and am no more worthy to be called your son." Luke 15:20,21.
 
 I THOUGHT I would hardly preach a set discourse from this familiar text, but just give you some odds and ends of thought upon these words. You know that there are many people who are in such a low state of mind--and who have such a humble opinion of themselves that if I bring them a loaf of bread, they will be afraid to eat it--so I have only brought a few crumbs, this time, and my hope is that they will say with the Syrophenician woman, "Truth, Lord: yet the little dogs eat of the crumbs which fall from their masters' table." May any such persons who are here feel able to pick up a stray thought which shall be spiritual food to them, even manna sent from Heaven and, perhaps, when they have eaten one morsel of it, they may then dare to eat more, and yet more, until their souls are satisfied and they learn to rejoice in the God of their salvation! I am going to take a roving commission and ramble about somewhat more than usual--and I shall do so because I know there are many here who are, themselves, rambling. Perhaps if I ramble, I may come across them. If I keep along the city road, some of the hedge birds that are out of the way may get missed, but if I go over hedge and ditch and say something unusual here and something startling there--it may be that they will wonder how I went just where they happened to be as much as I marvel how they have managed to go where they are!

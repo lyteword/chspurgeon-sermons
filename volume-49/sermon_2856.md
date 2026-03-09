@@ -1,12 +1,5 @@
 # Sermon 2856 | Our Hiding Place
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 11, 1877.
-
 "And a man shall be as a hiding place from the wind, and a cover from the tempest." Isaiah 32:2.
 
 [When the Tabernacle was thrown open to all comers.]

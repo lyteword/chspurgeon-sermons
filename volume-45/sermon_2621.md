@@ -1,12 +1,5 @@
 # Sermon 2621 | The Sinner's Refuge
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 7, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1857.
-
 "Then you shall appoint you cities to be cities of refuge for you; that the slayer may flee there, who kills any person at unawares." Numbers 35:11.
 
 YOU are aware that the principle of blood-revenge is a deep-seated one in the Eastern mind. From the earliest ages it was always the custom with the Orientals, when a man was murdered, or slain without malice aforethought, for the nearest relative, his heir, or any person related to him, to take revenge for him upon the person who, either intentionally or unintentionally, was the means of his death. This revenge was a very special thing to the Oriental mind. The avenger of blood would hunt his victim for 40 years--yes, until he died, if he was not able to reach him before--and would be on his trail all his life, that he might slay him. It was not necessary that the manslayer should have any trial before a judge-- his victim was dead and if the one who killed him was not put to death, it was reckoned among some tribes to be legitimate to kill his father, or indeed any member of his tribe--and until someone in that tribe was put to death, as a revenge for the man who had been slain, by accident or otherwise, a deadly feud existed between the two clans which never could be quenched except by blood.

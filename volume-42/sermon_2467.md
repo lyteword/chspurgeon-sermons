@@ -1,12 +1,5 @@
 # Sermon 2467 | Christ and His Co-workers
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 31, 1896,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 10, 1886.
-
 "And they went out and preached everywhere, the Lord working with them, and confirming the Word through accompanying signs. Amen." Mark 16:20.
 
 THE previous verse tells us that "after the Lord had spoken to them, He was received up into Heaven, and sat down at the right hand of God." It was expedient for His disciples that He should go away and He had gone to the best place for helping them in their work. He could survey the field better from an eminence, so the Captain ascends on high. He could best send to them succor from the Throne, so the Lord ascends to His Glory. He could better lead them by the Holy Spirit than by His own personal bodily Presence, so He was in the best place when, "He was received up into Heaven." The disciples were in their best place on earth. We do not always think so--we are sometimes eager to go Home. We have often thought, concerning a convert, that if the first day it is said of him, "Behold he prays," we could also say, "Behold he sings in Heaven," it would save us a world of care and trouble and disappointment. Yet, all things considered, for the Glory of God and for the working out of the Divine purpose, the saints would not be best if they were immediately received up into Heaven. No, it is better to read concerning them, "They went out and preached everywhere." Christ is best up there, but it is expedient for us and for God's Glory that we should remain a while here.

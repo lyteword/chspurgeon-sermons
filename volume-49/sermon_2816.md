@@ -1,12 +1,5 @@
 # Sermon 2816 | Invitation to a Conference
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 1, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON LORD'S-DAY EVENING, JUNE 17, 1877.
-
 "Come now, and let us reason together, says the LORD: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Isaiah 1:18.
 
 THE persons to whom this gracious invitation was addressed were in a terrible condition--they could not well have been in a worse plight. They had provoked God above measure by their many sins. He had severely chastened them, yet they had not repented of their iniquities. They would not be either drawn from them or driven from them. Now the Lord seems to say that something else must be done--such a state of things must not be allowed to last any longer.

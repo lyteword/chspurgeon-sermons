@@ -1,12 +1,5 @@
 # Sermon 2650 | Characteristics of Christ's Disciples
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 26, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 16, 1882.
-
 "If anyone comes to Me and does not hate his father and mother, wife and children, brothers and sisters, yes, and his own life, also, he cannot be My disciple." Luke 14:26.
 
 "Then said Jesus to those Jews who believed Him, If you continue in My word, you are My disciples indeed."

@@ -1,12 +1,5 @@
 # Sermon 2418 | "All of One"
 
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 23, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 5, 1887.
-
 "For both He that sanctifies and they who are sanctified are all of one: for which cause He is not ashamed to call them brethren, saying, I will declare Your name unto My brethren, in the midst of the Church will I sing praise unto You. And again, I will put My trust in Him. And again, Behold I and the children whom God has given Me." Hebrews 2:11-13.
 
 AT the commencement of our discourse, it will be most fit and proper for us to enquire whether we have any interest in the Truths of God mentioned in the text. The Apostle here speaks of those who are sanctified and of the great Sancti-fier. Come, my Hearer, do you belong to the sanctified? Have you any part or lot in this matter? What does it concern you that the Sanctifier and the sanctified are, "all of one," if you are not one of them? The more glorious the privileges of the Gospel, the more doleful is your state if they are not yours! If you have no share in this wondrous union between Christ and His people, what we have to say will affect you but little. Indeed, it will not even interest you--and why should it?

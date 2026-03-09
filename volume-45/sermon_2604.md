@@ -1,12 +1,5 @@
 # Sermon 2604 | Open Praise and Public Confession
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 8, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY, OCTOBER 11, 1883.
-
 "I will praise You with my whole heart: before the gods will I sing praise unto You. I will worship toward Your holy Temple, and praise Your name for Your loving kindness and for Your Truth: for You have magnified Your Word above all Your name. In the day when I cried, You answered me, and strengthened me with strength in my soul." Psalm 138:1-3.
 
 IT is a very grievous thing, to one who worships the only living and true God, to see others engaged in idolatrous worship. It stirs one's indignation to see a man worship--not his own hands, but what is even worse than that--the thing which he has made with his own hands and which must, therefore, be inferior to himself. As the righteous soul of Lot in Sodom was vexed with the filthy conversation of the inhabitants of that guilty city, so the righteous soul of David was vexed when he saw the many lords and gods before whom his neighbors were bowing down and, in like manner, as long as we are in this world, we shall often be troubled through seeing how others turn aside from the living God, how they forget His Truth, set up thoughts of their own in the place of the thoughts of God and dishonor the Holy Scripture by thinking that their own vain ideas can equal, if not even excel, the Revelation of God!

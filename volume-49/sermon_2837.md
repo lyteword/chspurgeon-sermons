@@ -1,12 +1,5 @@
 # Sermon 2837 | "The Ministry of Reconciliation"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 28, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 8, 1887.
-
 "And hath given to us the ministry of reconciliation." 2 Corinthians 5:18.
 
 THERE has been a long-standing quarrel between God and man. It commenced in that day when our first parents hearkened to the serpent's voice and believed the devil rather than their Maker. Yet God is not willing for that quarrel to continue. According to the goodness of His nature, He delights in love. He is the God of Peace and He has, on His part, prepared everything that is necessary for a perfect reconciliation. His glorious wisdom has devised a plan whereby, without violating His Justice as the Judge of all the earth and without tarnishing His perfect holiness, He can meet man upon the ground of mercy and man can again become the Friend of God. That blessed work was done long ago and now all that remains is that man should be reconciled to God, that he should be willing to end the dispute and that his heart should turn towards his Maker again in love, peace and perfect reconciliation. He bids us, His ministers and, indeed, all His servants--each according to his opportunity, experience, knowledge, ability and Grace--to go abroad among the sons of men and exercise "the ministry of reconciliation," to labor to bring men into harmony with God, that they may be willing to accept what God has done toward the making of an everlasting peace and ending, once and for all, this grievous quarrel.

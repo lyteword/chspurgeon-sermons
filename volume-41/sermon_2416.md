@@ -1,12 +1,5 @@
 # Sermon 2416 | Adorning the Gospel
 
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 9, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, THURSDAY EVENING, MAY 26, 1887.
-
 "That they may adorn the doctrine of God our Savior in all things." Titus 2:10.
 
 I AM afraid that there are some Christians who would hardly like the best preaching that they could ever have. The best doctrine that could ever be delivered would be like that of our Lord Jesus Christ, Himself--eminently ethical, full of precepts and words of wisdom for daily life. I verily believe that if some stern doctrinalists had heard some of Christ's sermons, they would have said that they had not the Gospel in them! He did not preach, every time He spoke, those grand doctrines which plainly show the way of salvation, but He frequently proclaimed those important precepts which show us the fruits of salvation and which help us to judge whether we have been saved or not.

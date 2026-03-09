@@ -1,12 +1,5 @@
 # Sermon 2617 | Shining Christians
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 9, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 1, 1882.
-
 "Arise shine; for your light is come, and the Glory ofthe LORD is risen upon you." Isaiah 60:1.
 
 I BELIEVE that this text refers to the Church of God. I am aware that it is considered by some to have a special reference to Israel, but I also know that "no prophecy of the Scripture is of any private interpretation," and that this particular Scripture may be most justly and fitly applied to every child of God. I pray the Holy Spirit to bear witness to that fact, even while I am speaking, by applying the text to all Believers who are assembled here. The first word of it is, "Arise." There is much need, dear Friends, that we should be, sometimes at least, awakened. Here are persons in the light--the day has dawned upon them, but they are fast asleep--so the trumpet is sounded in their ears and the watchman shouts aloud, "Arise, shine; for your light is come." I believe that there are some Christians who have wasted a large part of their lives for need of somebody or something to wake them up. There is more evil worked in the world by lack of thought than by downright malice and there is more good left undone through lack of thought than through any aversion to the doing of good! Some Christians appear to have been born in the land of slumber and they continually live in their native country of dreams. They occasionally rub their eyes and suppose themselves to be wide awake, but they are in the Enchanted Ground and though they know it not, they are little better than sleepwalkers most of their days.

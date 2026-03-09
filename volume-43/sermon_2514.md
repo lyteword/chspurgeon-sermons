@@ -1,12 +1,5 @@
 # Sermon 2514 | Servus Servorum
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 25, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1885.
-
 "I am among you as He that serves." Luke 22:27.
 
 OBSERVE, dear Friends, that our Lord, in order to impress a great practical Truth of God upon His 12 Apostles, refers them to Himself. He very often does so, quoting His own doings as an example to His servants. Does not this fact give us a hint that there is someone greater than a man here, for no mere man, modest and true and right-minded, would continually make himself the object of imitation! We would not consider it right if we found Abraham, or Moses, or David constantly pointing to himself as an example. Such a course is very proper for certain persons in certain special cases as, for instance, Paul might occasionally allude to himself when he was addressing his own converts, but even then rarely doing it--and doing it with extreme diffidence. But our Lord acts thus very often and with the utmost possible naturalness! Neither did it ever suggest itself to anyone of His people that there was anything immodest in His doing so. Such an idea never occurred to us because we have always recognized in Him something which entitled Him to speak thus, something which rendered it quite right that He should so speak. He is Master and Lord! He is very God of very God! He is perfect! He is out of the lists of ordinary men, He rises like a lone Alp above us all and when He speaks as He does in the words before us, the very fact that He does speak without our feeling any objection thereto proves that there is a something altogether unique about His Character, and that something, I believe, is the existence of perfection, and the evidence of Deity combined with His Humanity.

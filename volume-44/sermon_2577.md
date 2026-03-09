@@ -1,12 +1,5 @@
 # Sermon 2577 | Living on the Word
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 3, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 15, 1883.
-
 "Man does not live by bread only, but by every word that proceeds out ofthe mouth of the LORRD does man live." Deuteronomy 8:3.
 
 THE main thing for every one of us is life. What would it profit a man if he should gain the whole world and lose his own life? Of what use would riches be if life were gone? What is the value of broad acres to a dead man, or the applause of nations to one who lies in his sepulcher? The first thing, therefore, that a man is to look to, is life. There are some persons who take this Truth of God in a wrong sense and so make mischief of it. They say, "We must live," whereas, in the sense in which they mean it, there is no such necessity at all! That we must continue to live here is not at all clear--it were better far for us to die than to live by sinning. Martyrs have preferred to suffer most fearful deaths rather than, even by a word, to bring disgrace upon the name of Christ. And every true Christian would prefer immediate death rather than dishonor his great Lord. and Master.

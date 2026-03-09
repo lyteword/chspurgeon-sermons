@@ -1,12 +1,5 @@
 # Sermon 2409 | A Great Sermon by the Greatest Preacher
 
-
-INTENDED FOR READING ON LORD'S DAY, APRIL 21, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING APRIL 17, 1887.
-
 "And lo, a voice came from Heaven, saying, This is My beloved Son, in whom I am well pleased." Matthew 3:17.
 
 A CERTAIN divine, who had taken this verse as his text, spoke upon it under these three heads. "First," he said, "here is a great pulpit--the voice was from Heaven. Secondly, here is a great Preacher--it was the Father who spoke as only God can speak. And, thirdly, here is a great sermon--'This is My beloved Son, in whom I am well pleased.'"

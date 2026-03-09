@@ -1,12 +1,5 @@
 # Sermon 2497 | A New Leaf for the New Year
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 27, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 27, 1864.
-
 "And they said one to another, We are truly guilty concerning our brother." Genesis 42:21.
 
 YOU know the story from which our text is taken, how Joseph's brothers, being envious of him, sold him for a slave, deceived his aged father concerning him and then endeavored to forget the deed. They appear to have gone on with sad consciences for a number of years, but, by-and-by, there was a sore famine in all lands and from all countries people went into Egypt to buy corn. So old Jacob told his sons that they must go down into Egypt to buy from the stores there laid up for the time of famine. And they went, not knowing that Joseph was there in great power. He knew them and, at first treated them very roughly, charged them with being spies, and put them in prison for three days. Afterwards he said to them, "If you are true men, let one of your brothers be bound in the house of your prison: go you, carry corn for the famine of your houses: but bring your youngest brother to me; so shall your words be verified, and you shall not die." Then it was, but not till then, that they said, one to another, "We are truly guilty concerning our brother."

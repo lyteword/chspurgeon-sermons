@@ -1,12 +1,5 @@
 # Sermon 2656 | The Death of Christ for His People
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 7, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE WINTER OF 1857.
-
 "He laid down His life for us." 1 John 3:16.
 
 Come, Believer, and contemplate this sublime Truth of God, thus proclaimed to you in simple monosyllables--"He laid down His life for us." There is not one long word in the sentence--it is all as simple as it can be--and it is simple because it is sublime. Sublimity in thought always needs simplicity in words to express itself. Little thoughts require great words to explain them. Little preachers need Latin words to convey their feeble ideas, but great thoughts and great expressers of those thoughts are content with little words.

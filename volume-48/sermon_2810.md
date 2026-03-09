@@ -1,12 +1,5 @@
 # Sermon 2810 | "Nevertheless at Your Word"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 21, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 3, 1877.
-
 "Nevertheless at Your word." Luke 5:5.
 
 OUR Lord Jesus Christ had preached a sermon to the multitude while He was sitting down in Peter's boat. And after the people had gone, He had a private message for Simon. He said to him, "Launch out into the deep and let down your nets for a catch." Christ's discourses to the general public were all full of most blessed teaching, but His little private talks to His intimate acquaintances were even more helpful and precious. They were important Truths of God which He proclaimed to the many, but the choicest things He reserved for the few. Many a parable which He addressed to the crowd, He explained only to His own disciples--and many a thing which He never said to the crowd at all, because they could not understand it, and it would have been like casting pearls before swine, He whispered in the ears of His disciples. So it was with Simon Peter at this time. First there was the sermon to the many and after the sermon, this word to Peter about launching out into the deep. Mind that you, who love the Lord, always look for the private piece after the public sermon. Watch for the sweet Word which your Master is always willing to utter--and do not be satisfied unless you hear it.

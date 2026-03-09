@@ -1,12 +1,5 @@
 # Sermon 2510 | Apart
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 28, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 16, 1885.
-
 "And the land shall mourn, every family apart; the family ofthe house of David apart, and their wives apart; the family ofthe house of Nathan apart, and their wives apart; the family of the house of Levi apart, and their wives apart; the family of Shimei apart, and their wives apart; all the families that remain, every family apart, and their wives apart." Zechariah 12:12-14.
 
 True repentance is always accompanied by sorrow. It has been said by some of those of modern times who disparage repentance that repentance is "nothing but a change of mind." These words sound as if there was merely some superficial meaning to them and so, indeed, they are intended by those who use them, but they are not so intended by the Spirit of God! Repentance may be and is a change of mind, but what a change it is! It is not an unimportant change of mind such as you may have concerning whether you will take your holiday this week or the next, or about some trifling matter of domestic interest--it is a change of the whole heart, of the love, of the hate, of the judgment and the view of things taken by the individual whose mind is thus changed. It is a deep, radical, fundamental, lasting change. And you will find that whenever you meet with it in Scripture, it is always accompanied with sorrow for past sin. And rest you assured of this fact, that the repentance which has no tears in its eyes and no mourning for sin in its heart is a repentance which needs to be repented of, for there is no evidence of conversion, no sign of the existence of the Grace of God! In what way has that man changed his mind who is not sorry that he has sinned? In what sense can it be said that he has undergone any change worth experiencing if he can look back upon his past life with pleasure, or look upon the prospect of returning to his sin without an inward loathing and disgust?

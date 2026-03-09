@@ -1,12 +1,5 @@
 # Sermon 2567 | The Single-handed Conquest
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 24, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, JANUARY 6, 1856.
-
 "I have trodden the winepress alone; and ofthe people there was none with Me." Isaiah 63:3.
 
 IT is said of some stupendous works of architecture that although you see them every day, you are struck with wonder and admiration every time you behold them and that, although you should live close to them and have your eyes perpetually fixed upon them, yet your admiration of them would by no means decrease, for they are so matchless in symmetry, such patterns of art and such marvelous displays of the skill of man. I know not whether that is true. I believe that the best and grandest achievements of mortals lose their glory when they are too closely examined and that the frequency of our sight of them very much lessens our wondering admiration. But this I know is true concerning Christ Jesus our Lord--you may see Him every day, but the more often you see Him, the more you will wonder at Him and call Him, "Wonderful." You may even have communion with Him every hour, but the frequency of your converse and the constancy of your communion will be so far from diminishing your awe, your love, your respect, your devout adoration of Him, that the more you know Him, the more your wonder and admiration of Him will increase!

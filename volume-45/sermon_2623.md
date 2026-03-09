@@ -1,12 +1,5 @@
 # Sermon 2623 | How Faith Comes
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 2, 1882.
-
 "And many ofthe Samaritans of that city believed on Him for the saying of the woman who testified, He told me all that I ever did. So when the Samaritans were come unto Him, they sought Him that He would tarry with them: and He abode there two days. And many more believed because of His own word; and said unto the woman, Now we believe not because of your saying: for we have heard Him ourselves, and know that this is, indeed, the Christ, the Savior of the world." John 4:39-42.
 
 WHEREVER faith exists, it is the gift of God. It is a plant that never sprang up spontaneously from the soil of corrupt human nature. Whether it is little faith or great faith, it is equally of Divine origin, and wherever it is found-- whether in the child of pious parents who was brought up with the utmost care, or in one who has lived all the former part of his life in the vilest sin--it is equally and alike the fruit of the Spirit and the effect of God's Grace. From this fact I gather great encouragement because, if it needs Divine power to implant faith in the heart that looks more favorable, it needs no more to implant and preserve it in the soul that appears most unprepared to receive it. Casting our eyes over the whole map of Palestine, we might have said that Samaria was probably as unlikely a place as any in the entire country in which we might expect to find followers of the Lord Jesus, for, at the very threshold of Christ's announcing Himself, there would be found this prejudice, that the Samaritans would not believe in a Jew.

@@ -1,12 +1,5 @@
 # Sermon 2690 | Meditation on God
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 2, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING IN THE SUMMER OF 1858.
-
 "My meditation of Him shall be sweet." Psalm 104:34.
 
 DAVID, certainly, was not a melancholy man. Eminent as he was for his piety and for his religion, he was equally eminent for his joyfulness and gladness of heart. Read the verse that precedes my text, "I will sing unto the Lord as long as I live: I will sing praise to my God while I have my being. My meditation of Him shall be sweet: I will be glad in the Lord." It has often been insinuated, if it has not been openly said, that the contemplation of Divine things has a tendency to depress the spirits. Religion, many thoughtful persons have supposed, does not become the young--it checks the ardor of their youthful blood. It may be very well for men with gray heads who need something to comfort and solace them as they descend the hill of life into the grave. It may be well enough for those who are in poverty and deep trial, but that it is at all congruous with the condition of a healthy, able-bodied, successful and happy man, is generally said to be out of the question.

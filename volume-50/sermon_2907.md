@@ -1,12 +1,5 @@
 # Sermon 2907 | The Holy Spirit Glorifying Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 27, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 12, 1891.
-
 "He will glorify Me, for He will take of what is Mine and declare it to you." John 16:14.
 
 THE needs of spiritual men are very great, but they cannot be greater than the power of the Divine Trinity is able to meet. We have one God--Father, Son and Holy Spirit--One in Three and Three in One. And that blessed Trinity in Unity gives Himself to sinners that they may be saved. In the first place, every good thing that a sinner needs is in the Father. The prodigal son was wise when he said, "I will arise and go to my father." Every good and perfect gift comes from God the Father, the first Person in the blessed Trinity, because every good gift and every perfect gift can only be found in Him. But the needy soul says, "How shall I get to the Father? He is infinitely above me. How shall I reach up to Him?" In order that you might obtain the blessings of Grace, God was in Christ Jesus, the second ever-blessed Person of the Sacred Trinity. Let me read you part of the verse that follows my text--"All things that the Father has are Mine." So you see, everything is in the Father, first, and the Father puts all things into Christ. "It pleased the Father that in Him should all fullness dwell." Now you can get to Christ because He is Man as well as God. He is "over all, God blessed forever," but He came into this world, was born of the Virgin Mary, lived a life of poverty, "suffered under Pontius Pilate, was crucified, dead and buried." He is the conduit conveying to us all blessings from the Father. In the Gospel of John we read, "Of His fullness have we all received and grace for grace." Thus you see the Father with every good thing in Himself putting all fullness into the Mediator, the Man Christ Jesus who is also the Son of God.

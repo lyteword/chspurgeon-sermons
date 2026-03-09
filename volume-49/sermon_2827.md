@@ -1,12 +1,5 @@
 # Sermon 2827 | The Redeemer Described by Himself
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 19, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 1, 1877.
-
 "Why, when I came, was there no man? Why, when I called, was there none to answer? Is My hand shortened at all, that it cannot redeem? Or have I no power to deliver? Behold, at My rebuke I dry up the sea, I make the rivers a wilderness: their fish stink because there is no water, and die for thirst. I clothe the heavens with blackness, and I make sackcloth their covering. The Lord GOD has given Me the tongue of the learned, that I should know how to speak a word in season to him that is weary: He wakens Me morning by morning, he wakens My ears to hear as the learned. The Lord GOD has opened My ears, and I was not rebellious, nor did I turn away. I gave My back to the smiters, and My cheeks to them that plucked off the hair: I hid not My face from shame and spitting." Isaiah 50:2-6.
 
 WE spent this morning at the foot of the Cross. [Sermon #1362, Volume 23--MOURNING FOR CHRIST] I hope that some of us, at least, were helped by the Spirit of Grace and of Supplication to look unto Him whom we have pierced by our sins, and to "mourn for Him, as one mourns for his only son." I thought that as we then found it so good to be there, we would go there, again, the more especially as we are afterwards to gather around the Communion Table where we shall again be reminded of the sacrificial death which the sacred Supper so clearly symbolizes. Let us come, then, under the guidance of God's Holy Spirit, very near to our Lord Jesus Christ. I pray that the Spirit of Christ may aid our meditations while I try, once more, to speak about His glorious and matchless Person, and the wondrous condescension which made Him undertake such gracious offices on our behalf and bear for us such awful and shameful griefs.

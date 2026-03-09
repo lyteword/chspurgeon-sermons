@@ -1,12 +1,5 @@
 # Sermon 2549 | Luminous Words
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 26, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 28, 1884.
-
 "Therefore since Christ has suffered for us in the flesh, arm yourselves, likewise, with the same mind: for he that has suffered in the flesh has ceased from sin; that he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God. For the time past of our life may suffice us to have worked the will of the Gentiles, when we walked in lasciviousness, lusts, excess of wine, drinking parties and abominable idolatries." 1 Peter 4:1-3.
 
 Our Lord Jesus Christ has suffered for sin and He has suffered to the utmost extent, for He has paid the death penalty on His people's behalf. Look at the 18th verse of the previous chapter--"For Christ also has once suffered for sins, the Just for the unjust, that He might bring us to God, being put to death in the flesh, but quickened by the Spirit." Christ has fought with sin to the bitter end. He has now done with sin, for He has died to it. He has borne the capital sentence pronounced upon the guilty, dying, "the Just for the unjust, that He might bring us to God." Now, as many as have believed in the Lord Jesus Christ are one with Him. And what He did, He did representatively for them, so that they virtually did it in Him. Therefore, every Believer ought to regard Himself as having been put to death on account of sin--as having undergone, in the Person of His Great Substitute, the capital sentence on account of sin and now, as a man who has been executed is clear of the guilt, so are we! And as a man who has been executed should not return, could he live again, under the old sin, so neither must we. "Christ being raised from the dead dies no more; death has no more dominion over Him. For in that He died, He died unto sin once: but in that He lives, He lives unto God. Likewise reckon you, also, yourselves, to be dead, indeed, unto sin, but alive unto God through Jesus Christ our Lord."

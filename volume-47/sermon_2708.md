@@ -1,12 +1,5 @@
 # Sermon 2708 | The Old Gospel for the New Century
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 6, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 5, 1880.
-
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 
 You have doubtless already heard several sermons from this text. I have discoursed upon it, I know not how many times--not so many times, however, as I intend yet to do if God shall spare my life! This verse is one of those great wells of salvation from which we may always be drawing, for we can never exhaust it. Our proverb says, "Drawn wells are the sweetest." And the more we draw from such a text as this, the sweeter and the fuller does its meaning appear to us.

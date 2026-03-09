@@ -1,12 +1,5 @@
 # Sermon 2536 | The Ethiopian
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 26, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON THURSDAY EVENING, MAY 15, 1884.
-
 "Can the Ethiopian change his skin, or the leopard his spots? Then may you also do good, that are accustomed to do evil." Jeremiah 13:23.
 
 Jeremiah had a friend who was a black man. Ebedmelech, the Ethiopian eunuch, had a great and tender concern for Jeremiah when he was shut up in the miry prison. He took ropes and covered them with rags that they might not cut the poor Prophet's armpits, and drew him up out of that filthy well into which he had been cast for the Truth of God's sake. I suppose, from the way Ebedmelech afterwards treated the Prophet Jeremiah, that they were great friends. And as we usually talk of people of whom we are fond, it was natural that Jeremiah should use the Ethiopian as an emblem. I do not know that any other Prophet did so. Perhaps there was no other Prophet who took to a Negro so thoroughly as Jeremiah did, but, anyway, he had that black man's face imprinted on his mind and when he was speaking to the people, the Holy Spirit moved him to use a simile with which he had become familiar. I wish that every thought and experience I have ever had could be used in speaking for my Lord. I would like to never set my eyes on anyone or anything without trying to turn all to good account for the Master's work. And if those of us who are teachers of others will only go about with our eyes open, we shall find plenty of illustrations of the Truths we have to proclaim. There will not be a black man cross our path but we shall learn something or other from him.

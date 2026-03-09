@@ -1,12 +1,5 @@
 # Sermon 2440 | Faithful Stewardship
 
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 24, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 14, 1887.
-
 "Moreover it is required in stewards, that a man be found faithful." 1 Corinthians 4:2.
 
 IT is well that our dear Brothers and Sisters should make a right account of us. Paul says, in the verse preceding our text, "Let a man so think of us," for there are some who make a wrong reckoning as to the ministers of the Gospel. Some go to an extreme, for they glory in men. One glories in Paul, who is so deep in doctrine, another in Cephas, who is so energetic and plainspoken, another in Apollos, who is so exceedingly eloquent and mighty in the Scriptures. But Paul says, in the latter verses of the third chapter, "Let no man glory in men. For all things are yours; whether Paul, or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come; all are yours; and you are Christ's; and Christ is God's." You do not belong to your ministers, you must not put yourselves down as followers of them--you belong to Christ and Christ, Himself--and all His ministers belong to you.

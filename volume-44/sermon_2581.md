@@ -1,12 +1,5 @@
 # Sermon 2581 | Perfection in Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 31, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE YEAR 1856.
-
 "Perfect in Christ Jesus." Colossians 1:28.
 
 Perfection in Jesus Christ! What effect ought it to have upon our hearts if it really is ours? Perfection! What do we know of it from Scripture? We know that it is a word so large that while it takes us little time to say it, yet it comprehends all words within its meaning. There is no good word of any description which can be applied to any creature but this word, perfection, takes it in. And though it is easy to utter it with our lips, I question whether there is any mortal mind capable of grasping the idea of perfection any more than it can grasp the idea of eternity! When we begin to think of eternity--without beginning, without end--we are lost in trying to comprehend it because we are finite. And when we once endeavor to conceive perfection--without fault, without flaw--we are lost because we are imperfect! And therefore we cannot understand perfection any more than the finite can grasp the infinite! Perfection, indeed, seems to be the sole prerogative of God. He is perfect in everything. In all His attributes there is no lack. From whatever point of view we regard Him, He is without blot or blemish. And no man, speaking truthfully of God, can say that there is anything of imperfection in Him. If we speak of majesty, His Glory is unsurpassed. If we talk of power, His is Omnipotence and that, indeed, is infinite power! If we speak of wisdom, His is the wisdom of the Godhead--He knows all things, from the most minute to the most immense. He comprehends all secrets and grasps all knowledge in His mighty mind.

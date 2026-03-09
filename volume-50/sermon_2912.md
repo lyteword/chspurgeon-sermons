@@ -1,12 +1,5 @@
 # Sermon 2912 | Comfort for Tried Believers
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 1, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 21, 1876.
-
 "There hats no temptation taken you but such as is common to man: but God is faithful, who will not allow you to be tempted above what you are able; but will, with the temptation, also make a way to escape, that you may be able to bear it." 1 Corinthians 10:13.
 
 THIS verse immediately follows the warning to "him that thinks he stands" to "take heed lest he fall." None of us know what stuff we are really made of until we are tried and tested. It is a very easy thing to imagine yourself to be strong, but it is a very different matter to find that you have sufficient strength when you actually need it. It has even been found possible, in these modern days, for some Brothers and Sisters to believe themselves to be perfect--to believe that sin is entirely conquered within them--but I will guarantee you that you will find that the practice of perfection is not nearly so common as the profession of it--and nothing like so easy. And I will venture to go even further and say that if you watch those in whom sin is said to be dead, you will find that if it is dead, it is not buried--and that it smells remarkably like other dead things which ought to be buried! It is possibly worse than when it was alive, for it has become alive again in an even worse sense with a double putridity. Let no one of us imagine himself to be perfect, or to be immune against the temptations of Satan or even the grosser vices to which the flesh is prone. It may only need for you to be attacked at a certain point and in a certain way and you will be overcome even as others have been. Your wisest way is to believe yourself neither to be wise nor strong and, therefore, to lie humbly at His feet who can make you both wise and strong--and to look away from yourself up to Him who will keep the feet of His saints. It ought to cool the hot blood of self-conceit in any man to remind him that although he thinks that he stands, it is simply because he has not been tempted as others have been who have fallen! Or if he has been tempted in a way which overthrew them, while he has stood fast, yet, if the temptations were still further increased and he were left to himself, he would find that at the last the fierce wind from the Pit would sweep him off his feet even as it has swept off other men who thought that they could never be moved.

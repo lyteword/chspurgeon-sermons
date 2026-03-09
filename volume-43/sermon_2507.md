@@ -1,12 +1,5 @@
 # Sermon 2507 | He Ran, and He Ran
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 7, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 2, 1885.
-
 "But when he saw Jesus afar off, he ran and worshipped Him." Mark 5:6.
 
 "But when he wasyet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him." Luke 15:20.

@@ -1,12 +1,5 @@
 # Sermon 2613 | Sonship Questioned
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 12, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 16, 1883.
-
 "And when the tempter came to Him, he said, If You are the Son of God." Matthew 4:3.
 
 IN speaking upon the temptation of our Lord, I first want to say a few words that ought always to be remembered by those who are tempted, lest they encounter unnecessary sorrow. And to begin with, I remark that there is no sin in being tempted. Even when our first parents were in their perfect state, they were liable to temptation. The serpent came and beguiled them. It was not their fault that they were tempted--their sin was that they yielded to the temptation. We know that our blessed Lord was personally without the slightest taint of sin--"holy, harmless, undefiled"--yet He was tempted by Satan, himself, the prince and leader of all tempters, and He was tempted to what would have been the worst of sins. Still, there was no blame attached to Him on that account, for He did not yield to the assaults of the Evil One. So, dear Friends, should you be tempted while you are about your lawful calling, or when you are in the House of God, distinctly engaged in His service and worship, do not be surprised! Who are you that you should escape temptation when your Lord had to endure it? Do not be cast down by the fact of your being tempted, as though it were, in itself, a sin. The guilt lies with him who tempts--not with the tempted one until he yields to the temptation. Let that always be remembered.

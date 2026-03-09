@@ -1,12 +1,5 @@
 # Sermon 2914 | A Mournful Defection
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 15, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, IN THE YEAR 1877.
-
 "Will you also go away?" John 6:67.
 
 No mischief that ever befalls our Christian communities is more lamentable than that which comes from the defection of the members. The heaviest sorrow that can wring a pastor's heart is such as comes from the betrayal of his most familiar friend. The direst calamity the Church can dread is not such as will arise from the assault of enemies outside, but from false brethren and traitors within the camp. My eminent predecessor, Benjamin Keach, though arrested, brought before the magistrates, imprisoned, pilloried and otherwise made to suffer by the Government of the times for the Gospel doctrines that he preached and published, found it easier to brook the rough usage of open foes than to bear the griefs of wounded love, or sustain the shock of outraged confidence. I should not think his experience was very exceptional. Other saints would have preferred the rotten eggs of the villagers to the rooted animosities of slanderers. Troy could never be taken by the assaults of the Greeks outside her walls. Only when, by trickery, the enemy had been admitted within the citadel was that brave city compelled to yield. The devil himself was not such a subtle foe to Christ as was Judas, when, after the Supper, Satan entered into him. Judas was a friend of Jesus. Jesus addressed him as such. And Judas said, "Hail, Master," and kissed Him. But Judas it was who betrayed Him! That is a picture which may well appall you--that is a peril which may well admonish you.

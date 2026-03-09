@@ -1,12 +1,5 @@
 # Sermon 2501 | All and All in All
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 24, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 3, 1885.
-
 "Christ is all, and in all." Colossians 3:11.
 
 "That God may be all in all." 1 Corinthians 15:28.

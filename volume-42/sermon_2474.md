@@ -1,12 +1,5 @@
 # Sermon 2474 | The Great Change
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 19, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 18, 1886.
-
 "Ephraim shall say, What ha ve I to do anymore with idols? I have heard him, and observed him: I am like a green fir tree. From Me is your fruit found." Hosea 14:8.
 
 THIS passage is in very vivid contrast to what Ephraim had previously said, as it is recorded in the early part of Ho-sea's prophecy. If you turn to the second chapter, and the fifth verse, you will find this same Ephraim saying, "I will go after my lovers that give me my bread and my water, my wool and my flax, my oil and my drink." These lovers were the idol gods and Ephraim was determined to go after them, for she ascribed to them her various comforts, her bread and her water, her wool and her flax, her oil and her drink. So desperately set was this Ephraim upon going after her idols that God had much ado to drag her away from them, for that second chapter continues, "Therefore, behold, I will hedge up your way with thorns, and make a wall, that she shall not find her paths. And she shall follow after her lovers, but she shall not overtake them; and she shall seek them, but shall not find them."

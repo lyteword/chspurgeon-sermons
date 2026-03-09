@@ -1,12 +1,5 @@
 # Sermon 2525 | Joy in Place of Sorrow
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 11, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 10, 1884.
-
 "And you now, therefore, have sorrow: but I will see you again, and your heart shall rejoice, and your joy no man takes from you." John 16:22.
 
 Joy is the normal condition of a Believer. His proper state, his healthy state, is that of happiness and gladness. As I have often reminded you, it has become a Christian duty for Believers to be glad. "Rejoice in the Lord," is a precept given to us over and over again and I believe that, broadly speaking, the general condition of God's people is one ofjoy. It is not a falsehood if we say, "Happy are you, O Israel!" True Christians are the happiest people under Heaven. They have many sorrows, but there is a text which says, "As sorrowful, yet always rejoicing." And old Master Brooks has a good note upon the passage. He says that it does not say, "As sorrowful, yet as always rejoicing." The "quasi"--the "as"--relates only to the sorrow. The joy is real, without any "quasi. " Christians have quasi sorrow, but they have real rejoicing! They are oftentimes as if they were sad--yes, as if they were, of all men, most miserable, but in the very depths of their soul they have "the peace of God which passes all understanding," to keep their heart and mind through Christ Jesus.

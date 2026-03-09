@@ -1,12 +1,5 @@
 # Sermon 2609 | Our Thoughts About God's Thoughts
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 12, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 1, 1883.
-
 "How precious also aire Your thoughts unto me, O God! How great is the sum of them!If I should count them, they are more in number than the sand: when I awake, I am still with You." Psalm 139:17,18.
 
 This Psalm dilates upon the Omniscience of God. In the most forcible manner, it shows that God's eyes have always rested upon us and are resting upon us now. We are here made to see that God knew all about us before we were born, that He now reads our most secret thoughts and that our unspoken words are all known to Him. And I want you to notice that the Psalm is not at all in that mournful strain in which we sometimes speak of the Omniscience of God. It is a very solemn thing that God should be everywhere. "You God see me," is a note of the most serious kind when sounded in the sinner's ear, but, to those who are the people of God, there is nothing dreadful in the thought that God sees us. There is nothing to cause us to despond or to make us feel gloomy in the fact that God compasses our path and our lying down. In fact, in proportion as we are fully reconciled to God, love Him and rejoice in Him, it will become a cause ofjoy to reflect that our best Friend is never away from us--that our Protector's hand is never removed, that the great observant eyes of Divine Love are never closed!

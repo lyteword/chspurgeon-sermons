@@ -1,12 +1,5 @@
 # Sermon 2587 | "Much More"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 11, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ONLORDS-DAYEVENING, MAY 13, 1883.
-
 "Much more, being reconciled, we shall be saved by His life." Romans 5:10.
 
 THE first great message of mercy to a sinner is put into four short words in the eighth verse of this chapter--"Christ died for us." A preacher can never be wrong in lifting up Christ Crucified! It is the glory of a congregation if it can be truly said, "Before your eyes Jesus Christ has been evidently set forth, crucified among you." Well did the Apostle make this his boast--"We preach Christ Crucified." Still, we must always remember that there is a great deal about Christ besides His Crucifixion and, however glorious His death may be--and we are not disposed to rank it second to anything else--yet there is another glory, another form of His excellency which is seen, not in His death, but in His life! It is of this that the Apostle speaks here--"Much more, being reconciled, we shall be saved by His life."

@@ -1,12 +1,5 @@
 # Sermon 2517 | From Twenty-five to Thirty-five
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 16, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER 11, 1885.
-
 "And he went out about the third hour, and saw others standing idle in the marketplace, and said unto them; go you also into the vineyard, and whatever is right I will give you. And they went their way." Matthew 20:3,4.
 
 No parable teaches all sides of the Truth of God. It is wrong to attempt to make a parable run on all fours--it is intended to convey some one lesson--and if it teaches that, we must not attempt to draw everything else out of it. This parable sets forth the great God as a householder going forth to find men to work for Him, but let no man imagine that God needs any of us! He was perfect--perfectly happy and perfectly glorious--long before wings of angels moved in space, or before space and time even existed! God was always and still is self-contained and all-sufficient and if He chooses to make any creatures, or to preserve or use any of the creatures He has formed, that is not because He needs them, or is in the least degree dependent upon them. If God comes forth in wondrous Grace to call any of us to work in His vineyard, it is not because He needs us, but because we need Him. He does not set us to work because He needs workers, but because we need work. He calls us not because He requires us, but because we require to be called.

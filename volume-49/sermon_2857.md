@@ -1,12 +1,5 @@
 # Sermon 2857 | God's Goodness Leading to Repentance
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 18, 1877.
-
 "The goodness of God leads you to repentance." Romans 2:4.
 
 GOD is often exceedingly good to those who are utterly unworthy of such treatment. "He makes His sun to rise on the evil and on the good." Indeed, sometimes the evil seem to have more of the sunshine than the good have! David said, "I have seen the wicked in great power and spreading himself like a green bay tree." God's forbearance has been misinterpreted and even misrepresented by some who have implied, or actually asserted that God winks at sin and does not care how men behave, but treats all alike whether they are good or evil. Some have wickedly asked, as Job reminded his friends, "What is the Almighty, that we should serve Him?" Many have said, "Do not the wicked prosper? Do they not even die in peace? Is it not written concerning them, 'There are no bands in their death; but their strength is firm'?" This is a misinterpretation of the merciful design of God towards the ungodly and is corrected by the Apostle in the verse from which our text is selected--"Do you despise the riches of His goodness and forbearance and long-suffering; not knowing that the goodness of God leads you to repentance?"

@@ -1,12 +1,5 @@
 # Sermon 2592 | The Power of Christ's Name
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 16, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 7, 1883.
-
 "And His name, through faith in His name, has made this man strong, whom you see and know. Yes, the faith which is by Him has given him this perfect soundness in the presence of you all." Acts 3:16.
 
 You see, dear Friends, that this notable miracle was worked by means of the name of Jesus. Twice it is mentioned. "His name, through faith in His name, has made this man strong." It will be well for us to look back to see what name it was which Peter had used in working this miracle of healing. Turn to the 6th verse. "Then Peter said. . .In the name of Jesus Christ of Nazareth rise up and walk." He did not omit either of our Lord's names, nor did he flinch from telling the Jews that it was the same Jesus whom they had despised and called the Nazarene, or the Man of Nazareth. It is always well to adapt our speech to those who are about us. You remember how Cobbett said that he used the English language. "I speak," he said, "not only so that men can understand me if they will, but so that they cannot misunderstand me if they try to do so." And I believe that it is a very wise way of speaking when you wish to convince men concerning an important Truth of God which you desire to convey to their very heart. Peter here seems to say, "They shall not think that I am speaking of another Jesus, or of another Christ--it shall be, 'Jesus Christ.' Neither shall they imagine that there may be another anointed Jesus, but it shall be, 'Jesus Christ of Nazareth.'" And, afterwards, when he had used that name and the miracle had been worked, he went on still further to secure his purpose by making the most definite charges against his hearers, repeating them in detail, that they might know for sure that the Christ who had healed the lame man was the same Christ whom they had, with wicked hands, crucified and slain. It was important to convince them of this fact, that they might be brought to repentance concerning it, and then might be led to believe in that same Savior and find life and peace through Him!

@@ -1,12 +1,5 @@
 # Sermon 2806 | "Jesus Our Lord"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 23, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 1, 1877.
-
 "Jesus our Lord." Romans 4:24.
 
 "JESUS our Lord" is a somewhat unusual form of expression to be used in the Scriptures. We have many references to, "Jesus Christ," and to, "our Lord Jesus Christ," but there is only one other passage in which this occurs. Yet, to me, it seems to be inexpressibly sweet. I shall be devoutly grateful to God if, in my sermon, I am able to convey to you even a tithe of the sweetness which I have drawn from this expression for my own enjoyment.

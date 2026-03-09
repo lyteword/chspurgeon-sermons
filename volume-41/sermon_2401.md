@@ -1,12 +1,5 @@
 # Sermon 2401 | The Child of Light and the Works of Darkness
 
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 24, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 24, 1887.
-
 "Have no fellowship with the unfruitful works of darkness, but rather reprove them." Ephesians 5:11.
 
 SINS, especially the grosser vices, are "works of darkness." They delight in concealment. They are not fit to be seen. They flourish in the darkness of the unrenewed heart. They are most fully maintained in the ignorance of a soul that is without the knowledge of the ever-blessed God. They are also works of darkness because those who follow them have a sad life of it, after all--they are not only dark as to knowledge, but they are dark as to comfort as well! There is no true light, no real joy in sin. "The wages of sin is death." And they are works of darkness, too, because they tend to further darkness--the man who pursues them goes from blackness to a deeper blackness--and in the end his portion will be darkness unbroken by a ray of hope, "the blackness of darkness forever."

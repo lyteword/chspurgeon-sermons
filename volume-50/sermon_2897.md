@@ -1,12 +1,5 @@
 # Sermon 2897 | The Source
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 18, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 6, 1876.
-
 "The woman said unto him, Sir, You have nothing to draw with, and the well is deep. Where then do You get that living water?" John 4:11.
 
 THIS was a sensible and very important question. May the Holy Spirit graciously enable us to answer it aright! Our Lord's great objective in His talk with this woman at the well was not to convince her of His oratorical power, for He spoke to her as simply as one would speak to a child. Many sermons are far too elaborate in their construction--they are evidently intended to display the preacher's own powers. But if we would imitate the Lord Jesus Christ, the true Prince of Preachers, we would not strain after effect--and we would get a better effect without any straining--by taking the living Truth of God and telling out, as simply as possible, the story of salvation.

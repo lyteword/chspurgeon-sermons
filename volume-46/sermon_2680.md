@@ -1,12 +1,5 @@
 # Sermon 2680 | Ruth Deciding for God
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 24, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 21, 1881.
-
 "And Ruth said, Entreat me not to leave you, or to return from following after you: for where you go, I will go; and where you lodge, I will lodge: your people shall be my people, and your God my God." Ruth 1:16.
 
 THIS was a very brave, outspoken confession of faith. Please notice that it was made by a woman, a young woman, a poor woman, a widow woman and a foreigner. Remembering all that, I should think there is no condition of gentleness, or of obscurity, or of poverty, or of sorrow which should prevent anybodyfrom making an open confession of allegiance to God when faith in the Lord Jesus Christ has been exercised. If that is your experience, my dear Friend, then whoever you may be, you will find an opportunity, somewhere or other, of declaring that you are on the Lord's side. I am glad that all candidates for membership in our Church make their confession of faith at our Church Meetings. I have been told that such an ordeal must keep a great many from joining us, yet I notice that where there is no such ordeal, they often have very few members--but here we are with 5,600 or thereabouts, in Church fellowship and, very seldom, if ever, finding anybody kept back by having to make an open confession of faith in Christ. It does the man, the woman, the boy, or the girl--whoever it is--so much good for once, at least, to say right out straight, "I am a Believer in the Lord Jesus Christ and I am not ashamed of it," that I do not think we shall ever deviate from our custom. I have also noticed that when people have once confessed Christ before men, they are very apt to do it again somewhere else. And they thus acquire a kind of boldness and outspokenness upon religious matters--and a holy courage as followers of Christ--which more than make up for any self-denial and trembling which the effort may have cost them.

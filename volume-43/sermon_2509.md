@@ -1,12 +1,5 @@
 # Sermon 2509 | The Sinful Made Sinless
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 12, 1886.
-
 "Whoever commits sin transgresses also the Law: for sin is the transgression of the Law. And you know that He was manifested to take away our sins; and in Him is no sin." 1 John 3:4,5.
 
 NOTE, beloved, the special character of Believers--their Divine relationship, their heavenly privilege--they are called, "the children of God." There is a foolish dream about the Divine Fatherhood toward all men, but it is a figment, a fiction, a delusion, a deception. The Fatherhood of God is toward as many as He has begotten again unto a lively hope through the resurrection of Jesus Christ from the dead--these are His children. As for the rest of mankind, they are heirs of wrath, even as others. It is the special manner of God's love that we are bidden in this chapter to "behold" as a wonder, because He has bestowed this "manner of love" upon us, "that we should be called the sons of God." And that He has not bestowed this love upon all men is evident, for it is added, "therefore the world knows us not because it knew Him not."

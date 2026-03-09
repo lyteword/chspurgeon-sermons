@@ -1,12 +1,5 @@
 # Sermon 2588 | Perfect Restoration
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 18, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 20, 1883.
-
 "They shall be as though I had not cast them aside." Zechariah 10:6.
 
 You all know how God did, for a time, cast off His ancient people. Both Israel and Judah, after long provocation of Jehovah, were carried away captive into the land of their enemies. God forsook His Temple and that glorious sanctuary was laid in ruins. The whole land was given up to be the prey of the cruel foe and the inhabitants, themselves, were carried into captivity beyond the rivers of Babylon. And they were sorely afflicted. They had greatly sinned and heavy was their punishment. But now, by the mouth of the Prophet Zechariah, God talks to them of mercy and, as a choice note in the message of mercy, He says that He will restore them to their old estate--and they shall be as though He had never cast them aside. It is a wonderful promise! I pray that it may sound like heavenly music in the ear of many a backslider.

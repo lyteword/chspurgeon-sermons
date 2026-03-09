@@ -1,12 +1,5 @@
 # Sermon 2594 | "The Offense of the Cross"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 30, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE YEAR 1856.
-
 "And I, brethren, ifI still preach circumcision, why do I still suffer persecution? Then is the offense of the Cross ceased." Galatians 5:11.
 
 THE religion of Jesus is the most peaceful, mild and benevolent religion which was ever promulgated. When we compare it with any set of dogmas invented by men, there is not one of them that can stand the least comparison with it for gentleness, mildness and love. As for the religion of Mohamed, it is the religion of the vulture--but the religion of Jesus is that of the dove--all is mercy, all is mild. It is, like its Founder, an embodiment of pure benevolence, Grace and truth.

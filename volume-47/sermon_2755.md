@@ -1,12 +1,5 @@
 # Sermon 2755 | Must He?
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 1, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 27, 1879.
-
 "And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must stay at your house." Luke 19:5.
 
 I THINK this is the only instance in which our Lord invited Himself to anybody's house. He often went when He was invited, but this time, if I may use the expression, He did the inviting Himself! Usually we must seek the Lord if we want to find Him. To the eye, at any rate, the apparent work of Grace goes on in this way--a man begins to cry for mercy, as the blind man who heard that Jesus of Nazareth was passing by, cried to Him, "You Son of David, have mercy on me." But God is so rich in Grace that He does not restrict Himself to this usual method! Generally, He is found of them that seek Him, but, sometimes, He is found of them that seek Him not. Yes, if I tell the whole Truth of God--if you go down to the bedrock of actual fact--it is always God who seeks sinners. He always calls them a people who are not a people and the first movement between God and the sinner is never on the sinner's part, but on God's part. Still, apparently, men begin to pray to God and begin to seek the Lord--and this is the usual order in which salvation comes to them. The prodigal said, "I will arise and go to my father," and he arose and came to his father." The blind man cried, "Jesus, you Son of David, have mercy on me."

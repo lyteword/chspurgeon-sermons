@@ -1,12 +1,5 @@
 # Sermon 2397 | "Out of Darkness Into Light"
 
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 27, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 13, 1887.
-
 "That You may say to the prisoners, Go forth; to them that are in darkness, Show yourselves." Isaiah 49:9.
 
 THIS, of course, is a prophecy of what the Messiah would do. The Lord Jesus Christ, when He came among the sons of men, was to open the prison doors and to say to the prisoners, "Go forth," and to those who, in addition to being in prison, were in a dark cell, shut away from the light, He was to say, "Show yourselves."

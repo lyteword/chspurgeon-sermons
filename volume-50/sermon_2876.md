@@ -1,12 +1,5 @@
 # Sermon 2876 | Christ's Crowning Glory
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 24, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 5, 1876.
-
 "His glory is great in Your salvation: honor and majesty have You laid upon Him." Psalm 21:5.
 
 I FEEL quite sure that David here sings first concerning himself and then concerning the far greater King, "great David's greater Son," the Lord Jesus Christ. But I shall apply the text entirely to our blessed Redeemer and, surely, the Psalmist's language is most appropriate to Him.

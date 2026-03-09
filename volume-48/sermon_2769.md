@@ -1,12 +1,5 @@
 # Sermon 2769 | The Weakened Christ Strengthened
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 9, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 5, 1881.
-
 "And there appeared an angel unto Him from Heaven, strengthening Him." Luke 22:43.
 
 I SUPPOSE that this incident happened immediately after our Lord's first prayer in the Garden of Gethsemane. His pleading became so fervent, so intense, that it forced from Him a bloody sweat. He was, evidently, in a great agony of fear as He prayed and wrestled even unto blood. We are told, by the writer of the Epistle to the Hebrews, that He "was heard in that He feared." It is probable that this angel came in answer to that prayer. This was the Father's reply to the cry of His fainting Son who was enduring an infinity of sorrow because of His people's sin and who must, therefore, be Divinely upheld as to His Manhood, lest He should be utterly crushed beneath the terrible weight that was pressing upon His holy soul.

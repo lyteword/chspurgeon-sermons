@@ -1,12 +1,5 @@
 # Sermon 2694 | Grace Preferred to Gifts
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 3O, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 1, 1881.
-
 "But covet earnestly the best gifts: and yet I show you a more excellent way." 1 Corinthians 12:31.
 
 THERE are among us many who have recently joined the visible Church of Christ. We have heartily welcomed them and we desire to always entertain, concerning them, a joyous feeling of thankfulness that they have united with us. May they never have to regret it and may the Church of God never have to regret it, either! Dear Friend, now that you have become a member of a Christian Church, you should say to yourself, "What can I do for it? I have not come here merely to confess that I am saved and there to let the matter stop, but I have enlisted in an army that I may be a comrade with other soldiers, and be drilled, and trained, and equipped so that I may know how to march and to go forth to the battle. I have come into the church to be a member of a body. What is my office? Every member has its own special office in the body--it is not there merely for its own comfort, but to be a help to the whole system of which it forms a part. What, then, can I do?" The question which we should each one ask of the Lord is that which Saul asked on the way to Damascus, "Lord, what will You have me to do?"

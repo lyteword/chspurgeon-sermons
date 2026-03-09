@@ -1,12 +1,5 @@
 # Sermon 2559 | Co-workers With God
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 6, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 25, 1883.
-
 "Unless the Lord builds the house, they labor in vain who build it: unless the LORD guards the city, the watchman stays awake in vain. It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so He gives His Beloved sleep." Psalm 127:1,2.
 
 Did you notice, when we were reading this Psalm, that it is entitled, "A Song of Degrees for Solomon"? The title may be either, "for Solomon," or, "bySolomon." If it is bySolomon, I can only say that it is worthy to be placed side by side with the Book of Proverbs or Ecclesiastes. It is a Psalm which is very brief and which has the soul of wisdom in it. It is, in fact, a Solomonic Psalm--it is quite after his style of writing. The whole of it might be made into a Proverb and its separate sentences might be cut up into proverbial expressions. It was inspired by the Spirit of God and He may have used for the writing of it no less accomplished an individual than King Solomon, whose wisdom was greater than that of the men of his age. If it is a Psalm, "frSolomon"--which it strikes me it is, then it is none the less admirable in our esteem, for, if Solomon needed to be taught it, certainly we do. If, when David knew that Solomon was to build the house of the Lord, he thought it necessary, before he began the Temple, to remind him that "unless the Lord builds the house, they labor in vain who build it," we may depend upon it that as we are less wise than Solomon, we need to have just such a lesson taught us! Let us accept it as from David and let each one of us hear the words of the dying king as he speaks to us as well as to his son and successor.

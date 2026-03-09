@@ -1,12 +1,5 @@
 # Sermon 2603 | Comfort for the Tempted
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 1, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 27, 1883.
-
 "There hats no temptation taken you but such as is common to man: but God is faithful, who will not allow you to be tempted beyond what you are able, but with the temptation will also make the way of escape, that you may be able to bear it" 1 Corinthians 10:13.
 
 THE children of God are all subject to temptation--some of them are tempted more than others, but I an persuaded that there is not one, except those who are too young to be conscious of evil, who will enter Heaven without having endured some temptation. If anyone could have escaped, surely it would have been "the First-Born among many brethren," but you will remember how He was led of the Spirit, straight from the waters of His Baptism, into the wilderness to be tempted of the devil. And the Apostle Paul informs us that He "was in all points tempted like as we are, yet without sin." Truly, the Lord Jesus might say to us who are His followers, "If I, your Master and Lord, have been tempted, you must not expect to escape temptation, for the disciple is not above his Master, nor the servant above his Lord."

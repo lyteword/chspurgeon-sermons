@@ -1,12 +1,5 @@
 # Sermon 2564 | Strange Ways of Love
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, ARPIL 3, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 8, 1883.
-
 "Therefore, behold, I will allure her, and bring her into the wilderness, and speak comfortably unto her." Hosea 2:14.
 
 The first part of this chapter is very dark, but the second part is clear daylight. As we read the first verses, we tremble, for we seem to stand at the foot of Sinai when it is altogether on a smoke. But when we reach the second half of the chapter, we can say that, "we have come unto Mount Zion." We hear no sound of trumpet, but the voice of that blood "which speaks better things than that of Abel." The reason for this is not that God has changed, nor that the person who is here spoken of has changed--up to this point there is no change indicated in the person--it is the same unchaste, unholy, obstinate, rebellious, ungrateful creature. Yet there is a wonderful change in the words spoken and the reason is because there is a change of dispensation--the sinner is brought from under Law to come under Grace! God no longer convinces of sin by the terrors of the Law, but He comes to deal with the poor guilty soul on terms of love and mercy! This is the great wonder of wonders that ever it should be truly said that, "in due time Christ died for the ungodly," and that he is saved who believes on Him that justifies the ungodly! Christ died for us, not as saints, not as godly persons, but as the ungodly! Our subject is all about the dealings of Divine Love with guilty sinners, by which God brings them unto Himself. I shall speak of four things.

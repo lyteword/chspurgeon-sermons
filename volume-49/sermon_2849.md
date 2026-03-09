@@ -1,12 +1,5 @@
 # Sermon 2849 | Remembering God's Works
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 4, 1877.
-
 "He has made His wonderful works to be remembered: the LORRD is gracious and full of compassion. He has given meat unto them that fear Him: He will ever be mindful ofHis Covenant." Psalm 111:4, 5.
 
 GOD'S works are, of course, wonderful because they are His works, but they are not "a nine days' wonder." They are not intended to be admired for a little while and then to be forgotten. The Psalmist says, "He has made His wonderful works to be remembered." I fear that we too often fail to keep in our memory the recollection of God's exceeding goodness and that we allow the works of the Lord, as well as His mercies, to lie "forgotten in unthankfulness." If it has been so in the past with any of us, let us, at the outset of our meditation, begin to chide ourselves for our forgetfulness and ask the Holy Spirit to strengthen our memories that we may remember the wonderful works of the Lord more than we have done.

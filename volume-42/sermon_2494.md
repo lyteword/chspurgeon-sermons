@@ -1,12 +1,5 @@
 # Sermon 2494 | The Cause and Cure of a Wounded Spirit
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 6, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 16, 1885.
-
 "The spirit of a man will sustain his infirmity; but a wounded spirit, who can bear?" Proverbs 18:14.
 
 EVERY man, sooner or later, has some kind of infirmity to bear. It may be that his constitution from the very first will be inclined to certain disease and pains, or possibly he may, in passing through life, suffer from accident or decline of health. He may not, however, have any infirmity of the body--he may enjoy the great blessing of health, but he may have what is even worse--an infirmity of mind. There will be something about each man's infirmity which he would alter if he could, or, if he should not have anyinfirmity of body or of mind, he will have a cross to carry of some kind--in his relatives, in his business, or in certain of his circumstances. His world is not the Garden of Eden and you cannot make it to be so! It is like that garden in this respect--that the serpent is in it--and the trail of the serpent is over everything here. It is said that there is a skeleton in some closet or other of everybody's house. I will not say so much as that, but I am persuaded that there is no man in this world but has trial in some form or other, unless God permits them to have their portion in this life because they will have no portion of bliss in the life that is to come! There are some such people who appear be have no afflictions and trials, but as the Apostle reminds us, "If you are without chastisement, of which all (the true seed of the Lord) are partakers, then are you bastards and not sons." And none of us would wish to have that terrible name truthfully applied to us! I should greatly prefer to come into the condition of the Apostle when he said, "Most gladly, therefore, will I rather glory in my infirmities, that the power of Christ may great upon me."

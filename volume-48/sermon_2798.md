@@ -1,12 +1,5 @@
 # Sermon 2798 | Sweet Stimulants for the Fainting Soul
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 28, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE WINTER OF 1860.
-
 "O my God, my soul is cast down within me: therefore will I remember You from the land of Jordan, and of the Hermonites, from the Hill Mizar." Psalm 42:6.
 
 HERE is a common complaint of God's people and here are two remedies which David, wisely guided of God, administers with discretion. Let us direct our meditation in this order--first, let us talk of the complaint And then, secondly, let us look into the Divine medicine chest and use the remedies provided there.

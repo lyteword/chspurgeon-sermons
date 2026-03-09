@@ -1,12 +1,5 @@
 # Sermon 2445 | The Last Sermon for the Year
 
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 29, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 26, 1869.
-
 "Give an account of your stewardship, for you may no longer be steward." Luke 16:2.
 
 THE first part of this text applies to us all. The second part will apply to each one of us before long. "Give an account of your stewardship," is a command that may be addressed to the ungodly. They are accountable to God for all that they have, or have ever had, or ever shall have. The Law of the Lord is not relaxed because they have sinned--they still remain responsible to God even though they attempt to cast off the yoke of the Almighty. As creatures formed by the Divine hand and sustained by Divine power, they are bound to serve God. And if they do not, and will not, His claims upon them do not cease--and to each of them He says, "Give an account of your stewardship."

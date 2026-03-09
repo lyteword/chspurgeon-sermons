@@ -1,12 +1,5 @@
 # Sermon 2635 | Depths and Heights
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 13, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 21, 1882.
-
 "His Son, whom He has appointed Heir of all things, by whom also He made the worlds; who being the brightness of His Glory, and the express image of His Person and upholding all things by the word ofHispower, when He had, by Himself, purged our sins, sat down at the right hand of the Majesty on high." Hebrews 1:2.
 
 I HAVE nothing to do tonight but to preach Jesus Christ. This was the old subject of the first Christian ministers-- "Daily in the Temple and in every house, they ceased not to teach and preach Jesus Christ." When Philip went down to the city of Samaria, he "preached Christ unto them." When he sat with the Ethiopian eunuch in his chariot, he, "preached unto him, Jesus." As soon as Paul was converted, "straightway he preached Christ in the synagogues." For once we count the venerableness of our subject well worthy of mentioning, we shall not be ashamed to preach what the Apostles preached and what martyrs and confessors preached! We hope to proclaim this glorious Gospel of the blessed God as long as we live! And we hope that when this generation of preachers shall have passed away, unless the Lord shall come, there will always be found a succession of men who shall determine to preach nothing "save Jesus Christ and Him crucified."

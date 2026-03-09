@@ -1,12 +1,5 @@
 # Sermon 2808 | The Disowned
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 7, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 22, 1877.
-
 "Not everyone who says to Me, Lord, Lord, shall enter the kingdom of Heaven; but he who does the will of My Father in Heaven. Many will say to Me in that day, Lord, Lord, have we not prophesied in Your name? And in Your name have cast out devils? And in Your name done many wonderful works? And then I will declare to them, I never knew you: depart from Me, you that work iniquity." Matthew 7:21-23.
 
 ONE of the best tests by which we may try many things is to ask, "How will they appear at the Day of Judgment?" Our Lord here says, "Many will say to Me in that day." He used no other words to describe that memorable period because that terse, brief expression suggests so much--"in that day"--that terrible day--that Last Great Day--that day for which all other days were made--that day by which all other days must be measured and judged. I pray, dear Friends, that we may, each one of us, begin to set in the light of "that day" the things that we most prize. The riches upon which you have set your heart--how will their value be reckoned "in that day"--and how much of comfort will they then afford you? As for the way in which you have been spending your wealth--will that be such as you will remember "in that day" with satisfaction and comfort? Value your broad acres and your noble mansions, or your more moderate possessions according to this gauge of their real worth--how will they be valued "in that day"? And as to the pursuits which you so eagerly follow and which now appear so important to you that they engross the whole of your thoughts and arouse all your faculties and energies--are they worthy of all this effort? Will they seem to be so "in that day"?

@@ -1,12 +1,5 @@
 # Sermon 2451 | "Blessed in Him"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 9, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 7, 1886.
-
 "Men shall be blessed in Him." Psalm 72:17.
 
 I wish that I could speak at my very best concerning the glorious Him who is mentioned in the text, but I have hardly got into full working order after my season of rest. One's voice becomes rusty, like an unused key, and one does not, at first, feel quite at ease in speaking after a time of comparative quietude. Do not, however, think that my subject is a poor one--if there are defects in my discourse, remember that it will only be the speaker who is poverty-stricken--not the great King and Lord of whom he is speaking. "Men shall be blessed in Him." O Sirs, if one had the tongues of men and of angels, and if one could only, for once, use that speech which it is not lawful for a man to utter--those words which Paul tells us that he heard when he was caught up to the third Heaven--if we could even speak as never man yet spoke, we could not fully set forth all the glories of Him of whom this text speaks!

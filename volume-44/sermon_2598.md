@@ -1,12 +1,5 @@
 # Sermon 2598 | Spiritual Revival--the Need of the Church
 
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON, AT WHITEFIELD'S TABERNACLE, TOTTENHAM COURT ROAD,
-
-AT THE CENTENARY COMMEMORATION, ON TUESDAY AFTERNOON, NOVEMBER 11, 1856.
-
 "OLORD, revive Your work." Habakkuk 3:2.
 
 ALL true religion is pre-eminently the work of God. If He should select out of His works that which He esteems most of all, He would select true religion. He regards the works of Grace as being even more glorious than the works of nature and He is, therefore, especially careful that this fact shall always be known, so that, if any dare to deny it, they shall do so in the teeth of repeated testimonies that God is, indeed, the Author of salvation in the world and in the hearts of men, and that religion is the effect of Grace and is the work of God. I believe the Eternal might sooner forgive the sin of ascribing the creation of the heavens and the earth to an idol, than that of ascribing the works of Grace to the efforts of the flesh, or to anyone but Himself. It is a sin of the greatest magnitude to suppose that there is anything in the heart which can be acceptable to God except that which He, Himself, has first created there. When I deny God's work in creating the sun, I deny one Truth of God, but when I deny that He works Grace in the heart, I deny a hundred Truths in one, for, in the denial of that one Truth that God is the Author of good in the souls of men, I have denied all the Doctrines which make up the great articles of faith--and I have run in direct opposition to the whole testimony of Sacred Scripture!

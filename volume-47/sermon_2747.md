@@ -1,12 +1,5 @@
 # Sermon 2747 | Saying Versus Doing
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 6, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 1, 1879.
-
 "A certain man had two sons; and he came to the first and said, Son, go work today in my vineyard. He answered and said, I will not: but afterward he repented and went. And he came to the second, and said likewise. And he answered and said, I go, Sir: and went not." Matthew 21:28-30.
 
 THE father had a right to the services of both his sons, for they were, according to the strict rendering of the word, children, or young men under age. They depended upon him for everything, so they were bound to obey his commands. He did not lay upon them any very heavy tax. He simply asked that they should set to work in his vineyard and go at once, seeing that, probably, there was need for the vines there and then to have their earnest attention. "Son," he said to the first, "'go work today in my vineyard'--do not toil for a stranger, nor for some master at a distance, but work in my vineyard. You are my son, you have a share in the fruit of the vineyard, so go at once, while your services will be the most valuable, and work in my vineyard." The son replied, "I won't," for that expression, in its bluntness and brevity, gives more nearly the sense of the Greek than even our rendering, "I will not." "I won't." That is a straight, positive, plain refusal. Notice that there is not even the word, "Sir," to soften the reply. The second son said, "I go, Sir." But this first one did not say, "I will not, Sir," but just, "I won't." And that was the end of it. "But afterward," though he had thus spoken so rudely, unkindly and willfully against his father, "he repented and went." And I daresay, by his zeal and industry, he accomplished a good day's work. Though the day began so badly, it ended all right.

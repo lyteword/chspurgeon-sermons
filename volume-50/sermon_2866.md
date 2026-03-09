@@ -1,12 +1,5 @@
 # Sermon 2866 | Good News
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 6, 1876.
-
 "As cold waters to a thirsty soul, so is good news from a far country." Proverbs 25:25.
 
 THIS is a text for summertime rather than for a winter's evening. It is only on one of our hottest summer days that we could fully appreciate the illustration here employed. We need to be parched with thirst to be able to feel the value of cold waters to quench our thirst. At the same time, I think that we can, without any very great stretch of imagination, put ourselves into the position of some to whom cold waters have been almost like life from the dead. Look at Hagar in the wilderness with her child, whom she has cast under one of the shrubs that she may not see him die. The water in the bottle is spent and she longs for a cooling draught that might save the young lad's life. Then the Lord opened her eyes so that she saw a well of water in the desert and, as she filled her bottle from it, she understood what cold waters are to a thirsty soul. Think also of the whole nation of Israel in the wilderness crying out in agony because there was no water for them to drink. Then they began to murmur against the Lord and against Moses--but how joyful they were when the smitten Rock poured forth its cooling stream and they rushed to it and drank to the full.

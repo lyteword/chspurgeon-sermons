@@ -1,12 +1,5 @@
 # Sermon 2707 | An Antidote to Satan's Devices
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 30, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE WINTER OF 1858.
-
 "Now the serpent was more subtle than any beast of the field which the LORRD God had made." Genesis 3:1.
 
 WE understand, of course, that this verse refers to "that old serpent, called the devil, and Satan." The Samaritan Version reads, instead of the word, "serpent," "deceiver," or "liar." If this is not the genuine reading, it nevertheless certainly declares a Truth of God. That old deceiver, of whom our Lord Jesus said to the Jews. "When he speaks a lie, he speaks of his own: for he is a liar, and the father of it," was "more subtle than any beast of the field which the Lord God had made." God has been pleased to give to many beasts subtlety--to some, subtlety and cunning combined with strength--in order that they may be the more destructive to certain classes of animals whose numbers require to be kept under. To others, devoid of very much strength, He has been pleased to give instincts of most marvelous wisdom for self-preservation and the destruction of their prey, and for the procuring of their food. But the subtlety of Satan far excels the wise instincts and subtlety of all the beasts of the field by far. In fact, to go further, man has, perhaps, far more cunning than any mere creature, although animal instinct sometimes seems as if it did outride human reason--but Satan has more of cunning within him than any other creature that the Lord God has made, man included.

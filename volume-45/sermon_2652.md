@@ -1,12 +1,5 @@
 # Sermon 2652 | Seeing Christ's Day
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 10, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 23, 1882.
-
 "Your father Abraham rejoiced to see My day: and he saw it, and was glad." John 8:56.
 
 THESE Jews had claimed to be of the seed of Abraham and the Lord Jesus Christ admitted their claim as far as it was a valid one. It is always best, in argument, to concede as much as you can fairly grant to your opponent. Sometimes we take a few steps backward in order to get a firmer footing, that we may leap forward with greater sureness. In the case of these Jews, since they said Abraham was their father, the Lord Jesus admitted that they were his seed according to the flesh and therefore He said, "Your father Abraham."

@@ -1,12 +1,5 @@
 # Sermon 2685 | The Oft-Repeated Invitation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 29, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 10, 1881.
-
 "And let him who thirsts come. And whoever will, let him take the water of life freely." Revelation 22:17.
 
 Our morning's discourse [Sermon #1608, Volume 27--THE DOUBLE "COME"] was upon the first part of this verse--"The Spirit and the bride say, Come. And let him that hears, say, Come." I tried to show that everyone who has truly heard the Gospel call is bound to go forth and, in his turn, cry to others, "Come to Jesus." But if every hearer of the Gospel is to say, "Come," certainly every preacher of it is especially called to repeat the invitation again and again. I seemed, this morning, to have it laid upon my own heart that the very next time I entered the pulpit, I must take care to make this call the burden of my discourse, as I ask you, dear Friends, also to make it the burden of yours. "Let him that hears say, Come." But let him that preaches say it with a more distinct emphasis than anyone else! So, tonight, I daresay that my message will appear to some of you to be monotonous, for I shall strike the same note again and again, and again, and bring out from it only this one sound, "Come, Come, Come!" Yet let me tell you that if God shall bless that invitation, and sinners do come to Christ, there will be more music evoked from this note than if my sermon had been as brilliant as the highest human eloquence could make it, for angels in Heaven and God, Himself, will rejoice if sinners are brought to the Savior!

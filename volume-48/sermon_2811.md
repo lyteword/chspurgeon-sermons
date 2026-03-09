@@ -1,12 +1,5 @@
 # Sermon 2811 | Moving
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 28, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, MARCH 24, 1861
-
 "If Your Presence does not go with us, do not bring us up from here." Exodus 33:15.
 
 THIS is a prayer which has been used hundreds of times and which is found quite in place on many different occasions. Moses was in the wilderness when he uttered it. He was about to lead the people into Canaan, the land that flowed with milk and honey, yet he felt that he would rather continue to endure the inconveniences of the tent and of the wilderness, with the Presence of his God, than enjoy the rest and the fatness of the land of promise without Him. God had made the desert to become to Moses like a garden, but he felt that all the gardens of Canaan and the vineyards of Eshcol would be as nothing to him if God should withdraw His Presence.

@@ -1,12 +1,5 @@
 # Sermon 2537 | A Warning to Waverers
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 3, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 25, 1884.
-
 "But let him ask in faith, nothing wavering. For he that wavers is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord." James 1:6, 7.
 
 THE Apostle James was always very practical. He never really differed from Paul, but, whereas Paul dwelt more upon the doctrinal side of the Truth of God, James, who has given us but one Epistle, dwelt more upon the practical. I should not have wondered, if Paul had taken up the same subjects as James did, if he had written in the same style. At any rate, we are very grateful to James that he is so downright, so straightforward, so plain and practical. He never minces matters. He hits the nail on the head every time. Whenever he talks about faith, he seems to be saying all the while, "Believe." If he discourses on prayer, you can hear him crying, "Pray!" And if he speaks concerning holy living, you can hear the thunder at the back of his words commanding us to forsake sin and to follow after righteousness!

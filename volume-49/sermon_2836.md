@@ -1,12 +1,5 @@
 # Sermon 2836 | Prayerful Importunity
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE 100th ANNIVERSARY OF AMERSHAM BAPTIST CHAPEL, IN NOVEMBER, 1857.
-
 "And shall not God avenge His own elect, who cry day and night unto Him, though He bears long with them?" Luke 18:7.
 
 YOU remember this is the conclusion of the parable of the importunate widow. Her husband was dead. He had left her, perhaps, a little property, but some adversary, very probably a lawyer, seized hold of it and took from her all that she had. What was she to do? She went straightway to the judge, the appointed minister of justice in the city. The first time she went, she met with a cold repulse. She went a second time--her poverty drove her, her necessity compelled her to face the man again. Now the judge "neither feared God, nor regarded man," but at last, seeing the vehemence of the woman, feeling that he should be exceedingly troubled by her constant importunity, he granted her request and he did avenge her of her adversary. Jesus used this to show the power of importunity--"Hear what the unjust judge said"-- "And if the unjust judge did this, shall not God avenge His own elect, who cry day and night unto Him?"

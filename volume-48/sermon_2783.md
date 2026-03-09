@@ -1,12 +1,5 @@
 # Sermon 2783 | A Worthy Theme for Thought
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 15, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 5, 1878.
-
 "We have thought of Your loving kindness, O God, in the midst of Your Temple." Psalm 48:9.
 
 WHO were these people who declared to the Lord that they had thought of His loving kindness in the midst of His Temple? According to the title of the Psalm, they were the sons of Korah. And who were the sons of Korah? They were the singers in the house of the Lord, those who took the principal part in sounding forth the praises of Jehovah. I think it is suggestive that they did not say, "We have sung of Your loving kindness." They had done that and it was their constant employment, but they said, "We have thought." And there are some singers who have not done that, for they have sung solemn words thoughtlessly, caring only for the music and not for the meaning. One who is not a skilled musician, or trained vocalist, can tell when his ear is pleased with what he hears and I think that such a person will say that the very sweetest music he has ever heard has come from sincere hearts, even if the voices have not been in complete harmony.

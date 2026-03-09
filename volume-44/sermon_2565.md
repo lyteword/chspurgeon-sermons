@@ -1,12 +1,5 @@
 # Sermon 2565 | Ruins
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 10, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 11, 1883.
-
 "But they were the ruin of him, and of all Israel." 2 Chronicles 28:23.
 
 I HAVE a little to say about the condition of Judah under Ahaz before I come to personal dealing with souls from this text. God had given to His people a very simple mode of worship. He was the invisible and only living God and they were to worship Him in spirit and in truth. There was to be one altar and that was to be at Jerusalem. But all the rest of the world was given up to idolatry and the Israelites were not a very spiritual people, so, by-and-by, they wanted something to see, some image, some symbol. When the 10 tribes broke off from Judah, they set up images of a bull to represent the strength of Deity. Those who kept to the worship of the invisible Jehovah without emblems, ridiculed these symbols, and called the bulls, in contempt, calves. But the calf-worship became very strong throughout Israel and there were many in Judah who were attracted to it. It was the worship of God, but it was the worship of God in a wrong way, for there was a very express Commandment which forbade it--"You shall not make unto you any graven image, or any likeness of anything that is in Heaven above, or that is in the earth beneath, or that is in the water under the earth: you shall not bow down yourself to them, nor serve them: for I the Lord your God am a jealous God, visiting the iniquity of the fathers upon the children unto the third and fourth generation of them that hate Me."

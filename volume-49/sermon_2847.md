@@ -1,12 +1,5 @@
 # Sermon 2847 | Barriers Obliterated
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1877.
-
 "I have blotted out, as a thick cloud, your transgressions, and, as a cloud, your sins; return unto Me; for I have redeemed you." Isaiah 44:22.
 
 WE noticed, as we read the chapter, the extreme folly of a man attempting to make a god for himself, or to worship anything as God save only the one living and true God. We consider the heathen to be very foolish for worshipping their hideous idols. Yet, you know, to be an idolater a man need not make an image of wood, or stone, or gold, for he can worship his own thoughts, his own ideas, his own notions. And every man whose great objective in life is anything less than the Glory of God is really a worshipper of idols. If that statement is true, and I challenge anyone to prove that it is not, London swarms with spiritual idolaters! He who lives to himself, practically worships himself. That, you know, is a very extreme form of idolatry, for even the heathen do not bow down and worship themselves. But there are many who do not call themselves heathen who do that. He who lives only to make money--what is he but a worshipper of the golden calf? And he who cares continually for the opinion of his fellow men--what does he worship but that shameless creature, Fame? He lives upon the breath from other men's nostrils and counts it worth his while to make himself a slave that he may win the applause of his fellow slaves! If we live to You, great God, we live wisely, for You alone are self-existent, and you can reward us and bless us. But if we live for anything less than You, we live foolishly since, even if we could attain the objectives which we seek, they would soon pass away from us, or else, by death, we should pass away from them. For an immortal spirit, there is nothing worth living for but to please God. "To glorify God and to enjoy Him forever" is the only worthy end of mortal man!

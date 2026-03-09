@@ -1,12 +1,5 @@
 # Sermon 2771 | Peter's Fall and Restoration
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 23, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 22, 1882.
-
 "And the Lord turned and looked at Peter. Then Peter remembered the word of the Lord, how He had said to him, Before the rooster crows, you will deny Me three times. So Peter went out and wept bitterly." Luke 22:61, 62.
 
 PETER'S fall, as we noticed in our reading, is four times recorded, at considerable length, but it is not once excused. There is not, in any one of the records, a single word said by way of palliation of his great guilt. John pictures Peter's sin in colors of an almost neutral tint, yet he does not lessen its gravity.

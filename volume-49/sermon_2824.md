@@ -1,12 +1,5 @@
 # Sermon 2824 | Mocked of the Soldiers
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 3, 1883.
-
 "And when they had platted a crown of thorns, they put it upon His head, and a reed in His right hand: and they bowed the knee before Him, and mocked Him, saying, Hail, King of the Jews" Matthew 27:29.
 
 IT is a shameful spectacle where cruelty uses its keenest instrument to cut, not into the flesh, but into the very spirit, for scorn, contempt, insult and ridicule, are as painful to the mind and heart as a scourge is to the body--and they cut like the sharpest lance. These Roman soldiers were a rough body of men--fierce, courageous, terrible in battle, uncouth, untaught, uncivilized, little better than barbarians. And when they had this unique King in their power, they made the most of their opportunity to torment Him. Oh, how they laughed to think that He should call Himself a King--this poor, emaciated creature who looked as if He would faint and die in their hands--whose blessed visage was marred more than that of any of the sons of men! It must have seemed to them a sorry jest that He should be a rival to imperial Caesar, so they said, "If He is a King, let us clothe Him with royal purple," and they flung over His shoulders a soldier's tunic. "As He is a King, let us plait Him a crown," and they made it of thorns. Then they bowed the knee in mock homage to the Man whom His own people despised, whom even the mob rejected and whom the chief men of the nation abhorred. It seemed to them that He was such a poor, miserable, dejected Creature that all they could do was to make fun of Him and treat Him as the butt for their utmost ridicule.

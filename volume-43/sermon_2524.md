@@ -1,12 +1,5 @@
 # Sermon 2524 | Fearing and Hoping
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 4, 1897.
-
-DELIVERED BY C. H, SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 28, 1885.
-
 "The Lord takes pleasure in them that fear Him, in those that hope in His mercy." Psalm 147:11.
 
 This Psalm, I think, was intended to set forth the singularity of God. In it we are exhorted to praise Him who is our God and to give honor and glory to Him alone. The Psalmist does not dwell, here, upon those attributes which usually call forth our praise, or the praises of men in general, but he touches some special strings of the harp from which he brings forth joyous music for the children of Zion, that they may be glad in their King. This is one of the notes of the Psalm--that although God, Himself is so high, He has a very tender regard toward those who are lowly. He turns His thoughts, not to those who are brilliant and attractive, but to those who are broken in heart and wounded in spirit! While the gods of the heathen are pictured in their mythologies as dealing with kingdoms and with wars and with other matters upon a large scale, this gracious God of ours is so infinitely condescending that He waters the grass, feeds the cattle and listens to the cries of young ravens! This is, indeed, a specialty with God and one which unconverted men do not readily discover, or even think much about when it is spoken of in their hearing. But you who know Him, you who love Him, delight in these wondrous condescension of His Grace--His dealing in mercy with the contrite and broken in spirit, His filling Heaven and yet filling you, His ruling the stars and yet managing your mean affairs--His fiat that creates a universe and His gentle promises suited to the understanding of a child, to the healing of a widow's sorrow, and the loosing of the bonds of the prisoner! Oh, yes, we feel that we are bound to our God with cords of a man and with bands of love! He considers us when we are of low estate, therefore we will give all diligence to acquaint ourselves with Him that we may be at peace.

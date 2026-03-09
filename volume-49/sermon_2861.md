@@ -1,12 +1,5 @@
 # Sermon 2861 | "The Time Is Short"
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The time is short." 1 Corinthians 7:29.
 
 THE text does not say that time is short. That would have been a true statement, but compared with eternity, time, at the very longest, is but as a pin's point. But note what the text does say--" The time is short." It is the time of our life, the space of our opportunity, the little while we shall be upon the present stage of action that is short. It is narrow and contracted, as the original implies. "Behold," said the Psalmist, "You have made my days as a handbreadth and my age is as nothing before You." Brief is the season we have allotted to us, Brothers and Sisters, in which we can serve the Lord our God.

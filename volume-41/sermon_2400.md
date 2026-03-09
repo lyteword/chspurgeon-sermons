@@ -1,12 +1,5 @@
 # Sermon 2400 | Number 2400--or, "Escape for Your Life!"
 
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 17, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 27, 1887.
-
 "Escape for your life." Genesis 19:17.
 
 THE Lord Himself said to Lot, "Escape for your life," although the command was sent by one of His chosen messengers. God has messengers, nowadays, and He still sends by them short, sharp, urgent, stimulating messages like this, "Escape for your life." This message was sent in love. God loved Lot and, therefore, He would save him from the impending doom of Sodom. I doubt not that this message of love was spoken by the messenger in very solemn tones. I do not know how angels speak, but I am certain that the very heart of the messenger was apparent in the message when he said to Lot, "Escape for your life." Whether he whispered it in Lot's ears, or uttered it in a loud voice, I cannot tell, but anyway, I am sure that it was delivered as it ought to be delivered and it had an immediate effect upon the man who heard it, for he was obedient to it.

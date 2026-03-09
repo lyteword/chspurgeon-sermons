@@ -1,12 +1,5 @@
 # Sermon 2775 | David Warned and Rewarded
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 20, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 29, 1881.
-
 "Moreover by them Your servant is warned: and in keeping them there is great reward." Psalm 19:11.
 
 DAVID was constantly singing the praises of God's Word, although, as I have often reminded you, he had only a small portion of the Scriptures compared with the complete Bible which we possess. If, then, it had pleased God that the Canon of Revelation should have been closed in David's day, it would, by the aid of His Spirit, have been even then a sufficient Light of God to lead the saints of God into the way of holiness. You would be very sorry if the Pentateuch and the earliest Historical Books should be all that you had of the Scriptures, yet they are, evidently, so rich, so full, so instructive, that they were all that David needed for the practical purposes of a holy life! Never allow anybody to make you depreciate the Old Testament. No part of the Bible is to be set up above the rest, or to be treated as of secondary importance. "All Scripture is given by Inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness."

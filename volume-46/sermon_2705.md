@@ -1,12 +1,5 @@
 # Sermon 2705 | Why Some Sinners Are Not Pardoned
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 16, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 30, 1881.
-
 "And why do You not pardon my transgression, and take away my iniquity?" Job 7:21.
 
 NO man should rest until he is sure that his sin is forgiven. It may be forgiven and he may be sure that it is forgiven--and he ought not to give rest to his eyes, nor slumber to his eyelids till he has been assured, with absolute certainty that his transgression is pardoned and that his iniquity is taken away. You, dear Friends, may be patient under suffering, but not patient under sin. You may ask for healing with complete resignation to the will of God as to whether He will grant it to you, but you should ask for pardon with importunity, feeling that you must have it. You may not be sure that it is God's will to deliver you from disease, but you may be quite certain that it is His will to hear you when you cry to Him to save you from sin. And if at your first crying unto Him, you are not saved, seek to know the reason why He is refusing to grant you the blessing you so much desire. It is quite legitimate to put this question to God again and again, "Why do You not pardon my transgression, and take away my iniquity?" We also ought to press this matter home upon our own heart and conscience, to see whether we cannot discover the reason why pardon is, for a while, withheld from us, for God never acts arbitrarily and without reason. And, depend upon it, if we diligently search by the light of the candle of the Lord, we shall be able to find an answer to this question of Job, "Why do You not pardon my transgression, and take away my iniquity?" Job's question may sometimes be asked by a child of God, but it may be more frequently asked by others who, as yet, are not brought consciously into the Lord's family.

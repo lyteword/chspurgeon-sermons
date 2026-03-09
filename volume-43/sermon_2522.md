@@ -1,12 +1,5 @@
 # Sermon 2522 | "After Two Days Is the Passover"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 20, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 1, 1885.
-
 "You know that after two days is tie Passover, and the Son of Man will be delivered up to be crucified." Matthew 26:2.
 
 One likes to know how a great commander feels before a battle. What is his state of mind and how does he look forward to tomorrow's struggle? While yet the balances are trembling, how does he act? How does he bear himself? One likes to know the condition of heart of one's fellow in the prospect of a great trial. There is a serious operation to be performed--how is the sufferer supported in the prospect of the surgeon's knife and of the danger that will attend it? Or, perhaps, death itself is rapidly approaching--in what condition of heart is our departing friend? How does he anticipate the great change? I take it that it is sometimes much harder to look upon a battle than to fight one--more difficult to foresee an ill than it is to bear it and, perhaps, the foresight, even, of death is much more trying than death itself ever proves to be to a Christian. Can we be confident before the battle begins? Can we be calm before the clouds burst in the time of storm? Can we rest in God before the iron gate is opened and we pass through it into the unknown world? These are questions well worth asking.

@@ -1,12 +1,5 @@
 # Sermon 2601 | Small Things Not to Be Despised
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 18, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1883.
-
 "For who has despised the day of small things?" Zechariah 4:10.
 
 IT is a very great folly to despise "the day of small things," for it is usually God's way to begin His great works with small things. We see it every day, for the first dawn of light is but feeble and yet, by-and-by, it grows into the full noontide heat and glory. We know how the early spring comes with its buds of promise, but it takes some time before we get to the beauties of summer or the wealth of autumn. How tiny is the seed that is sown in the garden, yet out of it there comes the lovely flower! How small is the acorn, but how great is the oak that grows up from it! The stream commences with but a gentle rivulet, but it flows on till it becomes a brook, and then a river--perhaps a mighty Amazon--before its course is run!

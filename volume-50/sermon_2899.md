@@ -1,12 +1,5 @@
 # Sermon 2899 | "To You"
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 1, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 9, 1876.
-
 "To you is the word of this salvation sent." Acts 13:26.
 
 MY text must be read in the light of the 46th verse, or else I may be thought to be guilty of wresting it from its true meaning. Paul originally said to the Jews and proselytes in the synagogue at Antioch in Pisidia, "To you i s the word of this salvation sent." But they rejected the message and, therefore, the Apostle said to them, "It was necessary that the Word of God should first have been spoken to you: but seeing you put it from you, and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles." So, if Paul were now here, he might, in addressing you, use the very same words which he used in addressing Israel of old and say, "To youis the word of this salvation sent."

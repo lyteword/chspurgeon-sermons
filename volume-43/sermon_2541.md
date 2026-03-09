@@ -1,12 +1,5 @@
 # Sermon 2541 | "Mr. Moody's Text"
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 31, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 15, 1884.
-
 "I will trust and not be afraid." Isaiah 12:2.
 
 I saw this text advertised as being printed in colors and it was called, "Mr. Moody's Text." When I saw him yesterday, I asked him how it was his text any more than it is mine. He said that he was sure he did not know--he never called it his text, so far as he knew. Somebody may have thought it a very proper text for him and so it is, but I lay claim to the text, too, and I should advise every Christian to say, "That is my text also." I would be very glad if some who are not Christians should be brought, by the Grace of God, into the bonds of the Covenant and should be able to lay hold on this text, and so say, "I will trust and not be afraid." I told Mr. Moody that if it belonged to nobody else in particular, it certainly was mine. He said, "How so?" "Well," I replied, "I told my people the meaning of that text some time ago." I said to you, dear Friends, that you might get to Heaven by the Free Grace train if you did but get on board it anywhere, but that it was always advisable, if you could, to travel first-class. I pointed out the third-class carriage to you. This is it-- "What time I am afraid, I will trust in the Lord." If you get in there, you will go all right to the journey's end, but it is much better to be where there are nice, soft cushions to sit upon. This is the first-class carriage--"I will trust and not be afraid." You are no safer, I suppose, in one carriage than in the other, but, certainly, you are much more comfortable in this first-class carriage! "I will trust and not be afraid."

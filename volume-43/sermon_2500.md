@@ -1,12 +1,5 @@
 # Sermon 2500 | Number 2500--or, "entrance and Exclusion"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 17 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 21, 1885.
-
 "And they that were ready went in with him to the marriage: and the door was shut." Matthew 25:10.
 
 DURING the waiting period, the wise and foolish virgins seemed much alike, even as at this day one can hardly discern the false professor from the true. Everything turned upon the coming of the bridegroom. To the 10 virgins, that was the chief event of the night. If it had not been for his coming, they would not have gone forth with their lamps. It was because they knew he would surely come that they prepared themselves to join in the marriage procession and attend him with their songs to the place of his abode. Yet, for a while, he did not come. The sun had gone down and darkness had stolen over the whole landscape, but the bridegroom did not come. The dews of night were falling fast, yet still he did not come. The hours were long and slowly passed away, one after the other, yet he did not come. It was waxing toward the middle of the night--a few stars were visible, but there was no lingering light of the day remaining. It was the time of darkness and the eyes of the waiting virgins grew heavy with watching. Why was the bridegroom so long in coming? They had been told to look for him. They had fully expected him, yet he had not come. There were whispers that it was all a delusion and that he would nevercome. And there was that guilty sense of slumber which stole over them. In the case of some of the 10, their spirit was willing, but their flesh was weak. But in the case of the others, both flesh and spirit were perverse, so that their sleep became exceedingly deep, as when a man sleeps even unto death.

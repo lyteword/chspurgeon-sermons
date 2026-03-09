@@ -1,12 +1,5 @@
 # Sermon 2677 | Spiritual Religion
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 3, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1858.
-
 "It is the spirit that quickens; the flesh profits nothing." John 6:63.
 
 To a casual reader, it looks as if the meaning of this passage lay upon the very surface, but he who has studied the chapter carefully has discovered that it is a sentence replete with many difficulties as to the exact interpretation of it. I shall not, however, waste your time by entering into any critical discussion of it, but shall only try to give you simply what I believe to be the mind of the Spirit, as uttered by the lips of Jesus in this passage. And after I have done that, I shall then revert to what I shall call the meaning which any person would give to it who is not a diligent and careful student of Scripture. That meaning being true, although not the special Truth of God taught in this passage, I shall briefly enlarge upon it.

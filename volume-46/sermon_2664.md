@@ -1,12 +1,5 @@
 # Sermon 2664 | Things Unknown
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 4, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1858.
-
 "Call unto Me, and I will answer you, and show you great and mighty things which you know not." Jeremiah 33:3.
 
 GOD'S people will never thrive on anything less substantial than bread from Heaven. Israel in Egypt might live on garlic and onions, but Israel in the wilderness must be fed with the manna that came down from Heaven, and with the water that gushed out of the Rock when it was smitten by the rod of God. The child of God, while he is yet in his sins, may, like other men, revel in them, and the pleasures and follies of this world may be his delight. But when he is once brought out of Egypt by the high hand of God's purpose, and the almighty hand of God's strength, he will never live on anything less than God's promise and God's Truth! It is vain for men to try to remove his doubts and strengthen his self-confidence. It is vain for men to endeavor to feed himself with man-made doctrine or with rationalistic ideas--he must have something that is Divine, that has the stamp of Revelation upon it. In fact, unless we can come forth every Sabbath with a, "Thus says the Lord," we are not capable ministers of the New Covenant and it is not in our power to comfort the Lord's children.

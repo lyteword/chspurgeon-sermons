@@ -1,12 +1,5 @@
 # Sermon 2770 | "Go in Peace"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 16, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 23, 1883.
-
 "And He said to the woman, Your faith has saved you; go in peace." Luke 7:50.
 
 THERE appears to have been four stages in Christ's dealing with this woman. I know not what had preceded the narrative as we have it recorded in this Chapter--I need not enter into that question now. There had, doubtless, been a work of the Spirit of God upon that woman's heart, turning her from her sin to her Savior, but when she stood at our Master's feet, raining tears of penitence upon them, wiping them with the hairs of her head, giving to them kisses of love and anointing them with the ointment from the alabaster box, there were four stages in His gracious dealings with her.

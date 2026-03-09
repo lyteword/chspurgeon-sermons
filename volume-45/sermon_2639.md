@@ -1,12 +1,5 @@
 # Sermon 2639 | Our Heavenly Father's Pity
 
-
-INTENDED FOR READING ON LORD'S-DAY SEPTEMBER 10, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN 1857.
-
 "Like as a father pities his children, so the Lord pities them that fear Him." Psalm 103:13.
 
 WHAT a blow this is for our pride! Then God's children are pitiable objects, notwithstanding that He has crowned them with glory and honor, has given them perfection in Christ Jesus, has breathed into them the breath of spiritual life, has set their feet upon a rock and established their goings--yet they are and they always will be, so long as they are here below--pitiable objects! It is like tolling the death-knell of all our pride to talk about God pitying us! Why, my Brothers and Sisters, we shed our pity profusely upon the ungodly--we are often pitying the wicked, the profane, the blasphemer and Sabbath-breaker--but here we find God pitying us! Even David, the mighty Psalmist, is pitied! A Prophet, a priest, a king--each of these shall have pity from God, for, "He pities them that fear Him," and finds good reasons for pitying them, however high their station, however holy their character, or however happy their position! We are pitiable beings! Oh, boast not, Believer! Be not loud in praise of yourself! Put your finger on your lips and be silent when you hear that God pities you! The next time carnal security would creep in, or fleshly conceit would get the upper hand of you, remember that while you are boasting, God is pitying--and while you are triumphing, He is looking down upon you with pitying eyes of compassion, for He finds reason for compassion when you can only see cause for glorying!

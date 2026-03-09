@@ -1,12 +1,5 @@
 # Sermon 2858 | Migratory Birds
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 28, 1870.
-
 "Yes, the stork in the heavens knows her appointed times, and the turtledove and crane and the swallow observe the time of their coming, but My people know not the judgment of the Lord." Jeremiah 8:7.
 
 IN our text the Prophet makes use of the flight of migratory birds to teach a valuable lesson. He mentions the swallow, which is the most prominent among the summer visitors to our own country, but he also names the stork, the crane and the turtledove, all of them familiar instances of birds that came, at a certain season, to Palestine and, punctual to the hour, at given changes of the weather, winged their way back again to warmer climates. Too many careless observers, like the peasant of whom Wordsworth writes--

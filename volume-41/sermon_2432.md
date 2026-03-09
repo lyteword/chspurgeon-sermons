@@ -1,12 +1,5 @@
 # Sermon 2432 | Kept From Iniquity
 
-
-INTENDED FOR READING ON LORD'S DAY MORNING, SEPTEMBER 29, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 22, 1887.
-
 "I kept myself from my iniquity." Psalm 18:23.
 
 In our reading we had a very wonderful description of God's delivering mercy towards His servant David. He was very peculiarly tried in the court of Saul. He deserved so much of the king that it was doubly difficult for David to be treated so badly. He had been the deliverer of his country when he slew Goliath, yet he was hunted as if he had been the grossest of malefactors. He had to flee for his life like a partridge upon the mountains--and all the while, no doubt-- Saul and his partisans accused him of all manner of evil. There was scarcely any bad thing which they did not attribute to David! But he was upright before God and he dared to challenge the investigation of the Most High, for he was sincere and true to the core. He proved by his conduct that he was so, for when Saul was in his hands, on two memorable occasions when he might readily have taken his life, he refused to do so. He would not put forth his hand against the Lord's anointed and, in great Grace, in his own good time, God was pleased to deliver His servant.

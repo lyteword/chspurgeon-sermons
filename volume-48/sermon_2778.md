@@ -1,12 +1,5 @@
 # Sermon 2778 | Consulting With Jesus
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 11, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 31, 1878.
-
 "And when the queen of Sheba heard of the fame of Solomon concerning the name of the Lord, she came to test him with hard questions...So Solomon answered all her questions: there was nothing so difficult for the king, that he could not explain it to her" 1 Kings 10:1-3.
 
 

@@ -1,12 +1,5 @@
 # Sermon 2709 | Christ's Past and Present Witnesses
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 13, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 7, 1880.
-
 "And you also shall bear witness, because you have been with Me from the beginning." John 15:27.
 
 OUR Lord Jesus Christ ought to be believed upon His own unsupported Word, first, because of the Divinity of His Nature. God cannot lie and that Christ is God is abundantly proved by His miracles. He did that which none but God could do. He ought also to be believed because of the perfection of His Character, for even the enemies of the Gospel have been obliged to confess that the perfection of the Character of Jesus is altogether undeniable. They have critically examined it, but they have not been able to find a single fault or flaw in it. They have thrust the Character of Christ into a furnace such as that in which men try silver--and they have heated the furnace seven times hotter than usual--yet has the Character of Christ come forth unhurt from every trial. A perfect Man ought to be believed when He speaks. The perfection of His Character proves Him to be worthy of confidence.

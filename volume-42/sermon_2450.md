@@ -1,12 +1,5 @@
 # Sermon 2450 | The Joy of Redemption
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 2, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Sing, O you Heavens, for the LORD has done it: shout, you lower parts of the earth: break forth into singing, you mountains, O forest, and every tree in it! For the LORD has redeemed Jacob, and glorified Himself in Israel." Isaiah 44:23.
 
 WHEN the human mind is on the stretch of emotion, whether it is under the influence of grief or joy, it often thinks that the whole world is in sympathy with itself. It seems to wrap the mantle of the universe round about its spiritual nature as a garment. If it is joyous, it puts on nature as a spangled robe, but if it is wretched, it finds its sackcloth and ashes in the world round about it. You know how the Prophet--poet as well as Prophet--says of us in our joyous moments, "You shall go out with joy, and be led forth with peace: the mountains and the hills shall break forth before you into singing, and all the trees of the field shall clap their hands." When the heart is happy, nature seems to ring marriage peals in unison with the music within the heart. Let the eyes be clear and all nature will be bright! The earth seems glad when we are so.

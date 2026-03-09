@@ -1,12 +1,5 @@
 # Sermon 2573 | Unparalleled Suffering
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 5, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 4, 1883.
-
 "Christ also has once suffered." 1 Peter 3:18.
 
 IT is very unpleasant to our poor flesh and blood to suffer. Physical pain is a grievous infliction--mental agony or spiritual sorrow is still worse. Irons around the wrists can be worn till they fit easily, but when the iron enters into the soul, how it rusts the heart and eats into the spirit! Perhaps, to some minds, the most difficult of all suffering is that which is not deserved at all, but which comes because we do notdeserve it. I mean that suffering which innocent persons are called to endure because of their innocence when they are slandered and oppressed and persecuted, not for evil-doing, but for well-doing. I admit that there is much about this form of trial which should tend to make it a light affliction, for we ought to take it joyfully when we suffer wrongfully. Yet, as a rule, we are not able to do so. Certainly not by nature, for there is a sort of sense of justice within man which makes him feel that it is very hard that he should have to suffer, not for unrighteousness, but for righteousness--not for any wrong-doing, but for having espoused the cause of God and His

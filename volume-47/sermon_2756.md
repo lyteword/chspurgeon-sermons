@@ -1,12 +1,5 @@
 # Sermon 2756 | Saving the Lost
 
-
-A SERMON INTENDED FOR READING ON, LORD'S-DAY, DECEMBER 8, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 17, 1879.
-
 "The Son of Man hats come to seek and to save that which was lost." Luke 19:10.
 
 OUR Lord's mission upon earth was a very gracious one. It had a narrow side to it, for He came only as a Minister-- not as a Savior, mark you, but as Minister--to "the lost sheep of the house of Israel." He was, as the Apostle Paul reminds us, "a Minister of the circumcision for the truth of God." And He did not traverse any other country but Palestine, in order to preach the Gospel to the people, but He kept Himself to the seed of Abraham.

@@ -1,12 +1,5 @@
 # Sermon 2809 | Faith--life
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 14, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 10, 1877.
-
 "The just shall live by his faith." Habakkuk 2:4.
 
 "The just shall live by faith." Romans 1:17.

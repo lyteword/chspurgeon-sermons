@@ -1,12 +1,5 @@
 # Sermon 2642 | The Flight to Zoar
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 1, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE AUTUMN OF 1857.
-
 "The sun was risen upon the earth when Lot entered into Zoar." Genesis 19:23.
 
 THE destruction of Sodom was, undoubtedly, a literal fact. And the record of it in Genesis is as true a piece of history as any event that is recorded by Tacitus or Josephus. But it was also intended to be a great parabolic lesson to us--a lesson in the shape of a parable--by which we might receive both instruction and blessing. The Old Testament is a great Book of texts and the New Testament contains the sermons upon them. Lot's wife was in the Old Testament as a text and in the New Testament we have the sermon upon it, "Remember Lot's wife." And wherever, my Brothers and Sisters, I find our Lord Jesus Christ, or any of His Apostles referring to an incident in the Old Testament, I always think it is our business to look at that event to which they refer. In the writings of the old Puritans, which I delight to read, I often find in the margin a hand pointing to some special words which it is requisite that the reader should particularly note and read with care. And when I see the hand put opposite the passage, by some old lover of the Truth of God, who, in days of yore, read the book, I generally turn to it with eagerness, to see what is the gem pointed at by the finger.

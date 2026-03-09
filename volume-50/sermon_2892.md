@@ -1,12 +1,5 @@
 # Sermon 2892 | The Free-agency of Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 14, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 18, 1876.
-
 "And He came to Bethsaida; and they brought a blind man unto Him, and besought Him to touch him. And He took the blind man by the hand, and led him out of the town, and when He had spit on his eyes, and put His hands upon him, He asked him if he saw anything. And he looked up, and said, I see men as trees walking. After that He put His hands again upon his eyes, and made him look up: and he was restored, and saw every man clearly. And He sent him away to his house, saying, "Neither go into the town, nor tell it to any in the town." Mark 8:22-26.
 
 THERE are several points in which these people who brought the blind man to Christ deserve our commendation and our imitation. They believed that Christ could open that blind man's eyes. In like manner, may we all believe that Jesus can save our relatives, friends and acquaintances. If we are ourselves saved, let us always be firmly convinced that He is also able to save any whom we bring before Him in prayer. Let us never give way to despair concerning any person, however far he may have gone into sin. Who but the Divine Savior could open the eyes of this blind man? Nobody. Yet He could do it. So, if your friends are very sinful and hardened, no one but the Lord can save them. But He can do it, so believe that He can do it and in prayer bring your friend to the Savior as these people of Bethsaida brought this blind man to Christ.

@@ -1,12 +1,5 @@
 # Sermon 2544 | The One and the Many
 
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 3, 1884.
-
 "The judgment was by one to condemnation, but the free gift is of many offenses unto justification." Romans 5:16.
 
 I am not going to speak at length about the Doctrine of the Federal Headship of the first Adam and of the second Adam, which is, to my mind, indisputably taught in this chapter. I have heard a great many objections to that Truth of God which appear to me to be plainly revealed in Scripture, namely, that we were all represented by Adam in the Garden of Eden and that when he sinned, he so sinned as to sin representatively--and we fellby virtue of his disobedience. Certain it is that we all come into a world that is adapted to sinners--where the babe is no sooner born than it begins to suffer pain--where winter's frosts, summer's heats and changes of all kinds constantly try us--a world not at all adapted for perfect beings. God regards us from our very birth as sinful and He treats us as such. Now, whatever quibbles there may be about that Doctrine of Representation and Federal Headship, it is a fact, and I would remind objectors that it is, under many aspects, a very blessed fact! When the angels fell, keeping not their first estate, there was never any proposal to ransom them, for each of those spiritual beings fell in his own individual capacity and fell hopelessly. But the human race was a unitrepresented by the one head, Adam.

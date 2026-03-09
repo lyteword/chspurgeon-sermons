@@ -1,12 +1,5 @@
 # Sermon 2569 | The Backslider's Door of Hope
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 8, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 22, 1883.
-
 "And I will give her her vineyards from there, and the Valley ofAchor for a door of hope; she shall sing there, as in the days of her youth, and as in the day when she came up from the land of Egypt." Hosea 2:15.
 
 A FORTNIGHT ago, you will remember that we considered the very terrible description which the Prophet gave of the sin of God's ancient people. [See Sermon #2564, Volume 44, "Strange Ways of Love"] They were even described coarsely, because only such imagery could set forth their disgraceful filthiness in departing from Jehovah, the living and true God, and setting up false gods, the rites of whose worship were indescribably obscene. I would not dare to mention what these men did under the guise of religion when they turned aside from Jehovah and set up Baal, Ashtaroth and other idols that were not gods. You will also remember how the Lord, in His holy jealousy, dealt with His people. He sent them affliction after affliction. He took away from them those mercies which they had prostituted for the purpose of sin. He made them poor, sick and wretched. They were invaded and enslaved by the neighboring nations whose deities they had set up in the place of the Most High. Further, you remember--for we tried to describe it--they were so desperately set on mischief that they would not be turned from their wicked ways--they revolted more and more. The more it cost them to sin, the more extravagant they were in it.

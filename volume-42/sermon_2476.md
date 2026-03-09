@@ -1,12 +1,5 @@
 # Sermon 2476 | "This Thing Is From Me"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 2, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 22, 1886.
-
 "Thus says the LORD, You shall not go up, nor fight against your brethren, the children of Israel: return every man to his house; for this thing is from Me." 1 Kings 12:24.
 
 IT is very delightful to read a history in which God is made prominent. How sadly deficient we are of such histories of our own English nation! Yet surely there is no story that is more full of God than the record of the doings of our British race. Cowper, in one of his poems, shows the parallel between us and the house of Israel. He dwells upon various special incidents in our history and draws valuable lessons from them. God's wisdom and power have been conspicuous from the time when this now, full-grown nation, was but like a nursing child. He has nursed and watched over it, protecting it against gigantic foes and made it to be the defender of His Truth, the favored abode of His people. Oh, for a historian who could dip his pen in thoughts of God and who, from beginning to end of his history, would not be showing us the crafty policy of kings and cabinets, but the finger of God! We need, nowadays, to have history written in some such style as appears in these Books of Samuel, Kings and Chronicles--then might history become almost like a new Bible to us! We would find that, as the Book of Revelation agrees with the Book of Creation, so does the book of Divine Providence in human history agree with both of them, for the same God is the Author of all these works! If we cannot get anybody to write such histories, yet let us continually amend the errors and add appendices to such records as we have, for God is God, and God is everywhere, and blessed is the man who learns to spy Him out!

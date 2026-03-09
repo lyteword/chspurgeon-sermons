@@ -1,12 +1,5 @@
 # Sermon 2830 | A Good Man in An Evil Case
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 10, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 19, 1886.
-
 "Cast your burden upon the Lord, and He shall sustain you: He shall never allow the righteous to be moved." Psalm 55:22.
 
 Those of you who were here last Thursday evening will recollect that the sermon was concerning those sons of Ger-shon who were burden-bearers in connection with the tabernacle in the wilderness. [Sermon #2829, Volume 49--lowly service] They were not appointed to preach. They were not ordained to

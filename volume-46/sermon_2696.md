@@ -1,12 +1,5 @@
 # Sermon 2696 | Wordless Prayers Heard in Heaven
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 14, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 8, 1881.
-
 "When the poor and needy seek water, and there is none, and their tongue fails for thirst, I the LORRD will hear them, I the God of Israel will not forsake them." Isaiah 41:17.
 
 NOTICE, dear Friends, that this double promise to the poor and needy stands in connection with other great promises which guarantee the gift of wonderful strength and blessing to God's people. These promises seem to me to be such as the mightiest servant of God might well desire to have fulfilled in himself. Look, for instance, at the one in the 15th and 16th verses--"Behold, I will make you a new sharp threshing instrument having teeth: you shall thresh the mountains, and beat them small, and shall make the hills as chaff. You shall fan them, and the wind shall carry them away, and the whirlwind shall scatter them: and you shall rejoice in the Lord, and shall glory in the Holy One of Israel." What a great promise that is! How it makes the child of God to participate in the greatness of Jehovah's strength! The picture here drawn is a very remarkable one. Here is a man--a poor, feeble man--so strengthened by God that he not only threshes wheat, but he threshes mountains! Nor does he find that the gigantic enterprise is beyond the strength imparted to him--the rocks and the hills are turned to chaff. Nor is that all that happens to them, for this man, Divinely strengthened, takes up a colossal winnowing fan and sets Alps, Andes, Himalayas flying just like the small dust from the threshing floor! This is grand work and it needs a man of God when he has come to the fullness of his strength through the indwelling of the Spirit of God.

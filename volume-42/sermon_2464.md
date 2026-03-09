@@ -1,12 +1,5 @@
 # Sermon 2464 | The Power of a Sigh
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 10, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 22, 1886.
-
 "For the oppression of the poor, for the sighing of the needy, now will I arise, says the LORD; I will set him in safety from him that puffs at him." Psalm 12:5.
 
 YOU must all have noticed that David lived in very evil times. When he wrote this Psalm, the days were dark and his cry was, "Help, Lord; for the godly man ceases; for the faithful fail from among the children of men," from which I gather that, bad as the times may be in which we live, there have been bad times before these. We are not the first persons who have had reason to complain of the evils by which we are surrounded. If we have to say that the love of many is waxing cold and the Truth of God is scarcely to be found, such experiences have happened to God's servants many times before. Let us not think it strange concerning the fiery trial we have to endure, as though we were the first persons to whom that trial has come. No, dear Friends, I feel greatly comforted when I remember that all through the history of God's people, there have been periods of darkness as black as that in which we live--times of trial and perplexity when it has seemed as if the whole course of nature was out of order--and as if the very foundations were removed, so that men were ready to cry, "What can the righteous do?" If it is so, that we are only weathering storms like those which tossed the boats of our fathers before us, and if their ships came safely into the harbor, notwithstanding the hurricane, let us take comfort and be assured that we, too, shall weather this raging tempest--and that for us there will yet be a season when we shall be glad because we are quiet, because the Lord has brought us into our desired haven.

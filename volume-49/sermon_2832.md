@@ -1,12 +1,5 @@
 # Sermon 2832 | Christ's Yoke and Burden
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 24, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 2, 1886.
-
 "My yoke is easy and My burden is light." Matthew 11:30.
 
 OBSERVE dear Friends, that our Lord Jesus Christ does lay a yoke and a burden upon His followers. He uses those words that none may presume to enter His service without due consideration. Religion is not a matter for trifling. The service of the meek and lowly Christ is no child's play. There is a yoke that is to be borne by all His disciples and the neck of self-will must be bent low to receive it. There is a burden to be carried for Christ--and all the strength that God gives us must be used for His honor and Glory.

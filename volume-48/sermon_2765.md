@@ -1,12 +1,5 @@
 # Sermon 2765 | Marvelous Light
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 9, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 26, 1879.
-
 "His marvelous Light." 1 Peter 2:9.
 
 EVERYTHING about a true Christian is marvelous. He is a marvel to himself and a marvel to all who are around him. Mere professors--man-made Christians--people who have made themselves Christians by their own free will apart from the Spirit of God, have nothing marvelous about them. You can make professors of that sort by the score and you can see them dissolve by the score, for what man made, man can unmake! And what is merely natural has its season, like the leaves on the trees and, by-and-by, it withers away because its time to fade has come. But a true Christian is a God-made man, a twice-born man and he is a partaker of the Divine Nature. He is a mass of marvels, for he is dead and yet he is alive! He is one who lives here and yet his life has gone away up yonder. He is one who is a citizen of earth and yet his citizenship is in Heaven. He is a true man, but he is more than a man, for God has lifted him up above the level of other men, given him a life which other men do not possess, revealed to him secrets which others do not know and prepared for him a place into which the ungodly can never enter.

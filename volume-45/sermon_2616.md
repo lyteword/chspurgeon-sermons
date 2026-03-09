@@ -1,12 +1,5 @@
 # Sermon 2616 | Christ's Care of His Disciples
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 2, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1857.
-
 "If, therefore, you seek Me, let these go their way." John 18:8.
 
 WE need but hint at the circumstances under which these words were uttered. Our Savior was in the Garden of Geth-semane with His disciples when a multitude came with the officers commissioned by the High Priest to seize Him. He went boldly towards them and asked, "Whom do you seek?" They answered, "Jesus of Nazareth." At His words, "I am He," "they drew back and fell to the ground," and then Jesus said to them, "I have told you that I am He. If, therefore, you seek Me, let these go their way."

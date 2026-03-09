@@ -1,12 +1,5 @@
 # Sermon 2873 | Who Loves Christ More?
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 3,1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 3, 1876.
-
 "There was a certain creditor who had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. Tell me, therefore, which of them will love him more? Simon answered and said, I suppose that he to whom he forgave more. And He said unto him, You have rightly judged." Luke 7:41-43.
 
 When we commence the Christian life, it is very natural that we should say to ourselves, "We do not wish to be second-rate Christians, or ordinary Christians--much less to prove like the Laodicean professors, neither cold nor hot, or, like those of whom the Apostle John wrote, "They went out from us, but they were not of us." I like to see the holy ambition of the young convert who desires to bring forth much fruit to the Glory of God--to love Christ much and manifest that love by every possible act of devotion to Him. Truly, my dear Friends, you need not be as your fathers have been, for we have often provoked the Lord and have many times done what we ought not to have done. There is plenty of room for improvement upon the past generation and we would earnestly urge those of you who are commencing the heavenly race to run faster than we have run--to keep your eyes more steadfastly fixed upon the goal--and to continue more resolutely in the right way than we have done. We do not desire that you should imitate our mistakes, or that you should fall into our backslidings. We wish that yours might be the highest conceivable form of Christian life and we know that if it is to be so, there must be in you intense love to Christ.

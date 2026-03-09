@@ -1,12 +1,5 @@
 # Sermon 2463 | Why Men Reject Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 3, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 11, 1886.
-
 "And sent messengers before His face. And as they went, they entered a village of the Samaritans, to prepare for Him. But they did not receive Him, because His face was set for the journey to Jerusalem." Luke 9:52, 53.
 
 YOU hardly need that I should explain this action of the Samaritans. Probably our Savior's nearest road to Jerusalem lay through Samaria and He did not avoid that district, as many Jews did who went a long way around rather than pass through that unfriendly country. The Lord Jesus was so gentle, so meek and lowly, so much more a Man than a Jew, that it is somewhat strange that the Samaritans did not make an exception in His favor and treat Him courteously when He passed through their land. He, Himself, was quite free from all bigotry and was glad to mingle with all sorts of men, whatever their nationality. He sent His messengers to the Samaritan village to say that Jesus of Nazareth was passing through and wished to lodge there for a night--but they refused Him because it appeared to be His intention to go up to Jerusalem to keep the feast and it was their opinion that the feast ought to be kept in their own temple on their own mountain, Gerizim. Therefore, because the Christ was going up to the Jewish feast at Jerusalem, they would not receive Him. They were guilty of gross inhospitality in thus refusing to entertain a servant of God, for He was that in the esteem of many of them. And they were also guilty of still greater inhospitality which they did not understand, for they refused to receive the Son of God who, in human flesh, had come down to bless the sons of men!

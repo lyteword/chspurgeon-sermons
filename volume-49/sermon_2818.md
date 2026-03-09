@@ -1,12 +1,5 @@
 # Sermon 2818 | Jesus and His Forerunner
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 15, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 24, 1877.
-
 "Therefore they sought again to take Him: but He escaped out of their hands, and went away again beyond the Jordan to the place where John at first baptized, and there He abode. And many resorted unto Him and said, John did no miracle: but all things that John spoke of this Man were true. And many believed on Him there." John 10:39-42.
 
 THE unbelieving and infuriated Jews again and again took up stones to cast at our Lord and here they sought to take Him prisoner, but He escaped from them, apparently with the greatest possible ease. He did this on several occasions. When the men of Nazareth would have cast Him down, headlong, from the brow of the hill whereon their city was built, He passed through the midst of them and went His way. He made His escape, over and over again, in the same wonderful manner, thus proving that He was not in the power of any man. He need not, therefore, at the last, have died unless His death had been in accordance with His own will. He might have appealed to His Father and He would have given Him legions of angels for His deliverance. Or He might, as Elijah did, have called for fire from Heaven to destroy those who sought to arrest Him. His Divine power would never have been at any loss in providing means for His own protection. He might, readily enough, have slain those who came to take Him in the garden--and He might even have come down from the Cross, if He had pleased thus to prove what power He possessed.

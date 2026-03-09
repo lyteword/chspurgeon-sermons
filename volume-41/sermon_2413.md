@@ -1,12 +1,5 @@
 # Sermon 2413 | Despised Light Withdrawn
 
-
-INTENDED FOR READING ON LORD'S DAY, MAY 19, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 15, 1887.
-
 "While you have light, believe in the light, that you may be the children of light. These things spoke Jesus, and departed, and did hide Himself from them." John 12:36.
 
 OUR Savior was very gentle with those who had real difficulties. He would argue with them over and over again. He would state a Truth of God, and re-state it. He would cast it into the form of a parable, or He would condense it into a sentence comparable to a proverb, or He would enlarge and expand it, for He was gentle with seeking souls as a nurse is with her child. I do not believe that there is any real difficulty in the hearts of those of you who are sincerely seeking Jesus that He will despise. He will not quench the smoking flax, nor break the bruised reed and, therefore, come to Him with your doubts and your anxieties, believing that His tender heart so loves you and so desires your good, that He will sit at your feet that He may induce you to sit at His feet--He will come down to your level that He may lift you up to His level!

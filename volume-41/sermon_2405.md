@@ -1,12 +1,5 @@
 # Sermon 2405 | Joy, a Duty
 
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 24, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 20, 1887.
-
 "Rejoice in the Lord always: and again I say, Rejoice." Philippians 4:4
 
 THERE is a marvelous medicinal power in joy. Most medicines are distasteful, but this, which is the best of all medicines, is sweet to the taste and comforting to the heart. We noticed, in our reading, that there had been a little tiff between two sisters in the Church at Philippi--I am glad that we do not know what the quarrel was about. I am usually thankful for ignorance on such subjects--but, as a cure for disagreements, the Apostle says, "Rejoice in the Lord always." People who are very happy, especially those who are very happy in the Lord, are not apt either to give offense or to take offense. Their minds are so sweetly occupied with higher things that they are not easily distracted by the little troubles which naturally arise among such imperfect creatures as we are. Joy in the Lord is the cure for all discord. Should it not be so? What is this joy but the concord of the soul, the accord of the heart, with the joy of Heaven? Joy in the Lord, then, drives away the discords of earth.

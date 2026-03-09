@@ -1,12 +1,5 @@
 # Sermon 2780 | The Sojourn in Mesech
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 25, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE SPRING OF 1860.
-
 "Woe is me, that I sojourn in Mesech, that I dwell in the tents of Kedar!" Psalm 120:5.
 
 MESECH was the son of Japheth, from whom, according to history, were descended the men who inhabited that most barbarous of all regions, according to the opinion of the ancients, the northern parts of Muscovy or Moscow and Russia. The inhabitants of the tents of Kedar were the descendants of one of the sons of Abraham who had taken to nomadic habits and were continually wandering about over the deserts. They were thought to have and doubtless were, guilty of plundering travelers and were by no means the most respectable of mankind. We are to understand, then, by this verse, that the people among whom the Psalmist dwelt were, in his esteem, among the most barbarous, the most fierce and the most graceless of men. And, therefore, it is that he cries, "Woe is me, that I sojourn in Mesech, that I dwell in the tents of Kedar!" He felt a woe in his heart because of that evil companionship in which he was compelled to abide.

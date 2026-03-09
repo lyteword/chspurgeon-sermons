@@ -1,12 +1,5 @@
 # Sermon 2768 | Debtors and Debtors
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 2, 1902.
-
-DELIVERED BY C. H. SPURGEON.
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 13, 1883.
-
 "There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty." Luke 7:41.
 
 I TRUST that the Lord has "somewhat to say" upon this subject to some who are like Simon the Pharisee. And if He has, I trust that those persons will be led by the Grace of God to say, as Simon did, "Master, say on." Be ready to hear what the Lord Jesus Christ will speak to you! There are some who cover up the windows of their hearts with the shutters of prejudice--they are only prepared to hear what will please them--they cannot endure to listen to that which will grieve them and humble them. How many there are who want the preacher to prophesy smooth things! If he will say what they can agree with, they will go away and sing his praises, which is a poor result in any case. But let us be of a nobler sort than that! Let us be like the Bereans, who, after they had heard Paul and Silas preach, "received the Word with all readiness of mind, and searched the Scriptures daily, whether those things were so. Therefore many of them believed." Let us say, as Eli bade young Samuel do, "Speak, Lord, for Your servant hears." Let us say to Him, "Even if You speak that which will lay me in the dust, I will hear it. If You say that which will condemn me to Hell, I will give heed to it, for it is best for me to know the Truth of God, that, by knowing it, I may be stirred up to flee from the wrath to come. Let me know the worst of my case, O Lord God of Truth! 'Search me, O God, and know my heart; try me, and know my thoughts: and see if there is any wicked way in me, and lead me in the way everlasting.'"

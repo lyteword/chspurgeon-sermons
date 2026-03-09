@@ -1,12 +1,5 @@
 # Sermon 2893 | An Instructive Truth
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 21, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 22, 1876.
-
 "O Lord, I know that the way ofman is not in himself: it is not in main who walks to direct his steps." Jeremiah 10:23.
 
 THIS declaration follows after Jeremiah's lamentation over the Lord's ancient people who were about to be carried away captive into Babylon. The Prophet speaks of a fact that was well known to him. It is always well, Brothers and Sisters, to know the Truth of God and to know it so certainly that you are able to remember it just when you most need it. There are some people who are very much like that foolish captain of whom we have heard who had a good anchor, but he left it at home when he went to sea, so it was of no use to him. So, these people know what would comfort them, but they do not remember it in the time of their distress. Jeremiah says, "O Lord, I know," and he utilizes his knowledge as a source of comfort in his hour of need.

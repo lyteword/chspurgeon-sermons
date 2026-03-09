@@ -1,12 +1,5 @@
 # Sermon 2493 | "A Man Named Matthew"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 29, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 12, 1885.
-
 "As Jesus passed forth from there, he saw a man named Matthew, sitting at the receipt of custom: and He said to him, Follow Me. And he arose and followed Him." Matthew 9:9.
 
 This is a little bit of autobiography. Matthew wrote this verse about himself. I can fancy him, with his pen in his hand, writing all the rest of this Gospel, and I can imagine that when he came to this very personal passage, he laid the pen down a minute and wiped his eyes. He was coming to a most memorable and pathetic incident in his own life and he recorded it with tremulous emotion. "As Jesus passed forth from there, He saw a man named Matthew." The Evangelist could not have said much less about himself than this. "He saw a man named Matthew, sitting at the receipt of custom: and He said to him, Follow Me. And he arose and followed Him." I do not think there is any part of Matthew's Gospel that touched him more than this portion in which he was writing down the story of Divine Love to himself and of how he, himself, was called to be a disciple of Christ.

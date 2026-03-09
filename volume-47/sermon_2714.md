@@ -1,12 +1,5 @@
 # Sermon 2714 | Those Who Desire
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 17, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 11, 1880.
-
 "O Lord, I beseech You, let now Your ear be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name." Nehemiah 1:11.
 
 NEHEMIAH was earnest in his prayer for the good of his sorrow-stricken nation, but he did not make the mistake of thinking that he was the only praying man in the world. He said, "Be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name." In this one respect, I like Nehemiah better than Elijah. They were both noble men and greatly concerned for the highest welfare of their fellow countrymen, but, at one time at least, Elijah did not have a true or a fair estimate of things as they really were. He even presumed to say to God, "I have been very jealous for the Lord God of Hosts: for the children of Israel have forsaken Your covenant, thrown down Your altars, and slain Your Prophets with the sword; and I, even I only, am left; and they seek my life, to take it away." Nehemiah, however, acted on another and a more hopeful principle. When he had presented his own personal supplication, he felt certain that there were others who were also praying to the Lord, so he said, "Be attentive to the prayer of Your servant, and to the prayer of Your servants, who desire to fear Your name."

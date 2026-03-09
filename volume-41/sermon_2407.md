@@ -1,12 +1,5 @@
 # Sermon 2407 | Feeding On a Whole Christ
 
-
-INTENDED FOR READING ON LORD'S DAY APRIL 7, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY, EVENING, APRIL 3, 1887.
-
 "The fourteenth day of the second month at even they shall keep it, and eat it with unlea vened bread and bitter herbs. They shall leave none of it unto the morning, nor break any bone of it: according to all the ordinances of the Passover they shall keep it." Numbers 9:11,12.
 
 IN great tenderness God permitted the Passover to be kept a second time, that those who had unavoidably been defiled at the first observance might not be shut out from the memorable and symbolical rite. But, although He altered the date of the Passover, He never changed the form of it--the Paschal feast was to be the same whenever it was celebrated and by whomever it was observed. Whether one family, or an Israelite who happened to be a stranger and visitor in the house, whoever it might be--kept the Passover--the same regulations were to be carefully followed. From this I gather, learning a lesson from the type, that, whatever may be the experiences through which we come to salvation, Christ is always the same and we must partake of Him in the same way. You who have been so defiled that you have, as it were, to eat of the second Passover, even at the 11th hour, long after others have been feeding on Christ--still there is the same Christ for you as there is for those who come at the right time--who seek the Lord early, and find Him while yet the dew of their youth is upon them.

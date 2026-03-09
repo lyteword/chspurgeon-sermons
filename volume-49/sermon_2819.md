@@ -1,12 +1,5 @@
 # Sermon 2819 | A Caution for Sin-sick Souls
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 22, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1861.
-
 "When Ephraim saw his sickness, and Judah saw his wound, then Ephraim went to Assyria, and sent to King Jareb: yet he cannot heal you, nor cure you of your wound." Hosea 5:13.
 
 THERE is a tendency, in the heart of man, to want something to look at rather than something to trust to. The children of Israel had God for their King and a glorious King He was. Where else was there found such impartial justice, such tender compassion for the poor, or such perfect righteousness in every statute that was ordained and every sentence that was enforced? But they said, "No, let us have a king whom we can see--a king whose pomp and magnificence shall dazzle our eyes, even though he will take our sons to be his bond slaves and our daughters to be his confectionaries. Let us have a king that we may see the gaudy glitter of his crown with our eyes and hear the sovereign mandate from his throne with our ears." God granted them that request.

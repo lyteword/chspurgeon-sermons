@@ -1,12 +1,5 @@
 # Sermon 2475 | "My Garden"--"His Garden"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 26, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 20, 1882.
-
 "Awake, O north wind, and come, you south; blow upon my garden, that the spices thereof may flow out. Let my Beloved come into His garden and eat His pleasant fruits." Song of Solomon 4:16.
 
 WHAT a difference there is between what the Believer was by nature and what the Grace of God has made him! Naturally, we were like the waste howling wilderness, like the desert which yields no healthy plant or verdure. It seemed as if we were given over to be like a salt land which is not inhabited--no good thing was in us, or could spring out of us. But now, as many of us as have known the Lord are transformed into gardens--our wilderness is made like Eden, our desert is changed into the garden of the Lord. "I will turn to you," said the Lord to the mountains of Israel when they were bleak and bare, "I will turn to you and you shall be tilled and sown." And this is exactly what He said to the barrenness of our nature. We have been enclosed by Grace, we have been tilled and sown, we have experienced all the operations of the Divine Farmer. Our Lord Jesus said to His disciples, "My Father is the Farmer," and He has made us to be fruitful to His praise, full of sweetness where once there was no fruit and nothing that could give Him delight.

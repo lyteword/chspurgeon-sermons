@@ -1,12 +1,5 @@
 # Sermon 2518 | A Sad Interior and a Cheery Messenger
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 23, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTTOBER. 18, 1885.
-
 "And she went and told them that had been with Him, as they mourned and wept." Mark 16:10.
 
 Some of you, dear Friends, have seen those small pictures by famous Dutch artists where, with many little touches-- very lifelike, very suggestive, very homely--they depict an interior. Now Mark is that kind of painter. He delights to give us interiors. He is best pleased when he can record something which nobody else seems to have described, or when he can take a description by somebody else and fill in the details, the finishing touches that have been omitted. I do not remember that we are told by Matthew, or Luke, or John, how the disciples behaved themselves while their Lord was in the grave. It is left to us to imagine their feelings, with this exception--that Mark tells us that "they mourned and wept."

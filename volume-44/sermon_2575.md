@@ -1,12 +1,5 @@
 # Sermon 2575 | A Sermon of Personal Testimony
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JUNE 19, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 11, 1883.
-
 "For it is not a vain thing for you; because it is your life." Deuteronomy 32:47.
 
 (One of the nights when the regular hearers left their seats to be occupied by strangers).

@@ -1,12 +1,5 @@
 # Sermon 2712 | Bonds Which Could Not Hold
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 3, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 28, 1880.
-
 "Whom God has raised up, having loosed the pains of death, because it was not possible that He should be held by it." Acts 2:24.
 
 PETER is here speaking of the risen Christ, whom God had raised up, "having loosed the pains of death." So it is clear that whatever those pains were, our blessed Lord Jesus Christ felt them--He felt them much more than His followers do, for, in His death-agony, He was left without the sustaining help of God and the light of His Father's Countenance was hidden from Him. His death was a bitter one, indeed! He took the deepest draughts of wormwood and gall, for He had to "taste death for every man," whatever that mysterious expression may mean. We must never imagine that there was about Christ's death anything which took away from its bitterness. There was much that increased it, but nothing that diminished it. He was bound, as with strong cords, by the pains of death. All His powers were, for a time, fettered. He was held captive and He did really die. After death, He was buried. But there was this remarkable fact about His dead body--it saw no corruption. In the case of ordinary corpses, corruption begins very speedily. In a climate like that of Jerusalem, it is very quick in doing its work of dissolving the mortal fabric. But, although our Lord did truly die, no taint of corruption came upon His precious body.

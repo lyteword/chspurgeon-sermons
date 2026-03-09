@@ -1,12 +1,5 @@
 # Sermon 2543 | Good Reasons for a Good Resolution
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 11, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1884.
-
 "I will greatly rejoice in the Lord, my soul shall be joyful inn my God; for He has clothed me with the garments of salvation, He has covered me with the robe of righteousness, as a bridegroom decks himself with ornaments, and as a bride adorns herself with her jewels." Isaiah 61:10.
 
 Without any preface we will go straight to our text at once. In the words of the Prophet, we have two things brought before us--first, a resolution to be glad and, secondly, the reasons for being glad. Whenever a man makes a resolution, it should be because he has a good reason for doing so. And when he has a good reason for it, he ought to adhere to his resolution and carry it out to the fullest possible extent. I want you, dear Friends, because there are good reasons for it, to resolve that you will be glad in the Lord. Perhaps you are of a mournful spirit--it may be that you have peculiar trials just now--possibly the very heaviness of the atmosphere makes you feel dull and sad. Never mind those things which would drag your spirit down, at least for tonight! Let us be glad and if we can make that gladness overlap tomorrow and if the stream should be sufficiently strong to flow right through the week to another Sabbath--and if the torrent should be vigorous enough to run right to the end of the year--and if the mighty flood should be broad enough to cover all the rest of our lives, it will not be, even then, an unreasonable thing! I wish we could, each one of us, with such a Divine inspiration as would enable us to continue it throughout eternity, say, "I will greatly rejoice in the Lord, my soul shall be joyful in my God." But if we cannot reach to such a full attainment ofjoy all at once, let us at least take a good mouthful of it even now--let us kneel down against the wellhead of heavenly bliss and drink a deep draught of holy joy at this glad hour!

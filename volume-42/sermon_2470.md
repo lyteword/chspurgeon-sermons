@@ -1,12 +1,5 @@
 # Sermon 2470 | Jacob and Doubting Souls a Parallel
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 21, 1896,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 20, 1886.
-
 "And Israel said, It is enough; Joseph my son is still alive: I will go and see him before I die." Genesis 45:28.
 
 I THINK that the Patriarch Jacob may well serve as the type and emblem of a doubting soul, one who has been told the good news of salvation, the Gospel of God's Grace, but who cannot bring his mind to believe it.

@@ -1,12 +1,5 @@
 # Sermon 2460 | God's Fire and Hammer
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 12, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 28, 1886.
-
 "Is not My Word like as a fire? says the LORD; and like a hammer that breaks the rock in pieces?" Jeremiah 23:29.
 
 As we noticed while reading the chapter, there were a great many pretenders in the times of Jeremiah, so that when the true Prophet of God came forth and declared, "Thus says the Lord," he was met by false prophets who contradicted him and said something the very reverse of what he had to say and yet prefaced their utterance with the same declaration, "Thus says the Lord." This, of course, tended very much to harden the hearts of the people against the Divine message, and it also grievously embarrassed Jeremiah. He hardly knew how to meet it--it seemed to checkmate him.

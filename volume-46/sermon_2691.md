@@ -1,12 +1,5 @@
 # Sermon 2691 | Sorrow and Sorrow
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 9, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 31, 1881.
-
 "For godly sorrow works repentaance to salivation not to be repented of: but the sorrow of the world works death." 2 Corinthians 7:10.
 
 MANY years ago and, indeed, in some measure to a later date, preachers of the Word seemed mainly to dwell upon the inner experience of men. They both preached sermons and wrote books in which they set forth the condition of convinced sinners, describing what they usually felt before they found peace with God. They were very strict in their search for the genuine tokens of true repentance and the internal evidences of regeneration. They preached continually upon the work of the Spirit of God in convincing sinners of their lost condition, but they were not accustomed to say to them so baldly and so boldly as we do now, "Believe, and live." And the consequence was that a large number of truly awakened persons were kept in bondage and did not come into the liberty wherewith Christ makes Believers free--at least, not so soon as they do nowadays. I believe that under God's blessing, those experimental preachers were the means of producing very sturdy Christians. They did a great deal of deep plowing with a very sharp plowshare before they began to sow the good Seed of the Kingdom of God. They took care to use the pointed needle of the Law of God to make a way for the silken thread of the Gospel, so that what they did sew was well sewn--and the garments which they made did not tear quite so easily as much of the spiritual raiment does which is made in these days of more showy, but less substantial, labor.

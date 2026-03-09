@@ -1,12 +1,5 @@
 # Sermon 2882 | Forgiveness and Fear
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 5, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 26, 1876.
-
 "There is forgiveness with You, that You may be feared." Psalm 130:4.
 
 THIS is good news, indeed--the best of news--and they will prize it most who are like the Psalmist was when he wrote these words. And who are they?

@@ -1,12 +1,5 @@
 # Sermon 2619 | The Captain of Our Salvation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 23, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 19, 1882.
-
 "For it became Him, for whom are all things, and by whom are all things, in bringing many sons to Glory, to make the Captain of their salvation perfect through sufferings." Hebrews 2:10.
 
 OBSERVE, dear Friends, how glorious God is. The description given here by the Apostle contains but few words, and those nearly all little ones, but how full of meaning they are! "Him, for whom are all things, and by whom are all things." Here you have God set forth as being both the beginning and the end of everything! All things are frHim--to do His bidding, to accomplish His purpose, to act forth His Glory and this because all things are byHim--in their first creation, in their subsequent preservation and in all that is yet to come of them! Of whom speaks the Apostle this but of the Triune God, to whom be glory forever and ever? Of whom speaks He this--if we would be still more exact--but of the Father who has made His Son perfect in bringing many sons to Glory? It is the Father "for whom are all things, and by whom are all things."

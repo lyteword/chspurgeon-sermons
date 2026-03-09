@@ -1,12 +1,5 @@
 # Sermon 2641 | God's Heart the Source of All Blessing
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 24, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 18, 1882.
-
 "According to Your own heart, have You done all these great things." 2 Samuel 7:21.
 
 A FRIEND observed to me, just before the service, that after the earnest endeavor this morning to magnify the Grace of God, he did not want to hear any more for a week. He was perfectly satisfied with what he had heard and was only afraid lest the sermon of the evening should drive that of the morning out of his head. Well, dear Friends, that is my own fear, too! I never like driving one nail out by hammering another in and, really, what more can I say than I said this morning? I then poured out my inmost heart in endeavoring to extol the exceeding riches of God's Grace in His kindness towards us through Christ Jesus. [See Sermon #1665, Volume 28-- The Exceeding Riches of Grace.] This evening's discourse, therefore, is intended to be like a little supplement to the big book of the morning sermon--just a few additional words upon the theme that we considered then.

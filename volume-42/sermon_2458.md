@@ -1,12 +1,5 @@
 # Sermon 2458 | Reasons for a Singular Question
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 29, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 14, 1886.
-
 "What do you want Me to do for you?" Mark 10:51.
 
 THAT was a very strange question to ask a blind man. Everybody could see that he was blind--they could tell by the way he struggled through the crowd, that he was blind. His very voice, which had long been used in begging, would show that he was a blind mendicant. There he stood before the Savior and Jesus knew what he wanted, yet He put to him this singular question, "What do you want Me to do for you?" The great Son of David knew that the man who cried to Him, "Have mercy on me," really meant by that plea, "Lord, give me my sight." Yet our blessed Lord never asked a foolish question and never spoke an idle word. There is a deep meaning, a gracious reason, in all that He says. It will be my business at this time to try to show you the reasons for this question. And while I do so, I want to speak, not so much to you people who are converted and who know the Savior, but I want to address any here who have not yet been brought to the feet of Jesus, but who are longing to be saved by Him. Oh, that God would help you to follow me in each thing as I say it, that what is said may be done as it is said, God the Holy Spirit working by the Word!

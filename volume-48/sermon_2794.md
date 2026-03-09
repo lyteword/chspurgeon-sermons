@@ -1,12 +1,5 @@
 # Sermon 2794 | A Refreshing Canticle
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 31, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE WINTER OF 1860.
-
 "We will remember Your love more than wine." Solomon's Song 1:4.
 
 THE Hebrew word for, "love," here is in the plural--"We will remember Your loves." Think not, however, that the love of Jesus is divided, but know that it has different channels of manifestation. All the affections that Christ has, He bestows upon His Church and these are so varied that they may well be called, "loves," rather than, "love." The Septua-gint translation is, "We will remember Your breasts." Bossuet, and many of the Romanist expositors who have brought much sanctity of thought and fervent appreciation of heart to bear upon this superlative Song, dilate very sweetly upon the word, "breasts," as it appears in the Latin Vulgate. I am disposed to be content with our own Version, with the alteration of one letter--"We will remember Your lovesmore than wine." By this expression we must understand, of course, all the love of Jesus, from the beginning even to the end, or, rather, to that eternity which has no end. We will remember those acts of love of which we have heard with our ears and our fathers have declared unto us. It has been told us by Inspired Prophets, and God has revealed it to us in His Word, by His Spirit, that Jesus Christ loved us from before the foundation of the world. We believe that His love is no passion of modern date--no mere spasm of pity. It is ancient as His Glory which He had with the Father before the world was--it is one of the things of eternity. This Divine Love is not a spring that welled up only a few days ago, but it is an everlasting fountain which has never ceased to flow!

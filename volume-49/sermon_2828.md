@@ -1,12 +1,5 @@
 # Sermon 2828 | Startling!
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 26, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE LORD'S-DAY EVENING, IN THE SUMMER OF 1861.
-
 "And Hazael said, Why does my lord weep? And he answered, Because I know the evil that you will do unto the children of Israel...And Hazael said, But what, is your servant a dog, that he should do this great thing?" 2 Kings 8:12,13.
 
 I SUPPOSE that none of us can doubt that Hazael acted with perfect freedom when he became the murderer of his master. Surely no one would dare to suggest that any constraint was put upon him. The glittering prospect of wearing the crown of Syria was before his eyes. Nothing stood between him and the kingdom but the life of his master. That master lies sick of a fever. A wet cloth is the usual remedy. He has but to select one that shall be thicker than usual and take care, in spreading it over his face, to place it so that the man is suffocated, and, lo, Hazael comes to the throne! What wonder is it that Hazael easily puts his master out of the way and then mounts the vacant seat? None of us will imagine for a moment that he was under constraint unless it was Satanic and yet, while he acted as a free agent, is it not quite clear that God foreknew what he would do and that it was perfectly certain that he would destroy his master? The Prophet speaks not as one who hazarded a conjecture. He foresaw the event with absolute certainty, yet did Hazael act with perfect freedom when he went and fulfilled the prophecy of Elisha.

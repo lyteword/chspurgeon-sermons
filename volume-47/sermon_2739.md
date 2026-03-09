@@ -1,12 +1,5 @@
 # Sermon 2739 | "I Have Enough"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 11, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 9, 1880.
-
 "Esau said, I have enough. Jacob said, I have enough." Genesis 33:9,11.
 
 IT is a very rare thing to meet with people who say that they have enough, for those who have most generally desire more, and those who have little feel that contentment is a thing which cannot reasonably be expected from them. For any person honestly and truthfully to say, "I have enough," is so unusual a circumstance that I do not remember having heard it often. I have done so a few times, at long intervals. This being the case as a rule, it is very remarkable that there should be, in this chapter, a record of two persons who each said, "I have enough." It is specially noteworthy that this was said by two brothers, for, generally, if one of two brothers is contented, the other is of quite a different disposition. One may be of a very happy and easy-going spirit, but the other possesses enough worry and care to have stocked the two. But here are two brothers, twins, yet each one says, "I have enough."

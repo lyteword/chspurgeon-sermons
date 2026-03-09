@@ -1,12 +1,5 @@
 # Sermon 2750 | A Door of Hope
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 27, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE AUTUMN OF 1859.
-
 "The Valley ofAchor as a door of hope." Hosea 2:15.
 
 A CHRISTIAN must walk by faith, not by sight. The way to Heaven is not one which is to be trodden by the carnal foot of the man who must see before he can believe. It is a dark way to those who have not the eyes of faith. It is a way through the air, utterly inaccessible to those who have not faith's wings. It is a way upward, quite impassable to the man who has not faith's ladder. The way through this world, under the guardianship of God, and upward to the eternal Home of the faithful is by faith and not by sight. Yet, nevertheless, the Lord is pleased to humor our weakness and our frailties--albeit that we would be quite as safe if we had to walk by faith in the dark--as we are when we walk in the light of the supernatural inward sight of faith, still seeing a brighter light than that which glistens around us. Yet it does please God to give us, in this wilderness, comfortable tokens and sure evidences by which we are enabled to understand, even by reason, judgment and sense, that we are His reconciled people. When God withholds the Presence of His comforting Spirit, or when the sunlight of His Countenance is taken from us, we are, nevertheless, quite safe, for then we are enabled to cling to Christ in the dark with the arms of faith--but God often gives us more than is absolutely necessary-- He gives us glimpses of Heaven while here below and rich spiritual enjoyment while we are in this otherwise barren land.

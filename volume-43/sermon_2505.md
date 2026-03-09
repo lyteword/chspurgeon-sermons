@@ -1,12 +1,5 @@
 # Sermon 2505 | Deliverance From the Pit
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 21, 1885.
-
 "Then He is gracious unto him, and says, Deliver him from going down to the Pit: I have found a ransom." Job 33:24.
 
 LET it never be forgotten that in all that God does, He acts from good reasons. You observe that the text, speaking of the sick man, represents God as saying, "Deliver him from going down to the Pit: I have found a ransom." If I understand the passage as relating solely to a sick man and take the words just on the natural common level where some place them, I would still say that the Lord, here, gives a reason why He suspends the operations of pain and disease and raises up the sufferer--"I have found a ransom." There is always a reason for every act of Grace which God performs for man. He acts sovereignly and, therefore, He is not bound to give any reason for His actions, but He always acts wisely and, therefore, He has a reason for so acting. Writing to the Ephesians, the Apostle Paul says that God "works all things after the counsel of His own will." It is not an arbitrary will, but a will arising out of the wisdom and holiness of His Character. So God has a reason for raising men up from their sickness, but that reason is not found in them, but in Himself. The sick man does not give God a reason for restoring him, but God finds it, Himself. "I have found a ransom." Possibly, the man does not even know the reason for his restoration--he may be so blind of heart that he does not care to think whether there is any reason for it or not--but God finds a reason for His mercy and finds it entirely in Himself. He is gracious to whom He will be gracious and He has compassion on whom He will have compassion. So let each one of us think, "If I have been raised from sickness. If my life, which was almost gone, has been spared, I may not know why God has done it, but certainly He has done it in infinite wisdom and compassion. And it is only right for me to feel that a life which has been so remarkably prolonged ought to be entirely dedicated unto Him who has prolonged it."

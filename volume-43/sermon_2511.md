@@ -1,12 +1,5 @@
 # Sermon 2511 | Brought Out to Be Brought In
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 4, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 6, 1886.
-
 "He brought us out from there, that He might bring us in, to give us the land which He swore unto our fathers." Deuteronomy 6:23.
 
 OUR text occurs in the passage where the Israelites are told to personally instruct their children concerning the testimonies and statutes and judgments of the Lord. When they asked the meaning of the various ordinances of God's House, their parents were to tell them--not to refer them to the priest--they were, themselves, to instruct their children in the things of God. In our own case, however much we may love and appreciate the Sunday school system--and we cannot love it too much--I hope we shall never forget that the first duty towards the child belongs to the parent. Fathers and mothers are the most natural agents for God to use in the salvation of their children. I am sure that, in my early youth, no teaching ever had such an impression upon my mind as the instruction of my mother--neither can I conceive that to any child there can be one who will have such influence over the young heart as the mother who has so tenderly cared for her offspring.

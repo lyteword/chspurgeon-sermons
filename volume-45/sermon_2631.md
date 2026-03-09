@@ -1,12 +1,5 @@
 # Sermon 2631 | Israel's Cry and God's Answer
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 16, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 23, 1882.
-
 "And it came to pass in process of time that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage. And God heard their groaning, and God remembered His Covenant with Abraham, with Isaac, and with Jacob. And God looked upon the children of Israel, and God had respect unto them...Now therefore, behold, the cry of the children of Israel has come to Me: and I have also seen the oppression with which the Egyptians oppress them. Come now, therefore, and I will send you to Pharaoh, that you may bring forth My people, the children of Israel, out of Egypt." Exodus2:23-25; 3:9,10.
 
 GOD had chosen the children of Israel, and He had determined to make of them a great nation and a peculiar people to whom He could communicate the Law and the Testimony, that they might keep the heavenly lamp burning until Christ should come. Jacob and his family had gone down into Egypt and, for a long time, they and their descendants were very happy there. The land of Goshen was very fruitful and the Israelites were greatly favored by the Egyptian king. The mass of them, therefore, had little thought of ever leaving that country--they resolved that they would settle there permanently. In fact, though God would not have it so, they became Egyptians as much as they could. They were a part of the Egyptian nation and they began to forget their separate origin. In all probability, if they had been left to themselves, they would have been melted and absorbed into the Egyptian race and lost their identity as God's special people. They were content to be in Egypt and they were quite willing to be "Egyptianized." To a large degree, they began to adopt the superstitions, idolatries and iniquities of Egypt. And these things clung to them, in later years, to such a terrible extent that we can easily imagine that their heart must have turned aside very much towards the sins of Egypt. Yet, all the while, God was resolved to bring them out of that evil connection. They must be a separated people--they could not be Egyptians, nor yet live permanently like Egyptians, for Jehovah had chosen them for Himself, and He meant to make an abiding difference between Israel and Egypt.

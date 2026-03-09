@@ -1,12 +1,5 @@
 # Sermon 2584 | Place for the Word
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 21, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 8, 1883.
-
 "My Word has no place in you." John 8:37.
 
 This was very plain speaking on the part of the Lord Jesus Christ. He could not only read the thoughts of these Jews, but He could also tell the source of them. He not only knew their feelings towards Himself, even before they expressed them, but He also knew why they had such feelings. Our Lord is not here, now, in bodily Presence, but He is here by His Spirit. He knows those who have received His Word, and He looks with gracious approval upon them. If you have given it entrance into your heart, thank Him for it and take care that you retain it--and that you permit it to influence your whole life. Let His Word be in you as salt to preserve you and as light first shining into you--and then, streaming from you--let it make your life a blessing to all those who are around you! My Master is glad as He looks upon everyone here who has received His Word. Precious is that coffer which holds the priceless treasure of the Word of Christ. Your body is precious to Him, your soul is precious to Him when He can see that sacred deposit of His own Word abiding within you!

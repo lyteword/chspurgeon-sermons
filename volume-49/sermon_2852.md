@@ -1,12 +1,5 @@
 # Sermon 2852 | Comfort for the Fearful
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 18, 1877.
-
 "He said unto them, Why are you fearful, O you of little faith?" Matthew 8:26.
 
 THE winds were howling, the waters were roaring and the disciples thought that the little ship must surely be engulfed in the raging sea, so they awakened their Master from His sorely-needed sleep and cried to Him, "Lord, save us! We are perishing." Note well the first words that He speaks to His frightened followers. Generally, when a man is in trouble, it is best, first, to help him out of it if we can, and then to give him any rebuke that he may deserve. Yet we may be quite sure that our Lord Jesus Christ followed the wisest order in every case. Being awakened because there was danger, He dealt first with the chief cause of danger--what was that? Not the winds or the waves, but the disciples' unbelief! There is always more peril, to a Christian, in his own unbelief than in the most adverse circumstances by which he may be surrounded. Our Lord did not first rebuke the winds and waves--and then speak to the disciples--He first dealt with the chief peril by rebuking their unbelief.

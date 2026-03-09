@@ -1,12 +1,5 @@
 # Sermon 2490 | The Danger of Carnal Security
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 8, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 10, 1886.
-
 "Then the five men departed, and came to Laish, and saw the people that were there, how they dwelt carelessly, after the manner of the Sidonians, quiet and secure; and there was no magistrate in the land, that might put them to shame in anything; and they were far from the Sidonians, and hadno business with any man...And they took the things which Micah had made, and the price at which he had, and came to Laish, to a people that were quiet and secure: and they smote them with the edge of the sword, and burned the city with fire. And there was no deliverer, because it was far from Sidon, and they hadno business with any man." Judges 18:7,27,28.
 
 I HAVE for this evening's discourse what some of you may consider to be rather an amazing text. Let me, therefore, begin by briefly stating the circumstances surrounding it.

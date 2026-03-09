@@ -1,12 +1,5 @@
 # Sermon 2681 | Covenant Blessings
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 1, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE SUMMER OF 1858.
-
 "He has given meat unto them that fear Him: He will always be mindful of His Covenant." Psalm 111:5.
 
 THIS verse occurs in one of the Hallelujah Psalms, that is, those commencing with "Praise you the Lord." We often find the Psalmist praising and extolling God--let us imitate his example. Let us do so because we shall find it very pleasant and profitable and because, also, it is our bounden duty. One of the highest exercises of the new life is praising God! Our doubts and fears are indications of life, for the dead man neither doubts nor fears. But our songs of praise are far higher demonstrations of the life within and are more worthy fruits of a soil which has been the subject of God's husbandry, which has been plowed by the agonies of the Savior and made fertile through His precious blood. My Brothers and Sisters, our life should be one continuous Psalm with here and there a note descending very deep! Yet we should always seek to sing as we live. The stars sing as they shine and they sing by shining. Let us sing while we live and live by singing--and let our life be perpetually singing one great Psalm!

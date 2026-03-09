@@ -1,12 +1,5 @@
 # Sermon 2799 | The Church Encouraged and Exhorted
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 5, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 27, 1878.
-
 "Bring My sons from far, and My daughters from the ends of the earth." Isaiah 43:6.
 
 IF YOU will look at the connection of these words, you will see that they were spoken with the view of encouraging the Church--"Fear not: for I am with you: I will bring your seed from the East, and gather you from the West; I will say to the North, Give up; and to the South, keep not back: bring My sons from far, and My daughters from the ends of the earth." The Lord loves His Church and He loves to see her full of courage and confidence, but, sometimes, her ministers appear to labor in vain and to spend their strength for nothing. The services in connection with the various agencies of the Church appear to be like plowing upon a rock. The bread is cast upon the waters, according to the Lord's command, but it is not found again even after many days have passed away. At such times the Church begins to tremble--she is full of fear. She cannot give up her mission which is the enlightenment of the world, but she is very apt to continue in it with a faint and feeble heart and, consequently, to do what she is doing as a matter of mere routine, with very little zeal, or love, or hope, or joy.

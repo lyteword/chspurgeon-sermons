@@ -1,12 +1,5 @@
 # Sermon 2566 | A Test for True Seekers
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 17, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 15, 1883.
-
 "They shall ask the way to Zion with their faces toward it." Jeremiah 50:5.
 
 This prophecy of Jeremiah was concerning the destruction of Babylon. Israel and Judah had been carried away into captivity by the domineering power. The captives lived far away in Babylon and wept when they remembered Zion. The Prophet foretells that in the day when God should break the power of Babylon and cast down all their false gods, then should come the time when the captives should return to their own land. That seems a very simple observation, but it is full of comfort when we remember its symbolic meaning. By nature, all are captives under the power of Satan, sin and death. That is the great Babylon that has carried captive even the elect of God! And there are multitudes, redeemed with the precious blood of Christ, who are still in bondage under the powers of darkness. Now, just as Israel found comfort and hope, and had an expectation of getting back to the promised land when the might of Babylon was broken, so there is comfort for every sinner who desires to escape from the power of sin and Satan in this great fact--that Christ has broken the power of the old dragon. They met in deadly combat. All the hosts of Hell were mustered in that dark and dreadful hour when our lone Champion, whom God had anointed that He might fight our battles, met the whole of them and overthrew them! They bruised His heel, for He left His body bleeding on the Cross, but He broke the head of the archenemy. As He cried, "It is finished," He dashed to pieces the powers that were arrayed against Him--and Babylon was then and there overthrown! Here is our hope.

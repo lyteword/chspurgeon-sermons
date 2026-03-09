@@ -1,12 +1,5 @@
 # Sermon 2760 | A King Sent in Love
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 5, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 14, 1879.
-
 "Then Hiram the king of Tyre answered in writing, which he sent to Solomon, Because the LORD has loved His people, He has made you king over them." 2 Chronicles 2:11.
 
 I THINK that you must have been struck with the deeply religious tone of the communications which passed between Solomon and Hiram. I am inclined to think that Hiram must have been a proselyte to the faith of Israel. At any rate, the dispatches between these two neighboring kings contain very gracious references to Jehovah and His dealings with His ancient people. Not that I recommend that the dispatches which are sent now between kings should be of a similar character, for that would be a piece of beggarly hypocrisy! What has God to do with the most of them? And what has He to do with the transactions of modern times, in which the invasion of countries by the more powerful is perpetually being justified by the laws of politics which seem to be the very reverse of the Laws of God? Oh, that better times might come, when kings would rule in righteousness! One almost despairs of them, but, at any rate, there is a King coming who will rule in righteousness! Make no delays, O our God!

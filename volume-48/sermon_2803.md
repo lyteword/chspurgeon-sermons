@@ -1,12 +1,5 @@
 # Sermon 2803 | The Saddest Cry From the Cross
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 2, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 7, 1877.
-
 "And about the ninth hour Jesus cried with a loud voice, saying, Eli, Eli, lama Sabachthaani? That is to say, My God, My God, why have You forsaken Me." Matthew 27:46.
 
 DURING the time that "Moses kept the flock of Jethro, his father-in-law," he, "came to the mountain of God, even to Horeb," and there he saw a strange sight--a bush that burned with fire and yet was not consumed! Then Moses, apparently overtaken by curiosity, was drawing near in order to examine this phenomenon when he heard God's voice say to him, "Draw not near here: take off your shoes from your feet, for the place where on you stand is holy ground." We also may well feel, as we think of our Lord Jesus in His agony, that the voice of God speaks to us from the Cross and says, "Curiosity--bold, daring, prying intellect--draw not near here! Take off your shoes from your feet, for the place where on you stand is the very Holy of Holies unto which no man may come except as the Spirit of God shall conduct him."

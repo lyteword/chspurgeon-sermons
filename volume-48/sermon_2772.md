@@ -1,12 +1,5 @@
 # Sermon 2772 | The Minister's Trumpet Blast and Church Member's Warning
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 30, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1859-1860.
-
 "Set the trumpet to your mouth. He shall come as an eagle against the house of the LORD, because they have transgressed My Covenant, and trespassed against My Law. Israel shall cry unto Me, My God, we know You!" Hosea 8:1,2.
 
 WE do not use instrumental music in the worship of God because we consider that it would be a violation of the simplicity of our worship. We think it far better to hear the voices of Christian men and women than all the sounds which can be made by instruments. Yet I am sure there is no Christian here who would object to a minister who can play well upon an instrument and, indeed, a minister is good for nothing if he does not know how, spiritually, to give forth instrumental music! A true minister of Christ should know how to blow the ram's horn so that the walls of Jericho may be made to tremble and fall. He should understand how to play the harp, so that when any of you are disquieted, he may be to you as David was to Saul, and may drive away the evil spirits that trouble you. He should be able, also, to play upon the timbrel, and to lead you forth, sometimes, in the sacred song of joy and thanksgiving. He should be able to go forth like Miriam and cry aloud to you, and ask you to follow him while he says, "Sing unto the Lord, for He has triumphed gloriously."

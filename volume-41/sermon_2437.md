@@ -1,12 +1,5 @@
 # Sermon 2437 | Prayer, the Proof of Godliness
 
-
-INTENDED FOR READING ON LORD'S DAY, NOVEMBER 3, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 27, 1837.
-
 "For this cause shall everyone thatis godly pray unto You in a time when You may be found." Psalm 32:6.
 
 ALL men are not godly. Alas, the ungodly are the great majority of the human race! And all men who are, to some extent, godly, are not equally godly. The man who fears God and desires to truly know Him has some little measure of godliness. The man who has begun to trust the Savior whom God has set forth as the great Propitiation for sin has a blessed measure of godliness. The man whose communion with God is constant, whose earnest prayers and penitential tears are often observed of the great Father, and who sighs after fuller and deeper acquaintance with the Lord--this man is godly in a still higher sense. And he who, by continual fellowship with God has become like He, upon whom the image of Christ has been photographed, for he has looked on Him so long and rejoiced in Him so intensely--he is the godly man! The man who finds his God everywhere, who sees Him in all the works of his hands. The man who traces everything to God--whether it is joyful or calamitous--this is the godly man. The man who looks to God for everything, takes every suit to the Throne of Grace and every petition to the Mercy Seat--the man who could not live without his God, to whom God is his exceeding joy, the help and the health of his countenance, the man who dwells in God--this is the godly man. This is the man who shall dwell forever with God, for he has a Godlike-ness given to him and, in the Lord's good time, he shall be called away to that blessed place where he shall see God and shall rejoice before Him forever and ever!

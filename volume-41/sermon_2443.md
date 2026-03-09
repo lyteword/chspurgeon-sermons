@@ -1,12 +1,5 @@
 # Sermon 2443 | The Determination of Christ to Suffer for His People
 
-
-INTENDED FOR READING ON LORD'S DAY, DECEMBER 15, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "And they ga ve Him to drink wine mingled with myrrh: but He received it not."
 
 Mark 15:23.

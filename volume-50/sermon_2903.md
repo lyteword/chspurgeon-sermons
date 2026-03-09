@@ -1,12 +1,5 @@
 # Sermon 2903 | Sleepers Awakened
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 29, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 27, 1876.
-
 "But Jonah was gone down into the lowest part of the ship; and he lay there and was fast asleep." Jonah 1:5.
 
 WE are told before this fact is mentioned that the Lord sent out a great wind into the sea to overtake the ship in which Jonah was sailing for Tarshish. The great wheels of Providence are continually revolving in fulfillment of God's purposes concerning His own people. For them winds blow and tempests rise. It is a wonderful thing that the whole machinery of Nature should be made subservient to the Divine Purpose of the salvation of His redeemed! I was in a diamond-cutting factory at Amsterdam and I noticed that were huge wheels revolving and a great deal of power being developed and expended. But when I came to look at the little diamond--in some cases a very small one, indeed--upon which that power was being brought to bear, it seemed very remarkable that all that power should be concentrated upon such a little, yet very precious object! In a similar style, all the wheels of Providence and Nature, great as they are, are brought to bear by Divine skill and love upon a thing which appears to many people to be of trifling value, but which is to Christ of priceless worth--namely, a human soul!

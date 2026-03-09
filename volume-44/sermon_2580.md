@@ -1,12 +1,5 @@
 # Sermon 2580 | Partnership With Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 24, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 29, 1883.
-
 "God is faithful, by whom you were called into the fellowship of His Son Jesus Christ our Lord." 1 Corinthians 1:9.
 
 PAUL is here arguing for the safety, the perseverance and the ultimate perfection of the saints to whom he is writing. He thanks God for what He has done for them and is assured that He will do yet more--that He will certainly confirm them unto the end--that they may be blameless in the day of Jesus Christ. The Apostle bases his argument upon this Truth of God--"God is faithful, by whom you were called into the fellowship of His Son Jesus Christ our Lord." And, Brothers and Sisters, this is good argument--to reason as to the future from the present and the past!

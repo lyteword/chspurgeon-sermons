@@ -1,12 +1,5 @@
 # Sermon 2472 | The Best of the Best
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 5, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 19, 1881.
-
 "I am the rose of Sharon, and the lily of the valleys." Song of Solomon 2:1.
 
 THE time of flowers has come and as they are in some faint degree, emblems of our Lord, it is well, when God thus calls, that we should seek to learn what He desires to teach us by them. If nature now spreads out her roses and her lilies, or prepares to do so, let us try not only to see them, but to see Christ as He is shadowed forth in them. "I am the rose of Sharon, and the lily of the valleys." If these are the words of the Well-Beloved--and I have no doubt that they are--then it may be suggested by some that here we have the Savior praising Himself--and it is true--but in no unworthy sense, for well may He praise Himself since no one else can do it as it should be done! There is no human language that can ever set forth His beauties as they deserve to be told. As good John Berridge says--

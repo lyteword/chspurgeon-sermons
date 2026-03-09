@@ -1,12 +1,5 @@
 # Sermon 2498 | A Portrait No Artist Can Paint
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 3, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 26, 1885.
-
 "He had in His right hand seven stars: and out of His mouth went a sharp two-edged sword: and His countenance was as the sun shines in its strength." Revelation 1:16.
 
 WHILE reading this description given by John of what he saw in the isle called Patmos, I think you must have noticed that it would be quite impossible for any painter to depict it upon canvas and, equally impossible for any sculptor to embody it in stone or marble. Those who have attempted to copy the lines here given have signally failed--they may paint a picture of the garment down to the feet and the golden girdle--but the rest, if it is viewed from an artist's aspect, would be found to be incongruous. "His head and His hairs were white like wool, as white as snow, and His eyes were as a flame of fire." No great painter would ever venture to give us a portrait of our Lord with His head and His hair, "white like wool, as white as snow." If he did, it would be quite impossible to depict eyes that were "as a flame of fire." How would it be possible to make us realize, with the aid of any pen or pencil, that His feet were "like unto fine brass, as if they burned in a furnace"? The task would have to be given over as quite hopeless when it reached this point--"He had in His right hand seven stars: and out of His mouth went a sharp two-edged sword: and His countenance was as the sun shines in its strength."

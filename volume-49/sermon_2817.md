@@ -1,12 +1,5 @@
 # Sermon 2817 | Jacob's Fear and Faith
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 8, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 21, 1877.
-
 "Deliver me, Ipray, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, and the mother with the children. And You said, I will surely do you good, and make your seedas the sand of the sea, which cannot be numbered for multitude." Genesis 32:11,12.
 
 JACOB is the type of a Believer who has too much planning and scheming about him. He is a wise man according to the judgment of the world. Put him down by the side of Laban and if his relative tries to stint him in his wages and to cheat him in all manner of ways, you will see that Jacob, in the long run, will get even with Laban. He seems to have been able to deal, even with that con-man, quite as sharply and not to come off second best in the bargain! Abraham never descended to any of the tricks by which Jacob sought to increase his flocks. He lived like a princely man in simple, childlike confidence in God, willing to be injured rather than to seek his own interests, letting Lot, though a younger man, choose the best part of the land and being quite content to take whatever remained. Because God was with him as his portion, he had no hunger after anything else. He was worth fifty thousand of such kings as the king of Sodom and though he had a right to the spoils of war, he waived them, saying, "I will not take from a thread even to a shoelace. I will not take anything that is yours lest you should say, 'I have made Abram rich.'"

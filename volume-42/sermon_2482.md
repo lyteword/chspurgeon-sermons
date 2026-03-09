@@ -1,12 +1,5 @@
 # Sermon 2482 | An Unparalleled Cure
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 13, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1886.
-
 "As they went out, behold, they brought to Him a dumb man possessed with a devil. And when the devil was cast out, the mute spoke: and the multitudes marveled, saying, It was never seen like this in Israel" Matthew 9:32,33.
 
 As we read the chapter we noticed the rapidity with which the cures worked by the Savior followed each other, how much of mercy was compressed into a short space of time. He has no sooner healed the paralytic than, straightway, we find Him curing the woman who had an issue of blood, then raising to life the ruler's dead daughter and next giving sight to two blind men, then quickly after that, healing this poor man who was deaf and dumb--and possessed with a devil. Matthew seems to call attention to this succession of cures--"As they went out, behold, they brought to Him a dumb man possessed with a devil." The blind men disposed of, here is a dumb demoniac ready for the great Physician's hands. No sooner is one act of mercy done than there is another person needing an equal display of Grace and power-- and the Savior at once goes to the task and heals again, again, again and yet again! What an inexhaustible fullness there is in Christ! He can bless and bless, and bless, and bless and still remain as full of blessing as ever.

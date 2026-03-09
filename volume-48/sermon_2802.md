@@ -1,12 +1,5 @@
 # Sermon 2802 | Lukewarmness
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 26, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1860-61.
-
 "Iknowyour works, that you are neither cold nor hot: I would you were cold or hot. So then, because you are lukewarm, and neither cold nor hot, I will vomit you out of My mouth." Revelation 3:15,16.
 
 IF this had been an utterance of mine, it would have been accounted vulgar. As a sentence of Scripture, I suppose it may be permitted to escape the censure of fastidious modern critics. The vernacular tongue and the homely figure may be decried as vulgarities, but if so, it will be by those whose tastes have been ill-schooled. A vicious refinement has come into vogue. If men call things by their right names and use good old Saxon words, they are perpetually brought under the lash for having indulged in vulgarities. A return to such "vulgarities" in the pulpit would be a return to power! I would far rather have, again, the homely language of Hugh Latimer, with all it singularity--and, I must confess, with some of its grossness--than have the namby-pamby style of modern times in which sacred things are spoken of as if they were only meant to be whispered in drawing rooms and not to be uttered where men meet in everyday life. The fact is, the Bible is a book which deals with things as they are--a book which, just like all of God's works, is glorious because it is natural and simple. God has not polished the rocks in the valleys. He has not set the mountains all in order, nor has He yet been pleased to make all parts of the earth just as fair and beautiful as if they had been intended to form a lovely landscape! But, at least, in some places He has hewn them out and left them rough and rugged--to stand in all their naked glory. So is it with this Book of God. There are things in it at which the too-polite shrug their shoulders--not so many, perhaps, in the original as in our translation--but still, sufficient to shock a prudish taste. The Bible is, none the less, chaste because it scorns to call foul things by fair names. I love the Word of God because, while it is a God-like Book, it is also a man-like Book. In all the Glory of His Infinite Wisdom, the Lord has written to us this Divine message in the rugged grandeur and sublime simplicity of language which even a child can comprehend!

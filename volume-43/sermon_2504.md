@@ -1,12 +1,5 @@
 # Sermon 2504 | Jonah's Object-lessons
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 14, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 11, 1885.
-
 "And the LORRD God prepared a gourd, and made it to come up over Jonah, that it might be a shadow over his head, to deliver him from his grief. So Jonah was exceedingly glad for the gourd. But God prepared a worm when the morning rose the next day, and it smote the gourd that it withered. And it came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, It is better for me to die than to live." Jonah 4:6-8.
 
 I WANT to lay the stress especially upon these three sentences in my text--

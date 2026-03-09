@@ -1,12 +1,5 @@
 # Sermon 2582 | Alto and Bass
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 7, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 1, 1883.
-
 "He has filled the hungry with good things; and the rich He hats sent away empty." Luke 1:53.
 
 THIS song of Mary is full of sweet Gospel teaching. She was evidently a woman well instructed in Divine Truth and, though but young in years, she must have been deeply experienced in the things of God. Notice how she casts the Truth of God into the form of song--there is a wisdom in this, for we are to teach and admonish one another, "in Psalms, and hymns, and spiritual songs." Truth is never more likely to abide in the memory and to impress the heart than when it is delivered in verse. Both the ears of men and the minds of men delight in rhyme and rhythm--memory grasps and retains Truth more readily when it is put into poetic form than in any other. Therefore they do well who enrich the Church with "Psalms, and hymns, and spiritual songs." And you who cannot make songs will do equally well if you sing them! Let us set the Gospel to music! Let us especially do this in our daily life. I think that the Doctrines of Grace were never intended to be made into a dirge, but they make a most heavenly marriage song. The great Truths of the Gospel were never meant to be told with dolorous tones as if they were sad solemnities, but they are meant to fill us with delight--and if they thoroughly permeate our nature, they will turn our whole life into a hallelujah and make every breath a verse of a sonnet that shall know no end! Whenever you feel most glad in the things of God, be sure you do as Mary did--sing out your gladness and make the people of God know that the things of Christ are things of joy to you. Obey the poet's injunction--

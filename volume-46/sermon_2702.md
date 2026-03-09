@@ -1,12 +1,5 @@
 # Sermon 2702 | "Marvelous Loving Kindness"
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 25, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 20, 1881.
-
 "Show Your marvelous loving kindness." Psalm 17:7.
 
 THE Lord's people, in the time of their trouble, know where to go for comfort and relief. Being taught of God, they do not hew out for themselves broken cisterns which can hold no water, but they turn to the ever-flowing Fountain, they go to the Wellhead--even to God Himself--and there they cast themselves down and drink to the full. David, when he wrote this Psalm, was evidently in very great distress and, therefore, he says, "I have called upon You, for You will hear me, O God: incline Your ear unto me, and hear my speech." What he needed was his God, as Dr. Watts expresses it--

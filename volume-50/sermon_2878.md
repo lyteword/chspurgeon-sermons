@@ -1,12 +1,5 @@
 # Sermon 2878 | Good Cheer for the Needy
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 7, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 16, 1876.
-
 "For the needy shall not always be forgotten: the expectation of the poor shall not perish forever." Psalm 9:18.
 
 These words will fall upon different ears with quite different effects. If any of you are, in the Scriptural sense, "poor and needy," God the Holy Spirit will enable you to see much in these gracious sentences, but if you fancy that you are "rich, and increased with goods, and have need of nothing," you will care nothing whatever for such words as these. You know right well that the value of a text to any soul depends upon the condition of that soul. I know not how many stars may be visible at the present moment. I do not think that I even looked up at them before I came here and, perhaps, you have not. But to the mariner, who needs to know his position when far out upon the sea, even one lone star gleaming amid the clouds may be very precious. So, if you are among the poor and needy ones, the Light of God in this text will be most joyful to your heart! But if you are not among them, perhaps you will scarcely condescend to look up to see its light. When Richard I was shut up within the gloomy walls of a foreign prison, you remember that he heard a song sung by his faithful friend who was traversing all Europe, as a troubadour, to try to find him. There were many ears that heard that strain and, possibly, some of the listeners had noticed the sweetness of the music--yet there was nothing very special in it to them. But the imprisoned king, when he heard that song, could sing the refrain to it and, therefore, it had a peculiar value to him, for it re-opened his communion with the world outside and ultimately led to his release! So, it may be that my text has a refrain that you do not know, and if it is so, you will not care for it. But if your heart is very poor--if you are consciously very needy--if you are reduced to spiritual destitution, then these simple words, "The needy shall not always be forgotten: the expectation of the poor shall not perish forever," will awake echoes in your soul which will be the means of bringing you great joy!

@@ -1,12 +1,5 @@
 # Sermon 2821 | "Until He Finds It"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 8, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 28, 1877.
-
 "Until he finds it." Luke 15:4.
 
 IT was not just anybody who went after the sheep that was lost--it was the person to whom the lost sheep belonged. Our Savior said, "What man of you, having a hundred sheep, if he loses one of them, does not leave the ninety and nine in the wilderness and go after that which is lost, until he finds it?" The man was not a hunter, looking after wild game that was not his, in order to make it his by capturing it, but he was a sheep-master--one who owned the sheep, going out to find what was already his own property. This is one of the great secrets that explain the care of the Good Shepherd--in looking for the lost sheep, He is caring for that which is His own. He says of them, in His great intercessory prayer to His Father, "Yours they were, and You gave them to Me." Long before this world was created, or stars began to shine, even in the eternal ages of the past, God had given to His beloved Son a people who were then and there His by His Father's gift. In the fullness of time He redeemed them and so they became doubly His. Yet they were His, in plan and purpose, from eternity! They were, therefore, His when they wandered away from Him and His while they strayed further and yet further off from Him--yes, they were always His wherever they went! This Truth of God is well put by the writer of the lines we have so often sung--

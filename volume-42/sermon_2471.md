@@ -1,12 +1,5 @@
 # Sermon 2471 | The Best of All--god Is With Us
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 23, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 5, 1886.
-
 "Is not the LORD your God with you?" 1 Chronicles 22:18.
 
 WHILE we were reading this chapter you must all have been struck with the melting of one man's life into another. Here is David most anxious about the building of the Temple at Jerusalem--he is not permitted to erect it, himself, and, therefore, he sets to work with diligent care to gather together the gold and the silver, the brass and the iron, the timber and the stone that would be required. He also instructed the workmen who would be needed so that, when he was gone, and his son, Solomon, had ascended the throne, the Temple might be built. Did David live in vain? Can it be truly said that he failed in the grandest project of his life? Assuredly not! He did all that he was permitted to do and, by making those elaborate preparations, he was really the means of the building of the Temple.

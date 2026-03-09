@@ -1,12 +1,5 @@
 # Sermon 2453 | A Hard Case
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 23, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 18, 1886.
-
 "For God speaks once, yes twice, yet man perceives it not. In a dream, in a vision of the night, when deep sleep falls upon men, while slumbering on their beds; then He opens the ears of men, and seals their instruction, that He may withdraw man from his purpose, and hide pride from man. He keeps back his soul from the Pit, and his life from perishing by the sword." Job 33:14-18.
 
 HOW persevering is Divine love! "God speaks once." I have heard many a father say to his child, "Do not let me have to speak to you again." But the great Father has to speak again and when it is written, "God speaks once, yes twice, yet man perceives it not," we see how great is the stubbornness of the human heart! And we also see the gentleness of Divine love. When Elihu said, "God speaks once, yes twice," he meant that the Lord speaks repeatedly. Divine loving kindness has many voices. God often speaks to us in our childhood. Some of us hardly remember when first our Lord called us, as He called Samuel, saying, "Samuel, Samuel," and each for himself answered, "Here am I." We cannot forget the voices of our youth and boyhood--the messages that the Lord sent to us through loving parents and kind-hearted teachers, or the direct admonitions of the Holy Spirit. God spoke to us and spoke to us again, and spoke to us yet again--but we regarded not His voice. There are none so deaf as those who will not hear--and we were among those who would not hear even that voice to which Heaven and earth attend--that voice which even the dead will one day hear--when they that hear shall live!

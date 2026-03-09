@@ -1,12 +1,5 @@
 # Sermon 2515 | Something Worth Seeking
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 21, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 27, 1885.
-
 "But seek you first the Kingdom of God, and His righteousness; and all these things shall be added unto you." Matthew 6:33.
 
 THERE is just as much need of this exhortation today as there was when our Savior first uttered it. These are times in which fretful care is very apt to enter into the hearts of Believers and if our Lord were here in Person, now, He would admonish us to be rid of such care, for fretful care is not becoming in a child of God. It is so opposed to faith and to the life of God in the soul, that it ought to be struggled with and driven out. None of us who are trusting in Christ ought to allow ourselves to become the victims of it.

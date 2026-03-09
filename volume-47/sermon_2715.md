@@ -1,12 +1,5 @@
 # Sermon 2715 | Christian Resignation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 24, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
-
 "Not as I will, but as You will." Matthew 26:39.
 
 THE Apostle Paul, writing concerning our Lord Jesus Christ, says, "Though He were a Son, yet learned He obedience by the things which He suffered." He who, as God, knew all things, had to learn obedience in the time of His humiliation. He who is, in Himself, Wisdom Incarnate, did, Himself, condescend to enter the school of suffering--there we learn that important lesson of the Christian life--obedience to the will of God. And here, in Gethsemane's Garden, you can see the Divine Scholar going forth to practice His lesson. He had been, all His lifetime, learning it, and now He has to learn it for the last time in His agony and bloody sweat, and in His terrible death upon the Cross. Now is He to discover the utmost depths of suffering and to attain to the height of the knowledge of obedience. See how well He has learned His lesson! Note how complete and ripe a scholar He is! He has attained to the very highest class in that school and, in the immediate prospect of death, can say to His Father, "Not as I will, but as You will."

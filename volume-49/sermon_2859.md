@@ -1,12 +1,5 @@
 # Sermon 2859 | The Lions' Den
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O Daniel, servant of the living God, is your God, whom you serve continually, able to deliver you from the lions?" Daniel 6:20.
 
 THE empire of Babylonia and Chaldea passed into the hands of a new dynasty and king Belshazzar was slain in a night-assault upon his capital. On that very night, he had clothed Daniel in scarlet and made him the third ruler in the Kingdom. This was Providential, for, had Daniel been in obscurity, he would have been little likely to attract the notice of Darius. But, observing him in the palace, clothed in scarlet, Darius would naturally ask who he was and enquire into his antecedents. The fame of his wisdom would be quickly told and the fact of his having twice interpreted the dreams of Nebuchadnezzar, in former times, and of his having just then, with startling precision, foretold the downfall of Belshazzar and the capture of the city by the Medes and Persians, would be eagerly related. Hence it was not at all surprising that Darius took great notice of Daniel, weighed his character, observed his conduct and, after a while, exalted him to be prime minister of his realm.

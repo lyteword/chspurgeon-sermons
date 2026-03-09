@@ -1,12 +1,5 @@
 # Sermon 2782 | Love's Lamentation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 8, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 28, 1878.
-
 "I have loved you, says the LORD. Yet you say, In what way have You loved us?" Malachi 1:2.
 
 THE children of Israel had passed through great trouble, but all of it was brought upon them by their own sin. Yet, in their time of trouble, God had remembered them in the greatness of His Grace and mercy. They had been carried into captivity in Babylon and there they had wept when they remembered Zion. They had been scattered over the face of the earth, but God had heard their groans and had restored them to their own land and given them a period of peace and prosperity. But now that they were cured of idolatry, they fell into self-righteousness, indifference and worldly minded-ness. The ordinances of God's house were neglected, or, if they were attended too outwardly, it was in such a careless, heartless manner that God was insulted by their worship rather than adored thereby. For these reasons, new sorrows were caused to fall upon them, for, under the old dispensation, it was God's rule that His obedient people were a prosperous people--but whenever they wandered in heart away from Him, then they began to suffer. His message to them, by Moses, was, "If you will walk contrary unto Me, I will walk contrary unto you, also, in fury and I, even I, will chastise you seven times for your sins"--and so they found it. They were, therefore, now in a very sad condition, but they had no consciousness of the real cause of it. They were fretting and fuming against God instead of striking out boldly at their sins--complaining of the severity of the Divine chastisement rather than confessing the iniquity by which they had brought the rod upon themselves!

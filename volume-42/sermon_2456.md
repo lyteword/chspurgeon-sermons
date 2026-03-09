@@ -1,12 +1,5 @@
 # Sermon 2456 | The Lamb Our Leader
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 15, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 7, 1886.
-
 "These are they which follow the Lamb wherever He goes." Revelation 14:4.
 
 YOU, dear Friends who belong to the Tabernacle, are well acquainted with our venerable friend, George Rogers. It was a great joy to me to find him alive when I came home from the Continent. He said that he must keep on living till he had seen me once more, and then he hoped that he should go Home. That was a month ago, but yesterday I saw him again and he seemed to be greatly revived and refreshed. He has attained an extremely advanced age and it is only natural that he should soon go to his rest and reward. He remarked to me, yesterday, that he had bid farewell to the world, entirely, and he did not wish to renew the acquaintance! He did not know why he should linger here any longer, for everything was finished and he was ready to depart. And then he said to me, in his cheery way, "I wonder whether I shall see that new Baptist Chapel completed." You know that he is not a Baptist, but a Congregationalist, yet he has been with us so many years that we always claim him!

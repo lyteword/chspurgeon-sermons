@@ -1,12 +1,5 @@
 # Sermon 2834 | Conceit Rebuked
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 17, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 5, 1877.
-
 "Should it be according to your mind?" Job 34:33.
 
 ELIHU thought that Job had spoken too boastfully and that there was too much of self about him and, therefore, he reproved him by asking this question, "Should it be according to your mind?" It is a question which, in the original, has a great wealth of meaning in it and, as the language of the Book of Job is extremely ancient and very terse, it is not easy to get the fullness of Elihu's meaning. But it has been said that upon the whole, our translation not only gives the meaning of his enquiry, but also more of the meaning than can be conveyed in any other words, so that we may be perfectly satisfied with it and may pray God the Holy Spirit to apply it to us. And if we have grown to be high and mighty, and have begun to criticize the way of God in dealing with us, this question may come to us very sharply, "'Should it be according to your mind?' Should everything be arranged just to suit your whims and wishes? Should everything in the world be fashioned according to your taste and the whole globe revolve just to serve you and please your fancy? Should it be according to your mind?'"

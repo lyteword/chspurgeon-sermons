@@ -1,12 +1,5 @@
 # Sermon 2640 | Comforted and Comforting
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 17, 1899,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 15, 1882.
-
 "Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforts us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God." 2 Corinthians 1:3, 4.
 
 THE Apostle was a much-tried man and he lived in an age when all Believers were peculiarly tried. The persecutions of that time were excessively severe and every man who called himself a Christian had to carry his life in his hands. In this tribulation, the Apostle had the largest share, because he was the most prominent and indefatigable teacher that the Church of Christ then possessed. We have, here, a little insight into his inner life. He needed comfort and he received it. And be had it in such abundance that he became a comforter of others. Although, without Christ, he would have been, "of all men most miserable," I think I may say that with Christ and the blessed hope of the Resurrection, he was among all men, one of the most happy.

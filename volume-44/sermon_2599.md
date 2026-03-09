@@ -1,12 +1,5 @@
 # Sermon 2599 | A Visit From the Lord
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 4, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT CHRIST CHURCH, WESTMINSTER BRIDGE ROAD, (during the renovation of the Tabernacle), ON THURSDAY EVENING, AUGUST 30, 1883.
-
 "O visit me with Your salvation." Psalm 106:4.
 
 THIS is the prayer of a man who understood the art of praise. He begins this Psalm with a Hallelujah. "Praise you the Lord. O give thanks unto the Lord, for He is good." Now, mark, there is no prayer that is purer, more spiritual, more heavenly than the prayer which comes out of a heart full of praise! How often have I said that prayer is the breathing in of the air of Heaven and praise is the breathing of it out again? Prayer and praise make up the best life of the Christian and he is not yet thoroughly in spiritual health who is all for prayer and not at all for praise--but he is the really healthy Christian who has these two things rightly balanced. Such a man one moment cries, "O give thanks unto the Lord, for He is good: for His mercy endures forever." And then, directly afterwards, prays, "Remember me, O Lord, with the favor that You bear unto Your people." Is it not possible, my dear Brothers and Sisters, that you have lost some of your power in prayer because you have somewhat neglected praise? If we do not bless God for the mercies we have received, how can we go and ask Him for more? If we have already been heard in our prayers and yet have failed to acknowledge our obligation to the Giver, do we not come to prayer with a very bad attitude? Might not God say to us, "You did not thank Me the last time I granted your request. Why should I answer you this time?" Let us, therefore, each one, take care that our prayer is the petition of one who can and who does praise the Lord.

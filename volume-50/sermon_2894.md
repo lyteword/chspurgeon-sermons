@@ -1,12 +1,5 @@
 # Sermon 2894 | The Sinner's Only Alternative
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 28, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
-
 "Now therefore come, let us surrender to the army of the Syrians: if they keep us alive, we shall live; and if they kill us, we shall but die." 2 Kings 7:4.
 
 OUTSIDE the gates of Samaria, at the time mentioned in our text, you might have seen four miserable beings, gaunt and thin, with that sharpness of eye and visage which is always the effect of protracted hunger. They were lepers, suffering from a loathsome disease and emaciated by starvation. They held, as it were, a miniature council of war, and the result of their deliberations was that they said to one another, "Why do we stay here to die? If we go into the city, even should we be permitted to remain there, famine is so rife that we would soon die. And if we continue to sit here, it is quite certain that we must pine away and perish. Let us go to the camp of the Syrians--here is a little hope in that direction, though it may be a very slender one. The Syrians may put us to death and so end our miseries. Perhaps death by the sword is preferable to death by famine--at any rate, we can but die in any case. Let us choose the desperate alternative-- let us take that course which, although it requires the greatest boldness, holds out some slight hope of success."

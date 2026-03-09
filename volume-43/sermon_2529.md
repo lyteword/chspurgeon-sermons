@@ -1,12 +1,5 @@
 # Sermon 2529 | Compassion on the Ignorant
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 8, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 3, 1884.
-
 "Who can have compassion on the ignorant, and on them that are out of the way." Hebrews 5:2.
 
 THE ignorant have need of compassion. "That the soul is without knowledge, it is not good." Every kind of ignorance, like darkness, is evil, and knowledge, which is light, is, according to its kind, good, or better, or best. For a man to be ignorant of Divine things is a very sorrowful piece of business. To be going into eternity and not to know anything about it--yes, and even to be passing through this life and yet to not know the way everlasting which leads to Glory, but to be stumbling upon the dark mountains of mere thought and vain imagination--this is a very dreadful thing! Ignorance of God, ignorance of the right, ignorance of Christ, ignorance of mercy, ignorance of Heaven--these are things for which men are to be blamed, but for which they are also to be pitied. Wherever we see ignorance about the things of God, let our hearts go forth in tenderness, but let our prayers arise to God in love--and let our efforts be made in true benevolence that the ignorance may be removed, for, if we are men of God like our Great High Priest, it will be true, also, of us that we "have compassion on the ignorant."

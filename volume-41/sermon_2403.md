@@ -1,12 +1,5 @@
 # Sermon 2403 | The Sweet and the Sweetener
 
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 10, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 6, 1887.
-
 "My meditation of Him shall be sweet." Psalm 104:34.
 
 THOSE OF YOU who were present this morning know that, with all my heart, and mind, and soul, and strength, I pleaded with men that they would come to Christ. [Sermon # 1951, Volume 33--The Pleading of the Last Messenger] If ever in my life I felt that I had spent every particle of my strength, I felt it when I had finished that discourse. I could have wished to die and end my ministry, with the testimony that I bore this morning. I know not in what way I could have more completely poured out my whole being in earnest desire for the conversion of my fellow men. I thought that it would not be possible for me to handle another subject in anything like the same fashion, tonight--I did not feel that I could do so. I said to myself, therefore, "Instead of preaching, instead of having anything to do that will cost much effort and cause much mental strain, I will just be one among the people and enjoy myself as a member of the congregation.

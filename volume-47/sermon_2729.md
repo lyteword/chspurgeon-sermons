@@ -1,12 +1,5 @@
 # Sermon 2729 | Christ's Transfigured Face
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 2, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1880.
-
 "His face did shine as the sun." Matthew 17:2.
 
 WHILE our Lord Jesus Christ was upon this earth, He was as much Divine as before He left His Father's court in Heaven. He never ceased to be God, nor was the Godhead for a single moment separated from His Humanity. He was, therefore, always glorious. Yet there was a greater Glory about Him than could usually be seen. This may seem to be a paradox, but it is true. For Christ to be glorious was almost a less matter than for Him to restrain or hide His Glory. It is forever His Glory that He concealed His Glory and that, though He was rich, for our sakes He became poor. Though He was God over all, blessed forever, He "made Himself of no reputation, and took upon Him the form of a servant, and was made in the likeness of men."

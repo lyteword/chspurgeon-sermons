@@ -1,12 +1,5 @@
 # Sermon 2560 | Universal Fatherhood--a Lie!
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 13, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 1, 1883.
-
 "I speak that which I have seen with My Father: and you do that which you have seen with your father." John 8:38.
 
 THESE were the words of Christ to those who beset Him round about with angry eyes and cruel tongues. Our Lord declared that He had been with His Father before He spoke with those wicked Jews. And, indeed, He had been, for He was with the Father before the worlds were formed. He saw all that the Father did and He helped in doing it--"Without Him was not anything made that was made." He was the Father's eternal delight. The relationship of father and son among man implies that one exists before the other, but it is not so implied in the relationship of the eternal Father and Son. We know not how to explain this great mystery, for the terms Father and Son are only the nearest approximation that can be given to our poor understandings of the relationship which exists between them. Yet is the Father eternal and the Son eternal--the Son coequal and coeternal with the Father. Our Lord had an existence before He was born of Mary--He had an everlasting existence. His goings forth were from of old, even from eternity. Though He is unto us the Child born and the Son given, yet He is equally, "the Everlasting Father," who was and is and ever shall be One with the eternal God.

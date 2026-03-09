@@ -1,12 +1,5 @@
 # Sermon 2428 | The Marriage Supper of the Lamb
 
-
-INTENDED FOR READING ON LORD'S DAY, SEPTEMBER 1, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 21, 1887.
-
 "And he said unto me, Write, 'Blessed are they which are called unto the marriage supper of the Lamb.'" Revelation 19:9.
 
 You will perceive that there was an exhortation to John to "Write." Why was he especially to write these words down? I conceive that it was, first, because the information here recorded was valuable--"Blessed are they which are called unto the marriage supper of the Lamb." It was worth while that this new beatitude should be recorded, so the angel of God said to the Apostle, "Write." It was also to be written because of its absolute certainty--"These are the true sayings of God." This blessedness was not a thing to be spoken of once and then to be forgotten, but it was to be recorded so that future ages might see that it is surely so, assuredly so beyond all question! God has bidden this record to be written in black and white, yes, engraved as with an iron pen and lead in the rock, forever--"Blessed are they which are called unto the marriage supper of the Lamb."

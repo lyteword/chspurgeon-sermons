@@ -1,12 +1,5 @@
 # Sermon 2539 | The Joy of Holy Households
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 17, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, In connection with the dedication of the Jubilee House, which commemorated the completion of the beloved Pastor's 50 year, June 19,1884.
-
 "The voice of rejoicing and salvation is in the tabernacles of the righteous: the right hand of the Lord does valiantly. The right hand of the Lord is exalted: the right hand of the Lord does valiantly." Psalm 118:15,16.
 
 A BELIEVER in Christ is not long without finding joy. He is in the land which flows with milk and honey and he will get a sip of sweetness very soon. Like Nicodemus, he comes to Jesus in the dark, but the sun is rising. When he casts himself at the foot of the Cross, his dawning has begun and, before long, he will walk in the Light of God--being justified by faith, he will have peace with God. And not only so, for he also learns to joy in God through our Lord Jesus Christ, by whom also he has received the Atonement. This joy is in him and abounds, so that he belongs to a happy people. It is true that all Believers are not equally happy, but they have, each one of them, a right to be exceedingly glad. Some float upon a flood-tide ofjoy, while others drift upon the ebb, but they are all in the same stream and it is bearing them on to the ocean of perfect happiness. All who trust in Christ as they ought to do, will find a measure of this joy springing up within them, keeping company with the new life which the Holy Spirit has created. Ours is peace which passes all understanding and joy unspeakable!

@@ -1,12 +1,5 @@
 # Sermon 2725 | Elijah Fainting
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 5, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 1, 1880.
-
 "He himself went a day's journey into the wilderness, and came and sat down under a juniper tree: and he requested for himself that he might die; and said, It is enough; now, O LORD, take away my life; for I am no better than my fathers." 1 Kings 19:4.
 
 WHEN we read the Scriptures in our youth, we are often astonished at the peculiar conditions in which we find even good men. It is difficult for us to understand why David could be in such sore distress and why such a man as Elijah could be so dreadfully downcast. As we get older and become more experienced, as trials multiply around us and our inner life enters upon a sterner conflict--as the babe grows to manhood and, therefore, is entrusted with heavier tasks, we can better understand why God allowed His ancient servants to be put into such peculiar positions, for we find ourselves in similar places--and we are relieved by discovering that we are walking along a path which others have traversed before us. It might puzzle us to tell why Elijah should get under a juniper bush. We can understand his attitude on Mount Carmel and comprehend his hewing the Prophets of Baal in pieces, but we ask, in perplexity, "What are you doing here, Elijah, under a juniper, or away there in a cave on the hillside?" But when we get under the juniper, ourselves, we are glad to recall the fact that Elijah once sat there--and when we are hiding away in the cave, it is a source of comfort to us to remember that such a man as this great Prophet of Israel was there before us. The experience of one saint is instructive to others. Many of those Psalms which are headed, "Maschil," or instructive Psalms, record the experience of the writer and, therefore, become the lesson book for others.

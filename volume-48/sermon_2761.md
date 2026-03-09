@@ -1,12 +1,5 @@
 # Sermon 2761 | The Free Agency of Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 12, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 21, 1879.
-
 "And He came to Bethsaida; and they brought a blind man to Him, and begged Him to touch him. So He took the blind man by the hand and led him out of the town. And when He had spit on his eyes and put His hands on him, He asked him ifhe saw anything. And he looked up and said, Isee men as trees, walking. After that Heput His hands again upon his eyes, and made him look up: and he was restored, and saw everyone clearly." Mark 8:22-25.
 
 THERE is a very wonderful variety in the miracles of our Lord Jesus Christ, and the variety is apparent even in the way in which men come to Him to partake of His blessing. With regard to the blind men to whom our Lord gave sight, we read of some that they were brought to Christ by their friends, as in the case of this man at Bethsaida, who was almost passive all the way through. His friends appear to have had more faith than he had and, therefore, they brought him to Jesus. There were other cases in which the blind men cried to Christ and, as far as they could, came to Him of themselves. Some of them even came to Him in the teeth of stern opposition, for, when the disciples upbraided one of them for crying out so loudly, he cried out the more loudly, "Son of David, have mercy on me." So that, you see, some were brought to Christ by their friends and others came to Him in spite of much opposition.

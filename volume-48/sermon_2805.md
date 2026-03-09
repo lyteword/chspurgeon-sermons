@@ -1,12 +1,5 @@
 # Sermon 2805 | "Life for a Look"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 16, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 22, 1877.
-
 "Look unto Me, and beyou saved, all the ends of the earth: for I am God, and there is none else." Isaiah 45:22.
 
 SINCE this text was blessed to my conversion many years ago, I have often preached from it, but, on this occasion I am not going to speak of it as a whole. There is only one thought that I shall endeavor to bring out of it and I intend to act as the gold-beaters do with the metal upon which they work, that is--beat it out very thin and, perhaps, when it covers a wide surface, some may be able to see it who have not previously perceived its preciousness and power.

@@ -1,12 +1,5 @@
 # Sermon 2502 | Grace and Glory
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 31, 1897-- THE FITH ANNIVERSARY OF THE BELOVED PREACHER'S ENTRANCE INTO "GLORY."
-
-DELIVERED BY C. H, SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, MAY 17, 1885.
-
 "The LORRD will give grace and glory." Psalm 84:11.
 
 WHEREVER, in the Old Testament, you see the word, "LORD," in capital letters, it ought to be read, "JEHOVAH," SO our text really is, "JEHOVAH will give grace and glory."

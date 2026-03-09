@@ -1,12 +1,5 @@
 # Sermon 2653 | The Head and the Body
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 17, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 6, 1882.
-
 "The head, even Christ: from whom the whole body fitly joined together and compacted by that which every joint supplies, according to the effectual working in the measure of every part, makes increase of the body unto the edifying of itself in love." Ephesians 4:15,16.
 
 IF I had to preach fully and accurately upon all that is taught in this text, I would certainly need to deliver a course of sermons, say five or six at least! There is such a wonderful depth of meaning in these Inspired Words that I might keep on expounding them and all the while be as one who takes water out of the sea--always wondering that there is so much more left than I can possibly draw from it. One writer says that the sense of this passage is as "compacted" as the joints of which it speaks, and that remark is a very true one, for here we have thought compressed as by hydraulic pressure! There is any quantity of it packed into the smallest possible space.

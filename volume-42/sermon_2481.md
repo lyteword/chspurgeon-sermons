@@ -1,12 +1,5 @@
 # Sermon 2481 | Faith Victorious
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 6, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 25, 1886.
-
 "Then Jesus went out from there and departed to the coasts of Tyre and Sidon. And, behold, a woman of Canaan came from that same region, and cried out to Him, saying, Have mercy on me, O Lord, Son of David, my daughter is grievously vexed with a devil. But He answered her not a word. And His disciples came and urged Him, saying, Sendher away; for she cries after us. But He answered and said, I am not sent but to the lost sheep of the house of Israel. Then she came and worshipped Him, saying, Lord, help me. But He answered and said, It is not good to take the children's bread, and to cast it to dogs. And she said, Truth, Lord: yet the dogs eat of the crumbs which fall from their masters' table. Then Jesus answered and said to her, O woman great is your faith: be it to you even asyou will. And her daughter was made whole from that very hour." Matthew 15:21-28.
 
 WE learn from this chapter, dear Friends, that our Master was tired of battling with hypocrites and formalists and, therefore, withdrew Himself from them. They had come to Him with their foolish charges that His disciples did not observe the traditions of the elders and they made a great fuss about meats, drinks, washing of hands and all sorts of trifles. The Savior spoke very effectively to them--what if I say that He fired His great gun once and for all and silenced them? He told them that the real defilement which rendered men unclean before God was not a matter of externals, but it concerned the heart--and that it was not that which entered into a man by way of meats and drinks which defiled him--but that which came out of him in his words and actions which were the result of the impure desires within his heart.

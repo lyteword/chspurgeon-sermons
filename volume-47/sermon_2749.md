@@ -1,12 +1,5 @@
 # Sermon 2749 | Rehoboam the Unready
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 20, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 11, 1879.
-
 "And he did evil, because he did not prepare his heart to seek the Lord." 2 Chronicles 12:14.
 
 You have probably noticed that, as a general rule, the sacred historians, at the end of each king's reign, sum up the character of the monarch and describe him as either doing evil in the sight of the Lord or doing that which was right in the sight of the Lord. They give a summary of his whole life in one or other of these sentences--and there will come a day when there will be a summary of your life, and mine--and when it is given, it will run on this wise, "He did evil in the sight of the Lord," or else on this blessed fashion, "He did that which was right in the sight of the Lord." There is no other course beside these two! These characteristics comprehend all of us and the summary given in our case, as it was in the case of Rehoboam, will be given with great accuracy. It will be Infallible and it will be irreversible. This man Reho-boam was not half as bad as some other kings, still, the Inspired historian was compelled to say, "He did evil." He was not such an obstinate and outrageous sinner as some were. He was not an Ahab. He was not even a Manasseh--he did not live as that king did in his evil time, yet, "he did evil." That is the summary of his whole career.

@@ -1,12 +1,5 @@
 # Sermon 2572 | Fellowship With Christ
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 29, 1893.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, EARLY IN THE YEAR 1856.
-
 "The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ?" 1 Corinthians 10:16.
 
 THERE is one great difference between Christ, as the Founder of the Christian religion, and all mere men who have attempted to fashion a system of belief. The difference is not merely that Christ's was a true religion and theirs a false one, but there is another distinction. All false prophets have sought to keep their disciples at a distance and to impress upon them not merely a high estimation of their importance, but also a superstitious reverence for their person. Yes, and sometimes altogether putting aside the thought of allowing any of their disciples to hold communion with them. Look at the false prophet, Mohamed, and you will see how he kept himself aloof from his disciples. He taught them to regard him as something superior to themselves. And the caliphs, to this day, and all those who take to themselves the titles of his successors, endeavor to invest themselves with solemn pomp and state. They forbid all to approach them without certain salaams and salutations--they never allow their followers to hold fellowship with them.

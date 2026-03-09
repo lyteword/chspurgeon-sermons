@@ -1,12 +1,5 @@
 # Sermon 2665 | A Day to Be Remembered
 
-
-INTENDED FOR READING ON LORD'S DAY, MARCH 11, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1882.
-
 "And Jesus said unto him, This day has salvation come to this house." Luke 19:9.
 
 OBSERVE, dear Friends, that our Lord spoke this sentence to Zacchaeus. Some of us may have fancied that He said it to the objecting people, but He did not. They may have heard it and their objection may have been answered by it, but the main purpose of our blessed Lord, in uttering those words, was not to answer objectors, but to comfort one who might feel dispirited by their murmuring remark. Therefore, "Jesus said unto him, This day is salvation come to this house."

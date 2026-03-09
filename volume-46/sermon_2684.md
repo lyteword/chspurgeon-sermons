@@ -1,12 +1,5 @@
 # Sermon 2684 | Two Arguments Against Sin
 
-
-A SERMON INTENDED FOR READING ON LORDS-DAY, JULY 22, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 29, 1881.
-
 "However I sent unto you all My servants the Prophets, rising early and sending them, saying, Oh, do not do this abominable thing that I hate!" Jeremiah 44:4.
 
 THIS verse portrays what a minister should be and the picture is a burden upon my heart and conscience, for it shows that the true preacher, or Prophet, or man of God, should be one whom God sends early to do His work. It is, as it were, as though his Master were up early in the morning, bidding him make haste to go to His service and not let the grass grow under his feet, for men are sinning--and to suffer them to continue in sin unrebuked, even for an hour, is truly dreadful. It is as though one were to leave a house burning without giving an alarm and calling the firemen, or to see a person in imminent peril in the street without immediately attempting to do something for his rescue. Notice that in this verse God represents Himself as rising early, to show how He realized the greatness of man's danger and the importance of his being speedily delivered from it. The Lord said that He rose early in order that He might send His Prophets--of course that theymight go early, that they might go at once and waste no time--but be instant in season and out of season to warn men not to do the abominable thing which God hated! A minister, then, is one who should be diligent in his Master's business, fervent in spirit, serving the Lord by endeavoring to warn men of the terrible nature and consequences of sin.

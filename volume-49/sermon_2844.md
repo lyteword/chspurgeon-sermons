@@ -1,12 +1,5 @@
 # Sermon 2844 | The Seed Upon a Rock
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1888.
-
 "Some fell upon stony places, where they had not much earth: and forthwith they sprung up, because they had no deepness of earth: and when the sun was up, they were scorched; and because they had no root, they withered away." Matthew 13:5, 6.
 
 ON another occasion I hope to preach from the words, "because they had no root," but, at this time, my subject is, "They sprang up, because they had no deepness of earth." Every farmer knows the wonderful effect of heat below the soil, how quickly it makes things grow. I do not gather that this was a stony piece of ground, but that it had a mass of stone not far from the surface. It was ground where the soil was very shallow and underneath it was a hard pan of rock that had never been broken up, so that, when the sun shone upon it, the rock reflected the heat and what with the sun above, and the heat below, the seed was very soon made to sprout and up came the green blade almost immediately. But this very shallowness of the soil which made the seed spring up so quickly was the cause of its ruin, for the sun had not long shone upon it before that which made it grow also killed it. The heat scorched it and it withered away.

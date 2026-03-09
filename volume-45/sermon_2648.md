@@ -1,12 +1,5 @@
 # Sermon 2648 | Sacred Memories
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, NOVEMBER 12, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 9, 1882.
-
 "Let Jerusalem come into Your mind." Jeremiah 51:50.
 
 This message from the Lord was written by the Prophet Jeremiah to the Jews who were carried away to Babylon or even to more distant places. They were entreated not to forget the holy city where they had worshipped Jehovah in His Temple. Among all their thoughts, they were bidden to take care that the thought of Jerusalem should often come into their minds. This would keep them from settling down in the places to which they had been carried as captives. They were always far too ready to mingle with other nations and to forget that God had separated them to be a people unto Himself forever. So Jeremiah begged them to keep the holy city in their minds, that they might not judge themselves as having become Persians or Babylonians, but might still remember that they were Israelites and that Jerusalem was their mother city and home.

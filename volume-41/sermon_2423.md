@@ -1,12 +1,5 @@
 # Sermon 2423 | The Model Soul-winner
 
-
-INTENDED FOR READING ON LORD'S DAY, JULY 28, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 10, 1887.
-
 "There came a woman of Samaria to draw water: Jesus said to her, Give Me a drink." John 4:7.
 
 THIS was the beginning of that interesting conversation which not only blessed this woman, but has been a means of Grace to many others ever since, for this chapter and the previous one must be looked upon as among the most soul-winning parts of God's Word. I suppose that every portion of Scripture has had its use in the experience of men and women, but these two chapters have very, very largely been blessed in the commencement of the Divine Life. Many have been led through the door of regeneration and the gateway of faith by the Truth of God so plainly taught in them.

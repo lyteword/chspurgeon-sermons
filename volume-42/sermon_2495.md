@@ -1,12 +1,5 @@
 # Sermon 2495 | Defiled and Defiling
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, DECEMBER 13, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 19, 1885.
-
 "Then said Haggai, If one that is unclean by a dead body touches any of these, shall it be unclean? And the priests answered and said, It shall be unclean. Then answered Haggai, and said, So is this people, and so is this nation before Me, says the LORRD; and so is every work of their hands; and that which they offer there is unclean." Haggai 2:13,14.
 
 THE Prophet Haggai very wisely drew out from the priests a definite answer to certain questions which he put to them. Then, upon their authority, he could say to the people, "This is what your own priests say and this is what you, yourselves, believe." This was taking them by a kind of sacred guile and it was a powerful means of forcing home the Truth of God to their heart and conscience.

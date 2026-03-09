@@ -1,12 +1,5 @@
 # Sermon 2435 | The Everlasting Arms
 
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 20, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 6, 1887.
-
 "Underneath are the everlasting arms." Deuteronomy 33:27.
 
 This short passage is found in the midst of a mass of gold--sentences containing the richest treasures of the Truth of God. All this spiritual wealth is the heritage of the people of God--not only of His typical people to whom these words were spoken, but to His real people, the true seed of Abraham, those who are the believing children of the Father of all Believers. If you are trusting in the Lord Jesus Christ, you may take these precious words home to yourself--and you may live upon them--you may eat the fat, drink the sweet and rejoice in all the refreshment that they bring to your spirit!

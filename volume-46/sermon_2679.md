@@ -1,12 +1,5 @@
 # Sermon 2679 | Christ's Indwelling Word
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 17, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 10, 1881.
-
 "Let the word of Christ dwell in you richly inn all wisdom; teaching and admonishing one another in Psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord." Colossians 3:16.
 
 THAT is a very beautiful name for Holy Scripture. I hardly remember to have met with it anywhere else--"Let the word of Christ dwell in you." Remember, dear Friends, that Christ Himself is the Word of God, and also remember that the Scriptures are the word of the Word. They are "the word of Christ." I think that they will be all the sweeter to you if you realize that they speak to you of Christ, that He is the sum and substance of them, that they direct you to Christ, in fact, as John says of His Gospel, that they were "written that you might believe that Jesus is the Christ, the Son of God; and that believing you might have life through His name."

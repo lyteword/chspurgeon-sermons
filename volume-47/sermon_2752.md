@@ -1,12 +1,5 @@
 # Sermon 2752 | The Door
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 10, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 15, 1879.
-
 "I am the door. If anyone enters by Me, he will be saved, and will go in and out, and find pasture." John 10:9.
 
 How very condescendingly the Lord Jesus Christ sets Himself forth! The noblest figures of speech are not too lofty to describe His merits. If we could speak with the tongues of poets and of angels, we could not adequately represent His loveliness and though the writers of the Scriptures, Inspired by the Holy Spirit, have used language which exceeds all other in majesty and beauty, even theyare not able to tell all the excellence of the Glory of Christ Jesus our Lord.

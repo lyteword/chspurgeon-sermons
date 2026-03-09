@@ -1,12 +1,5 @@
 # Sermon 2719 | True Learning
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 24, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 20, 1880.
-
 "But you have not so learned Christ, if, indeed, you have heard Him and have been taught by Him, as the truth is in Jesus." Ephesians 4:20,21.
 
 THE first two words of our text call attention to the distinction which must always be drawn between true Christians and other people, "But you." The Apostle had been writing concerning other Gentiles and the evil lives they lived, so, to the Believers at Ephesus, he said that they were not to walk as unbelievers ordinarily did. Thus we learn at the very opening of our subject that if we are, indeed, Christians, there is a manifest distinction between us and the men of the world. I may be told that, of course, there was a great contrast between Christ's followers and the heathen who lived in the Apostle's day. And some persons will, perhaps, say that we cannot expect that there should now be the same difference between Christian men and unbelievers. I reply that there may be a variation as to the outward form of that contrast, but, essentially, it must be quite as true and real.

@@ -1,12 +1,5 @@
 # Sermon 2488 | Christ's Love to His Spouse
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 25, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 5, 1886.
-
 "Christ also loved the Church, and gave Himself for it." Ephesians 5:25.
 
 THE love of Jesus--what a theme it is! The Apostle said that it passes knowledge and if it passes knowledge, much more does it excel any description that can be given of it! The heart may feel it better than the tongue may speak it. If there is one subject more than another upon which I wish always to speak, it is the love of Christ. But if there is one which quite baffles me and makes me go back from this platform utterly ashamed of my poor feeble words, and of the tongue which has uttered them, it is this subject. This love of Christ is the most amazing thing under Heaven, if not in Heaven itself. How often have I said to you that if I had heard that Christ pitied us, I could understand it. If I had heard that Christ had mercy upon us, I could comprehend it. But when it is written that he actually loves us, that is quite another and a much more extraordinary thing! Love between mortal and mortal is quite natural and comprehensible, but love between the Infinite God and us poor sinful finite creatures, though conceivable in one sense, is utterly inconceivable in another. Who can grasp such an idea? Who can fully understand it? Especially when it comes in this form--"HE" (read it in large capitals) "loved me, and gave Himself for me"--this is the miracle of miracles!

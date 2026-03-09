@@ -1,12 +1,5 @@
 # Sermon 2763 | The Glory of Grace
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 26, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, DURING THE WINTER OF 1869.
-
 "The glory of His Grace." Ephesians 1:6.
 
 GOD is essentially glorious. Even were there no eyes to behold Him, no lips to hymn His praise, no intelligent creatures to obey Him, He would be infinitely glorious in Himself. Yet, nevertheless, God chooses to exhibit His Glory that He may get praise out of the hearts of intelligent beings, who, beholding the varied and wonderful manifestations of the exceeding riches of His Grace, may be compelled with joy and gratitude, to glorify Him. In this sense, also, God is glorious--that is, Glory is given unto Him--He is admired, He is beloved, He is adored. Every attribute of God has its Glory, not only essential, but Glory through its exhibition of Himself. God's power is glorious, as we all know, in the works of His hands. His skill, His wisdom, His benevolence--all these are to be seen in those works of Nature, as we call them, which meet our eyes every day. God's justice is glorious and we sometimes tremble to think how awfully glorious it is in the lowest pit of Hell. We have, on the present occasion, however, not to talk about other attributes of God, but about this one--"the glory of His Grace"--and while we are doing so, I must remark that we shall have to see, incidentally, how this Grace, in itself glorious, really brings Glory to all the other attributes. When God glorifies His Grace, He glorifies His whole Character--Grace becomes a platform upon which all the perfections of Deity exhibit themselves-- and Grace becomes a light which shines upon all the rest, and they, albeit bright enough in themselves, seem to be doubly bright when they glow in its brilliance.

@@ -1,12 +1,5 @@
 # Sermon 2774 | Love Pledging Fidelity
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 13, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 3, 1881.
-
 Then Jonathan and David made a covenant, because he loved him as his own soul."
 
 1 Samuel 18:3.

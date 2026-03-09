@@ -1,12 +1,5 @@
 # Sermon 2700 | Growth in Grace
 
-
-INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 11, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, IN THE AUTUMN OF 1858.
-
 "But grow in Grace, and in the knowledge of our Lord and Savior Jesus Christ." 2 Peter 3:18.
 
 IT is worth while to remark that this passage immediately follows the 17th verse, where the Apostle says, "Beloved, seeing you know these things before, beware lest you, also, being led away with the error of the wicked, fall from your own steadfastness. But grow in Grace, and in the knowledge of our Lord and Savior Jesus Christ." He puts the one after the other, as if the one must be the means of the other. There had been some, in the Apostle's day, who had twisted, to their own destruction, certain expressions in the Epistles of Paul which Peter said were "hard to be understood." And, therefore, he warned Christian men and women to take heed lest they, "being led away with the error of the wicked," should "fall from their own steadfastness."

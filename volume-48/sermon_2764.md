@@ -1,12 +1,5 @@
 # Sermon 2764 | The Cloud of Doves
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 2, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 12, 1879.
-
 "Who are these who fly as a cloud, and like doves to their roosts?" Isaiah 60:8.
 
 WE believe that, in the latter days, according to the Word of God, men will flock to Christ and to His Church in far greater numbers than they have ever done. At present, we have to go to them, but, by-and-by, they will come to us. Now we have to search them out, like lost sheep in a cloudy and dark day, but, in those days, they will feel a gracious drawing towards their God and His Church--and they will come in vast multitudes to worship with the people of God--yes, they will themselves become the people of God and bow down before the feet of Emmanuel, the Prince of peace! Why should it not be? Why should we not expect it and why should not the expectation greatly encourage us in laboring on through these weary years, being well assured that they that sow in tears shall one day reap in joy?

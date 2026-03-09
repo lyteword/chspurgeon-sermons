@@ -1,12 +1,5 @@
 # Sermon 2602 | Good News for the Aged
 
-
-A SERMON
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, DECEMBER 30, 1855.
-
 "And about the eleventh home he went out and found others standing idle." Matthew 20:6.
 
 WE have come to the end of another year. Better is the end of a year than the beginning thereof. A year is begun with fear and trembling--it closes with joy and thankfulness. In the beginning of the year, we are like the sailor when he leaves port, hoists his sails and goes out on the broad sea toward a distant country. At the end of the year, we are sometimes like that mariner when he casts his anchor overboard and lies still in the haven. We have come into harbor, now, at the end of the year and here we rest and gratefully review our voyage.

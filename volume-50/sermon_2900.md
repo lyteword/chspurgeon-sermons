@@ -1,12 +1,5 @@
 # Sermon 2900 | How God Comes to Man
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 8, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 13, 1876.
-
 "And they heard the voice of the LORD God walking in the garden in the cool of the day: and Adam and his wife hid themselves from the Presence ofthe LORD God among the trees of the garden. And the LORD God called unto Adam, and said unto him, Where are you?" Genesis 3:8,9.
 
 "How will God come to us now that we have rebelled against Him?" That is a question which must have greatly perplexed our first parents. They may have said to one another, "Perhaps God will not come to us at all and then we shall be orphans, indeed. If spared to live on, we must continue to live without God and without hope in the world." It would have been the worst thing that could have happened to our race if God had left this planet to take its own course and had said, concerning the people upon it, "I will leave them to their own way, for they are given over to idols."

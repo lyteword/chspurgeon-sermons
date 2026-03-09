@@ -1,12 +1,5 @@
 # Sermon 2738 | The Redeemer's Face Set Like a Flint
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 4, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 28, 1880.
-
 "For the Lord God will help Me; therefore I will not be disgraced: therefore have I set My face like a flint, and I know that I shall not be ashamed." Isaiah 50:7.
 
 THESE are, in prophecy, the words of the Messiah. This is the language of Jesus of Nazareth, the promised Deliverer, whom God has sent into the world to be the one and only Savior. We know that this is the case because it is to Him, and to Him alone, that the verse preceding our text must refer--"I gave My back to the smiters, and My cheeks to them that plucked off the hair: I hid not My face from shame and spitting." This is the declaration of Jesus of Nazareth, the King of the Jews--and it is He who said of old in prophecy, and afterwards carried it out in actual life, "I set My face like a flint." Luke seems to have had this passage in his mind when he wrote the 51st verse of his 9th Chapter, in which he says of our Lord that, "when the time was come that He should be received up, He steadfastly set His face to go to Jerusalem." There is the same meaning in the two passages, and one cannot help feeling that the words recorded by Isaiah were brought by the Holy Spirit to the memory of Luke when he penned that expression. The fact is that our Master, even from eternity, resolved to save His people, and nothing could keep Him from the accomplishment of His purpose. From eternity He foresaw that they would fall from their first estate and He entered into Covenant engagements to redeem them--and from the pledge He gave of old, He never turned back.

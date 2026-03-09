@@ -1,12 +1,5 @@
 # Sermon 2608 | "There Is No Difference"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 5, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 28, 1883.
-
 "The righteousness of God through faith in Jesus Christ unto ail and upon all them that believe: for there is no difference: for all have sinned, and come short of the glory of God." Romans 3:22,23.
 
 THE Apostle here says that "there is no difference," yet he does not mean that all men are alike in all respects. There are very many and important variations among men. It would be quite untrue and unjust to say that there are no differences of character even among unregenerate men, for there certainly are many varieties and gradations of sinners. There are some who have, as it were, sold themselves to work iniquity, and there are others who have, apparently, kept the Commandments of God from their youth up. There are some who delight in all manner of evil and there are others who, though they are not converted, hate the very mention of all the grosser vices and steer clear of such impurity. There are some people, not yet on the Lord's side, who are like that rich young man of whom it is said that when Christ looked upon him, He loved him, for He saw much in him that was admirable. But, on the other hand, there are some who are manifestly sons of perdition, like Judas, of whom our Lord said that he was a devil. All men are not demons, or demoniacal. All are not equally hardened in heart. All do not go to the same excess of evil. So when Paul said, "There is no difference," he did not mean that there are no differences of outward character.

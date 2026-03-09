@@ -1,12 +1,5 @@
 # Sermon 2427 | "The Ark of His Covenant"
 
-
-INTENDED FOR READING ON LORD'S DAY MORNING, AUGUST 25, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DELIVERED ON THURSDAY EVENING, AUGUST 18, 1887.
-
 "And the Temple of God was opened in Hea ven, and there was seen in His Temple the ark of His testament [covenant--R.V.] and there were lightning, and voices, and thundering, and an earthquake, and great hail." Revelation 11:19.
 
 I shall take the passage quite by itself. I do not fully understand its context, whether it relates to that which goes before or to that which comes afterwards, and happily, it is not necessary for us to know this, for the passage stands complete in itself and is full of valuable instruction.

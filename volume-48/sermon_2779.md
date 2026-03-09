@@ -1,12 +1,5 @@
 # Sermon 2779 | Heart-communing
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 18, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 7, 1878.
-
 "She communed with him about all that was in her heart." 1 Kings 10:2.
 
 

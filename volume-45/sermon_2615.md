@@ -1,12 +1,5 @@
 # Sermon 2615 | The Anxious Enquirer
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 26, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, EARLY IN THE YEAR 1857.
-
 "Oh that I knew where I might find Him!" Job 23:3.
 
 WE will say nothing at this time concerning Job. We will leave the Patriarch out of the question and take these words as the exclamation forced from the aching heart of a sinner when he finds that he is lost on account of sin and can only be saved by Christ. "Oh that I knew where I might find Him"--my Savior--"That I might be saved by His love and blood!" There are some who tell us that a man, can, if he pleases, in one moment obtain peace with God and joy in the Holy Spirit. Such persons may know something of religion in their own hearts, but I think they are not competent to be judges of others. God may have given them some peace through believing and brought them into an immediate state of joy--He may have given them some repentance for sin and then quickly made them to rejoice in Jesus. But I believe that in many more cases, God begins by breaking the stony heart in pieces and often makes a delay of days, of weeks and even of months, before He heals the soul which He has wounded and gives life to the spirit which He has killed. Many of God's people have been, even, for years seeking peace and, finding none, they have known their sins, they have been permitted to feel their guilt and yet, notwithstanding that they have sought the Lord earnestly with tears, they have not attained to a knowledge of their justification by faith in Christ.

@@ -1,12 +1,5 @@
 # Sermon 2660 | Suffering Outside the Camp
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 4, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, JANUARY 3, 1858.
-
 "Therefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate." Hebrews 13:12.
 
 IN one sense, sanctification is wholly the work of the Lord Jesus Christ, but there is another meaning which is more usually affixed to the term, in which sanctification is rightly described as the work of God the Holy Spirit. Many disputes have arisen concerning this Doctrine of God, because all men do not distinguish between the two meanings of the same word. There is one kind of sanctification which signifies setting apart and, in that sense, God's people were sanctified from all eternity. They were sanctified in election, before they had a being, for they were even then set apart from the impure mass, to be vessels of honor meet for the Master's use. Further, as redemption has in it much of peculiarity and specialty, God's people were sanctified, or set apart, by the blood of Christ, when, on Mount Calvary He offered up Himself, an offering without spot or blemish, for the sins of His people. So it is true that Jesus is not only made unto us wisdom and righteousness, but also sanctification.

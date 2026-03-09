@@ -1,12 +1,5 @@
 # Sermon 2578 | Refusing to Be Comforted
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 1O, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 18, 1883.
-
 "My soul refused to be comforted." Psalm 77:2.
 
 WHEN you meet with a person in great distress, you feel at once a desire to comfort him. That is to say, if you have an ordinarily tender heart. You cannot bear to see another in trouble without trying to minister to that diseased heart. But supposing that the person refuses to be comforted? Then you are foiled. What can you do? It is as though you met with a hungry man and offered him bread, but he rejected it. You tried to give him daintier food, but he scorned it. You asked him what he could eat, but he altogether refused to accept any form of nourishment. Then what could you do? Your cupboard might be full and the door might be freely opened, but if the man would not eat, you could not remove his hunger. So, if a man in trouble refuses to be comforted, how are you to cheer and solace him? One man can lead a horse to the water, but a thousand cannot make him drink if he will not--and when a man in trouble refuses to be comforted, then lover and friend are put far from him--and his acquaintance into darkness. Indeed, they soon need to be comforted, for disquietude is contagious and, sometimes, those who come to comfort another, go away provoked by his perversity. Many a man, whose heart was full of pity, has, at last, become indignant, and so has increased the sorrow which he intended to comfort--he has grown angry with the man who willfully put aside what was intended to encourage him.

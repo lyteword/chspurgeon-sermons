@@ -1,12 +1,5 @@
 # Sermon 2807 | Spared!
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 30, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1860-61.
-
 "I was left." Ezekiel 9:8.
 
 THE vision of Ezekiel which is recorded in the previous chapter brought to light the abominations of the house of Judah. The vision which follows in this chapter shows the terrible retribution that the Lord God brought upon the guilty nation, beginning at Jerusalem.

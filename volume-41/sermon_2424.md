@@ -1,12 +1,5 @@
 # Sermon 2424 | The New Song On Earth
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, AUGUST 4, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 17, 1887.
-
 "He has put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the LORD." Psalm 40:3.
 
 THIS man who talks about his song and seems to be very much struck with the fact that he has become a singer, was formerly a man of prayer. I doubt not that he was still praying while he was praising, but he began to pray before he began to praise. It is not good to go in the choir, first--we must begin our spiritual experience at the "penitent form." He who sings without having wept may have to weep, by-and-by, where he can never sing!

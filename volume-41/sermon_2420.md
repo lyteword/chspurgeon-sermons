@@ -1,12 +1,5 @@
 # Sermon 2420 | "The King Can Do No Wrong"
 
-
-INTENDED FOR READING ON LORD'S DAY, JULY 7, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 16, 1887.
-
 "And all the people took notice of it, and it pleased them: as whatever the king did pleased all the people." 2 Samuel 3:36.
 
 DAVID was a great king and a good king, but his character was compromised by the conduct of Joab, who had been one of his chief friends and supporters. Abner came to David, in Hebron, and proposed terms of peace which David accepted. But Joab could not bear that Abner should be his rival and, therefore, he most treacherously murdered him. This abominable act was greatly to the detriment of David's character--he could not prevent the crime, certainly he had not instigated it--and yet it was only natural that all the people would suppose that David had a hand in it because Joab was not merely one of his subjects, but his prime minister!

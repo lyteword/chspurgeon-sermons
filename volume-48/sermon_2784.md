@@ -1,12 +1,5 @@
 # Sermon 2784 | "Non Nobis, Domine!"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JUNE 22, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 16, 1878.
-
 "Not unto us, O LORRD, not unto us, but unto Your name give glory, for Your mercy, and for Your truth's sake." Psalm 115:1.
 
 EVERY careful reader can see the connection between this 115th Psalm and the one which precedes it. In the 114th Psalm we see the gracious and grateful Jews sitting around the Passover table, having eaten of the lamb and singing of the miracles of Jehovah at the Red Sea and the Jordan. It must have been a very jubilant song that they sang! I think I can hear them singing, "What ailed you, O you sea, that you fled? You Jordan, that you were driven back?" When that joyful hymn was finished and the cup of wine was passed around the table, they struck another note. They remembered their sad condition, as they heard the heathen say, "Where is now their God?" They remembered that perhaps for many a year there had been no miracle, no Prophet, no open vision--and then they began to chant a prayer that God would appear--not for their sakes, but for His own name's sake, that the ancient Glory which He won for Himself at the Red Sea and the Jordan might not be lost--and that the heathen might no longer be able to tauntingly say, "Where is now their God?" because the wonders worked by God would cause them to tremble before Him.

@@ -1,12 +1,5 @@
 # Sermon 2398 | Mediation of Moses
 
-
-INTENDED FOR READING ON LORD'S DAY, FEBRUARY 3, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 17, 1887.
-
 "And the LORD repented of the evil which He thought to do unto His people." Exodus 32:14.
 
 I SUPPOSE that I need not say that this verse speaks after the manner of men. I do not know after what other manner we can speak. To speak of God after the manner of God is reserved for God, Himself, and mortal men could not comprehend such speech. In this sense, the Lord often speaks, not according to literal fact, but according to the appearance of things to us, in order that we may understand so far as the human can comprehend the Divine. The Lord's purposes never really change. His eternal will must forever be the same, for He cannot alter, since He would either have to alter for the better or for the worse. He cannot change for the better, for He is infinitely good--it were blasphemous to suppose that He could change for the worse. He who sees all things at once and perceives at one glance the beginning and the end of all things, has no need to repent. "God is not a man, that He should lie; neither the son of man, that He should repent," but, in the course of His action, there appears to us to be, sometimes, a great change, and as we say of the sun that it rises and sets, though it does not actually do so, and we do not deceive when we speak after that fashion, so we say concerning God, in the language of the text, "The Lord repented of the evil which He thought to do unto His people." It appears to us to be so and it is so in the act of God, yet this statement casts no doubt upon the great and glorious Doctrine of the Immutability of God.

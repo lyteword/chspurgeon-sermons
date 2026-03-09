@@ -1,12 +1,5 @@
 # Sermon 2698 | The First and the Second
 
-
-INTENDED FOR READING ON LORD'S-DAY, OCTOBER 28, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 9, 1881.
-
 "He takes away the first, that He may establish the second." Hebrews 10:9.
 
 THE way of God with men is to go from good to better and from better to best. In the creation, "the evening and the morning were the first day." "And the evening and the morning were the second day." And so on to the sixth day. God often gives us darkness before He gives us light and He gives us some measure of light in the rising sun before He gives us the full glory of noontide. And this, I suppose, is not because God needs any such rule for Himself. He can give the best, first, if He so chooses, but I imagine that this arrangement is necessary because of our infirmity. It would never do for weak eyes to have the full light of the sun pouring down upon them. Often, when men are faint, and nearly dying of hunger, they would be killed outright if strong meat were at once set before them--they must be gently fed as they are able to bear it. So God, knowing the feebleness of His creatures and especially the feebleness of His sinful creatures, is pleased to bestow His mercies with great wisdom and prudence. Little by little, first a very little, it may be, and then rather more, and then still more, and then much more, and then most of all until He does exceedingly abound in mercy towards us according to the riches of His Grace.

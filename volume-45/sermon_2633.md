@@ -1,12 +1,5 @@
 # Sermon 2633 | The Two Pivots
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 30 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 18, 1882.
-
 "I am the God of your father, the God of Abraham, the God of Isaac, and the God of Jacob." Exodus 3:6.
 
 "Therefore God is not ashamed to be called their God: for He has prepared a city for them."

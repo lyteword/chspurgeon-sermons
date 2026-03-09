@@ -1,12 +1,5 @@
 # Sermon 2535 | A Singular Plea in Prayer
 
-
-INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 19, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1884.
-
 "Isaid, LORRD, be merciful unto me: heal my soul; for I have sinned against You." Psalm 41:4.
 
 THIS was one of David's sayings--"I said." It was a saying that was worth saying and it is worth re-saying--"I said, Lord, be merciful unto me." How often he said it, we do not know. The more often, the better. There is no day too bright for saying it and there is no night too dark for saying it. "I said, Lord, be merciful unto me." Every one of David's sayings was not worth repeating, for he said some things that he had to retract. "I said in my haste," he said, on one occasion and, possibly, what he said in his haste he repented of at his leisure. But this saying in our text needs no retracting! It only needs repeating and, until we enter Heaven, we may keep on saying it--"I said, Lord, be merciful unto me." I have never heard of Christ rebuking anybody for speaking thus. He who said, "God, I thank You that I am not as other men are," received no commendation from the Lord Jesus Christ. But he who said, "God, be merciful to me, a sinner," went down to his house justified rather than the other! This is a good saying, a true saying, a humble saying and a gracious saying. And I say again, the more often it is repeated, the better. "I said, Lord, be merciful unto me."

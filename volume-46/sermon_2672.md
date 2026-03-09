@@ -1,12 +1,5 @@
 # Sermon 2672 | Neither Forsaken Nor Forgotten
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 29, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 5, 1882.
-
 "Behold, I have engraved you upon the palms of My hands." Isaiah 49:16.
 
 You have probably noticed, dear Friends, while reading the chapter from which our text is taken, that it seems to divide itself into two parts. The first portion concerns that glorious Servant of God, "who, being in the form of God, thought it not robbery to be equal with God," even our Divine Redeemer, the Lord Jesus Christ. There is, in this part of the chapter, somewhat of a complaint--Christ was, as it were, uttering one of His Gethsemane groans when He said, "I have labored in vain, I have spent My strength for nothing, and in vain: yet surely My judgment is with Jehovah, and My work with My God." As far as our Lord's personal ministry among the Jewish people was concerned, it did seem as if He had labored in vain, for almost all of them rejected Him and they even imprecated an awful curse upon themselves and their descendants when they said, "His blood be on us, and on our children." He is here represented as crying out before Jehovah concerning this apparent failure of His earthly mission. And an answer is at once given to Him which must have been eminently satisfactory to our Savior's spirit, for He adds, "Though Israel is not gathered, yet shall I be glorious in the eyes of Jehovah and My God shall be My strength. And He said, It is a light thing that You should be My Servant to raise up the tribes of Jacob, and to restore the preserved of Israel: I will also give You for a light to the Gentiles, that You may be My salvation unto the ends of the earth." Oh, what joy must have filled the heart of our Divine Master, even in the depths of His agony, as He saw that, through His death, all nations should ultimately behold the Light of God's salvation! What though Israel for a while rejected Him? Yet multitudes of the Gentiles would receive Him and then, by-and-by, in the fullness of time, the Jews would also receive Him, and acknowledge as King the Nazarene whom once they crucified on Calvary!

@@ -1,12 +1,5 @@
 # Sermon 2728 | The High Rock
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MAY 26, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
-
 "From the end of the earth will I cry unto You, when my heart is overwhelmed: lead me to the Rock that is higher than I." Psalm 61:2.
 
 IT is supposed by many that David wrote this Psalm at the time when he fled from his son Absalom. That trial was one of the most grievous of all the afflictions of David's greatly-checkered life. It was but a little thing for him to be hunted by Saul like a partridge upon the mountains. It was a small matter for him to have to take refuge with Achish, and to sojourn among the Philistines, an alien from his mother's children. No, all the afflictions of his preceding life were but light trials compared with the revolt of Absalom. He was his father's favorite son, one in whom his soul delighted, for he was a comely personage in his outward appearance and he had a lordly and kingly bearing--he was David's darling, although, in his moral character, utterly unworthy of this distinction. This child of his, who was the nearest to his heart, had the greatest opportunity to cut him to the quick. Those things which we allow to take the chief place in our bosoms have the most power to give us grief.

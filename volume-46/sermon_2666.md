@@ -1,12 +1,5 @@
 # Sermon 2666 | The Sorrowful Man's Question
 
-
-INTENDED FOR READING ON LORD'S-DAY, MARCH 18, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 8, 1882.
-
 "Why is light given to a man whose way is hidden, and whom God has hedged in?" Job 3:23.
 
 I AM very thankful that so many of you are glad and happy. There is none too much joy in the world and the more that any of us can create, the better. It should be a part of our happiness and a main part of it, to try to make other people glad. "Comfort you, comfort you My people," is a commission which many of us ought to feel is entrusted to us. If your own cup ofjoy is full, let it run over to others who have a more trying experience. If you, yourself, are privileged to have flashing eyes and elastic steps, and a bounding heart, be mindful to speak words of good cheer to such as are in bonds! Feel as if you were bound with them and try to revive their drooping spirits. That is what I am going to aim at, tonight, so you will excuse me if I bid, "good-bye," for a while to you joyous ones! I want to seek after those who have no such delight as you now possess--those who are, on the contrary, suffering from extreme depression of spirit. Sometimes, we must single out the wounded ones of the flock. That is what I am about to do, yet I feel sure that while some few will be distinctly sought after, there will be something that may be of use to the many who are in a less sorrowful condition. The 99 shall get their full portion although the shepherd goes especially after the lost one.

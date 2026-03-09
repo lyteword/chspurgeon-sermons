@@ -1,12 +1,5 @@
 # Sermon 2394 | Love's Climax
 
-
-INTENDED FOR READING ON LORD'S DAY, JANUARY 6, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 10, 1887.
-
 "Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our sins." 1 John 4:10.
 
 To find love, you have need send a lover--one whose soul is full of love is the most likely to discover it. John, with love in his heart, soars aloft and, using his eagle eyes, looks over all history and all space and, at last, he poises himself over one spot, for he has found that for which he was looking, and says, "Herein is love." There is love in a thousand places, like the scattered drops of spray on the leaves of the forest, but as for the ocean, that is in one place, and when we reach it, we say, "Herein is water." There is love in many places, like wandering beams of light, but as for the sun, it is in one part of the heavens and as we look at it, we say, "Herein is light." So, "Herein," said the Apostle, as he looked toward the Lord Jehovah, Himself, "Herein is love." He did not point to his own heart and say, "Herein is love," for that was but a little pool filled from the great sea of love. He did not look at the Church of God and say of all the myriads who counted not their lives dear unto them, "Herein is love," for their love was only the reflected brightness of the great sun of love! No, he looked to God the Father, in the splendor of His condescension in giving His only Son to die for us, and he said "Herein is love," as if all love were here--love at its utmost height, love at its climax, love out-doing itself-- "Herein is love, not that we loved God, but that He loved us and sent His Son to be the propitiation for our sins."

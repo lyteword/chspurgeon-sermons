@@ -1,12 +1,5 @@
 # Sermon 2512 | Hearing With Heed
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 11, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 9, 1885.
-
 "And He said unto them, Take heed what you hear: with what measure you use, it shall be measured to you: and unto you that hear shall more be given." Mark 4:24.
 
 In these days we have many instructions as to preaching, but our Lord principally gave directions as to hearing. The first part of our text, "Take heed what you hear," may be viewed as a note of discrimination. Be careful what you hear-- hear the Truth of God and only the Truth of God! It does seem to me as if some people say, "Here is a place of worship. There is sure to be a sermon, let us go in and hear it." Ah, but all that is preached is not Gospel and it is not all hearing that will be valuable to your souls! Especially at this present time it is incumbent upon Christians to learn how to use the discerning faculty with regard to what is and what is not the Truth of God. Would you eat all meat indiscriminately without tasting and testing its quality? If so, would you not soon be ill? Does a man take any drug that may happen to be upon the chemist's shelves? Does he not expect great care to be exercised in the doctor's dispensary, lest he should be taking poison where he hoped for a salutary medicine? Remember what the Apostle John says, "Beloved, believe not every spirit, but try the spirits whether they are of God." And when you know what the Truth of God is, be not ready to listen to that which is contrary to it, or you will rue the day in which you lent your ears to the deceiver! Ulysses was not unwise when he sealed the ears of his sailors while they passed by the rocks of the sirens, for they sang so sweetly that they tempted mariners to run their ships upon the rocks where they would be wrecked. So dear Friends, with sealed ears, pass by those who have nothing to communicate that can tend to your spiritual edification--and thus carry out our Savior's words, "Take heed what you hear."

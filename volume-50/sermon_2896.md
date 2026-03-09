@@ -1,12 +1,5 @@
 # Sermon 2896 | Harvest Time
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 11, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, AUGUST 11, 1854.
-
 "Is today not the wheat harvest?" 1 Samuel 12:17.
 
 [A peculiar and even unique interest attaches to the present Sermon, as it was the first of Mr. Spurgeon's discourses that was ever printed. Although it has appeared in another form, the publishers thought that it ought to be included in the regular weekly series, so it is now reprinted exactly 50 years after it was delivered. When cholera was desolating London and the wicked war in the Crimea was still being waged, the young pastor sounded a cheerful note to comfort the Christians of that day while he also warned others of the consequences of continuance in evil-doing. The message spoken half a century ago is by no means out of date even now.--Pub.]

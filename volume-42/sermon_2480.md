@@ -1,12 +1,5 @@
 # Sermon 2480 | The Tender Grapes
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 30, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1880.
-
 "The vines with the tender grape give a good smell." Song of Solomon 2:13.
 
 THE vine is of all trees the most useless unless it bears fruit. You cannot make hardly anything of it. You would scarcely be able to cut enough wood out of a vine to hang a pot upon. You cannot turn it into furniture and barely could you use it in the least degree for building purposes. It must either bear fruit, or else it must be consumed in the fire. The branches of the vine that bear no fruit are necessarily cut off and they are used, as I have seen them used in the South of France many a time, in little twisted bundles for kindling the fire. They burn very rapidly, so there is soon an end of them and then they are gone.

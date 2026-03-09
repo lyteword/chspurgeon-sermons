@@ -1,12 +1,5 @@
 # Sermon 2411 | Why Some Seekers Are Not Saved
 
-
-INTENDED FOR READING ON LORD'S DAY, MAY 5, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 8, 1887.
-
 "Behold the Lord's hand is not shortened, that it cannot save; neither His ear heavy, that it cannot hear: but your iniquities have separated between you and your God, and your sins have hid His face from you, that He will not hear." Isaiah 59:1,2.
 
 THERE are some people who are not saved though we would have expected that they would have been converted long ago. Our text explains the reason, so, without any preface, let us come to it at once.

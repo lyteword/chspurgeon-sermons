@@ -1,12 +1,5 @@
 # Sermon 2850 | The New Song and the Old Story
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O sing unto the Lord a new song: sing unto the LORRD, all the earth. Sing unto the LORD, bless His name; show forth His salvation from day to day. Declare His glory among the heathen, His wonders among all people." Psalm 96:1-3.
 
 THERE are mighty passions of the human soul which seek vent and can get no relief until they find it in expression. Grief, acute, but silent, has often destroyed the mind because it has not been able to weep itself away in tears. The glow of passion, fond of enterprise and full of enthusiasm, has often seemed to tear the very fabric of manhood when unable either to attain its end or to utter its strong desires. So it is in true religion. It not only lays hold upon our intellectual nature with appeals to our judgment and our understanding, but, at the same time, it engages our affections, brings our passions into play and fires them with a holy zeal, producing a mighty furor, so that, when this spell is on a man, and the Spirit of God thoroughly possesses him, he must express his vehement emotions.

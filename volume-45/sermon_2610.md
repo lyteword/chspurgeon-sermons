@@ -1,12 +1,5 @@
 # Sermon 2610 | A Witness and a Partaker
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 19, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 4, 1883.
-
 "The elders which are among you I exhort, who am also an elder, and a witness of the sufferings of Christ, and also a partaker of the glory that shall be revealed." 1 Peter 5:1.
 
 KINDLY notice, dear Friends, the Apostle's great gentleness. Peter was not always thus gentle, but the Spirit of God had rested upon him and now he writes with much tenderness. He does not say, "As an Apostle, I command," but, "As an elder, I exhort." It is always well to combine the suaviter in modo with the fortiter in re, that is, suavity in our method blended with strength in the thing, itself. There are some who are very blustering in their style of speech and there are others who, if they do not bluster, yet in the smallest matter always put forth their greatest force, or what they think to be so. They command and rebuke with all authority--yet here is Peter, who certainly was not a whit behind the very chief of the Apostles--and he speaks, not by way of command, but, addressing the elders, he tenderly exhorts them. Oh, that we may always manifest such a meek and gentle spirit--not drive men, but draw them to Christ--not terrify and threaten, but entice and woo to the Savior those to whom we are speaking or writing!

@@ -1,12 +1,5 @@
 # Sermon 2561 | "Noli Me Tangere" ("Touch Me Not")
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 20, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 4, 1888.
-
 "Jesus said unto her, Touch Me not, for I am not yet ascended to My Father: but go to My brethren, and say unto them, I ascend unto My Father, and your Father; and to My God, and your God." John 20:17.
 
 I COMMENCE my discourse by remarking that it was very amazing that our Lord Jesus Christ, after His Resurrection, should give so early and so clear a manifestation of Himself to Mary Magdalene. Out of her He had cast seven devils. I suppose it was literally so and that there had been in her a great deal of spiritual as well as moral defilement. It may not really be so, but it certainly was the current notion of the early Church that Mary Magdalene was not only a great sufferer who had been relieved, but a great sinner who had been purified. Yet she is the first to hear a word from the risen Christ and to behold Him face to face! I may be addressing some great sinner at this moment. Dear Friend, the greatness of your sin may not prevent you from yet occupying a first place among the saints! If you seem to be sorely beset by Satan, as though seven devils were in you, there is no reason why you should not be filled with the seven spirits of God and become even a leader in the Church of Christ! There are first that shall be last, but there are also last that shall be first. Such a case as that of Mary Magdalene should give great encouragement to those of you who seem to be far away from Christ--if He calls you to humble penitence and childlike confidence in Himself, you may yet be one of the nearest and dearest of His disciples--and His manifestation of Himself to you may be even clearer and sweeter than to some of the more publicly known among His people.

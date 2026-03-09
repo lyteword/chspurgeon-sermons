@@ -1,12 +1,5 @@
 # Sermon 2591 | Pride the Destroyer
 
-
-A SERMON DELIVERED BY
-
-H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 27, 1883.
-
 "Behold the proud, his soul which is lifted up is not upright in him; but the just shall live by his faith." Habakkuk 2:4.
 
 HABAKKUK had to prophesy to the people that God would eventually deliver them out of the hand of the Chaldeans and send them better times. But he warned them that although the vision would come and, as far as God was concerned, it would not really tarry, yet they would grow impatient under their suffering and they would say that the vision did tarry. And so, indeed, it would seem to do while they were suffering--and the Prophet here hints at the reason why God's merciful deliverances may sometimes be delayed. The Lord is willing to give mercy directly, for He delights not in judgment. If it were according to wisdom, we would have nothing from God's hand but that which is pleasant and sweet, for He would not cause any one of His creatures a needless pain--and He is full of gentleness and tenderness and mercy.

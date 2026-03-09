@@ -1,12 +1,5 @@
 # Sermon 2499 | Christopathy
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 10, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 30, 1885.
-
 "With His stripes we are healed." Isaiah 53:5.
 
 Brothers and Sisters, whenever we come to talk about the passion of our Lord--and that subject is clearly brought before us, here, by the two words, "His stripes"--our feelings should be deeply solemn and our attention intensely earnest. Take off your shoes when you draw near to this burning bush, for God is in it! If ever the spirit should be deeply penitential and yet humbly confident, it ought to be when we hear the lash falling upon the Divine and human Person of our blessed Master and see Him wounded for our transgressions and bruised for our iniquities.

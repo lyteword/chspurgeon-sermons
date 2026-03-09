@@ -1,12 +1,5 @@
 # Sermon 2579 | Waiting, Hoping, Watching
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 17, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 22, 1883.
-
 "I wait for the LORRD, my soul does wait, and in His Word do I hope, My soul waits for the Lordmore than they who watch for the morning--yes, more than they who watch for the morning." Psalm 130:5, 6.
 
 As we read this Psalm, we noticed, from the opening verses of it, that David was in the depths. He is not the only one of God's people who has been there. If we imagine that the experience of true saints is always a happy, high level of peace, we make a great mistake. They have their rising and their falling, their days and their nights, their summers and their winters. Where there is life, there are pretty sure to be changes. The statues in St. Paul's Cathedral are, I suppose, always cold, but living men are sometimes ready to faint in the heat--and sometimes they are well-near frozen with the cold. If you are a living child of God, expect that you will have many variations in your experience and that sometimes you will be in the depths as others have been. Was not your Lord there? This Psalm is called, in the Latin version, De profundi's, and I am sure that our Lord, though He is now in excelsis--in the very heights--yet had on earth times when He could sing this De profundis Psalm--"Out of the depths have I cried unto You, O Lord." Then, how could we have fellowship with Him in His suffering if we were not, sometimes, in the depths, too? How could we know what He felt, how could we be made like unto our Lord if we were not also cast down?

@@ -1,12 +1,5 @@
 # Sermon 2408 | Christ the Cure for Troubled Hearts
 
-
-INTENDED FOR READING ON LORD'S DAY, APRIL 14, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 10, 1887.
-
 "And He said unto them, Why are you troubled and why do doubts arise in your hearts." Luke 24:38.
 
 IT seems, from these questions of our Lord, that true Believers may come into a troubled state of mind. The eleven were truly Christ's disciples and even His Apostles, yet, when their faith failed them and they refused to believe the testimony that Christ was risen from the dead, they were troubled in their minds and tossed to and fro, as on a stormy sea. Unbelief is a great troubler. Our peace comes to us by faith and if our faith grows weak, our peace of mind is apt to decline and we are likely to become much disturbed in spirit. If those who are Believers, who have passed from death unto life, are sometimes troubled, you may be sure that others are! It is no wonder that they are troubled who have never experienced the Grace of God in conversion and have never felt the joy which Jesus brings to those whom He saves. If every unconverted man could see his true state, he would not dare to give sleep to his eyes, nor slumber to his eyelids, until he had been brought to know the Lord Jesus Christ. If you who are living without a Savior realized your lost condition, your pillows would be stuffed with thorns instead of with feathers. I scarcely think that your bread would be sweet to your taste, or that light would be pleasant to your eyes, if you really knew your present condition and the jeopardy in which your souls are found. I tremble for you and I shall be glad if you learn to tremble for yourselves--and to flee from the wrath to come!

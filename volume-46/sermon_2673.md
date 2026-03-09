@@ -1,12 +1,5 @@
 # Sermon 2673 | Christ Crucified
 
-
-INTENDED FOR READING ON LORD'S-DAY, MAY 6, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING, EARLY IN THE YEAR 1858.
-
 "For I determined not to know anything among you except Jesus Christ and Him crucified." 1 Corinthians 2:2.
 
 CORINTH was situated in the midst of a people who admired eloquence and wisdom. This Epistle was written in the age of orators and philosophers. The Apostle Paul was a man of profound learning--he had been educated at the feet of Gamaliel in all the wisdom of the East. We are quite sure he was a man of a very capacious mind, for, although his writings were inspired by the Holy Spirit, yet the Holy Spirit chose as His instrument a man evidently possessing the capacity for strong and vigorous thought and argument and, as for his oratorical powers, I believe that if he had chosen to cultivate them, they would have been of the very first order, for we have in some of his Epistles eloquence more sublime than ever fell from the lips of Cicero or Demosthenes.

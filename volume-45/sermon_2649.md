@@ -1,12 +1,5 @@
 # Sermon 2649 | Girded for the Work
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 19, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 18, 1882.
-
 "Therefore gird up the loins of your mind." 1 Peter 1:13.
 
 WE noticed, in reading the chapter from which our text is taken, that the Apostle Peter first mentioned the glorious Doctrines of Grace and the marvelous benefits bestowed by God upon Believers and he, afterwards, drew from them a practical inference. "Therefore," he said, "gird up the loins of your mind." A Doctrine of God may become dangerous if it is not reduced to practice--and all the Doctrines of God's Word may readily be turned to good and practical account if we are willing to so employ them. Those who regard a Doctrine of God simply as a subject for debate or an opportunity for displaying one's argumentative powers, miss the mark altogether, for we are taught the Truths of God in order that they may lead us to holiness of life. This is the object of God in giving us more of His Light--that, by that Light, we may become more full of the Light of God and be the means of conveying His Light to others. Therefore, when your mind is instructed concerning some grand Truth of God, after you have sucked the honey and joy out of it, always say to yourself, "But what are the bearings of this Doctrine upon my life? How should it influence me? What would God have me do as the result of receiving such teaching as this?" From what Peter had already said, like a true logician, he draws a wise inference and says, "Therefore gird up the loins of your mind, be sober, and hope to the end for the Grace that is to be brought unto you at the revelation of Jesus Christ."

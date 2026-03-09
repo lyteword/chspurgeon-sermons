@@ -1,12 +1,5 @@
 # Sermon 2898 | The Search Warrant
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 25, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
-
 "But there are some of you that believe not." John 6:64.
 
 ARE there really? Yes. He that searches the hearts says so. Then it is high time for us to enquire, "What is it to believe in Christ? What is it to believe to the saving of the soul?" It is not merely to consider the Gospel to be true. It is not simply to endorse the Doctrine that Christ is God. Those who hold a sound creed may be destitute of precious faith and those who are able to defend the Divinity of Christ with admirable scholarship may, nevertheless, be without God in the world. To believe in Christ includes much more than a religious profession. It is so to believe the Gospel as to forsake all other beliefs for the possession of its blessed hope! It is to imbibe the spirit of the Word of God while you accept the letter of its pure teaching! Or, in other words, it is to come to Jesus and to prove, in your own souls, His power to save.

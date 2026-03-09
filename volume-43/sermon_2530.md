@@ -1,12 +1,5 @@
 # Sermon 2530 | "A Peculiar People"
 
-
-INTENDED FOR READING ON LORD'S-DAY, AUGUST 15, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 6, 1884.
-
 "But know that the LORD has set apart him that is godly for Himself: the Lord will hear when I call to Him." Psalm 4:3.
 
 If you read this Psalm through, you will notice that when David wrote it, he had been pestered and troubled by certain ungodly men who had made a mockery of that which was his greatest delight. They had turned his glory into shame and had proved that they loved folly and falsehood. So he said to them, "O you sons of men, how long will you turn my glory into shame? How long will you love vanity and seek after leasing"--or, "lying?" In order that he might stop them from angering him, he reminded them of two great facts. "But know"--he said--understand, do not doubt it, rest assured of it, "know that Jehovah has set apart him that is godly for Himself: Jehovah will hear when I call to Him." Why did David want these men to know those two facts?

@@ -1,12 +1,5 @@
 # Sermon 2487 | Ordered Steps
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 18, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 29, 1886.
-
 "Order my steps in Your Word: and let not any iniquity have dominion over me." Psalm 119:133.
 
 NOTICE, in the previous verse, how the Psalmist expresses his longing desire to be treated as one of the Lord's family--"Look upon me, and be merciful to me, as You used to do to those that love Your name." We, also, dear Friends, wish to be treated as God treats all the rest of His children. I am sure that every humble Believer will be quite content with that arrangement. There was a time when you would have been willing that He should make you one of His hired servants, but you have seen the mistake of such a desire as that and now your prayer is, "Deal with me, O Lord, as one of Your children; treat me according to Your custom with Your redeemed! I do not ask anything different from the lot of the rest of the heirs of Heaven. If they are poor, I would be poor with them. If they suffer reproach, I would be reproached with them. If they carry a cross, I would carry a cross, too. Whatever is the appointed portion of the Lord's children, I am prepared to share and share alike with them. If You chasten them, I hope to have Your chastening. If You smile upon them, I shall delight to be smiled upon as You are known to smile on them." Brothers and Sisters, we feel a sweet kind of communism in the Church of God--we, none of us, desire to have anything more than this common lot of the redeemed family.

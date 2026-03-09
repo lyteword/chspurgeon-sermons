@@ -1,12 +1,5 @@
 # Sermon 2647 | Preparation Necessary for the Communion
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 5, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY EVENING IN THE AUTUMN OF 1857.
-
 "Let a maun examine himself, and so let him eat of the bread, and drink of the cup." 1 Corinthians 11:28.
 
 WE do not hold it right to admit all persons indiscriminately to the Lord's Supper--we believe the Lord's Table is the place of communion--and we would have none there with whom we cannot have true Christian fellowship. We can commune with all those who love our Lord Jesus Christ, however different may be their views upon some points of doctrine. So long as we find it possible to have fellowship with them, we believe it to be our duty to welcome them to the Supper of our Lord. When, through unholiness of life, lack of piety, or unsoundness in the fundamental Truths of the Gospel on the part of those who apply to us to be received as communicants, we feel that we cannot commune with them, we hold it to be our bounden duty, as God has given us authority in His Church, to prevent those from drawing near unto the Table who would but commune unworthily and so eat and drink unto themselves judgment--as the Word in the 29th verse should be translated. Among our Baptist Churches, fashioned, we trust, somewhat nearer to the Scriptural order than certain others we know of, we do exercise at least some measure of discipline. We require from those who are members of the Church and who are, by reason of that membership, entitled to commune, that they should, at their reception, give us what we consider satisfactory proofs of their conversion. And we require of them, afterwards, that their conduct should be consistent with the Law of Christ. Otherwise, we would not, in the first place, receive them, or, having received them, we would not be long before, by the Scriptural process of excommunication, we would remove from our midst those members whose lives and conversation were not in accordance with the Gospel of our Lord and Savior Jesus Christ.

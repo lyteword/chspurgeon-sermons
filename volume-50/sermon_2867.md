@@ -1,12 +1,5 @@
 # Sermon 2867 | The Life-look
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 21, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 9, 1876.
-
 "Look unto Me, and be you saved, all the ends of the earth: for I am God, and there is no other." Isaiah 45:22.
 
 

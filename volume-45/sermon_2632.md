@@ -1,12 +1,5 @@
 # Sermon 2632 | "What Shall the Harvest Be?"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JULY 23, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 14, 1882.
-
 "For they have sown the wind, and they shall reap the whirlwind: it has no stalk: the bud shall yield no meal: if it should produce, strangers shall swallow it up." Hosea 8:7.
 
 PRUDENT men look before them to see the result of their actions. Their eyes look beyond the present to the future. They look before they leap. It is only the foolish man who goes blindly on till, at last, he stumbles and has a desperate and probably fatal fall. Brothers and Sisters, I hope that I am addressing those who have enough wit and wisdom to look at the consequences of what they are doing. This is how I wish to live--not merely doing what may give me today's temporary pleasure, but asking myself what will be the result of those actions, by-and-by. How will they appear to me when I come to be old? What aspect will they wear when my eyes are failing me in death? What will be the result in that life after death--that endless future which is so sure to come to me, let me live as I may? I say that I hope I am speaking to those who look a little ahead, and are not, "like dumb driven cattle," satisfied if there is grass enough within the reach of their mouths, but who look before them to see the consequences on the morrow and especially on that Last Great Day for which all other days were made--"the day of judgment and perdition of ungodly men."

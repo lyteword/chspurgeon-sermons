@@ -1,12 +1,5 @@
 # Sermon 2663 | A Leap Year Sermon
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 25, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 29, 1880.
-
 "One born out of due time." 1 Corinthians 15:8.
 
 PAUL thus describes himself. It was necessary that Paul, as an Apostle, should have seen the Lord. He was not converted at the time of Christ's Ascension, yet he was made an Apostle, for the Lord Jesus appeared to him in the way, as he was going to Damascus, to persecute the saints of God. When he looked upon himself as thus put in, as it were, at the end of the Apostles, he spoke of himself in the most depreciating terms, calling himself, "one born out of due time."

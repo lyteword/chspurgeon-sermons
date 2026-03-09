@@ -1,12 +1,5 @@
 # Sermon 2745 | Intercession and Supplication
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 22, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 27, 1879.
-
 "Are You not He, O Lord our God? Therefore we will wait for You" Jeremiah 14:22.
 
 THIS is an instance of amazing yet holy boldness. The Prophet had received from the Lord the explicit command, "Pray not for this people: for their good," and yet, after reasoning with God, his heart grew so warm with sacred fervor and his spirit became fired with such a passionate zeal that he could not help pleading for the sinful nation! He poured out his soul in the vehement prayer and said to the Lord, "We will wait upon You." This was, perhaps, disobedience in the outward form, but it was not disobedience as to the inner spirit of the Prophet, for the Lord counts not as disobedience the earnest pleading and yearning of the heart of His people. This is a marvelous instance of how, under the most discouraging circumstances--when there appears no prospect whatever of success--men who are moved of God to pray for their fellows, will cling to His garments and still intercede on behalf of those who are altogether unworthy of their supplications.

@@ -1,12 +1,5 @@
 # Sermon 2473 | An Awful Contrast
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 12, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 11, 1886.
-
 "Then they spat in His face." Matthew 26:67.
 
 "And I saw a great white throne, and Him that sat on it, from whose face the earth and the Hea ven fled away." Revelation 20:11.

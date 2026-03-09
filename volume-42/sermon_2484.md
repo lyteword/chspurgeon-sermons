@@ -1,12 +1,5 @@
 # Sermon 2484 | The Very Friend You Need
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, SEPTEMBER 27, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 22, 1886.
-
 "A friend of publicans and sinners." Luke 7:34.
 
 THIS title was given to our Divine Lord and Master by those who were disposed to quibble at Him and were unwilling to be convinced that He was the Messiah. John the Baptist's self-denial was pushed much too far for them. They could not understand a man wearing a garment of camel's hair, with a leather belt about his loins and whose food was locusts and wild honey. The man was either too good for this world, or he was not in his right mind. "He has a devil," they said, as they turned away from him. But they could not say this of the Savior, for He ate and drank as others ate and drank, and made no difficulty at all about meats and drinks--so they said of Him--"He is a gluttonous Man and a winebib-ber--a friend of publicans and sinners." Thus our text comes to us as the language of certain gentry who said, even of the Savior, that they could not listen to Him because He seemed to be a Man who went in and out with ordinary people and did not distinguish Himself by being an ascetic.

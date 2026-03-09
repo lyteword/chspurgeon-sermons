@@ -1,12 +1,5 @@
 # Sermon 2908 | The Saint's Heritage and Watchword
 
-
-A SERMON PUBLISHED 0N THURSDAY, NOVEMBER 3, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, NOVEMBER 5, 1854.
-
 "No weapon that is formed against you shall prosper; and every tongue that shall rise against you in judgment you shall condemn. This is the heritage of the servants of the LOUD, and their righteousness is of Me, says the Lord." Isaiah 54:17.
 
 This is the fifth of November, a day notable in English history. The events which transpired on it ought never to be forgotten. On this memorable day the Catholics, foiled in all their schemes for crushing our glorious Protestantism, devised a plot horrible and diabolical enough to render them forever hateful among upright men. The vast Armada of Spain on which they had relied had been, by the breath of God, scattered and given to destruction. And now the cowardly traitors attempted by the foulest means, the end which they could not accomplish by open warfare. Under the Houses of Parliament the deadly powder was concealed which they hoped would be the deathblow to both houses and so annihilate the power of Protestantism. But God looked from Heaven, confounded their knavish tricks, laid their secrets bare and exposed their treachery! Hallelujah to the King eternal, immortal, invisible who guarded us and guards us still from the devices of Rome and Hell! Praise to His name, we are free from the Pope of Rome, to whom--

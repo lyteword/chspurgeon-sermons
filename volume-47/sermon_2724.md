@@ -1,12 +1,5 @@
 # Sermon 2724 | The Dew of Christ's Youth
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 28, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, EARLY IN THE YEAR 1859.
-
 "You have the dew of Your youth." Psalm 110:3.
 
 WHEN you have walked in the garden, early in the morning, you must have noticed the singular freshness and beauty which a summer's morning always seems to give to the earth. The dewdrops, like tears standing in the eyes of the flowers, as if they wept for joy to see the sun again after the long night of darkness, sparkle in the sun! The greenness of vegetation has about it a more than emerald hue and every "thing of beauty" looks more beautiful in the morning than at any other season. You have gone out again, perhaps, at noon, and you have noticed how dry and dusty everything appears, for the sun has risen and by his burning heat he has exhaled the dew and the freshness of the morning has departed in the drought of noon. Now, this is just a picture of all things here below--yes, and also a picture of ourselves. When we first behold many things, they have the dew upon them and they sparkle, but in a little while all their brightness is gone and their brilliance scattered. Some of you have entered into pleasure and you have found it a delusion--you have intermeddled with all kinds of knowledge and you have found that in the making and reading of books, there was much pleasure, but, before long you have discovered that in reading many books and in making them, there was no end and much study was a weariness to the flesh.

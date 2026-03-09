@@ -1,12 +1,5 @@
 # Sermon 2590 | Hearing, Seeking, Finding
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, OCTOBER 2, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 24, 1883.
-
 "Lo, we heard of it at Ephratah: we found it in the fields of the woods. We will go into His tabernacles: we will worship at His footstool." Psalm 132:6, 7.
 
 LONG before David's time, the Ark of the Lord had been almost forgotten by the children of Israel. It formed a most important part of the Ceremonial Law which God had ordained. I may almost call it the central portion of that pattern which was shown to Moses in the mountain. But the Ark had been carried into captivity by the Philistines and, afterwards, the terrible judgment worked upon the men of Beth-Shemesh may have made many afraid to go near it. So it remained a long time in Kirjath-Jearim and there David found it. And, after leaving it for a while at the house of Obed-Edom, brought it up to Jerusalem with great rejoicing. David's heart was so full of zeal for God that he desired that every part of the Lord's worship should be carried out with due order and proper solemnity. He wished to see a sanctuary built in which the Ark of the Lord should rest in its place and the worship of God should be carried out as He judged was meet and fit.

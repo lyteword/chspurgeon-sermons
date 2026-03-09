@@ -1,12 +1,5 @@
 # Sermon 2792 | A Psalmist's Question and Answer
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 17, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 8TH, 1878.
-
 "If You, Lord, should mark iniquities, O Lord, who shall stand? But there is forgiveness with You, that You may be feared." Psalm 130:3, 4.
 
 NOTE, dear Friends, that the Psalm begins with this remarkable expression, "Out of the depths I have cried unto You, O Lord," and I call your special attention to that utterance of the Psalmist because there are many who are afraid to pray when they are in the depths of soul-despair. It is comparatively easy to think you are praying when you have a fine notion of your own excellence. At such a time you can stand up in the Temple with the boasting Pharisee and pour out, as glibly as possible, expressions which you call prayer, but which God will never accept. But the very best prayer in all the world is that which comes from a broken heart and a contrite spirit--when, away in the corner there, beside the conscience-stricken publican, we smite upon our breast and cry, "God be merciful to me a sinner." Do not, I beg you, think that your prayer will not succeed because you are in the depths. There is no place for praying like that! If ever a man is more sure to succeed with God at one time than at another, it is when he is in his greatest straits.

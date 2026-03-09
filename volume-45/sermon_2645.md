@@ -1,12 +1,5 @@
 # Sermon 2645 | "The Time of Jacob's Trouble"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DRY, OCTOBER 22, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 29, 1882.
-
 "It is even the time of Jacob's trouble; but he shall be saved out of it." Jeremiah 30:7.
 
 GOD here calls the Jews by the name of Jacob. These were His people in a very special sense, for He had chosen them from among all the nations of the earth and had brought them near Him that they might be His own portion, His inheritance. Yet upon these people He laid many stripes and visited them with sore chastisements. It is true that they were a sinful people, though they were, in many respects, better than other nations who were, for a long while, allowed to go unpunished. Year after year, the heathen prospered in war and had success in other ways--but as for God's own people, waters of a full cup were wrung out to them. As soon as the Lord had a people, they began to suffer. We learn this very early in their history, for, after Isaac, the child of promise, was born, it was not very long before Ishmael--"he that was born after the flesh persecuted him that was born after the Spirit."

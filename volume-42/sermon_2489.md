@@ -1,12 +1,5 @@
 # Sermon 2489 | Singing Saints
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 1, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 3, 1886.
-
 "Sing to the LORD, O you saints of His, and give thanks at the remembrance of His holiness." Psalm 30:4.
 
 DAVID had been seriously ill and the Lord had graciously restored him to health. He says, "O Lord my God, I cried to You and You have healed me. O Lord, You have brought up my soul from the grave: You have kept me alive, that I should not go down to the pit." As soon as he has recovered his health and strength, the holy instincts of the man lead him to praise the Lord. The first thing to do, when the throat is clear after an illness, is to sing praises to God! The first thing to do, when the eyes are brightened again, is to look up to the Lord with thankfulness and gratitude. Some people need to be told this, but the Psalmist did not--it came to him as a matter of course. Now that he was restored, he would take his place among the heavenly choristers and sing to Jehovah. He was not satisfied to sing alone, what child of God is? Among the birds in the springtime, when the first one wakes in the morning and begins to sing, does he not call up his fellows? Is not his song an invitation to all the feathered songsters of the grove to join with him and pour out their united harmony? In like manner, it is characteristic of a praiseful heart that it naturally desires society in praise. We do not like to praise God alone--we can do it and we will do it if we must--but our heart often cries aloud to our Brothers and Sisters in Christ, "Praise to the Lord." Our very, "Hallelujah," is intended to stir up others to this holy exercise, for it means, "Praise you the Lord."

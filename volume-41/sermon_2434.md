@@ -1,12 +1,5 @@
 # Sermon 2434 | "A Man Under Authority"
 
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 13, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 2, 1887.
-
 "The centurion answered and said, Lord, I am not worthy that You should come under my roof: but speak the word, only, and my servant shall be healed. For I am a man under authority, having soldiers under me: and I say to this man, Go, and he goes; and to another, Come, and he comes; and to my servant, Do this, and he does it." Matthew 8:8,9.
 
 WITHOUT any introduction, as we have just been reading Matthew's record of this notable miracle of our Lord, I shall come at once to the text and, first of all, work out the incident, itself, and then, secondly, make use of its lessons for our own practical purposes. There is much to be learned from this narrative for our guidance at the present time.

@@ -1,12 +1,5 @@
 # Sermon 2436 | "How Good to Those Who Seek!"
 
-
-INTENDED FOR READING ON LORD'S DAY, OCTOBER 27, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 23, 1887.
-
 "The LORD is good to the soul that seeks Him." Lamentations 3:25.
 
 I DO not know whether it has ever struck you what a grand man Jeremiah was. If you were to read the book of his prophecy through, from beginning to end, and make yourself familiar with the circumstances under which the Prophet spoke and wrote, I think you would come to admire him as one of the greatest men who ever lived, for he was not, like Isaiah, brightened and cheered by having a joyful message to deliver, but he had received a sorrowful burden from his Lord--and he faithfully carried it out--and when the people rejected his testimony and refused his message, he went on delivering it all the same. There was no gleam of success to gladden his ministry, yet he never flinched! Nobody seemed to believe in him--he was the jest and the by-word of the people, but that did not matter to him at all. He was tender and affectionate, so that he cried, "Oh that my head were waters, and my eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people!"

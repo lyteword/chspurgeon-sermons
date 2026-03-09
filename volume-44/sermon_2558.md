@@ -1,12 +1,5 @@
 # Sermon 2558 | Songs in the Night
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 27, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "But none says, Where is God my Maker, who gives songs in the night?" Job 35:10.
 
 ELIHU was a wise man, exceedingly wise, though not as wise as the All-Wise Jehovah, who sees light in the clouds and finds order in confusion. Hence Elihu, being much puzzled at beholding Job so afflicted, cast about him to find the cause of it and he very wisely hit upon one of the most likely reasons, although it did not happen to be the right one in Job's case. He said within himself, "Surely, if men are sorely tried and troubled, it is because while they think about their troubles and distress themselves about their fears, they do not say, 'Where is God my Maker, who gives songs in the night?'" Elihu's reason is right in the majority of cases. The great cause of a Christian's distress, the reason of the depths of sorrow into which many Believers are plunged is simply this--that while they are looking about, on the right hand and on the left, to see how they may escape their troubles, they forget to look to the hills from where all real help comes--they do not say, "Where is God my Maker, who gives songs in the night?"

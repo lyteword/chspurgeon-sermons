@@ -1,12 +1,5 @@
 # Sermon 2814 | Abraham's Great Reward
 
-
-A SERMON INTENDED FOR READING ON LORD'S DAY, JANUARY 18, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 14, 1877.
-
 "Fear not, Abram: I am your shield, and your exceeding great reward." Genesis 15:1.
 
 You have probably heard a great many sermons on the first part of the text, "I am your shield," so, on this occasion, I am going to leave that portion in order to more fully consider the second part--"I am your exceeding great reward."

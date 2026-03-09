@@ -1,12 +1,5 @@
 # Sermon 2793 | Five Divine Declarations
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, AUGUST 24, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 15, 1878.
-
 "Surely, shall one say, in the LORD I have righteousness and strength: even to Him shall men come; and all that are incensed against Him shall be ashamed. In the LORD all the seed of Israel shall be justified, and shall glory." Isaiah 45:24,26.
 
 IF YOU carefully read the chapter from which our text is taken, you must notice the high style which God here adopts. He speaks like a king--no, more--He speaks like a God, as He is entitled to do, for He is God. David says, in the 29th Psalm, "The voice of the Lord is powerful; the voice of the Lord is full of majesty." We can hear that powerful, majestic voice in this Chapter! The Lord here speaks about men coming to Him, confessing to Him and obeying Him without inserting any "if as to their own will in the matter, or raising any question as to whether He can accomplish what He promises. Listen attentively to these words in the verse before our text, for they are very strong and forcible--"I have sworn by Myself, the word is gone out of My mouth in righteousness, and shall not return, That unto me every knee shall bow, every tongue shall swear." The Lord lays unusual emphasis upon the irrevocable oath which He has sworn and says that He will never recall the word which has gone out of His mouth. He speaks with that same power which said, "Let there be light: and there was light." In a word, He speaks Divinely and, therefore, He can fulfill what He has declared.

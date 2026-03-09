@@ -1,12 +1,5 @@
 # Sermon 2626 | "Peace in Believing"
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 11, 1899.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 19, 1882.
-
 "Peace in believing." Romans 15:13.
 
 ON whatever subjects I may be called to preach, I feel it to be a duty which I dare not neglect to be continually going back to the Doctrine of the Cross--the fundamental Truth of God of justification by faith which is in Christ Jesus. This topic is essential to the life of the soul. Men are not saved but by faith in Jesus and, therefore, to this great central point we must return again and again and again, hoping that God will bless His own Word to those who hear it proclaimed. I notice that some of our friends, who are bakers, have in their shop windows divers articles of confectionery, and I suppose they have their set days for making their various kinds of cake and sweetmeats. But one thing I know they never forget to do and that is to bake, every day, a batch of bread because, if their customers do not need this or that confectionery, they always need bread--and what is the good of a baker if he has no bread? I wish that every preacher felt that, albeit there are certain things which are sweet and toothsome, which some mouths are always craving, yet the chief business of the minister, like that of the baker, is to have a constant supply of good bread. It may be a very ordinary kind of food.

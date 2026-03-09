@@ -1,12 +1,5 @@
 # Sermon 2417 | First Forgiveness, Then Healing
 
-
-INTENDED FOR READING ON LORD'S DAY, JUNE 16, 1895.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 2, 1887.
-
 "When He saw their faith, He said to him, Man, your sins are forgiven you." Luke 5:20.
 
 I HAVE read to you the narrative of the healing of the man taken with the palsy and many of you remember that, last Sabbath evening, I preached upon the Pharisees and the doctors of the Law who were "sitting by" [Sermon #1991, Volume 33--"Sitting By"] I tried to represent the position of many in our congregations who are just "sitting by." I preached to the outsiders of the congregation on the divers reasons which led to this, "sitting by." I must confess that I did not reckon on so large a blessing as I have already seen as the result of that sermon. When I came here on Monday afternoon, that being Whit-Monday, when everybody is supposed to take a holiday, I was surprised, on my arrival at about three o'clock, by a friend running up to me and saying, "We are glad you have come, Sir, for there is already a room full." There is quite a nice number of friends who have come forward from the congregation and who, one after another have said, "We cannot be sitting by any longer. We feel that we cannot remain among the sitters-by, but that we must come in and partake of the Gospel feast and join ourselves with the disciples of our Lord and Savior Jesus Christ."

@@ -1,12 +1,5 @@
 # Sermon 2703 | The Preservation of Christians in the World
 
-
-INTENDED FOR READING ON LORD'S-DAY, DECEMBER 2D, 1900.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A THURSDAY EVENING, IN THE YEAR 1855.
-
 "I pray not that You should take them out of the world, but that You should keep them from the evil." John 17:15.
 
 THE text, as we observed on a former occasion, [Sermon #47, Volume 1--CHRIST'S PRAYER FOR HIS PEOPLE contains two prayers--a negative prayer and a positive prayer. First, there is the negative prayer--"I pray not that You should take them out of the world." There are wise ends to be observed by their remaining here. It will ultimately increase their happiness in Heaven. It will give glory to God. It shall be the means of the conversion of others--therefore, "I pray not that you should take them out of the world," but I do pray--and here comes the positive prayer--"that, while they are in it, 'you should keep them from the evil.'"

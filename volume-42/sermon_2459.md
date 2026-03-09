@@ -1,12 +1,5 @@
 # Sermon 2459 | "Better Than Wine"
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, APRIL 5, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 2, 1872.
-
 "Your love is better than wine." Song of Solomon 1:2.
 
 THE Scriptural emblem of wine, which is intended to be the symbol of the richest earthly joy, has become desecrated in process of time by the sin of man. I suppose in the earlier ages when the Word of God was written, it would hardly have been conceivable that there could have existed on the face of the earth such a mass of drunken men and women as now pollute and defile it by their very presence. For man, nowadays, is not content with the wine that God makes, but he manufactures some for himself of which he cannot partake, at least in any abundance, without becoming drunk. Redeem the figure in our text, if you can, and go back from the drinking customs of our own day to more primitive and purer times, when the ordinary meal of a man was very similar to that which is spread upon this communion table--bread and wine--of which men might partake without fear of evil effects. But do not use the metaphor as it would now be understood among the mass of mankind, at least in countries like our own.

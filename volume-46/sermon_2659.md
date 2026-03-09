@@ -1,16 +1,5 @@
 # Sermon 2659 | Fallen Asleep
 
-
-INTENDED FOR READING ON LORD'S-DAY, JANUARY 28, 1900.
-
-(C. H. Spurgeon Memorial Sabbath).
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 29, 1882.
-
-[Just 10 years before he fell asleep in Jesus.]
-
 "Some are fallen asleep." 1 Corinthians 15:6.
 
 Writing concerning the brethren who had seen the Lord Jesus Christ after His Resurrection and of whom "above five hundred" were present at one time, Paul said, at the date when he was writing this Epistle, "the greater part" remained alive, "but," he added, "some are fallen asleep."

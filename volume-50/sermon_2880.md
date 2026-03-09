@@ -1,12 +1,5 @@
 # Sermon 2880 | New Tokens of Ancient Love
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 21, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING, DURING THE WINTER OF 1861-2.
-
 "The LORD hath appeared of old unto me, saying, Yes, Ihave loved you with an everlasting love: therefore with loving kindness have I drawn you." Jeremiah 31:3.
 
 IT is said that when the stars cannot be seen during the day from the ordinary level of the earth, if one should go down into a deep well, they would be visible at once and, certainly, it is a fact that many of the brightest of God's promises are usually seen by His children when they are passing through some of their darkest experiences. As surely as God puts them into the furnace of affliction and trial, He will be with them in the furnace. I do not read that Jacob ever saw the Angel of the Lord until that night when, by the brook Jabbok, "there wrestled a Man with him until the breaking of the day," but then, the wrestling Jacob met the wrestling Angel foot to foot. I do not know that Joshua ever saw the "Captain of the Lord's host" until, outside the walls of Jericho, his Divine Leader appeared to him. I do not know that Abraham ever saw the Lord until, as a stranger in the plains of Mamre, He manifested Himself to His servant in the form of a traveler and His friends needing hospitality and refreshment.

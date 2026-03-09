@@ -1,12 +1,5 @@
 # Sermon 2913 | David's First Victory
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 8, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "So David prevailed over the Philistine with a sling and with a stone, and smote the Philistine and slew him, but there was no sword in the hand of David." 1 Samuel 17:50.
 
 A CAREFUL reading of the whole chapter will well repay your pains. I have selected a verse for convenience, but I need the entire narrative for a text. If you are well versed in the history, we shall have no need of any preface or translation. So we shall proceed at once to regard David in his conflict with Goliath and his victory over him, first, as a type of our Lord Jesus Christ. And, secondly, as an example for ourselves. As that which is a type of the head always bears a relationship to the members and, as the members of Christ's mystical body now are and shall yet more fully be like Him, it is but one thought, after all, that we shall be following out in the meditation that lies before us.

@@ -1,12 +1,5 @@
 # Sermon 2457 | Job's Resignation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 11, 1886.
-
 "Then Job arose, tore his clothes, and shaved his head, and fell to the ground, and worshipped, and said, Naked I came from my mother's womb, and naked shall I return there: the LORD gave, and the LORD has taken away; blessed be the name of the LORD. In all this Job sinned not, nor charged God foolishly." Job 1:20-22.
 
 JOB was very much troubled and he did not try to hide the outward signs of his sorrow. A man of God is not expected to be a stoic. The Grace of God takes away the heart of stone out of his flesh, but it does not turn his heart into a stone. The Lord's children are the subjects of tender feelings--when they have to endure the rod, they feel the smart of its strokes--and Job felt the blows that fell upon him. Do not blame yourself if you are conscious of pain and grief, and do not ask to be made hard and callous. That is not the method by which Grace works--it makes us strong to bear trials, but we have to bear them! It gives us patience and submission, not stoicism. We feel and we benefit by the feeling--and there is no sin in the feeling--for in our text we are expressly told of the Patriarch's mourning, "In all this Job sinned not." Though he was the great mourner--I think I might truly call him the chief mourner of Scripture--yet there was no sin in his mourning. There are some who say that when we are heavy of heart, we are necessarily in a wrong spirit, but it is not so. The Apostle Peter says, "If need be you are in heaviness through manifold trials," but he does not imply that the heaviness is wrong. There are some who will not cry when God chastises them and some who will not yield when God strikes them. We do not wish to be like they--we are quite content to have the suffering heart that Job had--and to feel the bitterness of spirit, the anguish of soul which racked that blessed Patriarch.

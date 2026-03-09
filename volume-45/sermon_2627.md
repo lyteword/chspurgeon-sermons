@@ -1,12 +1,5 @@
 # Sermon 2627 | The Best Friend
 
-
-INTENDED FOR READING ON LORD'S-DAY, JUNE 18, 1899.
-
-DELIVERED BY C. H. SPURGE0N,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 23, 1882.
-
 "Your own friend, and your father's friend, forsake not." Proverbs 27:10.
 
 TRUE friends are very scarce. We have a great many acquaintances and, sometimes, we call them friends and so misuse the noble word, "friendship." Perhaps, in some later day of adversity, when these so-called friends have looked out for their own interests and left us to do the best we can for ourselves, that word, friendship, may come back to us with sad and sorrowful associations. The friend in need is a friend, indeed, and such friends, I say again, are scarce. When you have found such a man and proved the sincerity of his friendship. When he has been faithful to your father and to you, grapple him to yourself with hooks of steel and never let him go! It may be that because he is a faithful friend, he will sometimes vex you and anger you. See how Solomon puts it in this very chapter--"Open rebuke is better than secret love. Faithful are the wounds of a friend." It takes a great deal of friendship to be able to tell a man his faults. It is not friendship that flatters! It is small friendship that holds its tongue when it ought to speak. But it is true friendship that can speak at the right time and, if necessary, even speak so sharply as to cause a wound. If you are like many other foolish folk, you will be angry with the man who is so much your friend that he will tell you the truth. If you are unworthy of your friend, you will begin to grow weary of him when he is performing on your behalf the most heroic act of pure charity by warning you of your danger and reminding you of your imperfection! Solomon, in prospect of such a case, knowing that this is one of the greatest trials of friendship among such poor imperfect beings as we are, tells us not to forsake, for this reason--nor indeed, for any other reason--the man who has been to us and to our family a true friend. "Your own friend, and your father's friend, forsake not."

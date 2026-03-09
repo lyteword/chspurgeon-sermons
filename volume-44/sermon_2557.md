@@ -1,12 +1,5 @@
 # Sermon 2557 | A Vexed Soul Comforted
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 20, 1898.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 21, 1883.
-
 "The Almighty hats vexed my soul." Job 27:2.
 
 THE word, "who," was put into this verse by the translators, but it is not needed. It is better as I have read it to you, "The Almighty has vexed my soul." The marginal reading is, perhaps, a more exact translation of the original--"The Almighty has embittered my soul." From this we learn that a good man may have his soul vexed. He may not be able to preserve the serenity of his mind. We think and think rightly, that a Christian man should "glory in tribulations, also," and rise superior to all outward afflictions. But it is not always so with us. It is necessary, sometimes, that we should be "in heaviness through manifold temptations." Not only are the temptations needed for the trial of our faith, but it is even necessary that we should be in heaviness through them. I hardly imagine that the most quiet and restful Believers have always been unruffled. I can scarcely think that even those whose peace is like a river have always been made to flow on with calm and equable current. Even to rivers there are rapids and cataracts, and so, I think, in the most smoothly-flowing life, there surely must be breaks of distraction and of distress. At any rate, it was so with Job. His afflictions, aggravated by the accusations of his so-called friends, at last made the iron enter into his very soul and his spirit was so troubled that he cried, "The Almighty has embittered my soul!"

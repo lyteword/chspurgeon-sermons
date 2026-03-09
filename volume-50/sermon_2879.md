@@ -1,12 +1,5 @@
 # Sermon 2879 | The Wide-open Mouth Filled
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 14, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE PASTOR'S COLLEGE CONFERENCE, ON FRIDAY MORNING, APRIL 7, 1876.
-
 "I am the Lord your God, which brought you out of the land of Egypt: open your mouth wide, and I will fill it." Psalm 81:10.
 
 You have, no doubt, met with various interpretations of this metaphor--"Open your mouth wide, and I will fill it." You will find that several expositors say that there is an allusion, here, to a custom which is said to have been observed by the late Shah of Persia, who, being greatly pleased with one of his courtiers, made him open his mouth and then began to fill it with diamonds, pearls, rubies and emeralds. I shall expect that, under such circumstances, the courtier would open his mouth very wide indeed!

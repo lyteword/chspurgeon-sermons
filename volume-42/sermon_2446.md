@@ -1,12 +1,5 @@
 # Sermon 2446 | Carte Blanche
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 5, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 20, 1890.
-
 "Then Jesus answered and said unto her, O woman, great is your faith: be it unto you even as you will." Matthew 15:28.
 
 I mean to dwell Especially upon those words at the end of the verse, "Be it unto you even as you will," but before we consider them, I should like to remind you again, as I did in the reading, that our Lord admired this woman's faith. He said unto her, "O woman, great is your faith." She was humble, she was patient, she was persevering, she was affectionate towards her child, but our Savior did not mention any of these things, for He was most of all struck by her faith. What other good things she had sprang out of her faith, so the Lord Jesus went at once to the root of the matter and, as it were, held up His hands in astonishment and exclaimed, "O woman, great is your faith." Her faith really was great, extremely great, when you consider that she was a Gentile and one of a race that had, ages before, been doomed. The Canaanite race was one in whose nature idolatry seemed to be ingrained, yet this woman showed that she had greater faith than many a Jew!

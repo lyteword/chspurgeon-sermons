@@ -1,14 +1,5 @@
 # Sermon 2762 | Taking Hold of God's Covenant
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JANUARY 19, 1902.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 5, 1879.
-
-"And takes hold of My Covenant." Isaiah 56:4.
-
 "And takes hold of My Covenant." Isaiah 56:6.
 
 IT was generally supposed by the Jews that no one except the descendants of Abraham, Isaac and Jacob could be in Covenant relationship with God. You remember, however, how Paul says, in writing to the Romans, "But Isaiah is very bold," and he is so in this instance. He declares that men may take hold of the Covenant of God though, heretofore, they appeared to be shut out from its privileges. There were certain poor mutilated beings who were despised by some because of their disabilities--yet they were to be encouraged to keep the Lord's Sabbaths, to choose the things that pleased Him and to take hold of His Covenant. Then there were the foreigners, of whom the Lord said, "Also the sons of the stranger, that join themselves to Jehovah, to serve Him and to love the name of Jehovah to be His servants, everyone that keeps the Sabbath from polluting it, and takes hold of My Covenant; even them will I bring to My holy mountain and make them joyful in My house of prayer: their burnt offerings and their sacrifices shall be accepted upon My altar; for My house shall be called an house of prayer for all people."

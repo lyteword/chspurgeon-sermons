@@ -1,12 +1,5 @@
 # Sermon 2661 | A Marvelous Change
 
-
-INTENDED FOR READING ON LORD'S-DAY, FEBRUARY 7, 1900.
-
-DELIVERED BY C. HSPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 7, 1882.
-
 "Know you not that the unrighteous shall not inherit the Kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind, nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners shall inherit the Kingdom of God. And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus, and by the Spirit of our God." 1 Corinthians 6:9-11.
 
 THE Gospel is as holy as the Law. The Gospel is full of mercy to sinners, but it shows no mercy to sin. The Gospel speaks most tenderly to the ungodly, but it speaks most sternly to ungodliness. There is a great difference made, in the New Testament, between the sinner and the sin. And while the sinner is, in Infinite mercy, spared, encouraged to hope, and wooed by almighty love, sin is denounced as a dreadful thing, an abominable thing which God hates and must punish.

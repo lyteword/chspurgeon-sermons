@@ -1,12 +1,5 @@
 # Sermon 2877 | Trials Expected and Conquered
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 31, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 12, 1876.
-
 "When you pass through the waters, I will be with you and through the rivers, they shall not overflow you, when you walk through the fire, you shall not be burned; neither shall the flame kindle upon you. For I am the LORD your God, the Holy One of Israel, your Savior: I gave Egypt for your ransom, Ethiopia and SSeba for you." Isaiah 43:2,3.
 
 EVEN down to the present day, the Jewish nation has not been destroyed. It has been made to pass through fire and through water. The story of the persecution of the Jews, both in earlier and later times, would fill many volumes with the most harrowing details. Had they not been a people whom God specially ordained to remain as His witnesses until the Messiah comes again, they would have utterly perished from among the sons of men! They have been a people scattered and peeled, rent and torn, hunted and harried--yet they still exist. For many a century they were equally abhorred by the heathen and the so-called Christians, yet they have lived on and they will continue to live on until a new heart and a right spirit shall be given to them and the Lord shall, in His great mercy, take away the blindness which in part has happened to Israel, so that they shall look on Him whom they have pierced and shall mourn for Him as one mourns for his only son. Then shall come the glory of the Gentiles, when more than the former glory of Israel shall be restored to her.

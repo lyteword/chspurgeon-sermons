@@ -1,12 +1,5 @@
 # Sermon 2513 | How to Please God
 
-
-INTENDED FOR READING ON LORD'S-DAY, APRIL 18, 1897.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 20, 1885.
-
 "But without faith it is impossible to please Him: for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him." Hebrews 11:6.
 
 "Without faith," says the text, "it is impossible to please God." Yet all men have not faith. Even among those who have heard the Gospel, many have not obeyed it. Isaiah is not the only one who has had to cry, "Who has believed our report? And to whom is the arm of the Lord revealed?" If it is so, that, "without faith it is impossible to please God," what becomes of the multitude who have heard, but believed not, to whom the Word of this salvation has come, but who have rejected it? It is to be feared that God may again swear in His wrath, "They shall not enter into My rest." The Israelites could not enter into Canaan because of unbelief-- and men in this day cannot enter into the privileges of the Gospel because of unbelief. Let us pity and pray for those who have not faith. Oh, that God would hear the cries of His children and work faith in men, for this, also, is the gift of God! Not only the blessing which He promises, but even the hand whereby we receive it must come from Him!

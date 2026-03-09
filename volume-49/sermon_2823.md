@@ -1,12 +1,5 @@
 # Sermon 2823 | One Trophy for Two Exploits
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, MARCH 22, 1903.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, IN THE SUMMER OF 1861.
-
 "For by You I have run through a troop; and by My God have Heaped over a wall" Psalm 18:29.
 
 IT sometimes puzzles the unenlightened Believer to find that the Psalms often relate both to David and to David's Lord. Many a young Believer has found himself quite bewildered when reading a Psalm--he has scarcely been able to make out how a passage could be true of both David and of the Lord Jesus Christ, "our superior King." This he cannot understand. But he who has grown far enough in Grace to understand the meaning of conformity to Christ sees that it is not without a high and heavenly design that the Holy Spirit has presented to us the experience of Jesus in that model of experience through which David passed.

@@ -1,12 +1,5 @@
 # Sermon 2491 | Shame Leading to Salvation
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, NOVEMBER 15, 1896.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 31, 1886.
-
 "Fill their faces with shame; that they may seek Your name, O LORRD!" Psalm 83:16.
 
 THIS is a very terrible Psalm. It contains some prayers against the enemies of God and of His people that crash with the thunder of indignation. You know that we are bid to love our enemies, but we are never commanded to love God's enemies. We may not hate any men as men, but as they are opposed to God, to truth, to righteousness, to purity, we may and we must, if we are, ourselves, right-minded, feel a burning indignation against them! Did you ever read the story of "the middle passage" in the days of the African slave trade, when the Negroes died by hundreds, or were flung into the sea to lighten the ship? Did you ever read of those horrors without praying, "O God, let the thunderbolts of Your wrath fall on the men who can perpetrate such enormities"? When you heard the story of the Bulgarian atrocities, did you not feel that you must, as it were, pluck God's sleeve and say to Him, "Why does Your justice linger? Let the monsters of iniquity be dealt with by You, O Lord, as they deserve to be"?

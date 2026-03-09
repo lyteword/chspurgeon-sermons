@@ -1,12 +1,5 @@
 # Sermon 2736 | The Great Miracle Worker
 
-
-A SERMON INTENDED FOR READING ON LORD'S-DAY, JULY 21, 1901.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 21, 1880.
-
 "Then gathered the chief priests and the Pharisees a council, and said, What shall we do? For this Man does many miracles." John 11:47.
 
 I WILL make a preface out of the verse preceding our text--"Some of them"--that is, some of those who saw Lazarus raised from the dead, "went their ways to the Pharisees, and told them what things Jesus had done. Then gathered the chief priests and the Pharisees a council, and said, What shall we do? For this Man does many miracles."
