@@ -1,12 +1,5 @@
 # Sermon 3040 | The Happy Beggar
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 16, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But I am poor and needy; yet the Lord thinks upon me." Psalm 40:17.
 
 THERE is no crime and there is no credit in being poor. Everything depends upon the occasion of the poverty. Some men are poor and are greatly to be pitied, for their poverty has come upon them without any fault of their own. God has been pleased to lay this burden upon them and, therefore, they may expect to experience Divine help and ought to be tenderly considered by their Brothers and Sisters in Christ. Occasionally poverty has been the result of integrity or religion--and here the poor man is to be admired and honored. At the same time, it will be observed by all who watch with an impartial eye that very much of the poverty about us is the direct result of idleness, intemperance, improvidence and sin. There would probably not be one-tenth of the poverty there now is upon the face of the earth if the drinking shops were less frequented, if debauchery were less common, if idleness were banished and extravagance abandoned. Lovers of pleasure, (alas, that such a word should be so degraded), are great impoverishers of themselves. It is clear that there is not, of necessity, either vice or virtue in being poor and a man's poverty cannot be judged of by itself--its causes and circumstances must be taken into consideration.

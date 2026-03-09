@@ -1,12 +1,5 @@
 # Sermon 3025 | Fifteen Years After!
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY FIRST, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 11, 1869.
-
 "Thee LORD gave, and the LORD has taken away; blessed be the name of the LORD." Job 1:21.
 
 

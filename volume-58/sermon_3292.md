@@ -1,12 +1,5 @@
 # Sermon 3292 | The Almighty Warrior
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 7, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 18, 1866.
-
 "Gird Your sword upon Your thigh, O Most Mighty One, with Your Glory and Your Majesty. And in Your Majesty ride prosperously because of truth and meekness and righteousness: and Your right hand shall teach You terrible things. Your arrows are sharp in the heart of the king's enemies; whereby the people fall under You." Psalm 45:3-5.
 
 [Another Sermon by Mr. Spurgeon, upon verse five, is #3039, Volume 53--THE KING'S SHARP ARROWS.]

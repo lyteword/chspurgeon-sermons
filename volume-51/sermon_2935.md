@@ -1,12 +1,5 @@
 # Sermon 2935 | Christ's Joy and Ours
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 11, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 3, 1875.
-
 "These things have I spoken unto you, that My joy might remain in you, and that your joy might be full." John 15:11.
 
 THERE is a sentence which has crept among our common proverbs so that it is repeated as if it were altogether true--"Man was made to mourn." There is a truth in that sentence, but there is also a falsehood in it. Man was not originally made to mourn--he was made to rejoice. The Garden of Eden was his place of happy abode and, as long as he continued obedient to God, nothing grew in that garden which could cause him sorrow. For his delight the flowers breathed out their perfume. For his delight the landscapes were full of beauty and the rivers rippled over golden sands. God made human beings as He made His other creatures, to be happy. They are capable of happiness. They are in their right element when they are happy and now that Jesus Christ has come to restore the ruins of the Fall, He has to bring back to us the old joy--only it shall be even sweeter and deeper than it could have been if we had never lost it! A Christian has never fully realized what Christ came to make him until he has grasped the joy of the Lord. Christ wishes His people to be happy. When they are perfect, as He will make them in due time, they shall also be perfectly happy. As Heaven is the place of pure holiness, so is it the place of unalloyed happiness and, in proportion as we get ready for Heaven, we shall have some of the joy which belongs to Heaven. And it is our Savior's will that oven now His joy should remain in us and that our joy should be full.

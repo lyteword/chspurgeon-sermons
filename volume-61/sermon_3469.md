@@ -1,12 +1,5 @@
 # Sermon 3469 | Martha and Mary
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus answered and said unto her, Martha, Martha, you are careful and troubled about many things: but one thing is necessary; and Mary has chosen that goodpart which shall not be taken away from her." Luke 10:41-42.
 
 I THINK I see the Man of Sorrows as He is traversing the high road, attended by His few friends and disciples. Where will He refresh Himself when the time is come to cease from toil and take food? Where is His house? Surely the Great Prophet has some place wherein to rest? Alas, He has none! "Foxes have holes, and the birds of the air have nests, but the Son of Man has not where to lay His head." However, what He has not of His own, friends will afford Him. Martha, a disciple--not a full-grown one, but one who had begun to learn something of the Truth of God--meets Him at the door of her house, at the entrance to the village of Bethany, and she invites Him to come in. Jesus Christ, who had often accepted an invitation from an enemy, was glad to accept one from a friend. So He goes into the house, with His friend, Lazarus, and sits down. No sooner is He sat down, with His disciples around Him, than He falls to preaching. A sermon is none the worse for being preached in a private house. Martha and Mary stood listening to Him. Stood, did I say? Mary sits down at His feet and Martha, having listened for a little while, remembers that she has many family cares. The dinner must be made ready, so she betakes herself into her kitchen and is very busy with her necessary cookery. She needs a little extra help, and she comes back into the room and sees Mary sitting at Jesus' feet. Seeming rather irritable, Martha appeals to Jesus, "Do You not care that my sister has left me to serve alone?"--hoping that the Master would chide Mary--but He rather defends her, and implies a gentle censure upon Martha, when He says, "Martha, Martha, you are careful and troubled about many things: but one thing is necessary; and Mary has chosen that good part which shall not be taken away from her."

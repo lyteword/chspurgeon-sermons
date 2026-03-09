@@ -1,12 +1,5 @@
 # Sermon 3064 | "And It Was So"
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 31, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DURING THE SUMMER OF 1871.
-
 "And it was so." Genesis 1:7.
 
 You will find those words six times upon the first page of Scripture. God spoke and said, "Let there be a firmament." "And it was so." He said, "Let the dry land appear." "And it was so." He bade the earth bring forth grass, "And it was so." He ordained the sun and moon for lights in the firmament of Heaven. "And it was so." Whatever it was that He willed, He did but speak the Word, "and it was so." In no single case was there a failure. There was not even a hesitation, a pause or a demand for a more powerful agency than the Divine Word. In each case, Jehovah spoke, "and it was so." Nor is this first week of Creation the only instance of the kind, for in no case has the Word of God fallen to the ground--whether of promise or of threat--the Word has been confirmed and fulfilled. "As it was in the beginning, it is now, and ever shall be, world without end." Whatever the mighty God decrees, foretells, declares, or promises shall, before long come to pass.

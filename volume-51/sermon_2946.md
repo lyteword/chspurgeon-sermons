@@ -1,12 +1,5 @@
 # Sermon 2946 | A Procession of Cross-bearers
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 27, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 2, 1875.
-
 "Take up the cross, and follow Me." Mark 10:21.
 
 YOUR mind's eye can see that procession yonder. Notice it carefully. At the head of it there walks One whom we rightly call Master and Lord. You may know Him by the prints of the nails in His hands and feet. I observe that He carries a Cross and that it is a very heavy one. Do you see the long line following Him? They are all those of whom the world was not worthy. That line has been continued even to this day and will be continued until the present dispensation shall close. As you watch these different followers of Christ in the procession, one thing will strike you--however much they differ in some respects, they are all alike in one thing--every one of them carries a cross. There is no exception to this rule! From the Master down to the last disciple, it is a procession of cross-bearers. The day will come when there will be a transformation scene and you will see all these cross-bearers transformed into crown-wearers! But, rest assured that the old motto, "No cross, no crown," is certainly true and those who refuse to carry the cross after Christ on earth shall never be permitted to wear the crown with Christ in the land that is beyond the stars.

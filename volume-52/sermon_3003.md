@@ -1,12 +1,5 @@
 # Sermon 3003 | A Vivid Contrast
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 30, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 17, 1864.
-
 "And every man went unto his own house." John 7:53.
 
 "Jesus went unto the Mount of Olives." John 8:1.

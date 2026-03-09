@@ -1,12 +1,5 @@
 # Sermon 3132 | A Question for You
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 18, 1909.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 9, 1874.
-
 "Do you believe on the Son of God?" John 9:35.
 
 [Other Sermons by Mr. Spurgeon upon this question are as follows--Sermons #1088, Volume 18--THE ESSENCE OF SIMPLICITY; #2141, Volume 36-- THE QUESTION OF QUESTIONS; #2667, Volume 46--A PRESSED MAN YIELDING TO CHRIST and #3008, Volume 52-- AN ALL-IMPORTANT QUESTION]

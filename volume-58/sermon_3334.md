@@ -1,12 +1,5 @@
 # Sermon 3334 | Lovely, But Lacking
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "One thing you lack." Mark 10:21.
 
 THOUGH the Gospel of Jesus Christ most certainly addresses itself to the vilest of the vile, it is not exclusively to such that the message of salvation is sent. There are, indeed, no characters so far gone in vice that the Gospel does not speak to them. However abandoned they may be, still is this inviting voice sent to the very chief of sinners, "Come to Christ and live." But the Gospel, with equal affection, addresses itself to those who are not upon any common estimation to be numbered with the chief of sinners--to those whose moral integrity has been unimpeachable, whose outward propriety has been scrupulous--whose lives in all their domestic and social relations have been commendable. There are always some such individuals in our congregation. We are very thankful that there are. We have an invitation for them as frank, as honest and as earnest as for wanton sinners, heinous transgressors and hardened criminals--and our sincere desire is that such may be saved, for we believe that they, also, will make illustrious trophies of Divine Grace when Grace decides them to decide for Christ.

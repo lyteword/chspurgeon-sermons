@@ -1,12 +1,5 @@
 # Sermon 3054 | Pardon and Justification
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 22, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "Blessed is he whose transgression is forgiven, whose sin is covered." Psalm 32:1.
 
 FEW men judge things correctly. Most people measure by appearances--few know the test of reality. We pronounce the man blessed who grasps the scepter or wears the crown, whereas perhaps no peasant in his dominion enjoys less happiness than he does. We pronounce that man blessed who has uninterrupted and perpetual health, but we know not the secret gnawing of the heart devoured by its own anguish and embittered by a sorrow that a stranger cannot perceive. We call the wise man happy because he understands all things--from the hyssop on the wall to the cedar of Lebanon-- but he says, "Of making many books there is no end and much study is a weariness of the flesh." We are all for pronouncing our neighbor's lot happier than our own. As Young says of mortality, "All men think all men mortal but themselves." And we are apt to think all men happy but ourselves. But oh, if we could see things as they are. If we were not deceived by the masquerade of this poor life. If we were not so easily taken in by the masks and dresses of those who act in this great drama, be it comedy or tragedy--if we could but see what the men are behind the scenes, penetrate their hearts, watch their inner motions and discern their secret feelings--we should find but few who could bear the name of "blessed"! Indeed, there are none except those who come under the description of my text, "Blessed is he whose transgression is forgiven, whose sin is covered." He is blessed, thrice blessed, blessed forevermore, blessed of Heaven, blessed of earth, blessed for time, blessed for eternity! And the man whose sin is notforgiven is not blessed--the mouth of Jehovah has said it and God shall manifest that cursed is every man whose transgression is not forgiven, whose sin is not covered!

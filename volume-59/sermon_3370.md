@@ -1,12 +1,5 @@
 # Sermon 3370 | Our Leader Through the Darkness
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 4, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE MILDMAY PARK CONFERENCE, 1890.
-
 "Who among you fears the Lord? Who obeys the voice of His Servant? Who walks in darkness and has no light? Let him trust in the name of the Lord and rely upon his God." Isaiah 50:10.
 
 "Behold I have given him for...a leader " Isaiah 55:4.

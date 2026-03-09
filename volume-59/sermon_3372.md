@@ -1,12 +1,5 @@
 # Sermon 3372 | Conversion and Character
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 18, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Who, having received such a charge, thrust them into the inner prison, and made their feet fast in the stocks. And at midnight Paul and Silas prayed, and sang praises unto God: and the prisoners heard them. And suddenly there was a great earthquake, so that the foundations of the prison were shaken: and immediately all the doors were opened, and everyone's chains were loosed. And the keeper of the prison, awaking out of his sleep, and seeing the prison doors opened, he drew out his sword, and would have killed himself, supposing that the prisoners had fled. But Paul cried with a loud voice, saying, Do yourself no harm: for we are all here. Then he called for a light, and sprang in, and came trembling, and fell down before Paul and Silas. And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and you shall be saved, and your house. And they spoke unto him the word of the Lord, and to all that were in his house. And he took them the same hour of the night, and washed their stripes; and was baptized, he and all his, immediately. And when he had brought them into his house, he set meat before them, and rejoiced, believing in God with all his house." Acts 16:24-34.
 
 THE work of God at Philippi went on very quietly and successfully in the hands of Paul and Silas. It was the commencement of the Gospel in Europe and very auspicious were its circumstances. The good work was intimately connected with Prayer Meetings, which for this reason should always wear a charm for Europeans.

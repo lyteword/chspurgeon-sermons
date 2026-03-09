@@ -1,12 +1,5 @@
 # Sermon 3103 | A Pastoral Visit
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 30, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Church in your house." Philemon 1:2.
 
 SOME interpreters have supposed that a small congregation met for worship in a room in Philemon's house and there is a tradition that such was the case for some considerable time. The Churches established by Paul were, at their commencement, for the most part small. Obliged--for the sake of peace and to avoid persecution--to meet in out of-the-way places where they were not likely to be seen by foes, the retired house of some well-known friend, perhaps that of the minister, if it had a room conveniently large, would be the natural place for Believers to gather together in those early Churches. Philemon, therefore, might literally have had a Church in his house and a congregation might have gathered there. It strikes me that there would be a great deal of good done if persons who have large rooms in their houses would endeavor to get together little congregations. There are many, even of our poorer friends, who live in neighborhoods of London destitute of the means of Grace, who might promote a great blessing if they occasionally opened their houses for a Prayer Meeting or religious assembly. We need no consecrated places for the worship of God--

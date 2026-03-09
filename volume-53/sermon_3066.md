@@ -1,12 +1,5 @@
 # Sermon 3066 | The Everlasting Counselor
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 14, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "Has your Counselor perished?" Micah 4:9.
 
 THIS question is addressed to the Church of God, for in the context it is written, "And you, O tower of the flock, the stronghold of the daughter of Zion, unto you shall it come, even the first dominion; the kingdom shall come to the daughter of Jerusalem. Now why do you cry out aloud? Is there no king in you? Has your Counselor perished? For pangs have taken you as a woman in travail." The poor Church of God had lost its way--it was doubting with regard to its direction. It knew not where to turn--to the right hand or to the left. In an agony of deep distraction, it bowed its head in fell dismay and thought that its King had disappeared and its Counselor perished. Forth comes the Prophet Micah, full of the Spirit, and addresses this question to the tried children of God, "Has your Counselor perished?"

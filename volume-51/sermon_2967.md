@@ -1,12 +1,5 @@
 # Sermon 2967 | The Church's Probation
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "You, O God, have tested us." Psalm 66:10.
 
 THE Psalmist, who spoke these words in his song, told forth the experience of the godly in all generations. In the Patriarchal age, when Abraham was called to leave his kindred and go forth from Ur of the Chaldees, he was constrained to sojourn as a stranger among a people that he knew not, told to wait with patience for a son whom God would give him in his old age and, at length, commanded to take that son to the top of a mountain and offer him as a sacrifice! He might well say, "You, O God, have tested us." Isaac could say the same when he tabernacled in the Land of Promise, having not so much as a foot of it that he could call his own except his father's sepulcher. Jacob learned the same stanza when he was tested in Laban's household, when he wrestled with God in Peniel and triumphed over the Angel at Jabbok! This he knew when he went down into Egypt and, dying, blessed the sons of Joseph. All the Patriarchs, as they fell asleep, could say, "You, O God, have tested us." And this was the song of the Church during her sojourn in Egypt when she was lying among the pots--and during her wanderings in the wilderness when she passed through a desert land by a way which she had not traversed before. And this, too, was the voice of the Church under the conduct of Joshua when Israel came through Jordan and began to defy the hosts of the Canaanites--when they drew the sword against mighty adversaries who dwelt in cities fenced with high walls, gates and bars and came forth to battle in chariots that had scythes of iron--"You, O God, have tested us." With such a word as this in their mouths, the judges fell asleep after they had avenged Israel and done mighty deeds for the Lord of Hosts! This David could well say, for he had seen affliction. This the kings who walked in his steps and this the Prophets who spoke in God's name might all have said, "You, O God, have tested us."

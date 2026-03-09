@@ -1,12 +1,5 @@
 # Sermon 3148 | Christ's Ambassadors
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 10, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 27, 1873.
-
 "Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's place, be you reconciled to God." 2 Corinthians 5:20.
 
 [Other Sermons by Mr. Spurgeon, on verses 18 to 21, are as follows--Sermons #1123, Volume 19--GOD BESEECHING SINNERS BY HIS MINISTERS and #1910, Volume 32--THE HEART OF THE GOSPEL.]

@@ -1,12 +1,5 @@
 # Sermon 3391 | Preparation for the Lord's Supper
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 29, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Let a man examine himself, and so let him eat of that bread and drink ofthat cup." 1 Corinthians 11:28.
 
 "Let a man examine himself." That is, any man--every man who intends to eat of that bread and drink of that cup. The word is indefinite that it may be understood to be universal. No man is to come to that Table, no woman is to draw near without the previous self-examination. No age will excuse us, for there have been aged hypocrites, as well as young deceivers. No office will exonerate us from this examination, for there was a Judas even among the Apostles. The highest degree in the Church of God may consist with the most rotten formality. We are to examine ourselves each time we come. Each man is to do so. No one is to shirk the personal duty. Everyone is to undertake it as in the sight of God. Brothers and Sisters, you members of the Church about to come around this Table, give heed to the mandate of the Holy Spirit, by the inspired Apostle! "Let each one here examine himself, and so let him eat of this bread."

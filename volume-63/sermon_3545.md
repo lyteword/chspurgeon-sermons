@@ -1,12 +1,5 @@
 # Sermon 3545 | Our Glorious Leader
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, JANUARY 4, 1872.
-
 "And when He had thus spoken, He went on ahead, ascending up to Jerusalem." Luke 19:28.
 
 A VERY beautiful spectacle it is to see the Lord Jesus marching in front and His followers eagerly following on behind. They were going up to Jerusalem, where it is true, He would receive some honor, but also where He would be betrayed into the hands of cruel men and put to a shameful death--but He went on ahead of them. As the shepherd goes before the sheep, not driving, but leading. As the captain goes before his soldiers as taking the post of danger, so our Lord went on before them. It was far better that He should go first than that they should, for the disciple is never more out of place than when he outruns his Master. If he will follow his Master's commands, he shall do well. But if he shall follow his own devices and invent his own way, he shall do badly. The pilgrimage behind the cloud is a safe one, but a rush before the cloud will end in a disaster. The Master must go first, not the disciple. But then, when the Master advances, it is right to see the disciple follow, ready of foot, quick at his Master's heel, delighted with his Master's company. One likes to think of that journey up to Jerusalem, with Jesus Christ just a little ahead in the front, and His disciples closely following Him. I thought it was a picture that might serve us as a model throughout the whole year. I am not going to talk to you long at this time, but wish just to sketch that picture before your mind's eyes and say, " So be it unto each one of us." May Jesus be with us. May Jesus lead the way. And may His own Divine Spirit give us Grace to follow Him--not like Peter, afar off--but as loving disciples who keep closely under their Master's guidance! From the beginning of the year to the end of the year may we rejoice to feel that He goes ahead of us, but may we also, with cheerful willingness, follow close behind! I present it to you, I say, as the picture for this New Year of Grace, and may it be verified in your experience.

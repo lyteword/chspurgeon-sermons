@@ -1,12 +1,5 @@
 # Sermon 3357 | Heedful Hearing
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 5, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 23, 1868.
-
 "Take heed, therefore, how you hear." Luke 8:18.
 
 It is implied in this verse that you do hear. A man cannot take heed how he hears if he does not hear at all. Hence, how great is the sin of a vast proportion of the inhabitants of this city who utterly forsake the ministry of the Gospel, who never hear it, or hear it but only now and then! We have frequently met with people who, before they came to this house, never attended any place of worship. They were taken there, they say, to be christened, or they went there to be married and they expected to be carried there, or somewhere like it, to be buried, but that was all their church going and all their respect for the worship of God. Unhappy they--to have the Light of God and to refuse to see--to have God's diamond lying, as it were, at their very feet, and yet to refuse to pick it up! The day will come when wasted Sabbaths will be a burning accusation against the inhabitants of this privileged, but wicked city! With churches in almost every street, with preachers of the Gospel to be found here and there declaring fully the saving Truth of God, it shall go harder with the citizens of London than with the inhabitants of Sodom and Gomorrah in the day when the Lord comes to judge the quick and the dead! Do I address any who have merely dropped in here tonight, but who are not often hearers of God's Word? Ah, my dear Friends, you little know the sweetness of the Gospel, for if you did, "not tents of ease nor thrones of power" could tempt your feet away from the place where God specially reveals Himself on the Day of Rest!

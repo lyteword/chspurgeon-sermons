@@ -1,12 +1,5 @@
 # Sermon 3221 | "Yet There Is Room"
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 27, 1910,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 21, 1862.
-
 "And yet there is room." Luke 14:22.
 
 I REMINDED YOU, this morning, [See Sermon #485, Volume 8--NO ROOM FOR CHRIST IN THE INN.] that there was no room for Christ and His parents in the inn at Bethlehem--and also that there were then other places where, although there was no room for Christ, far inferior persons found a welcome and entertainment. I need, this evening, to convince you that although there are still many sinners who seem to have no room for Christ in their hearts and lives, yet there is plenty of room for sinners in the heart and love of Christ! And I am going to give them an earnest, tender, affectionate invitation to come to Christ while "yet there is room." You who have hitherto been strangers to the Grace of God. You who, as yet, have never feasted at the Gospel Banquet, you who have, until now, been content with this world's frothy dainties and have never tasted that which is substantial and satisfying for time and for eternity--to you, even to you--comes the message of our text, "yet there is room."

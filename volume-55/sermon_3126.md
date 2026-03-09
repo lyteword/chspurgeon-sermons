@@ -1,12 +1,5 @@
 # Sermon 3126 | Pictures of Life
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 7, 1909.
-
-DELIVERED BY C. H. SPURGEON
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON MONDAY EVENING, JUNE 18, 1855.
-
 "What is your life?" James 4:14.
 
 [This Sermon was delivered by Mr. Spurgeon on the evening before he came of age, having been born on June 19, 1834. A much later Sermon on the same verse is #1773, Volume 30--WHAT IS YOUR LIFE? It was suggested by the sudden death of the Duke of Albany in 1884. A still later Sermon by Mr. Spurgeon, upon verses 13-17, #2242, Volume 38-- GOD'S WILL ABOUT THE FUTURE, was delivered in connection with the "Home going" of Mr. William Olney, and was published in the very week that the Beloved preacher was "called Home" in January 1892]

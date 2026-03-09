@@ -1,12 +1,5 @@
 # Sermon 3551 | The Gospel in Power
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 28, 1872.
-
 "For our Gospel came not unto you in word only," etc., [down to] "from the wrath to come" 1 Thessalonians 1:5-10.
 
 A WORKMAN likes to see that he has been doing something. It is very dispiriting if he has spent much toil and can see no result. God's workmen by faith would continue still to labor, even if they saw nothing come of it, but it is much more comforting, much more easy for them to continue in service when they see that God is blessing them. Now it is not wrong for a Christian minister to speak about the conversions that have been worked under his ministry, for Paul says that he would have done so, only that others did it so constantly that there was no need of it. Paul, however, would not, under any circumstances, have done a wrong thing and, therefore, we gather that it is sometimes most allowable that we should see what has been done and should speak of it--and the more especially because if any good is done by any ministry, it is God that has done it--and all the glory is due to Him and to Him, alone!

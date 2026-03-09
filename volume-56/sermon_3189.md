@@ -1,12 +1,5 @@
 # Sermon 3189 | The Tenderness of God's Comfort
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 17, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As one whom his mother comforts, so will I comfort you; and you shall be comforted in Jerusalem." Isaiah 66:13.
 
 WE do not intend entering into a discussion of the context and its relationship literally to the Jewish people. We have never hesitated to assert our conviction that there are great blessings in store for God's ancient Israel and that the day shall come when her comfort shall abound, when the glory of the Gentiles shall flow to her like a flowing stream and she shall be comforted by her God as one whom his mother comforts. But we believe that these passages are applicable to all the servants of God, that the comfortable passages of Scriptures are theirs, that whether Jew or Gentile, bond or free, barbarian or Greek, we are all one in Christ Jesus--and all the promises are ours in Him--for in Him all the promises are, "yes," and, "amen." I believe, then, that this passage belongs to every child of God.

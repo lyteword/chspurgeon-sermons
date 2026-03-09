@@ -1,12 +1,5 @@
 # Sermon 2933 | Dead, Yet Alive
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 27, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 6, 1876.
-
 "Likewise reckon you also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin, therefore, reign in your mortal body, that you should obey it in the lusts thereof." Romans 6:11,12.
 
 How remarkably interwoven and intertwisted are the duties of Believers and their privileges! Indeed, it is often very difficult to say which is a privilege and which is a duty, for that which is a duty under one aspect is a privilege under another aspect--and that which is evidently a privilege may involve sin if it is not enjoyed and, therefore, it has something of duty about it. I think there should be no dividing asunder the duties and privileges which God has manifestly joined together--and that we should count it our highest privilege to do His will in every duty which He has enjoined upon us.

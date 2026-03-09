@@ -1,12 +1,5 @@
 # Sermon 3235 | The Hope That Purifies
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 2, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And every man that has this hope in Him purifies himself, even as He is pure." 1 John 3:3.
 
 THE Christian is a man of much present enjoyment. "Beloved, now are we the sons of God and, being God's sons, we cannot be altogether unhappy." Relationship to the ever-blessed God must bring with it a measure ofjoy. "Happy are you, O Israel," sang Moses, "who is like unto you, O people saved by the Lord?" The men who can be truly called the sons of God are a blessed people! Still, the main portion of the Believer's inheritance lies in the future. It is not so much what I have as what I shall have that makes me joyful. "It does not yet appear what we shall be." To the unbeliever, all that is to come is in darkness. He may expect to go from the shades of evening to the blackness of a midnight that shall never end. But for the Christian, "light is sown." He is now in darkness--the only darkness he shall ever know--and from the twilight of the morning he shall go on unto the perfect day, a day whose sun shall never set! We have the eyes of hope given to us and, looking across the narrow stream of death and beyond--that place where to carnal eyes hangs the curtain that shuts out the unseen--we, with these far-seeing eyes, behold the Glory which is yet to be revealed and we are blessed with the joys of hope! Let every Christian, therefore, when at any time he is downcast about the things of the present, refresh his soul with the thoughts of the future!

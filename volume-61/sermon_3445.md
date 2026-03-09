@@ -1,12 +1,5 @@
 # Sermon 3445 | Strong Faith in a Faithful God
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will cry unto God Most High; unto God that performs all things form." Psalm 57:2.
 
 DAVID was in the Cave Adullam. He had fled from Saul, his remorseless foe, and had found shelter in the clefts of the rock. In the beginning of this Psalm he rings the alarm bell--and very loud is the sound of it. "Be merciful unto me," and then the clapper hits the other side of the bell. "Be merciful unto me." He utters his Miserere again and again. "My soul trusts in You; yes, in the shadow of Your wings will I make my refuge, until these calamities have passed by." Thus he solaces himself by faith in his God. Faith is always an active Grace. Its activity, however, is first of all manifested in prayer. This precedes any action. "I will cry," he says, "unto God Most High." You know how graciously he was preserved in the cave, even when Saul was close at his heels. Among the winding intricacies of those caverns he was enabled to conceal himself, though his enemy, with armed men, was close at hand. The Targum has a note upon this which may or may not be true. It states that a spider spun its web over the door of that part of the cave where David was concealed. The legend is not unlike one told of another king at a later time. It may have been true of David, and it is quite as likely to be true of the other. If so, David would, in such a passage as this, have directed his thoughts to the little acts God had performed for him which had become great in their results. If God makes a spider spin a web to save His servant's life, David traces his deliverance not to the spider, but to the wonder-working Jehovah! And he says, "I will cry unto God Most High, unto God that performs all things for me." It is delightful to see these exquisite prayers come from holy men in times of extreme distress. As the sick oyster makes the pearl, and not the healthy one, so does it seem as if the child of God brings forth gems of prayer in affliction more pure, brilliant and sparkling than any that he produces in times ofjoy and exultation.

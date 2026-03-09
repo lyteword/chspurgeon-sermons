@@ -1,12 +1,5 @@
 # Sermon 3463 | Why Men Do Not Believe
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 17, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 11, 1868.
-
 "How can you believe, who receive honor one of mother" John 5:46.
 
 THE Pharisees in our Lord's day were very fond of high-sounding titles. They had their diplomas, like our modern doctors of divinity, and they took good care to pride themselves upon them. Some were called "Rab," others, "Rabbi," others, "Rabbini." They had their various degrees of respect--degrees which signified the respect due to them, and the attainments to which they had reached. In fact, they would not listen to a teacher unless he came with the title of, "Rab," or, "Rabbi," or, "Rabbini." He must be one who had about him a great air of self-importance. He must be a witness of himself and that very abundantly, too, or else the confraternity of the Scribes and Pharisees turned away from him.

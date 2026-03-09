@@ -1,12 +1,5 @@
 # Sermon 3233 | God's Firebrands
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 19, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Is not this a brand plucked out of the fire?" Zechariah 3:2.
 
 [Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11--ZECHARIAH'S VISION OF JOSHUA THE HIGH PRIEST.]

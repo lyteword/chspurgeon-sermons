@@ -1,12 +1,5 @@
 # Sermon 3423 | Beholding God's Church
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 10, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 14, 1870.
-
 "Walk about Zion, and go round about her: count the towers thereof. Mark you well her bulwarks, consider her palaces; that you may tell it to the generation following. For this (God is our God forever and ever: He will be our guide even unto death." Psalm 48:12-14.
 
 THE proper study of the Christian is Christ. Next to that subject is the Church. And though I would by no means ever urge you to think of the Church as, for a moment, to put her in comparison with her Lord, yet think of her in relation to Him. You will not dishonor the sun by remembering that there is a moon! You will not lessen the glory of "the King in His beauty" by remembering that the Queen, His Spouse, is "all glorious within." You will not think any less of Christ for thinking much of His Church. So tonight I shall invite you to a consideration of the honor, and glory, and dignity of the Church of God as set forth in these verses. And our first point will be the survey which should be taken of the Church--"Walk about Zion, and go round about her: count the towers thereof. Mark you well her bulwarks, consider well her palaces." Secondly, here is the objective of this survey--"That you may tell it to the generation following." And here is, thirdly, a very excellent reason given for our seeking to accomplish this objective--"For this God is our God forever and ever: He will be our guide even unto death." So, then, let us think awhile of--

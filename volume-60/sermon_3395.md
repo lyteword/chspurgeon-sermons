@@ -1,12 +1,5 @@
 # Sermon 3395 | The Savior's Precious Blood
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 26, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Theprecious blood of Christ." 1 Peter 1:19.
 
 We have come in our theological conversation to use that word, "blood," somewhat lightly. I think it should scarcely ever be pronounced without a shudder. "The blood is the life thereof." When shed, it indicates suffering--suffering more intense than that of chastisement or bruising. Wounds are inflicted which make the lifeblood to flow out. In the case of our Lord, Jesus Christ, the term, "blood," brings before us all His griefs and anguish and where the crown of thorns pierced Him. Behold the Man! Think of Gethsemane, where He sweat, as it were, great drops of blood falling to the ground! Think of Gabbatha, the pavement, where they scourged Him with rods, and with the scourge of the Roman lictors where the crown of thorns pierced Him. Behold the Man! Think, lastly, of Golgotha! There they pierced His hands and His feet and, at last, pierced by the spear, out of His side there came blood and water. Pass not lightly, therefore, over such a word as this--blood--the blood of Jesus Christ, God's dear Son! And when you read of its being "precious," remember that the word never had such a wealth of meaning in it, before, in any of its applications. Precious metals--gold and silver. Precious stones--sardonyx, agate and diamond--these are but gaudy toys compared with Christ's precious blood! Precious, for He is God as well as Man. Precious, for He is Jehovah's Darling, the Lamb of God, without spot or blemish! Precious, when you think of God's design. Precious, when you see the effects which it produces. Precious, certainly, to the heart of every pardoned sinner and precious in the song of every glorified spirit before the Throne of God!

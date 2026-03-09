@@ -1,12 +1,5 @@
 # Sermon 3163 | Cumbered With Much Serving
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 23, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1866.
-
 "Martha was cumbered about much serving." Luke 10:40.
 
 THE preacher will have one hearer tonight to whom his text will be amazingly applicable--himself! Here we have meeting after meeting and engagement after engagement. We are always working as hard as we can, but we have put on much extra canvas just now, serving much and not being exempt from Martha's sin of being cumberedwith much serving. I should not wonder but what there may be some others here besides the preacher who may have fallen into the same state of mind and, perhaps, just now while engaged more than ever in God's work, it may be well for us to pull ourselves up a little and look around us, and see what state we are in, lest, like Martha, we get more and more cumbered, till at last we speak as we ought not to speak and begin to upbraid others who are less wrong than ourselves!

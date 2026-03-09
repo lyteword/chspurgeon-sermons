@@ -1,12 +1,5 @@
 # Sermon 2985 | Messages to Sinners and Saints
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 26, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 10, 1875.
-
 "For thus says the Lord GOOD, the Holy One ofIsrael, In returning and rest shall you be saved; in quietness and in confidence shall be your strength. But you would not." Isaiah 30:15.
 
 THIS message related to the invasion of the land of Judah by Sennacherib. The approach of the enormous hosts of the Assyrian king put almost the whole nation into a state of great alarm. They wanted to make an immediate alliance with the king of Egypt and to ask that mighty monarch to send his forces to drive back the army of Sennacherib. But Isaiah the Prophet was sent to warn them of the folly and sin of such an alliance and to tell them that their strength was to sit still. They were to confide alone in the Most High and not to look for any other helper, but to cast themselves upon the faithfulness of the God who had never failed them. If they did so, they would suffer no harm--but just in proportion as they turned away from the unseen Jehovah and began to rely upon an army of flesh--they would be sure to find trouble.

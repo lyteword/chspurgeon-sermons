@@ -1,12 +1,5 @@
 # Sermon 3533 | Recruits for the King
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 12, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "David, therefore, departed from there, and escaped to the Cave Adullam; and when his brothers and all his father's house heard it, they went down there to him. And everyone that was in distress, and everyone that was in debt, and everyone that was discontented, gathered themselves unto him, and he became captain over them: and there were with him about four hundred men." 1 Samuel 22:1-2.
 
 DAVID in the caverns of Adullam is a type of our Lord Jesus Christ despised and rejected among the sons of men. Christ is the Lord's Anointed, but men perceive not the anointing. He is persecuted by His great enemy, the world, as David was persecuted by Saul, and he now rather dwells in the Cave of Adullam than sits upon his throne. Just as when David was in his dishonor, it was the time for his true friends to rally around him. And so at this hour, when the name of Christ is associated with much of dishonor and rebuke, now is the time for the true followers of the Savior to rally around His banner and to espouse His cause. To come to David after he had been crowned king was poor work--the sons of Belial could do that--but to ally themselves to David when he was obliged to hide himself in mountain caves from his cruel enemies, this proved men to be David's true friends and loyal subjects. Blessed are they to whom it shall be given to enlist under the banner of Christ at this present time, who shall not be ashamed to confess Him before the sons of men, or to boldly take up His Cross and to suffer such loss and persecution as it may please His Providence to ordain for them to bear. As it is not concerning David, but concerning David's greater Son, I propose to address you this evening, let me say a few words at the outset to--

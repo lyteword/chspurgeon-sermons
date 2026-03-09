@@ -1,12 +1,5 @@
 # Sermon 3268 | The Savior's Silence
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 9, 1864.
-
 "But He answered her not a word." Matthew 15:23.
 
 THE diary of a physician, one would think, must necessarily be deeply interesting. What a variety of cases must come under the doctor's observation in the course of one year! And some of these must be very strange cases indeed. The details of their cures, if one could understand them, and if the doctor would only translate his hard Latin terms, might be of the greatest interest.

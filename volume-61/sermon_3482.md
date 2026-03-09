@@ -1,12 +1,5 @@
 # Sermon 3482 | Struggling Against Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 21, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I cried with my whole heart; hear me, O Lord: I will keep Your statutes. I cried unto You; save me, and I shall keep Your testimonies." Psalm 119:145,146.
 
 THE fear of punishment leads many people to think about their sins. And a dread of Hell in the future fills the retrospect of their past life with gloom and remorse. This is natural. It may happen to anyone, as it has happened to tens of thousands, that the peril has haunted them till at length the penalty has overtaken them. Although they have been constantly terrified with a sense of the Divine Wrath, they have never penitently looked to the Divine Mercy. Thus they have continued to despond and they have gone on to despair--and that utter desperation has curdled into a bitter remorse which has been the forecast of their eternal retribution! But it appears to me that there is a work of Grace in the heart where there is a fear of sin rather than a fear of Hell--where the desire of the soul is not so much to escape from the punishment, as to escape from the guilt which is the cause of the punishment. What thief, what murderer, when he has been arrested, convicted, sentenced and brought to the gallows, does not wish he had not committed the crime that sealed his doom? Yet there is a wide difference between a dread of suffering for the wrong you have done and a dread of doing wrong! Judge yourselves, if you are under religious impressions of any sort, whether you have merely a fear of punishment--for that is an instinct of nature--or whether you have a fear and abhorrence of sin, for that is a work of Divine Grace!

@@ -1,12 +1,5 @@
 # Sermon 3035 | Enquiring the Way to Zion
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 11, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 9, 1870.
-
 "They shall ask the way to Zion with their faces toward it." Jeremiah 50:5.
 
 I am going to take these words out of their context and use them as I believe they may very properly be used--as a description of those whom God is about to save. This is one of the signs and tokens of a coming salvation, "They shall ask the way to Zion with their faces toward it."

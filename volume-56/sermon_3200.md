@@ -1,12 +1,5 @@
 # Sermon 3200 | Faith Justifying Speech
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 2, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 9, 1873.
-
 "Ibelieved, therefore have I spoken." Psalm 116:10.
 
 SOME translators render this passage, "I believed, though I have spoken as I have done," for the Psalmist had spoken words suggestive of unbelief. But, although he had spoken unwisely and unbelievingly, yet, deep down in his heart, he did still believe in his God. What a mercy it is for us that God does not judge us by our hasty speeches! If He can see only a spark of faith amidst the dense smoke of our unbelief, He accepts it!

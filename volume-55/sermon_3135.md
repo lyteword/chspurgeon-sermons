@@ -1,12 +1,5 @@
 # Sermon 3135 | A Golden Sentence
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 11, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus said unto them, My meat is to do the will of HHim that sent Me, and to finish His work." John 4:34.
 
 [Another Sermon by Mr. Spurgeon, upon the same text, is Sermon #302, Volume 6--JESUS ABOUT HIS FATHER'S BUSINESS and another, upon verses31 to 38, is#1902, Volume 32--MYSTERIOUS MEAT.]

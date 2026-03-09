@@ -1,12 +1,5 @@
 # Sermon 3046 | One of the Master's Choice Sayings
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 27, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But Jesus said unto them, They need not depart." Matthew 14:16.
 
 OF course the Master was right, but He appeared to speak unreasonably. It seemed self-evident that the people very much needed to depart. They had been all day long hearing the Preacher. The most of them had not broken their fast and they were ready to faint for hunger. The only chance of their being fed was to let them break up into small parties and forage for themselves among the surrounding villages. But our Lord declared that there was no necessity for them to go away from Him, even though they were hungry, famished and in a desert place. Now, if there was no necessity for hungry hearers to go away, much less will it ever be necessary for loving disciples to depart from Him! If these, who were hearers only--and the bulk of them were nothing more, a congregation collected by curiosity and held together by the charm of His eloquence and by the renown of His miracles--if these needed not to depart, much less need they depart who are His own friends and companions, His chosen and beloved. If the crowds needed not through hunger to depart bodily, much less need any of the saints depart spiritually from their Lord. There is no necessity that our communion with Christ should ever be suspended--

@@ -1,12 +1,5 @@
 # Sermon 3016 | Good Cheer From Forgiven Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 29, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And, behold they brought to Him a man sick ofthe palsy lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; your sins are forgiven you." Matthew 9:2.
 
 "And they come unto Him, bringing one sick of the palsy, which was borne of four. And when they could not come near unto Him for the press, they uncovered the roof where He was: and when they had broken it up, they let down the bed wherein the sick of the palsy lay. When Jesus saw their faith, He said unto the sick of the palsy, Son, your sins are forgiven you."

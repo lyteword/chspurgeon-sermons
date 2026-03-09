@@ -1,12 +1,5 @@
 # Sermon 3427 | The Blessed Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 8, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 21, 1870.
-
 "Hosanna to the Son of David! Blessed is He that comes in the name of the Lord." Matthew 21:9.
 
 ONE feels very thankful that we have a few Hebrew words in common use in our Christian assemblies--a kind of link between Israel after the flesh and Israel after the spirit. "Hallelujah," they sang of old, and we sing, "Hallelujah," too. "Abba Father," they said. We also say, "Abba Father." And this word, "Hosanna," is another of the few that remain to us of which we understand the meaning, though we use them still in a translated form--Hosanna--"save Lord," "bless Lord." "Blessed is He that comes in the name of the Lord." I did not mention in the reading of the Psalm--(the 118th Psalm)--that both the 25th and 26th verses of that Psalm begin with the word, Hosanna. One is translated, "Save Lord," and the other is, "Blessed is He that comes in the name of the Lord." I shall take this common exclamation, then, constantly used among the Jews, and we shall see as to its use among ourselves. And our first point will be to--

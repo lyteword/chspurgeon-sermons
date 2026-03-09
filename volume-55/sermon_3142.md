@@ -1,12 +1,5 @@
 # Sermon 3142 | Established Work
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 29, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 20, 1873.
-
 "Establish the work of our hands for us; yes, establish the work of our hands." Psalm 90:17.
 
 SOME of us have been to the grave this afternoon and the most forcible impression upon our minds at this time is that of our mortality. We cannot, in burying others, say, "Earth to earth, ashes to ashes, dust to dust," without thinking of the time when we, too, shall be laid in the silent grave. The thought that we are, yet are not, that we are but as shadows that flit across the path of life--coming, going, scarcely come before we are gone--the thought of our mortality has led us to ask concerning our work--Is that mortal, too? Will that die like ourselves? Some of us have darling objectives, high designs, great enterprises on our hearts--are all those shadows? We are as the grass of the field--are they also grass? Will the scythe that cuts us down cut them down, too? Truly, if we thought it would be so, it would give double bitterness to the remembrance of our own mortality to think that our work was mortal as well as ourselves!

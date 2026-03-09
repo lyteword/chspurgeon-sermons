@@ -1,12 +1,5 @@
 # Sermon 3068 | Unknown Depths and Heights
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 28, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A LORD'S-DAY EVENING IN THE YEAR 1861.
-
 "Then said Jesus, Father, forgive them; for they know not what they do." Luke 23:34.
 
 [Other Sermons by Mr. Spurgeon upon Christ's cries from the Cross (in addition to those mentioned later) are as follows: #2562, Volume 44--CRIES FROM THE CROSS; #2803, Volume 48--THE SADDEST CRY FROM THE CROSS; #2344, Volume 40--CHRIST'S DYING WORDS FOR HIS CHURCH; #2311, Volume 39-- OUR LORD'S LAST CRY FROM THE CROSS and #2644, Volume 45--THE LAST WORDS OF CHRIST ON THE CROSS.]

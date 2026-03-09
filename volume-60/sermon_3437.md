@@ -1,12 +1,5 @@
 # Sermon 3437 | Friendship's Guide
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 17, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 11, 1870.
-
 "You are My friends if you do whatever I command you." John 15:14.
 
 IT is very easy to understand how Jesus Christ is our Friend. Did ever anyone deserve the name so well? Who can prove his friendship as Jesus proved it by laying down His life for those He calls His friends? But it is a mark of wonderful condescension on His part that He should call us His friends and it confers upon us the highest conceivable honor that such a Lord as He is, so infinitely superior to us, should condescend to enter into terms of friendship with us. My Friend, O Jesus, You are, for You have redeemed my soul from death and Hell--but that I should be Your friend--nothing but Your loving, condescending tenderness could ever have conceived of this! If you do put such a title as this upon me, teach me how I may act in conformity with it. Beloved, there is a mutual friendship between Christ and the Believer. There cannot be friendship if it is all on one side. There is bounty, there is kindness and there may be some gratitude in return, but friendship is a reciprocal thing. In its fullest sense, it is between two, and the one heart must be as the other heart, or else there is no friendship. Now every Believer is a friend to Jesus, and Jesus is a Friend to him. They are friends because they have a mutual love for each other. The Believer does not love His Lord as much as Jesus loves him, for his heart is little compared with Jesus' heart. But when the Believer is in a right state, he loves Jesus with all his heart, soul and strength. He feels that there is none in the world that can have a place in his affections at all comparable with his Lord and Master. He can say--

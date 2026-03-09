@@ -1,12 +1,5 @@
 # Sermon 3109 | Sowing and Reaping
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 10, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 16, 1874.
-
 "Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." Galatians 6:7.
 
 I FIND, on reference to Luther's Commentary on the Epistle to the Galatians, and to Calvin's Commentary on this passage, that both those learned expositors consider that this refers to the treatment of ministers by their people in the matter of their financial support. They very properly point out the connection between the 6th verse and the 7th--"Let him who is taught in the Word share with him who teaches in all good things. Be not deceived; God is not mocked: for whatever a man sows, that shall he also reap." I suppose that there was a need for such an injunction in Paul's day--and there is a need for it now. There were some hearers of the Gospel, then, who contributed generously towards the maintenance of the preacher and the Apostle says that what they gave would be like sowing good seed in return for which God would give to them an abundant harvest. But there were others who gave sparingly and who would, therefore, have a proportionately small return.

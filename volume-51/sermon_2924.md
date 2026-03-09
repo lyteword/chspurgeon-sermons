@@ -1,12 +1,5 @@
 # Sermon 2924 | Preventing Grace
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 23, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
-
 "And David said to Abigail, Blessed is the Lord God of Israel, who sent you this day to meet me, and blessed is your advice, and blessed are you, because you have kept me this day from coning to bloodshed, and from avenging myself with my own hand." 1 Samuel 25:32,33.
 
 I MUST tell you the story, for if you do not realize the circumstances, you will not understand these words. David was in the position of an outlaw in his county. He knew that he was one day to be king over Israel, but he had such reverence for Saul, the Lord's' anointed, that he would do nothing that would look like usurpation, or seem in any way to injure the reigning monarch. Some 400 restless spirits who had been impoverished by the tyrannical government of Saul, persons who were in debt and generally discontented, came to him in the caves of Adullam and there formed an army of freebooters of which David was the head. A little while afterwards, 200 others, men like-minded, came and united themselves with this force so that David found himself at the head of an army of 600 men of war, all of them valiant men, ready for exploits. You will see he was in a very difficult position--he must find work for these men. They were soldiers of fortune and they must be employed, yet it was impossible for him to act like a traitor--he would not lead his men against his king. He would not begin a revolution in order to provide for his followers.

@@ -1,12 +1,5 @@
 # Sermon 3414 | "Brief Life Is Here Our Portion"
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 9, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "LORD make me to know my end and the measure of my days, what it is, that I may know how frail I am." Psalm 39:4.
 
 ACCORDING to the judgment of Calvin, and some of the ablest commentators, there is a kind of pettishness in this verse. The context appears to imply that David had grown impatient under the chastening hand of God. Job, under similar circumstances, longed to accomplish as a hireling, his day, and sought the repose of the grave. And so the Psalmist inquires how much longer he has to bear the ills and griefs of life, or when the goal shall be reached. But I am sure it is not for any of us to upbraid the Psalmist, for what is his impatience compared with ours? When I read of Elijah casting himself under the juniper tree, saying, "Let me die, I am no better than my fathers!"--should I wonder at the weakness of so great a man--it is only because he is great! No doubt that kind of weakness has seized us all. We have, every now and then, expressed a longing to depart--not so much, I fear, because of our eagerness to be with Christ, as because we have grown weary with the trials, the services and the sufferings of this poor wilderness. Well, if we are the subjects of the same infirmity as these godly men of old, we must flee where they fled for strength to grapple with these infirmities and overcome them! We must look to the Strong for strength and pray God to work in us that ripe fruit of patience so rare and yet so precious, for it greatly glorifies God wherever it is brought forth!

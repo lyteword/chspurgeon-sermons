@@ -1,12 +1,5 @@
 # Sermon 3249 | Under the Apple Tree
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 11, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I sat down under His shadow with great delight, and His fruit was sweet to my taste." Solomon's Song 2:3.
 
 [Another Sermon by Mr. Spurgeon upon the same text is #1120, Volume 19--THE APPLE TREE IN THE WOODS.]

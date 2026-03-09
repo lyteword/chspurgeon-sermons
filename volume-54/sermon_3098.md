@@ -1,12 +1,5 @@
 # Sermon 3098 | Needless Fears
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 25, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE11,1874.
-
 "Who are you that.. .have feared continually every day because of the fury of the oppressor, as if he were ready to destroy? And where is the fury of the oppressor?" Isaiah 51:12,13.
 
 OBJECTS often influence us out of proportion to their value because of their nearness. For instance, the moon is a very small insignificant body compared with the sun, yet it has far more influence over the tides and many other matters in the world than the sun has simply because it is so much nearer to the earth than the sun is. The life that is to come is infinitely more important than the life that now is and I hope that in our inmost hearts, we reckon that the things that are seen and temporal are mere trifles compared with the things which are not seen and eternal! Yet it often happens that the less important matters have a greater influence over us than those which are far more important, simply because the things of earth are so much nearer to us. Heaven is infinitely more to be desired than any joy of earth, yet it seems far off and, therefore, these fleeting joys may give us greater present comfort. The wrath of God is far more to be dreaded than the anger of man, yet sometimes a frown or a rebuke from a fellow creature will have more effect upon our minds than the thought of the anger of God. This is because the one appears to be remote, while, being in this body, we are so near to the other.

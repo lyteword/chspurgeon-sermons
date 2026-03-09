@@ -1,12 +1,5 @@
 # Sermon 3528 | A Promise and a Providence
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will feed My flock, and I will make them lie down, says the Lord." Ezekiel 34:15.
 
 BEFORE this can be done there are certain preliminaries. A flock cannot be fed until it is in existence. It cannot be fed, as a flock, until all the scattered sheep shall have been brought together. Hence, in the context, other promises supply this deficiency! We find, for example, the Lord declaring that He will search out His sheep and seek them. They have gone far astray. Some of them seem to have so exhausted their patience in wandering that they have invented new forms of sin and new methods of transgression. Yet the Lord will seek them till His eyes of mercy shall rest upon them and His hands of power shall grasp them. If the Lord has an elect soul in the center of Africa, He will find him out. Or should there be one for whom Jesus died who frequents the house that is infamous and has plunged into the most detestable sin, yet the Lord will not lose him! Having set His heart upon him, He will seek him till He finds him and follow him up till He reclaims him. You remember one of the Lord's sheep--a woman who had forsaken the paths of virtue. She had had five husbands and was then living with one who was not her husband. Yet He must go through Samaria to meet with her! He must--such was the Divine necessity that this sheep, which had wandered as far as it well could, should be brought back!

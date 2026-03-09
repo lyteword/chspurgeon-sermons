@@ -1,12 +1,5 @@
 # Sermon 3489 | Encouragement for the Depressed
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 9, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 27TH, 1871.
-
 "For who has despised the day of small things?" Zechariah 4:10.
 
 ZECHARIAH was engaged in the building of the Temple. When its foundations were laid, it struck everybody as being a very small edifice compared with the former glorious structure of Solomon. The friends of the enterprise lamented that it should be so small--the foes of it rejoiced and uttered strong expressions of contempt! Both friends and foes doubted whether, even on that small scale, the structure would ever be completed. They might lay the foundations and they might raise the walls a little way, but they were too feeble a folk, possessed of too little riches and too little strength, to carry out the enterprise. It was the day of small things. Friends trembled. Foes jeered. But the Prophet rebuked them both--rebuked the unbelief of friends and the contempt of enemies, by this question--"Who has despised the day of small things?"--and by a subsequent prophecy which removed the fear.

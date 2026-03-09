@@ -1,12 +1,5 @@
 # Sermon 3317 | A Sweet Bow
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He delights in mercy." Micah 7:18.
 
 Sons of men, rejoice that such a God has revealed Himself to you! This should cause a universal Hallelujah, the whole world over, as soon as ever it is heard! "He delights in mercy." Clap your hands and rejoice before Him! Yes, exceedingly rejoice! The heathen did not find this out. Although they had many gods, differing one from another in character, none of them were ever gods of mercy! They were usually fierce demons--some of them only rejoicing in the exaction of human blood. Go this very day to Hindustan and see what gods man makes unto himself--gods more beastly, more cruel, more devilish than himself! Such is not the living and true God! Far from taking pleasure in the sufferings of creatures, He tells us plainly that He delights in mercy. It is not enough that He is merciful, but He delightsin this high prerogative! While we may well suppose that every attribute of God gives Him pleasure in the exercise, mercy is supremely singled out as being especially His favorite! Mercy is the last attribute openly manifested--He exercised His power in making men before they sinned or needed mercy--and He displayed His wisdom in balancing the clouds and piling the hills before He needed to show mercy, for sin as yet had not come into the world. If I may say so, mercy is God's Benjamin and He delights most of all in it. It is the son of His right hand, though, alas, in bringing it forth, it might well have been called the son of sorrow, too, for mercy came into this world through the sorrows of the Only-Begotten Son of God! He delights in mercy, just as some men delight in trade, some in the arts, some in professions--and each man, according to his delight, becomes proficient in pursuing a work for the very love thereof. So God is proficient in mercy. He addicts Himself to it. He is most Godlike, most happy if such a thing may be said of Him! When He is stretching out His right hand with His golden scepter in it, and saying to the guilty, "Come to Me. Touch this scepter and you shall live!" He delights in mercy!

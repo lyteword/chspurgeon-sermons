@@ -1,12 +1,5 @@
 # Sermon 3145 | Paul in the Tempest
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 20, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And we being exceedingly tossed with a tempest, the next day they lightened the ship; and the third day we cast out with our own hands the tackling of the ship. And when neither sun nor stars in many days appeared, and no small tempest lay on us, all hope that we should be saved was then taken away. But after long abstinence Paul stood forth in the midst of them, and said, Sirs, you should have listened to me, and not have sailed from Crete, and incurred this disaster and loss. And now I exhort you to be of good cheer: for there shall be no loss of life among you, but only of the ship. For there stood by me this night the angel of God, whose I am, and whom I serve, saying, Fear not, Paul, you must be brought before Caesar: and, lo, God has given you all them that sail with you. Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me." Acts 27:18-25.
 
 [Other Sermons by Mr. Spurgeon, upon parts of this passage, are as follows--Sermons #1070, Volume 18--WRECKED, BUT NOT RECKLESS; #2952, Volume 51--THE CHURCH--THE WORLD'S HOPE and #1355, Volume 23--A CHEERY WORD IN TROUBLOUS TIMES.]

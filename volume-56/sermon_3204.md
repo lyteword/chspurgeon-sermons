@@ -1,12 +1,5 @@
 # Sermon 3204 | The Saints' Riches
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 30, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 2, 1862.
-
 "He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?" Romans 8:32.
 
 MANY of you, dear Friends, are coming to the Lord's Table at the close of this service. Our blessed Redeemer instituted that simple but sublime ordinance so that we might be kept in constant remembrance of Him. The bread is nothing but bread, yet it is the very suggestive emblem of Christ's flesh. And it shall be well with you if, after a spiritual fashion, you shall thus eat the flesh of Christ. The wine is nothing but wine, yet is it the emblem of Christ's blood. And they are thrice blessed who experimentally understand the meaning of Christ's words, "Whoever eats My flesh, and drinks My blood, has eternal life." Christ is yours, Believer! You know that He is more yours than even your own life, for that you may lose. When God gave you your existence, He gave it to you without any covenant as to its prolongation, but He has given Christ to you by an Everlasting Covenant, to be yours forever and ever! Christ is yours, Beloved! Oh, that you knew how to make the best use of this blessed property! Christ is yours to live upon and to spend, yours to have and to hold, to keep and to enjoy, yours not only to look at that you may be saved, and to wear that you may be justified, but yours to eat that you may be refreshed by Him and live upon Him! Christ is yours to the fullest extent possible! There is no reservation--He is your absolute, indefeasible and inalienable property--yours, today, as perfectly as He will be when you are in Heaven! Yours as certainly as you are His. Oh, that you may now, knowing that Christ is thus your property, live upon Him, rejoice in Him and feel that you are, indeed, immeasurably rich!

@@ -1,12 +1,5 @@
 # Sermon 2925 | Reasons For Doubting Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 2, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SUNDAY EVENING, NOVEMBER 26, 1876.
-
 "Why did you doubt?" Matthew 14:31.
 
 OUR Lord did not begin His dealings with Peter in this emergency by asking him that question. He first stretched out His hand and saved him from his peril and then He said to him, "O you of little faith, why did you doubt?" When a man is in trouble, help him out, first, and then blame him for having got into it, if you feel it necessary to do so! It is cruel to bring your censure to bear upon sinking Peter. First give him your help, lest he perish in the sea. And when you have done that, you may chide him afterwards for any fault that you perceive in him. This is always the way with our Master. He gives liberally and upbraids not, except when there shall come to be a special reason for our spiritual profit, when a little upbraiding may do us good. Now I am going, first, to use our text and then I am going to alter it. I shall first speak to God's people, and say, "Why did you doubt, O Christian?" And then put it into another tense altogether, and address it to the unconverted, and say, "Why doyou doubt, O you who know the Gospel, but have not yet believed

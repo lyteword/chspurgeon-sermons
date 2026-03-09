@@ -1,12 +1,5 @@
 # Sermon 3152 | The Lower Courts
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 8, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 23, 1873.
-
 "For if our heart condemns, God is greater than our heart, and knows all things. Beloved, if our heart condemn us not, then have we confidence toward God." 1 John 3:20,21.
 
 [Another Sermon by Mr. Spurgeon, on verse 21, is #1855, Volume 31--WHAT IS THE VERDICT?.]

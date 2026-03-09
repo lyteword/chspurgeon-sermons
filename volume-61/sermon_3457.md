@@ -1,12 +1,5 @@
 # Sermon 3457 | All Are Guilty
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 6, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Pilate said unto them...'Let Him be crucified.'" Matthew 27:22,23.
 
 THIS morning we heard the shouts of "Hosanna!" It was very delightful to us to behold the multitude marching with the King of Zion through the streets of Jerusalem, welcoming Him with glad acclaim. But the shouts of "Hosanna" had hardly died away before they were followed by the cruel note, "Crucify Him! Crucify Him!" Or, as the text puts it, "Let Him be crucified!" Clearly in this case the Vox populi was not the Vox Dei. The one is fickle and shifting, the other is fixed and steadfast. The voice of the people is changeable as the wind. The Word of the Lord is firm as a rock, and it endures forever. The multitude will always be found fitful and vacillating. They will enthrone a man, today, and chase him from the streets tomorrow. Take but small account of human applause. The breath of fame's trumpet is a poor reward for a life of toil to serve one's generation. Care not for it, O you of noble spirit! Heed not the world's frowns and court not its smiles. When you are flattered by its approbation, or calumniated by its persecution, remember that men's temper and disposition vary like the climate and change like the weather! Hosannas turn into execrations. The idol of one hour is the aversion of another.

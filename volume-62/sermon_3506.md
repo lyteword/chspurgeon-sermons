@@ -1,18 +1,5 @@
 # Sermon 3506 | What Self Deserves
 
-A Sermon
-
-
-Published on Thursday, April 6th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [14]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, 18th December, 1870.
-
 "Ye shall loathe yourselves in your own sight for your iniquities, and for your abominations."--Ezekiel 36:31.
 
 IT HAS been the supposition of those who know not by experience that if a man be persuaded that he is pardoned, and that he is a child of God, he will necessarily become proud of the distinction which God has conferred upon him. Especially if he be a believer in predestination, when he finds that he is one of God's chosen, it is supposed that the necessary consequence will be that he will be exceedingly puffed up, and think very highly of himself. This however, is but theory; the fact lies quite another way; for if a, man be truly subjected to the work of grace in the heart, and if he be then brought to trust in Jesus, and to see his sin put away by the great sacrifice, instead of being lifted up, he will be exceedingly cast down in his own sight, and as he goes on to perceive the singular mercy and peculiar privileges which God's grace has bestowed upon him, instead of being exalted, he will sink lower and lower in his own esteem, until, when he shall make a full discovery of divine love, he will become nothing, and Christ will be all in all. Mercy never makes us proud. As mercy is given to the humble, it has a humbling effect. Wherever it comes, it makes a man lie low before the throne of the heavenly grace, and leads him to ascribe all honour and glory to the God from whom the mercy comes.

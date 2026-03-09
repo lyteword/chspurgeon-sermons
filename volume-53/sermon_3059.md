@@ -1,12 +1,5 @@
 # Sermon 3059 | The Poor Man's Friend
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 26, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 8, 1873.
-
 "The poor commits himself unto You." Psalm 10:14.
 
 GOD is the poor man's Friend. The poor man, in his helplessness and despair, leaves his case in the hands of God and God undertakes to care for him. In the days of David--and I suppose, in this respect, the world has but little improved--the poor man was the victim of almost everybody's cruelty and sometimes he was very shamefully oppressed. If he sought redress for his wrongs, he generally only increased them, for he was regarded as a rebel against the existing order of things. And when he asked for even a part of what was his by right, the very magistrates and rulers of the land became the instruments of his oppressors and made the yoke of his bondage to be yet heavier than it was before. Tens of thousands of eyes, full of tears, have been turned to Jehovah and He has been invoked to interpose between the oppressor and the oppressed, for God is the ultimate resort of the helpless. The Lord executes righteousness and judgment for all that are oppressed--He undertakes the cause of all those that are downtrodden.

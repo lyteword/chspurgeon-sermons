@@ -1,12 +1,5 @@
 # Sermon 3537 | A Definite Challenge for Definite Prayer
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus answered and said unto him, What do you want Me to do for you?" Mark 10:51.
 
 No doubt our Lord's disciples imagined that He was going up to Jerusalem to take unto Himself the Kingdom. They hoped that they would be partakers of that earthly grandeur which they had fondly pictured would glitter around the Person of the Son of David. When, therefore, the blind man ventured to cry out clamorously to Him, whom they esteemed to be a great King, they thought it a daring intrusion. Who was the son of Timaeus that he should say, "You Son of David, have mercy on me"? They were all anxious to hush the voice of misery in the Presence of so much Majesty. But our Lord Jesus Christ did not spurn the blind man's prayer as intrusive or impertinent. He was not angry with him. He did not even pass on without taking any notice. What He did was to stand still and command the man to be brought to

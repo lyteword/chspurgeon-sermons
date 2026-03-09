@@ -1,12 +1,5 @@
 # Sermon 3005 | Silken Cords
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 13, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
-
 "Idrew them with cords of a man, with bands of love." Hosea 11:4.
 
 No man ever comes to God unless he is drawn. There is no better proof that man is totally depraved than that he needs to be effectually called. Man is so utterly "dead in trespasses and sins" that the same Divine Power which provided a Savior must make him willing to accept a Savior, or else he will never be saved. You see a ship upon the stocks. She is finished and complete. She cannot, however, move herself into the water. You see a tree. It is growing--it brings forth branches, leaves and fruit, but it cannot fashion itself into a ship. Now, if the finished ship can do nothing, much less the untouched log! And if the tree, which has life, can do nothing, much less that piece of timber out of which the sap has long since gone! Christ's declaration, "Without Me you can do nothing," is true of Believers, but it is just as true, and with a more profound emphasis, of those who have not believed in Jesus. They must be drawn, or else to God they never will come.

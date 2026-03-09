@@ -1,12 +1,5 @@
 # Sermon 3336 | Beauty for Ashes
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 9, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To give unto them [who mourn in Zion] beauty for ashes." Isaiah 61:3.
 
 I WOULD remind you that the mission of our Lord Jesus Christ related to mourners in Zion. He did not come into the world to exalt those who are high, to give greater power to the strong, or to clothe those who are already clad in their own righteousness. No! The Spirit of God was upon Him that He might preach good tidings to the meek, that broken hearts should be bound up, captives redeemed and prisoners released. He came with blessings for the poor, not with luxuries for the rich. This ought to be a very great subject of thanksgiving to those who are heavy of heart. Is it not sweet to think that the Anointed of the Lord came for your sakes, that you of the rueful countenance whose eyelids are fringed with beaded tears, you whose songs are dirges, you who dwell at death's door may be brought forth into the sunlight? Most men choose cheerful company whereby they may be entertained, but the Lord Jesus evidently selects mourners and delights in those whom He may encourage and cheer. Blessed be His name! How meek and lowly is He in all His ways! How forgetful of Self and how thoughtful towards His poor servants. He looks upon them with pitying eyes and makes untold blessings their portion!

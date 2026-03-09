@@ -1,12 +1,5 @@
 # Sermon 3188 | Discipline in Christ's Army
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 10, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 13, 1879.
-
 "Pass through the host, and command the people." Joshua 1:11.
 
 [When the "Army Discipline and Regulation Bill" was before the House of Commons, Mr. Spurgeon delivered this discourse upon it. Shortly afterwards, he published a summary of the sermon in The Sword and the Trowel, with a prefatory note in which he said, "We hope to print the whole discourse for the use of soldiers." With this view, he had commenced to revise it, but had not completed it, and it is now published for the first time. Workers among soldiers will find the sermon specially suitable for them.]

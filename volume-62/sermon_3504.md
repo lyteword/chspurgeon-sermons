@@ -1,18 +1,5 @@
 # Sermon 3504 | Following Christ
 
-A Sermon
-
-
-Published on Thursday, March 23rd, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [12]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, August 22nd, 1889.
-
 "And Ittai answered the king, and said, as the Lord liveth, and as my lord the king liveth, surely in what place my lord the king shall be, whether in death or life, even there also will thy servant be."--2 Samuel 15:21.
 
 SOME men have a very remarkable power of creating and sustaining friendship in others. David was a man brimming over with affection--a man, notwithstanding all his rough soldier-life, of an exceedingly tender heart--a man, I was about to say--the word was on my tongue--a man of vast humanity. I mean, there was a great deal of manhood about him. He was all that other men are, had suffered their sorrows, and had tasted their joys, and, there fore, I suppose it was that he had a large power of attraction about him, and brought others to himself.

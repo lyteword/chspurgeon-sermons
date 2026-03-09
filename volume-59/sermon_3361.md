@@ -1,12 +1,5 @@
 # Sermon 3361 | God's Valiant Right Hand
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 3, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE OPENING OF THE EAST LONDON TABERNACLE, ON THURSDAY, FEBRUARY 22, 1872.
-
 "The right hand of tie Lord is exalted: the right hand of the Lord does valiantly." Psalm 118:16.
 
 THIS verse might full often have leapt from the lips of Believers in the olden times. This verse might have constituted part of the Song of Moses at the Red Sea, for how wondrously did God there overthrow the host of His enemies, when, after dividing the sea, Egypt was swallowed up in it, God, Himself causing the last foe of Israel to be swept away by the mighty waters! "Sing unto the Lord," they said, "for He has triumphed gloriously," and by the shores of the Red Sea they knew that "The right hand of the Lord is exalted; the right hand of the Lord does valiantly." It was so in the wilderness when Joshua fought with Amalek and Moses held up his hands in prayer. It was so when they smote Sihon, king of the Amorites, and Og, king of Bashan. Are not these things written in the Books of the wars of the Lord, and is it not said, "The Lord is a man of war; the Lord is His name"? It was conspicuously so in the driving out of the Canaanites. When the people of Israel, untrained for war, marched into the land, they found that their enemies had chariots of iron and they were entrenched in cities that were walled up even unto Heaven--but yet all the Canaanites, the Hivites and the Jebusites could not stand against the twelve tribes of Israel! They fled before them like chaff before the wind! They were scattered like the clouds before the tempest! "Oh, praise you the Lord and magnify Him, for He cast out the heathen and He planted His people in their own land." The right hand of the Lord was that day exalted, for His right hand does valiantly!

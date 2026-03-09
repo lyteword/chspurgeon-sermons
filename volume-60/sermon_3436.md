@@ -1,12 +1,5 @@
 # Sermon 3436 | Christ Glorified
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 4, 1869.
-
 "He has glorified You." Isaiah 55:5.
 
 GOD has glorified His Son. How deeply we ought to regret that we glorify Christ so little, bought with His precious blood, owing all we have to Him. We make but a very poor return and even when we are helped by the Spirit of God to glorify Christ, yet I am sure we should always feel an insatiable desire to do it yet more. To glorify Christ is so sweet a thing that when a man has once tasted of it, he pants and pants within his spirit for a greater capacity to glorify Christ-- and this is one of his griefs, that he cannot praise his Savior as he would--hence it is that oftentimes the Prophet and the Psalmist, when they were most full of praise, would bid the earth, the sea, the heavens, and the Heaven of heavens, help to praise the King in whom they saw such ravishing beauties and delights! Hence it is that godly men, whenever they are stirred up and feel that they could magnify and bless the Lord, always want their fellow creatures to join them--and their sorrow is that Jesus does not reign in every heart and that He has not a throne in every soul!

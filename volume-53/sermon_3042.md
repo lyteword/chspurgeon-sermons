@@ -1,12 +1,5 @@
 # Sermon 3042 | The Parable of the Ark
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 30, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY EVENING, FEBRUARY 17, 1856.
-
 "And they went in unto Noah into the ark, two and two of all flesh, wherein is the breath of life." Genesis 7:15.
 
 CHRIST always taught by parables. Hence the popularity and the power of His teaching. The masses never were and perhaps, never will be, able to receive instruction in any other way than by parabolic illustrations. He who would be a successful minister must open his mouth in parables. He who would win the hearts of the multitude must closely imitate his Master and preach in parables which all men can understand. I believe there are few living men who are able to devise a parable. Those who do possess this rare ability are very scarce, indeed. Nor do I profess to belong to the honorable confraternity. I have sometimes endeavored to fashion a parable and though I found it easy, at times, to manufacture a figure, yet a parable I can by no means make. I am happy to say it is not required of me to do so, for God's Word, if it is rightly used, is suggestive of a thousand parables! And I have no reason to fear that I shall be short of subjects for preaching when I am able to find such parables as I do in God's Word.

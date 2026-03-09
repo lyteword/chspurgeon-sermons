@@ -1,12 +1,5 @@
 # Sermon 3340 | "Take Away the Frogs"
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 6, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then Pharaoh called for Moses and Aaron, and said, Entreat the Lord, that He may take away the frogs from me, and from my people; and I will let the people go, that they may do sacrifice unto the Lord." Exodus 8:8.
 
 When it pleases God by His judgments to humble men, He is never at a loss for means--He can use lions or lice, famines or flies. In the armory of God there are weapons of every kind, from the stars in their courses down to caterpillars in their hosts. The dust of the earth, out of which man is formed, will at God's command forget its kinship and overwhelm a caravan, while the waters will forsake their channels, invade the tops of the mountains and drown a rebellious race. When the Lord contends against proud men, He has but to lift His finger and countless legions throng around Him, all loyal to their Lord and valiant for His name! Know you not that the beasts of the field are His servants and the stones of the street obey His bidding? Every wave worships Him and every wind knows its Lord. If you would war against Him, it would be well for you to know what His forces are--consider the battle--do no more.

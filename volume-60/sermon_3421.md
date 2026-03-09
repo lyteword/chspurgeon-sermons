@@ -1,12 +1,5 @@
 # Sermon 3421 | Prayer Meetings
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, AUGUST 30, 1868.
-
 "These all continued with one accord in prayer and supplication." Acts 1:14.
 
 IN all those churches which are not altogether tied and bound by liturgies and rituals, it has been common to hold meetings for social prayer. We call them Prayer Meetings. Now, it may be profitable, now and then, to look over some of our institutions, to see whether they are Scriptural--to notice their defects, to see in what respect they may be improved, or to observe their merits--that we may be induced still further to carry them on. The subject, therefore, this evening, suggested to me by the fact that we are going to meet for a day of prayer tomorrow, is that of Prayer Meetings-- assemblies of the people of God for worship of that peculiar kind which consists in each one expressing his desire before the Lord. Let us, then, go through very briefly--

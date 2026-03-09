@@ -1,12 +1,5 @@
 # Sermon 3548 | The Saint's Trials and the Divine Deliverances
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 25, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 11, 1872.
-
 "I cried unto God... You led Your people like a flock by the hand of Moses and Aaron." Psalm 77:1-20.
 
 THIS Psalm describes the condition of a child of God under deep depression of spirit. He is much tried and bowed, and yet, at the same time, the saint at last gets the victory and, before the Psalm is over, the clouds are all removed from the sky and the heart rejoices in the sunlight of Divine Love. It is known to every Believer that the experience of a Christian is very variable. We are like our own strange weather in this land. South winds blow and all is warm and balmy, but in a few hours the north wind comes, or the cutting east wind--and soon the ground is covered with snow or hard white frost--and yet, perhaps, in another day or two there will be a storm! Some Believers have all spiritual weathers in a week. Being somewhat excitable, perhaps naturally, they readily take to themselves wings and mount aloft, but then as a high soar is often followed by a great fall, these very Believers are soon sighing and crying out of the very depths and half doubt whether they are the people of God at all! Nor must I say that is common to merely excitable people. Some of the very noblest heroes in the Christian army have had a very dark experience to go through. If you read the life of Martin Luther, of whom we may well say that never braver soldier fought beneath the banner of the Cross, you will find him the subject of the most terrible exercises. He was strong in his God, but he was very weak in himself--subject to ferocious temptations--temptations the like of which probably few of us have ever known because we are not men of his gigantic mold, and God does not allow trials to come upon us which were only suitable for him. He oftentimes seemed to lie at Hell's gates, but then, again, the man seemed as if he had looked Heaven in the face and lived in perpetual communion with his God!

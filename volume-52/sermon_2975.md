@@ -1,12 +1,5 @@
 # Sermon 2975 | Forgetting God
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY MORNING, SEPTEMBER 9, 1876.
-
 "Therefore have they forgotten Me." Hosea 13:6.
 
 Our text reminds us that God does take notice of what men do, or of what they do not do. Here He complains--and there is a kind of mournful plaintiveness about His words--"Therefore have they forgotten Me." It is not a matter of indifference to God whether men remember Him or not. It seemed to be a subject of surprise to David that God should think of man, for He wrote, "When I consider Your heavens, the work of Your fingers, the moon and the stars which You have ordained, what is man, that You are mindful of him?" Yet God is mindful of man and it grieves Him that man is not mindful of Him! It would not disturb our minds if one tiny ant should forget or ignore us, yet we did not create it, and we have not the claims upon it that God has upon us. Yet, little though we are--and so insignificant that the ant, itself, is a great thing in comparison with us if we reckon what we are in comparison with God--it seems that He does want us to remember Him, to think of Him and to trust, love and serve Him. And when we do not, He is vexed and grieved. At least, speaking after the manner of men, we are taught to believe that it pains Him at His heart, so that He cries out by the mouth of His servant, the Prophet, "They have forgotten Me--their Maker, their best Friend and their greatest Helper."

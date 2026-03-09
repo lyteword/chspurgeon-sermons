@@ -1,12 +1,5 @@
 # Sermon 2936 | Christ's "New Commandment"
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 18, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 4, 1875.
-
 "A new commandment I give unto you, that you love one another: as I have loved you, that you also love one another. By this all will know that you are My disciples, if you have love for one another." John 13:34,35.
 
 I CAN never doubt, or for a moment distrust the affection of my dear people to myself. I certainly do not ask for any more of your love, for I have as much as one man ought to have--perhaps a little more--certainly a great deal more than I deserve. I can now fairly turn round and say to you, putting myself altogether on one side, "Let brotherly love continue and let the warmth of your affection towards one another increase." And I can say this, too, without anybody daring to insinuate that there is something wrong in the Church--some division or schism here. Blessed be God, I do not think that a microscopic eye could discover anything of the kind! There may be some of you who do not like certain persons quite as much as you like other people. I do not wonder at that, for there will always be some partialities even among the best of friends. Our Lord Jesus, Himself, had 12 Apostles and out of the twelve, three especially favored ones. and out of the three, one who leaned upon His bosom. There are some people who are more lovable than other people and we can hardly help loving them more than others. Still, I know of no special reason of that kind why I should preach this sermon. I bless the Lord that you are as loving as you are and pray that you may increase more and more in your love to one another.

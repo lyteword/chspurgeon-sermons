@@ -1,12 +1,5 @@
 # Sermon 3288 | Why the Gospel Is Hidden
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1912.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY, 11, 1866.
-
 "But if our Gospel is hidden, it is hidden to those who aire lost." 2 Corinthians 4:3.
 
 In this verse and the following one we have a very brief yet very full description of what every minister of the Gospel ought to preach. In the first place, he is to preach the Gospel--not metaphysics, not politics, not mere morality, not simply doctrines as such. He is to preach the Gospel, which signifies good news, something new and something good--so good that nothing else can equal it--the glad tidings of mercy for the guilty, the blessed tidings of God coming down to man that man may go up to God, the welcome tidings of atonement made for human guilt! It is also new as well as good--it comes as a strange novelty to the attentive ear. Mythology never dreamed it, human wit could never have invented it, even angelic intellect could not have devised a scheme--

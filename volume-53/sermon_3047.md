@@ -1,12 +1,5 @@
 # Sermon 3047 | If So--what Then?
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 4, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 15, 1871.
-
 "If the righteous are scarcely saved, where shall the ungodly and the sinner appear?" 1 Peter 4:18.
 
 SOME people suppose that it is a very easy thing to be saved, but our Lord said, "Strive ("Agonize" is the original word) to enter in at the strait gate, for many, I say unto you, will seek to enter in and shall not be able." When men hear a simple Gospel sermon of which the pith and marrow is the great soul-saving message, "Believe and live," they say, "If it is such a simple matter, will not all believe?" But the Prophet Isaiah spoke not so, for his sad inquiry was, "Who has believed our report ("our doctrine" is the marginal reading)?" Faith seems so easy that one might ask, "Where will it not be found? But our Savior thought not so, for He asked, "When the Son of Man comes, shall He find faith on the earth?" He who knows where to look for it and who has the quickest eyes to discern it, asks whether He shall be able to find, anywhere on the earth, that scarce thing called faith--"the faith of God's elect." Believe me that though "the way of holiness" is so plain that "the wayfaring men, though fools, shall not err therein," yet on account of the hardness of our hearts, it is no easy thing for any of us to enter that way and to continue in it until it leads us to our everlasting Home above.

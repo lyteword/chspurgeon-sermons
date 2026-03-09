@@ -1,12 +1,5 @@
 # Sermon 3254 | The Curse Removed
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 15, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, MORE THAN HALF A CENTURY AGO.
-
 "Christ has redeemed us from the curse of the Law, being made a curse for us: for it is written, Cursed is every one that hangs on a tree." Galatians 3:13.
 
 [Another Sermon by Mr. Spurgeon upon the same text is #873, Volume 15--CHRIST MADE A CURSE FOR US.]

@@ -1,12 +1,5 @@
 # Sermon 3077 | Death--a Sleep
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 30, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "But I would not have you to be ignorant, brethren, concerning those who are asleep, that you sorrow not, even as others which have no hope." 1 Thessalonians 4:13.
 
 [On January 31, 1892, the Beloved preacher, "after he had served his own generation by the will of God, fell asleep." That verse was the text of the Sermon (#2243, Volume 38) published on the day of his funeral, to which Mrs. Spurgeon gave the title, "HIS OWN FUNERAL SERMON"]

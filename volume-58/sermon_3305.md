@@ -1,12 +1,5 @@
 # Sermon 3305 | A Clear Understanding
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 6, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus said unto them, Have you understood all these things?" Matthew 13:51.
 
 THIS is a question which might often be asked of us when we have been reading the Scriptures, when we have been attending upon the public means of Grace, or when we have been partaking of the Lord's Supper--"Have you understood all these things?" It were well for someone to run up to us, as Philip did to the eunuch, who on his return from Jerusalem was reading in his chariot, and say to us as Philip did to him, "Do you understand what you are reading?" Or the question might be put to us, "Do you understand what you hear? Do you understand even what you say?" I fear there are hundreds of religionists in this country who never think of understanding that which they attend to under the name of religion. They pass through the habitual forms, listening to and it may be, joining in the liturgy, till at length the service is finished, the day is over and the thing is done! The language of devotion has thus slipped through the lips without having leaped from the heart. Among ourselves, I fear there may be many who are content with listening to the sound of gracious words, who never pierce through the shell of the words into the kernel of the meaning--satisfied with the external, which is nothing--they miss the internal, which is everything!

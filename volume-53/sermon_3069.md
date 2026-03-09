@@ -1,12 +1,5 @@
 # Sermon 3069 | Cleansing--Wrong Or Right?
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 5, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 31, 1874.
-
 "If I wash myself with snow water, and make my hands ever so clean; yet shall You plunge me in the ditch, and my own clothes shall abhor me." Job 9:30,31.
 
 [Another Sermon by Mr. Spurgeon on the same text is #1908, Volume 32--WASHED TO GREATER FOULNESS.]

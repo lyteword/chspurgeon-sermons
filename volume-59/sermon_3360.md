@@ -1,12 +1,5 @@
 # Sermon 3360 | Pleading With the Indifferent
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 26, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Is it nothing to you, all you that pass by? Behold, and see if there is any sorrow like unto my sorrow, which is done unto me, wherewith the Lord has afflicted me in the day ofHis fierce anger." Lamentations 1:12.
 
 THIS was the lamentation of Jeremiah. As he saw the desolation of the beloved city, as he marked the cruelties inflicted by the invaders upon the Jewish youth, children and maidens, and as he foresaw the long years of bitterness reserved for the captives in Babylon, he felt as if he were a peer in the realm of misery--indeed peerless. He stands foremost, a very emperor of grief, a king of sighs and tears. "Behold, and see," he said, "if there was ever sorrow like unto my sorrow, which is done unto me."

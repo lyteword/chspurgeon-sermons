@@ -1,12 +1,5 @@
 # Sermon 3561 | The Drawings of Love
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 26, 1917.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The Lord has appeared of old unto me, saying, Yes, Ihave loved you with an everlasting love; therefore, with loving kindness have I drawn you." Jeremiah 31:3.
 
 From the context it is clear that this passage primarily refers to God's ancient people, the natural descendants of Abraham. He chose them from of old and separated them from the nations of the world. Their election fills a large chapter in history and it shines with resplendent luster in prophecy. There is an interval during which they have experienced strange vicissitudes, been visited with heavy chastisements and acquired an evil reputation for the perverseness of their mind and the obstinacy of their heart. Yet a future glory awaits them when they shall turn unto the Lord their God, again, be restored to their land and acknowledge Jesus of Nazareth as the King of the Jews, their own anointed King. Without abating, however, a jot or tittle from the literal significance of these words as they were addressed by the Hebrew Prophet to the Hebrew race, we may accept them as an Oracle of God referring to the entire Church of His redeemed family and pertaining to every distinct member of that sacred community. Every Christian, therefore, whose faith can grasp the testimony, may appropriate it to himself. As many a Believer has heard, so every Believer may hear the voice of the Holy Spirit sounding in his ears these words, "Yes, I have loved you with an everlasting love; therefore, with loving kindness have I drawn you."

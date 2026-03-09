@@ -1,12 +1,5 @@
 # Sermon 3475 | The Soul's Great Crisis
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 9, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 24, 1870.
-
 "For without the law sin was dead. For I was alive without the law once, but when the commandment came, sin revived, and I died." Romans 7:8,9.
 
 I REMEMBER once reading a chapter of a book which commenced with this heading, "The Inside of the World." The book, of course, was occupied very much with geology and to speculations about the interior of the globe. Tonight I want you to consider not the inside of the world, but the little world within us, that microcosm, the human heart, and some strange things that happen therein--and especially one singular and mysterious work which goes on in the minds of those who become the children of God. They are brought from one state into another by a very remarkable process. A process which, while they are undergoing it, they do not understand. And for need of knowing what it is and what God is driving at, some of them are often driven to very great despondency--some even to despair. Whereas if they would see in the text what I shall try to hold up and expound--a kind of mirror in which they might see a reflection of their hearts and their own experience--they might, perhaps, come into light and liberty all the sooner. May it be so, even now!

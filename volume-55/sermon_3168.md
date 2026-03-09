@@ -1,12 +1,5 @@
 # Sermon 3168 | The Scarlet Line in the Window
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 28, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "She bound the scarlet line in the window." Joshua 2:21.
 
 EVERY little incident in a remarkable conversion like that of the harlot Rahab is worthy of notice. The Apostle James selected her as an illustration of the fact that faith is always attended by good works, and he asks, "Was she not justified by works when she had received the messengers?" while Paul quotes her as an instance of justification by faith, and says, "By faith the harlot Rahab perished not with them that believed not." If both these eminent Apostles found an illustration of an important Doctrine in her life, we may surely do the same. If the hiding of the spies under the flax had some significance, so also had the hanging out of the scarlet line.

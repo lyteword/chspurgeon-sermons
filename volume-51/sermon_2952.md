@@ -1,12 +1,5 @@
 # Sermon 2952 | The Church--the World's Hope
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "Lo, God has given you all them that sail with you." Acts 27:24.
 
 THE Apostle Paul had given some very good advice to the mariners of this ship. They had thought fit to reject it. What then? Now some of us are of such short temper that if our advice should be rejected, we would be in a huff and never offer any more--and we should feel some sort of pleasure in seeing those persons get into mischief who were so foolish as not to take our sage counsel! Not so the Apostle Paul. After he had prudently abstained for some time from saying anything--for there is a time to be silent--he at length gave proof of his unabated affection in them by the good advice which he offered. Let us take a lesson from him and let us forgive our brethren even to 70 times seven and, if, after having done our very best, we still find our advice rejected, let us persevere in our work of love.

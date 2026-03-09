@@ -1,12 +1,5 @@
 # Sermon 2990 | The Believer Not An Orphan
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 31, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will not leave you comfortless: I will come to you." John 14:18.
 
 You will notice that the margin reads, "I will not leave you orphans: I will come to you." In the absence of our Lord Jesus Christ, the disciples were like children deprived of their parents. During the three years in which He had been with them, He had solved all their difficulties, borne all their burdens and supplied all their needs. Whenever a case was too hard or too heavy for them, they took it to Him. When their enemies well near overcame them, Jesus came to the rescue and turned the tide of battle. They were all happy and safe enough while the Master was with them. He walked in their midst like a father amid a large family of children, making all the household glad. But now He was about to be taken from them by an ignominious death and they might well feel that they would be like little children deprived of their natural and beloved Protector. Our Savior knew the fear that was in their hearts and before they could express it, He removed it by saying "You shall not be left alone in this wild and desert world. Though I must be absent from you in the flesh, yet I will be present with you in a more efficacious manner. I will come to you spiritually and you shall derive from My spiritual Presence even more good than you could have had from My bodily Presence, had I still continued in your midst."

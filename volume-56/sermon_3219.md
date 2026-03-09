@@ -1,12 +1,5 @@
 # Sermon 3219 | "He Blessed Him There"
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 13, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He blessed him there." Genesis 32:29.
 
 JACOB had said to the Angel, "Tell me, I pray You, Your name." In answer to that enquiry, he was gently rebuked. The Angel did not come to ratify Jacob's curiosity, but He came as a messenger from God with a blessing--"and He blessed him there." There are a great many things we would like to know when we read the Bible. But if we read it so as to find salvation, that will be much better than having our curiosity gratified. When we come to hear a sermon, too, we should like, perhaps, to meet with some fine passages, or to have some telling anecdotes that we could carry away with us. But if, instead, the Lord's messenger shall give us a blessing from God, Himself, it will be infinitely better! The disciples, after the Resurrection, wanted to know from the Savior something about the times and seasons, but He did not tell it to them. He said to them, "You shall receive power after that the Holy Spirit is come upon you." That was far better, far more valuable to them--and though for the time it might not please them so much, yet, for all practical purposes, it enriched them far more! Angels' names we can afford to leave, but God's blessing we must have and we cannot do without it!

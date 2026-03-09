@@ -1,12 +1,5 @@
 # Sermon 3110 | Faintness and Refreshing
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And he arose, and did eat and drink, and went in the strength of that meat forty days and forty nights unto Horeb the mount of God." 1 Kings 19:8.
 
 [An Exposition of the greater part of the chapter from which the text is taken is given with Sermon #2828, Volume 49.]

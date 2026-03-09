@@ -1,12 +1,5 @@
 # Sermon 3412 | The Heavenly Rainbow
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 25, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And there was a rainbow around about the Throne, in sight like unto an emerald." Revelation 4:3.
 
 "A RAINBOW!" "A rainbow around about the Throne!" I have a notion concerning this rainbow, that it was a complete circle. In the 10th Chapter the Apostle tells us that he saw "another mighty angel with a rainbow upon his head," which could hardly have been the semi-circular arc we are accustomed to see in the sky in times of rain and sunshine. It must have been, I should imagine, a complete ring.

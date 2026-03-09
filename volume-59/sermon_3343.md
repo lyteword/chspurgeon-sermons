@@ -1,12 +1,5 @@
 # Sermon 3343 | "The Star Out of Jacob"
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 27, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "There shall come a Star out of Jacob." Numbers 24:17.
 
 THIS prophecy may have some reference to David, but we feel persuaded that the true design of the Holy Spirit is to set forth an emblem of our Lord Jesus Christ. All Nature, above as well as around us, is laid under contribution to set forth our Lord. All the flowers of the field and many of the beasts of the plain--and now the very orbs of Heaven--are turned into metaphors and symbols by which the Glory of Jesus may be manifested to us! Where God takes such pains to teach, we ought to be at pains to learn. Where He makes Heaven and earth to be the pages of the book, we ought to be most ardent in our study. Oh, you who have neglected to learn of Christ, may that neglect come to an end and may some word be spoken which shall be as the beaming of a star unto the darkness of your soul, that henceforth you may be led to know Christ and to be found in Him!

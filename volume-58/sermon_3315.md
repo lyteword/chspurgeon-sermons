@@ -1,12 +1,5 @@
 # Sermon 3315 | Joy in Harvest
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 16, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They joy before You according to the joy in harvest." Isaiah 9:3.
 
 [Other Sermons by Mr. Spurgeon upon harvest subjects are as follows--#2896, Volume 50--HARVEST TIME (the first of his Sermons that was ever published); #2265, Volume 39--HARVEST JOY (a Sermon upon the whole of Isaiah 9:3); #1127, Volume 19--HARVEST MEN NEEDED; #1562, Volume 26-- HARVEST PAST, SUMMER ENDED AND MEN UNSAVED; #706, Volume 12--FIELDS WHITE FOR HARVEST; #880, Volume 15-- THE FORMER AND THE LATTER RAIN and #3058, Volume 53--THE JOY OF HARVEST.]

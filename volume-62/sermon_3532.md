@@ -1,12 +1,5 @@
 # Sermon 3532 | Christ's Great Mission
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Even as the Son of Man came not to be served, but to serve, and to give His Life a ransom for many." Matthew 20:28.
 
 THE mission of Christ to our world was distinct and definite. The ministry of the Gospel should be alike clear and transparent. It was but the other day I read a letter from the deacon of a church in which, speaking of his minister, he said, "We ought to understand geology thoroughly, for we usually hear something of it, at least once every Sunday. There is one thing, however, we shall never be likely to understand under our present friend's ministry-- he seems utterly to ignore the Doctrine of the Atonement. I have not heard him allude to it for the past three months, nor do I know, for certain, whether he believes it or not. Though he sometimes alludes to Jesus Christ as an example, I have neither heard of Christ dying, nor Christ buried, of Christ risen, or Christ pleading in Heaven at all! In fact, it seems to me I might as well attend a Socinian chapel." Well, God forbid that such a reflection should ever be cast on me! Is it not my constant endeavor to bring you back, Sabbath after Sabbath, to the same old, old story of the Cross and of the Redemption by blood which was then and there worked? This bell has but one note! It may be repeated, I sometimes fear, with too much monotony. Still, the tone is clear. I know that Jesus Christ came into the world to save sinners. There is salvation in none other name under Heaven. The Propitiation which God has set forth for human sin is alone efficacious. There is no remission without blood. Full salvation is to be procured only through the wounds of Jesus slain. There is no salvation in Heaven or earth beside. We are coming to that same story again. It never wearies the Believer's ears, nor does it ever fail to be the Power of God unto salvation to everyone who believes! I want my text to speak this evening! Let me, then, begin by expounding it, word by word--and after that let me explain the Doctrine to which it gives most distinct prominence.

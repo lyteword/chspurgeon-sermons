@@ -1,12 +1,5 @@
 # Sermon 3158 | The Fifth Beatitude
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 19, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 21, 1873.
-
 "Blessed are the merciful: for they shall obtain mercy." Matthew 5:7.
 
 [In the year 1873, Mr. Spurgeon delivered what he called "a series of sententious homilies" on the Beatitudes. After an introductory discourse upon the Sermon on the Mount and the Beatitudes as a whole, he intended to preach upon each one separately, but either illness or some other special reason prevented him from fully carrying out this purpose. There are, however, seven Sermons upon the Beatitudes which have already been published--See Sermons #422, Volume 7-- THE PEACEMAKER; #2103, Volume 35--THE HUNGER AND THIRST WHICH ARE BLESSED; #3155, Volume 55--THE BEATITUDES; #3156, Volume 55--THE FIRST BEATITUDE and #3065, Volume 53--THE THIRD BEATITUDE; #3157, Volume 55-- THE FOURTH BEATITUDE--and this one.]

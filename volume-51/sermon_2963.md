@@ -1,12 +1,5 @@
 # Sermon 2963 | Unmitigated Prosperity
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "The pleasure of the LORD shall prosper in His hands." Isaiah 53:10.
 
 You know that the whole verse says, "Yet it pleased the Lord to bruise Him; He has put Him to grief: when You shall make His soul an offering for sin, He shall see His seed, He shall prolong His days, and the pleasure of the Lord shall prosper in His hands." The last words from our text--"The pleasure of the Lord shall prosper in His hands."

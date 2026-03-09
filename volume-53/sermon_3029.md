@@ -1,12 +1,5 @@
 # Sermon 3029 | God's Tender Mercy
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 28, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, MAY 23, 1869.
-
 "The tender mercy of our God." Luke 1:78.
 
 IT was a proof of great tenderness, on God's part, to think of His sinful creature, man, at all. When the created one had willfully set himself in opposition to his Creator, that Creator might at once have destroyed him, or have left him to himself--to work out his own destruction. It was Divine tenderness that looked on such an insignificant creature impudently engaging in so gross a revolt! It was also infinite tenderness which had, long before that, considered man so carefully as, practically, to frame a plan by which the fallen might be restored. It was a wonder of mercy that Infallible Wisdom should unite with almighty power to prepare a method by which rebellious man might be reconciled to his Maker. It was the highest possible degree of tenderness that God should give up His own Son, His only-begotten Son, that He might bleed and die in order to accomplish the great work of our redemption. It is also indescribable tenderness that God should, in addition to the gift of His Son, take such pity upon our weakness and our wickedness as to send the Holy Spirit to lead us to accept that "unspeakable Gift." It is Divine tenderness which bears with our obstinacy in rejecting Christ--Divine tenderness which plies us with incessant expostulation and invitation--all to induce us to be merciful to ourselves by accepting the immeasurable Gift which God's tender mercy so freely presents to us.

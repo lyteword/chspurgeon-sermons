@@ -1,12 +1,5 @@
 # Sermon 3108 | The House of Mourning and The House of Feasting
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, SEPTEMBER 3, 1854.
-
 "It is better to go to the house of mourning, than to go to the house of feasting." Ecclesiastes 7:2.
 
 THE maxim that happiness lies between two extremes is, I believe, the dictate of prudence and has the sanction of God's Word. The ancients always spoke of this as being the most happy state of life. Somewhere between the two extremes of ecstatic joy and doleful melancholy lies the thing we call, "happiness." Ancient poets used to sing of the via media, or the middle way. We know that Agur, an Inspired writer, prayed to God that He would give him "neither poverty nor riches," that he might walk in the middle way of life. And as the medium with regard to wealth is to be preferred, so I believe the middle way is to be chosen with regard to happiness. In the green plains between two high hills is the place where happiness generally resides. The man who is not often lifted up with joy, nor often depressed in spirit through grief--who walks through the world in a calm and quiet atmosphere, bearing about with him a holy complacency, a calm serenity and an almost uniformity--that man is a happy man! He who journeys along without mounting up as an eagle, or without diving down into the depths of the sea--he who keeps along the even tenor of his way to his death is entitled to the name of a happy man.

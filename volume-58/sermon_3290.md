@@ -1,12 +1,5 @@
 # Sermon 3290 | God's Hand at Evening
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 15, 1866.
-
 "Now the hand of the Lord was upon me in the evening." Ezekiel 33:22.
 
 PERHAPS in the special senses in which Ezekiel uses this expression, we shall not expect to feel "the hand of the Lord" upon us. God may not call us to prophesy as Ezekiel did, although in the Scriptural use of the word, "prophesy," the preacher of the Word is still called to deliver the message which he has received from his Lord's lips. The days of special visions and voices and prophesying have passed away, but we can still say with Peter, "We have a more sure word of prophecy, whereunto you do well that you take heed, as unto a light that shines in a dark place, until the day dawns and the day star arise in your hearts."

@@ -1,12 +1,5 @@
 # Sermon 3283 | The Voices of Our Days
 
-
-A NEW YEAR'S SERMON PUBLISHED ON THURSDAY, JANUARY 4, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I said, Days should speak and multitude of years should teach wisdom." Job 32:7.
 
 In the discussion between Job and his three friends, Elihu was present, but though by far the wisest man, he remained quiet. Sometimes a still tongue proves a wise head. In our text he gives his reason for refraining from speech. He felt inclined to deliver his mind, but being the younger man he modestly said, "These gray-headed men ought to know better than I. Perhaps if I speak, I shall display my ignorance and they will say, "Be silent, boy, and let your fathers teach you." Therefore he said to himself, "Days should speak and multitude of years should teach wisdom."

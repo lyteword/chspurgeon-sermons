@@ -1,12 +1,5 @@
 # Sermon 3369 | Man Humbled, God Exalted
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 28, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 4, 1886.
-
 "And the loftiness of man shall be bowed down, and the haughtiness of men shall be made low: and the Lord alone shall be exalted in that day." Isaiah 2:17.
 
 THIS is the case when God visits a nation with terrible judgments. When the Jews were led away captive into Babylon, the great men of the land were bound in chains and treated as common slaves. And as they marched across the weary wilderness, the iron entered into their souls. Then was the loftiness of their spirit bowed down and the haughtiness of the king and the princes, who laughed at the Prophet, was laid low.

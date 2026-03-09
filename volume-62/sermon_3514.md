@@ -1,16 +1,5 @@
 # Sermon 3514 | A Prospect of Revival
 
-A Sermon
-
-
-Published on Thursday, June 1st, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [22]the Metropolitan Tabernacle, Newington.
-
 "For the Lord shall comfort Zion: he will comfort all her waste places and he will make her wilderness like Eden, and her desert like the garden of the Lord; joy and gladness shall be found therein, thanksgiving, and the voice of melody."--Isaiah 51:3.
 
 THE pedigree of God's chosen nation Israel may be traced back to one man and one woman--to Abraham and Sarah. Both of them were well stricken in years when the Lord called them, yet, in the fulfilment of his promise, he built up of their seed a great nation, which, for number, was comparable to the stars of heaven. Take heart, brethren; these things are written for our example and for our encouragement. His Church can never sink to so low an ebb that he cannot soon build her up again, nor in our own hearts can the work of grace ever decline so grievously that the same mighty power which once quickened cannot revive and restore us. Think of Abraham and Sarah, childless till they were old, then rejoicing in one son, who became their heir. Hence sprang the great multitude that peopled Palestine. With such a panorama unfolding before you, there is no excuse for despair; but you may find ten thousand reasons for confidence in God.

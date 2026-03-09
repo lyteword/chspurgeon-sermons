@@ -1,12 +1,5 @@
 # Sermon 3474 | Blessings Manifold and Marvelous
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 2, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He delivered me, because He delighted in me." Psalm 18:19.
 
 THE experience of Believers has much in common. The language in which they are known to express it bears a close resemblance. You may often take the language out of one good man's mouth and put it into the mouth of another without committing any violence. The words of David will doubtless suit hundreds and thousands of you who fear the Lord. You will be able to lay hold of this sentence, full many of you, I hope, with the hands of appropriation and be enabled, by God the Holy Spirit, to say, as he said, "He delivered me because He delighted in me."

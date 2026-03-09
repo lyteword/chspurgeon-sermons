@@ -1,12 +1,5 @@
 # Sermon 3143 | Shoes for Pilgrims and Warriors
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 6, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And your feet shod with the preparation of the Gospel of Peace." Ephesians 6:15.
 
 THE Christian was evidently intended to be in motion, for here are shoes for his feet. His head is provided with a helmet, for he is to be thoughtful. His heart is covered with a breastplate, for he is to be a man of feeling. His whole nature is protected by a shield, for he is called to endurance and caution. And that he is to be active is certain, for a sword is provided for his hand to use and sandals with which his feet are to be shod. To suppose that a Christian is to be motionless as a post and inanimate as a stone, or merely pensive as a weeping willow and passive as a reed shaken by the wind, is altogether a mistake! God works in us and His Grace is the great motive power which secures our salvation, but He does not so work in us as to chloroform us into unconscious submission, or engineer us into mechanical motion--He orchestrates all our activities by working in us "to will and to do of His good pleasure." Grace imparts healthy life and life rejoices in activity! The Lord never intended His people to be automatons worked by clockwork, or cold and dead statues--He meant them to have life, to have it abundantly--and in the power of that life to be full of energy! It is true He makes us lie down in green pastures, but equally certain is it that He leads us onward beside the still waters! A true Believer is an active person--he has feet and uses them.

@@ -1,12 +1,5 @@
 # Sermon 3345 | Sunlight for Cloudy Days
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 13, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT MENTONE.
-
 "But I am poor and needy, yet the Lord thinks upon me." Psalm 40:17.
 
 IT is not everybody who would like to apply to himself the first part of the text. Perhaps we, most of us, accept it because it happens to be Scriptural language--and yet we might not spontaneously say of ourselves, "I am poor and needy." Some would even wish us to believe the very opposite, for if I read their hearts aright, they say, "I am not poor, nor needy." They have enough of this world's goods and as for spiritual matters, they are strong and self-reliant. All this comes of vainglory and, in the long run will end in vanity and vexation of spirit--for if a man can do without God, it is certain that God can do without him--and the day will come when God willdo without him, according to His Word, "I will ease Me of My adversaries." He who has tried throughout life to do without God will inherit remorse forever and ever. It is well to begin, continue and end in this life with God's favor, that we may enjoy it world without end! I therefore trust that none among you would wish to say, "I am rich and increased in goods and have need of nothing," for that would be tantamount to a proud resolve to do without God--and it will end in your eternal ruin!

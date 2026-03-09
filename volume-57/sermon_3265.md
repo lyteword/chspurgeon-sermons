@@ -1,12 +1,5 @@
 # Sermon 3265 | Faith Tried and Triumphing
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Though He slays me, yet will I trust in Him." Job 13:15.
 
 THERE are some speeches which could not be made by ordinary men. As soon as you hear them, you feel that there is a ring about them which is by no means common. Certain expressions which have been heard and remembered could have been uttered only by great warriors, or by men who have navigated the vast ocean. Certain other still nobler expressions, because spiritual ones, could have been uttered only by those who have had to fight with spiritual foes, or have done business on the great waters of soul trouble. When you hear the expression, "If there are as many devils at Worms as there are tiles on the housetops, I will go there in God's name," you are quite certain the speaker is Martin Luther. No other than he could have said it! And just as certainly, I think, I would have felt if I had read tonight's text for the first time, that it was Job who said it and nobody else.

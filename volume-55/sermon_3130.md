@@ -1,12 +1,5 @@
 # Sermon 3130 | "In Remembrance"
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 5, 1873.
-
 "This do in remembrance of Me...This do you, as often as you drink it, in remembrance of Me." 1 Corinthians 11:24,25.
 
 [Other Sermons by Mr. Spurgeon upon this passage and verses before and after, are as follows--Sermons #2, Volume 1--THE REMEMBRANCE OF CHRIST; #2307, Volume 39--THE GREATEST EXHIBITION OF THE AGE; #2595, Volume 44--WHAT THE LORD'S SUPPER SEES AND SAYS; #2638, Volume 45--THE RIGHT OBSERVANCE OF THE LORD'S SUPPER and #3099, Volume 54--THE DOUBLE FORGET-ME-NOT]

@@ -1,18 +1,5 @@
 # Sermon 3509 | Coming to Christ
 
-A Sermon
-
-
-Published on Thursday, April 27th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [17]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, June 17th, 1868.
-
 "To whom coming."--1 Peter 2:4.
 
 IN THESE three words you have, first of all, a blessed person mentioned, under the pronoun "whom"--"To whom coming." In the way of salvation we come alone to Jesus Christ. All comings to baptism, comings to confirmation, comings to sacrament are all null and void unless we come to Jesus Christ. That which saves the soul is not coming to a human priest, nor even attending the assemblies of God's saints; it is coming to Jesus Christ, the great exalted Saviour, once slain, but now enthroned in glory. You must get to him, or else you have virtually nothing upon which your soul can rely. "To whom coming." Peter speaks of all the saints as coming to Jesus, coming to him as unto a living stone, and being built upon him, and no other foundation can any man lay than that which is laid, and if any man say that coming anywhere but to Christ can bring salvation, he hath denied the faith and utterly departed from it. The coming mentioned in the text is a word which is sometimes explained in Scripture by hearing, at other times by trusting or believing, and quite as frequently by looking. "To whom coming." Coming to Christ does not mean coming with any natural motion of the body, for he is in heaven, and we cannot climb up to the place where he is; but it is a mental coming, a spiritual coming; it is, in one word, a trusting in and upon him. He who believes Jesus Christ to be God, and to be the appointed atonement for sin, and relies upon him as such, has come to him, and it is this coming which saves the soul. Whoever the wide world over has relied upon Jesus Christ, and is still relying upon him for the pardon of his iniquities, and for his complete salvation, is saved.

@@ -1,12 +1,5 @@
 # Sermon 2948 | Stephen and Saul
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 13, 1875.
-
 "And cast him out of the city, and stoned him; and the witnesses laid down their clothes at a young man's feet, whose name was Saul." Acts 7:58.
 
 THE Holy Spirit does not tell us much about the deaths of saints at any time and He says very little about the deaths of the martyrs. He gives us much more about Stephen--the first of them--than about any other. A few words are made to suffice for the death of James, the brother of John. As to the deaths of Peter and Paul, they are incidentally mentioned as yet to be, but we have no account of them whatever. I suppose there was no need and the Holy Spirit never gives us superfluous information. There were hundreds of years to come in which martyrologies might be written and the Lord has taken care that there should be eye-witnesses with ready pens to record the deaths of martyrs. Hence we have many volumes and, especially in our own country, the renowned Acts and Monuments of John Foxe which record how, through seas of blood, the martyrs swam to their crowns! The noble army of martyrs has never been without a chronicler and there was no need that the Holy Spirit should give us the details of the deaths of the witnesses for Christ because we should have plenty in another form.

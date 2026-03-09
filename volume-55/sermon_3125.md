@@ -1,12 +1,5 @@
 # Sermon 3125 | Fear of Death
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1908, DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON,
-
-ON THURSDAY EVENING, DECEMBER 17,1874.
-
 "And deliver them who through fear of death were all their lifetime subject to bondage." Hebrews 2:15.
 
 IT is a very natural thing that man should fear to die, for man was not originally created to die. When Adam and Eve were first placed in the Garden of Eden, they were in such a condition that they might have remained there for a myriad years if they had kept their integrity. There was no reason why unfallen man should die--but now that we have sinned, the seeds of corruption are in this flesh of ours--and it is appointed unto men once to die. Yet, as if the body knew that it was not according to the first decree of Heaven that it should go to the earth and to the worms, it has a natural reluctance to return to its last bed. And this fear of death, so far as it is natural, is not wrong.

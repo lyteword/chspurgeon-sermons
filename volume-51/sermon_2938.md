@@ -1,12 +1,5 @@
 # Sermon 2938 | Jesus the Way
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 1, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
-
 "Jesus said unto him, I am the way." John 14:6.
 
 IT is coming on dark and we are lost among the mountains. There is an awful precipice there, a quarter of a mile straight down. There is a bog over yonder and if a man once gets into it, he will never get out again. There is a forest yonder and if one should be lost in its tangled paths, he will certainly not find his way out till the rising of the sun. What do we need just now? Why, we need someone who will tell us the way! Our friend the philosopher, with whom we talked half-an-hour ago, was very valuable to us, then, and gave us a great deal of information. But, as he does not happen to know the way, we would sooner have the poorest peasant lad that feeds the sheep upon the hills for a companion than that man. The classic scholar, who has been repeating to us some admirable lines from Horace and delighting us with an admirable quotation from Virgil, did very well, indeed, for us while we could see our path and had hope of reaching our home by nightfall. But now the poorest lass with uncombed hair who can just point the way to the cottage where we may rest tonight will be of more value to us. What we need is to know the way!

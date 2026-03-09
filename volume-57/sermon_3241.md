@@ -1,12 +1,5 @@
 # Sermon 3241 | A Painful and Puzzling Question
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 16, 1911.
-
-DELIVERED BY C. H. SPURRGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "How is it that you have no faith?" Mark 4:40.
 
 This question may be very properly put to those who have no faith at all--and we intend to so put it in the second part of our discourse. But it was originally put to men who had some faith, men who had faith enough to make them disciples of Christ, faith which brought them to sail in the same vessel with Him. Even when they reproached Him and said, "Care you not that we perish?" they had faith enough to make them call Him, "Master." Yet, in comparison with the faith which they ought to have had, Christ calls their faith no faith at all! They were so wavering, so tossed about with unbelief, that though they were His hearty, honest and sincere followers, He yet speaks to them as if they were unbelievers and says to them, "How is it that you have no faith?"

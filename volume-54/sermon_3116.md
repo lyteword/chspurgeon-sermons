@@ -1,12 +1,5 @@
 # Sermon 3116 | Preparing to Depart
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 29, 1908.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, OCTOBER 8, 1865.
-
 "And it came to pass, as they still went on, and talked, that, behold, there appeared a chariot of fire, and horses of fire, and parted them both asunder; and Elijah went up by a whirlwind into Heaven." 2 Kings 2:11.
 
 IT seems to me that the departure of Elijah from the world, though of course he did not "die" at all, may furnish us with a very good type of the decease of those saints who, although taken away all of a sudden, are not without some previous intimation that in such a manner they will be removed. There may be some such here. They may know that they have about them a disease which, in all probability, will terminate fatally and suddenly. Others of us may have no idea at present that there is prepared for us a sudden death and sudden Glory. We would not shrink from such a death if it were the Lord's will that it should be ours. No, some of us would gladly reach out our hands and grasp so happy a mode of departure! It has always seemed to us to be the preferable way of leaving this world, not to be long sick and disabled, a weariness to those who nurse us and a torment to ourselves, but all of a sudden to shut our eyes on earth and open them on the splendors of Heaven! So to die would be, we think, a blessed mode of resting from our labors and entering into the Presence of our Lord.

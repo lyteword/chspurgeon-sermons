@@ -1,12 +1,5 @@
 # Sermon 3218 | Preaching Christ Crucified
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 6, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 23, 1863.
-
 "But we preach Christ crucified." 1 Corinthians 1:23.
 
 IN the verse preceding our text, Paul writes, "The Jews require a sign." They said, "Moses worked miracles; let us see miracles worked and then we will believe," forgetting that all the wonders that Moses worked were altogether eclipsed by those which Jesus worked while He was upon the earth in the flesh. Then there were certain Judaizing teachers who, in order to win the Jews, preached circumcision, exalted the Passover and endeavored to prove that Judaism might still exist side by side with Christianity--and that the old rites might still be practiced by the followers of Christ. So Paul, who was made all things to all men that he might by all means save some, put his foot down and said, in effect, "Whatever others may do, we preach Christ crucified--we dare not, we cannot and we will not alter the great subject matter of our preaching, Jesus Christ, and Him crucified.

@@ -1,16 +1,5 @@
 # Sermon 3510 | The Fainting Soul Revived
 
-A Sermon
-
-
-Published on Thursday, May 4th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [18]the Metropolitan Tabernacle, Newington.
-
 "When my soul fainted within me, I remembered the Lord."--Jonah 2:7.
 
 WHEN man was first made, there was no fear of his forgetting God for it was his highest privilege and delight to have communion with his Maker. "The Lord God walked in the garden in the cool of the day," and Adam was privileged to hold fellowship with God, closer, perhaps, than even the angels had in heaven. But the spell of that sacred harmony was rudely broken by man's disobedience and his dreadful fall. Ever since our first parent tasted of the forbidden fruit, which brought death into our world, and all its train of woes, his mortal race has been naturally prone to forget God. The evil propensities of flesh and blood have made it impossible to persuade man to remember his Creator. The complaint of God against the Jews is true as an indictment against the whole human family. "Hear, O heaven, and give ear. O earth: I have nourished and brought up children, and they have rebelled against me; the ox knoweth its owner, and the ass its master's crib, but Israel doth not know, my people doth not consider." Man is foolish; he flies from the highest good. Man is wicked; he turns his back upon supreme holiness. Man is worldly: he forgets the kingdom of God and the world to come. Man is wilful; he follows his own vain imaginations, and, with head-strong rebellion, opposes himself to his God, that he may pursue his own wayward course, and gratify his wanton passions.

@@ -1,12 +1,5 @@
 # Sermon 2977 | Plowing Rock
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 12, 1876.
-
 "Shall horses run upon the rocks? Will oneplow there with oxen?" Amos 6:12.
 
 THESE two questions are evidently Oriental proverbial expressions. Proverbs have always been used by the wisest of men. Solomon not only spoke and wrote a great many, but he also made a considerable collection of those uttered by others. We find in the writings of such notable thinkers as Socrates, Pliny and Aristotle, an abundance of short, pithy sentences, many of which can be used as proverbs. Proverbs have great force in them, because they are condensed wisdom. They are generally most convincing--it is hardly ever possible to answer or controvert them. They carry truth home as an arrow has often been known to carry death to the person aimed at, for they strike, they stick, they penetrate, they wound. Our Lord Jesus very frequently made use of proverbs, nor was He singular in doing so. The Prophets of old constantly employed them and here, in our text, we see Amos--who, from his occupation as a herdsman and gatherer of sycamore fruit, was probably more familiar with their use than some others of the Prophets were--puts together two proverbs which were commonly used to signify that men do not, as a rule, continue to labor in vain and spend their strength for nothing. Wise men do not send their horses to run upon the rocks and they do not send their oxen to plow where all their toil would be wasted--"Shall horses run upon the rocks?" "Will one plow rocks with oxen?" The answer implied is, "Certainly not," and it means that if a thing cannot be done, or is not worth doing if it can, it will be well for us not to attempt to do it. Our text may have two bearings--first, upon men and, secondly, upon God.

@@ -1,12 +1,5 @@
 # Sermon 3560 | The Strait Gate
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 19, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Strive to enter in at the strait gate; for many, I say unto you, will seek to enter in, and shall not be able." Luke 13:24.
 
 THE precepts of our Lord Jesus Christ are dictated by the soundest wisdom. He has given us Divine Prescriptions for the health of our souls and His Commandments, though clothed with Sovereign Authority, are spoken in such infinite kindness that we may regard them as the advice of a true and faithful Friend. This is not a legal, but a Gospel exhortation, "Strive to enter in at the strait gate." He, Himself, is the only gate, or the door, by which we can find admission, and the way to enter in through Jesus Christ is not by working, but by believing! Then, as to the strife we are urged to carry on, it is an earnest endeavor to steer clear of all the rocks, shoals and quicksands of popular fallacies and deceitful traditions, and to sail in the deep waters with His Covenant for our chart, and His Word for our compass, in simple obedience to His statutes, trusting to Him as our Pilot, whose voice we always hear, though His face we cannot see. The storm signal may well awaken your fears, but the cry of peril had need excite your caution. The mere mention sounds like a menace. "Many shall seek to enter in, and shall not be able." Listen to that warning, lest you be among the, "many" that founder--perhaps you shall be among the few that escape. Listen to what Jesus tells you shall come to pass with the multitude, that it may never come to pass with you as individuals. Mark now--

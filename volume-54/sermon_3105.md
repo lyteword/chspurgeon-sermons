@@ -1,12 +1,5 @@
 # Sermon 3105 | The Search after Happiness
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "There aire many who say, Who will show us any good? LORD, lift up the light of Your Countenance upon us." Psalm 4:6.
 
 THIS is a text which, by the rich assistance of the Holy Spirit, may serve as a touchstone to try our state. See, here are two classes of men--the many panting after the good of this world--and the few turning the eyes of faith to their God and begging that He would lift up the light of His Countenance upon them.

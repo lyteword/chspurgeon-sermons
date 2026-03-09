@@ -1,12 +1,5 @@
 # Sermon 2995 | Very Singular
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 5, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He...put his household in order, and hanged himself." 2 Samuel 17:23.
 
 AHITHOPHEL was a man of keen perception and those who consulted him followed his advice with as much confidence as if he had been an oracle from Heaven. He was a great master of diplomacy, versed in the arts of cunning-- far-seeing, cautious, deep. He was for years the friend and counselor of David. But thinking it judicious to be on the popular side, he left his old master that he might, like many other courtiers, worship the rising sun and hold an eminent position under Absalom. This, to use diplomatic language, was not only a crime, but a mistake. Absalom was not the man to follow the warnings of wisdom and Ahithophel found himself supplanted by another counselor. And whereas he was so incensed that he left Absalom, hurried home, arranged his personal affairs and hanged himself in sheer vexation.

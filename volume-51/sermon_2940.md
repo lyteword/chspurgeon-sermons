@@ -1,12 +1,5 @@
 # Sermon 2940 | "He Must Reign"
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 15, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 18, 1875.
-
 "For He must reign till He has put all enemies under His feet" 1 Corinthians 15:25.
 
 "HE must reign." Here was another, "must," which His disciples were very slow to learn. Very much of our Lord's teaching to His Apostles was concerning the necessity that He must suffer. That doctrine seemed so strange to them that at first they could scarcely catch the idea. When they perceived that Christ really meant it, they could not bear the thought of it. One of them even began to rebuke his Lord, but He sharply stopped him. The notion that Christ must suffer could not be drilled into the Apostles--their very spirits seemed to revolt against it. And do you wonder? If you had lived with that dear and blessed Lord and had seen the perfection of His Character, the liberality of His gifts and the tenderness of His heart and if you had known, as they did, in a measure--the Glory of His Nature and the marvel of His person--could you have endured the thought that He must be despitefully used, spit upon and nailed like a felon to a cross? No, even Christ Himself might have found it difficult to get that thought into your mind. It was such a cruel, "must"--that He must die! Why, even after He had died and all the prophecies concerning His death had been fulfilled, it was still a bewilderment to His disciples! The two who walked to Emmaus with Christ were in a maze concerning it and He had to say to them, "O fools, and slow of heart to believe all that the Prophets have spoken: ought not Christ to have suffered those things and to enter into His glory?"

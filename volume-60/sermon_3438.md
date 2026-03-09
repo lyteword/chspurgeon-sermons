@@ -1,12 +1,5 @@
 # Sermon 3438 | The Compassion of Jesus
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He was moved with compassion." Matthew 9:36.
 
 THIS is said of Christ Jesus several times in the New Testament. The original word is a very remarkable one. It is not found in classic Greek. It is not found in the Septuagint. The fact is, it was a word coined by the Evangelists, themselves. They did not find one in the whole Greek language that suited their purpose and, therefore, they had to make one. It is expressive of the deepest emotion--a striving of the heart--a yearning of the innermost nature with pity. As the dictionaries tell us--Ex intimis visceribus misericordia commoveor. I suppose that when our Savior looked upon certain sights, those who watched Him closely perceived that His internal agitation was very great, His emotions were very deep and then His face betrayed it--His eyes gushed like fountains with tears and you saw that His big heart was ready to burst with pity for the sorrow upon which His eyes were gazing. He was moved with compassion. His whole Nature was agitated with commiseration for the sufferers before Him.

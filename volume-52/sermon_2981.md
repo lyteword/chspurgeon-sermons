@@ -1,12 +1,5 @@
 # Sermon 2981 | The Safeguards of Forgiveness
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 29, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 23, 1875.
-
 "And David said unto Nathan, Ihave sinned against the LORD. And Nathan said unto David, The Lord also has put away your sin; you shall not die. However..." 2 Samuel 12:13,14.
 
 "HOWEVER." There was a qualification to the pardon granted to David. There is no need for me to enter into any of the details of his enormous sin. To make any excuse for it would to be become a partner in it. It was without excuse and if David, himself, were here with us, there is no one present who would so bitterly condemn him as he would condemn himself. He would be provoked to the utmost indignation by any attempt to offer an apology for the great transgression into which he fell, surrounded, as it were, by so many circumstances which tended to make it even worse than it otherwise might have been.

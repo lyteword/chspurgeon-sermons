@@ -1,12 +1,5 @@
 # Sermon 3539 | Fine Pleading
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 24, 1871.
-
 "Remember me, O Lord, with the favor that You have toward Your people; O visit me with Your salvation." Psalm 106:4.
 
 How gracious a thing it is on God's part to make prayers for us! He puts them into our mouths. No one need say, "I cannot pray because I am unable to compose a sentence." Here is a prayer already composed which would be suitable for the lips of anyone here present--high or low, rich or poor, saint or sinner! And it is a yet greater mercy that the God who thus gives us the form of prayer waits to give us the spirit of prayer, "for the Holy Spirit helps our infirmities." Whereas we know not what we should pray for, as we ought, He "makes intercession for the saints according to the will of God." When He gives you the prayer, and gives you the power to pray it, what a sweet blessing! But that is not all, for when the prayer is thus presented on earth aright, there waits One above, quick of ear and ready of plea, who takes the supplication, presents it before His Father's Throne, perfected by His wisdom and perfumed by His merit--and then the Father smiles and the prayer is answered with abundant blessings!

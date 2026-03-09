@@ -1,12 +1,5 @@
 # Sermon 3313 | A Practical Discourse
 
-
-A SERMON PUBLISHED ON THURSDAY AUGUST 1, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 9, 1883.
-
 "A month they were in Lebanon, and two months at home." 1 Kings 5:14.
 
 IT was right that when a Te a levy was made and a certain number of men were chosen to work in Lebanon. It was, however, most fitting that work for a gracious God should be joyful work--not the bondage of slaves, but the delight of sons. Solomon did not demand that any Israelite should toil in the mountains and queries for years together and leave his own fields to lie waste, but he decreed that the workers should have one month in Lebanon at work on the Temple and two months at home for their own affairs. Our God is not a taskmaster--and sacred service should not sour into forced labor! Self-sacrifice is the soul of true religion, but we must not demand of others that which would turn religion into slavery. Solomon knew that the common people would grow weary of working even for Jehovah, Himself, if they were taken away from their own families and inheritance altogether and, therefore, in his wisdom he put it so--"One month in Lebanon, and two months at home."

@@ -1,12 +1,5 @@
 # Sermon 3293 | "The Blood of the Testament"
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 14, 1912.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For when Moses had spoken every precept to all the people according to the Law, he took the blood of calves and of goats, with water, and scarlet wool, and hyssop, and sprinkled both the book, and all his people, saying, This is the blood of the testament which God has enjoined unto you." Hebrews 9:19,20.
 
 [Another Sermon by Mr. Spurgeon, upon verse 20 is #1567, Volume 26--THE BLOOD OF THE COVENANT.]

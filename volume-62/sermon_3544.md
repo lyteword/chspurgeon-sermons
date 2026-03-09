@@ -1,12 +1,5 @@
 # Sermon 3544 | The Only Road
 
-
-PUBLISHED ON THURSDAY, DECEMBER 28, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE LORD'S-DAY EVENING, MARCH 31, 1872.
-
 "Jesus said to Him, I am the way, the truth, and the life; no man comes to the Father but by Me." John 14:6.
 
 JESUS had been speaking about the Father, about His going to the Father, about the Father's house and about going there. And He was asked by Thomas this question, "We know not where You are going, and how can we know the way?" We are to understand this verse as being an answer to that question. He tells him where He was going, namely, to the Father, and also the way to the Father, namely, by Himself.

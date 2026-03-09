@@ -1,12 +1,5 @@
 # Sermon 2954 | The Big Gates Wide Open
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 6, 1875.
-
 "All that the Father gives Me shall come to Me; and him that comes to Me I will in no wise cast out." John 6:37.
 
 A COUNTRY gentleman is expecting a number of persons to come and dine with him. He has as little side swing-gate at the entrance to the park through which people generally come, but, on the day when he expects company, he says to one of his men, "John, be sure that you set the big gates wide open, for we are expecting several people to come in." And that is the order which I have received from my Master--He is expecting company! The evangelistic services in the South of London will, I trust, bring large numbers of people to feast with my Lord at His banqueting table and I believe it is His will that I should set the big gates wide open so that some sinners who might be passing by, would take that act as an invitation to them to come in! I feel sure that they will come in, for God is going to bring them in! He is about to stretch forth His almighty arm and to compel them to come in, that His House may be filled! So my objective in this discourse is to proclaim the fullness and freeness of the Grace of God--in the hope that some may be led to come to Christ and so to obtain eternal life!

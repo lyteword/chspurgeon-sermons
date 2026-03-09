@@ -1,12 +1,5 @@
 # Sermon 3476 | Holy Song From Happy Saints
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 16, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 5, 1871.
-
 "Now will I sing to my Well-Beloved a song of my Beloved." Isaiah 5:1.
 
 IT was a Prophet who wrote this, a Prophet inspired of God. An ordinary Believer might suffice to sing, but he counts it no stoop for a Prophet, and no waste of his important time, to occupy himself with song. There is no engagement under Heaven that is more exalting than praising God--and however great may be the work which is committed to the charge of any of us, we shall always do well if we pause awhile to spend a time in sacred praise. I would not wish to prefer one spiritual exercise before another, else I think I would endorse the saying of an old Divine who said that a line of praise was better than even a leaf of prayer--that praise was the highest, noblest, best, most satisfying and most healthful occupation in which a Christian could be found! If these may be regarded as the words of the Church, the Church of old did well to turn all her thoughts in the direction of praising her God. Though the winning of souls is a great thing, though the edifying of Believers is an important matter, though the reclamation of backsliders calls for earnest attention, yet never, never, never may we cease from praising and magnifying the name of the Well-Beloved! This is to be our occupation in Heaven--let us begin the music here and make a Heaven of the Church! The words of the text are, "Now will I sing," and that seems to give us a starting word.

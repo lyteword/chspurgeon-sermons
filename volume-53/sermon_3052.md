@@ -1,12 +1,5 @@
 # Sermon 3052 | Christ's Loneliness and Ours
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 8, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus answered them, Do you now believe? Behold, the hour comes, yes, is now come, that you shall be scattered, every man to his own, and shall leave Me alone: and yet I am not alone, because the Father is with Me." John 16:31,32.
 
 [Another sermon by Mr. Spurgeon upon the same text is #2271, Volume 38--ALONE , YET NOT ALONE.]

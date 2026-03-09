@@ -1,12 +1,5 @@
 # Sermon 3192 | The Soul's Food and Drink
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 7, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 5, 1873.
-
 "For My flesh is food, indeed, and My blood is drink, indeed." John 6:55.
 
 IT was our Lord Jesus Christ who uttered these words and some of those who heard Him misunderstood His meaning, for they asked, "How can this Man give us His flesh to eat?" This is not altogether surprising, for there are still millions of persons upon the earth who will persist in understanding literally what our Lord intended to be understood spiritually. To us who know the meaning of Christ's words, it seems monstrous that anyone could have supposed that Jesus meant men to eat His real, literal flesh and to drink His actual blood! I must confess that, to me, it seems an instance both of the utter depravity of human nature and of the absolute insanity to which sin has driven mankind--that there are still so many persons existing in what we call this enlightened age who actually believe that we can eat the flesh of Christ and drink His blood! This is a cannibal notion which only needs to be mentioned to be denounced. Instead of having anything sacred about it, such teaching is utterly detestable--it is inconceivably idiotic and blasphemous! Idiocy and blasphemy seem to be blended together in it in about equal proportions. It is strange that such blessed words from such blessed lips should have been so shamefully misunderstood and misrepresented.

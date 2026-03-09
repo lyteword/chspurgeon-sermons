@@ -1,12 +1,5 @@
 # Sermon 3243 | The Vine of Israel
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 30, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. On behalf of the British Society for the Propagation of the Gospel among the Jews, ON THURSDAY EVENING, MAY 9, 1878.
-
 "Return, we beseech You, O God ofHosts: look down from Heaven, and behold, and visit this vine." Psalm 80:14.
 
 I FEEL somewhat straitened on this occasion because of the specialty of my subject. I have been persuaded by the Society to preach on behalf of the Jews, but my mind does not quite run in the direction which is prescribed for it. I have been so in the habit of preaching the Gospel to everybody, knowing neither Jew nor Gentile, barbarian, Scythian, bond, nor free, that the very recognition of anything like nationality and specialty is somewhat difficult for me. I do not think that the recognition of the distinction is wrong--no, I think it right--but it is so unusual that I scarcely feel at home. I would sooner, by a thousand times, take a text and preach the Gospel to sinners or to saints than discourse upon a special race. Yet is it necessary and, therefore, let it be done. And I trust the Holy Spirit may make our meditation profitable. Assuredly, if there is any distinction which might be maintained, and I think there is none, for that distinction of Jew and Gentile seems to me to be wiped out and obliterated--if there is any distinction, we may, at least, remember that which lingeringly subsists between the seed of Israel and the nations, for God's election of old fell upon them--and when the old world lay in darkness, gleams of light gladdened their eyes! To them belonged the oracles. They were long the sole preservers of the precious Truth of God which they have handed down to us. And if through their unbelief we have taken their place, we cannot but recollect who occupied it for so many centuries--and we cannot but look with extraordinary tenderness and affection and earnest desire to that elder family whom the Lord loved so long and towards whom, I think, His love still burns, as shall be seen when the day comes in which He shall gather Israel again unto Himself!

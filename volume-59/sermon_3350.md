@@ -1,12 +1,5 @@
 # Sermon 3350 | "Stewards"
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 17, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-TO THE ANNUAL CONFERENCE OF THE PASTORS' COLLEGE ASSOCIATION, 1887.
-
 "Let a maun so consider us, as of the ministers of Christ, and stewards of the mysteries of God. Moreover, it is required in stewards that a man be found faithful." 1 Corinthians 4:1,2.
 
 MY beloved Brothers--I might even say with Paul, "My dearly beloved and longed for"--it gives me intense delight to look into your faces once again, and yet I feel weighted with a solemn responsibility in having to direct your thoughts at this time so as to give the keynote to our solemn conference. I ask your continued prayers that I may speak aright, saying the right thing in the right way.

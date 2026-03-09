@@ -1,12 +1,5 @@
 # Sermon 3393 | Wheat in the Barn
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 12, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But gather the wheat into My bairn." Matthew 13:30.
 
 "GATHER the wheat into My barn." Then the purpose of the Son of Man will be accomplished. He sowed good seed and He shall have His barn filled with it at the last. Be not dispirited, Christ will not be disappointed. "He shall see of the travail of His soul and shall be satisfied." He went forth weeping, bearing precious seed, but He shall come again rejoicing, bringing His sheaves with Him.

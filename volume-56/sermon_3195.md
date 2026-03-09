@@ -1,12 +1,5 @@
 # Sermon 3195 | Christ Loosens From Infirmities
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 28, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And, behold, there was a woman which hada spirit ofinfirmity eighteen years, and was bent over, and could in no wise lift herselfup. And when Jesus saw her, He called her to Him and said unto her, Woman, you are loosened from your infirmity And He laid His hands on her: and immediately she was made straight, and glorified God." Luke 13:11-13.
 
 [See Sermons #1426, Volume 24--THE LIFTING UP OF THE BOWED DOWN and #2891, Volume 50--A SABBATH MIRACLE-- for sermons on the same miracle.]

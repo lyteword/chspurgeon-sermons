@@ -1,12 +1,5 @@
 # Sermon 3071 | Idolatry Condemned
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 19, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1874.
-
 "Little children, keep yourselves from idols. Amen." 1 John 5:21.
 
 THIS is the conclusion of one of the most mysterious, most simple and yet most sublime of all the Divinely-inspired Books. And we may naturally expect that the closing verse of the Epistle will have great weight in it. This seems to be the practical conclusion of the whole matter upon which John had been writing, "Little children, keep yourselves from idols." This Epistle is specially perfumed with love. As you read it, you cannot help realizing that it was written by a very tender, gentle hand and yet, when this loving writer is giving has last words in this Epistle, the admonition with which he closes is this, "Little children, keep yourselves from idols." As love thus speaks in its fullness, let us be ready to give earnest attention to the message which it utters. John has, in this Epistle, written much concerning the love of Jesus, as well he might, for he knew more about that love than any other man knew. And yet, when he had written concerning love to Jesus, he was moved to an intense jealousy lest, by any means, the hearts of those to whom he wrote should be turned aside from that dear Lover of their souls who deserved their entire affection and, therefore, not only love to them, but also love to Jesus, made him wind up his letter with these significant words, "Little children, keep yourselves from idols."

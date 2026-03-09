@@ -1,12 +1,5 @@
 # Sermon 3203 | Christ Made Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 23, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For He hats made Him who knew no sin to be sin for us, that we might be made the righteousness of God in Him." 2 Corinthians 5:21.
 
 I DARESAY I have preached from this text several times in your hearing. If my life is spared, I hope to

@@ -1,12 +1,5 @@
 # Sermon 3477 | Araunah's Threshing Floor
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 23, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "This is the house of the Lord God, and this is the altar of the burnt offering for Israel." 1 Chronicles 22:1.
 
 IT Will be fresh in your recollection that David had committed a great sin against the Lord. In truth, all the people of Israel had, for some years, gone astray from God--and when He determined to punish them, He made the sin of their ruler an occasion for visiting their iniquities upon their head. David had determined to number the people. He carried out his purpose in the teeth of precept, precedent and protest. It would seem that thereby he trespassed on the prerogative of the priests and violated the Levitical Law. Thereupon Gad, the Prophet, came to him with the choice of three punishments. He selected, as the lesser evil, and preferable to famine or the sword of the foe, the pestilence, saying, "It is better to fall into the hands of God than into the hands of man." Jerusalem was, therefore, for three days, ravaged by a terrible plague. The strong men fell down in the streets and the women died at the mill. The little children perished from the breast and the aged were smitten down with a stroke. For three days the fatal disease had proceeded with its ravages, when suddenly the angel of the Lord, who had caused this slaughter, appeared before David. David beheld the messenger of judgment standing in bodily form on the threshing floor of a man galled Araunah. David was summoned by God to attend upon this angel--and when he approached, he saw him with the sword drawn in his hand--as though he were about to smite even till the going down of the sun! David, moved by the Spirit of God, slays a bullock, piles up an altar, kindles a fire and, as the smoke of the bullock ascends to Heaven, the angel who was visible before their eyes, to the joy of every one of them, thrust back the sword into its scabbard, saying, "It is enough."

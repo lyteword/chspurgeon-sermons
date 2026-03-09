@@ -1,12 +1,5 @@
 # Sermon 3206 | "The Church of the First-born"
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 14, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 30, 1862.
-
 "The general assembly and Church of the First-Born, which are written in Heaven." Hebrews 12:23.
 
 PAUL had just been giving a brief description of the great gathering of the children of Israel around Mount Sinai, "the mount that might be touched, and that burned with fire," like a huge volcano. He had vividly portrayed "the blackness, and darkness, and tempest, and the sound of trumpet, and the voice of words," and the frightened multitudes standing, trembling, at a distance, and even Moses, their great leader, so alarmed that he cried out, "I exceedingly fear and quake." Paul intends that description to teach us the effect that the legal dispensation can produce--it can alarm and condemn--but it cannot save! You who are under the Law of God, you who are trying to win God's favor by your good works. You who fancy that human merit can bring you salvation, look to the flames which Moses saw and sink, and tremble and despair! You who think that you can live as the Law requires and so attain to everlasting life, may well stand shivering and trembling before this Almighty, though invisible God whose lightning blazes before your eyes and whose voice of thunder must alarm the most stout heart! Terrible is the plight of the man who has to depend upon what Sinai can give him--he is wretched in life, he shall be troubled in death, he shall be lost forever in eternity! "By the works of the Law shall no flesh be justified." "As many as are of the works of the Law are under the curse." "By Grace are you saved through faith; and that not of yourselves: it is the gift of God: not of works, lest any man should boast."

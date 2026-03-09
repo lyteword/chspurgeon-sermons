@@ -1,12 +1,5 @@
 # Sermon 3322 | Hiding Among the Stuff
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 3, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 19, 1866.
-
 "Therefore they enquired of the LORRD further, if the man should yet come there. And the LORRD answered, Behold, he has hid himself among the stuff. And they ran and fetched him from there." 1 Samuel 10:22-23.
 
 SAUL seems to have known that he was the elect person, having already been secretly anointed by Samuel and, therefore, while the voting was going on and while the lots were being cast, he hid himself. The Lord answered, "Behold, he has hid himself among the stuff. And they ran and fetched him from there."

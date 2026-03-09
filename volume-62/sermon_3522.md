@@ -1,12 +1,5 @@
 # Sermon 3522 | Christ a Sanctuary
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 27, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And He will be as a sanctuary." Isaiah 8:14.
 
 MANY of the Rabbis, and I think with good reason, refer this to the Messiah. We refer it to Jesus Christ, the Man of Nazareth, the Son of God, who is the Messiah of God to our souls. We are, no doubt, justified in referring it to our Lord Jesus Christ, because Peter, speaking by the Holy Spirit, uses the next part of the verse in reference to Him. He declares that it was written that Jesus should be a stone of stumbling, and a rock of offense. If, then, the latter part of the verse is by Divine Authority interpreted as belonging to Christ, we may be pretty sure that the former part of the verse requires the same construction!

@@ -1,12 +1,5 @@
 # Sermon 3229 | The Royal Savior
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 22, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 1, 1872.
-
 "Him has God exalted with His right hand to be a Prince and a Savior, to give repentance to Israel, and forgiveness of sins." Acts 5:31.
 
 [Another Sermon by Mr. Spurgeon upon the same verse is #1301, Volume 22--A PRINCE AND A SAVIOR.]

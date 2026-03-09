@@ -1,18 +1,5 @@
 # Sermon 3503 | Joy in Salvation
 
-A Sermon
-
-
-Published on Thursday, March 16th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [11]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, July 30th, 1871.
-
 "I will rejoice in thy salvation."--Psalm 9:4.
 
 I DESIRE to continue the topic of the morning, only we will look at another side of the same important matter.

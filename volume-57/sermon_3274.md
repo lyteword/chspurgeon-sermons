@@ -1,12 +1,5 @@
 # Sermon 3274 | Sickness and Prayer, Healing and Praise
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 20, 1865.
-
 "Fools because of their transgression, and because of their iniquities are afflicted. Their soul abhors all manner of meat, and they draw near unto the gates of death. Then they cry unto the Lord in their trouble and He saves them out of their distresses. He sent His Word, and healed them, and delivered them from their destructions. Oh that men would praise the Lord for His goodness, and for His wonderful works to the children of men! And let them sacrifice the sacrifices of thanksgiving, and declare His works with rejoicing" Psalm 107:17-22.
 
 WHEN a person is very ill, one of the greatest kindnesses that you can show to him is to tell him how you felt under a similar affliction, to what physician you resorted, what remedies he prescribed, through what processes you passed, what were the symptoms connected with your recovery and how long you have been able to rejoice over the cure which has been worked in you. This kind of practical, experimental talk will be far more valuable to him than any doctor's opinions that you may read to him out of a book of medicine. Tell the sufferer what your experience has been and you will generally find that he will attach more importance to that than to any theory which you may propound to him, however well you may support that theory by argument!

@@ -1,12 +1,5 @@
 # Sermon 3239 | Woe and Weal
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 2, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I will bear the indignation of the LORD, because I have sinned against Him, until He pleads my cause, and executes judgment for me, He will bring me forth to the light and I shall behold His righteousness." Micah 7:9.
 
 Those who expect to find the road to Heaven smooth and unobstructed will discover little in the experience of the ancient saints to support the expectation. The Lord's people have, in all ages, been tried people. Cowper well says--

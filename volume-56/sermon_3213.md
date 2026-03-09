@@ -1,12 +1,5 @@
 # Sermon 3213 | Blessings Traced to Their Source
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 1, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "All my springs are in You." Psalm 87:7.
 
 It does one good to think that there are such things in the world as springs bubbling up in the shady nooks. Places of sweet refreshment in this dusty earth. The mouth waters at the very thought of the palms of Elim and the wells there. If even to us fresh springs are a blessing, much more must they have been so to the Psalmist who lived in a dry and thirsty land which owed almost all its fertility to irrigation. Nothing is more precious to the Oriental than a well. And he who finds a spring of water counts himself a much happier man than he who has found a vein of precious metal. We must, therefore, transfer the thought of precious water springing up copiously, bubbling up with living force, to our spiritual condition--and then say with David, "All my springs are in You." That is to say, we trace all the mercies we receive to their fountainhead! The Psalmist was grateful for the blessings that were conferred upon him. He did not receive them with selfish inattention but, considering them well, he found that every good gift and every perfect gift came from his God. He had learned that not only everything good around him, but everything that was within him that was good came from the same source! And discovering within himself a living power, a living well of water within his own nature, he traced that, also, to the Grace of God--and said, "All my springs are in You."

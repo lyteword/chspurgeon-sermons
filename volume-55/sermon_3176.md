@@ -1,12 +1,5 @@
 # Sermon 3176 | The Beauty Of The Olive Tree
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 16, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 17, 1879.
-
 "His beauty shall be as the olive tree." Hosea 14:6.
 
 [This Sermon was one of several preached by Mr. Spurgeon after various visits to the Riviera. He had intended to prepare a volume upon the olive, but illness and the pressure of other work prevented. He had revised nearly half of the manuscript of this discourse and the revision of the remainder has followed as closely as possible the lines laid down by him.]

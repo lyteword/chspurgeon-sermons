@@ -1,12 +1,5 @@
 # Sermon 3058 | The Joy of Harvest
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 19, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1865.
-
 "They joy before You according to the joy in harvest." Isaiah 9:3.
 
 HARVEST crowns the year with God's goodness. When the harvest is abundant, there is universal joy. Everybody rejoices. The owner of the land is glad because he sees the recompense of reward. The laborers are glad for they see the fruit of their toil. Even those to whom not a single ear may belong, nevertheless sympathize in the common joy because a rich harvest is a gift to all the nation. It is a joyous sight to see the last loaded wagon come creaking down the village road, to note the youngsters who shout so loudly yet know so little what they are shouting about, to mark the peasant on the top of the wagon as he waves his hat and gives vent to some gleeful exclamation--and to see them taking it all to the stack or barn. There is joy throughout the village! There is joy throughout the land when the harvest time comes! They that divide the spoil shout loudly, their joyous clamor reaches the heavens!

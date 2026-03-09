@@ -1,12 +1,5 @@
 # Sermon 2992 | God's Writing Upon Man's Heart
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 14, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
-
 "I will put My law in their minds, and write it on their hearts." Jeremiah 31:33.
 
 THIS is not the language of the Old Covenant, but of the New Covenant. The prospects of life held out in the Law have all dissolved into a ministration of death as the penalty of disobedience. Its voice might have once captivated hearts that knew not their own weakness. How did it speak? "Do this, and live; keep My commandments, and you shall receive in return for your obedience singular blessings upon earth and rest in Heaven." But that Old Covenant, since the Fall, no man has kept, or can keep. Surely if any persons could have kept it, those to whom it was originally given were the most likely to do so. They were a separated people. They were removed into the wilderness, far from evil associations. They were miraculously fed out of the granaries of Heaven. They received their drink in an equally marvelous manner out of the smitten Rock. They had God, Himself, in the midst of them. They had His pillar of cloud to cover them by day and His pillar of fire to lead them by night. In all their difficulties they could appeal to Moses. If there had been an inadvertence or mistake, they could turn to Aaron and he, by the offering of the appointed sacrifice, could set them right again. They were placed where they had not the trials and the temptations of the rest of mankind. They were so cut off and separated that I may well compare them to--

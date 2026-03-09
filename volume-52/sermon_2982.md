@@ -1,12 +1,5 @@
 # Sermon 2982 | The Memorable Hymn
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 5, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when they had sung a hymn, they went out to the Mount of Olives." Matthew 26:30.
 
 The occasion on which these words were spoken was the last meal of which Jesus partook in company with His disciples before He went from them to His shameful trial and His ignominious death. It was His farewell supper before a bitter parting--and yet they must sing. He was on the brink of that great depth of misery into which He was about to plunge--and yet He would have them sing "a hymn." It is amazing that HE sang and, in a second degree, it is remarkable that THEY sang. We will consider both these singular facts.

@@ -1,12 +1,5 @@
 # Sermon 3347 | Things to Be Remembered
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 27, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "A Psalm of David to bring to remembrance." Psalm 38:(Title).
 
 THESE words form the title to the Psalm before us, which we read just now in your hearing. Let us note, for a short time, the subjects which David thought it necessary to bring to remembrance. We must all have noticed that our memories much more readily retain evil than good. The snatch of a profane song heard in childhood will remain with us to our graves--while many a holy thought leaves scarcely an impression upon the tablets of memory. We heard it--it is gone-- it would be difficult to recall it. The draft that flows down the rivers of Sodom, one retentively collects, but the goodly cedars of Lebanon that are floated down the stream pass by unheeded. We may well say, "Forget not all His benefits," for, alas, while the multitude of God's benefits is forgotten, if there is anything to murmur at, it is pretty sure to be treasured up as though it were a priceless relic to be carefully preserved! May the Lord mend our memories. As He makes us new men and women in Christ Jesus, may the Holy Spirit give to our memories the power to grip the right and the true--and with a loose hand to let slip that which is evil and contrary to His rule. The Psalm is "to bring to remembrance." This seems to teach us that good things need to be kept alive in our memories, that we should often sit down, look back, retrace and turn over in our meditation things that are past, lest, at any time we should let any good thing sink into oblivion. I have read the Psalm to you and I think you will all agree with me that among the things which David brought to his own remembrance, the first and foremost were--

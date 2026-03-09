@@ -1,12 +1,5 @@
 # Sermon 3417 | Our Youth Renewed
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 30, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING FEBRUARY 24, 1870.
-
 "Who satisfies your mouth with good things, so that your youth is renewed like the eagle's." Psalm 103:5.
 
 IN this delightful Psalm, one remarks how David finds something of praise within him in everything of which he thinks. There are some desponding, morbid, murmuring, ungrateful souls who find reasons for complaining everywhere, but a man of David's spirit, on the contrary, sucks honey out of every flower and praises God in connection with everything! I noticed, while I was reading just now, how many of these things would have made others mourn, but they only called forth from David's soul, songs of praise! For instance, "Who forgives all your iniquities"--some would be forever complaining that they had sins and that those sins were a burden, but David sings of sin as pardoned! Some would be mourning before God that they were not well in health, complaining of their sicknesses, but David sang of Him, "Who heals all your diseases." Morbid minds will be fretting about death and about what might come after death, but David says, "Who redeems your life from destruction." And now, in the view of his temporal and spiritual blessedness, he pens this verse with which to crown his song, "Who satisfies your mouth with good things, so that your youth is renewed like the eagle's."

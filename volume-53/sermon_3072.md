@@ -1,12 +1,5 @@
 # Sermon 3072 | An Observation of the Preacher
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 26, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 25, 1864.
-
 "Better is the end of a thing than the beginning thereof." Ecclesiastes 7:8.
 
 SOME translators read this passage, "Better is the end of a speech than the beginning thereof." And I doubt not that many of my hearers quite concur in that opinion. You endeavor to be patient when we begin, but as soon as we utter the word, "finally," your eyes begin to glisten, for the tedious exercise, you think, will soon be over! And if it is so to the hearers, I grant you it is sometimes so to the speaker! A speaker s ometimes finds it difficult to begin, more difficult to continue to edification, not difficult to come to a close, but often exceedingly pleasant to do so. Well, doubtless many a young preacher can remember when he first tried to speak--how much better he felt the end of the speech to be than the beginning! Like the young acrobat, walking upon a rope on high who tremblingly launches forth and timidly puts one foot after the other until he reaches the end of his dangerous task, he was relieved to sit down! Far better was the end of the speech than the beginning thereof.

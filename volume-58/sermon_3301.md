@@ -1,12 +1,5 @@
 # Sermon 3301 | A Prophetic Warning
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 9, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And because iniquity shall abound, the love of many shall grow cold." Matthew 24:12.
 
 Christ had spoken to His disciples of earthquakes in divers places, famines and pestilences--but these were only the beginning of sorrows. Such things as these need not trouble Christians, for though the earth is removed and the mountains are carried into the midst of the sea, yet may the Believer be confident and his heart may abide at rest. Even when the Master told His disciples that they would be hated of all men for His name's sake, that needed not afflict them. He had taught them before, "Fear not them which kill the body, but are not able to kill the soul: but rather fear Him which is able to destroy both soul and body in Hell." They were thus braced up to meet the fiery trial. Earthquake, pestilence, war and persecution fail to disturb the serenity of Believers in Christ! But the evil spoken of in our text--this is the wound, this is the sorrow! Here is something to tremble at! "Because iniquity shall abound"--that is worse than pestilence-- "the love of many shall grow cold"--that is worse than persecution! As all the water outside a vessel can do it no harm until it enters the vessel, itself, so outward persecutions cannot really injure the Church of God. But when the mischief oozes into the Church and the love of God's people grows cold--ah, then the boat is in sore distress! I fear that we are much in this condition at the present hour. May the Holy Spirit bless the alarming prophecy now before us to our awakening!

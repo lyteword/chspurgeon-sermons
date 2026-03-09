@@ -1,12 +1,5 @@
 # Sermon 2974 | A Wafer of Honey
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "My Grace is sufficient for you." 2 Corinthians 12:9.
 
 LET no Christian imagine that he will ever have immunity from trouble while he continues in the body. Should you be favored with visions and Revelations of the Lord, caught up to the third Heaven, admitted into Paradise and privileged to hear things which it were not lawful for a man to utter, conclude not that you have escaped the rod-- rather expect that such high privilege will need heavy affliction to balance it! If God has given you the great sail and the prosperous wind, He will also give you the heavy ballast to keep your keel deep in the stream. Do not expect, dear Brothers and Sisters, that because you have been strengthened in the faith, you will therefore be loosened from the burden of the flesh--neither because you may have been the means of strengthening others, that, therefore, trouble will be light for you. Even into your ship the deep waters may come. Think not that it is so water-tight that the billows will only dash against it. You may be called to feel heaviness--your faith may be all but staggered and your soul may have to cry out from the depths because of the slender strength you possess.

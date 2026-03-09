@@ -1,12 +1,5 @@
 # Sermon 3422 | A Call to the Depressed
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 3, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Shakeyourself from the dust, arise and sit down, O Jerusalem: loosen yourself from the bonds of your neck, O captive daughter of Zion." Isaiah 52:2.
 
 I SHALL not attempt at this time to decipher the history of the prophecy with which these words are associated. To the Hebrew nation they were big with counsel, bright with hope. Apart, however, from the connection in which it stands, this verse supplies a pointed practical address of sterling value not to be limited by any private interpretation. Such a charge was well fitted for Israel of old. Such counsel would be suitable to any Church in a low condition. Such advice is equally adapted to any Christian who has fallen into a low state, who is groveling in the dust or among the ashes of Sodom. He is told to rise from the ground and sit down upon a throne, for Christ has made him a king and a priest. He is admonished to unbind all the cords that are upon him, that he may be free and happy in the Lord. To those of you, then, who have sunk into this distressing plight, my text contains a vigorous appeal! Let me try to interpret it. First of all, I notice the obvious fact--

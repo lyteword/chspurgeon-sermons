@@ -1,12 +1,5 @@
 # Sermon 3002 | The Best Thing in the Best Place
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 23, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 31, 1875.
-
 "The Law of his God is in his heart; none of his steps shall slide." Psalm 37:31.
 
 THIS verse occurs in a Psalm in which the contrast between the righteous and the wicked is drawn in a very vivid fashion. The wicked are depicted as being very frequently rich and prosperous, yet no one who is truly wise would wish to change places with them. The Psalmist so plainly points out the brevity of their prosperity, the certainty of their ultimate fate if they continue unregenerate and the terror of their overthrow, that we are not tempted for a single minute to be envious of them. As for the righteous, David gives us abundant hints that they will be tried, persecuted, hated and so on, but he indulges us with such sweet promises from the mouth of the great Father, Himself, that we feel perfectly satisfied to share the lot of His children, however hard it may sometimes be. If we wish to share the lot of the righteous, we must be as they are and, among other things, this text must be realized in our experience as it is in theirs. The Law of our God must be in our heart that our steps may not slide.

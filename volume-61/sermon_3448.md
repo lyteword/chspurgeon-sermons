@@ -1,12 +1,5 @@
 # Sermon 3448 | God's Glory and His Goodness
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 4, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE.
-
 "And he said, I beseech You, show me Your Glory. And He said, I will make all My goodness pass before you, and I will proclaim the name of the Lord before you; and will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy. And He said, You cannot see My face: for there shall no man see Me, and live. And the Lord said, Behold, there is aplace by Me, and you shall stand upon a rock: and it shall come to pass, while My Glory passes by, that I will put you in a cliff of the rock, and will cover you with My hand when I pass by: and I will take away My hand, andyou shall see My back parts: but My face shall not be seen." Exodus 33:18-23.
 
 IT has frequently happened that good men in times of great trial have asked God either to give them a signal token of His love, or a special Revelation of Himself, that they might be strengthened and encouraged thereby. I suppose of many here present it is true that when called by the Master to great labor or deep affliction, you have been conscious of the same inward desire--your heart has craved after some extraordinary dispensation of Grace to counterbalance the extraordinary visitation of suffering that has overtaken you. Were you indulged with singular nearness to God and unusual glimpses of His Glory, you feel it would then be easy to leave all matters in His hands and acquit yourselves valiantly--strong for service, whatever there is to do--and patient in enduring whatever there may be to bear. That prayer, "I beseech You, show me Your Glory," is a natural yearning, a spontaneous impulse of the soul. Albeit, I know that there is a grievous incredulity, a sinful unbelief which asks to see signs and wonders--and without them men will not believe-- yet I think there is a desire which springs up in the breasts of Believers from an earnest childlike feeling of dependence upon the great Father God which is not sinful, and which God accepts--and to which He often sends a gracious reply.

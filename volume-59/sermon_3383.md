@@ -1,12 +1,5 @@
 # Sermon 3383 | The Plowman
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 4, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Does the plowman plow all day to sow?" Isaiah 28:24.
 
 UNLESS they are cultivated, fields yield us nothing but briars and thistles. In this we may see ourselves. Unless the great Husbandman shall till us by His Grace, we shall produce nothing that is good, but everything that is evil. If one of these days I shall hear that a country has been discovered where wheat grows without the work of the farmer, I may then, perhaps, hope to find one of our race who will bring forth holiness without the Grace of God. Up to this day, all land on which the foot of man has trodden has needed labor and care. And even so among men, the need of gracious tillage is universal! Jesus says to all of us, "You must be born-again." Unless God the Holy Spirit breaks up the heart with the plow of the Law and sows it with the Seed of the Gospel, not a single ear of holiness will any of us produce, even though we may be children of godly parents and may be regarded as excellent moral people by those with whom we live!

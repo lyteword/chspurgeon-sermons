@@ -1,12 +1,5 @@
 # Sermon 3277 | Good Cheer From Christ's Call and From Himself
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 23, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they came to Jericho: and as Jesus went out of Jericho with His disciples and a great number of people, blind Bartimaeus, the son of Timaeus, sat by the highway side begging. And when he heard that it was Jesus of Nazareth, he began to cry out, and say, Jesus, You Son of David, have mercy on me! And many charged him that he should hold his peace: but he cried the more a great deal, You Son of David, have mercy on me! And Jesus stoodstill, and commanded him to be called. And they called the blind man, saying unto him, Be of good comfort, rise, He calls you. And he, casting away his garment, rose, and came to Jesus. And Jesus answered and said unto him, What will you that I should do unto you? The blind man said unto Him, Lord, that I might receive my sight. And Jesus said unto him, Go your way; your faith has made you whole. And immediately he received his sight, and followed Jesus in the way." Mark 10:46-52.
 
 [Another Sermon by Mr. Spurgeon upon the same text is #266, Volume 5--THE BLIND BEGGAR.]

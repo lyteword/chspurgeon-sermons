@@ -1,12 +1,5 @@
 # Sermon 3198 | What Christians Were and Are
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 19, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 23, 1873.
-
 "And were by nature the children of wrath, even as others." Ephesians 2:3.
 
 "The Spirit itself bears witness with our spirit that we are the children of God, and if children, then heirs, heirs of God, and joint heirs with Christ." Romans 8:16,17.

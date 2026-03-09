@@ -1,12 +1,5 @@
 # Sermon 3415 | Right-hand Sins
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 16, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 27, 1868.
-
 "And if your hand offends you, cut it off." Mark 9:43.
 
 SALVATION is by faith in the Lord Jesus Christ. It is not of works, neither can it be procured by human merit. It is the free gift of God through the atoning Sacrifice of Christ to every soul that believes. But what is salvation? Salvation is, in short, deliverance from sin, deliverance from the guilt of it, from the punishment of it, from the power of it. If, then, any man is saved, he is delivered from the reigning power of sin. It is not possible, therefore, that any man should have salvation and yet continue in the indulgence of sin. Jesus Christ came to open a hospital for sin-sick souls, not that they might remain sick in a hospital but might go out of it healed. He came not to take men to Heaven with their sins about them, but to purge them from their sins and so make them fit to enter Heaven! Hence, Jesus Christ is the severest of all moralists and while He and His followers denounce all trust for salvation in merit, they equally declare that no man is a saved soul who tolerates any known sin. All the Gospel declares this. In all its parts it implies this and that man cannot and ought not to consider himself to be saved and cannot truly be said to be saved while he lives in the indulgence of evil propensities as he did before. We shall not at all, therefore, come into conflict with the Doctrines of Grace while we preach to you the strongest claims of Christ upon our hearts and lives through His Word. We shall have to urge upon you the most strenuous giving up of sin and that which leads to sin--but this, not as a means of salvation--but as a result of faith and as an evidence that salvation is truly possessed--as the sign and token, the proof and the earnest of the good work of the Holy Spirit within the soul. We shall begin, therefore, with this short assertion which will serve as our first point of thought--

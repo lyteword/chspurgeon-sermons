@@ -1,12 +1,5 @@
 # Sermon 3194 | A Look and Its Lessons
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 21, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 12, 1873.
-
 "Hearken to Me, you that follow after righteousness, you that seek the LORD: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
 
 [Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18--A BRIGHT LIGHT IN DEEP SHADES.]

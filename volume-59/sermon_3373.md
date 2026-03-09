@@ -1,12 +1,5 @@
 # Sermon 3373 | Man's Scorn and God's Succor
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 25, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, MAY 12, 1867.
-
 "My friends scorn me; but my eyes pour out tears unto God." Job 16:20.
 
 WE know that Job's sorrows were recorded, not for his honor, but for our profit. We are told to consider the patience of Job and truly we might often be sustained, cheered and comforted if we would but look upon that Patriarch in the depths of his grief. We are "born to sorrow" and if our cup is not embittered with it tonight, we must not expect to be long without a taste of the gall in our mouths.

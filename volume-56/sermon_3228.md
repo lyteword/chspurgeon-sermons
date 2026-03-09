@@ -1,12 +1,5 @@
 # Sermon 3228 | "Oh, How He Loves!"
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 15, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 7, 1872.
-
 "Then said the Jews, Behold how He loved him!" John 11:36.
 
 IT was at the grave of Lazarus that Jesus wept and His grief was so manifest to the onlookers that they said, "Behold how He loved him!" Most of us here, I trust, are not mere onlookers, but we have a share in the special love of Jesus. We see evidences of that love, not in His tears, but in the precious blood that He so freely shed for us--and so we ought to see further into His heart than they did--and to know more of Him than they could in the brief interval in which they had become acquainted with Him. When we think of His love to us, we may well cry, "Behold how He has loved us!"

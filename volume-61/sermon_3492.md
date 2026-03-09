@@ -1,12 +1,5 @@
 # Sermon 3492 | God's Word Not to Be Refused
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 30, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 27, 1870.
-
 "See that you refuse not Him who speaks. For if they escaped not who refused Him who spoke on earth, much more shall not we escape, if we turn away from Him who speaks from Heaven." Hebrews 12:25.
 
 WE are not a cowering multitude gathered in trembling fear around the smoking mount of Horeb--we have come where the great central figure is the mercy of God in Christ Jesus. We have gathered virtually in the outer circle of which the saints above and holy angels make the inner ring. And now, tonight, Jesus speaks to us in the Gospel. So far as His Gospel shall be preached by us, here, it shall not be the word of man, but the Word of God. And although it comes to you through a feeble tongue, yet the Truth of God, itself, is not feeble, nor is it any less Divine than if Christ, Himself, should speak it with His own lips! "See that you refuse not Him who speaks." The text contains--

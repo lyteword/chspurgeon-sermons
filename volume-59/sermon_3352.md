@@ -1,12 +1,5 @@
 # Sermon 3352 | A World Wide Welcome
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 1, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Come unto Me, all you that labor and are heavy laden, and I will give you rest." Matthew 11:28.
 
 PERHAPS no verse in the whole of Scripture has been handled in the pulpit more frequently than this, and yet it has not been exhausted and never can be! It is a great soul-saving text. There are some words of Scripture which seem to be like special stars in the sky. As the polestar is conspicuous to the astronomer, so are these salvation Truths of God to the Evangelist--he is never weary of gazing at them and pointing to them. The promises that are fitted to give present and immediate relief to the conscience are stars of the first magnitude and many sinners have had their attention attracted by them and by them been directed to the Port of Peace! Upon such a passage as I have propounded for our sermon tonight, [see exposition at end of sermon] I shall have nothing new to say. No novelty is required. We only need to hear the same old Truths--yes, to hear them till they work their way into our souls, and then to hear them yet again, that our pure minds may be stirred up by way of remembrance, and that we, feeling their value, may proclaim them out for the guidance and comfort of others! Observe first--

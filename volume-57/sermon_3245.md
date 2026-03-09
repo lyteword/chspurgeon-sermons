@@ -1,12 +1,5 @@
 # Sermon 3245 | Our Position and Our Purpose
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 13, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Having therefore these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God." 2 Corinthians 7:1.
 
 KINDLING with strong emotion, constrained by the love of Christ and animated by the fellowship of all spiritual blessing, the Apostle here strikes out an exhortation in which he appeals to the noblest passions of the children of God-- to their sense of a Divine lineage and a present endowment--as well as of an exalted destiny for an incentive to purity of character and holiness of life.

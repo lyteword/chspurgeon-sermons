@@ -1,12 +1,5 @@
 # Sermon 3330 | Two Choice Assurances
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 28, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Fear not, Abram: I am your shield and your exceedingly great reward." Genesis 15:1.
 
 "And He said, 'My Presence shall go with you, and I will give you rest.'"

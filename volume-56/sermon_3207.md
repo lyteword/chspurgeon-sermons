@@ -1,12 +1,5 @@
 # Sermon 3207 | Secret Disciples Encouraged
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 21, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Are not you also one of His disciples?" John 18:25.
 
 BLESSED be His name, there are some of us who count it our highest joy to answer this question, "Yes." Whatever may be entailed by the confession, we shall be glad to endure! We could not do otherwise than say, "He acknowledged us of old and He is still not ashamed to call us brethren and, therefore, we are not ashamed of Him, but we delight to call Him Master and Lord." In an interview I had about a fortnight ago, with a dear and venerable friend who is just upon the borders of the grave, he said to me, "There is a verse in the Hymn-Hook which I know you do not like, Sir, and which I do not like, though both of us have sometimes been obliged to sing it--

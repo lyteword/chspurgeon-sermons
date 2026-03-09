@@ -1,12 +1,5 @@
 # Sermon 3516 | Love and Jealousy
 
-
-A SERMON PUBLISHED ON THURSDAY JUNE 15, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Love is strong as death; jealousy is cruel as the grave." Song of Solomon 8:6.
 
 TAKEN in its most natural sense, this is certainly true of creature love. It is a mighty, all-constraining, irresistible passion. Even the love of friendship occasionally has proved itself to be "strong as death." "Greater love has no man than this, that he lay down his life for his friend." There have been those who were willing to sacrifice their lives for their friends. Filial affection has sometimes proven to be more than a match for the terrors of the grave. Some pleasing instances are on record worthy to be written among the golden deeds of manhood in which brothers and sisters have seemed to contend with each other who should die first, if perchance a brother's precious life might, by such a sacrifice, be preserved. What a mighty instinct of love glows in the mother's heart! You recollect that famous story of the mother whose child was taken from her by a Jesuit missionary to be trained separate and apart from its parents--how she swam through rivers and passed through what seemed to be impenetrable forests, guided only by the midnight star--till she arrived at the place where her offspring was--braving death in a thousand shapes from wild beasts and venomous serpents, from floods and jungles, from fierce men and relentless persecutors, might she but reach her child! Have there not been instances where, in the stormy blasts of winter, a mother has wrapped her garments about her infant and, exposing herself to the fury of the elements, has sacrificed her own life that the little one might live? Love has, indeed, often proved itself to be strong as death! When merely the common passion which burns in the breast of ordinary men and women towards each other, it has asserted its strength in a fond devotion which reckoned no consequences, spared itself no pain and fixed no limit to endurance, not counting life, itself, too dear to be parted with on so high a service.

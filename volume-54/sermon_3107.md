@@ -1,12 +1,5 @@
 # Sermon 3107 | Christ and His Table Companions
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 27, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when the hour was come, He sat down, and the twelve Apostles with Him." Luke 22:14.
 
 THE outward ordinances of the Christian religion are but two--and those two are exceedingly simple--yet neither of them has escaped human alteration. And, alas, much mischief has been worked and much of precious teaching has been sacrificed by these miserable perversions! For instance, the ordinance of Baptism, as it was administered by the Apostles, represented the burial of the Believer with Christ and his rising with his Lord into newness of life. Men had to exchange immersion for sprinkling and the intelligent Believer for an unconscious child--and so the ordinance is slain! The other sacred institution, the Lord's Supper, like Believers' Baptism, is simplicity itself. It consists of broken bread and wine poured out--these items being eaten and drunk at a festival--a delightful picture of the sufferings of Christ for us and of the fellowship which the saints have with one another and with Him. But this ordinance, also, has been tampered with by men. By some, the wine has been taken away altogether, or reserved only for a priestly caste. And the simple bread has been changed into a consecrated host. As for the table, the very emblem of fellowship in all nations--for what expresses fellowship better than surrounding a table and eating and drinking together? This, indeed, must be put away and an "altar" must be erected! And the bread and wine which were to help us to remember the Lord Jesus are changed into an "unbloody sacrifice," and so the whole thing becomes an unscriptural celebration instead of a holy institution for fellowship!

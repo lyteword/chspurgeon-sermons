@@ -1,12 +1,5 @@
 # Sermon 3164 | The Mission of Affliction
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 30, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 8, 1873.
-
 "Let him alone, and let him curse, for so the Lord has ordered him. It may be that the Lord will look on my affliction, and that the Lord willrepay me with good for his cursing this day." 2 Samuel 16:11,12.
 
 THE bright side of David's character was generally seen either when he was actively engaged or when he was greatly suffering. He was the man of action. When he ran to meet Goliath and returned with the giant's head in his hand, or when it was necessary that he should lead forth the hosts of God to war against Philistia, then David was in his element. He was one who never feared the face of man! He was courageous, dauntless and full of confidence in God.

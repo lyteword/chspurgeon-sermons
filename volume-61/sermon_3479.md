@@ -1,12 +1,5 @@
 # Sermon 3479 | All of Grace
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For by Grace are you saved through faith; and that not of yourselves: it is the gift of God." Ephesians 2:8.
 
 OF the things which I have spoken unto you these many years, this is the sum. Within the circle of these words my theology is contained, so far as it refers to the salvation of men. I also rejoice to remember that these of my family who were ministers of Christ before me preached this Doctrine and none other. My father, who is still able to bear his personal testimony for his Lord, knows no other Doctrine, neither did his father before him.

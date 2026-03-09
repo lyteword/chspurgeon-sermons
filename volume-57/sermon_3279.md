@@ -1,12 +1,5 @@
 # Sermon 3279 | "Ever This Our War Cry--victory, Victory!"
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Therefore will I divide Him a portion with the great, and He shall divide the spoil with the strong; because He has poured out His soul onto death: and He was numbered with the transgressors: and He bore the sin of many, and made intercession for the transgressors" Isaiah 53:12.
 
 [Another Sermon by Mr. Spurgeon upon the same text is #2070, Volume 35--CHRIST'S CONNECTION WITH SINNERS THE SOURCE OF HIS GLORY.]

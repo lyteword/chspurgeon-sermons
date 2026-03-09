@@ -1,12 +1,5 @@
 # Sermon 3327 | Our Lord's Heroic Endurance
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 7, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 29, 1866.
-
 "For consider Him that endured such contradiction of sinners against Himself lest you be weary and faint in your minds." Hebrews 12:3.
 
 IF we regard the Christian as a racer contending for the great race, we see that he is subject to several dangers. He may give up the race and turn back unless everlasting mercy shall prevent so dreadful a calamity. He may leap out of the track and leave for a time the only path that leads to victory and reward. Or he may be so clogged and hampered with weights that though he may run, he may run altogether in vain. Or he may be tripped up and fall--and so others may pass him and take the prize of his high calling. But even if he shall fully have avoided all those dangers, if he shall keep to the course, if he shall be kept upon his feet, and if his racing should be of the best kind, yet there is still the possibility-- for the best Christian is still flesh and blood--that he may faint.

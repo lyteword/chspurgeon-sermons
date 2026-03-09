@@ -1,12 +1,5 @@
 # Sermon 3433 | Love's Reward
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 19, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Because he has set his love upon Me, therefore will I deliver him. I will set him on high because he has known My name." Psalm 91:14.
 
 THAT this Psalm was written by David we see no reason to doubt. In the previous verses we have the words of the Psalmist himself. Here, however, there is a change of speaker. The promise is spoken by God, Himself, in these three closing sentences. Doubtless the words of Inspired men are very precious as a Divine testimony, but when God, Himself, directly speaks to us in His own name, what an extraordinary weight attaches to every syllable He utters! Dear child of God, you who are a believer in Jesus, can you not think that you hear your God saying, concerning you, with His own, gracious assuring voice, "Because he has set his love upon Me, therefore will I deliver him"? And notice that He repeats these words, "I will," four times, as if to give them the most striking emphasis! Surely this is intended to minister some comfort and refreshing to the Lord's people. I pray the Holy Spirit, the Comforter, to give the Word and to apply it.

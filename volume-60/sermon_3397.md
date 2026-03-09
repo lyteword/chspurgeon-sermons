@@ -1,12 +1,5 @@
 # Sermon 3397 | A Timely Expostulation
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 12, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Why seek you the living among the dead" Luke 24:5.
 
 This question was addressed to certain holy women who came early to the sepulcher, bringing with them the spices which they had prepared for embalming the body of our Lord. They were met by angels who reminded them that their Lord had promised to rise again, that He had so risen and that it was in vain for them to seek in the sepulcher the living, the Immortal Christ. "Why seek you the living among the dead?"

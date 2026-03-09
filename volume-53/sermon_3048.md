@@ -1,12 +1,5 @@
 # Sermon 3048 | The Holy Spirit in the Covenant
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 11, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON A LORD'S-DAY MORNING IN 1856.
-
 "And I will put My Spirit within you." Ezekiel 36:27.
 
 THE Holy Spirit is the third Person in the Covenant. We have considered "God in the Covenant" and "Christ in the

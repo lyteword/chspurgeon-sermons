@@ -1,12 +1,5 @@
 # Sermon 3037 | Christians Kept From Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 25, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 13, 1870.
-
 "And David said to Abigail, Blessed be the Lord God of Israel, which sent you this day to meet me: and blessed be your advice, and blessed be you, which has kept me this day from coming to shed blood, and from avenging myself with my own hand." 1 Samuel 25:32,33.
 
 THESE verses are taken from the story of David's coming into contact with Nabal the churl. Nabal was a great sheep-master and David and his 600 men had been especially careful not to injure his flocks, but had protected them from any pilfering that might have been practiced by wandering bands of desert rangers. At that time Nabal was shearing his sheep and David, who was in some measure of need, thought it a suitable time to ask something from him, according to Eastern custom, in return for the services which he had rendered to his shepherds. So he sent 10 of his young men to ask Nabal for the backsheesh, but, instead thereof, they received an insulting message to take back to their master. Thereupon, David--who seems to have been always of a quick spirit, whether for right or for wrong--who made haste to obey God's commandments, but who made equal haste to obey his own impulses--girded on his sword and bade every man do the same and declared that they would march to the house of this churl, Nabal, fall upon him at once and destroy him and all that appertained to him, root and branch. While he was marching in haste to carry out his stern determination--as God's Infinite Goodness would have it, Abigail, the wise wife of the foolish Nabal, met him and confessed that her husband was a man of Belial. She pleaded that she had not seen the messengers whom David had sent, besought him to accept the provisions she had brought and urged David to leave the avenging of himself to God, so that when he came to be king, it would be no grief of heart to him that he had shed blood needlessly, or had acted as his own avenger. David who had Divine Grace in his spirit, although he was on his way to do wrong, felt the force of Abigail's rebuke, sheathed his sword, thanked her and thanked the Lord, too, that he had thus been preserved from committing a great sin which might have left a great stain upon his character and been a source of trouble to him for the rest of his life.

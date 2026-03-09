@@ -1,12 +1,5 @@
 # Sermon 3488 | Justification, Propitiation, Declaration
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 2, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 9, 1870.
-
 "Being justified freely by His Grace through the redemption that is in Christ Jesus: whom God has set forth to be a propitiation through faith in His blood, to declare His righteousness for the remission of sins that are past through the forbearance of God. To declare, I say, at this time His righteousness: that He might be just, and the justifier of him who believes in Jesus." Romans 3:24-26.
 
 I think, dear Friends, some of you will be saying, "There is that same old Doctrine again that we are so continually hearing," and I am sure if you do say it I shall not be surprised. Nor, on the other hand, shall I make any sort of excuse. The Doctrine of Justification by Faith through the substitutionary Sacrifice of Christ is very much to my ministry what bread and salt are to the table. As often as ever the table is set, there are those necessary things. I regard that Doctrine as being one that is to be preached continually, to be mixed up with all our sermons, even as, under the Law of God it was said, "With all your offerings you shall offer salt." This is the very salt of the Gospel! Indeed, it is impossible to bring it forward too often. It is the soul-saving Doctrine--it is the foundation Doctrine of the Gospel of Jesus Christ! It is that by which God is pleased to bring many into reconciliation with Himself. As the schoolmaster takes care to ground his scholars well in grammar, that they may get hold of the very roots of the language, so must we be rooted and grounded in this fundamental and cardinal Truth of God--justification through the righteousness of Jesus Christ! Martin Luther, who used to preach this Doctrine very vehemently and forcibly, yet declared that he felt as if he could knock the Bible about the peoples' heads if he could by any means get this Doctrine into them--for as soon after they had learned it, they forgot it! Over and over, and over again must the Christian minister continue to insist upon this Truth--that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them. And forever and ever, as long as the world stands, must he continue to repeat the Truth of God, that we are justified through the righteousness of our Redeemer and not by any righteousness of our own!

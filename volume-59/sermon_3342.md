@@ -1,12 +1,5 @@
 # Sermon 3342 | Faith Seeing God's Glory
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 20, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus said unto her, Said I not unto you that if you would believe, you would see the Glory of God?" John 11:40.
 
 IT is not every man whose deed is as good as his word, but of the Son of Man, Christ Jesus, it may be said that whatever His lips have promised, His hands perform. He can, after the fact has transpired, turn to His disciples and say, "Said I not unto you, such-and-such, and is it not even as I said?" Seeking Sinner, Christ has said that you shall have peace if you believe on Him and He will not run back from that word! If you cast yourself upon Him, you shall have peace right now--you shall have happiness evermore, you shall have Heaven at the last--for there is no promise which Christ has made which He is not prepared to keep! There is no blessing which He presents to the hand of our faith which is either unreal, a sham, or a mockery! You shall find that Christ's gold is not mere tinsel, but true, and that His silver is silver tried in the furnace--good spending money, both for time and for eternity!

@@ -1,12 +1,5 @@
 # Sermon 3398 | Love's Great Reason
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 19, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 27, 1868.
-
 "We love Him because He first loved us." 1 John 4:19.
 
 This is the point where all genuine Christians meet. They can all say, without exception, "We love Him." They do not agree in doctrine--it is a pity, but I suppose that as long as we are in this body, we shall, none of us, see all the Truths of God at once, and each man, seeing only a portion of the Truth, is most likely to think that what he does not see is not true--whereas it may be just as important as that which he is able to perceive. Well, well, amidst a thousand controversies between Calvinism and Arminianism, and all the forms that various systems have taken with regard to this, and that, and the other, still, all the elect of God, being quickened by Divine Grace, unite in this one declaration, "Whatever we do not believe, we do love Him." There are great diversities of experience, as well as of doctrine. Some are down in the gloom and some never seem to leave the cellars of the Lord's house--they have deep spiritual exercises, they doubt, they fear, they tremble and are afraid. Others climb up to the very roof of the Palace Beautiful and look abroad upon the fair scene around. Their feet are used to dancing with spiritual delight and their hearts sing sweetly before the Lord. Theirs is an experience of communion rather than of corruption. They have been with Jesus and their faces are made to shine with His company. Perhaps if I told my experience, it might differ from yours from an experimental point of view--in that we might stand wide as the poles asunder--but if we are in Christ, we can, each of us, say with equal truth and intensity, "We love Him." There we join hands! Whatever we have not felt, tasted, or known, we do love Him!

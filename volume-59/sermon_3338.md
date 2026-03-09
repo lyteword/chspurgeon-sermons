@@ -1,12 +1,5 @@
 # Sermon 3338 | The Witness of the Lord's Supper
 
-
-A SERMON PUBLISHED ON JANUARY 23, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For as often as you eat this bread, and drink this cup, you do show the Lord's death till He comes." 1 Corinthians 11:26.
 
 THE center of our holy religion is the Cross. The central thought of the whole of Christianity is Christ and the great point in Christ's history is His Crucifixion. We preach Christ--but more--we preach Him Crucified! Beloved, this, which is the keystone or the whole arch of our religion, should be more constantly in our minds than it is. It should more frequently occupy our meditations. It should engage more incessantly our tongues--we should sing of it more often, we should pray more in the shadow of it and we should live more under the control of the impulses its suggests. In the Cross of Christ let each one of us glory and, like the Apostle, say, "God forbid that I should glory save in the Cross of Jesus Christ our Lord."

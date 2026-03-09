@@ -1,12 +1,5 @@
 # Sermon 3462 | To the Rescue
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 10, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Shall the prey be taken from the mighty, or the lawful captive be delivered?" Isaiah 49:24
 
 IN the days when this prophecy was written, there were certain great nations of the earth that sought and obtained their wealth, not by commerce, but by force--not by fair trading, but by fiercely invading their richer neighbors. The Babylonians and the Chaldeans gathered together great armies and then pounced upon small territories, such as those at Israel and Judea, and carried off all the substance of the inhabitants as a prey. When the marauding host, flushed with victory, was returning home with its booty, it would have been a very dangerous thing to attempt to rescue the spoil. "Shall the prey be taken from the mighty?" What a great king has captured and what his mighty hosts have fought for-- shall this be taken from them? Where are the warriors that have strength and numbers enough to attack the victors as they return with the spoil? Sometimes treaties were broken and then the Babylonians made that a pretext for taking the people away captive. They were "lawful captives," as they had broken certain conditions and made themselves subject, according to the articles of war, to be lawfully taken prisoners. Now where such is the case, when enraged kings and princes have taken cities which have proved traitorous to them, shall anybody deliver the prisoners? Who shall step in between the monarch and his righteous captive? That is the literal meaning of the verse, "Shall the prey be taken from the mighty, or the lawful captive be delivered?" It was first applicable to the Jewish people. They were taken into captivity in Babylon. Shall they ever be set free?

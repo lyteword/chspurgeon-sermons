@@ -1,12 +1,5 @@
 # Sermon 3217 | An Earnest Warning Against Unbelief
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 29, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And to whom swore He that they should not enter into His rest, but to them that believed not? So we see that they could not enter in because of unbelief." Hebrews 8:18,19.
 
 ALL the histories of Scripture are written for our examples, but especially the story of the Israelites in the wilderness, which is given to us at a length far exceeding the value of the narrative unless it is intended for purposes of spiritual instruction, for it occupies four books of the Old Testament and those, by no means, short ones! These things were written that we might see ourselves in the Israelites as in a mirror--and so might be warned of dangers common to us and to them--and be guided to a worthier use of the privileges which we enjoy. Always read Exodus, Leviticus, Numbers and Deuteronomy with this view--"This is the story of the Church of God in the wilderness--I would see how God dealt with them and how they dealt with Him, and from this learn lessons that may be useful to me in my own pilgrimage to the eternal rest."

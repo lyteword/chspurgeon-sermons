@@ -1,12 +1,5 @@
 # Sermon 3117 | Eyes Opened
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 5, 1874.
-
 "And Elisha prayed, and said, LORD, I pray you, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire round about Elisha." 2 Kings 6:17.
 
 [Another Sermon by Mr. Spurgeon, on the same text, is #2215, Volume 37--YOUNG MAN! A PRAYER FOR YOU]

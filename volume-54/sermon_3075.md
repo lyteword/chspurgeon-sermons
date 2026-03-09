@@ -1,12 +1,5 @@
 # Sermon 3075 | Looking for One Thing and Finding Another
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 16, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And the donkeys of KKish, Saul's father, were lost. And Kish said to Saul, his son, Take now one of the servants with you, and arise, go seek the donkeys...And as for your donkeys that were lost three days ago, set not your mind on them; for they are found. And on whom is all the desire ofIsrael?Is it not on you, and on all your fathers house?" 1 Samuel 9:3,20.
 
 SAUL went out to seek his father's donkeys. He failed in the search, but he found a crown. He met with the Prophet Samuel, who anointed him king over God's people, Israel, and this was far better than finding the obstinate colts. Let us consider this amazing incident. Perhaps, though it treats of donkeys, it may yield us some royal thoughts.

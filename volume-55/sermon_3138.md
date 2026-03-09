@@ -1,12 +1,5 @@
 # Sermon 3138 | Mocking the King
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 1, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 1, 1873.
-
 "And they stripped Him, and put on Him a scarlet robe. And when they had platted a crown of thorns, they put it upon His head, and a reed in His right hand: and they bowed the knee before Him, and mocked Him, saying, Hail, King of the Jews! And they spit upon Him, and took the reed, and smote Him on the head." Matthew 27:28-30.
 
 [There are two other Sermons by Mr. Spurgeon on verse 29--Sermons #1168, Volume 20--THE CROWN OF THORNS and #2824, Volume 49-- MOCKED OF THE SOLDIERS.]

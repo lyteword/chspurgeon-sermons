@@ -1,12 +1,5 @@
 # Sermon 2943 | Restraining Prayer
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 6, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "You...restrain prayer before God." Job 15:4.
 
 THIS is one of the charges brought by Eliphaz the Temanite against Job, "Yes, you cast off fear, and restrain prayer before God." I shall not use this sentence as an accusation against those who never pray, though there may be some in this House of Prayer whose heads are unaccustomed to bow down and whose knees are unaccustomed to kneel before the Lord, their Maker. You have been fed by God's bounty, you owe all the breath in your nostrils to Him, yet you have never done homage to His name! The ox knows his owner and the ass his master's crib, but you know not, neither do you consider the Most High. The cattle on a thousand hills low forth their gratitude and every sheep praises God in its bleating--but these beings, worse than natural brute beasts--still continue to receive from the lavish hand of Divine Benevolence, but they return no thanks whatever to their Benefactor! Let such remember that that ground which has long been rained upon, and plowed, and sown which yet brings forth no fruit, is near unto cursing--whose end is to be burned. Prayerless souls are Christless souls, Christless souls are Graceless souls and Graceless souls shall soon be damned souls! See your peril, you that neglect altogether the blessed privilege of prayer! You are in the bonds of iniquity, you are in the gall of bitterness. God deliver you, for His name's sake!

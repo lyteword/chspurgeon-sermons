@@ -1,12 +1,5 @@
 # Sermon 3321 | God in Heaven, and Men on the Sea
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 26, 1912.
-
-DELIVERED BY C. H. SPURGEON, ON BEHALF OF THE BRITISH AND FOREIGN SAILORS' SOCIETY,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "By terrible things in righteousness will You answer us, O God of our salvation; who are the confidence of all the ends of the earth, and of them that are afar off upon the sea." Psalm 65:5.
 
 PLEASE read the 65th Psalm through. May it do you good, whether as landsmen you read of the Lord's settling the furrows, or as sailors you hear of His stilling the noise of the seas. Notice the first two verses--"Praise waits for You," "O You that hear prayer." Holy men of old were accustomed to mix praise and prayer together--this is a happy mixture! We are not tied to one thing. We spread the sails of prayer and fly the flag of praise. To praise God without praying to Him would be impossible. To pray to God without praising Him would be ungrateful. Praise takes in a cargo of gold for the King of kings--and prayer stokes the fires to make the good ship steam towards the royal city! Brothers, keep to this throughout all the watches--pray and praise--and when you need a change, praise and pray/Keep the boat of the soul going with these two oars--praise and prayer.

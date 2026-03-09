@@ -1,12 +1,5 @@
 # Sermon 3519 | A Gospel Promise
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 6, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I will put My Spirit within you, and cause you to walk in My statutes, and you will keep My judgments, and do them." Ezekiel 36:27.
 
 THE blessing here promised is one of the most essential that men can need, or that God can give. Without this blessing, all the other benefits of the Covenant would be null and void. It is vain to have a Savior if we have not spiritual power to believe in Him! Of what use is it to us that there should be provided precious promises if we have no faith worked in us by the Holy Spirit whereby we can grasp those promises, plead them in prayer and obtain their fulfillment? Without holiness, no man shall see the Lord, but holiness grows not in any human heart by nature. Therefore, without the Spirit of God, who is the Author of holiness, no man could ever become an heir of immortality, or enter into the rest which remains for the people of God! The Holy Spirit is needed for the very least form of spiritual life and is equally necessary for its highest development. Without the Holy Spirit, we cannot go through the first gate--and without the Spirit we cannot pass the last. No man can say in his heart that Jesus is the Christ but by the Holy Spirit--much less can any man attain to the perfection which is necessary to Heaven except through the work and power of the Spirit of the living God!

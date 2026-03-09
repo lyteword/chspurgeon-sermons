@@ -1,12 +1,5 @@
 # Sermon 3062 | The Spirit's Office Towards Disciples
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 17, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 23, 1865.
-
 "He shall glorify Me: for He shall receive ofMine, and shall show it unto you." John 16:14.
 
 [Other Sermons by Mr. Spurgeon upon this passage are as follows--#465, Volume 8--THE HOLY SPIRIT GLORIFYING CHRIST; #2213, Volume 37--"HONEY IN THE MOUTH"; #2382, Volume 40--THE HOLY SPIRIT'S CHIEF OFFICE. An Exposition ofJohn 16:1-22, was published with #3052, Volume 53--CHRIST'S LONELINESS AND OURS.]

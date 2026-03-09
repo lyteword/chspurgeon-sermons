@@ -1,12 +1,5 @@
 # Sermon 3411 | Joining the Church
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 18, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING OCTOBER 24, 1869.
-
 "And this they did, not as we hoped, but first gave their own selves unto the Lord, and unto us by the will of God." 2 Corinthians 8:5.
 
 SOME persons are always trying to prove what is customary in the Christian Church. They are always seeking after instances and precedents. The worst of it is that many of these people look for old things that are not old enough--the old things of the Church of Rome, for instance, and mediaeval customs and observances which are nothing but authentic trumpery! If they want the real old solid things, they should go back to the Apostolic times. The best book of Church history from which to gather ritual, true ritual, is the Acts of the Apostles! And when the Christian Church shall go back to that, instead of enquiring about what the primitive Christians did in the second or third century, she will come much nearer to the knowledge of what she ought to do!

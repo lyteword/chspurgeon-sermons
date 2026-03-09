@@ -1,12 +1,5 @@
 # Sermon 3026 | Vanity Deprecated
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 7, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, A LORD'S-DAY EVENING, IN THE YEAR 1864.
-
 "Turn away my eyes from beholding vanity; and quicken me in Your way." Psalm 119:37.
 
 THERE are divers kinds of vanity. In the play of the frivolous and the sport of the idle, we see but one sort of vanity--light, open and undisguised. The cap and bells of the fool, the motley of the jester, the mirth of the world, the dance, the lyre and the cup of the dissolute-- men know these to be vanities--they wear upon their forefront their proper name and title. Yet another species of vanity, and more deceitful, can be discovered in the cares of this world and the deceitfulness of riches. A man may follow vanity as truly in the counting-house as in the theater. If he is spending his life in amassing wealth, he is heaping vanity to himself quite as much as though he openly passed his days in vain show or empty pageant. All the fools do not dance or drink. All the fools do not make jests--full many there are of somber mood who spend money for that which is not bread, and their labor for that which satisfies not!

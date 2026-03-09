@@ -1,12 +1,5 @@
 # Sermon 2971 | The Right Kind of Fear
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 18, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, SEPTEMBER 2, 1876.
-
 "Happy is the mam who fears always." Proverbs 28:14.
 
 BUT did not John say that "fear has torment"? Then how can he be happy who has fear--and especially he who has it always?Did not John also say that "perfect love casts out fear"? How is it, then, that he is happy in whom love is not made perfect, if it true that the fear which John meant is left in it? Dear Friends, the explanation is that the word, "fear," is used in different senses--and both Solomon and John are right! Neither is there any conflict between their two statements. There is a fear which perfect love casts out because it has torment. That is the slavish fear which trembles before God as a criminal trembles before the judge--the fear which mistrusts, suspects and has no confidence in God-- the fear which, therefore, keeps us away from God, causes us to dread the thought of drawing near to Him and makes us say, like the fool to whom the Psalmist refers, "No God." Many of you know what this kind of fear is, for you once suffered from it--though I trust you are now delivered from it by faith in Christ Jesus and by the love which the Spirit of God has worked in your hearts.

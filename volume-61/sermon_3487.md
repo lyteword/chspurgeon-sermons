@@ -1,12 +1,5 @@
 # Sermon 3487 | The Honored Guest
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 25, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And he made haste and came down, and received Him joyfully." Luke 19:6.
 
 ARE YOU prepared, like Zaccheus, to give the Lord Jesus Christ a glad and grateful welcome? If we would obtain the full benefit of His devoted life, His atoning death and His triumphant Resurrection, we must receive Him into our hearts by simple faith and entertain Him with tender love. Outside the door of our heart, Jesus is a stranger--He is no Savior to us--but inside the heart which has been opened, by Divine Grace, to admit Him, His power is displayed, His worth is known and His goodness is felt! My dear Hearers, you have heard of His fame, you have witnessed the miracles He has worked upon others and now it remains that you receive Him, yourself, to ensure your own well-being. He stands at the door and knocks! You must open to Him. The promise is, "If any man will open unto Me, I will come in and sup with him." "To as many as received Him, to them gave He power to become the sons of God." Not upon all who heard was the privilege conferred, for many, when they heard, did not believe. Alas, they provoked Him, and so they perished in their sins! But those who hail Jesus as a Friend, salute Him as an honored Guest, sit at His feet, hang on His lips and find how He lights every chamber of their soul with joy, satisfies every craving of their better nature and enriches them with all the endowments of adopted children!

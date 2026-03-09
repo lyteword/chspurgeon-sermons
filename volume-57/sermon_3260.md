@@ -1,12 +1,5 @@
 # Sermon 3260 | Spiritual Convalescence
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 27, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 17, 1864.
-
 "And I will strengthen them in the LORD; and they shall walk up and down in His name, says the LORD." Zechariah 10:12.
 
 ACCORDING to our own natural conceit, we are very strong--it is as hard for us to part with our belief in our own strength as with our trust in our own righteousness! It is a very painful cut which severs us from confidence in ourselves. But when the Spirit of God performs that most necessary operation, then we discover that our supposed strength is utter weakness and that our righteousness are but filthy rags! If our eyes have been opened to see ourselves as we are in God's sight, we know that we are weak as water and that from us, unassisted by Divine Grace, there can never come any good thing. Our past experience might have been sufficient to teach us this lesson. The feeble way in which we have performed any duty that devolved upon us, the sad manner in which we have met any temptation that assailed us, the impatient and murmuring spirit in which we have endured any affliction that has come upon us--all these must have shown us that even after we are renewed by Divine Grace, though "the spirit indeed is willing," yet, "the flesh is weak." And though to will is present with us, yet how to perform that which is good we find not. We are not now like a stone which lies on the ground and cares not to stir, but we are like a bird with a broken wing which longs to soar into the clearer air above the clouds, but which is quite unable to reach that higher atmosphere. We know something of our weakness, but we probably do not yet know how weak we are and, I suppose, it will be one of our life lessons to learn by experience how great our weakness is.

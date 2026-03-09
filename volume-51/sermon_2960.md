@@ -1,12 +1,5 @@
 # Sermon 2960 | "Where Are the Nine?" Where?
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "And Jesus answering said, Were there not ten cleansed? But where are the nine?" Luke 17:17.
 
 THE whole narrative connected with the text is worthy of your careful reading. There were 10 men, lepers who, according to the old proverb that "birds of a feather flock together," had made a company and seemed to have lived in greater amity through kinship of suffering than they would have done had they been healthy and competent to share the fragrance of each other's joys. Mutual woe may have softened some of their natural jealousies, for we find that there was at least one in the company who was a Samaritan, while the others were Jews. Now, "the Jews have no dealings with the Samaritans," yet, when both are placed beyond the pale of society--in their sickness an intimacy springs up between them. So does common calamity bring about strange friendships. These men, who, under any other circumstances, would have been mortal enemies, became comfortable companions--at least, so far as their disease would allow them the thought of comfort.

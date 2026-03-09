@@ -1,12 +1,5 @@
 # Sermon 3166 | "A Greater Than Solomon"
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 14, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 29, 1873.
-
 "The Queen of the South shall rise up in thejudgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon: and, behold, a greater than Solomon is here." Matthew 12:42.
 
 WE cannot tell exactly who the Queen of the South was, nor exactly where Sheba lay. The expression used is Yemen, the south. Yemen is the name of a part of Arabia Felix and it would appear from the spices which the Queen brought with her that she came from that region. At the same time, the Abyssinians claim her as having been their queen. They say that she was converted through her conversations with Solomon, that afterwards the faith of God was preserved in the country, and hence that that famous Ethiopian, who was a eunuch of great authority under Candace in later times, was a proselyte to the Jewish faith on account of that faith existing in Abyssinia. We do not know. It may have been so and it is possible that the supposition of her having come from Arabia--and the supposition of her having come from Abyssinia may both be true--for it appears that the two countries were at one time under the same government, both shores of the Red Sea making up in far distant ages one empire. And she may have been the queen of both.

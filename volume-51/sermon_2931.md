@@ -1,12 +1,5 @@
 # Sermon 2931 | Return! Return!
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 13, 1905,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 17, 1876.
-
 "Return, you backsliding Israel. Turn, O backsliding children. Return, you backsliding children." Jeremiah 3:12,14,22.
 
 IT is, indeed, a horrible thing that a saved soul should ever wander from its Savior. After having had so much of past sin fully and freely forgiven and, after having then made to rejoice in perfect pardon, can it ever turn away from those dear pierced hands which lifted its heavy burden from its shoulders? Can it ever wander from the Fountain in which it was washed whiter than snow? If so, it will, indeed, have committed a shameful sin! After so many spiritual benefits have been enjoyed and the soul has not only been washed, but also robed, fed, adopted into the family of God and been taught many wonderful lessons--can such a child as that leave such a home and such a Father--and go back to "the beggarly elements" from which it has been delivered? Ah, if it even thinks of doing so, it has, by that very thought, committed treason against the Sovereign Love of God!

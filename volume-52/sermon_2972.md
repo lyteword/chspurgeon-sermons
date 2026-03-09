@@ -1,12 +1,5 @@
 # Sermon 2972 | Forgiveness
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 25,1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 21, 1863.
-
 "But there is forgiveness with You, that You may be feared." Psalm 130:4.
 
 How significant is that word, "but," in our text! It is as if you heard Justice clamoring, "Let the sinner die," and the fiends in Hell howling, "Cast him down into the fires," and Conscience shrieking, "Let him perish," and Nature, itself, groaning beneath his weight, the earth weary with carrying him, the sun tired with shining upon the traitor, the very air sick with finding breath for one who only spends it in disobedience to God! The man is about to be destroyed, to be swallowed up, when suddenly there comes this thrice-blessed, "but," which stops the reckless course of ruin, puts its strong hand, bearing a golden shield, between the sinner and destruction and pronounces these words, "But there is forgiveness with God, that He may be feared."

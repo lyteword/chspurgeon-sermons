@@ -1,12 +1,5 @@
 # Sermon 3420 | Could He Not? Ah! But He Would Not
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 20, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And some of them saaid--Could not this Man, who opened the eyes of the blind, have caused that even this man should not have died?" John 11:37.
 
 HERE was very good reasoning. Jesus Christ had opened the eyes of the blind--could He not, therefore, have healed Lazarus of the disease which proved fatal? Of course He could! He who can avert one evil can avert another. It could have been no more difficult for Christ to have turned aside the fever, or whatever it may have been which afflicted Lazarus, than to have opened the eyes of a man who was born blind. The first was impossible, but that achieved, no difficulties remained. "Impossible" is a word which does not fall into language when you have to deal with Christ and, therefore, when He has once proved, by a miracle, that He is truly the Christ, then it is clear that, ever afterwards, nothing is difficult or impossible for Him.

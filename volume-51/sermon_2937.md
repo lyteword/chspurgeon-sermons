@@ -1,12 +1,5 @@
 # Sermon 2937 | Too Little for the Lamb
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 25, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 8, 1875.
-
 "They shall take to them every man a lamb, according to the house of their father, a lamb for an house: and if the household is too little for the lamb, let him and his neighbor next unto his house take it according to the number of the souls; every man according to his eating shall make your count for the lamb." Exodus 12:3, 4.
 
 THE paschal lamb was not killed in order to be looked at only, but to be eaten. And our Lord Jesus Christ has not been slain merely that we may hear about Him and talk about Him, and think about Him, but that we may feed upon Him. Everything that has to do with Christ's work is of real, practical, vital consequence to Believers. He is to be the food for our souls. Faith is to receive Him. Love is to embrace Him. Hope is to rejoice in Him!

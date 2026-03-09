@@ -1,12 +1,5 @@
 # Sermon 3121 | The Necessity of Regeneration
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 29, 1874.
-
 "Marvel not that I said unto you, You must be born-again." John 3:7.
 
 [See Sermon #130, Volume 3--REGENERATION.]

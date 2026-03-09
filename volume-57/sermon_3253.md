@@ -1,12 +1,5 @@
 # Sermon 3253 | Faith Hand in Hand With Fear
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 8, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "What time I am afraid, I will trust in You." Psalm 56:3.
 
 IT must be a very difficult thing to be the first traveler through as unknown country, but it is a much more simple matter to travel where others have preceded us. However difficult may be the road, we discover our path by certain marks which they have left for us, and as we turn to the record of their journey, we say, "Yes, they said that here they came to a forest, and here is the forest. Here they spoke of a broad river and here they forded it. Here is exactly the spot which is marked--we are on the right road, for we are following in the tracks of those who have gone before." Now God in His Providence has placed us in "the ends of the world" as to time--a long caravan of pilgrims has preceded us, and they have left us marks on the way and records of their journey.

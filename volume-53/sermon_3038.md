@@ -1,12 +1,5 @@
 # Sermon 3038 | Justice Vindicated And Righteousness Exemplified
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 2, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, EARLY IN THE YEAR 1865.
-
 "Being justified freely by His Grace through the redemption that is in Christ Jesus; whom God has set forth to be a propitiation through faith in His blood, to declare His righteousness for the remission of sins that are past, through the forbearance of God; to declare, I say, at this time His righteousness: that He might be just, and the justifer of him who believes in Jesus." Romans 3:24-26.
 
 THE death of our Lord Jesus Christ answered many valuable purposes. It manifested the manifold Wisdom of God. To angels in Heaven and to saints on earth, God never appeared so infinitely wise as in the ordaining of the plan of salvation by the substitution of His Son for guilty sinners. That death also revealed God's amazing love. It proclaimed to astonished worlds how "God so loved the world, that He gave His only begotten Son, that whoever believes in Him should not perish, but have everlasting life." The Atonement of Christ answered the purpose, moreover, of purifying His people. That He might sanctify the people by His own blood, He suffered outside the camp. He loved His Church and gave Himself for it, we know, "that He might present it to Himself a glorious Church, not having spot, or wrinkle, or any such thing." The Cross has also been the great battering-ram for breaking down the middle wall of partition between Jew and Gentile. It is by Christ's blood that we are made one. "Now therefore you are no more strangers and foreigners, but fellow citizens with the saints, and of the household of God." Caste is abolished and invidious distinctions are set aside. There is no longer in Christ Jesus barbarian, Scythian, bond or free, circumcised or uncircumcised, but Christ is All-in-All. That same atoning Sacrifice also broke down the wall which separated both Jew and Gentile from God--"that He might reconcile both unto God in one body by the Cross, having slain the enmity thereby." The alienation prevailed till the reconciliation was effected by the precious blood of Jesus. We remain enemies in our minds by wicked works until we see the great love with which He loved us, and then that love melts our heart and makes us friends ofGod.

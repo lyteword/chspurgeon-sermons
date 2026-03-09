@@ -1,12 +1,5 @@
 # Sermon 2986 | One Aspect of Christ's Death
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 3, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 14, 1875.
-
 "Greater love has no man than this, that a man lay down his life for his friends." John 15:13.
 
 I FELT, today, after a very weary and, in some respects, a very sorrowful week, as if I could not preach tonight--or that if I did stand up to speak, it must be upon some very easy and simple theme and, at the same time, it must be some great subject which would give me plenty of sea-room. I think the text I have read to you fulfills both these conditions. And, although I shall not attempt to sail across it, or to fathom it, for that would be impossible, yet, at any rate, there will be no fear that I shall run aground, or need to exercise great skill in threading my way through a tortuous channel, where, perhaps, one might be on the rock or the sandbank before he was aware of his danger. If there is anything about which Christians are sure--and concerning which they can speak with confidence, surely it is the love of Christ! And though that is one of the simplest things in the world, yet it is also the very sweetest. Whenever you spread the table for any meal, you are pretty sure to put bread and salt upon it. And whenever we preach, if we preach as we should, we are sure to have something of the savor of the love of Christ in our preaching. I have heard that in a certain country, the way in which a stranger is welcomed is by giving him just bread and salt--nothing more. That is what I am about to do. We will have bread and salt on the table--the essential things, the common things--but, blessed be God, with a fullness of nourishment and a savor of tastefulness in them which those who are taught of God will be able to relish!

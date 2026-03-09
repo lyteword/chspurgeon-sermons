@@ -1,12 +1,5 @@
 # Sermon 2923 | The Singing Army
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 23, 1876.
-
 "And Judah gathered themselves together to ask help of the Lord." 2 Chronicles 20:4.
 
 JERUSALEM was startled by sudden news. There had for a great while been quiet preparations made in the distant countries beyond Jordan. Upon its mountains, Edom had been getting ready--the workshops of Petra had been ringing with the hammer, the enemies of Israel had been beating their pruning hooks into spears and swords and they were now coming down in hordes. There were three great nations and these were assisted by the odds and ends of all the nations round about so that a great company eager for plunder was drawn up in battle. They had heard about the riches of the temple at Jerusalem. They knew that the people of Judea had for years been flourishing and they were now coming to kill and to destroy and to sack and to plunder. They were like the grasshoppers or the locusts for multitude. What were the people of God to do? How were these poor Judeans to defend themselves? Their immediate resort was to their God. They do not appear to have looked up their armor and their swords with any particular anxiety. The fact was that the case was so altogether hopeless, as far as they were concerned, that it was no use looking to anything beneath the skies. And as they were driven from all manifest earthly resorts, they were compelled to lift up their eyes to God.

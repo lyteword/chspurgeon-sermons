@@ -1,12 +1,5 @@
 # Sermon 3123 | "The King of the Jews"
 
-
-A SERMON PUBLISHED ON THURSDAY DECEMBER 17, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 6, 1874.
-
 "And Pilate wrote a title, and put in on the Cross. And the writing was, JESUS OF NAZARETH, THE KING OF THE JEWS." John 19:19.
 
 IT was the usual custom of the Romans, when a man was put to death by crucifixion to affix to the cross, somewhere where it might be read, an account of his crime. His name and title would be given and the accusation that had been brought against him so that all who passed by might read the reason why he had been put to such an ignominious death. Our Savior, therefore, being numbered with the transgressors, must be treated in all respects as they were. If their accusations were published, so must He have His accusation published among the sons of men. How wondrous was the condescension that He, whom all Heaven adored as the ever-blessed Son of the Highest, should be hanged upon a tree and that He should have His accusation written up over His head just as if He had been a common malefactor!

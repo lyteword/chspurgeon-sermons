@@ -1,12 +1,5 @@
 # Sermon 3356 | David's Sublime Consolation
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 29, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 23, 1867.
-
 "Although my house is not so with God; yet He has made with me an everlasting Covenant, orderedin all things and sure: for this is all my salvation, and all my desire, although He makes it not to grow." 2 Samuel 23:5.
 
 NO GOLD but pure gold can stand the fire. And if a man's religion has been a pretentious sham, it is very likely to tumble to pieces under the rough hand of death. There have been a few hypocrites who have been able to brazen it out, even in the last solemn article, but these must always be the few. David, at any rate, was never the man who would play the hypocrite in the last extremity of death. You can see how true, how deep, how thorough his faith in God must have been, for his dying bed was by no means an enviable one. His dying pillow was stuffed with sharp thorns. His was a life which, although it had much of Divine Grace about it, yet had much of sinful nature, too. He was dying as we might not wish to die in some respects, but his faith triumphed as we may well desire that our faith may triumph, whatever the outward circumstances of our life or death may be! We shall go at once, and without further preface, to consider our text and notice in turn the Psalmist-King's grave lament. And then, blessed compensation, his glorious comfort. First, then, we shill ponder, and may the Holy Spirit make it greatly to profit everyone of us--

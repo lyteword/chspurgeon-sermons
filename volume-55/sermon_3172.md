@@ -1,12 +1,5 @@
 # Sermon 3172 | Bright Prospects for Young Believers
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 25, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 11, 1866.
-
 "But unto you that fear My name shall the Sun of Righteousness arise with healing in His wings; and you shall go forth and grow up as calves of the stall." Malachi 4:2.
 
 [Other Sermons by Mr. Spurgeon upon the same text are Sermons #1020, Volume 18--"THE SUN OF RIGHTEOUSNESS" and #1463B, Volume 25--THE RISING SUN.]

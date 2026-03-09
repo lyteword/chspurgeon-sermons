@@ -1,12 +1,5 @@
 # Sermon 3118 | What Had Become of Peter?
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 12, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE PULPIT, NEWINGTON.
-
 "Now as soon as it was day, there was no small stir among the soldiers about what had become of Peter." Acts 12:18.
 
 WE can very well understand that there would be great excitement. It was the most improbable thing in the world that Peter should escape from custody. In the innermost dungeon, securely chained, watched by a fourfold guard, with no powerful friends outside to attempt a rescue--it was marvelous that, in the morning, the bird had flown! The prison doors were closed and the guards in their places, but Peter, where was he? We marvel not that "there was no small stir among the soldiers about what had become of Peter."

@@ -1,12 +1,5 @@
 # Sermon 3413 | God's Mercy Going Before
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 2, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY10,1870.
-
 "The God of my mercy shall prevent [go before] me." Psalm 59:10.
 
 IF you read this Psalm, you will find that David was in a very grievous plight. He was surrounded by the most cruel and the most false of men. They were ravening like wolves over carrion and endeavoring to destroy his character--and even to take his life. David knew where his resort was. As the conies make their dwellings in the rocks, and as the swallows have built a nest for themselves at God's altar, so David resorted to his God, and to his God alone.

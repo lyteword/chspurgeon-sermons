@@ -1,12 +1,5 @@
 # Sermon 3491 | The Savior's Charity
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 23, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Jesus answered and said unto Aim, What do you want Me to do for you?" Mark 10:51.
 
 THE story of this miracle is wonderfully attractive. It has always been a favorite theme with preachers. From the days of the Apostles and the fathers of the Church they have delighted to dwell upon any single item of it as it is described by the three Evangelists who record it. We have frequently spoken of the incident as a whole--let us, therefore, now confine our attention to the question which Jesus asked of the blind man, "What do you want Me to do for you?" He asks the same question at this good hour--He asks it of blind men and, I think, He asks it of partly blind men, too. There are some of us whose eyes are opened, but whose vision is obscure--we cannot see afar off. Our blessed Lord and Master says to us, as well as to the blind ones, "What do you want Me to do for you?"

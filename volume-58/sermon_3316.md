@@ -1,12 +1,5 @@
 # Sermon 3316 | Their Desired Haven
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 22, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON SUNDAY EVENING, JUNE 17, 1866.
-
 "So He brings them to their desired haven." Psalm 107:30.
 
 TAKEN strictly, according to its original context, the text plainly and powerfully reminds us that our Providential mercies ought never be forgotten--and more especially those remarkable mercies which concern the safety of our life in times of great peril.

@@ -1,12 +1,5 @@
 # Sermon 3374 | Sin's True Character
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 2, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Exceedingly sinful." Romans 7:13.
 
 INTO the connection of these words our time, which is very short this evening, will not permit us to enter. It was something like this--Paul was showing that the Law could not make a man holy and he observes that he had, himself, found that when the Law came into his heart, it excited in him a desire to act contrary to its precepts. There were some actions which he would not have thought of performing until he found that they were forbidden--and then immediately he felt a desire to do them at once! To this a grave objection was raised. This were to make the Law aid and abet sin! Not so, replies the Apostle--it was not the Law that made him sin, for the Law is good--but it was the sinfulness of his heart that could thus turn that which was good into an occasion of evil. He further showed that this was the very design of the Law as given by Moses--to make clear how sinful sin was. The purpose for which it was sent was not to make men holy, but to make men see how unholy they were! It was not the cure of the disease, much less the creator of it, but it was the revealerof the disease that lurked in the constitution of man!

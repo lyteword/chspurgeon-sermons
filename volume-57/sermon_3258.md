@@ -1,12 +1,5 @@
 # Sermon 3258 | Stumbling at the Word
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 13, 1911.
-
-DELIVERED BY C. H. SPURGEON.
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 6, 1864.
-
 "And a stone of stumbling, and a rock of offense, even to them which stumble at the Word, being disobedient." 1 Peter 2:8.
 
 YONDER is a wreck after a terrible tempest. That is all that remains of a once fine vessel and on the wreck, lashed to the mast, I see a number of mariners clinging, almost frost-bitten with the cold and drenched through and through with brine. But there goes the lifeboat, so I trust they will soon all be rescued from their perilous position. I am absolutely certain of one thing with regard to all those who are clinging to that poor wreck of a ship--that there is not a man among them who will raise any objection to being saved! No, whatever may have been their previous position in life, or their habits, or tastes, or anything else--they will all be equally glad to welcome the friendly lifeboat and to be taken on board the vessel of mercy. Yet is it not a strange thing, dear Friends, that when poor humanity has become a total wreck and poor souls are clinging to the sinking ship with hopes that must certainly be disappointed--and when Jesus Christ appears within hail, willing and able to save unto the uttermost--there are multitudes who raise all sorts of objections to being saved by Him? He is not the sort of Savior they would like to have, or His way of saving sinners is not the one that they approve! And there are all manner of difficulties which they invent, which they imagine to be evidences of their wisdom, but which are really only proofs of their folly and vanity. They prefer to be lost rather than to be saved by such a Savior in such a way as He has ordained!

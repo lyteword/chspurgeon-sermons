@@ -1,12 +1,5 @@
 # Sermon 3073 | Thrice Happy Day!
 
-
-(THE NEW YEAR, THE FIRST SABBATH AND THE TIME OF BLESSING) PUBLISHED ON THURSDAY, JANUARY 2, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 1, 1865.
-
 "From this day will I bless you." Haggai 2:19.
 
 I THINK as soon as ever I read that promise, your heart would leap towards it and you would spontaneously say, "Lord, be this the day--the first day of the year, and that day the Lord's Day--make this the day from which You will begin to bless me in a very special manner!" God's blessing is the richest gift which His creatures can receive. To be deprived of it is their greatest calamity! What is Hell? It is the place where God's blessing cannot come. What is Heaven? It is the place where God's blessing is constantly enjoyed without admixture. My God, were there a choice between Your blessing and Heaven, I would sooner choose Your blessing and be out of Heaven, than be in Heaven, if such a thing were possible, unblessed of my God. The highest happiness of a creature is to be blessed by its Creator--and the very highest felicity of the child of God is to have his Father's blessing on his head and in his heart!

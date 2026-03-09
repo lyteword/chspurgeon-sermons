@@ -1,12 +1,5 @@
 # Sermon 3129 | The King's Mowings
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, EARLY IN THE YEAR 1872.
-
 "The king's mowings." Amos 7:1.
 
 CERTAIN lands belonged to the king so far that he always took the first cut of grass for himself and left any aftermath to those who worked upon the land. Now, our great King has His mowings, too. His Church is the field which He has enclosed and blessed. At set seasons the King takes His mowings. Lately, beyond any other time in my life that I remember, the King has been taking His mowings in and around the Church of which He has made me overseer. One has spent many hours at the bedsides of the dying and in trying to console the bereaved. Our loss, if I may venture to call it a loss, as a Church, at the opening of this year was extremely heavy. The King has been taking His mowings among us and has cut down here, one, and there, another. When churches commence with a great many young members, there would naturally not be so many deaths at first, but as we all grow old together, there must be a large proportion of removals from this world into the land above. I purpose to speak a little upon that subject and I shall do so in a threefold way-- first, by way of consolation. Then, by way of admonition. And then by way of anticipation.

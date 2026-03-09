@@ -1,12 +1,5 @@
 # Sermon 3055 | Accomplices in Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 29, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 30, 1873.
-
 "Neither be partaker of other men's sins." 1 Timothy 5:22.
 
 WE have all abundant reason to look at home and see about our own sins. Nothing can be more absurd than for a man to take his hoe and weed everybody else's garden--and leave all the thorns and thistles to flourish on his own plot. The old parable of the man who carried two bags, one behind and one in front, and who put other people's faults into the one in front, and his own into the one at his back, is a very correct representation of the folly of those who have their eyes wide open to see the faults of their neighbors, but are totally blind to their own imperfections. If, as our proverb puts it, "Charity begins at home," so should criticism--and criticism concerning character had better stop there. There is so much dirty linen in our own house needing to be washed that none of us need to take in our neighbor's washing. "Mind your own business," is a command that might have been spoken by Solomon, himself, and the Apostle Paul was inspired to write to the Thessalonians, "Study to be quiet and to do your own business." And he and Peter very sternly condemned those who were "busybodies in other men's matters."

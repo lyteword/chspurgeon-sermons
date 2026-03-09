@@ -1,12 +1,5 @@
 # Sermon 3364 | Surveying the Field
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 24, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 7, 1867.
-
 "And I arose in the night, I and some few men with me: neither told I any man what Godhadput into my heart to do at Jerusalem: neither was there any beast with me, save the beast that I rode upon." Nehemiah 2:12.
 
 NEHEMIAH, it seems, prepared himself for action by taking a survey of the necessities of the case. Although he lived before our Savior's day, he certainly acted upon one of our Savior's maxims about counting the cost, lest, after having begun to build, we should not be able to finish. I like to picture to myself that man of God going by moonlight round all the waste places of the city, compelled here and there to dismount by reason of rubbish, clambering over the fallen stones, leaping, sometimes, with agility from crag to crag of the city's walls--getting in his mind a clear idea of all the city's desolation--and feeling in his heart the pressing, heavy weight and burden of the responsibility which God had thrust upon him. If he had begun his work carelessly and thoughtlessly, he might have failed in it, but having begun months before with prayer, having been guided by Providence so far, yet even now the very first step he must take is a personal survey of the work and a thorough personal acquaintance with the necessities of the case.

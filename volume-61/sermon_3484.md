@@ -1,12 +1,5 @@
 # Sermon 3484 | Daniel--a Pattern for Pleaders
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 4, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 25, 1870.
-
 "O Lord, hear; O Lord, forgive; O Lord, listen and do; defer not, for Your own sake, O my God, for Your city and Your people are called by Your name." Daniel 9:19.
 
 DANIEL was a man in very high position in life. It is true he was not living in his own native land, but, in the Providence of God, he had been raised to great eminence under the dominion of the country in which he dwelt. He might, therefore, naturally have forgotten his poor kinsmen--many have done so. Alas, we have known some that have even forgotten their poor fellow Christians when they have grown in Grace and have thought themselves too good to worship with the poorer sort when they have grown rich in this world's goods. But it was not so with Daniel. Though he had been made a president of the empire, yet he was still a Jew--he felt himself still one with the seed of Israel. In all the afflictions of his people he was afflicted, and he felt it his honor to be numbered with them and his duty and his privilege to share with them all the bitterness of their lot. If he could not become despised and as poor as they, if God's Providence had made him to be distinguished, yet his heart would make no distinction--he would remember them and pray for them, and would plead that their desolation might yet be removed.

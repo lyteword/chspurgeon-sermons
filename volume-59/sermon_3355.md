@@ -1,12 +1,5 @@
 # Sermon 3355 | Life's Inevitable Burden
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 22, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 16, 1867.
-
 "For every man shall bear his own burden." Galatians 6:6.
 
 IN pondering Scripture Truth, we must not strain metaphors, nor use figures of speech as though they were literal statements. You have an instance of the truth of this remark in this Chapter. In one verse the Apostle says, "Bear you one another's burdens, and so fulfill the Law of Christ," while in the verse of our text, he says, "Every man shall bear his own burden." Still, he is not contradicting himself. He would be if he were speaking literally of burdens, but he is speaking metaphorically and, consequently, he uses the figure first in one way and then in another. It may be useful to us, Brothers, to learn never to draw arguments and doctrines from metaphors. Many do and there are many supposed doctrines which really have no better ground-work than mere metaphors. I remember hearing one contending against the chastening of God's people and he urged that the Church was the bride of Christ and that it was impossible that Christ, as the Husband of the Church, should in any way chasten or strike His own spouse, which would be a very reasonable thing to say of a man. If the metaphor ran on four legs, the argument might have been correct, but as no metaphor is intended so to do, and is only to be understood in the sense intended by the person employing it, the argument is fallacious and valueless! I have heard others say that true Christians are citizens of Heaven and, consequently, we ought not to exercise our votes in political matters! This is another piece of utterly illogical reasoning because we might as well say to Christians that they ought not to eat animal food as they form the Lord's flock, and sheep must not, and cannot, eat animal food! The fact is, the reasoning from metaphor is always risky and sometimes proves quite absurd!

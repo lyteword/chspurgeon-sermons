@@ -1,12 +1,5 @@
 # Sermon 2991 | What We Have, and Are to Have
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 7, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 28, 1876.
-
 "Now our Lord Jesus Christ Himself, and God, our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts and establish you in every good word and work." 2 Thessalonians 2:16,17
 
 EVERY man who is engaged in a good work desires that it may be lasting. "Establish You the work of our hands upon us; yes, the work of our hands establish You it," was not only a very appropriate prayer from the mouth of Moses, who had led the children of Israel through the wilderness, but it is also a very appropriate prayer to be presented by every minister of Jesus Christ. We desire to build that which will endure the fire of the great testing day--not wood, hay and stubble, but gold, silver and precious stones.

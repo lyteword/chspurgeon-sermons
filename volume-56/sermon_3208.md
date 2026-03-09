@@ -1,12 +1,5 @@
 # Sermon 3208 | The Faithful Olive Tree
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 28, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 29, 1879.
-
 "The trees once went forth on a time to anoint a king over them; and they said unto the olive tree, Reign over us. But the olive tree said to them, Should I cease giving my oil, wherewith by me they honor God and man, and go to be promoted over the trees?" Judges 9:8,9.
 
 HERE then, in parable, a temptation was set before the olive tree. It was urged to become ambitious and aspire to reign over the rest of the trees. We gather from Jotham's parable, at the outset, that we, also, are all liable to temptation. Though you may think yourself to be as firmly rooted and as useful as the olive tree, yet may the fascinating whisper be heard by you, "Come and reign over us," and though you should be as sweet and gentle as the fig tree, yet there may come to you the wily invitation, "Come and reign over us." And though you should be as fruitful as the vine, yet to you in the Lord's own vineyard there may come the serpent voice, "Come and reign over us." We shall never be out of the way of temptation so long as we grow in this earthly garden! Our Lord Himself had a stern conflict with the adversary at the commencement of His ministry, for He came up from the waters of Baptism to be tempted of the devil, and at the close of that ministry, "His sweat was, as it were, great drops of blood falling down to the ground" in the agony of His spirit when the powers of darkness assailed Him in Gethsemane. We must expect, in our measure, to be conformed to His likeness in this respect. The serpent will bruise our heel as well as our Lord's. Even into quiet like that of an olive garden, there will come the tempter and the temptation! It is not possible for us to be located anywhere in this world where our surroundings will be clear from danger, for if the serpent comes not into the olive groves, yet the other trees may tempt us. What, therefore, I say unto you, I say unto all, "Watch," for we are not ignorant of the devices of evil and those devices will surely be exercised upon us. Therefore let us cry unto the Strong for strength and set a double watch against the world, the flesh and the devil--

@@ -1,12 +1,5 @@
 # Sermon 3049 | "Going and Weeping"
 
-
-A SERMON PUBLISHED ON TUESDAY, JULY 18, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 9, 1871.
-
 "Going and weeping." Jeremiah 50:4.
 
 POSSIBLY someone says, on hearing my text, "I like better to be going and singing." Yes, my Friend, and I do not blame you for making such a choice. As long as you can go and sing in the name of the Lord, let nothing stop you from doing so. It is meet that we who have been redeemed by Christ from destruction and are heirs of Heaven, should make merry and be glad. We should "rejoice in the Lord always," yet we must not despise others if they should seem to give more prominence to another phase of spiritual experience, namely, "going and weeping," for there are sons of sorrow on earth who will undoubtedly be sons of joy in Heaven. Among the sweetest flowers that bloom in the Savior's garden are those that, like the snowdrops and the lilies of the valley, hang down their heads.

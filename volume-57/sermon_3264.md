@@ -1,12 +1,5 @@
 # Sermon 3264 | God's Care of Elijah
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 7, 1864.
-
 "And it shall be that you shall drink from the brook, and I have commanded the ravens to feed you there." 1 Kings 17:4.
 
 WHAT a mighty master of the art of prayer was Elijah the Tishbite! He was one of those who had the power to shut up Heaven so that it did not rain. He did not merely prophesy, "As the Lord God of Israel lives, before whom I stand, there shall not be dew nor rain but according to my word," but he prayed that it might be so--so that he was not only the messenger of the drought, but in some sense, the cause of it. It was his act that stopped the bottles of Heaven! It was his prevailing prayer which brought down that heavy chastisement upon the sinful people.

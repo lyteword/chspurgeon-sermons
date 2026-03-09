@@ -1,16 +1,5 @@
 # Sermon 3512 | Are You Mocked?
 
-A Sermon
-
-
-Published on Thursday, May 18th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [20]the Metropolitan Tabernacle, Newington.
-
 ON Lord's-day Evening, September 17th, 1871.
 
 "Ye have shamed the counsel of the poor, because the Lord is his refuge."--Psalm 14:6.

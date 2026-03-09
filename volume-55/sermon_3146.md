@@ -1,12 +1,5 @@
 # Sermon 3146 | The Power of Christ's Presence
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 27, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 2, 1873.
-
 "Therefore that disciple whom Jesus loved said unto Peter, It is the Lord." John 21:7.
 
 I AM going to speak, on this occasion, to my Brothers and Sisters who are workers for Christ. When our Lord met His Apostles by the lake and provided for them that memorable meal, He did not think it out of place to say to Peter, "Feed My lambs; feed My sheep." These practical exhortations were regarded by Him as quite in keeping with holy fellowship and so, though we are coming to the Communion Table at the close of this service, I feel that I am only right in speaking upon practical matters to you, my fellow laborers and fellow soldiers in the work and warfare of Christ. And I pray that God will, through me, speak to all here who love our Lord and Savior Jesus Christ.

@@ -1,12 +1,5 @@
 # Sermon 3220 | "A Time to Love"
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 20, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1863.
-
 "A time to love." Ecclesiastes 3:8.
 
 IF you will look at our text, dear Friends, you will see that it is very ominously followed by the words, "and a time to hate." We are changeable creatures and we live in an ever-changing world--and this Chapter gives an accurate summary of how most of our lives are spent! "A time to be born, and a time to die; a time to plant, and a time to pluck up that which is planted; a time to kill, and a time to heal; a time to break down, and a time to build up; a time to weep, and a time to laugh; a time to mourn, and a time to dance; a time to cast away stones, and a time to gather stones together; a time to embrace, and a time to refrain from embracing; a time to get, and a time to lose; a time to keep and a time to cast away; a time to rend, and a time to sew; a time to keep silence, and a time to speak; a time to love, and a time to hate; a time of war, and a time of peace." Ours is a checkered life. We are not long in any one state and we quickly change from one condition to another--which is sometimes better, but sometimes worse.

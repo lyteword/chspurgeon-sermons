@@ -1,12 +1,5 @@
 # Sermon 3023 | John Mark--or, Haste in Religion
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 17, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
-
 "And they all forsook Him, and fled. And there followed Him a certain young man, having a linen cloth cast about his naked body; and the young men laid hold on him: and he left the linen cloth, and fled from them naked." Mark 14:50-52.
 
 THIS little episode in the narrative of the Evangelist is very singular. One wonders why it is introduced, but a moment's reflection will, I think, suggest a plausible reason. It strikes me that this "certain young man" was none other than Mark, himself. He was probably asleep and, awakened by a great clamor, he asked what it was about. The information was speedily given, "The guards have come to arrest Jesus of Nazareth." Moved by sudden impulse, not thinking of what he was doing, he rises from his bed, rushes down, pursues the troopers, dashes into the midst of their ranks as though he, alone, would attempt the rescue when all the disciples had fled. The moment the young men lay hold upon him, his heroic spasm is over--his enthusiasm evaporates, he runs away, leaves behind the linen cloth that was loosely wrapped about his body--and makes his escape. There have been many, since then, who have acted as Mark did. And it seems to me that this digression from the main narrative is intended to point a moral.

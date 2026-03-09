@@ -1,12 +1,5 @@
 # Sermon 2983 | A Wonderful Transformation
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 12,1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 3, 1875.
-
 "Your sorrow shall be turned into joy." John 16:20.
 
 You all know that at that time, our Lord was speaking of His death which would cause the deepest grief to His own people, while the ungodly world would rejoice and laugh them to scorn. So He bade them look beyond the immediate present into the future and believe that, ultimately, the cause of their sorrow would become a fountain of perpetual joy to them. It is always well to look a little ahead. Instead of deploring the dark clouds, let us anticipate the fruits and the flowers that will follow the descent of the needed showers. We might be always wretched if we lived only in the present, for our brightest time is yet to come. We are now, as Believers in the Lord Jesus Christ, only in the twilight of our day-- the high noon shall come to us by-and-by.

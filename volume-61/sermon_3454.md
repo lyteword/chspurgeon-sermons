@@ -1,12 +1,5 @@
 # Sermon 3454 | Circumcision and Uncircumcision
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 15, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 6, 1866.
-
 "For in Jesus Christ neither circumcision avails anything nor uncircumcision, but faith which works by love." Galatians 5:6.
 
 MAN appears to the most superficial observer to have, at any rate, two parts--his outward bodily form and constitution--and his inward, invisible, but essential self. There are some persons who care nothing for the inner man, who think that to educate the body and to have it in the finest state for athletic exercises is sufficient, but these persons are very few and very foolish, for the commonsense of mankind now holds that the mind must be trained, that the mental faculties must be put into healthy order and that the inner man must be cared for as well as the outer man. Who shall venture to say that the flesh is more important than the soul? He would be foolish who would attach no importance to the body. "Verily, bodily exercise profits a little," says the Apostle, though it may be but a little. We are not to despise the body, nor to neglect it. We are not to consider it as a thing utterly unworthy of our regard in any respect. "Know you not that your bodies are the temples of the Holy Spirit" and, therefore, are neither to be despised, nor to be defiled? But, still, wisdom tells us that the inner man is more important than the outer and that we must care for that at all hazards, and see to its interests, come what may of the interests of the body.

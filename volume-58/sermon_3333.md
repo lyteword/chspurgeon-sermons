@@ -1,12 +1,5 @@
 # Sermon 3333 | God's King Magnified
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 19, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 2, 1866.
-
 "His enemies will I clothe with shame: but upon Himself shall His crown flourish." Psalm 132:18.
 
 THE Lord Jesus Christ communicates much to men with whom He comes in contact and has a mighty influence upon them. He is blessed and He is made a blessing. To those who love Him, Jesus Christ becomes a savor of life unto life. To those who are rebellious and continue to despise Him, He becomes a savor of death unto death. Our Savior, then, has an influence upon all those with whom He comes in contact and association. If I compare His Human Nature with clay, I must compare it with the scented clay which yields a perfume on all sides. You cannot hear of Jesus Christ without either getting a blessing or involving the responsibility of rejecting a blessing. I repeat it--He becomes a blessing to all those who are round about Him, or else, if that blessing is not received, it brings guilt upon the souls of those who reject Him. He is either the stone on which we build our hope and our trust, or else He becomes a stone of stumbling and a rock of offense to those who stumble at His Word, being disobedient.

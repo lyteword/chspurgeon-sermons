@@ -1,12 +1,5 @@
 # Sermon 2942 | The Objective of the Lord's Supper
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 29, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 2, 1877.
-
 "For as often as you eat this bread, and drink this cup, you proclaim the Lord's death till He comes." 1 Corinthians 11:26.
 
 IT seems to me that the Lord's Supper should be received by us often. When the Apostle says, in our text, "As often as you eat this bread, and drink this cup," and our Lord said, in instituting the ordinance, "This do you, as often as you drink it, in remembrance of Me," I will not say that their words absolutely teach that we should frequently come to the Communion Table, but I do think they give us a hint that if we act rightly, we shall often observe this Supper of the Lord. Once or twice in the year can hardly be thought to be a sufficiently frequent memorial of one so dear. In the early Church, it is possible that they broke bread every day--the expression, "breaking bread from house to house," may signify that. From the records preserved in the Acts of the Apostles, it appears that when the saints came together on the first day of the week, they usually broke bread. If there is any rule as to the time for the observance of this ordinance, it surely is every Lord's day. At any rate, let it be often. Do not, dear Friends absent yourselves long from the Table, but since your Lord has instituted this Supper as a necessary and admirable reminder of His death, take care that you celebrate it often.

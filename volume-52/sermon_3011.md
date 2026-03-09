@@ -1,12 +1,5 @@
 # Sermon 3011 | Faith First, Confession Following
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 25, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 4, 1867.
-
 "For with the heart, man believes unto righteousness, and with the mouth, confession is made unto salvation." Romans 10:10.
 
 [For two other sermons on this text, see Numbers 519 and 520, Volume 9--BELIEVING WITH THE HEART and CONFESSION WITH THE MOUTH]

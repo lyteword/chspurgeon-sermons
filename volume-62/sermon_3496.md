@@ -1,18 +1,5 @@
 # Sermon 3496 | Our Glorious Transforming
 
-A Sermon
-
-
-Published on Thursday, January 27th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [4]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, September 3rd, 1871.
-
 "But now in Christ Jesus, ye, who sometimes were far off, are made nigh by the blood of Christ."--Ephesians 2:13.
 
 I DO not want you to feel at this time as if you were listening to a sermon, or to any sort of set discourse, but rather I should like, if it were possible, that you should feel as if you were alone with the Saviour, and were engaged in calm and quiet meditation; and I will try to be the prompter, standing at the elbow of your contemplation, suggesting one thought and then another; and I pray, dear brethren and sisters in, Christ, as many of you as are truly in him, that you may be able so to meditate as to be profited, and to say at the close, "My meditation on him was sweet. I will be glad in his name." There are three very simple things in the text. The first is what we were. Some time ago "we were far off." But secondly, what we are--we are "made nigh" And then there is the how, the means of this great change. It is "in Christ Jesus," and it is added, "by the blood of Christ." First, then, let us with humility consider, as believers:--

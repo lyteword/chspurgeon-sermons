@@ -1,12 +1,5 @@
 # Sermon 3419 | God, the Husband of His People
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 13, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 30, 1869.
-
 "Although I was a Husband unto them, says the Lord." Jeremiah 31:32.
 
 SIN is greatly aggravated by the mercy of God, of which the sinner has been a partaker. Sin in a child of God is peculiarly sinful. Instead of its being a trifle, as some men seem to think, it is a very solemn matter, indeed. To have had deep draughts of Divine Love and then to deeply offend against that love is no light thing. This seems to have been the crying part of Israel's sin. "Although I was a Husband unto them."

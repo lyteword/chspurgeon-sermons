@@ -1,12 +1,5 @@
 # Sermon 2997 | "Tempted of the Devil"
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 19 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
-
 "Then Jesus was led up by the Spirit into the wilderness to be tempted of the devil." Matthew 4:1.
 
 WHAT a terrible incident! Well may our hearts be moved with fear and our blood run cold as we read it! Our adversary the devil goes about like a roaring lion, seeking whom he may devour. We are taught by our Lord Jesus to pray, "Lead us not into temptation, but deliver us from the Evil One." What we are taught to seek or shun in prayer we should equally pursue or avoid in action. Very warily, therefore, should we endeavor to avoid temptation, seeking as to walk in the path of obedience that we may never be guilty of tempting the devil to tempt us! We are not to enter the thicket in search of the lion. Dearly might we pay for such presumption. The lion may cross our path, or come to our houses and doubtless he will, but we have nothing to do with hunting this lion. He that meets with him, even though he wins the day, will find it sharp work and a stern struggle! Let the Christian pray that he may be spared the encounter. Our Savior, who had experience of what temptation meant, thus earnestly admonished His disciples, "Pray that you enter not into temptation."

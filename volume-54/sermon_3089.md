@@ -1,12 +1,5 @@
 # Sermon 3089 | A Sermon on a Grand Old Text
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 23, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "This is a faithful saying and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief." 1 Timothy 1:15.
 
 [Other Sermons by Mr. Spurgeon, upon the same text, are as follows--Sermon #184, Volume 4--THE GLORIOUS GOSPEL; #1345, Volume 23--FOR WHOM IS THE GOSPEL MEANT?; #1416, Volume 24--THE FAITHFUL SAYING; #1837, Volume 31--A GREAT GOSPEL FOR GREAT SINNERS and #2300, Volume 39--THE WHOLE GOSPEL IN A SINGLE VERSE]

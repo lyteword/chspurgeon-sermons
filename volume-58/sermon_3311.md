@@ -1,12 +1,5 @@
 # Sermon 3311 | The Water and the Blood
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 18, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But one of the soldiers with a spear pierced His side, and forthwith came there out blood and water." John 19:34.
 
 IT is with much fear and trembling that I usually stand upon this platform--not that I shrink before the face of the multitude however large, but the weight of the subject which I have continually to bring before your minds fills my own soul with awe. And yet it is with more than usual anxiety I approach my subject this evening, because although it is full of tender interest and touching pathos, I feel that without the unction of the Holy Spirit, it would be insipid and unprofitable. And yet, on the other hand, with that Divine anointing, it is one of the richest topics that can possibly engage our meditation!

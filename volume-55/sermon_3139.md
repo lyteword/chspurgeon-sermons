@@ -1,12 +1,5 @@
 # Sermon 3139 | A Promise for the Blind
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 8, 1909.
-
-DELIVERED BY C. H. SPURGEON, AT THE BAPTIST CHAPEL, CHURCH STREET, BLACKFRIARS ROAD, ON TUESDAY EVENING, APRIL 3, 1855.
-
-[ON BEHALF OF THE CHRISTIAN BLIND RELIEF SOCIETY.]
-
 "Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child, and she that travails with child together: a great company shall return there." Jeremiah 31:8.
 
 POOR Israel, as a nation, had its ups and downs. It was sometimes in captivity and soon it experienced a deliverance. At one time it was diminished and brought low through affliction, persecution, or sorrow. At another, it was multiplied and increased exceedingly. It was the deliverance from one of these evil seasons that Jeremiah was commissioned to announce by the promise that the Lord's people would come again to their own land.

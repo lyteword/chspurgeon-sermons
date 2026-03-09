@@ -1,12 +1,5 @@
 # Sermon 3093 | The Church of God and the Truth of God
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 21, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, SEPTEMBER 14, 1856.
-
 "The house of God, which is the Church of the living God, the pillar and ground of the Truth." 1 Timothy 3:15.
 
 [This sermon was preached during "The Rivulet Controversy," of which an account is given in Volume II of C. H. Spurgeon's Autobiography, in the chapter entitled, "The 'Down-Grade' Controversy Foreshadowed." It was a very long discourse--nearly one-third longer than the twelve pages here given-- and although it was delivered more than half a century ago, its message is as timely, now, as it was then.]

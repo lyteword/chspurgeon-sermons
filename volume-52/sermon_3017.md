@@ -1,12 +1,5 @@
 # Sermon 3017 | Seeing God's Goodness Here
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 6, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 1, 1876.
-
 "I had fainted, unless I had believed to see the goodness of the Lord in the land of the living." Psalm 27:13.
 
 WE were favored with very much of God's goodness last Sabbath evening, when we considered the rule of Grace in guiding a Believer's life, namely, that instead of seeing in order to believe, he has learned to believe in order to see. [Sermon

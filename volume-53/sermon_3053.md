@@ -1,12 +1,5 @@
 # Sermon 3053 | Jesus Christ's Idiom
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 15, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 19, 1873.
-
 "Jesusanswered, Verily, verily." John 3:5.
 
 THIS expression, "Verily, verily," seems to me to have been the peculiar idiom of our Lord Jesus Christ. He has absolutely forbidden His people ever to take an oath. His command upon that matter is most explicit, "I say unto you, Swear not at all; neither by Heaven; for it is God's Throne: nor by the earth; for it is His footstool: neither by Jerusalem; for it is the city of the great King: neither shall you swear by your head, because you cannot make one hair white or black. But let your communication be, Yes, yes; No, no: for whatever is more than these comes of evil." My text was Jesus Christ's strongest form of affirmation--when He wished to speak most emphatically, He said, "Verily, verily, I say unto you." Every prominent public speaker has his own peculiar idioms and very much of the man's character will be found in the idioms that he uses. And I may add that the attention which the man deserves may sometimes be gauged by his idioms, for as his style of speaking will reveal to you the man, you will discover how far you ought to lend him your ears. If, from his speech, you judge that he is flippant, or insincere, or that there is something sinister in his motives, or that he is aiming at the display of himself rather than at the proclamation of the truth, you may straightway say, "Then there is no particular reason why I should listen to him." But if, from the very idiomatic force of the words which he uses, you feel that the man is true, sincere and earnest, then you say, "I shall be wise to give heed to his words and to let his thoughts operate upon my own."

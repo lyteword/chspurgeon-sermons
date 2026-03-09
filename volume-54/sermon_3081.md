@@ -1,12 +1,5 @@
 # Sermon 3081 | The Gracious Lips of Jesus
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 27, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "Grace is poured into Your lips." Psalm 45:2.
 
 WHAT a never-ending theme there is in the name and Person of our blessed Lord and Savior Jesus Christ! The poets of Scripture never mention His Person but they fall into rhapsodies at once! They never sing of His name, or of His glories, but at once they seem to be so enchanted by the spirit of poetry that they soar up with ecstasies of joy and their love scarcely knows how to find language to express itself. Love sometimes leaps over language among sensitive men-- and so it does more palpably in Sacred Scripture. Take, for instance, the Canticles. There, love has strained language to the uttermost in order to embody its vehement passion. Yes, so strained it, that some of us, not so filled with love to God, can scarcely appreciate its glowing utterance. Here, too, you see, the Psalmist, with harp in hand, no sooner begins to meditate on the Person of the Messiah, than he cries, "My heart bubbles up with a good matter: I speak of the things which I have made touching the king: my tongue is the pen of a ready writer. You are fairer than the children of men: Grace is poured into Your lips."

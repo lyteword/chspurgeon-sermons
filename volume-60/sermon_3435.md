@@ -1,12 +1,5 @@
 # Sermon 3435 | Sanctified Sorrow
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 3, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Oyou afflicted, tossed with tempest, and not comforted! Behold, I will Jay your stones with fair colors, and lay your foundations with sapphires. And I will make your windows of agates, and your gates of carbuncles, and all your borders of pleasant stones." Isaiah 54:11,12.
 
 Who can doubt that this promise belongs to the Gentile Church, since it has been so richly fulfilled in her history? For many an age the light did not shine upon heathen lands. One spot, alone, upon all the earth received the genial beams of the Sun of Righteousness. Vast continents, thickly populated, full of life, bustle and enterprise, lay spread out as a moral waste, barren and neglected. But little Revelation of God had found its way among the teeming multitudes of the population. To them the dispensation of the Grace of God had not been proclaimed. The mystery of Christ was not as yet made known unto the sons of men. The Israelites had a monopoly of Covenant privileges. But now in these latter days, how wondrously are the tables turned! The branches of the wild olive have been grafted in "that the Gentiles should be fellow heirs and of the same body, and partakers of His promise in Christ by the Gospel." Thus the Lord has taken unto Himself a numerous seed once ignored by Israel, "which in time past were not a people, but are now the people of God: which had not obtained mercy, but now have obtained mercy." Not after the lineage of the flesh, but according to the nobler lineage of faith, the same are the children of Abraham--and with faithful Abraham do they inherit the Covenant mercy of God. This day the barren woman keeps house and is the joyful mother of many children. The Gentile Church has her stones of sapphire--God is in the midst of her to make her glad!

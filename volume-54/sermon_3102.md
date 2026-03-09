@@ -1,12 +1,5 @@
 # Sermon 3102 | The Forerunner
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 23, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 16, 1874.
-
 "Where the Forerunner is for us entered, even Jesus." Hebrews 6:20.
 
 THE Jewish high priest went within the veil once a year and represented the people there, but he was never their forerunner, for no one followed him into the Most Holy Place. His entrance within the veil did not admit another human being--and when he came forth, the veil again concealed the secret glories of the Most Holy Place even from him for another year and from all others at all times--so that neither Aaron, nor any other high priest of his line could ever be called a forerunner within the veil. This is one of the many instances in which our Lord Jesus Christ, as the great Antitype, far excels all the types. They do, as it were, represent the hem of His garment, but the glorious majesty and fullness of His high priestly office, they are not able to set forth.

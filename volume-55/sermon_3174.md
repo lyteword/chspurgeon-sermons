@@ -1,12 +1,5 @@
 # Sermon 3174 | Concentration and Diffusion
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 9, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then took Mary a pound of ointment of spikenard, very costly, and anointed the feet of Jesus, and wiped His feet with her hair: and the house was filled with the odor of the ointment." John 12:3.
 
 YOU will notice, if you read the narrative attentively, that the two sisters and the brother who made up the favored household at Bethany, though all most truly loving Jesus, had each one a different way of showing that love. Even so, true children of God do not always feel moved to serve the Lord Jesus in the same fashion, or to express their love to Him in precisely the same manner.

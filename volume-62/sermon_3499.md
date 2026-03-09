@@ -1,18 +1,5 @@
 # Sermon 3499 | The Bliss of the Glorified
 
-A Sermon
-
-
-Published on Thursday, February 17th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [7]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, August 13th, 1871.
-
 "They shall hunger no more, neither thirst any more, neither shall the sun light on them, nor any heat."--Revelation 7:16.
 
 WE cannot too often turn our thoughts heavenward, for this is one of the great cures for worldliness. The way to liberate our souls from the bonds that tie us to earth is to strengthen the cords that kind us to heaven. You will think less of this poor little globe when you think more of the world to come. This contemplation will also serve to console us for the loss, as we call it, of those who have gone before. It is their gain, and we will rejoice in it. We cannot have a richer source of consolation than this, that they who have fallen asleep in Christ have not perished; they have not lost life, but they have gained the fullness of it. They are rid at all that molests us here, and they enjoy more than we as yet can imagine. Cheer your hearts, ye mourners, by looking up to the gate of pearl, by looking up--to those who day without night surround the throne of their Redeemer. It will also tend to quicken our diligence if we think much of heaven. Suppose I should miss it after all! What if I should not so run that I may obtain! If heaven be little, I shall be but a little loser by losing it; but if it be indeed such that the half could never be told us, then, may God grant us diligence to make our calling and election sure, that we may be certain of entering into this rest, and may not be like the many who came out of Egypt, but who perished in the wilderness and never entered into the promised land. All things considered, I know of no meditation that is likely to be more profitable than a frequent consideration of the rest which remaineth for the people of God. I ask, then, for a very short time that your thoughts may go upward to the golden streets.

@@ -1,12 +1,5 @@
 # Sermon 3280 | Christ's Prayer and Plea
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 18, 1866.
-
 "Preserve Me, O God: for in You do Iput My trust." Psalm 16:1.
 
 I BELIEVE that we have in this verse a prayer of the Lord Jesus Christ. Some portions of this Psalm cannot apply to anyone but the Savior. And we have the examples of Peter and Paul to warrant us in saying that in this Psalm, David spoke of Jesus Christ. There is no apparent division in the Psalm, so that as one part of it refers most distinctly to Christ, we are justified in concluding that the whole of it refers to Him and belongs to Him! But we know that whatever belongs to Christ belongs, also, to all His people because of their vital union with Him, so we shall treat the text, first, as our Savior's ownprayer. And then, secondly, we shall regard it also as theprayer of the followers of the Lamb.

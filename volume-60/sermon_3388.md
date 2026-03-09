@@ -1,12 +1,5 @@
 # Sermon 3388 | Soul-threshing
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 8, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the black cummin are not threshed with a threshing instrument, neither is a cartwheel turned about upon the cummin, but the black cummin are beaten out with a stick and the cummin with a rod. Bread flour must be ground; therefore he does not thresh it forever, nor break it with his cartwheel, nor bruise it with his horsemen." Isaiah 28:27,28.
 
 The art of farming was taught to man by God. He would have starved while he was discovering it, so the Lord, when He sent him out of the Garden of Eden, gave him a measure of elementary instruction in agriculture, even as the Prophet puts it, "His God did instruct him to discretion and did teach him." God has taught man to plow, to break the clods, to sow the different kinds of grain and to thresh out the different orders of seeds.

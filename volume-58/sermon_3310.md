@@ -1,12 +1,5 @@
 # Sermon 3310 | Prompt Obedience
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 11H, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 17, 1866.
-
 "As soon as they hear of me, they shall obey me: the strangers shall submit themselves unto me." Psalm 18:44.
 
 THERE is no doubt that we have David speaking to us in this Psalm, but it is equally certain that we must not limit it to David. Paul quoted verses 2 and 49 as applying to David's Lord, and we shall not be wrong in following his example with regard to our text.

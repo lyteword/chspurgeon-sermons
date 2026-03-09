@@ -1,12 +1,5 @@
 # Sermon 3466 | A Warning to Believers
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 8, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 16, 1870.
-
 "Let no man beguile you of your reward." Colossians 2:18.
 
 THERE is an allusion here to the prize which was offered to the runners in the Olympic games. And at the outset it is well for us to remark how very frequently the Apostle Paul conducts us by his metaphors to the racecourse. Over and over again he is telling us so to run that we may obtain, bidding us to strive and, at other times, to agonize, and speaks of wrestling and contending. Ought not this make us feel what an intense thing the Christian life is--not a thing of sleepiness or haphazard, not a thing to be left, now and then, to a little superficial consideration? It must be a matter which demands all our strength, so that when we are saved there is a living principle put within us which demands all our energies and gives us energy over and above any that we ever had before! Those who dream that carelessness will find its way to Heaven have made a great mistake. The way to Hell is neglect, but the way to Heaven is very different. "How shall we escape if we neglect so great a salvation?" A little matter of neglect brings you to ruin, but our Master's words are, "Strive to enter in at the straight gate, for many, I say unto you, shall seek"--merely seek--"to enter in, and shall not be able." Striving is needed more than seeking! Let us pray that God the Holy Spirit would always enable us to be in downright, awful earnest about the salvation of our souls. May we never count this a matter of secondary importance, but may we seek first and beyond everything else, the Kingdom of God and His righteousness. May we lay hold on eternal life--may we so run that we may obtain.

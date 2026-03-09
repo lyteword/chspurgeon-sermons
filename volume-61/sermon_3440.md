@@ -1,12 +1,5 @@
 # Sermon 3440 | Attention!
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 7, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hear you Him." Matthew 17:5.
 
 WHEN our Lord Jesus Christ was transfigured, there came a Voice from the bright, overshadowing cloud, which said, "This is My Beloved Son, in whom I am well pleased. Hear you Him." It was the Voice of the Father concerning His Son--a testimony to His Person, a notification of His office, an announcement of His authority to teach and to legislate. You can understand how imperative it then was for those who heard it to heed Him. But now He is gone up from us. He has entered into the excellent Glory--He no more teaches in our streets, yet still, as though present with us, He speaks to us. By the written Word, His sayings are handed down to us Infallibly. Often times, when the Holy Spirit rests upon God's servants, they become as the voice of Christ to us, and when that same blessed Spirit, as the Comforter, brings to our remembrance the things of Christ, does it not seem as though Jesus, Himself, spoke to our souls? The admonition is not out of date--it has not lost its telling point or its vital force. Still does the Father say to us concerning His well-beloved Son, "Hear you Him." Let us proceed to meditate on this sacred charge. The three little words may give rise to four short questions. Why? What? How? When?

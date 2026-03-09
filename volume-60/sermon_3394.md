@@ -1,12 +1,5 @@
 # Sermon 3394 | "Who Is This?"
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 19, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 19, 1869.
-
 "When He was come into Jerusalem, all the city was moved, saying, 'Who is this?'" Matthew 21:10.
 
 THIS was not the first time that question had been asked, or asked concerning the same Person. "Who is this?" is a common question in reference to our Lord. "Who is this that comes from Edom, with dyed garments from Bozrah?" "Who is this king of glory?" and so on. Doubtless, the angels who are represented as standing on the Mercy Seat gazing down upon its golden brightness, desired to look into this very question in the olden times, and often said to one another, "Who is this?" We hear the Prophet speak of One who is anointed with the oil of gladness above His fellows, and is therefore Man, but He is called by the same Prophet equal with God, Fellow of the Eternal! How can this be? "Who is this?" The subject of the Incarnation of a pure Spirit such as God is, in human flesh, must have been staggering even to the intellect of seraphs--and again and again they must have said, one to another, "Who is this?"

@@ -1,12 +1,5 @@
 # Sermon 3314 | God in Nature and in Revelation
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 8, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 11, 1866.
-
 "The Law of the LORD is perfect, converting the soul. The testimony of the LORD is sure, making wise the simple. The statutes of the LORD are right, rejoicing the heart: the commandment of the Lord is pure, enlightening the eyes. The fear of the LORD is clean, enduring forever: the judgments of the LORD are true and righteous altogether." Psalm 19:7-9.
 
 [Another Sermon by C. H. Spurgeon upon the first clause of verse 7 is #2870, Volume 50--REVELATION AND CONVERSION.]

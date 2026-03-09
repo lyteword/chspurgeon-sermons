@@ -1,18 +1,5 @@
 # Sermon 3493 | Daily Blessings for God's People
 
-A Sermon
-
-
-Published on Thursday, January 6th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [1]the Metropolitan Tabernacle, Newington
-
-On Thursday Evening, 21st September , 1871.
-
 "Blessed be the Lord, who daily loadeth us with benefits, even the God of our salvation. He that is our God is the God of salvation, and unto God the Lord belong the issues from death."--Psalm 68:19-20.
 
 WE observe that this Psalm is a very difficult one. One of the ablest commentators calls it a titanic Psalm. It is truly a giant Psalm, and to master it means much labour. Yet it is by no means difficult to understand when it comet to practical duties, and to those doctrines which are vital. For instance, the two verses before us are very simple and do not need any explanation, but only need to be impressed upon our memory. So is it always throughout Holy Scripture; wherever there are difficult places, they do not touch vital truths. The matter of our salvation is plain enough. The Book of Revelation may be difficult, but not the Gospel according to Matthew. With regard to the future, there may be many clouds, but with regard to that blessed day which is past, which was the crisis of the world's history, when our Saviour hung upon the tree, the darkness is past, and the true light shineth there. Don't, therefore, busy yourselves most about those things which are most difficult, for they are usually of least importance. Concern your heart most with the simplicities of the gospel, for it is there, in the way, the truth, and the life, that the essential matter lies.

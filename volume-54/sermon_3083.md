@@ -1,12 +1,5 @@
 # Sermon 3083 | Comfort for Those Whose Prayers Are Feeble
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 12, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Hide not Your ear at my breathing." Lamentations 3:56.
 
 YOUNG beginners in Grace are very apt to compare themselves with advanced disciples and so to become discouraged. And tried saints fall into the same habit. They see those of God's people who are upon the mountain, enjoying the light of their Redeemer's Countenance and, comparing their own condition with the joy of the saints, they write bitter things against themselves and conclude that surely, they are not the people of God! This course is as foolish as though the lambs should suspect themselves not to be of the flock because they are not sheep, or as though a sick man should doubt his existence because he is not able to walk or run as a man in good health. But since this evil habit is very common, it is our duty to seek after the dispirited and cast-down ones and comfort them. That is our errand in this short discourse. We hear the Master's words, "Comfort you, comfort you My people," and we will endeavor to obey them with His Spirit's help.

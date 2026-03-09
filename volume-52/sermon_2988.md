@@ -1,12 +1,5 @@
 # Sermon 2988 | Great Pardon for Great Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 17, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
-
 "For Your name's sake, O Lord, pardon my iniquity, for it is great." Psalm 25:11.
 
 THIS striking prayer is hemmed in, as it were, between two promises. It looks like a fossil embedded in a mass of stone! What is the meaning of it being here? Why is it put in such a peculiar position? The Psalmist is both praising and preaching--how is it that he turns to praying? Beloved, I think it was to teach us that prayer is never out of place. When the Apostle Paul was writing the most doctrinal of his Epistles, he sometimes paused in the midst of them to offer a supplication, as when he said, "For this cause I bow my knees unto the Father of our Lord Jesus Christ." When engaged in any holy duties, you may even refrain from praise for a moment in order to present a prayer to God. Nor would it be amiss for us, sometimes, to break the thread of a sermon, that the people might pause and join with the preacher in asking God's blessing upon the message of mercy and upon all who hear it. Certainly, my dear Friends, you will never find any time inopportune for prayer if your heart is true and your faith in full force.

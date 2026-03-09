@@ -1,12 +1,5 @@
 # Sermon 2945 | Night--and Jesus Not There!
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 20, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 29, 1875.
-
 "And it was now dark, and Jesus had not come to them." John 6:17.
 
 CHRIST'S disciples, when they joined Him, had some very happy times with Him--and they had just had a very grand day in feeding the multitude. I wish I had been there to help in the feeding of 5,000 men. Everyone who had a share in that service was highly honored and those who were not there might well regret their absence on such an eventful day! But notice fair days have foul eventides and the Christ manifested during the day may become a Christ hidden during the night. Close on the heels of the intense excitement of great success comes the relapse into darkness of spirit and absence of joy. The very same men who had been rejoicing with unspeakable joy in the Divine power of their Master, are now left to endure that which is a very sad experience for anyone to have--everything dark--and Jesus not there!

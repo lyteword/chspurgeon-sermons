@@ -1,12 +1,5 @@
 # Sermon 3450 | Dangerous Lingering
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 18, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He lingered." Genesis 19:16.
 
 LOT was highly favored. In the midst of a general destruction, angels were sent to take care of him. He had received a warning which many had not heard--and he had felt the terror that warning would excite--while some who had heard the tidings little heeded their imminent moment. Lot stood in the condition of one who knew that he must leave the city, for it was about to be destroyed. He intended to leave it. He was just about to take his departure, but, nevertheless, hesitated a little, halted a while, avoided hurry, protracted his stay with some attachment to the place where he had dwelt, and so, in the face of danger, he hesitated. Being slow to move when fully aware that judgment was swift to overtake, "He lingered." I believe Lot to be in this respect the exact counterpart of a great many hearers of the Gospel. They understand at least its threats. They know something about the way of escape. They have resolved to follow that way and they intend to do so very soon. Yet for a long time they have halted on the verge of decision, almost persuaded to be Christians. Strong as their resolution to become followers of the Savior seems to be, unhappily they stop short, they linger in their old condition--halting between two opinions. To such persons I propose to address a few words of exhortation this evening. First of all, to expostulate with you personally upon personal matters. Then to speak to you about others, for I have the full conviction that the man who lingers puts others in danger as well as himself, just as Lot's lingering was hazardous to his daughters and to his wife. And lastly, to commend the means which I trust God will use tonight, similar to those which He used with Lot, that some angelic hand or some Providential force may lay hold upon the lingerer, that he may be brought out from the City of Destruction and made to flee for help to Christ the Lord. I must begin by speaking to--

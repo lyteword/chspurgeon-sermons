@@ -1,12 +1,5 @@
 # Sermon 3341 | "The Oil of Joy for Mourning"
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 13, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The oil of joy for mourning." Isaiah 61:3.
 
 MOURNERS in Zion ought to be doubly comforted, for here, in this gracious promise, is a second gift of Divine Love to them--a second exchange of loss for gain. The varied expressions of this choice Scripture show the manifold loving kindnesses of the Lord to His afflicted and the plentiful devices of wisdom by which He ministers consolation. It was not enough to give the sorrowing ones, "beauty for ashes"--He must add an oil with which to enhance the beauty and take away, not only the ashes, but the mourning which lay beneath them! This, also, illustrates the exceeding fullness of the blessings which are stored up in the Lord Jesus--in Him we have everything which heart can wish--a rich variety of joyful blessings never to be exhausted! It also shows us the marvelous fitness of our Lord Jesus, since solely because of His coming as the Anointed of the Lord, there is healing for the wounded, liberty for the captives, eyes for the blind, comfort for mourners, beauty for the disfigured and oil for fading countenances! He meets every need of the soul and fills the heart to overflowing with contented gratitude. Let it be repeated and gratefully remembered that all these good things come by the Anointed Savior alone. There can be no traffic with Heaven except by the crimson road of the atoning blood! No channel for Divine Favor except by the Christ of God on whom the Spirit of the Lord forever rests! To Him be Glory forever! Blessed be His name--He is the channel of Divine Grace and in Him is no straitness or shallowness! A Divine riches of glory flows to us by Christ Jesus--

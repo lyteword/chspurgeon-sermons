@@ -1,12 +1,5 @@
 # Sermon 3296 | Praise for Jesus
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 4, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 25, 1866.
-
 "Judah, you are he whom your brothers shall praise." Genesis 49:8.
 
 THESE words were spoken by the Patriarch Jacob when he blessed his sons as he lay a-dying. But before he finished Judah's blessing, the good old man seemed to forget his son and to turn his thoughts to Jesus, our Lord, of whom Judah was a very significant type. Jacob compared Judah to a lion and a lion's whelp--and in the Revelation we read that one of the elders said to John, "The Lion of the tribe of Judah, the Root of David, has prevailed to open the book, and to loosen the seven seals thereof." In the 10th verse of this Chapter we have Jacob's notable prophecy concerning the coming of Christ, "The scepter shall not depart from Judah, nor a lawgiver from between his feet, until Shiloh comes and unto Him shall the gathering of the people be."

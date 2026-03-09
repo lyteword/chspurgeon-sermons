@@ -1,17 +1,9 @@
 # Sermon 3536 | A Threefold Slogan
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 2, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "One thing is necessary." Luke 10:44.
 
 "One thing I know." John 9:25. "One thing I do." Philippians 3:13.
 
-[The original title of this sermon was A THREEFOLD MOTTO.]
 
 I HAVE "one thing" in view--"one thing" on which I want to rivet your attention. Forbear with me if I detain you a few minutes before announcing a text. It has been said that a man of one book is terrible in the force of his convictions. He has studied it so well, digested it so thoroughly and understands it so profoundly, that it is perilous to encounter him in controversy. No man becomes eminent in any pursuit unless he gives himself up to it with all the powers and passions of his nature--body and soul. Michelangelo had never been so great a painter if his love of art had not become so enthusiastic that he frequently did not take off his garments to sleep by the week together--nor had Handel ever been such a great musician if his ardor for celestial sounds had not led him to use the keys of his harpsichord till, by constant fingering, they became the shape of spoons. A man must have one pursuit and consecrate all his powers to one purpose if he would excel or rise to eminence among his fellows.
 

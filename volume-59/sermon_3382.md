@@ -1,12 +1,5 @@
 # Sermon 3382 | Our Lord's Transcendent Greatness
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 27, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, DECEMBER 2, 1866.
-
 "Now shall He be great unto the ends of the earth." Micah 5:4.
 
 THERE can be no doubt but what the Prophet here spoke of the Messiah--of our Lord Jesus Christ. We shall not need to enter into any discussion of that subject here, but shall take it at once for granted that the passage means, "Now shall the Lord Jesus be great unto the ends of the earth." This does not mean that Jesus Christ will be any greater than He always is essentially and naturally. As the Son of God, He is Infinite in Glory and can be no greater. As King of kings and Lord of lords, His Glory fills immensity. Before Him all intelligent spirits that are obedient to God pay their constant homage. He is so great that as we look up to Him, we can both rejoice in Him as our Brother and be humbled in His Presence when we reflect that He is our God. Jesus Christ is not to be greater, then, essentially than He now is. He is "God over all, blessed forever." The greatness here spoken of is not one of essence, but of manifestation. Christ is to be made great in the judgment, hearts and understandings of men, as He is at all times really great in Himself. When we read in the text, "Now shall He be great unto the ends of the earth," we may remember that He is already great in Heaven. Albeit that man rejects Him--painful as the thought is that multitudes in this world have not even heard His name and that multitudes more only know it to revile it--yet there is a place where His name is great.

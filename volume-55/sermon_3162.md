@@ -1,12 +1,5 @@
 # Sermon 3162 | The Unfailing Help
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 16, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 20, 1873.
-
 "And the King said, If the Lord does not help you, where can I find help for you? From the threshing floor, or from the winepress?" 2 Kings 6:27.
 
 I READ in your hearing the very horrible incident connected with the siege of Samaria. I do not wonder that when the poor woman applied to the king he should have been horrified. He felt that her case, and the case of all about him was a desperate one, so he said, "If Jehovah does not interpose, what can I do?" The winepress is dry and the threshing floor is empty--there is nothing left to alleviate the horrors of famine. "If the Lord does not help you, where can I find help for you?"

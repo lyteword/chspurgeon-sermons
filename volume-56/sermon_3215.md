@@ -1,12 +1,5 @@
 # Sermon 3215 | Black Clouds and Bright Blessings
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 15, 1910.
-
-BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "If the clouds aire full of rain, they empty themselves upon the earth." Ecclesiastes 11:3.
 
 IT was raining very heavily this afternoon at four o'clock when I was thinking over this text. The sharp crack of the thunder and the quick flash of the lightning seemed to be constant where I sat. When I came here, I found that you had not had a drop of rain--the weather was just as hot and feverish as ever. This seemed to me an example and an illustration of the Sovereignty of God's dispensations. It is still true in the spiritual as well as the natural economy, that one place is rained upon and another is not rained upon. In one part of the Church, God's Grace descends in a flood, while another part remains as dry and arid as the wilderness, itself. Even under the same ministrations, one Christian's soul may be refreshed till it becomes like a watered garden while another may remain parched as the desert. God has the key of the rain and it is for us to ask Him to give us of the dew and the rain of His Holy Spirit. Let us walk humbly before Him lest He should say of us, as He did of His Jewish vineyard of old, "I will also command the clouds that they rain no rain upon it." We may stand up and look to the Most High and learn our dependence upon Him for spiritual blessings, just as the farmer, knowing his dependence for his harvest upon God, watches the sky and the clouds--for without the rain what can he do?

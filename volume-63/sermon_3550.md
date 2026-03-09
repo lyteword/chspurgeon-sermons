@@ -1,12 +1,5 @@
 # Sermon 3550 | An Earnest Entreaty
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 8, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Kiss the Son lest He be angry, and you perish from the way, when His wrath is kindled but a little. Blessed are all they that put their trust in Him." Psalm 2:12.
 
 LET us have a little quiet talk tonight. I have known a simple, earnest conversation turn the whole current of a man's life. I recollect a good man, who lived at a certain market town in Suffolk. He was no preacher, as far as I know. He had never tried to preach, yet he was a mighty soul-winner. He had noticed how commonly it happened in that town, as in most of our smaller towns, that the lads, as they grew up, sought employment in London, or in some other large center of industry and, consequently, they left their home, their parents, guardians and the associations amidst which they had been trained, to enter a new sphere--where they would lack much of the oversight that had hitherto checked them when prone to wander. His watchful eyes and ever-listening ears having ascertained within a little when any young man was going, he sent a polite invitation to tea. And at that tea table the words he used to speak, the cautions he gave, and the necessity he urged of being decided for Christ before leaving, and especially the earnest prayer with which he concluded the evening--these things have been remembered by scores of young men, who, on removing to the larger towns, could never shake off the impression which his quiet, devout conversation had made! Some of them even traced their conversion to God, and their subsequent perseverance in the paths of righteousness, to the evening they had spent with that humble, but wise and earnest individual! I wonder whether any of us remember, in our young days, any such talk as that which exerted an influence upon us? I wonder more if, instead of trying to preach anything great tonight which is not much in my line, I try to talk very seriously and pointedly to all present who are unconverted, whether God will not bless it by His Holy Spirit and make it a turning point to decide the present course and eternal destiny of some of my hearers?

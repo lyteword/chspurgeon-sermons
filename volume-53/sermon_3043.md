@@ -1,12 +1,5 @@
 # Sermon 3043 | Filling Up the Measure of Iniquity
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 6, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 8, 1871.
-
 "The iniquity of the Amorites is not yet full." Genesis 15:16.
 
 THE Amorites had indulged in the most degrading sin. God had observed this, but He did not at once execute vengeance upon them. He had determined that, as a nation, they should be destroyed and rooted out from under Heaven and that their land should be given to the seed of Abraham. But He tells Abraham that his seed must wait for it, for as yet the Amorites had not filled up the measure of their iniquity. It would take more than 400 years, during which time God's patience would wait while the Amorites continued to heap sin upon sin, iniquity upon iniquity, until they reached a certain point--and then God would bear with them no longer. When the Lord uttered the words of our text, the Amorites had not come up to that fatal point and, therefore, He did not at once mete out their punishment to them, for the measure of iniquity was not yet full.

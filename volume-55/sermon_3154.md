@@ -1,12 +1,5 @@
 # Sermon 3154 | Concerning The Forbearance Of God
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 22, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 20, 1873.
-
 "Or do you despise the riches of His goodness and forbearance and long-suffering, not knowing that the goodness of God leads you to repentance?" Romans 2:4.
 
 [Other Sermons by Mr. Spurgeon upon the same verse, are as follows--Sermons #1714, Volume 29--EARNEST EXPOSTULATION and #2857, Volume 49-- GOD'S GOODNESS LEADING TO REPENTANCE.]

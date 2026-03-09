@@ -1,12 +1,5 @@
 # Sermon 3111 | Warning and Encouragement
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 24, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 13, 1874.
-
 "And Esau said unto his father, Haveyou but one blessing, my Father? Bless me, even me, also, O my Father. And Esau lifted up his voice and wept." Genesis 27:38.
 
 You know the story of Esau and Jacob. [See Sermons #239, Volume 5--JACOB AND ESAU and #1718, Volume 29--CERTAIN SINGULAR SUBJECTS] Esau Was the elder of the twin sons of Isaac and

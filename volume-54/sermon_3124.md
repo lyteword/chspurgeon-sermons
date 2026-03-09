@@ -1,12 +1,5 @@
 # Sermon 3124 | Real Contact With Jesus
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 24, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Jesus said, Somebody touched Me: for I perceived power going out from Me." Luke 8:46.
 
 OUR Lord was very frequently in the midst of a crowd. His preaching was so plain and so forcible that He always attracted a vast company of hearers and, moreover, the rumor of the loaves and fishes no doubt had something to do with increasing His audiences, while the expectation of beholding a miracle would be sure to add to the numbers of the hangers-on. Our Lord Jesus Christ often found it difficult to move through the streets because of the masses who pressed upon Him. This was encouraging to Him as a Preacher and yet how small a residue of real good came of all the excitement which gathered around His personal ministry! He might have looked upon the great mass and have said, "What is the chaff to the wheat?" for here it was piled up upon the threshing floor, heap upon heap, and yet, after His decease, His disciples might have been counted by a few scores, for those who had spiritually received Him were but few. Many were called, but few were chosen. Yet, wherever one was blessed, our Savior took note of it--it touched a chord in His soul. He could never be unaware when virtue had gone out of Him to heal a sick one, or when power had gone forth with His ministry to save a sinful one. Of all the crowd that gathered around the Savior upon the day of which our text speaks, I find nothing said about one of them except this solitary "somebody" who had touched Him! The crowd came, and the crowd went, but little is recorded of it all. Just as the ocean, having advanced to full tide, leaves but little behind it when it retires again to its channel, so the vast multitude around the Savior left only this one precious deposit--one "somebody" who had touched Him and had received power from Him.

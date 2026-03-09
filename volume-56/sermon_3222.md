@@ -1,12 +1,5 @@
 # Sermon 3222 | "The Lamb of God"
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 3, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 20, 1870.
-
 "Behold the Lamb of God, which takes away the sin of the world." John 1:29.
 
 [Two other Sermons by Mr. Spurgeon upon the same text are #1987, Volume 33--"BEHOLD THE LAMB OF GOD" and #2646, Volume 45-- THE BAPTIST'S MESSAGE.]

@@ -1,12 +1,5 @@
 # Sermon 3193 | The Man Whose Hand Stuck to His Sword
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 14, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And after him was Eleazar the son of Dodo the Ahohite, one of the three mighty men with David when they defied the Philistines that were there gathered together to battle, and the men of Israel were gone away: he arose, and smote the Philistines until his hand was weary, and his hand stuck unto his sword: and the LORD worked a great victory that day; and the people returned after him only to spoil." 2 Samuel 23:9,10.
 
 IN David's muster-roll we find the names of many mighties and they are honored by being found there. These men came to David when his fortunes were at the lowest ebb and he, himself, was regarded as a rebel and an outlaw. And they remained faithful to him throughout their lives. Happy are they who can follow a good cause in its worst estate, for theirs is true glory. Weary of the evil government of Saul, they struck out a path for themselves in which they could best serve their country and their God. And though this entailed great risks, they were amply rewarded by the honors which in due time they shared with their leader. When David came to the throne, how glad their hearts must have been! And when he went on conquering and to conquer, how they must have rejoiced, each one of them remembering with intense delight the privations which they had shared with their captain. Brothers, we do not ourselves aspire to be numbered with the warlike. The roll of battle does not contain our names and we do not wish that it should. But there is a roll which is now being made up--a roll of heroes who do and dare for Christ, who go outside the camp and take up His reproach and, with confidence in God, earnestly contend for the faith once delivered to the saints and venture all for Jesus Christ! And there will come a day when it will be infinitely more honorable to find one's name in the lowest place in this list of Christ's faithful disciples than to be numbered with princes and kings! Blessed is he who can this day cast in his lot with the Son of David and share His reproach, for the day shall come when the Master's Glory shall be reflected upon all His followers!

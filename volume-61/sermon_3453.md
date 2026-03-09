@@ -1,12 +1,5 @@
 # Sermon 3453 | The Wandering Bird
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 8, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "As a bird that wanders from her nest, so is a man that wanders from his place." Proverbs 27:8.
 
 SOLOMON spoke from observation. He had seen certain persons of a vagrant kind and he perceived that they seldom or never prospered. Moreover, he spoke from Inspiration, as well as from observation, hence the wisdom of the philosopher is, in this case, supported by the austerity of the preacher. We may, therefore, take this Proverb, first, as the dictate of human wisdom gathered by long experience--and then, next, as the testimony of Divine Wisdom, commended to us by Infallible Revelation. The principle it inculcates is alike applicable to the common affairs of life and to the higher pursuits which belong to our spiritual interests.

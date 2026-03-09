@@ -1,12 +1,5 @@
 # Sermon 3312 | The Carpenter's Son and His Relations
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 25, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY MORNING, MAY 20, 1866.
-
 "Is not this the carpenter's son? Is not His mother called Mary? And His brothers, James, and Joses, and Simon, and Judas? And His sisters, are they not all with us? Where, then, has this Man all these things?" Matthew 13:55,56.
 
 WHEN our Savior was upon this earth, there were some persons who, having had their eyes Divinely opened, could see His true beauty and who admired His every action and said, "He has done all things well." But there were others whose eyes were blinded by sin, malice and prejudice who could see nothing good in Him at all. Because He ate and drank as other men did, they said, "Behold a gluttonous Man and a winebibber." They said that His zeal was only pretence or else madness--and when He cast out evil spirits by His Almighty Power, they said, "He casts out devils through the chief of the devils." There were some who wondered at His wisdom and His mighty works and who did not know whether to consider Him a Prophet of God or a Divine Being. But there were others who could only see the carpenter's human son, whose mother's name was Mary and whose brothers and sisters were all well-known, ordinary people. The language of the text is the language of many who are living today--for while others see in Christ everything to admire--these quib-blers see no beauty in Him and put Him on a level with others with whom they are acquainted.

@@ -1,12 +1,5 @@
 # Sermon 3273 | A Sermon to Ministers and Other Tried Believers
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DURING THE SUMMER OF 1881.
-
 "Casting all your care upon Him, for He cares for you." 1 Peter 5:7
 
 THIS season of depression in trade has brought great care to many a house and heart, especially to village pastors and their flocks. Their troubles have been heavy and I am afraid their cares have not been light. Few have escaped the pinch of these hard times--the most prosperous have to watch the ebbing tide and ask--How long shall these things be? The subject will be seasonable to us all.

@@ -1,16 +1,5 @@
 # Sermon 3495 | The Judgment Upon Zacharias
 
-A Sermon
-
-
-Published on Thursday, January 20th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [3]the Metropolitan Tabernacle, Newington.
-
 "Thou shalt be dumb and not able to speak until the day that these things shall be performed, because thou believest not my words, which shall be fulfilled in their season."--Luke 1:20.
 
 UNBELIEF is everywhere a great sin, and a grievous mistake. Unbelief has proved the ruin of those countless multitudes who, having heard the gospel, rejected it, died in their sins, have been consigned to the place of torment, and await the fiercer judgment of the last day. I might ask the question concerning this innumerable host, "Who slew all these?" The answer would be, "Unbelief." And when unbelief comes into the Christian's heart, as it does at times--for the truest believer has his times of doubt; even Abraham, the father of the faithful, sometimes had his misgivings--that unbelief does not assail his thoughts without withering his joys, and impairing his energies. There is nothing in the world that costs a saint so dear as doubt. If he disbelieve his God, he most assuredly robs himself of comfort, deprives himself of strength, and does himself a real injury. The case of Zacharias may be a, lesson to the Lord's people. It is to them I am going to speak: Zacharias is a striking example of the ills a good man may have to suffer as the result of his unbelief. In reviewing these, we mark:--

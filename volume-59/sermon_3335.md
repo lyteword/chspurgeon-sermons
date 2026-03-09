@@ -1,12 +1,5 @@
 # Sermon 3335 | The Divine Discipline
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 2, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 9, 1867.
-
 "As am eagle stirs up her nest, flutters over her young, spreads abroad her wings, takes them, bears them on her wings: so the Lord alone did lead him, and there was no strange god with him." Deuteronomy 32:11,12.
 
 MOSES in this Chapter is speaking concerning Israel in the wilderness. When the great host came out of Egypt, they were, through the debasing influences of slavery--which are not easily or quickly shaken off--not much better than a mere mob. They were not at all fitted to march at once to take possession of Canaan, nor to take part in the compacts of organized social life. Therefore God, instead of taking them by the short way along which they might have passed in a very few days, ordained it so in His Providence that they should wander about for 40 years in the wilderness--partly, it is true, as a punishment for their unbelief, but also in order that the nation might be trained and educated for its future destiny--made as fit as it could be, to be the custodian of the oracles of the Truths of God and to be the receiver of the Revelation which God intended to give to men.

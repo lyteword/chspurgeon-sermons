@@ -1,12 +1,5 @@
 # Sermon 3443 | Seeing Jesus
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 28, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 9, 1896.
-
 "Yet a little while, and the world sees Me no more; but you see Me." John 14:19.
 
 WHATEVER religious privileges men of the world may have, they will lose them. It was a great favor to see Christ in the flesh. Kings and Prophets had desired to see His day and had died disappointed because He had not come, but that sight of Him which the generation in which Christ lived enjoyed was taken from them. They were none the better and, in some respects, they were all the worse for having seen Him, whose blood was on them and on their children. So, as a general Truth of God, all the outward religious privileges which any of you may enjoy, if you do not become spiritualmen and are not, indeed, Christ's disciples, will be taken from you, speedily taken from you, leaving no blessing behind, but rather a curse! You are hearers of the Gospel today, some of you, though unconverted--but you shall not always hear it. There is a land where Sabbath bells never ring, where the joyful feet of the messengers of mercy are never seen, and where no loving expostulations and no affectionate entreaties will be addressed to you! Now you join in song with God's people but you will not do so soon--another sound, more strange and full of trembling--will be in your ears! Some of you, it may be, unconverted as you are, even venture to touch the ordinances and have been baptized and have come to the Lord's Table. There will be another baptism for you and you will eat bread at a far different table from that of the Lord, by-and-by, for unless you are converted, these, instead of being means of Grace, shall be swift messengers against you to your condemnation! It is a very sorrowful case when a man is so bad that that which is good becomes bad to him, and a fearful proof of the fall of our race and the depravity of our unregenerate nature--that even the best religious privileges will only become a savor of death unto death unto us unless the Grace of God shall change our hearts!

@@ -1,12 +1,5 @@
 # Sermon 3165 | Witnesses for God
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1875.
-
 "You are My witnesses, says the Lord." Isaiah 43:10.
 
 (Suggested by his being summoned to attend the police court as a witness).

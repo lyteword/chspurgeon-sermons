@@ -1,12 +1,5 @@
 # Sermon 3120 | A View of God's Glory
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "And he said, I beseech You, show me Your Glory." Exodus 33:18.
 
 THAT was a large request for Moses to make. He could not have asked for more. "I beseech You, show me Your Glory." Why, it is the greatest petition that man ever asked of God! It seems to me the greatest stretch of faith that I have either heard or read of. It was great faith which made Abraham go into the plain to offer up intercession for a guilty city like Sodom. It was vast faith which enabled Jacob to grasp the Angel. It was mighty faith which made Elijah rend the heavens and fetch down rain from skies which had been like brass. But it appears to me that this prayer contains a greater amount of faith than all the others put together! It is the greatest request that man could make to God--"I beseech You, show me Your Glory." Had he requested a fiery chariot to whirl him up to Heaven. Had he asked to cleave the water-floods and drown the chivalry of a nation. Had he prayed the Almighty to send fire from Heaven to consume whole armies, a parallel to his prayer might possibly have been found. But when he offers this petition, "I beseech You, show me Your Glory," he stands alone--a giant among giants--a colossus even in those days of mighty men! His request surpasses that of any other man--"I beseech You, show me Your Glory." Among the lofty peaks and summits of man's prayer that rise like mountains to the skies, this is the culminating point. This is the highest elevation that faith ever gained--it is the loftiest place to which the great ambition of faith could climb--it is the topmost pillar of all the towering structures that confidence in God ever piled! I am astonished that Moses himself should have been bold enough to supplicate so wondrous a favor. Surely, after he had uttered the desire, his bones must have trembled, his blood must have curdled in his veins and his hair must have stood on end! Did he not wonder at himself? Did he not tremble at his own boldness? We believe that such would have been the case had not the faith which prompted the prayer sustained him in the review of it!

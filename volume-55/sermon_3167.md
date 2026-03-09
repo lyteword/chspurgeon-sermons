@@ -1,12 +1,5 @@
 # Sermon 3167 | The Christian's Helmet
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 21, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1866.
-
 "And for a helmet the hope of salvation." 1 Thessalonians 5:8.
 
 THE very mention of a helmet may well seem to REMIND EVERY CHRISTIAN HERE THAT HE IS A SOLDIER.

@@ -1,12 +1,5 @@
 # Sermon 3147 | God's Glory in the Building Up of Zion
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 3, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When the LORD shall build up Zion, He shall appear in His Glory." Psalm 102:16.
 
 THE Lord Himself must "build up Zion," or it will never be built up. He first planned it. He is the Architect of His own Church. He dug the foundations, i.e., has supplied the great Cornerstone. He, by His own power, creates each living stone, polishes it and fits it into its place. He cements the whole structure and as He first sketched the plan, so will He complete it in every iota to the praise and the glory of His wisdom, His Grace and His love. It shall be said of Zion, when all her walls are built and all her palaces completed--and when all her happy inhabitants have their mouths filled with song as they walk in white--"The Lord has built it, from the foundation even to the topstone." I remember seeing, close by the side of the Alps, a house which had upon its front, words to this effect, "This house was built entirely by the skill, wealth and industry of its inhabitants." It struck me as not being a very modest thing to put in front of one's house for, after all, the structure was not very marvelous . But when we look at the glorious architecture of the Church of God, it is no mean part of its luster that it may fittingly bear such an inscription as this, "This House was built entirely by the wisdom, the munificence and the power of the Infinite Jehovah."

@@ -1,12 +1,5 @@
 # Sermon 3328 | Guests for the Royal Feast
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 14, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then said He to His servants, The wedding is ready, but they which were invited were not worthy Go you therefore into the highways, and as many as you shall find, invite to the marriage. So those servants went out into the highways, and gathered together all as many as they found, both bad and good: and the wedding was furnished with guests." Matthew 22:8-10.
 
 IN the previous verses of this striking parable, we see that the Great King had been ungraciously treated by his subjects, and had in his wrath swept the rebels away. But there was the feast still waiting for guests and the time had arrived to celebrate the nuptials of his son. The terror of the royal power had been proven, but it still remained to display the splendor of the imperial hospitality. Therefore, while yet the clash of arms is in our ears, we hear the voice of royal clemency! The din of war and the tramp of warriors have not caused the wedding or its feast to be forgotten, neither has wrath obliterated mercy! We read that "he sent forth his armies, and slew those murderers, and burned up their city," but in the next line we find the record, "then said he to his servants, go you into the highways, and as many as you shall find, invite to the marriage." In wrath he remembers mercy. On the heels of his men at arms he dispatches the ambassadors of peace. His power went forth to destroy his enemies, but it also went with his messengers to gather the needy from the streets. Judgment is the Lord's strange work, but He delights in mercy! Once He smites, but not till He has thrice invited the rebels come to Him. And when at last He overthrows the incorrigible, He takes occasion from it to extend His bounty to many others. Truly, God is Love!

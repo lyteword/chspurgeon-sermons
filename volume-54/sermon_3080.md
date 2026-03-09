@@ -1,12 +1,5 @@
 # Sermon 3080 | Two Ancient Proverbs
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 20, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 29, 1874.
-
 "The fear of man brings a snare; but whoever puts his trust in the LORRD shall be safe." Proverbs 29:25.
 
 WE have two ancient Proverbs here. Each of them is true as a separate Proverb, but they are equally true when linked together. The independent proposition, that the fear of man brings a snare, is a Truth of God which experience has taught to many. The other proposition, that he that trusts in the Lord shall be safe, has been found most blessedly true by all those who have tested it. Then put the two propositions together--that the fear of man brings a snare, but trust in the Lord is the safe and certain way to avoid that snare--and this also is true.

@@ -1,12 +1,5 @@
 # Sermon 3324 | Turning From Death
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 17, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, JULY, 22, 1866.
-
 "Turn you, turn you from your evil ways; for why will you die, O house of Israel?" Ezekiel 33:11.
 
 IT is a token of the great mercy of God that He is very earnest in His pleading with men to turn from their sins that He may not be compelled to punish them, as He must do if they go on in their iniquities. A cruel governor is glad of an opportunity to show his severity and, therefore, not especially anxious to prevent offenses. But a kind, tender-hearted monarch He must be who leaves His Throne and comes down among the rebels and, with tears in His eyes, cries to them, "Oh, do not this wicked thing that I hate! Offend not against Me! Do not compel Me to take the sword out of its scabbard! Do not force Me to say that I will have no mercy upon you, but turn you, turn you from those evil courses which will certainly bring you mischief!" Sinner, God speaks to you tonight out of His Infinite Mercy. He has no pleasure in your death! It will give Him no satisfaction to cast you into Hell! He has taken an oath concerning it. "As I live," says the Lord God, "I have no pleasure in the death of him that dies," and to prove the sincerity of the oath, He cries, "Turn you, turn you from your evil ways: for why will you die, O house of Israel?" If you are not spared, but perish, it will not be because God is not merciful to you but because you are not merciful to yourselves!

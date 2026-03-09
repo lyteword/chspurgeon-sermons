@@ -1,12 +1,5 @@
 # Sermon 3547 | Simple Fact and Simple Faith
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 18 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be it known unto you, therefore, men and brethren, that through this Man is preached unto you the forgiveness of sins and by Him all that believe are justified from all things from which they could not be justified by the Law of Moses." Acts 13:38,39.
 
 APOSTOLIC preaching was widely different from the common sermonizing of this age. Doubtless, when the Apostles addressed assemblies of Believers, they took distinct subjects and kept to them, opening up and expounding the particular Truths of God they had in view. But when speaking to the outside world, and making their appeals to unbelievers, they do not usually appear to have selected any one Doctrine as their topic. The manner in which they preached did not so much consist in inculcating a specific Doctrine and showing the inferences that would naturally arise from it, as it did in declaring certain facts of which they had been actual witnesses, themselves, and had been chosen to bear witness to others. Turn to Peter's sermon at Pentecost, or the same Apostle's sermon to Cornelius, or to the record of Paul's preaching at Perga or at Antioch. You will find these discourses were an argument from the Scriptures that as God had of old promised to send a Savior, so Jesus Christ had come into the world, had lived a holy life, had been put to death, being falsely accused, had been laid in the grave, after three days had risen again and that afterwards He had ascended, according to the testimony of the Prophets. Of Him they spoke, that whoever believed in this Man, who was very God, should certainly be saved by Him. This was the declaration which they made. I do not find them, as a rule, expounding the Doctrine of Election in promiscuous assemblies of unbelievers, or arguing the subtle questions of free agency and Predestination, or striving about words to no profit, to the subverting of the hearers. Their resolute purpose was to declare those things that pertain directly to the salvation of the soul, this being the all-important matter which they would have all men to heed. Thus they charged everyone who heard them, at the peril of his soul, to accept the Revelation and embrace the faith of the Gospel!

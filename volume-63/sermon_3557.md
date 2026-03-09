@@ -1,12 +1,5 @@
 # Sermon 3557 | An Urgent Necessity
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 29, 1917.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY31, 1870.
-
 "It is time to seek the Lord till He comes and rains righteousness upon you." Hosea 10:12.
 
 HOSEA uses a great many figures taken from farming. He describe the seeking of the Lord in the former part of this verse as plowing, and sowing, and breaking up fallow ground. I suppose he intends by this to describe conviction of sin, humiliation of soul as the work that plows, the reception of the Truth of the Gospel by faith in Jesus Christ as sowing, for this introduces the Living Seed into the soul. And he here gives two reasons why this matter of seeking the Lord should be attended to at once. His first reason is the season. "It is time to seek the Lord." The second is a very gracious expectation that God will rain righteousness upon us. First, then, the Prophet reasons that we should seek after the Lord because it is--

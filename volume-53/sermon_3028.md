@@ -1,12 +1,5 @@
 # Sermon 3028 | God's Glory Our Rereward
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 21, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The glory of the LORRD shall be your rereward." Isaiah 58:8.
 
 THE Church of God is an army marching through an enemy's territory. She can never reckon upon a moment's peace. If she were of the world, the world would love its own, but because true saints are not of the world, but Christ has chosen them out of the world, therefore the world hates them. As the Amalekites suddenly fell upon the children of Israel, unprovoked and without giving any warning of their hostile intention, so, not only in times of persecution, but in these apparently softer days when the world does not use the stake and the sword, at all seasons the world is ready to pounce upon the Church of God and to call in its grand ally, the devil, to overthrow and destroy, as far as possible, the militant hosts of Israel!

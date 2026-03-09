@@ -1,12 +1,5 @@
 # Sermon 3468 | Consolation for Poor Petitioners
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 22, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 10, 1870.
-
 "Like a crane or a swallow, so did I chatter: I did mourn as a dove: my eyes fail with looking upward. O Lord, I am oppressed; undertake for me." Isaiah 38:14.
 
 HEZEKIAH finds fault with his prayers, but he did pray. God's children cannot at all times speak distinctly, but they all cry. There is no true child of God that is possessed of a dumb spirit. "Behold he prays" may be said of each of the Divine family--and place them in what circumstances you will, you might sooner call a man, living, and prevent his breathing, than call a man, Christian, and prevent his praying! If he is living, he must breathe--if he is a Christian, he must pray! And observe further as Hezekiah, with all the faults that he finds with his prayers, did pray, so equally certain is it that he did prevail with those imperfect prayers! He may call those prayers chattering--I have no doubt he felt them to be so--but, after all, he has an answer to his prayers--he had 15 years added to his life and, therefore, his chatter were marvelously successful. From which I gather that those prayers we think the worst, may turn out to be the best. And those prayers which, judged by human judgments, might be considered unworthy of the name of prayer, may, nevertheless, be so acceptable to the Most High that they shall throughout life become the fountain of our praise!

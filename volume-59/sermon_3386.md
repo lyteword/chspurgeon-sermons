@@ -1,12 +1,5 @@
 # Sermon 3386 | Christ Our Peace
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 25, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON LORD'S-DAY EVENING, JANUARY 19, 1868.
-
 "He is our peace." Ephesians 2:14.
 
 THE true minister of Christ is not satisfied to be long away from his main theme. There are many things which it is very proper for him to speak upon in your hearing. We dare not forget the Doctrines of the Word of God, or the precepts, or the experiences of God's people. But recognizing the claims of all these, God forbid that we should glorify save in the Cross of our Lord Jesus Christ! It is the preaching of Christ which is the power of God and the wisdom of God. Therefore, wherever we may wander around the circumference, we always feel a drawing in of our soul toward the center, which is "Christ in you, the hope of Glory."

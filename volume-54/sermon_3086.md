@@ -1,12 +1,5 @@
 # Sermon 3086 | "Marvelous Things"
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 2, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 7, 1874.
-
 "O sing unto the LORD a new song, for He hats done marvelous things: His right hand and His holy arm have gotten Him the victory. The LORD has made known His salvation: His righteousness has He openly showed in the sight of the heathen." Psalm 98:1,2.
 
 THE invitations of the Gospel are invitations to happiness. In delivering God's message, we do not ask men to come to a funeral, but to a wedding feast! If our errand were one of sorrow, we might not marvel if men refused to listen to us. But it is one of gladness, not sadness--in fact, you might condense the Gospel message into this joyous invitation--"O come and learn how to sing unto the Lord a new song! Come and find peace, rest, joy and all else that your souls can desire. Come and eat that which is good and let your soul delight itself in fatness." When the coming of Christ to the earth was first announced, it was not with sad sonorous sounds of devil spirits driven from the nethermost Hell, but with the choral symphonies of holy angels who joyfully sang, "Glory to God in the highest, and on earth peace, good will toward men!" And as long as the Gospel shall be preached in this world, its main message will be one ofjoy. The Gospel is a source ofjoy to those who proclaim it, for unto us who are less than the least of all saints, is this Grace given--that we should preach among the Gentiles the unsearchable riches of Christ! [Mr. Spurgeon enlarged upon this theme in two Sermons on Ephesians

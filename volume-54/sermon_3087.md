@@ -1,12 +1,5 @@
 # Sermon 3087 | A Time of Finding for Lost Sheep
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 9, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick: but I will destroy the fat and the strong; I will feed them with judgment" Ezekiel 34:16.
 
 IT is a great mercy that God never leaves His Church. He has not made a Church as a watchmaker constructs a watch, which, after being wound up, is left to depend upon the strength and fitness of the machinery, but He has made a Church which, though fitted with the best of machinery, needs His hand every moment to keep it in motion. He has lighted the lamps, but He walks among the golden candlesticks. He has fixed the pillars of the Temple, but His own almighty shoulders are the actual support thereof. He has not left the Church to His ministers, but He, Himself, is the great Bishop and Shepherd of souls. Even if, as some affirm, there were no immediate Divine interpositions in the works of Providence, we know that there are such interpositions constantly in the works of Grace.

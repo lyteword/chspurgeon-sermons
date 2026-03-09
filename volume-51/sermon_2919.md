@@ -1,12 +1,5 @@
 # Sermon 2919 | "Whose Goodness Never Fails"
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 19, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1876.
-
 "I am the Good Shepherd: the Good Shepherd gives His life for the sheep." John 10:11.
 
 THESE words were spoken when our Lord was among His own people. Perhaps as you hear them there comes a whisper in your soul, "I wonder whether that is true now? If the Lord Jesus in His flesh were here at this moment, in the midst of us, and if He said, 'I am the Good Shepherd,' we might find it easy to believe it. But He has gone. What assurance have we that it is the same now, when He is no longer among us?" I answer, "Dear Brothers and Sisters, we know it is true because Jesus Christ is 'the same yesterday, today and forever.' That in itself were enough, but we have the added assurance that in this place He meant to say it was so, for, if you notice, He was evidently looking to the future when He said, 'I am,' seeing that He added, 'The Good Shepherd gives His life for the sheep,' when as yet He had not done it. There was an interval between the time when He said these words and the laying down of His life upon the Cross. As He went on further in His discourse and said, 'Other sheep I have which are not of this fold: them also, I must bring, and they shall hear My voice, and there shall be one flock and one shepherd,'

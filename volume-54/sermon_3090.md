@@ -1,12 +1,5 @@
 # Sermon 3090 | Loving the Law of the Lord
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 30, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 10, 1874.
-
 "O how I love Your Law! It is my meditation all the day. You, through Your commandments, have made me wiser than my enemies: for they are ever with me. I have more understanding than all my teachers: for Your testimonies are my meditation. I understand more than the ancients because I keep Your precepts." Psalm 119:97-100.
 
 DAVID had a very small Bible, but he thought it a very precious one. Our Bible is quite a large library compared with the one that David had, yet he read and re-read it and exulted greatly in the treasure which he found in it. I have sometimes heard people say that they wished they had fuller records of the life of Christ. And when they find John writing that he supposed that even the world itself could not have contained all the books which might have been written about the Savior, they ask, "Why have we not more of the interesting incidents of His career preserved?" Some of these very people do not read what ispreserved and they seem to forget that the Bible is exactly the right size--most portable and most useful and that if we had a larger one, some people might then have said--"It is too large a Book for us ever to read it through and to have it at our fingertips." Let us be thankful that the Bible is so large that there is abundance of fresh reading for every day of the year, and let us prize it as David prized his much smaller portion.

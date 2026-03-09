@@ -1,12 +1,5 @@
 # Sermon 3247 | Unreasonable Reasons
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 27, 1904.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "O you oflittle faith, why did you doubt?" Matthew 14:31.
 
 OUR Savior did not ask Peter that question for His own information. He could have told Peter much more about his unbelieving heart than Peter knew! The Savior was well acquainted with those springs from which the unbelief of Peter arose. He asked it, therefore, rather that Peter might make the enquiry of himself--that he might look into the matter and see how groundless his unbelief was--so that on the next occasion he might not fall into the same error. I believe it is sometimes a very great cure for unbelief to look it in the face even while we are under it--and after we have escaped from it, it is still a preventive for the future if we look back upon it and reason concerning it. Remember how David, in the 42nd Psalm, twice asked himself, "Why are you cast down, O my Soul? And why are you disquieted within me?" He was persuaded that the questioning of his unbelief would convict him of its folly. It only needs to be looked at closely to lose all its terror, to be robbed of its seeming foundation and to be overcome!

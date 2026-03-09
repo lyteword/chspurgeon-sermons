@@ -1,12 +1,5 @@
 # Sermon 3529 | More Room for More People
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "It is done as you have commanded, and still there is room." Luke 14:22.
 
 How delightful it is to observe that the wrath of man becomes tributary to the Glory of God! See an illustration in the parable of the marriage supper. Those persons who were first bid would not come. In order to do the good man of the house a despite, they declined his invitation, they refused to grace his board. Instead of causing his honor to be tarnished, they were, against their own will, the means of increasing his reputation! Had they come, it would only have been said that he made a great feast for his good friends. As they did not avail themselves of his hospitality, he brought in the beggars from the streets and swept the hedges and the byways to find the poorest of the poor--to all of whom he gave a hearty welcome! So it became the common talk all over the land, and tens of thousands extolled the generosity of the host who had given such a sumptuous banquet to such strange guests. Let not the haughty, the arrogant, or the scornful of the children of men imagine that their paltry conceit can thwart God's Covenant purpose or bring discredit on the riches of His mercy! Oh, Sinner, if you reject a Savior, it shall be your own loss, not His! If you live and die without faith in Christ, upon your own head the fearful recompense will fall! When the self-righteous reject Him, it only causes Jesus to say, "I came not to call the righteous, but sinners to repentance." When the rich men and the rulers refuse the Gospel, then, "the poor have the Gospel preached to them." When the wise and prudent put it aside, then it is graciously revealed unto babes! Thus God is glorified, though the temper of men is ever so turbulent. Let us, my Brothers and Sisters, always be patient of heart when we see the rage of men awakened against the Gospel of Christ. They can do it no hurt! His purpose shall stand--He will do all His pleasure. The bit is in their mouths, the hook is in their nostrils. Let them roar as they may, they cannot resist the force by which they are driven as chaff before the wind! He will surely perform His work and His name shall be glorious!

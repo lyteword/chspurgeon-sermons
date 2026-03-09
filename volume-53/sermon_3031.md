@@ -1,12 +1,5 @@
 # Sermon 3031 | "The Shadow of a Great Rock"
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 14, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 18, 1869.
-
 "A man shall be as the shadow of a great rock in a weary land." Isaiah 32:2.
 
 

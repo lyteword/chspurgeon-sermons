@@ -1,12 +1,5 @@
 # Sermon 3209 | The Priceless Prize
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 4, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "That I may win Christ." Philippians 3:8.
 
 THE very high value that the Apostle Paul set upon the Savior is most palpable when he speaks of winning Him. This shows that the Savior held the same place in Paul's esteem as the crown did in the esteem of the runner at the Olympic games. To gain that crown, the competitor strained every nerve and sinew, feeling as though he were content to drop down dead at the goal if he might but win it. Paul felt that were he to run with all his might, if that were the way of winning Christ--were he to strain soul and body to win Him, He would be well worth the effort. He shows his value of Christ by speaking of Him as the prize he panted to win. He uses the very same words which the soldier would use concerning the victory when, with garments rolled in blood, amidst confused noise and clouds of smoke, he counts all things but little if he may but hear the shout of triumph. So, Paul, regarding Christ as more glorious and excellent than mountains of prey, considered such a prize to be worth all the fighting, even though he should agonize and sweat with blood! He would be well worth dying to win. I take it that he speaks of Christ here as though he felt that He was the very climax of his desire, the summit of his ambition. If he might but get Christ, he would be perfectly satisfied--but if he could not get Him--whatever else he might have, he would still remain unblessed.

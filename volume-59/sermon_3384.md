@@ -1,12 +1,5 @@
 # Sermon 3384 | Growth in Faith
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 11, 1913.
-
-DELIVERED BY C. H, SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 12, 1867.
-
 "The Apostles said unto the Lord, Increase our faith." Luke 17:5.
 
 THE Apostles said this. I have sometimes thought that Paul's speech at Lystra, when he forbade the multitude to worship him and told the people that he was a man of like passions with themselves, has need to be repeated in the ears of many modern Christians, for there is a tendency in the Christian Church to set up the Apostles and other eminent saints upon a platform high above the level of ordinary humanity! I do not say to worship them, but rather to hold them in extraordinary esteem than to regard them as models for imitation. Brothers and Sisters, our Lord Jesus Christ would have us to know that we have not a High Priest who cannot be touched with a feeling of our infirmities. He would have us be certain that He, Himself, was tempted in all points like as we are. With equal certainty would He have us to know that the chosen twelve, the leaders of His host, who went forth from Him, were men of like passions with ourselves. We are not to look upon them as though they were unapproachable heroes, a sort of Divine character, or as though they were free from our infirmities and our troubles. They were as we are--and if they excelled us it was by Divine strength, alone, by strength which we also may receive--by Grace which is as free to us as it was to them. If they were here, they would still have to struggle with unbelief and, conscious of their unbelief, would say again, "Lord, increase our faith."

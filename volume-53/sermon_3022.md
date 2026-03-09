@@ -1,12 +1,5 @@
 # Sermon 3022 | God's Innumerable Mercies
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 10, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, OCTOBER 22, 1868.
-
 "I know not the numbers thereof." Psalm 71:15.
 
 THE writer of this Psalm describes all the dealings of God with him under the head, "righteousness" and, "salvation." That description is perfectly accurate, for all that God does for His people is, first of all, in faithfulness to His promise. As He has spoken, so He does. Never, even in the sharpest trial, can the heir of Heaven accuse God of being unfaithful to what He has promised. He told His disciples that they would have to endure tribulation--and when it came, they proved the truth of His prophecy--and everything that God does to us, whether little or great, whether sharp or kind, will prove to have been done in accordance with His faithful Word.

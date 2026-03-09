@@ -1,12 +1,5 @@
 # Sermon 2970 | God's Jewels
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And they shall be Mine, says the LORD of Hosts, in that day when I make up My jewels." Maalachi 3:17.
 
 THESE words were spoken in a very graceless age, when religion was peculiarly distasteful to men, when they scoffed at God's altar and said of His service, "What a weariness it is!" and scornfully asked, "What profit is it that we have kept His ordinance?" Yet even those dark nights were cheered by bright stars. Though the great congregations of God's House were but a mockery, yet there were smaller assemblies which God gazed upon with delight. Though the house of national worship was often deserted, there were secret conventicles of those who "feared the Lord" and who "spoke often, one to another," and our God, who regards quality more than quantity, had respect to these elect twos and threes! He "listened and heard" and He so approved of that which He heard that He took note of it and declared that He would publish it. "A book of remembrance was written before Him for them that feared the Lord and that thought upon His name." Yes, and He valued so much these hidden ones, "faithful among the faithless found," that He called them His "jewels."And He declared that in the great day when He should gather together His "segullah," His regalia--the peculiar treasure of kings--He would look upon these hidden ones as being more priceless than emeralds, rubies, or pearls! "They shall be Mine," He said, "in the day when I gather up My jewels into My casket to be there forever."

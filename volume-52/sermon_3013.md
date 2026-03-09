@@ -1,12 +1,5 @@
 # Sermon 3013 | Warning and Encouragement
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 8, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, IN THE YEAR 1864.
-
 "I sleep, but my heart wakes: it is the voice of my beloved that knocks, saying, Open to me, my sister, my love, my dove, my undefiled: for my head is filled with dew, and my locks with the drops of the night." Song of Solomon 5:2.
 
 How changeable is the creature! In the verse preceding our text, we find the spouse in a happy, healthy, heavenly frame of mind, for her Beloved was with her and she was in the enjoyment of the closest communion with him. We find him saying, "I am come into my garden, my sister, my spouse: I have gathered my myrrh with my spice; I have eaten my honeycomb with my honey; I have drunk my wine with my milk; eat, friends; drink, yes, drink abundantly, O beloved." Yet, from the height of this glorious fellowship, how soon the spouse comes down to the depths of such a cry as this, "I sleep, but my heart wakes"! Truly, the weather of our isle is not more variable than the feelings of Believers. One day the sun shines hot and strong. The next day comes a black cloud, accompanied with the lightning flash and the voice of thunder. Then come the rattling drops of hail and then, in a few more hours, it is hot again, or perhaps the chilly North wind begins to blow. Have you not been on Mount Tabor at one moment and at another in the Valley of Achor? Have you not been at one time like the chariots of Amminadib, driving so fast that the axles were hot with speed, and soon after you have been like Pharaoh's chariots when the wheels were taken off so that you drove heavily? Now you mount as upon eagle's wings and soon you sink as in deep mud where there is no standing! At one moment delighting in God's goodness and mercy, but the next moment, crying, "All Your waves and Your billows have gone over me." Lord, what a changeable creature is man! When You have taken him up to his highest altitude, how speedily he comes down, by the force of Your hand, to the very depths! How soon do You bring him down from his highest eminence even to the very dust!

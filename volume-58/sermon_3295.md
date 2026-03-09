@@ -1,12 +1,5 @@
 # Sermon 3295 | Communion With Christ and His People
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 28, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT A COMMUNION SERVICE AT MENTONE, ON A LORD'S-DAY AFTERNOON IN DECEMBER, 1882.
-
 "The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ? For we being many are one bread, and one body: for we are all partakers of that one bread." 1 Corinthians 10:16,17.
 
 [Another Sermon by Mr. Spurgeon on verse 16 is #2572, Volume 44--FELLOWSHIP WITH CHRIST.]

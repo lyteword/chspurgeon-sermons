@@ -1,12 +1,5 @@
 # Sermon 3470 | An Earnest Entreaty
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 5, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Show Your marvelous loving kindness." Psalm 17:7.
 
 IF one were about to have an audience with the Queen, or with some other royal personage, he might be apt to say, "How shall I behave myself? What am I expected to do? What is the proper form of address?" Now, in entering into the Presence of the great King of Kings, the Eternal God, we may suppose the trembling penitent saying, "What shall I do? How shall I come before the Most High God? What words shall I use and into what fashion shall I cast my desires?" Well, Holy Scripture has been very rich in answers to this question, for you have hundreds of most appropriate prayers made ready to your hand! We might readily enough compose a Biblical Liturgy, if one believed in Liturgies at all! Nor would it be difficult to find Scriptural words for every desire that could possibly strike the human heart. The Bible, besides all its other excellences, is a great and universal Prayer Book, and has in it petitions suited to all classes and conditions of men at all times, whatever their desires and necessities may be. Now I take out of this Prayer Book this one short supplication. I know the children of God will join with me in praying it, and I trust that before we have done, some who never prayed before may make this their firm prayer, "Show Your marvelous loving kindness." Now, in the first place, we may offer up this prayer--

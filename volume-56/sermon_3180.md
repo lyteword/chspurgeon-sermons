@@ -1,12 +1,5 @@
 # Sermon 3180 | Christ the Creator
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 13, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 7, 1873.
-
 "All things were created by Him and for Him." Colossians 1:16.
 
 THERE can be no mistake as to the Person concerning whom Paul is writing under the Inspiration of the Holy Spirit--it is Jesus of Nazareth, the Incarnate Son of God who was crucified on Calvary for, writing concerning the same Person in the 14th verse, the Apostle says, "In whom we have redemption through His blood, even the forgiveness of sins." It is, therefore, that Savior whose blood was shed for His people's redemption who is here declared to be the Creator of all things and by whom all things consist!

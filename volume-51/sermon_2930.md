@@ -1,12 +1,5 @@
 # Sermon 2930 | "Hiding in You!"
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 6, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 14, 1876.
-
 "I flee unto You to hide me." Psalm 143:9.
 
 WHAT a great mercy it is for us that David had not a smooth path and an easy life! We would have lost much valuable instruction if he had been able to hold on continually the even tenor of his way. Whereas, now, we are great gainers by his trials and sufferings. In reading the Psalms of David, you will often find a verse which just suits your own case. It is hardly possible for you to be placed in any position without discovering that the son of Jesse has been there before you. I cannot, in all respects, liken him to the Lord Jesus Christ, who was in all points tempted like as we are, yet, to a large extent, it was so with David as well as with "great David's greater Son." He seems to have been not merely one man, but "all mankind's epitome," and to have known almost all human temptations, human sins and human joys, having been led, sometimes by the Spirit, and sometimes, alas, by his own frailty and foolishness, into all sorts of strange places in order that he might become an instructor to us.

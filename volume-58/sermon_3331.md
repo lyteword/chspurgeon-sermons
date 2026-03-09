@@ -1,12 +1,5 @@
 # Sermon 3331 | Knowing and Believing
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 5, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 30, 1866.
-
 "I know whom I have believed." 2 Timothy 1:12.
 
 THE text is wholly taken up with three things--with knowing, with believing and with the Person who is known and believed. And upon both the knowing and the believing, Paul is very decided. He puts in no, "if," no word of change. He does not say, "I hope so," or, "I trust so," but, "I know I have believed and I know whom I have believed." It is all assurance and not a shadow of doubt! Let us imitate the Apostle, or ask for Grace to be able to imitate him, that we may shake off the dubious phraseology which is so common among Christians, nowadays, and may be able to speak with Apostolic confidence upon a matter upon which we ought to be confident if anywhere at all, namely--our own salvation!

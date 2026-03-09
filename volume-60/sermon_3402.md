@@ -1,12 +1,5 @@
 # Sermon 3402 | The Nail in a Sure Place
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 16, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I will fasten him as a nail in a sure place, and he shall be for a glorious throne to his father's house. And they shall hang upon him all the glory of his father's house, the offspring and the issue, all vessels of small quantity, from the vessels of cups, even to all the vessels of flagons. In that day, says the Lord of Hosts, shall the nail that is fastened in the sure place be removed and be cut down and fall; and the burden that was upon it shall be cut off: for the Lord has spoken it." Isaiah 22:23-25.
 
 WE have read, in your hearing, the occasion of these words. Shebna the scribe, having become proud and vainglorious, was to be put away and his place to be occupied by a better man on whom God promised to establish His favor. When Shebna the scribe was put away, it was like the drawing out of a nail which, apparently, had been well fastened, and all that had been hanging upon it came down with its fall. Thus did Shebna's family suffer for his sin. It is just so in the world at this day. It were well if some men who have gone into evil ways had considered this. It is not they, alone, who suffer. Such is the order and constitution of the commonwealth of manhood, that when the husband sins, the household must feel much of the smart. Oftentimes, for wife and children, there has been wrung out a cup of bitterness, of which they have been made to drink, not through their own fault, but through the fault of the head of the family. Should there be any men here who have strayed into this house, tonight, who contemplate putting forth his hand to that which is not good, though he might dare to risk the consequences for his own sake, yet, for the sake of the children of his loins and the wife of his bosom, let him pause lest, perhaps, he fill their lives with bitterness, or send them to their graves prematurely in poverty and shame.

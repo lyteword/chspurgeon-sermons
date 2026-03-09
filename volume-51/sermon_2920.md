@@ -1,12 +1,5 @@
 # Sermon 2920 | Election--its Defenses and Evidences
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 26, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
-
 "Knowing, brethren beloved, your election of God. For our Gospel came not unto you in word only, but also inpower, and in the Holy Spirit, and in much assurance... And you became followers of us, and of the Lord having received the word in much affliction, withjoy of the Holy Spirit." 1 Thessalonians 1:4-6.
 
 AT the very announcement of the text, some will be ready to say, "Why preach upon so profound a Doctrine as Election?" I answer, because it is in God's Word, and whatever is in the Word of God is to be preached! "But some Truths of God ought to be kept back from the people," you will say, "lest they should make an ill use of them." That is Popish doctrine! It was upon that very theory that the priests kept back the Bible from the people--they did not give it to them lest they should misuse it. "But are not some Doctrines dangerous?" Not if they are true and rightly handled. The Truth of God is never dangerous--it is error and reticence that are fraught with peril! "But do not men abuse the Doctrines of Grace?" I grant you that they do! But if we destroyed everything that men misuse, we would have nothing left! Are there to be no ropes because some fools will hang themselves? And must cutlery be discarded and denounced because there are some who will use dangerous weapons for the destruction of their adversaries? Decidedly not! Besides all this, remember that men read the Scriptures and think about these Doctrines and, therefore, often make mistakes about them. Who, then, shall set them right if we who preach the Word hold our tongues about the matter?

@@ -1,12 +1,5 @@
 # Sermon 2962 | Diamond Hinges--"as" and "so"
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 1, 1875.
-
 "For this is as the waters of Noah unto Me; for as Ihave sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you." Isaiah 54:9.
 
 THERE are some people in the world who, the moment we begin to speak of a type, try to disparage that style of speech by calling it "spiritualizing." They seem to be far too wise to be able to learn anything by that mode of teaching. Yet the Holy Spirit has given us, in the Old and New Testaments, abundant instances of spiritualizing and, though He could have used new metaphors and fresh phrases in His Infinite Wisdom, He preferred to use the old historical allusions and the old historical types for the instruction of God's people. It is a pity that we should crave that which is new when it can truly be said, "the old is better." In the case before us, the Holy Spirit uses Noah's flood and the Lord's Covenant-- that it should no more return to destroy the earth--as symbolical of the Covenant of Grace which is made with the people of God in Christ Jesus. Surely He did this for our instruction! Oh, that He would shine upon the Word and make it to be both for our edification and our comfort! His Divine Treasure House is full of blessings, but He must give us the key or we shall not to able to enter. Open it, blessed Spirit, to all Your believing people!

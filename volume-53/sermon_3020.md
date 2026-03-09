@@ -1,12 +1,5 @@
 # Sermon 3020 | Good Cheer From Grace Received
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 27, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE. NEWINGTON.
-
 "And, behold, a woman, which was diseased with an issue of blood twelve years, came behind Him, and touched the hem of His garment: for she said within herself, If Imay but touch His garment, I shall be whole. But Jesus turned Him about, and when He saw her, He said, Daughter, be of good comfort; your faith has made you whole. And the woman was made whole from that hour." Matthew 9:20-22.
 
 > But as He went the people thronged Him. And a woman having an issue ofblood twelve years, which had spent all her living upon physicians, neither could be healed ofany, came behind Him, and touched the border of His garment: and immediately her issue of blood stanched. And Jesus said, Who touched Me? When all denied, Peter and they that were Him said, Master, the multitude throng You and press You, and You say, Who touched Me? And Jesus said, Somebody has touched Me: for I perceive that virtue is gone out of Me. And when the woman saw that she was not hid, she came   

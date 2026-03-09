@@ -1,12 +1,5 @@
 # Sermon 2918 | Facing the Wind
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 12, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 28, 1876.
-
 "But you, brethren, be not weary in doing good," 2 Thessalonians 3:13
 
 THE Christian church ought to be an assembly of holy men. Its members should, all of them, be eminently peaceable, honest, upright, gracious and Christlike. In the main and in spite of all our failures I trust these characteristics may be seen in the churches of our Lord Jesus Christ. But, still, from the beginning there has been a mixture. Judas in the sacred college of the 12 Apostles seemed to be a prophecy to us that there would always be troubles in Israel. It was so in the Church at Thessalonica to which Paul wrote two Epistles, part of the last of which we have just now been reading. There was evidently, then, a class of people who because the charity of the church was very large, imposed upon it and, under pretense of great spirituality, refused to work, busying themselves instead in doing mischief according to the old adage that--

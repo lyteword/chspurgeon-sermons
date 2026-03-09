@@ -1,15 +1,7 @@
 # Sermon 3535 | Safe, Though Surrounded By Sin
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1869.
-
 "Unto You will I cry, O Lord, my Rock. Do not be silent to me, lest if You are silent to me, I become like those who go down to the pit." Psalm 28:1.
 
-[The original title of this sermon was SAFE, THOUGH SIN-SURROUNDED]
 
 I HAVE no doubt that the first and most natural meaning of these words is this, that David passed through such mental distress, such accumulated grief, that unless his prayer should bring him consolation from Heaven, he felt that he must despair and so become like those who sink into everlasting despair, going down into the pit of Hell. I think it is a cry against his misery which vexed him--an earnest petition that he might not have to suffer so long as to drive him into that same despair which is the eternal inheritance of lost souls.
 

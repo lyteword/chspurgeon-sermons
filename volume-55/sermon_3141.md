@@ -1,12 +1,5 @@
 # Sermon 3141 | Women's Rights--a Parable
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 22, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Moses brought their cause before the LORD." Numbers 17:5.
 
 BY the help of God the Holy Spirit, I want to use this incident which forms a kind of episode in the rehearsal of the history of Israel's 40 years' wanderings in the wilderness, for a twofold purpose. First, let me indicate its general teach-ingand, secondly, let me take it as a ground of appeal to certain special classes.

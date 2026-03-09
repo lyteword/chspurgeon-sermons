@@ -1,12 +1,5 @@
 # Sermon 3161 | Positivism
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 9, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1875.
-
 "We know...And we know...And we know." 1 John 5:18-20.
 
 IT is remarkable how throughout the whole of John's Epistle he continually uses the word, "know." It has quite refreshed me to carefully read through the Epistle and to observe how, as the clock strikes the same note again and again, John seems to have kept to this monotone--"We know, we know, we know." In this age, when it is fashionable not to know anything, when the professedly learned would hold us in a state of perpetual doubt and our great poet tells us that there is more faith in honest doubt than in half the creeds--and everybody seems to be bewitched with what is called "modern thought"--it is quite cheering to one's ears and delicious to one's heart to hear the bell strike out again and again, "We know, we know, we know"! After all, there is something certain somewhere, some grip for our anchor, some foundation to build our eternal hopes upon--something that can be trusted, something besides cloud and will-o'-the wisps! "We know, we know, we know." Take your pencils and read through this first Epistle of John and underline the word, "know," and you will feel the force of our remark. Look at the second Chapter--"Hereby we do know that we know Him." "He that says I know Him." "Hereby know we that we are in Him." In the 13th verse we read, "Because you have known Him." "I write unto you, little children, because you have known the Father. I have written unto you, fathers, because you have known Him that is from the beginning." "We have an unction from the Holy One and you know all things." "I have not written unto you because you know not the Truth, but because you, knowi t, and that no lie is of the Truth." And so in the third Chapter, verse after verse. "The world knows us not, because it knew Him not." "We know that when He shall appear, we shall be like He, for we shall see Him as He is." The fifth verse "You know that He was manifested to take away our sin." And so it is--on, on, on, all through the Chapter--"we know," "you know," and "they know."

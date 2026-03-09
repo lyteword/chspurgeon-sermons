@@ -1,16 +1,5 @@
 # Sermon 3500 | Two Coverings and Two Consequences
 
-A Sermon
-
-
-Published on Thursday, February 24th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [8]the Metropolitan Tabernacle, Newington.
-
 "He that covereth his sins shall not prosper."--Proverbs 38:13.
 
 "Thou Hast covered all their sins."--Psalm 85:2.

@@ -1,12 +1,5 @@
 # Sermon 3266 | The Priesthood of Believers
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 7, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 28, 1864.
-
 "An holy priesthood." 1 Peter 2:5.
 
 IN this Epistle Peter is speaking of the scattered saints in all parts of the world and, taught by the Holy Spirit, he says of them that they were "an holy priesthood." He is not talking about ministers! He is not speaking of a certain number of men who have passed through many grades of office and are, thereby, qualified to wear robes of a certain color-- he is speaking of every Believer and he calls every saint a member of "an holy priesthood!" Every Mary and every John, every peasant girl and every laborer that puts his hands upon the plow, every servant of God in every capacity is a member of this "holy priesthood"--at least so Peter says, and Peter was not mistaken, for he spoke as he was "moved by the Holy Spirit."

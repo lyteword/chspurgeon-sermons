@@ -1,12 +1,5 @@
 # Sermon 3276 | Christ's Glory Turned to Shame
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 16, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1865.
-
 "O you sons of men, how long will you turn My Glory into shame?" Psalm 4:2.
 
 DAVID had many times been the subject of cruel mockery and, therefore, while writing this Psalm probably in the first place about himself, he also described in it one of the bitterest of our Savior's sufferings. What an illustration this is of the union which exists between Christ and His people in the matter of experience! He had a Cross to bear and so have they. He was "despised and rejected of men," and so are they. The Church of God is not like the image that Nebuchadnezzar saw in his dream, which had a head of gold and feet of iron and clay, but as is the Head, such are also the members. As the Head had to endure cruel mocking, the members must not expect to be exempted from similar treatment. This is why so many of the Psalms of David are equally applicable to David and to his Lord. And I believe that we have, in this verse, a reference not only to David, himself, but also to "great David's greater Son." In the case of both of them, the sons of men turned their glory into shame, but I want especially to call to your remembrance the sufferings of our Savior in this respect.

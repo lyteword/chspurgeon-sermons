@@ -1,12 +1,5 @@
 # Sermon 3085 | An Exciting Enquiry
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 26, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when He was come into Jerusalem, all the city was moved, saying, Who is this?" Matthew 21:10.
 
 OH, that something would move this great city of ours! I am afraid that at least one-third of our population is settling down in stolid indifference to all religion. It is not that there are thousands of professed infidels, but without making the profession of being so, infidels they really are. It is not that they hate the Gospel--they do not care to hear it, or to know what it teaches. They have not enough interest in it to enter the sanctuary even for once in their lives, unless influenced by fashion or by fear they may attend some ceremonial observance. I think we can hardly form a conception of the fearful heathenism of this great metropolis. You might go down street after street and find that the larger proportion of the people, so far from making any profession of religion, did not even enter a place of worship and knew nothing more than what the city missionary or the Bible woman may have been helped to teach them. We are getting into a very, very, very sad state of things--we need something or other that will get at the masses and compel the city to be moved.

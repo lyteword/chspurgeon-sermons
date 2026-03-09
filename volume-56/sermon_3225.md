@@ -1,12 +1,5 @@
 # Sermon 3225 | Finding and Following Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 24H, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 21, 1870.
-
 "We have found Him." John 1:45.
 
 [Another Sermon by Mr. Spurgeon on verses 43 to 45 is #2375, Volume 40--FOUND BY JESUS--AND FINDING JESUS.]

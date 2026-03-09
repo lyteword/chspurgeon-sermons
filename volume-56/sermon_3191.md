@@ -1,12 +1,5 @@
 # Sermon 3191 | The True Aim of Preaching
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 31, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Be it known unto you, therefore, brethren, that through this Man is preached unto you the forgiveness of sins." Acts 13:38.
 
 PAUL'S mode of preaching, as illustrated by this chapter, was first of all to appeal to the understanding with a clear exposition of doctrinal Truths of God and then to impress those Truths upon the emotions of his hearers with earnest and forcible exhortations. This is an excellent model for revivalists. They must not give exhortation without Doctrine, for if so, they will be like men who are content with burning powder in their guns, but have omitted the shot! It is the Doctrine we preach, the Truth we deliver which God will make a power to bless men. However earnest and zealous we may be in speaking, if we have not something weighty and solid to say, we shall appear to be earnest about nothing and shall not be at all likely to create a lasting impression. Paul, if you notice through this chapter, first of all gives the history of Redemption, tells the story of the Cross, insists upon the Resurrection of the Savior and then he comes to close and personal dealings with the souls of men and bids them not neglect this great salvation!

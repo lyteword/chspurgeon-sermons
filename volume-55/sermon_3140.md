@@ -1,12 +1,5 @@
 # Sermon 3140 | The Glory of Our Strength
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 15, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 13, 1873.
-
 "For You are the glory of their strength." Psalm 89:17.
 
 THE Psalmist Ethan is here speaking of the Covenant people--the people of God, the people who know the joyful sound of the Covenant of Grace and who, therefore, walk in the Light of God's Countenance. It is said of these persons that God is the glory of their strength. All strength of every sort comes from God. Since He is the Author of all being, it is He who gives strength to every form of existence. Read the remarkable chapters which close the Book of Job and see how God there claims to have given strength to the eagle in her lofty flight and to the horse when he paws in the valley-- and leviathan and behemoth, those mighty creatures of the sea and the land! God claims to have given all the strength that there is in any of these members of the inferior creation and we are certain that He also lays an equally just claim to all the strength that there is in man. The power of the arms, the swiftness of the feet, the keenness of intellect--all these come from the Most High who has worked such wonders in the formation of the human frame! Whatever of vigor and capacity there may be in it, all must be traced to the almighty hand of God! Even the glory of man's physical strength, whether he knows it or not, belongs to God. He makes the young man vigorous and the full-grown man mature in strength, so He ought to have the service of the strength which He has, Himself, created!

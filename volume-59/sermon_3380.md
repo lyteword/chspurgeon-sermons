@@ -1,12 +1,5 @@
 # Sermon 3380 | Our Lord's Voluntary Poverty
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 13, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 14, 1867.
-
 "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor; that you, through His poverty, might be rich." 2 Corinthians 8:9.
 
 THE Apostle was anxious to stir up the Corinthian Church to generosity. They were a Church of very great talents. They were an unusually gifted Church, so that they were able to maintain in their midst a form of worship which is not often maintained and could not conveniently become the general form in the Christian Church, namely, that a large proportion of the members spoke to edification, whereas in most other Churches there was no such abundance of spiritual gifts. They were in the midst of a city of polished inhabitants and it had pleased God to call in that city some of the ablest men. But they seem to have been far from taking the front rank in some respects. They needed to be exhorted to purge themselves from a sin which no Church had ever tolerated that had a ministry, and which only that Church would allow, because it was nobody's business to look after it--and so it was not looked after. This sin was a great lack of generosity in giving. Now, in order to excite the Church at Corinth, the Apostle uses as an argument, first of all, the great generosity of the far poorer church in Macedonia. He says that in the midst of their poverty, they gave, not only up to their power, but generously beyond it. It is right for us to stimulate the zeal of one Christian by the example of another Christian--and it is the bounden duty of all Believers so to walk that they may be worthy to be examples to the rest of the flock.

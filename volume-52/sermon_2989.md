@@ -1,12 +1,5 @@
 # Sermon 2989 | Near the Kingdom, or in It?
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 24, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 24, 1875.
-
 "You are not fair from the Kingdom of God." Mark 12:34.
 
 IN certain respects, all men are alike--alike fallen and alike needing the Savior. Hence we have not 20 gospels, but only one--and we have not the Gospel graduated to scale to suit different classes of society, or different conditions of morality. We have the same Christ to set before sinners of every sort as their only hope--and the same message to proclaim to everyone of them, "Believe on the Lord Jesus Christ and you shall be saved."

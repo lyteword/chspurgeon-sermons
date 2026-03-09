@@ -1,12 +1,5 @@
 # Sermon 3091 | Pedigree
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 7, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Are they Israelites? So am I." 2 Corinthians 11:22.
 
 PAUL was proud of his extraction as a Jew. Taking this expression in its literal sense, I feel that he had much to be proud of. Judah's banner must not rank second among the nations. The nation of Israel is most ancient and most honorable. When as yet Greece and Rome were not known, God had brought forth His people out of Egypt "with a mighty hand and with an outstretched arm," and had cast out Amorite and Perizzite to make room for the vine which He had brought out of Egypt. Poets, statesmen, philosophers, divines had all come to ripeness and the fullness of strength in Judah's land, while as yet the other nations were sunken in barbarism. When our little island of the sea was just a mass of forests, with here and there, perhaps, a naked savage wandering through it, David was praising God on a ten-stringed instrument! We talk of Norman blood, but what is it compared with Jewish blood? We speak of the dignity of peers and nobles of our infant monarchy, but this ancient nation stretches its parents of nobility far back--right up to the days of "the Friend of God," when he stood under the oak at Mamre!

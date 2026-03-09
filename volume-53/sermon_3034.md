@@ -1,12 +1,5 @@
 # Sermon 3034 | Reasons for Seeking God
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 4, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Seek Him that makes the seven stars and Orion, and turns the shadow of death into the morning, and makes the day dark with night: that calls for the waters of the sea, and pours them out upon the face of the earth: The Lord is His name." Amos 5:8.
 
 IDOLATRY has been, in every age, the besetting sin of mankind. In some form or another, the unregenerate are all given to it and even in God's people there remains in their old nature, a tendency towards it.

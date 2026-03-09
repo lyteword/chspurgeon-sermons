@@ -1,12 +1,5 @@
 # Sermon 3424 | Meat Indeed, and Drink Indeed
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 17, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For My flesh is meat indeed, and My blood is drink indeed." John 6:55.
 
 THE crowd had followed Jesus for the loaves and fishes. He gently upbraids them for being guided by so carnal an appetite and impelled by so coarse a motive to follow Him. Then He tells them that there is a spiritual meat which is far better--a spiritual drink far richer than those things which nourish the body and gratify the animal tastes. After which, speaking of Himself spiritually, He says, "My flesh is meat indeed"--real meat, such as supports the soul, and, "My blood is drink indeed"--real drink, the best, the truest beverage, such as invigorates the spirit for immortality!

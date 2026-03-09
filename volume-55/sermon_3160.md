@@ -1,12 +1,5 @@
 # Sermon 3160 | The Call of "Today"
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 2, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 1, 1873.
-
 Therefore (as the Holy Spirit says) "today if you will hear His voice, harden not your hearts." Hebrews 3:7.
 
 THE Holy Spirit says, "Today." There is a great talk about yesterday. There are some who will have it that there are none like the days that are past--"the good old times." There are some who glory in what they did years ago. Their work was done yesterday. They have long ago retired from the business of life, but still they are accustomed to indulge in the recollections of what they did in days gone by. Yesterday is also dwelt upon in lamentation and even in despair. Yesterday! Alas, opportunities are past. "The harvest is past, and the summer is ended, and we are not saved." Yesterday we lived in sin. Yesterday we rejected Christ. Yesterday we stifled conscience and, therefore, despair says that it is now all over. Time is gone. Closed forever are the gates of Mercy--the death warrant is signed--the gallows are erected for the execution.

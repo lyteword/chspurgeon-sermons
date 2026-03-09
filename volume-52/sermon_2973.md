@@ -1,12 +1,5 @@
 # Sermon 2973 | Thought Condemned, Yet Commanded
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 6, 1876.
-
 "Therefore take no thought, saying, What shall we eat? Or, What shall we drink? Or, What shall we wear? (For after all these things do the Gentiles seek) for your heavenly Father knows that you have need of all these things. But seekyou first the Kingdom ofGod, and His righteousness; and all these things shall be added unto you." Matthew 6:31-33.
 
 THESE are soothing words to read, but difficult words to put into practice. Had anyone except the Lord Jesus Christ uttered them, we might have quoted to him that ancient saying, "Physician, heal yourself," for we shall never find any other teacher who is, himself, absolutely free from care. But Jesus Christ not only gives us the purest possible precepts, but His own life is the best exposition of them. If ever you want to know what Christ means by His teaching, look at His life. You may rest assured that He never gave us a command which He was not, Himself, prepared to obey. Those of us who have put our trust in Christ are His servants and He, Himself, condescended to be a Servant for our sakes. Indeed, He is the real model Servant and the service which He requires of us, He, Himself, shows us how to perform. I do not intend, therefore, so much to expound the text by any words of my own, as to illustrate it by the life of Jesus Christ Himself. I think that it may be more profitable and certainly it will be more unusual, if I take these words of Christ and say to you, "If you would know their meaning, look at the life of Him whom you call Master and Lord. You can best understand His words by His works."

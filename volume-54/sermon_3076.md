@@ -1,12 +1,5 @@
 # Sermon 3076 | The Cause and Effect of Heart Trouble
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 23, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MARCH 12, 1874.
-
 "Let not your heart be troubled, neither Jet it be afraid." John 14:27.
 
 THERE appeared to be great cause for their heart to be troubled and abundant reason for being afraid, for their Lord was about to be taken from them. What would a few timid disciples be able to do without their Master? He had always been their Teacher, Friend and Guide. When they had been assailed by adversaries, He had always espoused their cause and routed their enemies. They were safe enough as long as He was with them, but what would they be without Him? And, alas, He was going away to die! He was about to be dragged away like a common felon, falsely accused by bribed witnesses and then put to the cruel and shameful death of the Cross. Would not the ignominious death of the Captain be followed by the destruction of the army and the disastrous close of the holy war? The disciples might well be seriously afraid when they knew that their great adversary was very powerful, exceedingly cunning and desperately determined to crush out the new kingdom. It must have sounded somewhat strange in their ears that the Savior should say to them, "Do not be troubled about it, and do not be afraid."

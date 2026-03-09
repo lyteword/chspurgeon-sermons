@@ -1,12 +1,5 @@
 # Sermon 3131 | The Fainting Hero
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 11, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He was very thirsty, and called on the LORRD, and said, You have given this great deliverance into the hand of Your servant: and now shall I die of thirst, and fall into the hand of the uncircumncised?" Judges 15:18.
 
 YOU will remember the occasion on which these words were spoken. Samson had been brought down from the top of the rock Etam, bound with cords by his own brothers, and given up as a captive into the hands of the Philistines. But no sooner did he reach the Philistines than the supernatural force of God's Spirit came upon him and he snapped the cords as though they had been but hemp and, seeing the jawbone of a newly-slaughtered donkey lying near at hand, he grasped that strange weapon and fell with all his might upon the hosts of the Philistines! And though, no doubt, they took to speedy flight, yet the one man, smiting them hip and thigh, left no less than a thousand persons dead upon the ground! And as he piled up the heaps of the slain, he looked with grim satisfaction upon the slaughter which he had worked, crying, "With the jawbone of a donkey, heaps upon heaps, with the jaw of a donkey have I slain a thousand men." There was, perhaps, a little of vaunting and vain-glorying in his conduct, but in a moment, a sudden faintness came over him. He had been exerting himself most marvelously, straining every nerve and muscle, and now, being very thirsty, he looked round him for a stream of water, but there was none--and he felt as if, for lack of water, he would die and then the Philistines would rejoice over him! With that simple-minded faith which was so characteristic of Samson, who was nothing but a big child, he turned his eyes to his heavenly Father, and cried, "O Jehovah, You have given me this great deliverance, and now shall I die of thirst? After all that You have done for me, shall the uncircumcised rejoice over me because I die for lack of a drink of water?" Such confidence had he that God would interpose on his behalf.

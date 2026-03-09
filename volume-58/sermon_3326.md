@@ -1,12 +1,5 @@
 # Sermon 3326 | The Wondrous Covenant
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 31, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For this is the Covenant that I will make with the house of Israel after those days, says the Lord; I will put My Laws into their mind, and write them in their hearts; and I will be to them a God, and they shall be to Me a people." Hebrews 8:10.
 
 THE Doctrine of the Divine Covenant lies at the root of all true theology. It has been said that he who well understands the distinction between the Covenant of Works and the Covenant of Grace is a master of divinity. I am persuaded that most of the mistakes which men make concerning the Doctrines of Scripture are based upon fundamental errors with regard to the Covenants of Law and of Grace. May God grant us now the power to instruct--and you the Grace to receive instruction on this vital subject.

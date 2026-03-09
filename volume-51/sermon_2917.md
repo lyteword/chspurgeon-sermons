@@ -1,12 +1,5 @@
 # Sermon 2917 | The Doors of the Shadow of Death
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 5, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 24, 1876.
-
 "Have you seen the doors of the shadow of death?" Job 38:17.
 
 Last Sabbath our spirits flew forward as far as the Judgment Day. We stood with wondering awe to gaze upon the Great White Throne and the fillet of gold about the head of the Reaper who gathered in the harvest of the earth. We trembled as we saw the other angel take the sharp sickle and reap the world's vintage and hurl it into the winepress of Jehovah's wrath where it was trampled underfoot until the blood of men flowed forth in torrents. [See Sermon #2910, Volume

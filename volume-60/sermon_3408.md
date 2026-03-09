@@ -1,12 +1,5 @@
 # Sermon 3408 | Not Boasting, But Trusting
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 28, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Not of works lest any man should boast" Ephesians 2:9.
 
 THIS is very plain. There is no mistaking the sense. We are saved by Grace and not by our own doings. A reason is assigned. If we were saved by our own doings, it would be natural and certain that we would boast. It is well that the Apostle is so very explicit here and elsewhere upon this Doctrine, for men will fall against and blunt the edge of his statement. Self-righteousness is the natural religion of every degraded heart. Only the Spirit of God can make a man really receive and acknowledge the Truth of God. The Apostle seems determined that if any reject it, it shall not be for lack of clearness in his statement as a teacher. He does not beat about the bush, or go round about, or mince matters--he comes at once to the point, "By Grace are you saved"--and then he gives the negative, the backstroke of the sword, "Not of works, lest any man should boast." This is the old controversy of Christianity from the very beginning. The first heavy fire of the Gospel ordinance was directed against the Judaizers. They said salvation was by ceremonies and the works of the Law of God. In all sorts of shapes and ways, sometimes straightforwardly and sometimes cunningly, they tried to get into the Christian Church the idea that the works of men could have some merit in them and contribute in some degree to their salvation! The Apostle was a very sturdy opponent of this subtle innovation. His Epistle to the Romans, his Epistle to the Galatians, his Epistle to the Ephesians and, indeed, all his writings seem like so many cannons dragged to the front and discharging red-hot shot against the very idea of salvation by the works of the Law. "By the works of the Law there shall no flesh living be justified," he says, "for by the Law is the knowledge of sin."

@@ -1,12 +1,5 @@
 # Sermon 3401 | Sharing Christ's Life
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 9, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 1, 1867.
-
 "Yet a little while, and the world will see Me no more; but you will see Me. Because I live, you shall live also." John 14:19.
 
 THIS was and is the mark of the true Believer--that he sees Jesus. When Jesus was here among men, the world saw Him in a certain sense, but yet in truth it did not see Him at all. The world's eyes saw the outside of Christ--the flesh of the Man, Christ, but the true Christ the ungodly eyes could not discern. They could not perceive those wonderful attributes of Character, those delightful graces and charms which made up the true spiritual Christ. They saw but the husk, and not the kernel. They saw the quartz of the golden nugget, but not the pure gold which that quartz contained. They saw but the external Man--the real, spiritual Christ they could not see. But unto as many as God had chosen, Christ manifested Himself as He did not unto the world! There were some to whom He said, "The world sees Me not, but you see Me." Some there were whose eyes were anointed with the heavenly salve, so that they saw in "the Man, Christ Jesus," the God, the glorious Savior, the King-of-kings, The Wonderful, The Counselor, The Mighty God, The Everlasting Father, The Prince of Peace!

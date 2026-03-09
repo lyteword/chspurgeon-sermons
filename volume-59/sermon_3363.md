@@ -1,12 +1,5 @@
 # Sermon 3363 | Witnessing at the Cross
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 17, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And one of the malefactors who was hanged, railed on Him, saying, If you are Christ, save Yourself and us. But the other answering rebuked him, saying, Do not you fear God, seeing you are in the same condemnation? And we, indeed, justly, for we receive the due reward of our deeds; but this Man has done nothing amiss. And he said unto Jesus, Lord, remember me when You come into Your Kingdom. And Jesus said unto him, Verily, I say unto you, today shall you be with Me in Paradise." Luke 23:39-43.
 
 THE dying thief was certainly a very great wonder of Divine Grace. He has generally been looked upon from one point of view only--as a sinner called at the eleventh hour and, therefore, an instance of special mercy because he was so near to death. Enough has been made of that circumstance by others! To my mind, it is by no means the most important point in the narrative. Had the thief been predestined to come down from the Cross and live for half a century longer, his conversion would have been neither more nor less than it was. The work of Grace which enabled him to die in peace would, if it had been the Lord's will, have enabled him to live in holiness. We may well admire Divine Grace when it so speedily makes a man fit for the bliss of Heaven! But it is equally to be adored when it makes him ready for the battle of earth. To bear a saved sinner away from all further conflict is great Grace. But the power and love of God are, if anything, even more conspicuous when, like a sheep surrounded by wolves, or a spark in the midst of the sea, a Believer is enabled to live on in the teeth of an ungodly world and maintain his integrity to the end! Dear Friend, whether you die as soon as you are born-again, or remain on earth for many years is comparatively a small matter--and will not materially alter your indebtedness to Divine Grace! In the one case the great Husbandman will show how He can bring His flowers speedily to perfection. And in the other He will prove how He can preserve them in blooming beauty despite the frosts and snows of earth's cruel winter! In either case your experience will reveal the same love and power.

@@ -1,12 +1,5 @@
 # Sermon 3234 | Strangers and Sojourners
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 26, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 5, 1863.
-
 "For I am a stranger with You, and a sojourner, as all my fathers were." Psalm 39:12.
 
 IF you read the whole verse, you will see that David used these words as an argument in prayer--"Hear my prayer, O Lord, and give ear unto my cry; hold not Your peace at my tears: for I am a stranger with You, and a sojourner, as all my fathers were." It is a grand thing to be able to argue with God in prayer! Faith grips the Angel of the Covenant, but it is by well-grounded arguments that we will wrestle with Him until we prevail. Expectancy puts in the wedge, but it is solid argument that drives it home. When we want to obtain any mercy from the Lord, we must support our plea by reasons drawn from His Nature, His promises and the experiences of His children as recorded in His Word. Martin Luther was a great master of this holy art of arguing with God in prayer, as was the Apostle Paul and, therefore, their supplications were not presented in vain. Let it be so with you, also, Beloved--besiege the Throne of Grace with the most powerful arguments you can find in the heavenly armory! Lay hold upon the arm of Omnipotence and say to the Lord, as wrestling Jacob did, "I will not let You go, unless You bless me."

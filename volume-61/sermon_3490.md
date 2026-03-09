@@ -1,12 +1,5 @@
 # Sermon 3490 | Sincere Seekers--assured Finders
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 16, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 26, 1871.
-
 "If you seek Him, He will be found of you." 1 Chronicles 28:9.
 
 ALTHOUGH this was addressed to Solomon, it may, without any violence to the Truth of God, be addressed tonight to every unconverted person here present, for there are a great many texts of Scripture of a similar import which apply to all ungodly ones, such, for instance, as that, "Seek you the Lord while He may be found; call you upon Him while He is near." And that other, "He that seeks, finds; to him that knocks, it shall be opened." I should like to go round, if it were possible, and say to every hearer here, as I put my hand upon his shoulder, "If you seek your God, He will be found of you"--even of you. May I ask you to take it as spoken to each individual--not to your neighbors, not to one who is better or worse than yourselves, but to you? You, young man, and you of riper years, you of all ages, classes and sexes, "If you seek Him, He will be found of you." I know that those who think at all about religion and do not understand it, are very apt to conceive that there is something wonderfully mysterious about it. That a man should follow it, and may, perhaps, attain the blessing of it towards the end of life, or on a dying bed, though some conceive that then nobody is quite sure that he is saved unless it is some extraordinarily good man! Oh, is not this strange, that with a book so plain as this, and with a Gospel preached by so many in these days, yet the mass of mankind are in a cloud and a fog about the blessed Revelation of God? Jesus Christ is salvation! He is to be had--He is to be had now! You may know you have Him. You may be saved now --completely saved, and live in the full enjoyment of that knowledge! "If you seek Him, He will be found of you."

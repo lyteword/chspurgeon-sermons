@@ -1,12 +1,5 @@
 # Sermon 2959 | God's Love to the Saints
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 26, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 11, 1875.
-
 "Hereby perceive we the love of God, because He laid down His life for us." 1 John 3:16.
 
 

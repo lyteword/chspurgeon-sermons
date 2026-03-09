@@ -1,12 +1,5 @@
 # Sermon 3320 | A Bad King's Good Son
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 19, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, JUNE 24, 1866.
-
 "And all Israel shall mourn for him, and bury him: for he only of Jeroboam shall come to the grave, because in him there is found some good thing toward the LORD God of Israel in the house of Jeroboam." 1 Kings 14:13.
 
 WE must take the text, of course, with definite and full reference to its historical context. It seems that in the wicked house and family of Jeroboam, there was one godly child--and death, which very often mysteriously cuts down the green wheat, while it leaves the hemlock to ripen--seized upon this one and laid him low. Yet though he must die, there was this consolatory thought about his death, that it was the only one of the family that would ever have an honored burial, for all the others were to be slain by a death so sudden and violent that they were to be eaten by the fowls of the air or devoured by the dogs! This child was to be the only one who should have a funeral attended by mourners because he was the only child of the whole family in whose heart there was "found some good thing towards the Lord God of Israel."

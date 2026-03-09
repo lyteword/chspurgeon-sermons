@@ -1,12 +1,5 @@
 # Sermon 3354 | The Old Testament "Prodigal"
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 15, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And when he was in affliction, he besought the Lord his God, and humbled himself greatly before the God of his fathers, and prayed unto Him: and He was entreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that the Lord, He was God." 2 Chronicles 33:12,13.
 
 WHEN we wish to recommend a physician to a friend who is very ill, we are in the habit of mentioning certain cures which he has worked. And when we can produce several astonishing instances, we feel that we are going the right way to work to convince the judgment of our friend and to win his confidence in the doctor. Now, it is our impression that very many are anxious to be saved by the Grace of God, who, nevertheless, have not dared to trust the great Healer of souls. They know that they are in great danger, but they are reluctant to go to "the Beloved Physician." They are grievously afraid because of the greatness of their sins and they are filled with doubt and unbelief as to the possibility of their salvation on account of their singular sinfulness. Therefore, it struck me that if I could set before them a number of Scriptural instances of wonderful conversions, it might tend to encourage hope in Christ in their hearts and, under the blessing of the Holy Spirit, it might be the means of leading them to trust and try our Lord Jesus, out of whose very garments virtue flows. Perhaps, dear Friends, as you shall see how the Lord, the Healer, has looked on one and another, and restored them from the horrible disease of sin, you, too, who feel yourselves so far gone, may pluck up courage and say, "If He healed others, why should He not also heal me? I, too, will touch His garment's hem and see if He will not make me perfectly whole." How I wish that poor souls knew how ready my Lord Jesus is to save them! Then they would not stay back if they knew how eager He is to have mercy on the guilty! I pine within my soul to lead you to Jesus that you may be blest! That is the desire of my heart in introducing to you the case of Manasseh, whom I select from the Old Testament as a very prominent instance of glaring sin and of amazing Grace!

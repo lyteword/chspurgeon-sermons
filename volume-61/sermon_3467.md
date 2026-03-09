@@ -1,12 +1,5 @@
 # Sermon 3467 | A New Creation
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 15, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He who sat upon the throne said, Behold I make all things new." Revelation 21:5.
 
 Men generally venerate antiquity. It were hard to say which has the stronger power over the human mind-- antiquity or novelty. While men will frequently dote upon the old, they are most easily dazzled by the new. Anything new has at least one attraction. Restless spirits consider that the new must be better than the old. Though often disappointed, they are still ready to be caught by the same bait and, like the Athenians of Mars Hill, spend their time in nothing else but either to tell or to hear some new thing. And as for ourselves, dear Friends, as we sometimes mournfully think of the flight of time, we are known to cheerfully look out upon the new epochs as they begin to dawn upon us. If our calendar suggests some dismal memories in the past, our calculation predicts some happier prospects in the future! And it will sometimes happen that we leave so much anxiety, adversity and chastisement behind us, that it is a relief to hope that the tide has turned, and that a course of comfort, prosperity and mercy lies before us. One weeps over the past and the lost. I suppose the best of men must do so at times. I am sure those of us who are not the best, feel often constrained to pour out some such a lamentation as this--

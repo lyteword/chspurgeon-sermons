@@ -1,12 +1,5 @@
 # Sermon 3439 | Man Transient--god's Word Eternal
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 31, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 26, 1868.
-
 "The grass withers, the flower fades; but the Word of our God stands forever." Isaiah 40:8.
 
 A FEW thoughts, first, upon the things that wither. Then a word or two upon that word which endures. And then the lessons which the contrast will suggest. I. THE THINGS WHICH WITHER.

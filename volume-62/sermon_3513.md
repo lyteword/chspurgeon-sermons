@@ -1,18 +1,5 @@
 # Sermon 3513 | Christ's Marvellous Giving
 
-A Sermon
-
-
-Published on Thursday, May 25th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [21]the Metropolitan Tabernacle, Newington.
-
-ON Lord's-day Evening, November 25th, 1866.
-
 "Who gave himself for us."--Titus 2:14.
 
 WE have once more, you see, the old subject. We still have to tell the story of the love of God towards man in the person of his only begotten Son, Jesus Christ. When you come to your table you find a variety there. Sometimes there is one dish upon it, and sometimes another; but you are never at all surprised to find the bread there every time, and, perhaps, we might add that there would be a deficiency if there were not salt there every time too. So there are certain truths which cannot be repeated too often, and especially is this true of this master-truth, that "God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them." Why, this is the bread of life; "God so loved the world that he gave his only-begotten Son, that whosoever believeth on him should not perish, but have everlasting life." This is the salt upon the table, and must never be forgotten, This is a faithful saying, and worthy of all acceptation, "that Jesus Christ came into the world to save sinners, even the chief."

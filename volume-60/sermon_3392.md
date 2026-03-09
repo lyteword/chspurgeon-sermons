@@ -1,12 +1,5 @@
 # Sermon 3392 | Justification by Faith
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 5, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, APRIL 28, 1867.
-
 "Therefore, being justified by faith, we have peace with God through our Lord Jesus Christ." Romans 5:1.
 
 WE desire this evening not to preach upon this text as a mere matter of Doctrine. You all believe and understand the Gospel of Justification by Faith, but we want to preach upon it tonight as a matter of experience, as a thing realized, felt, enjoyed and understood in the soul. I trust there are many here who not only know that men may be saved and justified by faith, but who can say in their own experience, "Therefore, being justified by faith, we have peace with God through our Lord Jesus Christ," and who are now, at the present moment, walking and living in the actual enjoyment of that peace!

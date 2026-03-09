@@ -1,12 +1,5 @@
 # Sermon 3480 | Fragrant Graces
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 7, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "While the King sits at His table, my spikenard sends forth its fragrance." Song of Songs 1:12.
 
 THIS passage may be read in several ways. Literally, when Christ tabled among men, when He did eat and drink with them, being found in fashion as a Man, the loving Spirit broke the alabaster box of precious ointment on His head while the King was sitting at His table. Three times did the Church thus anoint her Lord, once His head and twice His feet, as if she remembered His threefold office and the threefold anointing which He had received of God the Father to confirm and strengthen Him. So she rendered Him the threefold anointing of her grateful love, breaking the alabaster box and pouring the precious ointment upon His head and upon His feet. Beloved, let us imitate the example of those who have gone before. Though we cannot, as the weeping penitent, wash His feet with our tears, or wipe them with the hairs of our head, like that gracious woman--we may be cautious of nothing, of fair adornments, or fond endowments--if we can but serve His cause or honor His Person. Let us be willing to "pour contempt on all our pride," and "nail our glory to His Cross." Have you anything tonight that is dear to you? Resign it to Him! Have you any costly thing like an alabaster box hidden away? Give it to the King! He is worthy and when you have fellowship with Him at His table, let your gifts be brought forth. Offer unto the King thanksgiving and pay your vows unto the Most High.

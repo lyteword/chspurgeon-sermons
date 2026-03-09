@@ -1,12 +1,5 @@
 # Sermon 3201 | Mercy for the Meanest of the Flock
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 9, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "In that day, says the Lord, will I assemble the lame, and I will gather the outcast, and those whom I have afflicted." Micah 4:6.
 
 THIS is spoken, I suppose, in the first place, of the Jewish people who have been so afflicted on account of their sin that they almost cease to be a nation. They are driven here and there among the lands and made to suffer greatly. In the last time, when Christ shall appear in His Glory in the days of halcyon peace, then shall Israel partake of the universal joy. Poor, limping, faltering Israel, afflicted with tempest, shall yet be gathered and rejoice in her God!

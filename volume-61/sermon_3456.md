@@ -1,12 +1,5 @@
 # Sermon 3456 | "Peace Be Unto You"
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 29, 1915.
-
-DELIVERED BY C H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORDS-DAY EVENING, OCTOBER 2, 1878.
-
 "And as they thus spoke.. .Peace be unto you." Luke 24:36.
 
 WE like to know how a person used to act, for we think we can infer from that how he will act. That is not always correct, however, for men change. But in our Savior's case, if we study His life, we may very well infer from what He did, what He will do, because He never changes! And this is a comfortable reflection for us at this time, that in the days of His flesh, while He was yet on earth, He loved the company of His people! If He changes not, then He still loves the company of His people. He did reveal Himself, then, to one. He will still speak comfortable words to His people when they are alone. One by one will He reveal Himself to them. He did speak graciously to two. Where Christians converse on holy things, they may still expect that Jesus will Himself draw near. But more frequently He lingered longest and revealed Himself most in the assembly of His people. Where the eleven were met, where many were gathered together, there the Savior came, not once, but twice and often. Learn, then, that we may expect Him here tonight! Peter, and James, and John are representatively here. Here, too, we have some of the goodly women--the Marys and Marthas are here. They are waiting for Him. Their hearts are longing for Him. He is the same now as always. Brothers and Sisters, we may expect Him! He will come to His old haunts. He will come and deal with His people as He did before. Twice, at least, we have it on record that our Savior came to His disciples when they were met on the first day of the week--from which I gather another comfortable thought, that as this is the first day of the week, we may for another reason expect Him to be here, to put honor on what now is the Lord's Day. He, at least twice, for so it is on record, came to His disciples and, standing in their midst, said, "Peace be unto you." On this first day of the week, this Lord's-Day, at eventide I trust--I hope, no, I expect, that you will feel Him here, and I pray that to each one of His people those soft words may come with Divine Power, "Peace be unto you."

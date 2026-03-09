@@ -1,12 +1,5 @@
 # Sermon 3236 | The Gospel Cordial
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 9, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 20, 1863.
-
 "Give strong drink unto him that is ready to perish, and wine unto those that are of heavy heart. Let him drink and forget his poverty, and remember his misery no more." Proverbs 31:6, 7.
 
 THESE somewhat singular sentences were spoken by the mother of Lemuel to her son, who was probably Solomon. She had already said to him, "It is not for kings, O Lemuel, it is not for kings to drink wine; nor for princes strong drink: lest they drink and forget the Law, and pervert the judgment of any of the afflicted." But such a king as Solomon must have had an abundant store of wine of all kinds, so his mother urged him to give it to the sick and the sad and the poor who needed it more than he did. The Jews were in the habit of giving a cup of strong drink, usually with some potent drug in it, to stupefy those who were about to be executed. Perhaps that is the meaning of the words, "Give strong drink unto him that is ready to perish." We know, too, how persons who have been very weak and ill, on the very borders of the grave, have often been medicinally relieved by wine given to them which they could not possibly purchase for themselves. I believe this is the literal meaning of the text and that if any man should be wicked enough to draw from it the inference that he would be able to forget his misery and poverty by drinking--he would soon find himself woefully mistaken, for if he had one misery before--he would have 10 miseries afterwards! And if he were previously poor, he would be in still greater poverty afterwards. Those who fly to the bottle for consolation might as soon fly to Hell to find a Heaven and, instead of helping them to forget their poverty, drunkenness would only sink them still more deeply in the mire!

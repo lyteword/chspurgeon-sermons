@@ -1,12 +1,5 @@
 # Sermon 3353 | The Great Teacher and Remembrancer
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 8, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 16, 1866.
-
 "But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things and bring all things to your remembrance, whatever I have said unto you." John 14:26.
 
 THE Savior, when He departed from this world, provided for all the needs of His people, not so much by giving them divers benefits, but by promising them the Presence of a gracious Person who should supply them all that their spiritual needs might demand. I trust there are many of us who know in some degree the value of the promise, "I will send the Comforter unto you," and that we know that when that Comforter comes, He brings us all good things. We have not to look in one place for quickening and in another place for comfort, in another for instruction and in a fourth for illumination. But when we receive the Spirit, we have all things in one! I may say of Him, as of Jesus Christ, "In Him dwells all the fullness of the Godhead bodily." In Jesus it dwelt in a real human Nature, physical as well as spiritual, but in the Holy Spirit we have the same fullness of Deity, but He comes in and dwells--resides--in His people!

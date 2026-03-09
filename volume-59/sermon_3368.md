@@ -1,12 +1,5 @@
 # Sermon 3368 | Fathomless
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 21, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your judgments are a great deep." Psalm 36:6.
 
 CONSIDER the word, "judgment," in whatever light you please, this sentence is true. There is much of mystery connected with the terrible calamities which afflict the earth, devastate nations, destroy cities and sweep away the relics of the past. There is much of mystery about the judgments of God upon the wicked in this life--how they prosper for awhile and are suddenly cut down--how they grow fat like oxen and then are taken away to the shambles. The judgments of God regarding the wicked in the world to come are also "a great deep," not to be spoken of with levity. A solemn subject is that of the future punishment of the ungodly--"a great deep," a deep where some, I am afraid, speculate so deeply that the risk they run is imminent--they may drown themselves in Hell.

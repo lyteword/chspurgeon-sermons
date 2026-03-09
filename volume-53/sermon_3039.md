@@ -1,12 +1,5 @@
 # Sermon 3039 | The King's Sharp Arrows
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 9, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 16, 1870.
-
 "Your arrows are sharp in the heart of the King's enemies; whereby the people fall under You." Psalm 45:5.
 
 WHEN our Lord Jesus Christ is represented as a King, we delight to think of Him as the Prince of Peace whose dominion shall put an end to all war and make it unnecessary for the nations of the earth to learn the arts of war any longer. Meanwhile, however, in this present state, evil is in the world, sin is all around us and thus sin is the curse of mankind. Christ, therefore, for our good, is a fighting King, combating evil and contending against sin in every shape and form and, in that aspect, we regard Him as standing in His glorious war chariot, riding through the world in the power of His Gospel, smiting right and left with the great sword of the Spirit and, at the same time, shooting His sharp arrows of Gospel Truth to the very ends of the earth! The Truth of God is the weapon that Christ uses. The weapons of His warfare are not carnal any more than are ours. The Truth of God is His sword and the Truth of God is His arrow!

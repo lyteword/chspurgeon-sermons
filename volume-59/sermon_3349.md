@@ -1,12 +1,5 @@
 # Sermon 3349 | "The Garment of Praise"
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 10, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The garment of praise for the spirit of heaviness." Isaiah 61:3.
 
 THE list of comforts which the Anointed has here prepared for His mourners is apparently inexhaustible. He seems as if He delighted to give "according to the multitude of His tender mercies" a very cloud of blessings. This is the third of His sacred exchanges--"the garment of praise for the spirit of heaviness." Grace, like its God, delights to be a trinity. This is also the broadest of the blessings, for whereas the first adorned the face with beauty, and the second anointed the head with joy, this last and widest covers the whole person with a garment of praise! Man's first vesture was of his own making and it could not cover his shame--but this garment is of God's making and it makes us comfortable in ourselves, and comely in the sight of God and man. They are better adorned than Solomon in all his glory, to whom God gives the garment of praise. May the blessed Spirit sweetly help us to bring out the rich meaning of this promise to mourners, for again I must remind you that these things are only given to them--and not to the thoughtless world.

@@ -1,12 +1,5 @@
 # Sermon 3449 | Buying the Truth
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 11, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING JUNE 26, 1870
-
 "Buy the truth, and sell it not." Proverbs 23:23.
 
 John Bunyan pictures the pilgrims as passing at one time through Vanity Fair, and in Vanity Fair there were to be found all kinds of merchandise, consisting of the pomp and vanities, the lusts and pleasures of this present life and of the flesh. Now all the dealers, when they saw these strange pilgrims come into the fair, began to cry, as vendors will do, "Buy, buy, buy--buy this, and buy that." There were the priests in the Italian row with their crucifixes and their beads. There were those in the German row with their philosophies and their metaphysics. There were those in the French row with their fashions and with their pretty things. But the one answer that the pilgrims gave to all the dealers was this-- they looked up and they said, "We buy the truth. We buy the truth." And they would have gone on their way if the men of the Fair had not laid them by the heels in the cage and kept than there--one to go to Heaven in a chariot of fire and the other, afterwards, to pursue his journey alone. This is very much the description of the genuine Christian at all times. He is surrounded by vendors of all sorts of things, beautifully got up and looking exceedingly like the true article. And the only way in which he will be able to pass through Vanity Fair safely is to keep to this--that he buys the truth--and if he adds to that the second advice of the text, and never sells it, he will, under Divine Guidance, find his way rightly to the skies. "Buy the truth, and sell it not."

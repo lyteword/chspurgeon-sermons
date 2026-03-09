@@ -1,16 +1,5 @@
 # Sermon 3508 | Light at Evening Time
 
-A Sermon
-
-
-Published on Thursday, April 20th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [16]the Metropolitan Tabernacle, Newington.
-
 "And it shall come to pass in that day, that the light shall not be clear nor dark: But it shall be one day which shall be known to the Lord, not day, nor night; but it shall come to pass, that at evening time it shall be light."--Zechariah 14:6-7.
 
 AS WE read the Scriptures, we are continually startled by fresh discoveries of the magnificence of God. Our attention is fixed upon a passage, and presently sparklets of fire and glory dart forth. It strikes us; we are struck by it. Hence these bright coruscations. Our admiration is excited. We could not have thought that so much light could possibly lie concealed within a few words. Our text thus reveals to us in a remarkable manner the penetration, the discernment, the clear-sightedness of God. To our weak vision the current of human affairs is like twilight. It is not altogether dark, for it is broken with some gleams of hope. Nor is it altogether bright, for heavy masses of darkness intervene. It is neither day nor night. There is a mingle-mangle of good and evil, a strange confused mixture, wherein the powers of darkness con tend with the powers of light. But it is not so with God. With him, it is one clear day. What we think to be confusion, is order before his eye. Where we see advance and retrogression, he sees perpetual progress. We full often bemoan our circumstances as altogether disastrous, while God, who seeth the end from the beginning, is working out his ordained purpose. Our God maketh the clouds to be the dust of his feet, and the winds to be his chariot. He sees order in the tempest and the whirlwind. When the bosom of earth heaves with earthquake, he hears music in every throb and when earth and heaven seem mingled in one wild disorder and storm, his hand is in the midst of all, so marking, that every particle of matter should be obedient to his settled laws, and that all things should work together to produce one glorious result. "Things are not what they seem." Oh! how good it is for us to know that this world's history is not so black and bad as to our dim senses it would appear. God is writing it out, sometimes with a heavy pen; but when complete, it will read like one great poem, magnificent in its plan, and perfect in all its details. At the present hour there may be much in the condition of our country to cause anxiety or even to create alarm. And it is not hard to point certainly to many things that seem to augur no good. But there always were evil prophets. There always have been times and crises when dark portents favoured unwelcome predictions. But thus far the fury of every tempest has been mitigated; a sweet calm has followed each perilous swell of the ocean, and the good old ship has kept afloat England's flag--we fondly believe:--

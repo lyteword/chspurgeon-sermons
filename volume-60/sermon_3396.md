@@ -1,12 +1,5 @@
 # Sermon 3396 | Experiencing Confirming Testimony
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 5, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 27, 1869.
-
 "As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God." Psalm 48:8.
 
 "As we have heard, so have we seen." This is not always the case, but frequently it is the very reverse. Things are exaggerated. The imagination is largely drawn upon and we hear great things, but when we come to look at them, or try to practically enjoy them, the great things have become very small! It is so in the world generally. We have heard and were told in our youthful days by those who have been before us, that the paths of sin are pleasant, that there are great enjoyments to be found in the indulgences of evil passions, and that if we will give ourselves up to the general run and current, we shall find ourselves very smoothly floating along on a stream of happiness! Ah, how many who have sown their wild oats and looked for a happy harvest, have discovered that nothing but mischief comes of this! Jaded by the satiety of their lusts, and at last utterly destroyed by their own wickedness, they have sat down and wrung their hands in despair at finding out that things are not what they heard they were. As they have heard, so do they not see, but the very opposite--for pleasure, pain, for happiness, misery--even here, remorse--and afterwards an anguish that shall know no end!

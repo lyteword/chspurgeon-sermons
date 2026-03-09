@@ -1,12 +1,5 @@
 # Sermon 3389 | The Soul's Awakening
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 15, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE NEWINGTON.
-
 "Verily, verily, I say unto you, the hour is coming when the dead shall hear the voice of the Son of God, and they that hear shall live." John 5:25.
 
 I suppose that when a pearl-fisher is at the bottom of the sea and has gathered his bag full of oysters, he will sometimes see other oysters lying about which he would be very very glad to take up if he could. And I can imagine that when he has been safely taken into his boat and has put away what he gathered the first time, he will be rather anxious to descend again somewhere near that same spot to bring up those which he left behind. This, at least, is much like my own case. While reading the Chapter and preparing the sermon for this morning, I thought there were so many pearls in the text I could not say much about this particular verse so I felt inclined to return to the same spot at once to see if we might not fetch up some fresh gems!

@@ -1,16 +1,5 @@
 # Sermon 3502 | Powerful Persuasives
 
-A Sermon
-
-
-Published on Thursday, March 9th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [10]the Metropolitan Tabernacle, Newington.
-
 "All things are delivered unto me of my Father: and no man knoweth the Son, but the Father; neither knoweth any man the Father, save the Son, and he to whomsoever the Son will reveal him. Come unto me, all ye that labour and are heavy laden, and I will give you rest."--Matthew 11:27-28.
 
 I HAVE preached to you, dear friends, several times from the words, "Come unto me, all ye that labour and are heavy laden, and I will give you rest." There is such sweetness in the precept, such solace in the promise, that I could fain hope to preach from it many times more. But I have no intention just now to repeat what I have said in any former discourse, or to follow the same vein of thought that we have previously explored. This kindly and gracious invitation needs only to be held up in different lights to give us different subjects for admiration. That it flowed like an anthem from our Saviour's lips we perceive, in what connection if was spoken we may properly enquire. He had just made some important disclosures as to the covenant relations that existed between himself and God the Father. This interesting revelation of heavenly truth becomes the basis upon which he offers an invitation to the toiling and oppressed children of men, and assigns it as a reason why they should immediately avail themselves of his succour. Such is the line of discourse I propose now to follow. Kindly understand me that I want to deal with the hearts and consciences of the unconverted, and, in the power of the Holy Spirit, to plead with them that they may at once go to Jesus and find rest unto their souls. I shall require no stories or anecdotes, no figures or metaphors, to illustrate the urgent necessity of the sinner and the generous bounty of the Saviour. We will make it as plain as a pikestaff, and as sharp as a sword, with the intention of driving straight at our point. Time is precious, your time especially, for you may not have many days in which to seek the Lord. The matter is urgent. Oh! that every labouring, weary sinner here might at once come to Jesus and find that rest which the Saviour expresses himself as so willing to give! With all simplicity, then, let me explain to you tile way of salvation, "Come unto me, all ye that labour and are heavy laden."

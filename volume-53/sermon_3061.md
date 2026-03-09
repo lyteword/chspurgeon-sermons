@@ -1,12 +1,5 @@
 # Sermon 3061 | The Rule of Grace
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 10, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 17, 1873.
-
 "Man/ lepers were in Israel in tie time of Elisha the Prophet; and none of them was cleansed except Naaman the Syrian." Luke 4:27.
 
 OUR Savior never sought popularity. His ministry was so attractive that thousands thronged to hear Him, glad to catch the accents of His instructive tongue, but He never for a moment sought to preach flesh-pleasing truths, neither did He keep back any Doctrine by which it might be feared that His hearers would be disgusted. On this occasion He was speaking to His own townsmen. The young Man who had left the place for a while and who, during His absence, had acquired great fame as a Teacher and Miracle-Worker, had come home and there was, naturally, much curiosity to hear Him. They supposed that He would make the town where He had been brought up, to be the chief place of His benedictions. They were His fellow townsmen, so surely they had some claim upon Him! But our Lord, knowing right well that if they really understood His teaching, they would not be pleased with it--and knowing that the blessings He came to bring were not such as they desired--at once dealt honestly with them and told them that Elisha did not heal the lepers in his own country, but one was healed who came from a foreign land. And He led them to infer that very likely He would do His greatest deeds of healing elsewhere than at Nazareth, that God might be pleased to bestow the richest supplies of His Grace upon heathens--upon Syrians--and not upon those who seemed to suppose that they had some right or claim to it. Our Lord, in fact, preached to these people the great Doctrine of Divine Sovereignty, the humbling Doctrine of Divine Election of which Paul wrote to the Romans, "He said to Moses, I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion. So then it is not of him that wills, nor of him

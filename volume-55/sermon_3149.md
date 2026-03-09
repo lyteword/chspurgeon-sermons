@@ -1,12 +1,5 @@
 # Sermon 3149 | The Commissariat of the Universe
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 17, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "What You give them they gather." Psalm 104:28.
 
 THIS sentence describes the commissariat of creation. The problem is the feeding of the "creeping things innumerable, both small and great beasts," which swarm the sea, the armies of birds which fill the air and the vast hordes of animals which people the dry land! But in this sentence we have the problem solved, "What You give them they gather." The work is stupendous, but it is done with ease because the Worker is Infinite--if He were not at the head of it, the task would never be accomplished! Blessed be God for the great You of the text! It is every way our sweetest consolation that the personal God is still at work in the world--leviathan in the ocean and the sparrow on the bough may be, alike, glad of this, and we, the children of the great Father, much more!

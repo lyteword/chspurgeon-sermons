@@ -1,12 +1,5 @@
 # Sermon 3269 | A Frail Leaf
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 28, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Will You break a leaf driven to and fro?" Job 13:25.
 
 POOR Job! Who could have been brought lower than he? He had lost his possessions, his children, his health--he was covered with sore boils--and he was aggravated by the unkind speeches of his friends. In his deep distress he turns to God and finding no other plea so near at hand, he makes a plea out of his own distress. He compares himself to the weakest thing he could think of and then he says to God, the Great and the Merciful, "Will You, so glorious in power and so matchless in goodness--will You break me, who am like a poor leaf fallen from the tree, sere and dry, and driven to and fro in the wind?" Thus he draws an argument out of his own weakness. Because he is so low and insignificant and powerless, he lays hold upon the Divine strength and pleads for pity.

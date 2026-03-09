@@ -1,12 +1,5 @@
 # Sermon 3096 | The Second Time
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 11, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 24, 1874.
-
 "And at the second time Joseph was made known to his brothers." Acts 7:13.
 
 [Two other Sermons by Mr. Spurgeon upon this incident, based upon Genesis. 45:1-5, are as follows--#449, Volume 8--JOSEPH AND HIS BROTHERS and #2516, Volume 43--JESUS AND HIS BRETHREN]

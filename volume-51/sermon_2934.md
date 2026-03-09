@@ -1,12 +1,5 @@
 # Sermon 2934 | Great Changes
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 4, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1862.
-
 "And, behold, there are last which shall be first, and there are first which shall be last" Luke 13:30.
 
 IN some of the books printed in the olden times, the authors were known to put a hand in the margin, as if to point out some passage to which they would have particular attention directed. Now, wherever we see in Holy Scripture the word, "behold," it answers the same end. It is intended to show us that there is either something new, something impressive, or something which is speedily to transpire and, therefore, needs immediate attention. Or else there is usually something contrary to what men expect and, therefore, their consideration is the more earnestly directed to it. Seeing this, "behold," in the margin, a signpost as it were--a directory for us to stop and pause and learn--let us do so tonight and may the Spirit of God be our Instructor, that we may listen to profit.

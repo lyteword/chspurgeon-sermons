@@ -1,12 +1,5 @@
 # Sermon 2987 | The "Beau Ideal" of Life
 
-
-A SERMON ESPECIALLY TO YOUNG MIEN, PUBLISHED ON THURSDAY, MAY 10, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 17, 1875.
-
 "O satisfy us earl/ with Your mercy, that we may rejoice and be glad all our days." Psalm 90:14.
 
 MOSES saw, with deep regret, that the great host which came out of Egypt would have to die in the wilderness. Every day there were many funerals, for a vast multitude of men, women and children had to be buried in the wilderness. And tears of sorrow and sympathy must continually have stood in the eyes of the great leader of the children of Israel. After speaking about their days being passed away in God's wrath, Moses offered a prayer which, under the circumstances, was most natural and most wise. It was in substance this--"Lord, if we must die in this desert. If this whole generation (except Caleb and Joshua) must pass away in the wilderness, then, at any rate, give us the fullness of Your favor now, that we may spend all our remaining days--whether they are to be few or many--in gladness and rejoicing." Now, seeing that we, also, are all passing away and that whether young or old, we, too, must be carried to the grave unless the Lord should first return, this seems to me to be a very wise prayer for us to put up--"Lord, satisfy us with Your mercy now, that we may waste no more of our life in sinful dissatisfaction, but that from this hour to the last moment of our life, we may be filled with Your favor, and may rejoice and be glad all our days.

@@ -1,12 +1,5 @@
 # Sermon 3562 | Peter Walking on the Sea
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 3, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And Peter answered Him and said, Lord, if it is You, bid me come unto You on the water. And He said, Come. And when Peter was come down out of the ship, he walked on the water. But when he saw the wind boisterous, he was afraid, and beginning to sink, he cried, saying Lord, save me!" Matthew 14:28-31.
 
 A FEW reflections will be sure to cross the mind of any thoughtful reader of this narrative.

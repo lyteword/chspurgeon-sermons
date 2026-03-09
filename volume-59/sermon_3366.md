@@ -1,12 +1,5 @@
 # Sermon 3366 | Deliverance From the Power of Darkness
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 7, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 29, 1866.
-
 "He has delivered us from the power of darkness." Colossians 1:13.
 
 DARKNESS is used in Scripture to express a great many things. Sometimes it represents sorrow. "A night of weeping" is a common expression among us. We speak, too, of, "walking in darkness and seeing no light." We commonly say to one another that our minds are in a dark and gloomy state when we are surrounded by the fogs and mists of sorrow. Taking it in this sense, how often might we say of our heavenly Father, that, "He has delivered us from the power of darkness"? He has helped us in our temporal difficulties and circumstances, or He has whispered, "As your days so shall your strength be," and He has turned our night of weeping into a morning of gladness, put away the sackcloth and ashes, and given us the oil ofjoy! Blessed be His name for all this! Let us not be ungrateful, nor forget the many times when He has turned our mourning into dancing and our sackcloth into scarlet and fine linen.

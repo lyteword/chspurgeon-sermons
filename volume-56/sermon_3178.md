@@ -1,12 +1,5 @@
 # Sermon 3178 | The Preparatory Prayers of Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 30TH, 1909,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 7, 1873.
-
 "Now when all the people were baptized, it came to pass that Jesus, also being baptized, and praying, the Heaven was opened, and the Holy Spirit descended in a bodily shape like a dove upon Him, and a voice came from Heaven, which said, You are My Beloved Son, in You I am well pleased." Luke 3:21,22.
 
 "And it came to pass in those days, that He went out into a mountain to pray, and continued all night in prayer to God. And when it was day, He called unto Him, His disciples: and of them He chose twelve, whom also He named Apostles."

@@ -1,12 +1,5 @@
 # Sermon 3530 | A Sad Confession
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 21, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "We hid, as it were, our faces from Him." Isaiah 53:3.
 
 You will find in the margin of some of your Bibles that this passage is rendered, "He hid, as it were, His face from us." The literal translation of the Hebrew would be, "He was as a hiding of faces from him," or, "from us." Some critical readers think these words were intended to describe our Lord as having so humbled Himself and brought Himself to such a deep degradation, that He was comparable to the leper who covered his face and cried, "Unclean, unclean!" hiding himself from the gaze of men. Abhorred and despised of men, he was like one put aside because of his disease, and shunned by all mankind. Others suppose the meaning to be that on account of our Lord's terrible and protracted sorrow, His face wore an expression so painful and grievous that men could scarcely bear to look upon Him. They hid, as it were, their faces from Him--amazed at that brow all carved with lines of anxious thought, those cheeks all plowed with furrows of deep care, those eyes all sunk in shades of sadness--that soul bowed down, exceedingly sorrowful, even unto death! It may be so. We cannot tell. So let it pass. I have a plain, practical purpose to pursue. Here is an indictment to which we must all plead guilty. Let us make the reflection our own, as we humbly bow at the dear pierced feet of our Lord and remember how cruelly we slighted our kindest Friend, when, "We hid, as it were, our faces from Him."

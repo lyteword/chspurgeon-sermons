@@ -1,12 +1,5 @@
 # Sermon 3399 | Good Talk
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 26, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Talk you of all His wondrous works." 1 Chronicles 16:9.
 
 This sentence stands in connection with exhortations to offer thanksgiving unto the Lord and to make known His deeds among the people. Thus it runs, "Sing unto Him; sing Psalms unto Him; talk you of all His wondrous works."

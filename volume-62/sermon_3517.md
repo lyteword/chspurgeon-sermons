@@ -1,12 +1,5 @@
 # Sermon 3517 | Sympathy and Song
 
-
-A SERMON PUBLISHED ON THURSDAY JUNE 22, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 7, 1872.
-
 "Rejoice with them who rejoice." Romans 12:15.
 
 SYMPATHY is a duty of manhood. We are all brethren sprung from the same stock and that which is a good to any man ought to be a joy to me. That any man should be sick or sorry should, in a measure, make me sad, but that any man should rejoice with a worthy joy--worthy of a creature made by God--should make other men thankful! But what is thus a natural duty is elevated into a yet higher duty and a more sacred privilege among the regenerate among the family of God, for over and above the ties of manhood in the first Adam, there are the ties of our new manhood in the Second Adam--and there are bonds which arise out of our being quickened by the same life! We have "one Lord, one faith, one baptism." We are members of one body, having only one Head--and one life throbs through all the members of that body. Hence, for us to strive with one another in joy and in sorrow would be to act contrary to the sacred instincts which arise out of Christian unity! If, indeed, we are one with Christ, we are also one with each other, and we must participate in the common joys and common sorrows of all the elect family. This, again, gathers yet higher force when the joys in question shall be spiritual joys. I am bound as a Christian to be thankful when my Brother prospers in business, but I may not be quite sure that that will be a real blessing to him. But if I know that his sou/prospers, then I may safely rejoice to the very fullest, for that must be a blessing to him and will bring honor to God! If I hear that any community prospers, I am bound to be glad of it, yet I cannot be sure, if the prosperity deals with wealth, that it is, on the whole, the best thing in the world. But when I hear that a Church is growing, that its zeal abounds, that the Spirit of God is at work in it, that God is glorified there, then I am bound to rejoice, for this is a joy which no man takes away--a joy about which there can be no question--a joy which brings glory to God and, therefore, must bring happiness to all those who find happiness in God's Glory!

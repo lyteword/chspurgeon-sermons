@@ -1,12 +1,5 @@
 # Sermon 3024 | Christ's Death And Ours
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 24, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 14, 1869.
-
 "And Jesus answered them, saying, The hour is come that the Son of Man should be glorified. Verily, verily, I say unto you, Except a corn of wheat falls into the ground and dies, it abides alone: but fit dies, it brings forth much fruit." John 12:23-24.
 
 CERTAIN Greeks desired to "see Jesus." They informed Philip of their desire, Philip consulted with Andrew and the two disciples together informed their Master of what seemed to them to be a very important matter. As wise men from the East once came to see Jesus, so now would these Gentiles from the West do the same! Probably Philip and Andrew expected that Christ would display His miraculous power before the eyes of these enquirers, but our Lord, instead of going on from His triumphal procession and the hosannas of the multitude to something outwardly grander, began at once to speak about a glorification far other than either His disciples or these Greeks desired--a glorification which was to follow upon death and burial!

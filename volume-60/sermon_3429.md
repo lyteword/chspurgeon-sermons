@@ -1,12 +1,5 @@
 # Sermon 3429 | "Accepted in the Beloved"
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 22, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 19, 1868.
-
 "Accepted in the Beloved." Ephesians 1:6.
 
 I SHALL not attempt to do more than simply bring out the Truth of God and leave it with you. Fine words and gaudy sentences, with such a text as this, would be a vain attempt to "paint the lily and gild refined gold." Let this bell ring and there is a depth of silver sweetness in it which will make the sanctified ear and heart glad with the fullness ofjoy. "Accepted in the Beloved."

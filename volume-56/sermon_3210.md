@@ -1,12 +1,5 @@
 # Sermon 3210 | Clinging to Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 11, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 12, 1863.
-
 "Then Jesus said unto the twelve, Will you also go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life." John 6:67, 68.
 
 [See Sermons #2914, Volume 50--A MOURNFUL DEFECTION and #1646, Volume 28--A HOME QUESTION AND A RIGHT ANSWER.]

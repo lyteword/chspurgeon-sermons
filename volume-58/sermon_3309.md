@@ -1,12 +1,5 @@
 # Sermon 3309 | Christ the Seeker and Savior of the Lost
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 4, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "For the Son of Man has come to seek and to save that which was lost." Luke 19:10.
 
 [Other Sermons by Mr. Spurgeon upon the same text are Sermons #204, Volume 4--THE MISSION OF THE SON OF MAN; #1100, Volume 19-- GOOD NEWS FOR THE LOST; #2756 Volume 47--SAVING THE LOST and #3050, Volume 53--THE ERRAND OF MERCY.]

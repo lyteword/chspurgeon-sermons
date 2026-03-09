@@ -1,12 +1,5 @@
 # Sermon 3175 | "Peace! Perfect Peace!"
 
-
-AN ADDRESS PUBLISHED ON THURSDAY, DECEMBER 16, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-IN A SICK-ROOM AT MENTONE.
-
 "You will keep him in perfect peace (Margin: peace, peace), whose mind is stayed on You: because he trusts in You." Isaiah 26:3.
 
 [This Address is an interesting souvenir of an afternoon visit paid by Mr. Spurgeon to an invalid at Mentone, the late Giles Shaw, Esq., of Bewdley--brother-in-law of Miss Frances Ridley Havergal. The Address was delivered without preparation and followed immediately the singing of the hymn upon which it is based.]

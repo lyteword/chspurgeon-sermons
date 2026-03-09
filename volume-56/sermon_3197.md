@@ -1,12 +1,5 @@
 # Sermon 3197 | The Sweetness of God's Word
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 12, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT UPTON CHAPEL, LAMBETH, ON TUESDAY AFTERNOON, MARCH 12, 1867.
-
 "How sweet aire Your Words to my taste! Yes, sweeter than honey to my mouth!" Psalm 119:103.
 
 IT is delightful to find how exactly the experience of David, under the Jewish dispensation, tallies with the experience of the saints of God in these Gospel times. David lived in an age of miracles and many manifestations. He could have recourse to the Urim and the Thummim, and the priesthood. He could go up to Zion and listen to the holy songs of the great assembly. He could converse with the priesthood but still, the food of his soul was supplied to him from the written Word of God, just as it is with us. Now that we have no open visions and the Urim, and the Thummim and the priesthood are altogether departed, we still feed upon the Word! As that is the food of our souls, so it was the food of David's soul. Martin Luther says, "I have covenanted with the Lord that I would neither ask Him for visions, nor for angels, nor for miracles, but I would be satisfied with His own Word, and if I might but lay hold upon Scripture by faith, that shall be enough for me." Now it seems to be so with David here. The honey that gratifies his taste is not found in angels' visits, or miraculous signs, or officiating priesthoods, or special Revelations, but in the words of God's mouth and in the testimonies of Holy Writ. Let us, dear Brothers and Sisters, prize this Book of God! Be not ambitious, as some are, of seeking new Revelations, or enquire for the whispers of disembodied spirits, but be satisfied with this good household bread which God has prepared for His people! And while others may loathe and dislike it, let us be thankful for it and acknowledge with gratitude the bread which came down from Heaven, testifying to us, as it does, of the Lord Jesus, the Word of Life that lives and abides forever!

@@ -1,12 +1,5 @@
 # Sermon 3256 | Beggars Becoming Princes
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 29, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 21, 1864.
-
 "He raises up the poor out of the dust, and lifts up the beggar from the dunghill, to set them among princes, and to make them inherit the throne of glory." 1 Samuel 2:8.
 
 GOD sometimes does this in Providence. History records several very remarkable instances of persons who have sprung from the lowest ranks of society, or from the depths of poverty, yet who have mounted to a throne. When a certain king, in the olden days, was led in chains behind the chariot of his conqueror, he was constantly observed to look at the wheel and smile. And when he was asked why he did so, he said that it was because he noticed that those spokes of the wheel which were uppermost, at one time became the lowest not long after, while those which were lowest, in their turn took their place on high--and he would not wonder if it should be the same with him--and that he would again become a king and that his conqueror would be a captive. So strange are the workings of Providence that, however low anyone may be in temporal circumstances, he need not give way to despair, but he may cherish hopes of better times coming to him.

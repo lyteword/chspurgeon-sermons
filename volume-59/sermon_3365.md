@@ -1,12 +1,5 @@
 # Sermon 3365 | Pictures of Happiness
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 31, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Happy are the people who are in such a state; happy are the people whose God is the Lord." Psalm 144:15.
 
 SOMETIMES God's people are unhappy when they ought to be happy. God observes this. Therefore He tells them when they possess the materials of happiness and gives them a description of the peace and prosperity of those who are truly happy men. Thus recollecting the choice mercies which surround them and not attaching so much importance to the little trials of the day, they may become of God's mind and feel themselves to be as happy as He declares they are. The pure in spirit are said by our Savior to be blessed. They often think themselves to be cursed and feel as if there were no blessing for them. But blessed they are, for Jesus knows whom He has blessed! And though God's people are sometimes, in their own consciences, unhappy, they are a happy people and to be congratulated on their condition notwithstanding. They have reasons for happiness. They have satisfactory grounds for happiness. They have springs of happiness. They have future prospects of happiness. If you are God's people, you cannot err in exorcising faith about this thing. You are numbered with those who are the happiest people under Heaven!

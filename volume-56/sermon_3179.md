@@ -1,12 +1,5 @@
 # Sermon 3179 | A Comprehensive Benediction
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 6, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Now our Lord Jesus Christ Himself, and God, even our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts, and establish you in every good word and work." 2 Thessalonians 2:16,17.
 
 [Other Sermons by Mr. Spurgeon, upon the same text, are Sermons, #1542, Volume 26--FREE GRACE A MOTIVE FOR FREE GIVING;

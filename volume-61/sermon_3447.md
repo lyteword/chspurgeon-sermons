@@ -1,12 +1,5 @@
 # Sermon 3447 | A Present Helper
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I aim with you." Acts 18:10.
 
 THE Apostle Paul was about to be placed in imminent peril. He was to be brought before the Roman governor, Gal-lio. The Jews, rank and rabble, were hopeful that they would get him condemned to death. In this threatening crisis the Lord Jesus would give him a word of comfort to strengthen him, that his courage might not fail. The best, the most assuring word that the Savior could speak to His servant was this, "I am with you." Nothing in Heaven or earth could be more fitted to cheer his tried spirit! To know that Jesus was with him, approving, supporting, defending him, was a safeguard against fear. Years afterwards, when Paul had to stand before the Roman emperor whose will was absolute, whose fiat could have put him to instant death, he had no man who dared stand by him. A poor despised servant of a despised Master, he was not, then, cast down or disheartened, for he said, "Nevertheless, the Lord stood by me." Under the worst circumstances, true Christians find the richest comfort if they do but know that Jesus is with them! When our Lord went away to Heaven and left His disciples on earth, they were like a flock of sheep surrounded with wolves. Just then He would surely give them, as a parting word, the most tender and the most encouraging sentence that could fall from His lips. What do you think He said? Why, one of His farewell words was this, "Lo, I am with you always"--a dear and blessed legacy to His children who are still in banishment below! And when John, in Patmos, had a vision of Jesus in His Glory, where, do you think, did he see Him? Did he see Him as standing before the Throne of God, or in any position of Glory? Yes, he did, but first of all he said, "I saw Him walking among the golden candlesticks." Now, he tells us, these golden candelabra represented the Churches--and Jesus Christ was pictured even as a glorified Savior, holding the seven stars in His right hand and walking among the seven golden candlesticks! Hence I gather that the truest comfort of the Church is for Christ to be with us--and that one of the highest joys of Jesus is to be with His people!

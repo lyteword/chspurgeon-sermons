@@ -1,12 +1,5 @@
 # Sermon 2939 | A Stir--and What Came of It
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 8, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 11, 1875.
-
 "And when He had come into Jerusalem, all the city was moved, saying, Who is this?" Matthew 21:10.
 
 MANY things make a stir in a city and, sometimes, these stirs are full of evil. I always think, each time I read Carlyle's history of the French Revolution, how thankful we ought to be that the city of London has not been excited, from end to end, by political storms as the unhappy city of Paris was at that time and has been many times since. We are not grateful enough, I fear, for the social order and quiet which reign in our midst. There are other countries where the people, when they go to bed at night, cannot tell what will be the form of government when they wake in the morning-- whether they will still be free nations or beneath a tyrant's heel. I heard an excellent man--one highly esteemed among us--prophesy that before long the streets of London will run with blood. He was afraid of the power of the democracy of whom he stood in great terror. I confess that I have never participated in his fears for a single moment, for I fully believe that, by God's Grace, our country will continue for many years to enjoy the blessing which results from having a form of government which with all its faults and imperfections, is so satisfactory on the whole. May God grant that we may not, on some future day, have to remember with regret our ingratitude for the peace we now possess--when we have lost it-- and may we all do our best to cement the various classes of society together and promote that Christian love, that spirit ofjustice and that spirit of philanthropy which will tend to hold together the whole nation in bonds that cannot easily be broken. Let us not be envious. Let us not be proud. Let us not oppress one another and let us not demand too much from one another. Let the golden rule be the rule of life to all with whom we are brought into contact. Let us do to others as we would they should do to us and so may our country and its capital never be stirred by those terrific senses of strife which would make the pavements run with blood, but may our land enjoy, for many a century, unless Christ should come, the same peace which we have seen in our day!

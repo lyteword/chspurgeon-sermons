@@ -1,12 +1,5 @@
 # Sermon 3478 | Go Back? Never!
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 30, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 13, 1871.
-
 "And truly, if they had been mindful of that country from whence they came out, they might have had opportunity to have returned. But now they desire a better country, that is an heavenly country." Hebrews 11:15,16.
 
 Abraham left his country at God's command and he never went back. The proof of faith lies in perseverance. There is a sort of faith which runs well for a while, but it is soon ended and it does not obey the Truth of God. The Apostle tells us, however, that the people of God were not forced to continue because they could not return. Had they been mindful of the place from whence they came out, they might have found opportunities to return. Frequent opportunities came in their way. There was communication kept up between them and the old family house at Padan-Aram. They had news concerning the family house. More than that, there were messages exchanged--servants were sometimes sent. There was also a natural relationship kept up. Did not Rebekah come from there? And Jacob, one of the Patriarchs, was driven to go down into the land, but he could not stay there. He was always uneasy, until at last he stole away from Laban and came back to the proper life, the life that he had chosen--the life that God had commanded him to live--of a pilgrim and stranger in the land of promise. You see, then, they had many opportunities to have returned, to have settled down comfortably and tilled the ground which their fathers did before them--but they continued to follow the uncomfortable life of wanderers with weary feet, dwelling in tents, who own no plot of land. They were aliens in the country which God had given them by promise!

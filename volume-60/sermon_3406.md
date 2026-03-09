@@ -1,12 +1,5 @@
 # Sermon 3406 | Fullness of Joy Our Privilege
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 14, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And these things we write unto you, that your joy may be full." 1 John 1:4.
 
 VERY closely does the Apostle John resemble his Lord in the motive that prompted him to write this Epistle! You remember how Christ said in His last discourse to His disciples on the eve of His passion, "These things have I spoken unto you that your joy may be full"--and how He counseled them, "Ask and receive that your joy may be full"--and how He prayed to the Father for them, "that they might have My joy fulfilled in themselves." Here, then, the beloved disciple, moved by the Spirit of God, reflects and follows out the same gracious purpose--"These things we write unto you, that your joy may be full." What an evidence of our Savior's deep attachment to His people that He is not content with having made their ultimate salvation sure, but He is anxious concerning their present state of mind! He delights that His people should not only be safe, but happy! Not merely saved, but rejoicing in their salvation! It does not please your Savior for you to hang your head as the bulrush and go mourning all your days. He would have you rejoice in Him always and for this end He has made provision and to this end He has given us precepts. Therefore it appears--

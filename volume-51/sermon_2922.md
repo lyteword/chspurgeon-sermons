@@ -1,12 +1,5 @@
 # Sermon 2922 | An Infallible Sign Of Revival
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 9, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 12, 1876.
-
 "The Lord alone shall be exalted in that day." Isaiah 2:11.
 
 IN the eternal past the Lord alone was exalted. When He dwelt alone before the earth was and when He commenced the mighty works of His Creation--and the universe sprang into being at the fiat of His unhindered will--He alone was exalted. He made multitudes of creatures. Perhaps we have no idea how many of them there were and in what varied forms intelligent beings were created, but the Lord alone was exalted. Every angel adored Him--every creature knew its Lord. It was an ill day when there broke out a rival spirit and when evil began to set up its throne in opposition to the God of Good. The leader of the angels--the light bearer--sought to erect a rival throne. "How are you fallen from Heaven, O Lucifer, son of the morning." Then, by and by, in process of time, upon this world God's Glory was dimmed. Here, too, another spoke and was believed and God was doubted. Another claimed man's love and gained it and God was disobeyed. No longer on earth was the Lord alone exalted as He had been in the quiet glades of Eden when our first parents worshipped none but God and counted it the very cream and flower of their being that they might serve the Most High who had made them what they were.

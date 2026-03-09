@@ -1,12 +1,5 @@
 # Sermon 2953 | Spiritual Sight and Eternal Life
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1905,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 3, 1875.
-
 "Yet a little while, and the world sees Me no more, but you see Me: because I live, you shall live also." John 14:19.
 
 IT is very noticeable in this verse and in many other parts of the New Testament, what a sharp line of demarcation the Lord draws between His people and the world--"The world sees Me no more, but you see Me." We have the same Truth of God taught in John's first Epistle. "We know that we are of God, and the whole world lies in the Wicked One." It is quite evident that our Lord kept prominent in His teaching the distinction between the regenerate and the unregenerate--the converted and the unconverted--those who have been quickened by the Holy Spirit and those who have remained dead in trespasses and sins. This distinction which our Lord kept up so strikingly, should always be made clear in every ministry. I feel that much evil comes of a mode of address which is adopted by some of my ministerial brothers in which they speak to the entire congregation as though all who were present were Christians. That is a false theory to go upon because it is not at all likely that any congregation ever gathered together will consist wholly of Christians. The mere coming together for public worship, nowadays, does not at all prove people to be followers of the Lord Jesus Christ. When they met in the Catacombs or in the caves of the earth and every worshipper had to carry his life in his hands, there might have been some excuse for addressing the whole assembly as Christians. In these days we know right well that there are unconverted persons in the audience and it is proper, therefore, to have one message to the saints and another message to the sinners--and to let it be seen, all through the sermon, that the preacher is aware that the Lord has made a distinction between Israel and Egypt--between them that fear Him and them that fear Him not.

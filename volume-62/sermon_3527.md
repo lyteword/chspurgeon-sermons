@@ -1,12 +1,5 @@
 # Sermon 3527 | The Divided Heart
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 31, 1916,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, APRIL 14, 1872.
-
 "Their heart is divided; now they are held guilty." Hosea 10:2.
 
 THIS was originally spoken of the Kingdom of Israel. For many years they had been under a king who commanded the worship of Baal and persecuted the worshippers of Jehovah. God chastened the people very sorely for this, but He did not utterly destroy them. At last Hoshea, the king, came to the throne. He was the last king of Israel and it is very remarkable that it is said of him that he was much better than those who went before him. He did not evil in the sight of the Lord after the manner of Jeroboam, the son of Nebat. He was not what could be wished, but still he was not like the rest--and it seems very odd to a person who reads it casually that God should spare the nation under worse kings--and then should carry it away into captivity when they had, for once, a far better king! But the matter is explained thus. Ho-shea withdrew the curse of persecution from the people and they were left free to follow Jehovah.

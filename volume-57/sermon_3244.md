@@ -1,12 +1,5 @@
 # Sermon 3244 | "Our Light Affliction"
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 6, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 29, 1870.
-
 "Our light affliction." 2 Corinthians 4:17.
 
 PERHAPS someone here thoughtlessly says, "Well, whoever calls affliction, 'light,' must have been a person who knew very little about what affliction really is! If he had suffered as I have done, he would not have written about 'our light affliction.' He must have been in robust health and known nothing of sickness and pain." "Just so," says another, "and if he had been as poor as I am and had to work as hard as I do to maintain a sickly wife, and a large family, he would not have written about 'our light affliction.' I expect the gentleman who used that expression lived very much at his ease and had all that his heart could wish." "Yes," says another, "and if he had stood by an open grave and had to lament the loss of loved ones, as I have done. And if he had known what it was to be desolate and forsaken, as I have known it, he would not have written about 'our light affliction.'"

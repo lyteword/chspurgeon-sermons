@@ -1,12 +1,5 @@
 # Sermon 3015 | The Two Debtors
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 22, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 14, 1867.
-
 "There was a certain creditor who had two debtors: the one owed one hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. Tell me therefore, which of them will love him more?" Luke 7:41,42.
 
 

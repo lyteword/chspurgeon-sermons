@@ -1,12 +1,5 @@
 # Sermon 3018 | The True Lineage
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 13 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1864.
-
 "And it came to pass, as He spoke these things, a certain woman of the company lifted up her voice, and said unto Him, Blessed is the womb that bore You, and the breasts which nursed You. But He said, More than that, blessed are they that hear the Word of God, and keep it." Luke 11:27,28.
 
 Was this a loving-hearted woman who had been moved by the dear Savior's discourse? Many, doubtless, had listened to the same gracious words--some of them with wrath and others with stern complacency--but it may be that her soul began to swell with holy wonder at the marvelous things which proceeded out of His mouth and her soul felt such an affection for the Man from whom so much of Grace proceeded that she cried, "Blessed is the womb that bore You!" Was it so? Perhaps it was an ignorant but passionate love breaking through all restraint. Sometimes, among our Primitive Methodist friends, we hear the same kind of thing--they get so carried away by the power of the Truth of God which has just been stated that they cannot refrain from crying out, "Glory!" or, "Hallelujah!" Throughout all Wales, this custom, which I am far from condemning, prevails through the whole sermon, often very much to the comfort of the speaker, enlivening him and cheering him on--and making him rise to greater flights than otherwise he might have taken. Perhaps we may look at this interruption of the affectionate woman in that light.

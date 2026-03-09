@@ -1,16 +1,5 @@
 # Sermon 3505 | A Miracle of Grace
 
-A Sermon
-
-
-Published on Thursday, March 30th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [13]the Metropolitan Tabernacle, Newington.
-
 "So Manasseh made Judah and the inhabitants of Jerusalem to err, and to do worse than the heathen, whom the Lord had destroyed before the children of Israel. And the Lord spake to Manasseh and to his people; but they would not hearken. Wherefore the Lord brought upon them the captains of the host of the king of Assyria, which took Manasseh among the thorns, and bound him with fetters, and carried him to Babylon. And when he was in affliction, he besought the Lord, his God, and humbled himself greatly before the God of his fathers, and prayed unto him and he was entreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that the Lord he was God."--2 Chron. 33:9-13.
 
 MANASSEH was born three years after his father's memorable sickness. You will remember that Hezekiah was stricken with a mortal disease, and Isaiah, the prophet, come to him and said, "Thus saith the Lord, Set thine house in order, for thou shalt die, and not live." He appears to have been startled and appalled at the tidings, and gave vent to his feelings with bitter tears. Evidently he was afraid at the time to face death. He had probably been indulging a worldly spirit; and besides this, it lay as a heavy burden upon his heart that he had no son whom he should leave as his successor in the kingdom. In deep distress of soul, accordingly, he turned to the wall and prayed to the Lord. With piteous weeping and earnest pleading he besought that his life might be spared. His prayer was heard, his tears were seen, and his petition was granted by God. His days were prolonged by fifteen years. In the third year of those fifteen years his son Manasseh was born to hire. Had he knows, methinks, what sort of a son would have risen up in his stead, he might have been content to die, rather than to be the father of such a persecutor of God's people, and such a setter up of idolatry in the land. Alas! full often we know not what we, pray for. We may be covetous of an apparent boon which would prove to be a real curse both to ourselves and to thousands of others. You prayed, mother--yea, prayed fervently--for the life of that dear babe whom God was pleaded to take away from you. You cannot know what disposition the child would have shown, what temptations would have befallen it, or what consequences would have come of its life. Could some parents have read the history of their children from the day of their birth, they might rightly have wished that they had never been born. We had better leave such matters with God, and submit to his sovereign will. He knows better than we do, for ho is wonderful in counsel and excellent in working. Thank God, these affairs are not in our own hands. They are in far better and wiser keeping than ours.

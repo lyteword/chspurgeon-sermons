@@ -1,18 +1,5 @@
 # Sermon 3497 | A Solemn Embassy
 
-A Sermon
-
-
-Published on Thursday, February 3rd, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [5]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, 26th February, 1871.
-
 "Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God."--2 Corinthians 5:20.
 
 THERE has long been war between man and his Maker. Our federal head, Adam, threw down the gauntlet in the garden of Eden. The trumpet was heard to ring through the glades of Paradise, the trumpet which broke the silence of peace and disturbed the song of praise. From that day forward until now there has been no truce, no treaty between God and man by nature. Man has been at variance with God. His heart has been at enmity towards God. He would not be reconciled to God. Never in the heart of any natural man, unless divine grace has put it there, has a desire to re-establish peace been felt or entertained. If any of you long to be at peace with your Maker, it is because his spirit has made you long for it. Left to yourselves, you would go from conflict to conflict, from struggle to struggle, and perpetuate the encounter, until it ended in your eternal destruction. But though man will not make terms with God, nor sue for peace at his hands, God shows his unwillingness any longer to be at war with man. That he anxiously desires man to be reconciled unto him, he proves by taking the first step. He, himself, sends his ambassadors. He does not invite them from the other party--that were grace--but he sends ambassadors, and he commands those ambassadors to be very earnest, and to plead with men, to pray them, to beseech them that they would be reconciled to God. I take this to be a sure pledge that there is love in the heart of God. Why, at the very announcement of these tidings, the rebellious sinner's ears should be opened! It were enough to make him say, "I will hearken diligently; I will hear what God the Lord shall speak, for if it be true that he takes the first step towards me, and that he is willing to make up this deadly quarrel, God forbid that I should turn away; I will even now hear and attend to all that God shall speak to my soul. "May he bless the message to you, that you may be reconciled to him without a moment's delay. John Bunyan puts it plainly enough." If a certain king be besieging a town, and he sends out the herald with a trumpet to threaten the inhabitants that, if they do not give up the town, he will hang every man of them, then straightway they come to the walls and give him back a reviling answer; they swear that they will fight it out, and will never surrender to such a tyrant. But if he sends an embassage with a white flag to tell them that, if they will but surrender and yield to their lawful king, he will pardon every one of them, even the very vilest of them will relent." Then, saith honest John, "do they not come trembling over the walls, and throw their gates wide open to receive their gracious monarch." Would that such a result might be accomplished to-night! While I speak of the great grace of this Prince of Peace, who now sends his ambassadors to the rebellious, may some rebel say, "Then I will be at peace with him; I will hold out no longer. So irresistible a love as this has dissolved my heart, resolved my choice, and constrained my allegiance."

@@ -1,12 +1,5 @@
 # Sermon 3211 | "Feed My Sheep"
 
-
-A SERMON TO MINISTERS AND STUDENTS, PUBLISHED ON THURSDAY, AUGUST 18, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE PASTOR'S COLLEGE CONFERENCE, ON FRIDAY MORNING, APRIL 13, 1877.
-
 "He said unto him, Feed My sheep." John 21:16.
 
 THOSE whom the Lord addressed, and especially Simon, had become fishermen. "Simon Peter went up and drew the net to land, full of great fishes." In the early part of your career most of you were fishermen, or men-catchers and, truly, to be fishers of men should be your ambition all your lives. But you have now become something more--the fisher has developed into a shepherd. The fisherman represents the Evangelist who casts the net into the waters and draws the fish to land, but it is not to him that Christ says, "Feed My sheep"--that is reserved for those of greater maturity and experience. Many of you have now for years been settled in one sphere and while you will continue to fish, I trust that more and more you will remember that you now have other duties to perform--you have to feed as well as to fish, to handle the crook as well as the net. We now leave the sea wherein we were drifted to and fro, and we abide among our own flocks, standing and feeding in the strength of the Lord. We cease not to do the work of an Evangelist, but we pay special attention to the duties of the pastor, for He who once said, "Cast the net on the right side of the ship," now says to us, "Feed My sheep." I am addressing disciples to whom the Lord has shown Himself--may He now at this happy season commission us anew and send us home with the Word which He spoke to Peter resting in our hearts!

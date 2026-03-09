@@ -1,12 +1,5 @@
 # Sermon 3227 | The Secret of Happiness
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 8, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, MAY 2, 1872.
-
 "Son, be of good cheer; your sins are forgiven you." Matthew 9:2.
 
 [Other Sermons by Mr. Spurgeon concerning the man sick of the palsy are as follows--#2337, Volume 39--THE PHYSICIAN PARDONS HIS PALSIED PATIENT; #2417, Volume 41--FIRST FORGIVENESS, THEN HEALING and #3016, Volume52--GOOD CHEER FROM FORGIVEN SIN.]

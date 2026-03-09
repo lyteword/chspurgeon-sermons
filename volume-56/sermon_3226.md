@@ -1,12 +1,5 @@
 # Sermon 3226 | Figs and Olives
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 1, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 11, 1879.
-
 "Can the fig tree, my brethren, bear olives?" James 3:12.
 
 THERE is only one answer to the question, of course, the fig tree can do nothing of the kind. It would be quite contrary to its nature and, therefore, the Apostle argues that Christians ought to act according to their nature. If we are, indeed, the children of God, we should act as His children and always act as His children. We are not consistent if at one time we speak as heirs of Heaven should speak and at another time speak as the heirs of wrath speak! James truly tells us that a fountain cannot, at the same time pour forth sweet water and bitter, salt water and fresh and he, therefore, rightly argues that from the same mouth there must not proceed blessing and cursing--there must be consistency of conduct in those who are the Lord's.

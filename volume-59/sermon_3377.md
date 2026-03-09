@@ -1,12 +1,5 @@
 # Sermon 3377 | The Greatest Wonder of Grace
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 23, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And I was left" Ezekiel 9:8.
 
 SALVATION never shines so brightly to any man's eyes as when it comes to himself. Then is Divine Grace illustrious, indeed, when we can see it working with Divine power upon ourselves. To our apprehension, our own case is always the most desperate and, therefore, mercy shown to us is the most extraordinary! We see others perish and wonder that the same doom has not befallen ourselves. The horror of the ruin which we dreaded and our intense delight at the certainty of safety in Christ unite with our personal sense of unworthiness to make us cry in amazement, "And I was left."

@@ -1,12 +1,5 @@
 # Sermon 3041 | The Sparrow and the Swallow
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 23, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 30, 1870.
-
 "Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young, even Your altars, O LORD of Hosts, my King, and my God." Psalm 84:3.
 
 WHEN David was far away from the services of the Tabernacle, he envied the birds that had built their nests near the sacred shrine. And Christians, in like manner, when they are debarred from the holy associations of Christian fellowship and united worship, always sigh over the lost privilege of meeting with their Brothers and Sisters in Christ. With even greater emphasis we may say that when a Christian loses the realization of the Presence of the Lord Jesus Christ, who is the "Minister of the sanctuary and of the true Tabernacle, which the Lord pitched, and not man," then it is, above all other seasons, that he sighs and cries for a renewal of communion with Christ. We would envy any, however poor and insignificant they may be, who can maintain unbroken fellowship with their Lord. And when it falls to our lot, through our own sin or neglect, or in the inscrutable wisdom of Divine Sovereignty, to be, for awhile, spiritually in the dark, seeking our Savior and not finding Him, we would willingly take the place of the godly captive pining in the persecutors' dungeon, or of the dying yet enraptured saint, if we could but once again enjoy the Presence of our Master! This was David's state of heart when he languished for the ancient Tabernacle services or, more probably, when he longed for that communion with his Lord which, perhaps, had been suspended together with his attendance upon the public worship of God's House. It was then, as I believe, that he was inspired to pen this "Pearl of the Psalms," including the verse upon which I am going to try to speak, praying that the Holy Spirit may enable me to utter words which shall be to the profit of both hearers and readers.

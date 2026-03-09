@@ -1,12 +1,5 @@
 # Sermon 3030 | A Consistent Walk for Time to Come
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 7, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, DURING THE YEAR 1864.
-
 "As you have therefore received Christ Jesus the Lord, so walk in Him." Colossians 2:6.
 
 THOUGH the shepherd cares for the lambs and carries them in his arms, he does not cease his care when they become sheep. But, as long as they shall need to be tended, so long will he watch over them. Hence it is that our Apostle, though always quick of eye after newborn souls and abundantly anxious to bring sinners to a knowledge of the Truth of God as it is in Jesus, is equally in a conflict of soul for the spiritual healthfulness of those who have been born-again. Our text contains one of those loving admonitions. It is addressed, not to the ungodly, not to those who are strangers to our Lord and Master, but to those who have "received Christ Jesus the Lord." Longing for their spiritual good and anxious that they should be established in the faith, he admonishes them thus, "As you have received Christ Jesus the Lord, so walk in Him."

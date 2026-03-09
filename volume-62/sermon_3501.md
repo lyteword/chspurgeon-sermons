@@ -1,18 +1,5 @@
 # Sermon 3501 | The Feast of the Lord
 
-A Sermon
-
-
-Published on Thursday, March 2nd, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [9]the Metropolitan Tabernacle, Newington.
-
-On Lord's-day Evening, August 6th, 1871.
-
 "For as often as ye eat this bread and drink this cup, ye do show the Lord's death till he come."--1 Cor. 11:26.
 
 I THINK we cannot too often explain the meaning of the two great Christian ordinances--baptism and the Supper of the Lord; for it is essential to our profiting by them that we understand them. If we do not know what they mean, they certainly cannot convey to us any blessing whatever. They are not mere channels of grace in themselves, apart from our understanding being exercised, and our hearts being moved by them. Very soon the best ordinance in the world will become a mere form, and will even degenerate into superstitious practice, unless it be understood; and we must not always take it for granted that the meaning of the simplest emblem is understood. Line upon line, precept upon precept, here a little, and there a little, must still be the motto of the Christian minister. We must explain, explain, and explain again, or else men will satisfy themselves with the outward form, and not reach to the teaching which the forms were intended to convey. Our text deals with the supper of our Lord, and we will read it again. "As often as eat this bread and drink this cup, ye do show the Lord's death till he come."

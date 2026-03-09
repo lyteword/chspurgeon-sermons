@@ -1,12 +1,5 @@
 # Sermon 3472 | A Solemn Deprival
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 19, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Without Christ." Ephesians 2:12.
 
 WE shall have two things to consider this evening--the misery of our past estate, and the great deliverance which God has worked for us. As for--

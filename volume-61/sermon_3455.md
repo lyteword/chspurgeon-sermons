@@ -1,12 +1,5 @@
 # Sermon 3455 | A Message From God
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 22, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have a message from God unto you." Judges 3:20.
 
 CAN there be a person here present to whom God has never sent a message? Possibly the question may startle you. The very thought of the great invisible God sending such a message seems to you strange and unlikely. To me it is far more surprising that anyone should imagine He has never done so! Is He your Creator? And has He who made you launched you forth on the tempestuous sea of life to drift in solitude without compass or guide? We know that He has made you immortal--is it possible that during that short life which is a preface to eternity, upon which that never ending period depends--is it possible that He has left you without any sort of communication? Does it seem likely? You call Him, "Father," because He is the Author of your being--can He be your Father and yet have no concern for your well-being--never have spoken to you, never have sent a message from His great Throne to your hearts? How improbable this sounds! Is not the question open to another solution? The truth of the matter, I think, is that you have been deaf to God's messages! He has often desired to correspond with you, no, He has sent some communications to you, but you have resented and rejected them. Is it not likely that He has often spoken when you have not heard and that He has drawn near to you and called to you when you would not listen to Him? I think, from the analogy of nature, this looks like a correct statement of the case. It cannot be that God has left the world--it must be that the world has left God! It is not possible that God has ceased to speak to the soul. Surely the soul has ceased to listen to God, to acknowledge His messages, or to reply to them! I believe, my dear Hearers, and I especially address my remarks this evening to those of you who have not yet received Christ by faith and love into your hearts--I believe that the most of you, although still without God and without Christ, have had many messages from Him. Let me remind you of some of them. Then, let me admonish you that the Gospel, itself, is a distinct and direct message to you. And finally, let us occupy a few minutes in endeavoring to consider how we ought to treat that message.

@@ -1,12 +1,5 @@
 # Sermon 3428 | Private and Confidential
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "The secret of the Lord is with them that fear Him, and He will show them His Covenant." Psalm 25:14.
 
 THIS text is a great deep, but at the outset we must say that we have neither the time nor the skill at this time to attempt to fathom it. Our business just now is not so much to dive into its profound mystery, as to skim over its sparkling surface, to touch it with our wing as the swallow sometimes does the brook, leaving its soundings still unexplored. The current of thought here is too deep and too broad for the short meditation of a weekday evening. But where the very surface is rich, as it were, with "dust of gold," we cannot fail, if God the Holy Spirit blesses us, to be enriched by even the superficial reflections we may gather up from it.

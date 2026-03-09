@@ -1,12 +1,5 @@
 # Sermon 3344 | Unanswered Prayer
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 6, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, SEPTEMBER 20, 1866.
-
 "O My God, I cry in the daytime, but You hear not; and in the night season, and am not silent." Psalm 22:2.
 
 It is very clear to everyone who reads this Psalm that these are not so much the words of David as they are the words of David's Son and David's Lord, our blessed Master. He prayed with strong crying and tears. He came before His Father's Throne with supplications and for a long time it seemed as if He would have no answer. It did appear as if God had utterly forsaken Him and that His enemies might persecute and take Him.

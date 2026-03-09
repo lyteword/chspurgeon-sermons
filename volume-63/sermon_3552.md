@@ -1,12 +1,5 @@
 # Sermon 3552 | The Soul's Desertion
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "My beloved had withdrawn himself, and was gone." Solomon's Song 5:6.
 
 The happiest condition of a Christian out of Heaven is to live in the conscious enjoyment of the Presence of the Lord Jesus. When the love of Christ is shed abroad in the heart by the Holy Spirit, the Believer need not envy an angel his harp of gold! It matters not what may be his outward trial, the Holy Spirit is able to make the heart live above all surrounding circumstances, so that we can have summer in the midst of winter and pluck our ripest fruits when there are neither leaves nor fruits upon the tree. But the Christian is unhappy--unhappy to the utmost degree--whenever he loses the sense of the Presence of his Lord. Then the pillars of his house are made to tremble, his fresh springs are dried up, the sun is hid from his eyes and the sky is so dark overhead that he walks, rather wanders, about a world which cannot render to his soul any substantial comfort. Were he a worldling, he could live upon the world, but having been taught by Divine Grace to aspire after something nobler and better, the loss is exceedingly grievous to his spirit. I question whether the most of Christians do not sometimes lose the enjoyment of the Lord's company. I question yet further whether there are not very many professors who live contentedly under that loss--nor can I account for this, except on the supposition that they can have known but little of that Presence in their best estate. Otherwise, they must be in a most sickly and slumbering condition of soul, gradually becoming worse and worse--or else they never could bear to have things as they are with them. It seems to me that a real Believer in a sound state of health no sooner loses the Presence of his Lord than he begins to cry for Him. Where has Christ gone? Why have I lost sight of Him? The sounds of His footsteps still linger in the ear. The Believer wakens and starts, and asks himself, "How is this? Where has my Beloved gone? What is it that has chased Him from me? I cannot live if He leaves me, therefore, let me speedily seek Him and never rest until once more I am restored to full communion with Him." Let me, then, talk a little with such Believers as have lost, for awhile, the comfortable Presence of their Lord. The first question shall be--

@@ -1,12 +1,5 @@
 # Sermon 3294 | The Lord's Eternal Rest
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 21, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 22, 1886.
-
 "This is My rest forever: here will I dwell; for I have desired it" Psalm 132:14.
 
 THESE are the words of Jehovah Himself concerning the hill of Zion, but it is clear that He did not intend us to understand them merely in their literal reference to Zion, because Zion could not be a fitting place for His eternal rest. Nor has He made it literally His rest forever, for Zion has been trodden down of the Gentiles for all these centuries. I have no doubt that the Lord had in His mind the greater Zion, "the city of the living God, the heavenly Jerusalem...the general assembly and church of the first-born, which are written in Heaven." The eternal God, looking down from His Throne of Glory upon all the creatures He has made, selects His Church--elect, blood-bought, called, preserved and sanctified, and He says concerning this Church--"This is my rest forever: here will I dwell; for I have desired it."

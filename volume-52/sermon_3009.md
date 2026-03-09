@@ -1,12 +1,5 @@
 # Sermon 3009 | Our Champion
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 11, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1861.
-
 "And Samson lay till midnight, and arose at midnight, and took the doors of the gate of the city, and the two posts, and went away with them, bar and all, and put them upon his shoulders, and carried them up to the top of the hill that faces Hebron." Judges 16:3.
 
 POOR Samson! We cannot say much about him as an example to Believers. We must hold him up in two lights--as a beacon and as a prodigy. He is a beacon to us all, for he shows us that no strength of body can suffice to deliver from weakness of mind. Here was a man whom no fellow man could overcome, but he lost his eyes through a woman--a man mighty enough to tear a lion like a kid, yet, in due time, though himself stronger than a lion, he was bound with fetters of brass. When I think of the infatuation of which Samson was the subject and remember that we are men of like passions with him, I can only, for myself, put up the prayer, "Lord, hold You me up, and I shall be safe," and urge you to do likewise.

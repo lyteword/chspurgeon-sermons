@@ -1,12 +1,5 @@
 # Sermon 2968 | "His Great Love"
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 29, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 15, 1875.
-
 "His great love with which He loved us, even when we were dead in sins." Ephesians 2:4,5.
 
 You notice, in this chapter, the remarkable change of subject which commences at the 4th verse. Paul had been giving a very sad description of what even the saints are by nature and of their conduct before conversion. And then, as if he was quite weary of writing upon that painful topic, he says, "But God"--and goes on to tell what God has done. What a relief it is to turn from ourselves and from our fellow men, to God! And I do not know when God, in His rich mercy, ever seems so lovely in our eyes as when we have just gazed upon our own abundant sins. The diamond shines all the more brilliantly when it has a suitable foil to set off its brightness--and man seems to act as a foil for the goodness and the mercy of God! Perhaps you remember that the Psalmist, when he had said in his haste, "All men are liars," turned abruptly from that theme and said, "What shall I render unto the Lord for all His benefits toward me?" It is as if he had said, "I will not have anything more to do with man. I find him to be only like a broken cistern that can hold no water-- but as for my God, He has never failed me and He never will--so, 'I will take the cup of salvation and call upon the name of the Lord.'"

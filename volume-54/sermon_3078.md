@@ -1,12 +1,5 @@
 # Sermon 3078 | God-Guided Men
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 6, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 15, 1874.
-
 "I conferred not with flesh and blood." Galatians 1:16.
 
 THE conversion of Paul is one of the evidences of the truth of our holy religion. So far as this life was concerned, he had nothing to gain, but everything to lose by becoming a Christian. From being a great Rabbi he came to be the companion of poor fishermen who themselves were the followers of One who was poorer even than they! It is clear that he was no fanatic and not at all likely to be carried away by any sudden impulse. He was clear-headed, thoughtful, logical and his conversion must have been worked by some very extraordinary power--there must have been, to him at least, overwhelming evidence of the truth of what he believed and of that form of faith to which he devoted his whole after life.

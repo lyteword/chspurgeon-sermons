@@ -1,12 +1,5 @@
 # Sermon 2928 | Sham Conversion
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 23, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, DECEMBER 10, 1876.
-
 "And so it was at the beginning of their dwelling there, that they feared not the LORD: therefore the LORRD sent lions among them, which slew some of them. They feared the LORRD and served their own gods, after the manner of the nations from which they were carried away. Unto this day they continue practicing the same rituals: they fear not the LORRD." 2 Kings 17:25,33,34.
 
 THE world is full of deceptions and counterfeits. We have had to protect ourselves by law against adulterations of the most common articles of food, but all the laws in the world will not be able to protect us against the constant, the almost universal deceit which is found in daily life. Men seem continually to be set on making the worse appear the better--putting the bitter for the sweet and the sweet for the bitter. If any man shall go through this world with his eyes shut, believing all that he hears, he will find himself the dupe of a thousand knaves. You must keep your eyes open--you must carry a test with you by which you shall be able to discern between things that differ, or else in the ordinary affairs of life you will soon be brought to bankruptcy and poverty.

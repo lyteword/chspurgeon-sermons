@@ -1,12 +1,5 @@
 # Sermon 3298 | Lessons From Christ's Baptism
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 18, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 4, 1866.
-
 "And Jesus, when He was baptized, went up immediately out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit God descending like a dove, and lighting upon Him: and lo, a Voice from Heaven, saying, This is My Beloved Son, in whom I am well-pleased." Matthew 3:16,17.
 
 [Another Sermon by Mr. Spurgeon upon verse 17 is #2409, Volume 41--A GREAT SERMON BY THE GREATEST PREACHER.]

@@ -1,12 +1,5 @@
 # Sermon 3318 | How to Read the Bible
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 5, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING JUNE 21, 1866.
-
 "Till I come, give attendance to reading." 1 Timothy 4:13.
 
 OF course this counsel and exhortation is intended primarily as a direction to Christian ministers and especially to young Christian ministers. They must read much if they are to be profitable to others as preachers. There used to be a very stupid conceit in some sections of the Church, that if a minister read extensively, he would only give forth stale truth, or what some simpletons called, "dead men's brains." Men have now learned, however, that he will be most fresh and original in his own thoughts who most diligently cultivates his mind by studying and pondering the thoughts of other minds. He who never quotes, will never be quoted, and he who does not read is not very likely to be read. Of course the first thing the minister needs is to be taught of the Spirit, but then the question is--How does the Spirit teach? He teaches, no doubt, mainly through the Word and through our own experimental acquaintance with that Word. But if He pleases to reveal a Truth of God to another man, and I will not read that Truth as it has been recorded by that other man, I have neglected the teaching of the Spirit of God. You know, with regard to the Savior's miracles, that there was not one of them that was unnecessary. He never did a thing by miracle which could have been performed by the ordinary laws of Nature. So it is with the teaching of the Spirit--I have no right to expect that the Spirit will reveal Truth to me without the use of a book when I can find it out for myself with the book. "The Holy Spirit helps our infirmities," but not our idleness! He is given to us on purpose that He may help us when we are weak, but not that we may be indulged where we are slothful. I have sometimes had the unutterable misery of listening to a sermon which has been professedly dictated by the Spirit of God, but in which it was clear that the preacher had never thought upon the subject before he spoke--and I can only say that I was quite at a loss to perceive any peculiar beauty in the sermon, nor did I see anything at all which made it a source of edification superior to a sermon which had been prepared by someone else. I thought I detected a good many traits of human ignorance--and but very few traces of the working of the Holy Spirit.

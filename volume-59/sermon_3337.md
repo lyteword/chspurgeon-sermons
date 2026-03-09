@@ -1,12 +1,5 @@
 # Sermon 3337 | Ears Bored to the Doorpost
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 16, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 16, 1866.
-
 "And if the servant shall'plainlysay, Ilove my master, my wife, and my children; I will not go out free. Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the doorpost; and his master shall bore his ear through with an awl; and he shall serve him forever" Exodus 21:5, 6.
 
 THE Jewish people had lived in Egypt and had been themselves slaves. They had, doubtless, learned much of art and science in Egypt, but they also learned many sinful manners and customs--and among the rest they learned the habit of slavery. When God found them and led them out into the wilderness to make a nation of them, He did not give them a code of laws such as He would give to us in the light of this dispensation, but He gave them laws as Jesus Christ, Himself, says, "according to the hardness of their heart." He gave them a law suitable to the state in which they were. Their ceremonial laws, their political and economic laws, were very far from being perfect and were never intended to be regarded as perfect. They were not meant for a nation of men as much as for a nation of children. The nation was then in its infancy and statutes and ordinances were very much in accordance with the infancy of the people. Slavery, for instance, was not forbidden. It was not even forbidden for a Hebrew to hold his brother Hebrew in bondage! But, though it was not forbidden, yet it was so hedged about and limited with many regulations and conditions that it must have become very difficult, if not almost impossible.

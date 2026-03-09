@@ -1,12 +1,5 @@
 # Sermon 3339 | The Heart Perfumed
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 30, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING SEPTEMBER 13, 1866.
-
 "The love of God is shed abroad in our hearts by the Holy Spirit who was given unto us." Romans 5:5.
 
 As one reads the opening verses of this Chapter, one cannot help saying, "What marvelous treasures are those which belong to the people of God!" Hezekiah took the Babylonian ambassadors through all his varied treasure houses and herein he did evil--but if you can conduct your mind through the spiritual treasure houses and the minds of your friends in the same direction, you will do well. What is the wealth of God's people? Who can count it? It is wondrous and beyond conception! The Apostle seems to have taken up a whole handful of brilliants in the first verses of this Chapter and he now holds them up, one by one, and lets them glitter in the light, no not merely a handful plucked at random, but they seem to be striving together, for one follows on after the other! "Therefore" is the link which connects justification with "peace," and then there is a connection between this "peace" and "access," and from this "access" to God we go on to "rejoice in hope of the glory of God." And when we have got as far as this string of pearls, the Apostle adds, "And not only so," and then he holds up a cluster--and when he has spoken of them he adds that "tribulation works patience, and patience experience, and"--another, "and"--"experience hope," and then another, "and"--"and hope makes not ashamed." And then at the end of this string ofjewels he brings up the language of the text--"Because the love of God is shed abroad in our hearts by the Holy Spirit who was given unto us."

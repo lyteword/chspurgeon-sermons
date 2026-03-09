@@ -1,12 +1,5 @@
 # Sermon 3205 | Scales Taken From the Eyes
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 7, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And immediately there fell from his eyes as it had been scales." Acts 11:18.
 
 THIS means that the film upon Saul's eyes was comparable to the scales of a fish, or else that it fell off as scales might fall. When the blinding film was gone, light broke into the darkness of Saul. In different men, sin manifests its chief power in different parts of their nature. In the case of many, sin is most apparent in their eyes. That is to say, ignorance, error and prejudice have injured their mental sight. Some have the withered hand of conscious inability, others have the deaf ear of mental obtuseness, but there are far more who hear the joyful sound and display much energy, but they hear without understanding and are zealous without knowledge, for they are blind. This was Saul's condition. He was thoroughly honest--we might say of his heart, when it was at its worst, that it was always true to its convictions. He was no deceiver and no timeserver. He went in for what he believed to be right with all his might--lukewarmness and selfish policy were alien to his nature. He dashed with all his might against the Doctrine of the Cross because he thought it to be an imposition. His fault lay in his eyes and so, when the eyes were set right, Saul was right. When he perceived that Jesus was, after all, the Messiah, the man became just as earnest a follower of Christ as before he had been a persecutor!

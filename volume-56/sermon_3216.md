@@ -1,12 +1,5 @@
 # Sermon 3216 | The Two Gatherings
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 22, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 16, 1863.
-
 "Gather My saints together unto Me, those that have made a covenant with Me by sacrifice." Psalm 50:5.
 
 JUST a few sentences must suffice concerning the first meaning of the text. I think there can be little doubt that we have here a prophecy of our Lord's Second Advent and of the gathering together in one assembly of all the chosen people of God--both those who shall then be in Heaven and those who shall then be alive and remaining upon the earth. Having made a Covenant with Christ by sacrifice, these shall all be gathered together unto Him, to be partakers of His Glory when He reigns at the latter day in all the splendor of His millennial Kingdom here below.

@@ -1,12 +1,5 @@
 # Sermon 3122 | Craving the Best Things
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 10, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT UPTON CHAPEL, LAMBETH ROAD, ON TUESDAY, MARCH 20, 1866.
-
 "And David said, There is none like that; give it to me." 1 Samuel 21:9.
 
 PERHAPS you remember the circumstances under which these words were spoken. David had been warned by Jonathan that Saul sought his life and, therefore, he left the court in a hurry and fled. He appears to have gone in such haste that he did not take proper provision with him--he did not even take his sword. Coming to Nob, where the priests dwelt, he received the sacred bread which had been offered to God as the showbread and he and the men with him ate thereof. And when he asked Ahimelech if he could furnish him with a weapon, he said there was no sword there save one, "the sword of Goliath, the Philistine, whom you slew in the valley of Elah. Behold, it is here wrapped in a cloth behind the ephod: if you will take that, take it: for there is no other save that here." And David said, "There is none like that; give it to me."

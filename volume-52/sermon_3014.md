@@ -1,12 +1,5 @@
 # Sermon 3014 | A Sermon From a Sick Preacher
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 15, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, IN THE YEAR 1869.
-
 "Therefore, to you who believe, He is precious." 1 Peter 2:7.
 
 

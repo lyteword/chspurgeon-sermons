@@ -1,12 +1,5 @@
 # Sermon 3224 | "Repentance and Remission"
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 17, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 17, 1870.
-
 "And that repentance and remission of sins should bepreached in His name among all nations, beginning at Jerusalem." Luke 24:47.
 
 [Another Sermon by Mr. Spurgeon upon the same text is #1729, Volume 29--BEGINNING AT JERUSALEM.]

@@ -1,12 +1,5 @@
 # Sermon 3286 | The Fear of Death
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 25, 1912,
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 25, 1866.
-
 "Forasmuch then as the children are partakers of flesh and blood, He Himself likewise shared in the same, that through death He might destroy him who had the power of death, that is, the devil, and deliver those who through fear of death were all their lifetime subject to bondage." Hebrews 2:14,15.
 
 

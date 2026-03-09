@@ -1,12 +1,5 @@
 # Sermon 3348 | Knowing and Doing
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 3, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, SEPTEMBER 20, 1868.
-
 "If you know these things, happy are you if you do them." John 13:17.
 
 The original scope of these words was just this--"If, as you say, you have understood the meaning of this--the washing of your feet by your Master--if you have comprehended My intention in so doing, then it will be to your lasting honor and happiness if you do the same. I have symbolically represented to you, by washing your feet, certain virtues. You shall be a happy people if these virtues are found in you and abound." And have we not abundant proof that our Lord spoke the truth, for where are churches as happy as where they are knit together in brotherly love, where they have laid aside contentions about priority and distinction and where each one becomes a servant of all--everyone willing to take the lowest place and no one contending who shall be the greatest! May we prove, as I trust in our measure we have already done, how true these words are, and never may Diotrephes be in our midst to strive for the preeminence, nor a root of bitterness spring up to trouble us! May we, everyone, try to be like our Lord and happy, indeed, shall we be in such a case.

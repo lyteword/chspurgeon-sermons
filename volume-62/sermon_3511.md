@@ -1,16 +1,5 @@
 # Sermon 3511 | The Battle of Life
 
-A Sermon
-
-
-Published on Thursday, May 11th, 1916.
-
-Delivered by
-
-H. SPURGEON,
-
-At [19]the Metropolitan Tabernacle, Newington.
-
 "Who goeth a warfare any time at his own charges?"--1 Cor. 9:7.
 
 THIS question occurs in the course of an argument. The Apostle was proving that the minister who gives all his time to the preaching of the Word is entitled to a maintenance from those people amongst whom he labours. He gives divers illustrations, amongst them this--that the soldier who devotes himself to the service of his country is not expected to find his own equipment and his own rations, but he is provided for by his country. And so should it be, he teaches us, in the Church of God. The minister set apart to labour wholly in spiritual things should have temporal supplied found him. That isle topic, however, on which it would be superfluous for me to enlarge. Your convictions are so sound, and your practice so consistent, that you do not need to be exhorted, much less to be expostulated with on that matter.

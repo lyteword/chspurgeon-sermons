@@ -1,12 +1,5 @@
 # Sermon 3101 | A Plain Talk Upon An Encouraging Topic
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 16, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "When my soul fainted within me I remembered the LORD: and my prayer came in unto You, into Your holy Temple." Jonah 2:7.
 
 THE experience of the saints is the treasure of the Church. Every child of God who has tried and proved the promises of God, when he bears his testimony to their truth, does, as it were, hang up his sword and spear on the Temple walls and thus the house of the Lord becomes "like the tower of David built for an armory, whereon there hang a thousand bucklers, all shields of mighty men." "The footsteps of the flock" encourage others who are following their track to the pastures above. Every preceding generation of saints has lived and suffered to enrich us with its experience. One great reason why the experience of saints in olden time is of such use to us is this--they were men of like passions with ourselves. Had they been otherwise, we could not have been instructed by what they suffered. They endured the same trials and pleaded the same promises before the same God who changes not in any measure or degree, so that we may safely infer that what they gained by pleading may also be obtained by us when surrounded by the same circumstances. If men were different, or if the promises were changed, or if the Lord had varied, all ancient experience would be but an idle tale to us. But now, whenever we read in Scripture of what happened to a man of faith in the day of trial, we conclude that the same will happen to us--and when we find God helping and delivering His people, we know that He will even now show Himself strong on our behalf, since all the promises are yes and Amen in Christ Jesus unto the Glory of God by us. The Covenant has not changed--it abides firm as the eternal hills. The preacher, therefore, feels quite safe in directing you to the experience of Jonah and in inviting you to make its lessons a practical guide to yourselves.

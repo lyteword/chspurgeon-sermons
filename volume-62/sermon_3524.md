@@ -1,12 +1,5 @@
 # Sermon 3524 | "Do I Love the Lord or Not?"
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 10, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Peter was grieved because He said unto Aim the third time, Do you love Me?" John 21:17.
 
 THIS is a pointed question which demands a personal answer and should, therefore, stir up full and frequent self-examination. "Do you love Me?" It is a probing question that is likely to excite much grief when pressed home to the sensitive, tender-hearted disciple, even as Peter was grieved because the Lord said unto him the third time, "Do you love Me?" Yet it is a pleasing and profitable question to as many of us as can give a like solemn and satisfactory response to that of Simon Peter, "Lord, You know all things; You know that I love You."

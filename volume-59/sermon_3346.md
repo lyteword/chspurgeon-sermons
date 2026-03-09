@@ -1,12 +1,5 @@
 # Sermon 3346 | Resurrection for the Just and the Unjust
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 20, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JUNE 4, 1868.
-
 "There shall be a resurrection both for the just and the unjust." Acts 24:15.
 
 THE heathen had, somehow or other, spelled out the Truth of God that the soul of man is immortal. Almost all their religions implied this and some of their sages plainly taught it. But never had they imagined that this immortality might belong also to the body!

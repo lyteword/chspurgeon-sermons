@@ -1,12 +1,5 @@
 # Sermon 3434 | Fruitless Faith
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 26, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 21, 1861.
-
 "Even so faith, if it has not works, is dead, being alone." James 2:17.
 
 WHATEVER the statement of James may be, it could never have been his intention to contradict the Gospel! It could never be possible that the Holy Spirit would say one thing, in one place, and another in another. Statements of Paul and of James must be reconciled, and if they were not, I would sooner be prepared to throw overboard the statement of James than that of Paul. Luther did so, I think, most unjustifiably. If you ask me, then, how I dare to say I would sooner do so, my reply is, I said I would sooner throw overboard James than Paul for this reason, because, at any rate, we must keep to the Master, Himself, the Lord Jesus Christ. We ought never to raise any questions about differences of Inspiration, since they are all equally Inspired, but if such questions could be raised and were allowable, it were wisdom to stick fastest to those who cling closest to Christ. Now the last words of the Lord Jesus, before He was taken up, were these, "Go you into all the world and preach the Gospel to every creature," and what was this Gospel? "He that believes and is baptized shall be saved." To that, then, we must always cling, and Jesus Christ has given a promise of salvation to the baptized Believer, for He has said, "As Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up, and whoever believes in Him shall not perish, but have everlasting life."

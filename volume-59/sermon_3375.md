@@ -1,12 +1,5 @@
 # Sermon 3375 | Standing and Singing
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 9, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 31, 1867.
-
 "My foot stands in an even place; in the congregations will I bless the Lord." Psalm 26:12.
 
 You will remember our taking a pathetic verse for our meditation, some little while ago, which was the prayer of a saint in trouble, whose prayer was, "Look upon my affliction and my pain." [See Sermon #741, Volume 13--a troubled prayer.] We must now look upon the reverse of the picture and think

@@ -1,12 +1,5 @@
 # Sermon 3329 | Goodness Going Before
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 21, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, AUGUST 9, 1866.
-
 "You prevent Him with the blessings of goodness." Psalm 21:3.
 
 OUR text is one of many instances of the way in which words change their meanings. The word, "prevent," as we now use it, has a very different meaning from that which it had when our translators used it. It now signifies to get before one, to stop up his path, to prevent his going a certain way, just as the angel "prevented" Balaam, standing with his sword drawn in his hand that he might not pass that way. This is only the modern use of the word, but the real and ancient use of it was simply, "to go before." "You go before Him with the blessings of goodness." That is the real meaning of the word--and when we speak of, "preventing Grace," we do not intend to describe the Grace that keeps us from sin, but the Grace which goes before our actually believing in Christ--"prevenient Grace," as we are accustomed to call it theologically--Grace which comes to us while as yet we are not conscious of its power, or have no desire towards it.

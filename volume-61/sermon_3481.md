@@ -1,12 +1,5 @@
 # Sermon 3481 | Visits From the Lord
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 14, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 1, 1871.
-
 "Therefore, that disciple whom Jesus loved said unto Peter, It is the Lord. Now when Simon Peter heard that it was the Lord, heput on his outer garment (for he was naked), and plunged into the sea. But the other disciples came in the little boat; for they were not far from land (about two hundred cubits), dragging the net with fishes." John 21:7, 8.
 
 UNTIL our Lord should pour out the Spirit upon His Apostles, they had to wait. It was expedient for them that He should go away and ascend into His Glory. Then when He had received gifts for men and had distributed those gifts, they would be able to go forth in the power of the Spirit, preaching the Gospel. Until then they must wait, and they must not be idle. Therefore they returned to their ordinary trades and once again the little boat plowed the familiar waves of the sea of Tiberias. There they had many old associations brought up before them. And there, moreover, on the memorable night of which we are now to speak, they learned a lesson which would be instructive to them throughout the whole course of their fishing for men! Their condition and position were very much like our own. We, as a Christian Church, are engaged in the great soul-fishery, seeking by any means to bring some to Christ. Out on the dark waters of the Dead Sea of Sin we seek to bring the souls of men, not to destroy them, but that Christ may save them! This is to be the Church's perpetual work. She must never cease from it. For this purpose is she kept in the world and if she does not answer this purpose, she is faulty before her Lord.

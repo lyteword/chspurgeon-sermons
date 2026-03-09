@@ -1,12 +1,5 @@
 # Sermon 3390 | Hoping in God's Mercy
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 22, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S DAY EVENING, FEBRUARY 16, 1868.
-
 "Behold, the eye of the Lordis on those who fear Him, on those who hope in His mercy." Psalm 33:18.
 
 By the term, "the fear of God," we understand in Holy Scripture the whole of true religion. We do not mean by the fear of God, the slavish fear which trembles in God's Presence, as the poor slave trembles under his master's lash, but that child-like fear which fears to offend, which fears to be led into error--a reverential fear such as the angels have when they veil their faces with their wings and cast their crowns before the glorious Throne of God--to have such a fear of God before our eyes as to restrain our wandering passions, to keep our hands from doing evil and our tongues from speaking the thing which is not right--to have such a fear of God that we feel as though we were in God's Presence and act, and speak, and think as though we fully recognized the eye that reads the secrets of the heart. When we read, therefore, that the eye of the Lord is upon "them that fear Him," we are to understand that He has gracious regard towards those who delight in Him, who worship Him and are His children.

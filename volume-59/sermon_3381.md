@@ -1,12 +1,5 @@
 # Sermon 3381 | The Broken Fence
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 20, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I went by the field of the lazy mam, and by the vineyard of the man void of understanding; and lo, it was all grown over with thorns, and nettles had covered its surface, and the stone wall was broken down. Then Isaw, and considered it well: I looked on it and received instruction." Proverbs 24:30-32.
 
 THIS lazy man did no hurt to his fellow men--he was not a thief, nor a ruffian, nor a meddler in anybody else's business. He did not trouble himself about other men's concerns, for he did not even attend to his own--it required too much exertion. He was not grossly vicious. He had not energy enough to care for that. He was one who liked to take things easily. He always let well enough alone and, for the that matter, he let ill alone, too, as the nettles and the thistles in his garden plainly proved! What was the use of disturbing himself? It would be all the same a hundred years hence and so he took things just as they came. He was not a bad man, so some said of him, and yet, perhaps it will be found at last that there is no worse man in the world than the man who is not good, for in some respects he is not good enough to be bad! He has not enough force of character about him to serve either God or Baal. He simply serves himself, worshipping his own ease and adoring his own comfort. Yet he always meant to be right. Dear me, he was not going to sleep much longer, he would only have forty winks more and then he would be at his work--and show you what he could do! One of these days he meant to be thoroughly in earnest and make up for lost time. The time never actually came for him to begin, but it was always coming. He always meant to repent, but he went on in his sin. He meant to believe, but he died an unbeliever. He meant to be a Christian, but he lived without Christ. He halted between two opinions because he could not trouble himself to make up his mind! And so he perished of delay.

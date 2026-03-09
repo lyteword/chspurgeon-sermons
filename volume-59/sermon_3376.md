@@ -1,12 +1,5 @@
 # Sermon 3376 | God's Answer to Persistent Prayer
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 16, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 2, 1868.
-
 "There is a sound of abundance of rain." 1 Kings 18:41.
 
 FROM the narrative we may learn that things can never be so bad but what God can bring deliverance in His own time. The country had been parched in Palestine for three years. Travelers in the East will tell you how brown and burned that country looks at all times, but how it must have appeared when the clouds cleaved together and all the pastures were turned to dust, I can scarcely conceive. It must have been a terrible and piteous sight when the cattle had perished and the people were ready to die through famine and hunger. Yet, bad as it was, when the clouds had long ago vanished, when the children of three years old did not know what a drop of rain meant, when the skies seemed to be as brass above the heads of poor tortured mortals, then it was that the word of God came to Elijah, saying, "There shall yet be rain." Courage, then! If the times should be full of danger, if there should be forebodings in the hearts of the bravest, if infidelity should threaten to put out the light of the Gospel, or if Romanism should seem to blot out the name of Christ from under Heaven, yet God can still appear! And if any one Church is left and the Lord commands the clouds that they rain no rain upon her, her hedges be broken down, the wild boars out of the woods waste her and she seem to be utterly left, yet at the last hour of the day, when her hope all but expires, Jehovah, her Friend, may come to help her! And so with us personally--if we are brought to the last handful of meal in the barrel and the last drop of oil in the cruse--if we are brought so low that now it seems relief would come too late, or could not possibly come at all, the Lord, who has His way in the whirlwind and who makes the clouds the dust of His feet, can now come from above! On cherubim and seraphim, right royally can He descend in speedy flight and bring help to His needy servants! Let us, therefore, drive despair away! There is no room for that in Jehovah's world! As long as He still reigns, let the earth rejoice and let His people wait upon Him in hope.

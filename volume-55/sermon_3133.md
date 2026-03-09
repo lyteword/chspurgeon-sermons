@@ -1,12 +1,5 @@
 # Sermon 3133 | Christ's Prayer for Believers
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 25, 1909.
-
-DELIVERED BY C. H. SPURGEON, AT UNICORN YARD CHAPEL, SOUTHWARK, ON WEDNESDAY EVENING, AUGUST 29, 1855,
-
-[ON BEHALF OF THE GOSPEL MINISTERS' RELIEF SOCIETY.]
-
 "Neither pray I for these alone, but for them also who shall believe on Me through their word." John 17:20.
 
 IN the very opening of this subject one feels inexpressibly delighted to see the wondrous love of our Savior towards His people. He here promises that He will intercede for each of them before His Father's Throne and He declares that this intercession also rises for those who are yet uncalled, unconverted and unregenerated! Mark the depth of His affection-- He spends all His time in continually interceding for His people. I marvel at the condescension of Jesus Christ, that His people's names are always on His lips. When we consider that notwithstanding all His exceeding Grace and affection towards them, they transgress and rebel, it appears amazing that He should mention their names, or that He should regard their persons! But when we remember that, day by day, in that land where there is no night, He who stands before His Father's Throne bears perpetually on His breast their names deeply cut in the precious jewels and stones of the breastplate, and always with outspread hands, pleads for them, we cannot but admire His love for them and feel a deep veneration for that Divine Grace which makes Him declare, "For Zion's sake will I not hold My peace and for Jerusalem's sake I will not rest until the righteousness thereof goes forth as brightness, and the salvation thereof as a lamp that burns."

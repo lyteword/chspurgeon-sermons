@@ -1,12 +1,5 @@
 # Sermon 3387 | A New Year's Benediction
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 1, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, SEPTEMBER 3, 1868.
-
 "Let your conversation be without covetousness; and be content with such things as you have, for He has said, I willnever leave you, nor forsake you." Hebrews 13:5.
 
 OBSERVE the way in which the Apostles were accustomed to incite Believers in Christ to the performance of their duties. They did not tell them, "You must do this or that, or you will be punished. You must do this and then you shall obtain a reward for it." They never cracked the whip of the Law in the ears of the child of God. They knew the difference between the man who was actuated by sordid motives and the fear of punishment--and the newborn man who is moved by more sublime motives, namely, motives that touch his heart, that move his regenerated nature and that compel him, out of affection, to do the will of Him that sent him. Hence the address, here, is not, "Be content, or else God will take away what you have," but, "Be content and have nothing to do with covetousness, for He has said, "I will never leave you, nor forsake you."

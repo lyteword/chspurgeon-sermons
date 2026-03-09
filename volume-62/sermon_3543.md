@@ -1,12 +1,5 @@
 # Sermon 3543 | Speaking on God's Behalf
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 21, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "I have yet to speak on God's behalf." Job 36:2.
 
 So said Elihu. And verily many of us might make the same resolve. We have tasted that the Lord is gracious. When first we came to Him laden with guilt and full of woes, we found Him ready to pardon--a God with whom there is plenteous redemption--

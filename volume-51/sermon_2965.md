@@ -1,12 +1,5 @@
 # Sermon 2965 | Prepared to Meet God
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, AUGUST 8, 1875.
-
 "Therefore thus will I do unto you, O Israel: and because I will do this unto you, prepare to meet your God, O Israel." Amos 4:12.
 
 THERE is a peculiar solemnity about the language of our text because, albeit that the whole of Scripture is the Word of God, yet very much of it is given to us by the Prophets, Apostles and other Inspired writers. But here, it is God Himself who is speaking and out of Heaven He addresses His erring people and says to them, "Because I will do this unto you, prepare to meet your God, O Israel." If ever every mortal ear should be earnestly attentive, it is when God's voice is heard. Shall not the creature listen to its Creator? Shall not man give heed to the voice of the God of the whole earth? O Lord, give to us hearing ears and let not your words merely reach our ears, but may the inward meaning of them penetrate our souls through the effectual working of Your almighty Spirit!

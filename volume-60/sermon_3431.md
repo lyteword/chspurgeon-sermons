@@ -1,12 +1,5 @@
 # Sermon 3431 | The King Passing Over Kidron
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 5, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 18 1869.
-
 "The king, himself, also passed over the Brook Kidron." 2 Samuel 15:23.
 
 THE Brook Kidron was an insignificant, but usually a most foul and filthy ditch outside the walls of Jerusalem. If it were not, as some have called it, the open town sewer, yet there are reasons for believing that at least the filth of the Temple ran into it. The scourings of the sacrificial places went by an under-channel into this brook and we have one or two instances in Holy Writ where, when houses were purged and cleansed, the filth was thrown into the Brook Kidron. The passing, therefore, over that foul and black brook becomes the symbol of a time of deep sorrow and acute distress. The king, himself, then, passed over the Brook Kidron. The royal road lies over the place of sorrow. The way, even for kings, is by the brook of grief and shame. Let us think over that thought for a while.

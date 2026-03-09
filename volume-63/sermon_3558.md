@@ -1,12 +1,5 @@
 # Sermon 3558 | A Plea From the Cross
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 5, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THE LORD'S-DAY EVENING, JANUARY29, 1871.
-
 "Father, forgive them, for they know not what they do." Luke 23:34.
 
 To the godly heart there is a brighter light on Calvary than anywhere else beneath the sun. He who often resorts to Golgotha, if his spirit is right, must be wise. It is the University of Saints! He who would know sin--its heinousness, its penalty--must see the Son of God making Expiation for it by His death on the accursed tree. He who would know love--the love which many waters cannot quench, and which the floods cannot drown--must read it in the Savior's face--or, if you will, written in crimson lines in the Savior's heart, pierced with the spear. He who would know how he may get his sin forgiven, must resort to the Cross. There, and there only, is seen the way by which sin can be pardoned and the sinner accepted with God! And he who, finding pardon there, would seek to be useful to his fellow men and bring them into the same condition, must, himself, keep near that Cross, that he may speak much of it and, in the power of it, may be able to persuade and to prevail with the sons of men. Abide at the Cross, Beloved--there is no air so healthy and quickening as that which is breathed there! There was the birthplace of your hope! There its native air! There must be on earth, the climax of your joy! Live upon a Crucified Savior as you live by a Crucified Savior!

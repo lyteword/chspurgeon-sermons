@@ -1,12 +1,5 @@
 # Sermon 2993 | "That King Ahaz"
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 21, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 8, 1863.
-
 "And in the time of his distress did he trespass yet more against the LORD: this is that king Ahaz." 2 Chronicles 28:22.
 
 IT is absolutely certain, dear Friends, that whatever our personal characters may be, we shall have to know, by practical experience, the meaning of the word, "trouble." Saint or sinner, "man is born unto trouble, as the sparks fly upward." The road to Heaven is rough and the path to Hell is not always smooth. There are some tribulations which belong especially to the people of God, yet it is also true that "many sorrows shall be to the wicked." If a man, trying to escape from sorrow, should take the wings of the morning and fly to the uttermost parts of the sea, he would find that sorrow was even there upon the sea! Should he go to the frozen regions of the North, he would find sorrow there, for there have some of the fondest human hopes been wrecked. Let him journey to the sultry South and trouble shall pursue him there, for plagues, fevers and disease haunt that region and the gates of death are near. Until we mount to Heaven, we shall never be able to escape from sorrow and sighing--only there shall we obtain joy and gladness, when our somber companions shall have fled away forever.

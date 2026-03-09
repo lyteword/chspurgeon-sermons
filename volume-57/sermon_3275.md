@@ -1,12 +1,5 @@
 # Sermon 3275 | "A Kind of First Fruits"
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 5, 1868.
-
 "Of His own will He brought us forth by the Word of Truth, that we might be a kind of first fruits of His creatures." James 1:18.
 
 MARTIN LUTHER, the great defender of the faith, who passionately loved the Doctrine of Justification by Faith, once grew so thoroughly out of temper with the opponents who quoted the Apostle James against him, that he almost threatened to tear his Epistle out of the canon, because he supposed that James fell afoul of Paul upon the matter ofjusti-fication by faith alone. It is, however, very clear to us that James, like the other Apostles , never doubted that every good thing that can be found among mankind is a gift of pure Grace, the gift of God. Hear how he puts it in the verse preceding our text, "Every good gift and every perfect gift is from above"--nothing from human nature, nothing from mere free agency. Good and perfect gifts are flowers too rich and rare to spring up of themselves upon the dunghill of human nature. "Every good gift and every perfect gift is from above, and comes down from the Father of Lights." James knew how to--

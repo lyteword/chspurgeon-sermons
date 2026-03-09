@@ -1,12 +1,5 @@
 # Sermon 2950 | True and Not True
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 24, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MAY 23, 1875.
-
 "Now we know that God hears not sinners." John 9:31.
 
 I HAVE taken my text out of its context for a certain purpose. Part of the purpose will be answered immediately if I say how wrong it is to take any passage of Scripture away from that which comes before it, and that which follows after it--for you may, if you are so inclined, prove anything you like from the Bible if you wrench a line from its context and hold it up by itself. You can, indeed, act in the same way with any other book. You may take an expression from any human being's writings, as some people do from these Divine writings, and make the author say what he never meant. That is how many treat the Word of God. For instance, a man may say that he can prove from Scripture that God has forsaken and forgotten His people. By turning to Isaiah 49:14, we find that Zion, in an unbelieving fainting fit said, "The Lord has forsaken me, and my Lord has forgotten me." It was not true, but was one of the lies of unbelief. If you take from their context the words in Psalm 14:1, "There is no God," you will have the opposite of what David wrote, "The fool has said in his heart, There is no God." If you pick out a sentence from the New Testament, without the context, you may say that Scripture declares that our Lord Jesus Christ was a gluttonous man and a wine-bibber because His enemies falsely said so. And you may declare that it is your duty to worship the devil, because Matthew records that he said to Christ, "Fall down and worship me." You see at once the absurdity and wickedness of wresting the Scriptures in that fashion.

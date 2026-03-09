@@ -1,12 +1,5 @@
 # Sermon 3127 | A Promise and Precedent
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 14, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 4, 1874.
-
 "He shall glorify Me: for He shall receive ofMine, and shall show it unto you." John 16:14.
 
 [Other Sermons by Mr. Spurgeon, upon this passage, are as follows-- Sermons #565, Volume 8--THE HOLY SPIRIT GLORIFYING CHRIST; #2212, Volume 37--"HONEY IN THE MOUTH!" and #3062, Volume 53--THE SPIRIT'S OFFICE TOWARDS DISCIPLES]

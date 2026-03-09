@@ -1,12 +1,5 @@
 # Sermon 3289 | The Sealed Hand--a Winter Sermon
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 15, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "He seals up the hand of every man; that all men may know His work." Job 37:7.
 
 When the Lord seals up a man's hand, he is unable to perform his labor. The Lord has an objective in this, namely, "that all men may know His work." When they cannot do their own work, they are intended to observe the works of God. This is a fact which I fear many of us have never noticed. When the ground is hardened into iron by the frost. When the land lies deep beneath the snow. When the ox rests in the stall and the servants warm their hands at the fire, then the farmer's hand is sealed up. But I fear the Divine Purpose is not often heeded. As you look through the frosted pane upon the driving snow, do you say to yourself, "God has taken me off from my own work and given me a holiday which He would have me turn into a holy day--let me now turn my thoughts to the Lord's great works in Nature, Providence and Grace. Shut out from my calling, I am also shut in to think of my God and of His work"?

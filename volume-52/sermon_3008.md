@@ -1,12 +1,5 @@
 # Sermon 3008 | An All-important Question
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 4, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 13, 1867.
-
 "Doyou believe in the Son of God?" John 9:35.
 
 THE man to whom our Savior addressed this question had been born blind, but he had been the subject of one of the Master's mightiest miracles and was rejoicing in the possession of his newly-found sight! Our Lord is not accustomed to doing things by halves, so, having given to this poor man natural sight, He intended to also give him spiritual'sight. Having delivered him from the misery of living in this world in darkness, He would also deliver him from the dense darkness that brooded within his soul. "Blessed be the name of the Lord, we are never straitened in Him, but only in ourselves; and when we receive not, it is either because we ask not, or because we ask amiss." Our Lord had given to this man His left hand full of minor mercies and now He finds him out with His right hand full of yet richer treasures-- giving to him exceeding abundantly above what he had asked or even thought!

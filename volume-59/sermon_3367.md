@@ -1,12 +1,5 @@
 # Sermon 3367 | Paul As a Pattern Convert
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 14, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "However for this cause I obtained mercy, that in me, first, Jesus Christ might show forth all long-suffering, for a pattern to them which should hereafter believe on Him to life everlasting." 1 Timothy 1:16.
 
 IT is a vulgar error that the conversion of the Apostle Paul was an uncommon and exceptional event and that we cannot expect men to be saved now-a-days after the same fashion. It is said that the incident was an exception to all rules, a wonder altogether by itself. Now, my text is a flat contradiction to that notion, for it assures us that, instead of the Apostle as a receiver of the long-suffering and mercy of God being at all an exception to the rule, he was a model convert, and is to be regarded as a type and pattern of God's Grace in other Believers. The Apostle's language in the text, "for a pattern," may mean that he was what printers call a first proof, an early impression from the engraving, a specimen of those to follow. He was the typical instance of Divine long-suffering, the model after which others are fashioned. To use a metaphor from the artist's studio, Paul was the ideal sketch of a convert, an outline of the work of Jesus on mankind, a picture of Divine long-suffering. Just as artists make sketches in charcoal as the basis of their work--which outlines they paint out as the picture proceeds--so did the Lord, in the Apostle's case, make, as it were, a picture or outline sketch of His usual work of Grace. That outline, in the case of each future Believer, He works out with infinite variety of skill and produces the individual Christian, but the guiding lines are really there. All conversions are, in a high degree, similar to this pattern conversion. The transformation of persecuting Saul of Tarsus into the Apostle Paul is a typical instance of the work of Grace in the heart.

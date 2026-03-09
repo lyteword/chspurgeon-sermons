@@ -1,12 +1,5 @@
 # Sermon 3112 | A Sermon and a Reminiscence
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, EARLY IN THE YEAR 1873.
-
 "Unto you therefore who believe, He is precious." 1 Peter 2:7.
 
 [Other Sermons by Mr. Spurgeon upon this passage, are as follows Sermons #242, Volume 5--CHRIST PRECIOUS TO BELIEVERS; #2137, Volume 36--(same title as #242) and #3014, Volume 52--A SERMON FROM A SICK PREACHER]

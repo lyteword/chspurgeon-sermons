@@ -1,12 +1,5 @@
 # Sermon 2984 | A Silly Dove
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 19, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "Ephraim is like a silly dove without heart." Hosea 7:11.
 
 THE race of Ephraim is not extinct. Men are to this very day very much like what they were in the days of the Prophets. The same rebukes are still suitable, as well as the same comforts. As man has altered very little, if at all, in his outward bodily conformation, so has he not varied in the inner constitution--he is much the same today as he was in the time of Hosea. In this congregation, in the midst of the city of London, we have too large a company of those who are "like a silly dove without heart."

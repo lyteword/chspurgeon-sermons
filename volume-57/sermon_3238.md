@@ -1,12 +1,5 @@
 # Sermon 3238 | A Vision of the King
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 16, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, OCTOBER 4, 1863.
-
 "Your eyes shall see the King in His beauty: they shall behold the land that is very far off." Isaiah 33:17.
 
 This morning [See Sermon #533, Volume 9--THE QUEEN OF THE SOUTH, OR, THE EARNEST ENQUIRER.] I spoke to you concerning the visit of the Queen of Sheba to King Solomon and tried to use it as illustration of the spirit in which sinners should come to Him who is far wiser and greater than Solomon. This evening I am going to continue in much the same strain while I try to speak to you, under the guidance of the Holy Spirit, from the well-known words which I have just read in your hearing. This passage is a rather difficult one to explain--at least certain expositors have done their best to make it appear to be so! They imagine that we have here a threat that the Jews should be carried away to Nineveh as captives and that in that far-off land they should see the Assyrian "king in his beauty." But I venture to say that if you read our text in its context, you will see that a threat would be altogether out of place here in the midst of so many precious promises to the people of God! There is nothing but love and kindness for them-- where there are threats, they are for their enemies!

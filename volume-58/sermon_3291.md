@@ -1,12 +1,5 @@
 # Sermon 3291 | The Sea! the Sea! the Wide and Open Sea!
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 29, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON BEHALF OF THE BRITISH AND FOREIGN SAILORS' SOCIETY.
-
 "The sea is His, for He made it: and His hands formed the dry land." Psalm 95:5.
 
 THIS Psalm exhorts us to sing joyfully unto God. Whether we contemplate the land or the sea, there will be found upon them both abundant reasons for adoring the great Creator. Some, I know, as they walk upon the land, can no more praise Him than if it were one vast desert of Sahara--and yet the earth is full of His goodness--it is as a garden yielding not only food for man and beast, but lovely and fragrant flowers! Forest and field, mountain and plain alike sing out the praises of the Lord! Nor is the sea less rich in excitements to worship the Lord our Maker. Ignorant persons regard the sea as a dreary waste of waters. In the olden times, our home-loving forefathers were desperately afraid of the sea and looked upon it as a devouring monster. It was a "melancholy ocean" to them--a place of constant sorrow and sudden death--they shuddered as they thought of it. But, indeed, to him who is rightly taught, the sea is full of beauty! Its every wave is lit up with splendor--the sea is the Lord's, for He made it! You see then, that both on the land and on the sea adoration is in its place. Praise is never out of season at any time and worship is never foreign in any land. It matters not whether we travel over sand or snow, or how we are tossed about on Arctic or tropical sea--we are still in the pasture of the Great Shepherd, and within the palace of the Great King. Praise the Lord from the earth and let dragons and all deeps join in the Psalm. "Let the sea roar, and the fullness thereof; the world, and they that dwell therein."

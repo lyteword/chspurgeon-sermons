@@ -1,12 +1,5 @@
 # Sermon 3426 | A Sore Grievance
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 1, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "They have forgotten their resting place." Jeremiah 50:6.
 
 THE people of Israel had been so hunted about that they forgot the place where once they rested. The same remark may be made of some congregations. There are Christian people who have the great misfortune of an unchristly pastor. The preaching is eloquent--they are constantly exhorted to do one thing and another. It may be the preaching is intellectual--they are encouraged to speculate upon this and that Doctrine, or it may happen that the preaching is rhetorical, the people are covered with flowers--the preacher seems to be constantly scattering from himself a display of fireworks, an explosion of dazzling words! But there is no manifestation of Christ--no opening up of the completeness of the atoning Sacrifice--no uplifting of Jesus in His love to His people, in His union with them, in the Covenant which He has made on their behalf. Oftentimes have we met with good people who fretted because the ministry failed to supply for their souls. They could have done without the eloquence. They would have been happy without the new theories, however intellectual. They could have survived if there had been less exhortation--what they wanted was a little food to strengthen them, a little repose to invigorate them, a little faith to encourage them in resting upon the finished work of Jesus Christ! Oh, what an account will they have to give who, instead of being shepherds of God's sending to feed His flock with discretion and make them lie down in green pastures, come to them as legal taskmasters wielding the rod, but never using the pastoral staff to guide the flocks by still waters! However, I fear there are some who, though no less worried, nevertheless forget their resting place. Let us talk familiarly with one another on this theme.

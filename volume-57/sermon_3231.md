@@ -1,12 +1,5 @@
 # Sermon 3231 | A New Year's Wish
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 5, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But my God shall supply allyour need according to His riches in Glory by Christ Jesus." Philippians 4:19.
 
 THE Philippians had several times sent presents to Paul to supply his necessities. Though they were not themselves rich, yet they made a contribution and sent Epaphroditus with it, "an odor of sweet smell, a sacrifice acceptable, well-pleasing to God." Paul felt very grateful--he thanked God, but he did not forget to also thank the donors--he wished them every blessing and he did as good as say, "You have supplied my need, and my God shall supply yours. You have supplied my need of temporal food and raiment out of your poverty. My God shall supply allyour need out of His riches in Glory." "As," he says, in the 18th verse, "I have all and abound: I am full." "So," he adds, "'my God shall supply all your need.' You have sent what you gave me by the hand of a beloved Brother, but God will send a better Messenger to you, for He will supply all your need 'by Christ Jesus.'" Every single word sounds as if he had thought it over and the Spirit of God had guided him in his meditation so that he should, to the fullest extent, wish them back a blessing similar to that which they had sent to him--only of a richer and more enduring kind!

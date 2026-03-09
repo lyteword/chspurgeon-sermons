@@ -1,12 +1,5 @@
 # Sermon 3270 | The Truly Blessed Man
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, NOVEMBER 13, 1864.
-
 "Blessed is the maun that walks not in the counsel of the ungodly; nor stands in the way of sinners, nor sits in the seat of the scornful. But his delight is in the Law of the Lord: and in His Law does he meditate day and night. And he shall be like a tree planted by the rivers of water, that brings forth his fruit in his season: his leaf also shall not wither, and whatever he does shall prosper." Psalm 1:1-3.
 
 IT is an old saying and possibly a true one, that every man is seeking after happiness. If it is so, then every man should read this Psalm, for this directs us where happiness is to be found in its highest degree and purest form! "Blessed," says David, "is such-and-such a man," and the word which he uses is, in the original, exceedingly expressive. It implies a sort of plurality of blessedness--"Blessednesses are to the man" and it is scarcely known whether the word is an adjective or a noun, as if the blessedness qualified the whole of life and was, in itself, better even than life itself! The very highest degree of happiness is blessedness, "these blessednesses,'' as Ainsworth says, "heaped up, one upon the other." Surely this is the very highest to which the human heart can aspire! Let us then, this evening, come with attentive hearts to consider in the Light of Revelation, the character of the blessed man. We will begin by considering--

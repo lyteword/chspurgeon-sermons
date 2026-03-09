@@ -1,12 +1,5 @@
 # Sermon 3267 | Under His Shadow
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 14, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT A COMMUNION SERVICE AT MENTONE, EARLY IN THE YEAR 1880.
-
 "He that dwells in the secret place of the Most High shall abide under the shadow of the Almighty." Psalm 91:1.
 
 I MUST confess of my short discourse, as the man did of the axe which fell into the stream, that it is borrowed. The outline of it is taken from one who will never complain of me, for to the great loss of the Church on earth she has left these lower choirs to sing above. Miss Havergal, last and loveliest of our modern poets, just when her tones were most mellow and her language most sublime, has been caught up to swell the music of Heaven. Her last poems are published with the title, "Under His Shadow," and the preface gives the reason for the name. She said, "I should like the title to be 'Under his shadow.' I seem to see four pictures suggested by that--under the shadow of a rock in a weary plain; under the shadow of a tree; closer still, under the shadow of His wing; nearest and closest, in the shadow of His hand. Surely that hand must be the pierced hand, that may oftentimes press us sorely, and yet evermore encircling, upholding and shadowing."

@@ -1,12 +1,5 @@
 # Sermon 3444 | Keeping the Soul Alive
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 4, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 27, 1870.
-
 "None can keep alive his own soul." Psalm 22:29.
 
 SELF-SUFFICIENCY is the sin of nature--all-sufficiency is the supply of Divine Grace! Ishmael, sent away into the wilderness with his bottle, is man trusting in himself--Isaac, dwelling by the never-failing wells of Gerar, is man led by Grace to trust in the unfailing supplies of the God of all consolation! It is as hard to get man away from self-trust as it would be to reverse the course of Niagara. He begins by believing that he can make himself alive--and when he is convinced that this is not possible, he then tries to entrench himself behind the idea that he can keep himself alive. No, though man is dead in trespasses and sins and it is but a rank absurdity to imagine that death can produce life, yet the sinner still thinks that by something of his own he can create a soul within the ribs of death, that a sinner may grow into a saint of himself, that the man who is as full of sin as the leopard is full of spots, may yet, by his own innate energy, cast off his spots and become pure! I say that when man is cured of that rank absurdity, he then will need as much trouble to be cured of another, for even those who are alive unto God fall, more or less, into the false confidence that they can keep their own souls alive, and he out of us all who best knows that he can do no such thing has, nevertheless, sometimes caught himself acting as if he did believe that he could keep his own soul alive! To be sound in Doctrine is one thing, but to have that orthodoxy in the heart is another thing. To believe that I am dependent every day upon the Grace of God is easy, but to carry that dependence and the sense of that dependence into all my dealings with God and with man--this is not nature, but is in itself a work of Grace!

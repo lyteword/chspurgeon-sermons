@@ -1,12 +1,5 @@
 # Sermon 3278 | The Wordless Book
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 30, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JANUARY 11, 1866.
-
 "Wash me, and I shall be whiter than snow." Psalm 51:7.
 
 I DARESAY you have, most of you, heard of a little book which an old Divine used constantly to study. And when his friends wondered what there was in the book, he told them that he hoped they would all know and understand it, but that there was not a single word in it. When they looked at it, they found that it consisted of only three leaves--the first was black, the second was red and the third was pure white. The old minister used to gaze upon the black leaf to remind himself of his sinful state by nature, upon the red leaf to call to his remembrance the precious blood of Christ, and upon the white leaf to picture to him the perfect righteousness which God has given to Believers through the atoning Sacrifice of Jesus Christ, His Son.

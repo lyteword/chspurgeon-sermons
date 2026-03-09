@@ -1,12 +1,5 @@
 # Sermon 3542 | A Precious Promise for a Pure People
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 14, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Your eyes will see the King in His beauty." Isaiah 33:17.
 
 No doubt these words originally had a timely and strictly literal meaning for the people of Jerusalem. When the city was besieged by Sennacherib, the inhabitants saw Hezekiah in garb of mourning. How had he torn his clothes in sorrow! But the day would come, according to prophecy, when Sennacherib must fall. Those who counted the resources and estimated the strength or the weakness of the city would be far away--and then there would be times of liberty. The people would be able to travel to the utmost ends of Palestine, so they would see the land that is very far off. Hezekiah, himself, would come out in his robes of excellence and majesty on a joyful occasion to praise the Lord, and thus would the people's eyes see the king in his beauty. The passage, however, has been frequently used with quite another import, and that properly enough if it is thoroughly understood that it is by way of accommodation we take it, and that it is typically we trace it out. Have we not by faith seen our King in His robes of mourning? Have we not seen Jesus in the sorrowful weeds of affliction and humiliation while here below? Our faith has gazed upon Him in the torn garments of His Passion. We have beheld Him in His agony and bloody sweat, in His Crucifixion and His death. Well, now, another and a brighter view awaits us! Our eves will one day see the King in a more glorious array! We will behold Him as John saw Him on Patmos. We will behold the King in His beauty and then we shall enter and enjoy the land which is at present very far off.

@@ -1,12 +1,5 @@
 # Sermon 3541 | A Memorable Interview
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 7, 1916.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then He said to Thomas, Reach here your finger, and behold My hands; and reach here your hand, and thrust it into My side; and be not faithless, but believing. And Thomas answered, and said unto Him, My Lord and my God." John 20:27,28.
 
 WE are, all of us, apt to fall into a wrong state of heart, not because we are unconverted, nor yet because we are false to Christ, but simply because of our natural infirmities. So long as we are in this body, exposed to trial and temptation, we shall be prone to start aside like a broken bow. Thomas was a true-hearted follower of Jesus. He loved his Master. It had been a severe shock to his sensitive disposition and his thoughtful mind to see his Master betrayed, arraigned, scourged, crucified, dead and buried. He could not, at once, rally from the agitation it caused him, or think it possible that Jesus could have risen from the dead. Pondering the matter scrupulously, it seemed to him to involve too great a miracle to be credited--far beyond anything to be expected! He would require, he said, very clear and satisfactory proofs before he would believe it. In like manner, you and I have, each of us, our characteristic faults. We may not be too thoughtful, like Thomas--we may, perhaps, be too thoughtless--and that is quite as mischievous. Even our pleasing qualities which adorn us as virtues may become our temptations. The best point about us, as a sound judgment was in the case of Thomas, may become the very snare that entangles us. Let no man judge his fellow. Above all, let no man exalt himself. He that is in his best estate, today, may be in spiritual poverty tomorrow! He who rejoices in God and walks in holy consistency may, before another sun has risen--few, though the hours of interval are--have felt his feet slide from under him and so fallen from his steadfastness as to have dishonored his God, and pierced himself through with many sorrows!

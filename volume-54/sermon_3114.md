@@ -1,12 +1,5 @@
 # Sermon 3114 | God's Providence
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 15, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK.
-
 "Now as I beheld the living creatures, behold one wheel upon the earth by the living creatures, with his four faces. The appearance of the wheels and their work was like unto the color of a beryl: and they four had one likeness: and their appearance and their work was, as it were, a wheel in the middle of a wheel. Where they went, they went upon their four sides: and they turned not when they went As for their rims, they were so high that they were dreadful; and their rims were full of eyes round about them four And when the living creatures went, the wheels went by them, and when the living creatures were lifted up from the earth, the wheels were lifted up." Ezekiel 1:15-19.
 
 IN my preaching, I am constantly talking about Providence, so I thought it would be well to devote a whole sermon to explaining what I believe are God's great wonder-working processes which we call, "Providence." In looking for a suitable text, I found this one. These "wheels" signify Divine Providence and I trust, while explaining them, I may be so assisted by God's Spirit that I may say many things to you concerning God's Government which may lift up any who are despondent and lift up the souls of many who are distressed.

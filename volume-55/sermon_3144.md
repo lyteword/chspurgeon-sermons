@@ -1,12 +1,5 @@
 # Sermon 3144 | "The True Sayings of God"
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 13, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, FEBRUARY 23, 1873
-
 "These are the true sayings ofGod." Revelation 19:9.
 
 BEFORE I use our text in a larger sense, it is due to our reverence for the Word of God to expound this short sentence in its immediate connection, for the angel here declared that certain things which had been spoken in John's hearing were "the true sayings of God." You will observe that he bade the Apostle "write" what he had heard. It was so weighty that John was not to trust it simply to his memory. It was so necessary that it should be remembered that he had to record it so that it might be handed down to future generations. "Write," said the angel, and then, as if to give John reasons for writing--reasons why these Truths of God should be permanently recorded--he added, "These are the true sayings of God."

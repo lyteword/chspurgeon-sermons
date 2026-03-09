@@ -1,12 +1,5 @@
 # Sermon 2947 | Royal Emblems for Loyal Subjects
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 3, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, IN THE YEAR 1863.
-
 "And He shall be like the light of the morning when the sun rises, even a morning without clouds; like the tender grass springing out of the earth, by clear shining after rain." 2 Samuel 23:4.
 
 EASTERN despots fleece their subjects to an enormous extent. Even at the present day one would hardly wish to be subjected to the demands of an Oriental governments. But in David's time, a bad king was a continual pestilence, plague, and famine--a bane to the lives of his subjects who were under his rule--and plunder of their fields, which he perpetually swept clean to enrich himself with the produce thereof. Hence, a good king was a rara avis in those days and could never be too highly prized. As soon as he mounted the throne, his subjects began to feel the beneficent influence of his sway. He was to them "as when the sun rises." The confusion which had existed under weak governors gave place to settled order, while the rapidity which had continually emptied the coffers of the rich, and filched the earnings of the poor, gave place to a regular system of assessment and men knew how to go about their business with some degree of certainty. It was to them "a morning without clouds." Forthwith, trade began to flourish, persons who had emigrated to avoid the exactions of the tyrant came back, fields which had fallen out of tillage because they would not pay the farmer to cultivate them began to be sown and the new ruler was to the land as "clear shining after rain," which makes the tender grass spring up out of the earth!

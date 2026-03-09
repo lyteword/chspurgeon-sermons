@@ -1,12 +1,5 @@
 # Sermon 3263 | Intelligent Obedience
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 17, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Keep and seek for all the commandments of the LORD your God." 1 Chronicles 28:8.
 
 Is the Lord your God? I must put this question very pointedly to you at the onset, otherwise I shall not be speaking to you in expounding the words of my text. Were I to address the ungodly and the unconverted, and say to them, "Keep God's commandments," they would, perhaps, misunderstand such an exhortation and consider that I intend to set before them as the way of life a strict observance of the commandments. It is no such thing. "By the deeds of the Law there shall no flesh be justified." So far as the sinner is concerned, by the Law comes the knowledge of sin! The Law can do nothing more for him than convince him that he needs a Savior and drive him out of himself to find in Christ what he cannot find in himself.

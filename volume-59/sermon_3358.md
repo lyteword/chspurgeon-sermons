@@ -1,12 +1,5 @@
 # Sermon 3358 | "Grace and Glory"
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 12, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, FEBRUARY 6, 1868.
-
 "The Lord will give Grace and Glory." Psalm 84:11.
 
 IT is very wise to look within ourselves to discover our own weakness and spiritual poverty, but it is very unwise to be always dwelling upon that weakness and poverty--and to forget that our strength does not lie there, nor are our riches to be found within ourselves! Let us look within to be humbled, but not to be made unbelieving. Look within, so as to be driven from all confidence in ourselves, but never so as to shake our absolute confidence in God. Our text, as it were, beckons us away from seeking the living among the dead, calling us up from searching for precious jewels amid dross and refuse, but directs us to the living God Himself--the overflowing Fountain of every good thing, our Father whose arm is not shortened that it cannot save, and whose ear is not heavy that He cannot hear us tonight! He--He-- Jehovah, Himself, the Infinite, Eternal, Everlasting, Inimitable I AM--He will give Grace and Glory, so that though you may think you have no Grace, He will give it to you, and though you may fear that you shall never obtain Glory, yet He can and will bestow it upon you! He will give Grace and Glory. The very first word of the text, I say, is a taking us away from leaning upon the broken reeds of our own self-reliance and a calling us away to the Rock of our salvation, where we may rest with security!

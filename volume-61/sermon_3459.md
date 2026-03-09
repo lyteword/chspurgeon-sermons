@@ -1,12 +1,5 @@
 # Sermon 3459 | More and More
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 20, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "But He gives more Grace." James 4:6.
 
 PRACTICAL as the Epistle of James is, this Apostle does not neglect to extol the Grace of God. He would be very unpractical if he did. There are some professors of religion who talk as if they loved the doctrines and loathed the duties. They cling to the faith, while they shrink from the works! They accept the principles that are announced, but refuse the precepts that are enjoined. Herein they err. Yet we would be equally at fault and, perhaps, commit a graver error, were we to be biased in the opposite direction! Did we constantly expound and enforce the great things to be done by us without reference to the greater things that have been done for us. Did we commend the fruits regardless of the root from where they spring. Did we applaud the deeds of men without lauding the Grace of God, we would, I say, commit a graver error! Happily we have been taught both the saintship and the service, the Covenant engagements, as well as the creature obligations, the Divine enabling and the divers abilities of Believers that are set in motion, so that we discern without difficulty how the principle of Grace combines and co-operates with the practice of goodness. In our conflict with the natural spirit of enmity, Grace takes the form of, "more Grace," and it is bestowed upon us that we may be able to overcome and prove victorious.

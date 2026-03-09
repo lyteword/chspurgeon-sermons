@@ -1,12 +1,5 @@
 # Sermon 3044 | Spiritual Transformations
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 13, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON A THURSDAY EVENING IN THE YEAR 1865.
-
 "Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree: and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off" Isaiah 4:13.
 
 For many centuries the Holy Land has been covered with thorns and briers. Travelers tell us it is so exceedingly barren that except upon the dreary desert of Sahara, you cannot find a more absolute sterility than in many parts of Judea and Israel. But the land will not remain forever thus unproductive. Even now, in spots where it can be cultivated, it flows with milk and honey, and the day is coming when the chosen people shall return to their own land which God has given to them and to their fathers by a Covenant of Salt--and when again they shall begin to irrigate the hills and to plant the valleys, to cultivate the vineyards and to scatter the seed broadcast into the well-plowed furrows! The Holy Land will again blossom--"Instead of the thorn shall come up the fir tree, and instead of the brier shall come up the myrtle tree." When this is done, the whole world will ring with the fame thereof. They will say, "Is this the Zion whom no man sought after? Is this the land which was called desolate? Is this the city whose name was FORSAKEN?" Then shall Mount Zion again be "beautiful for situation, the joy of the whole earth." And then shall the whole land flow with fertility--"and it shall be to the Lord for a name, for an everlasting sign that shall not be cut off."

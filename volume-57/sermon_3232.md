@@ -1,12 +1,5 @@
 # Sermon 3232 | Facts and Inferences
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 12, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 13, 1863.
-
 "I have seen the wicked in great power, and spreading himself like a green bay tree, Yet he passed away, and, lo, he was not: yes, I sought him, but he could not be found. Mark the perfect man, and behold the upright for the end of that man is peace." Psalm 37:35-37.
 
 WE must never judge by appearances, for many things that we see with our eyes and hear with our ears are not really what they appear to us to be. Our senses, like everything else within us, are imperfect, so that it is safer to walk by faith than by sight. Especially is this the case with regard to God's Providential dealings with men. If we were to conclude, for instance, that all those who prosper in this world are peculiarly favored of God, we would make a very great mistake. And if, on the other hand, like Job's friends, we should imagine that all persons who are grievously afflicted and tried are suffering because they have grossly sinned, we would equally err. It is true that there sometime are manifest judgments upon individuals, communities and nation, but every trial or affliction is not a judgment--nor would it be right for us to regard it so. Yet the man who walks through the world with his eyes opened and his understanding enlightened, must notice certain facts about which there can be no question--facts which are so important and so instructive that he will want other people to also notice them and to learn the lessons they are intended to teach.

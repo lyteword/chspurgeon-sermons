@@ -1,12 +1,5 @@
 # Sermon 3409 | Seeking Richly Rewarded
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 4, 1914.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, APRIL 8, 1869.
-
 "The young lions do lack and suffer hunger, but they who seek the Lord shall not want any good thing." Psalm 34:10.
 
 THE young lions are very strong. They are as yet in the freshness of their youth and yet their strength does not always suffice to keep them supplied. The young lions are very crafty--they understand how to waylay their game and leap upon them with a sudden spring at unawares, and yet, with all their craftiness, they howl for hunger in the woods. The young lions are very bold and furious, very unscrupulous. They are not stayed from any deed of depredation and yet for all that, freebooters as they are, they sometimes lack and suffer hunger. These are just the type of many men in the world--they are strong men, they are cunning men, they are thoroughly up to the times--smart, sharp men. If anybody could be well supplied, one would think they should be. But how many of them go to bankruptcy and ruin and, with all their cunning, they are too cunning! And with all their unscrupulousness, they manage, at last, full often, to come to an ill end. They do lack and suffer hunger. But here are the people of God--they are regarded as simpletons, such simpletons as to seek the Lord instead of adopting the maxims of universal worldly wisdom, namely, "Seek yourself!" They have given up what is called the first law of human nature--namely, self-seeking, self-pleasing, self-serving--and have come to seek the Lord, to seek to magnify Him. And what comes of their simplicity? "They shall not want any good thing." Notwithstanding their lack of power, their want of cunning and the check which conscience often puts upon them, so that they cannot do what others can to enrich themselves--yet for all that, they have a fortune ensured to them! They "shall not want any good thing."

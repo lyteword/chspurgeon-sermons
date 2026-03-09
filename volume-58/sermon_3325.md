@@ -1,12 +1,5 @@
 # Sermon 3325 | Solace for Sad Hearts
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 24, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "To console them that mourn in Zion." Isaiah 61:3.
 
 IT is no small advantage to know beyond mistake of whom this is declared. Our gracious Master has appropriated this as His very own and we can be under no possible delusion now when we see in this Servant of the Lord, the Son of God, Himself. When in the synagogue at Nazareth on the Sabbath, He read before the astonished congregation this marvelous passage from the Scripture roll and then handed it back to the leader of the synagogue. He began to interpret it by saying, "This day is this Scripture fulfilled in your ears." It is no surprise for us to find that His hearers fastened their eyes upon Him in admiring wonder because of "the gracious words that proceeded out of His mouth."

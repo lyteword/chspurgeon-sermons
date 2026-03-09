@@ -1,12 +1,5 @@
 # Sermon 3471 | The Three Hours' Darkness
 
-
-A SERMON PUBLISHED ON THURSDAY, AUGUST 12, 1915.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON. ON THURSDAY EVENING, SEPTEMBER 27, 1866.
-
 "Now from the sixth hour there was darkness over all the land until the ninth hour." Matthew 27:45.
 
 THIS darkness was not occasioned by any of the natural causes which generally produce darkness. It was in the middle of the day, precisely at noon, that the darkness came. It could not have been caused by an eclipse, for, it being the time of the Passover, we know that the moon was just then at its fullest--at which period no such thing as an eclipse of the sun could possibly occur. It could not, then, have been produced from that cause. And from the way in which Luke describes it, it does not seem to have been occasioned by the sun being eclipsed by any other body, for if you look to his narrative you will find he seems to say that the darkness came first, and that afterwards the sun became dark. Whether this was through some dense vapor coming over the face of the earth, an intensification of some of these fogs to which we are so accustomed, or whether it was through a miraculous action upon the atmosphere, so that while the sun shone its light was no longer able to reach the eye, we cannot tell, but in some way or other darkness prevailed over all the land from twelve o'clock till three in the afternoon. We suppose that this darkness came on suddenly and, if so, it must have been most striking. Just in the midst of their ribald mirth, while they were staring at the naked body of their Victim and insulting Him with their jests and jeers, wagging their heads, and thrusting out their tongues--just at that very moment total darkness came on! We suppose it to have been total, or, at any rate, such a gloom as to be a "darkness" which "was over all the land." We suppose, too, that just as suddenly this darkness was withdrawn. As soon as the Savior expired, just at the moment when He gave His last triumphant shout, "It is finished," the sun gleamed forth again and the earth laughed once more in the sunlight--for the great trial of Christ, the great struggle for man's salvation--was then all over! Such a phenomenon must have been most striking. The sudden darkening and the sudden lighting up of the world must have been a thing to be remembered and to be talked of by all who saw it!

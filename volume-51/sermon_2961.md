@@ -1,12 +1,5 @@
 # Sermon 2961 | "Heirs of God"
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 9, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 22, 1875.
-
 "And if children, then heirs; heirs of God and joint-heirs with Christ." Romans 8:17.
 
 THIS chapter--the 8th of Romans--is, like the Garden of Eden, full of all manner of delights. Here you have all necessary doctrines to feed upon and luxurious Truths of God with which to satisfy your soul. One might well have been willing to be shut up as a prisoner in paradise and one might well be content to be shut up to this one chapter and never to be allowed to preach from any other part of God's Word. If this were the case, one might find a sermon in every line-- no, more than that, whole volumes might be found in a single sentence by anyone who was truly taught of God! I might say of this chapter, "All its paths drop fatness." It is, among the other chapters of the Bible, like Benjamin's meal which was five times as much as that of any of his brothers! We must not exalt one part of God's Word above another, yet, as "one star differs from another star in glory," this one seems to be a star of the first magnitude, full of the brightness of the Grace and Truth of God! It is an altogether inexhaustible mine of spiritual wealth and I invite the saints of God to dig in it and to dig in it again and again. They will find not only that it has dust of gold, but also huge nuggets which they shall not be able to carry away by reason of the weight of the treasure!

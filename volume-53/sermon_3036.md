@@ -1,12 +1,5 @@
 # Sermon 3036 | Proving God
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 18, 1907.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT NEW PARK STREET CHAPEL, SOUTHWARK, ON LORD'S-DAY MORNING, OCTOBER 19, 1856.
-
 "Prove Me now." Malachi 3:10.
 
 IT was my pleasure and my privilege, some time ago, to address you from the whole of this verse--"Bring you all the tithes into the storehouse, that there may be meat in your house, and prove Me now herewith, says the Lord of Hosts, if I will not open you the windows of Heaven, and pour you out a blessing, that there shall not be room enough to receive it."

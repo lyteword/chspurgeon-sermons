@@ -1,12 +1,5 @@
 # Sermon 3546 | Assurance Sought
 
-
-A SERMON PUBLISHED ON THURSDAY, JANUARY 11, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Say unto my soul, I am your salvation." Psalm 35:3.
 
 DAVID knew where to run to for shelter in his hour of difficulty. Many were there that opposed him. He had been much slandered. His course was rough. So, after spreading his case before the Lord, as Hezekiah did Rabshakeh's blasphemous letter, he turns to the Most High and he cries to Him for succor with one request, as if this would suffice to relieve him from all his troubles--"Say unto my soul, I am your salvation." He thus invokes God to give him a word from His own mouth, to take the buckler and the sword in his defense, and to be his Champion. "Oh, my God, speak to my soul some assuring word and it shall be enough for me!" It is a sign of adoption, a mark of the residence of the Spirit of God within us, if in our times of trouble we fly to our God! Soul, can you find any difficulty in doing so? Is this not one of your spiritual instincts? Then, be afraid lest you are an alien, and no true-born child, for the true-born child seeks its Father's face, cries out for its Father's notice and creeps into its Father's bosom!

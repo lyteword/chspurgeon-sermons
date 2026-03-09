@@ -1,12 +1,5 @@
 # Sermon 3410 | Christ and His Hearers
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 11, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then drew near unto Him all the publicans and sinners to hear Him, and the Pharisees and Scribes murmured, saying, This Man receives sinners and eats with them." Luke 15:1,2.
 
 SELF-RIGHTEOUSNESS always seeks to blame others and to whitewash itself. The group that stood nearest to Christ in preaching was composed of two classes of persons--the publicans, or tax-gatherers and the open sinners. Now the Pharisee, when he came to speak of these two classes, called them by one name, lumping them all under one description and calling them all sinners. Now, although the publicans, or tax-gatherers, were very generally taken from the lowest class of Jews, and their calling of tax-gathering, never in itself, too popular, was in their particular case very objectionable, yet we have no reason to believe that all tax-gatherers were necessarily profane, or licentious, or dishonest. There were bad and good among those Jewish tax-gatherers, as well as among all other classes of mankind! Yet, because they were looked upon as being of the lowest class, the Pharisee spoke of them as if they were all "sinners." This is a common habit, I am afraid, with the Too-Goods--with those who have never felt their own sinfulness, to always use the worst names they can and to put as bad a color as they can upon the characters of other men. I wish we had learned to do the very reverse, namely, to try to see all the good we can in our fellow creatures, which were far more like Christ, rather than to condemn them wholesale, and impute the faults of some to a whole class. The Holy Spirit here speaks of "publicans andsinners"--the evil spirit in the Pharisee calls them all sinners. Let us imitate the Spirit of God and not the spirit ofpride.

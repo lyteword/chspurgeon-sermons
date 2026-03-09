@@ -1,12 +1,5 @@
 # Sermon 3272 | How to Become Full of Joy
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, SEPTEMBER 17, 1865.
-
 "And these things write we unto you that your joy may be full." 1 John 1:4.
 
 IT is a wonderful proof of our Savior 's deep attachment to His people that having made their salvation sure, He is also anxious concerning their present state of mind. He wishes that His people should be not only safe, but happy--that they should not be merely saved, but that they should rejoice in His salvation! It does not delight your Master for you to bow your heads as does the bulrush, or for you to go mourning all your days. He would have you rejoice, for again and again by His Apostles does He exhort you to rejoice in Him. We will go at once to our text. Let our first point be--

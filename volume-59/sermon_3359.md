@@ -1,12 +1,5 @@
 # Sermon 3359 | Penitence, Pardon and Peace
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 19, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And, behold, a woman in the city, who was a sinner, when she knew that Jesus sat at the table in the Pharisee's house, brought an alabaster box of ointment, and stood at His feet behind Him weeping, and she began to wash His feet with her tears, and wiped them with the hair ofher head, and kissed His feet and she anointed them with the ointment" Luke 7:37-38.
 
 THIS is a marvelously vivid Gospel incident. Every detail is plainly and forcefully set forth, so that we can picture the scene, making it live before us, without much mental effort. And yet, in some respects, there is a great reticence, a Divine delicacy, gloriously characteristic of so tender a book as the New Testament. The Evangelist--"the beloved physician," Luke--does not lay bare the minute particulars of this woman's life's sins, but delights to dwell rather upon the story of her penitence and its fair fruits, and so makes her to shine resplendently as a wonder of redeeming Grace! The symptoms of her soul's horrible malady he reveals in a single phrase--and that of general description--but upon the details of her gracious cure he delights to dwell.

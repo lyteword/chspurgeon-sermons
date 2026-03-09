@@ -1,12 +1,5 @@
 # Sermon 2956 | A Handkerchief
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 5, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 13, 1875.
-
 "Jesus said to her, Woman, why are you weeping? Whom are you seeking?" John 20:15.
 
 IN the Garden of Eden, immediately after the Fall, the sentence of sorrow and of sorrow multiplied, fell upon the woman. In the garden where Christ had been buried, after His Resurrection, the news of comfort--comfort rich and Divine--came to a woman through the woman's promised Seed, the Lord Jesus Christ. If the sentence must fall heavily upon the woman, so must the comfort come most sweetly to her. I will not say that the Resurrection reversed the curse of the Fall, but, at any rate, it took the sting out of it, lifted it up and sanctified it! There was reason enough for the woman to weep after the sentence had been pronounced upon her, but there is no reason for her to weep now that Jesus Christ has fulfilled the promise which followed upon man's disobedience, namely, that the Seed of the woman should bruise the serpent's head.

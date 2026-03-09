@@ -1,12 +1,5 @@
 # Sermon 3371 | Two Choice Benedictions
 
-
-A SERMON PUBLISHED ON THURSDAY, SEPTEMBER 11, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, DECEMBER 26, 1867.
-
 "Speak unto Aaron and unto his sons, saying, on this wise you shall bless the children of Israel, saying unto them, The Lord bless you, and keep you: the Lord make His face shine upon you, and be gracious unto you; the Lord lift up His countenance upon you, and give you peace. And they shall put My name upon the children of Israel; and I will bless them." Numbers 6:23-27.
 
 "The Grace of the Lord Jesus Christ, and the love of God, and the communion of the Holy Spirit be with you all. Amen."

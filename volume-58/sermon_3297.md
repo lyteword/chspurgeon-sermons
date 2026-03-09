@@ -1,12 +1,5 @@
 # Sermon 3297 | David and His Volunteers
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 11, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "And of the Gadites there separated themselves unto David into the hold to the wilderness men of might, and men ofwar fit for the battle, that could handle shield and buckler, whose faces were like the faces of lions, and were as swift as the roes upon the mountains; Ezer the first, Obadiah the second, Eliab the third, Mishmannah the fourth, Jeremiah the fifth, Attai the sixth, Eliel the seventh, Johanan the eighth, Elzabad the ninth, Jeremiah the tenth, Machbanai the eleventh. These were of the sons of God, captains of the host: one of the least was over an hundred, and the greatest over a thousand. These are they that went over Jordan in the first month when it had overflowed all his banks; and they put to flight all them of the valleys, both toward the east, and toward the west" 1 Chronicles 12:8-15.
 
 DAVID, compelled to flee from his own country, and to hide himself from the malice of Saul, was eminently a type of our Lord Jesus Christ who, in the days when He dwelt here among men, was despised and rejected of men. And at this moment it is well known to the true Church of God and it becomes palpably evident to every earnest Believer in the Gospel that Jesus, the Son of David, is not received, acknowledged, or tolerated in this present evil world. He has gone forth outside the camp. All who would repair to Him must go forth likewise, bearing His reproach. These eleven Gadites--all of them remarkable men--espoused the cause of David when he was in his very worst condition--they left the ease and comfort, the honors and elements of their own homes to associate themselves with him when he was regarded as an outlaw under the ban of society. And to this day, every Christian who is faithful to his profession must separate himself from his fellow men to be a follower of the despised Jesus. In that way and with that faith which men still count heresy, must he join himself with that to which is everywhere spoken against, running the gauntlet of the age if he would espouse the cause of the Lord's Anointed!

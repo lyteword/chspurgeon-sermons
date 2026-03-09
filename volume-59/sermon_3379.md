@@ -1,12 +1,5 @@
 # Sermon 3379 | Rough, But Friendly
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 6, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Then Joseph commanded to fill their sacks with corn, and to restore every man's money into his sack, and to give them provisions for the way: and thus did he unto them." Genesis 42:25.
 
 AN immense number of persons came down into Egypt from all parts of the world to buy corn. Many of these Joseph never saw. Many others came into his presence. I do not find that of all who came, he treated any of them roughly, except his own brothers. "Strange!" you will say, and if you did not know the sequel of the story, it would not only seem strange, but cruel. You would not know how to account for such a thing.

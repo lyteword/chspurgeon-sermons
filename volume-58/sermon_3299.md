@@ -1,12 +1,5 @@
 # Sermon 3299 | Ho! Ho!
 
-
-A SERMON PUBLISHED ON THURSDAY, APRIL 25, 1912.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Ho, everyone who thirsts, come to the waters." Isaiah 55:1.
 
 THERE is a thirst which is peculiar to the Believer. He can say with David, "As the hart pants after the water brooks, so pants my soul after You, O God." Delightful thirst! Would God we had more of it! May we be longing and panting after our God in that sense until we shall be filled with His Spirit and shall dwell in His Presence to go no more out forever!

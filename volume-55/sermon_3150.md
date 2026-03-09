@@ -1,12 +1,5 @@
 # Sermon 3150 | "Never, No Never, No Never"
 
-
-A SERMON PUBLISHED ON THURSDAY, JUNE 24, 1909.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, MARCH 16, 1873.
-
 "Let your conversation be without covetousness: and be content with such things as you have. For He has said, I will never leave you, nor forsake you. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me." Hebrews 13:5, 6.
 
 [Other Sermons by Mr. Spurgeon upon the whole or parts of these two verses, are as follows--Sermons #477, Volume 8--NEVER! NEVER! NEVER! NEVER! NEVER!; #1449, Volume 24--A VILE WEED AND A FAIR FLOWER and #1880, Volume 32--A LESSON AND A FORTUNE FOR CHRISTIAN MEN OF BUSINESS--.]

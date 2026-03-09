@@ -1,12 +1,5 @@
 # Sermon 3549 | Little, But Lovely
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 1, 1917.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Fear not, little flock, for it is your Father's good pleasure to give you the kingdom." Luke 12:32.
 
 How kind and tender Jesus was towards His disciples! When He spoke sternly, it was to the outside multitude. Many a time was His spirit moved to rebuke them sharply. Very familiarly, however, did He unbend Himself in the presence of the few attached followers who were gathered round Him and drew near to Him--His chosen, His beloved. To them He unveiled His heart. To them He disclosed the things which He had received of the Father. From then, He kept back nothing that pertained to their welfare. "If it were not so, I would have told you," was once, at least, His confidential expression. He thus abode with them as a Friend, as an elder Brother, as a loving Father. It is really pleasant to observe how much He thought of them--how deeply He sympathized with them--how far He was from despising them. The great ones of the earth would have shrugged their shoulders and sneered at the poor helpless band that gathered around the Prophet of Nazareth. Not so the Divine Master. Without for a moment concealing the fact that they were a little flock, He looks upon them fondly and applies to them invitingly the very epithet their enemies would have used resentfully-- "little"--as He says, "Fear not, little flock, it is your Father's good pleasure to give you the kingdom."

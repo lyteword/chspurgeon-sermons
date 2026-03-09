@@ -1,12 +1,5 @@
 # Sermon 2958 | The Saints' Love to God
 
-
-A SERMON PUBLISHED ON THURSDAY, OCTOBER 19, 1905.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JUNE 27, 1875.
-
 "Oh love the LORD, all you His saints." Psalm 31:23.
 
 DO we, if we are called the saints of the Lord, need to be exhorted to love Him? If we do, shame upon us! And we do, I am quite sure, so let us be ashamed and confounded that it should ever be necessary to urge us to love our Lord! Why, after He has done so much for us and manifested such wondrous love to such unworthy ones as we are, we ought to love Him as naturally as sparks of fire ascend towards the sun, or as the waters of the river run towards the sea. It should be our second and higher nature to always love the Lord without the slightest prompting. What the Law of God required, the Gospel should have worked in us, namely, to love the Lord our God with all our heart, with all our mind, with all our soul and with all our strength! But, Brothers and Sisters, we need this exhortation--we feel that we do. Well, then, let us take it home to ourselves and let us hear it as though it had been spoken personally to each one of us who are the Lord's saints--"O love the Lord." Do nothing else just now. Bid every other thought be gone and every other emotion, too. Let your affections be graciously melted and let them all run in this one blessed channel--towards God--"O love the Lord, all you His saints."

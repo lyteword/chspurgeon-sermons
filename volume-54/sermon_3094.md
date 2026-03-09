@@ -1,12 +1,5 @@
 # Sermon 3094 | Heart Piercing
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 28, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, NOVEMBER 12, 1874.
-
 "Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the Apostles, Men and brethren, what shall we do?" Acts 2:37
 
 [Another Sermon by Mr. Spurgeon upon the same text (together with verse 36,) is #2102, Volume 35--"PRICKED IN THEIR HEART]

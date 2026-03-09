@@ -1,12 +1,5 @@
 # Sermon 3385 | The Savior's Thirst
 
-
-A SERMON PUBLISHED ON THURSDAY, DECEMBER 18, 1913.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "After this, Jesus, knowing that all things were now accomplished, that the Scripture might be fulfilled, said, I thirst." John 19:28.
 
 THE early Christians were known to think and talk far more of our Savior than we do. Some of them were, perhaps, not quite so clear upon justification by faith as they ought to have been, but they were very clear about the merits of the precious blood. And if they did not always speak very clearly about the Doctrines of Grace, they spoke with wonderful power and savor about the "five" wounds--about the nail marks and the spear wound. I could wish that our religion would go back somewhat more to that personal apprehension of Christ than it does. By all means let us have dogmatic teaching, setting forth those most precious Truths of God that are our consolation, but better than all is the Person of Christ Himself--the Way, the Truth, and the Life. We should do well if we more often stood in meditation at the foot of the Cross and viewed His wounds, counted the precious drops as they fall and sought fellowship with Him in His sufferings. Some of those early saints wrote long treatises on the solitary wounds of Jesus--many of them passed whole days in contemplation of some minute part of His passion. We cannot imitate them in this respect--we have not the leisure. I am afraid we have not the mental application they possessed. Nevertheless, let us explore the sacred mystery as best we can. At this time would we get away to Calvary and there stand and hear our Redeemer crying, "I thirst," as He bears for us the guilt of sin.

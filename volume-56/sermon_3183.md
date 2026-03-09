@@ -1,12 +1,5 @@
 # Sermon 3183 | Cheer for Despondency
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 3, 1910.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "You know not what a day may bring forth." Proverbs 27:1.
 
 [Another Sermon by Mr. Spurgeon, upon the whole verse is #94, Volume 2--TOMORROW.]

@@ -1,12 +1,5 @@
 # Sermon 3082 | "Here I Am!"
 
-
-A SERMON PUBLISHED ON THURSDAY, MARCH 5, 1908.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, APRIL 19, 1874.
-
 "The LORD called Samuel, and he answered, Here I am!" 1 Samuel 3:4.
 
 SAMUEL was a model child. He was the son of a prayerful mother. Hannah is one of the most notable pietists mentioned in the Scriptures. She possessed a truly original mind, but she was yet more famous for her piety--a woman who knew how to take her griefs to the Mercy Seat and cast them upon her God. So Samuel came of good stock but, "that which is born of the flesh is flesh," and he would have been none the better for his godly parentage unless the Spirit of God had early in life renewed his heart. May our dear children all grow up as Samuel did. And that they may do so, may they in their early life be such children as Samuel was!

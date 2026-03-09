@@ -1,12 +1,5 @@
 # Sermon 2998 | The Rule of Christ
 
-
-A SERMON PUBLISHED ON THURSDAY, JULY 26, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JULY 20, 1875.
-
 "And he shall be as the light of the morning, when the sun rises, even a morning without clouds, as the tender grass springing out of the earth by clear shining after rain." 2 Samuel 23:4.
 
 No doubt, in the first place, David was speaking of the benefits of a wise and just ruler over man. In the East, where rulers are despotic, they can very soon lay on such heavy taxation and make such oppressive laws that the people are grievously impoverished. Sometimes the inhabitants almost cease to cultivate their lands, since they feel that if they do produce crops, they only produce them for a tyrant's table. By such cruel exactions, the trade of a country is often driven away and fruitful lands are turned into a desert. At the present moment there seems to be little or no reason why Palestine, for instance, should not once again become as fruitful as it used to be, were it not that the Turkish rule is so severe and so unjust that the people have no reason for industry and no motive for economy, since they are so ground down by those who are in power. It was largely so in David's day. Nations were so completely subject to the rule of their kings that according to the character of their ruler was the state of the people. It is a happy circumstance for us that, as a nation, we have ended all that, but it was the prevailing state of things in the days of David. So, I suppose, as a description of what he, himself, had been and as expressive of his hope of what Solomon would be, he says, "A good ruler is to a people like the rising of the sun." Their troubles disappear--he conquers for them in foreign wars and he deals out justice to them at home. A good ruler removes, or at least reduces, the sorrows of the people over whom he rules. He is to them as "a morning without clouds." They cannot find fault with his administration, for all his days he does them good and no harm--and he makes even their past sorrow to contribute to their present good. Under his rule they enjoy a season of clear shining after a long rain of sorrow and, by his wise laws, he makes the land so fruitful and the people so prosperous, that he is to them "as the tender grass springing out of the earth by clear shining after rain." No doubt that was a part of what David meant.

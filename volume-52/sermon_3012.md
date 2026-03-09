@@ -1,12 +1,5 @@
 # Sermon 3012 | God Comforting His People
 
-
-A SERMON PUBLISHED ON THURSDAY, NOVEMBER 1, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING, JULY 11, 1867.
-
 "The LORD has comforted His people." Isaiah 49:13.
 
 THE JOY of the Prophet was too great for him to give adequate expression to it with his own solitary tongue and, therefore, he would have even the angels of God and the redeemed from among men in Heaven to praise the Lord for His super-abounding mercy! He would also have the redeemed upon earth and all the works of God's hands take up the joyful strain of praise to the Most High! And he would have even the great mountainous masses of inanimate Nature find tongues with which to express the greatness of God's loving kindness and tender mercy in having comforted His people!

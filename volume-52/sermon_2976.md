@@ -1,12 +1,5 @@
 # Sermon 2976 | Order Is Heaven's First Law
 
-
-A SERMON PUBLISHED ON THURSDAY, FEBRUARY 22, 1906.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON.
-
 "Neither shall one thrust another; they shall walk everyone in his path." Joel 2:8.
 
 THOSE who have been able to observe the marching of an army of locusts have been amazed beyond measure with the marvelous regularity of their advance. Agur, who must surely have seen them, says, "The locusts have no king, yet go they forth all of them by bands." The wonder is that creatures comparatively so insignificant in size, and so low down in the scale of intelligence, should maintain such more than martial order, both in their long flights and in their devouring marches. The ablest commanding officers would be at their wits' end if ordered to marshal a multitude numbering even a thousandth, or perhaps a millionth part of the countless hordes of these destructive marauders and yet, by instinct, the locust soldiery can and do keep rank better than the most veteran regiments of the line, as I can personally testify, from having seen miles of them in one of the Italian valleys. "They shall march everyone on his ways," says the Prophet, "and they shall not break their ranks: neither shall one thrust another; they shall walk everyone in his path."

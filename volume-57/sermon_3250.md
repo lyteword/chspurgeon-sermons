@@ -1,12 +1,5 @@
 # Sermon 3250 | The Growth of Faith
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 18, 1911.
-
-DELIVERED BY C. H. SPURGEON,
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON LORD'S-DAY EVENING, JANUARY 24, 1864.
-
 "We aire bound to thank God always for you, brethren, as it is meet, because that your faith grows exceedingly." 2 Thessalonians 1:3.
 
 [Two other Sermons by Mr. Spurgeon on the same verse are #205, Volume 4--A LECTURE FOR LITTLE-FAITH and #1857, Volume 31-- THE NECESSITY OF GROWING FAITH.]

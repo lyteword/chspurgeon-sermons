@@ -1,12 +1,5 @@
 # Sermon 3407 | Peter's Prayer
 
-
-A SERMON PUBLISHED ON THURSDAY, MAY 21, 1914.
-
-DELIVERED BY C. H. SPURGEON
-
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON THURSDAY EVENING JUNE 10, 1869.
-
 "When Simon Peter saw it, he fell down at Jesus'knees, saying, Depart from me, for I am a sinful man, O Lord." Luke 5:8.
 
 THE disciples had been fishing all night. They had now given up fishing--they had left their boats and were mending their nets. A Stranger appears. They had seen Him, probably, once before, and they remembered enough of Him to command respect. Besides, the tone of voice in which He spoke to them and His manner at once ruled their hearts. He borrowed Simon Peter's boat and preached a sermon to the listening crowds. After He had finished the discourse, as though He would not borrow their vessel without giving them their hire, He bade them launch out into the deep and let down their nets again. They did so and, instead of disappointment, they at once took so vast a haul of fish that the boats could not contain all and the net was not strong enough and began to break. Surprised at this strange miracle-- overawed, probably by the majestic appearance of that matchless One, who had worked it, Simon Peter thought himself quite unworthy to be in such company--and fell on his knees and cried this strange prayer--"Depart from me, for I am a sinful man, O Lord." So I desire that, first of all, we shall hear--
