@@ -1,6 +1,7 @@
+# Sermon 2571 | The Climax of God's Love
 
-
-"And it shall be at that day, says the Lord, that you shall call Me, Ishi; and shall call Me no more, Baali. For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name." Hosea 2:16,17.
+> And it shall be at that day, says the Lord, that you shall call Me, Ishi; and shall call Me no more, Baali. For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name.  
+> Hosea 2:16,17  
 
 You who have been here, on recent Thursday nights, will remember how Israel was described at the time to which our text refers. [ See Sermon #s 2564 and 2569--Strange Ways of Love, and The Backsliders Door of Hope] She was represented as a woman who had been false to her marriage vows, had left her husband and defiled herself in the most abominable way. Being greatly inflamed with evil passions, she had gone astray times out of number--and then the Lord Jehovah, who was Israel's true spiritual Husband--in the abundance of His love, sought to bring her back to Himself. He exercised her with severe discipline, taking away from her many things in which she delighted, till she became poor, sick and wretched. He hedged up her way with thorns and put obstacles in her way so that she could not find her paths. And when she went after her lovers, she could not overtake them. But, notwithstanding all that, she still continued to go further and further away from Him to whom her love was due--the God to whom she owed everything--the only living and true God who had been so gracious and true to her.
 
