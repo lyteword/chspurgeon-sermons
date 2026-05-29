@@ -1,7 +1,7 @@
 # Sermon 11 | The People's Christ
 
-> I have exalted one chosen out of the people.    
-> Psalm 89:19.    
+> I have exalted one chosen out of the people.  
+> Psalm 89:19 
 
 ORIGINALLY, I have no doubt, these words referred to David. He was chosen out of the people. His lineage was respectable, but not illustrious; his family were holy, but not exalted: the names of Jesse, Obed, Boaz, and Ruth, awoke no royal recollections, and stirred up no remembrances of ancient nobility or glorious pedigree. As for himself, his only occupation had been that of a shepherd-boy, carrying lambs in his bosom, or gently leading the ewes great with young&mdash;a simple youth of a right royal soul, and undaunted courage, but yet a plebeian&mdash;one of the people. But this was no disqualification for the crown of Judah. In God's eye the extraction of the young hero was no barrier to his mounting the throne of the holy nation, nor shall the proudest admirer of descent and lineage dare to insinuate a word against the valour, wisdom, and the justice of the government of this monarch of the people.
 

@@ -1,7 +1,7 @@
 # Sermon 33 | A Wise Desire
 
-> He shall choose our inheritance for us.    
-> Psalm 47:4.    
+> He shall choose our inheritance for us.  
+> Psalm 47:4
 
 THE CHRISTIAN IS ALWAYS pleased and delighted when he can see Christ in the Scriptures. If he can but detect the footstep of his lord, and discover that the sacred writers are making some reference to him, however indistinct or dark he will rejoice there at: for all the Scriptures are nothing except as we find Christ in them. St. Austin says, "The Scriptures are the swaddling bands of the man-child&mdash;Christ Jesus, and were all intended to be hallowed garments in which to wrap him "So they are; and it is our pleasant duty to lift the veil, or remove the garment of Jesus and so behold him in his person, in his nature, or his offices. Now, this text is concerning Jesus Christ&mdash;he it is who is to "choose our inheritance for us," he in whom dwelleth all the treasures of wisdom and knowledge is the great Being who is selected as the head of predestination&mdash;to choose our lot and our portion, and fix our destiny. Verily, beloved brethren, you and I can rejoice in this great fact, that our Saviour chooses for us. For were we all to be assembled together in some great plain, as Israel was of old, to elect for ourselves a king, we should not propose a second candidate. There would be one who stands like Saul, the son of Kish, head and shoulders taller than all the rest, whom we should at once select to be our king and ruler of Providence for us. We would not ask for some prudent sage or deeply taught philosopher; we would not choose the most experienced senior; but, without a single moment's hesitation, directly we saw Jesus Christ, in the majesty of his person, we should say, in the words of the Psalmist, He who redeemed us, he who ransomed us, he who loved us&mdash;"He shall choose our inheritance for us."
 

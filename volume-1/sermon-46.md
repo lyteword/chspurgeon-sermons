@@ -1,7 +1,7 @@
 # Sermon 46 | The Glorious Habitation
 
-> Lord thou hast been our dwelling-place in all generations.    
-> Psalm 90:1.    
+> Lord thou hast been our dwelling-place in all generations.  
+> Psalm 90:1
 
 Moses was the inspired author of three devotional compositions. We first of all find him as Moses the poet, singing the song which is aptly joined with that of Jesus, in the Revelation, where it says, "The song of Moses and of the Lamb." He was a poet on the occasion when Pharaoh and his hosts were cast into the Red Sea, "his chosen captains also were drowned in the Red Sea." Further on in his life we discover him in the character of a preacher; and then his doctrine distilled as the dew, and his speech dropped like the rain, in those chapters which are full of glorious imagery, and rich with poetry, which you will find in the book of Deuteronomy. And now in the Psalms, we find him the author of a prayer: "A prayer of Moses, the man of God." Happy combination of the poet, the preacher, and the man of prayer! Where three such things are found together, the man becomes a very giant above his fellows. It often happens that the man who preaches has but little poetry; and the man who is the poet would not be able to preach and utter his poems before immense assemblies, but would be only fit to write them by himself. It is a rare combination when true devotion and the spirit of poetry and eloquence meet in the same man. You will see in this Psalm a wondrous depth of spirituality; you will mark how the poet subsides into the man of God; and how, lost in himself, he sings his own frailty, declared the glory of God, and asks that he may have the blessing of his heavenly Father always resting on his head.
 

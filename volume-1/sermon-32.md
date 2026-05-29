@@ -1,7 +1,7 @@
 # Sermon 32 | The Necessity of Increased Faith
 
-> And the apostle said unto the Lord, increase our faith.    
-> Luke 17:5.    
+> And the apostle said unto the Lord, increase our faith.  
+> Luke 17:5
 
 VERILY IF THE APOSTLE said this, one and all of us had need take up the prayer. If the twelve mightiest in the army of the Lord of hosts had need of such a supplication, what shall we say who are but the interior soldiers&mdash;the feeblest saints? If ye hope to win the day, does it not well become us to pray, "Increase our faith?"
 

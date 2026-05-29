@@ -1,7 +1,7 @@
 # Sermon 18 | The Tomb of Jesus
 
-> Come, see the place where the Lord lay.    
-> Matthew 28:6.    
+> Come, see the place where the Lord lay.  
+> Matthew 28:6
 
 Every circumstance connected with the life of Christ is deeply interesting to the Christian mind. Wherever we behold our Saviour, he is well worthy of our notice.
 

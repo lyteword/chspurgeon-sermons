@@ -1,7 +1,7 @@
 # Sermon 47 | Christ's Prayer for His People
 
-> I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.    
-> John 17:15.    
+> I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.  
+> John 17:15
 
 THIS PRAYER of Christ is an ever precious portion to all true believers, from the fact that each of them has an inalienable interest in it. Every one of us, beloved, when we listen to the words of Christ should recollect that he is praying for us; that while it is for the great body of his elect he intercedes in this chapter and the one preceding it, yet it is also for each believer in particular that he offers intercession. However weak we are, however poor; however little our faith, or however small our grace may be, our names are still written on his heart; nor shall we lose our share in Jesus' love.
 

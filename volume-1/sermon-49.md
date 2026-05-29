@@ -1,7 +1,7 @@
 # Sermon 49 | The God of Peace
 
-> Now the God of peace be with you all. Amen,    
-> Romans 15:33.    
+> Now the God of peace be with you all. Amen,  
+> Romans 15:33
 
 PAUL ONCE ADVISED the Romans to strive. Three verses before our text he actually gives them an exhortation to strive, and yet he here utters a prayer that the God of peace might be with them all. Lest you should think him to be a man of strife, you must read the verse. He says: "Now I beseech you, brethren, for the Lord Jesus Christ's sake, and for the love of the spirit, that ye strive together with me in your prayers to God for me." That is a holy strife, and such a strife as that we wish always to see in the church, a strife in prayer, a surrounding the throne together, besieging God's mercy seat, a crying out before God, until it actually amounts to a striving together in our prayers. There is also another kind of striving which is allowed in the church, and that is striving earnestly after the best gifts: a sweet contention which of us shall excel all others in love, in duty, and in faith. May God send us more strife of that kind in our churches, a strife in prayer, a strife in duty; and when we have mentioned these strifes we find them of so peaceable a kind that we come back to the benediction of our text: "Now the God of peace be with you all. Amen." Without any preface, we shall consider, first, the title&mdash;"the God of peace;" and secondly, the benediction&mdash;"the God of peace be with you all. Amen."
 

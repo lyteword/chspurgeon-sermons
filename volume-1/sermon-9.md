@@ -1,7 +1,7 @@
 # Sermon 9 | Spiritual Liberty
 
-> Where the Spirit of the Lord is, there is liberty.    
-> 2 Corinthians 3:17.    
+> Where the Spirit of the Lord is, there is liberty.  
+> 2 Corinthians 3:17
 
 LIBERTY is the birthright of every man. He may be born a pauper; he may be a foundling; his parentage may be altogether unknown; but liberty is his inalienable birthright. Black may be his skin; he may live uneducated and untaught; he may be poor as poverty itself; he may never have a foot of land to call his own; he may scarce have a particle of clothing, save a few rags to cover him; but, poor as he is, nature has fashioned him for freedom&mdash;he has a right to be free, and if he has not liberty, it is his birthright, and he ought not to be content until he wins it.
 

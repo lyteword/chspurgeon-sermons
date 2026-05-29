@@ -1,7 +1,7 @@
 # Sermon 37 | Law and Grace
 
-> Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound.    
-> Romans 5:20.    
+> Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound.  
+> Romans 5:20
 
 There is no point upon which men make greater mistakes than upon the relation which exists between the law and the gospel. Some men put the law instead of the gospel: others put the gospel instead of the law; some modify the law and the gospel, and preach neither law nor gospel: and others entirely abrogate the law, by bringing in the gospel. Many there are who think that the law is the gospel, and who teach that men by good works of benevolence, honesty, righteousness, and sobriety, may be saved. Such men do err. On the other hand, many teach that the gospel is a law; that it has certain commands in it, by obedience to which, men are meritoriously saved; such men err from the truth, and understand it not. A certain class maintain that the law and the gospel are mixed, and that partly by observance of the law, and partly by God's grace, men are saved. These men understand not the truth, and are false teachers. This morning I shall attempt&mdash;God helping me to show you what is the design of the law, and then what is the end of the gospel. The coming of the law is explained in regard to its objects: "Moreover the law entered, that the offence might abound." Then comes the mission of the gospel: "But where sin abounded, grace did much more abound."
 

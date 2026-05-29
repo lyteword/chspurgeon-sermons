@@ -1,7 +1,7 @@
 # Sermon 31 | The Desire of the Soul in Spiritual Darkness
 
-> With my soul have I desired thee in the night.    
-> Isaiah 26:9.    
+> With my soul have I desired thee in the night.  
+> Isaiah 26:9 
 
 NIGHT APPEARS to be a time peculiarly favorable to devotion. Its solemn stillness helps to free the mind from that perpetual din which the cares of the world will bring around it; and the stars looking down from heaven upon us shine as if they would attract us up to God. I know not how you may be affected by the solemnities of midnight, but when I have sat alone musing on the great God and the mighty universe, I have felt that indeed I could worship him; for night seemed to be spread abroad as a very temple for adoration, while the moon walked as high priest, amid the stars, the worshippers, and I myself joined in that silent song which they sang unto God: "Great art thou, O God! great in thy works. When I consider thy heavens, the work of thy fingers, the moon and the stars which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?" I find that this sense of the power of midnight not only acts upon religious men, but there is a certain poet, whose character, perhaps, I could scarcely too much reprobate: a man very far from understanding true religion; one whom I may, I suppose, justly style an infidel a libertine of the worst order, and yet he says concerning night in one of his poems:&mdash;
 

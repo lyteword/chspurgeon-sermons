@@ -1,7 +1,7 @@
 # Sermon 25 | The Hope of Future Bliss
 
-> As for me, I will behold thy face in righteousness; I shall be satisfied, when I awake, with thy likeness.    
-> Psalm 17:15.    
+> As for me, I will behold thy face in righteousness; I shall be satisfied, when I awake, with thy likeness.  
+> Psalm 17:15
 
 IT WOULD be difficult to say to which the gospel owes most, to its friends or to its enemies. It is true, that by the help of God, its friends have done much for it; they have preached it in foreign lands, they have dared death, they have laughed to scorn the terrors of the grave, they have ventured all things for Christ, and so have glorified the doctrine they believed; but the enemies of Christ, unwittingly, have done no little, for when they have persecuted Christ's servants, they have scattered them abroad, so that they have gone everywhere preaching the Word; yea, when they have trampled upon the gospel, like a certain herb we read of in medicine, it hath grown all the faster: and if we refer to the pages of sacred writ how very many precious portions of it do we owe, under God, to the enemies of the cross of Christ! 
 
