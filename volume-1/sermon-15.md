@@ -55,7 +55,7 @@ I have done when I have said one word. My friend, the philosopher, says it may b
 
 I have done. Let us go home and practice what we have heard. I have heard of a woman, who, when she was asked what she remembered of the minister's sermon, said, "I don't recollect anything of it. It was about short weights and bad measures, and I didn't recollect anything but to go home and burn the bushel." So, if you will remember to go home and burn the bushel, if you will recollect to go home and read your Bibles, I shall have said enough. And may God, in his infinite mercy, when you read your Bibles, pour into your souls the illuminating rays of the Sun of Righteousness, by the agency of the ever-adorable Spirit; then you will read to your profit and to your soul's salvation.
 
-We may say of THE BIBLE:
+We may say of the Bible:
 
 > God's cabinet of revealed counsel it is!    
 > Where weal and woe, are ordered so    
