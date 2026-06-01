@@ -1,7 +1,7 @@
 # Sermon 51 | Comfort for the Desponding
 
-> Oh that I were as in months past.    
-> Job 29:2.    
+> Oh that I were as in months past.   
+> Job 29:2
 
 For the most part the gracious Shepherd leads his people beside the still waters, and makes them to lie down in green pastures; but at times they wander through a wilderness, where there is no water, and they find no city to dwell in. Hungry and thirsty, their soul fainteth within them, and they cry unto the Lord in their trouble. Though many of his people live in almost constant joy, and find that religion's ways are ways of pleasantness, and all her paths are peace, yet there are many who pass through fire and through water: men do ride over their heads,&mdash;they endure all manner of trouble and sorrow. The duty of the minister is to preach to different characters. Sometimes we admonish the confident, lest they should become presumptuous; oftentimes we stir up the slumbering, lest they should sleep the sleep of death. Frequently we comfort the desponding, and this is our duty this morning&mdash;or if not to comfort them, yet to give them some exhortation which may by God's help be the means of bringing them out of the sad condition into which they have fallen, so that they may not be obliged to cry out for ever&mdash;"Oh that I were as in months past!"
 
@@ -9,12 +9,14 @@ At once to the subject. A complaint; its cause and cure; and then close up with 
 
 First, there is a complaint. How many a Christian looks on the past with pleasure, on the future with dread, and on the present with sorrow! There are many who look back upon the days that they have passed in the fear of the Lord as being the sweetest and the best they have ever had, but as to the present, it is clad in a sable garb of gloom and dreariness. They could wish for their young days over again, that they might live near to Jesus, for now they feel that they have wandered from him, or that he has hidden his face from them, and they cry out, "Oh that I were as in months past!"
 
-Let us take distinct cases one by one. The first is the case of a man who has lost the brightness of his evidences, and is crying out, "Oh that I were as in months past!" Hear his soliloquy:&mdash;"Oh that my past days could be recalled! Then I had no doubt of my salvation. If any man had asked for the reason of the hope that was in me, I could have answered with meekness and with fear. No doubt distressed me, no fear harassed me; I could say with Paul, I know whom I have believed,' and with Job, I know that my Redeemer liveth;
+Let us take distinct cases one by one. The first is the case of a man who has lost the brightness of his evidences, and is crying out, "Oh that I were as in months past!" Hear his soliloquy:&mdash;"Oh that my past days could be recalled! Then I had no doubt of my salvation. If any man had asked for the reason of the hope that was in me, I could have answered with meekness and with fear. No doubt distressed me, no fear harassed me; I could say with Paul, I know whom I have believed, and with Job, I know that my Redeemer liveth;
 
 > My steady soul did fear no more    
-> Than solid rocks when billows roar.'    
-> I felt myself to be standing on the rock Christ Jesus. I said&mdash;    
-> 'Let cares like a wild deluge come,    
+> Than solid rocks when billows roar.    
+
+I felt myself to be standing on the rock Christ Jesus. I said&mdash;  
+
+> Let cares like a wild deluge come,    
 > And storms of sorrow fall;    
 > Sure I shall safely reach my home,    
 > My God, my heaven, my all    
@@ -51,7 +53,7 @@ so was I. I could have trusted Him with my very life, with wife, with children, 
 
 But now, I foolishly carry them myself, and bear them in my own breast, Ah!
 
-> What peaceful hours I then enjoyed!'    
+> What peaceful hours I then enjoyed!
 > Would that they would return to me.    
 
 Another individual perhaps is speaking thus concerning his enjoyment in the house of God and the means of grace. "Oh," says one, "in months past, when I went up to the house of God, how sweetly did I hear! Why, I sat with my ears open, to catch the words, as if it were an angel speaking; and when I listened, how at times did the tears come rolling down my cheeks! and how did my eyes flash, when some brilliant utterance, full of joy to the Christian, aroused my soul! Oh! how did I awake on the Sabbath morning, and sing,
@@ -61,7 +63,7 @@ Another individual perhaps is speaking thus concerning his enjoyment in the hous
 > Welcome to this reviving breast,    
 > And these rejoicing eyes!    
 
-And when they sang in the house of God, whose voice was so fond as mine. When I retired from worship, it was with a light tread; I went to tell my friends and my neighbors what glorious news I had heard in the sanctuary. Those were sweet Sabbaths; and when the prayer-meetings came round, how was I found in my places and the prayers were prayers indeed to my spirit; whoever I heard preach, provided it was the gospel, how did my soul feed and fatten under it! for I sat at a very banquet of joy. When I read the Scriptures they were always illuminated, and glory did gild the sacred page, whenever I turned it over. When I bent my knee in prayer, I could pour my soul out before God, and I loved the exercise; I felt that I could not be happy unless I spent my time upon my knees; I loved my God, and my God loved me; but oh! how changed now! Oh that I were as in months past!' I go up to God's house; it is the same voice that speaks, the same man I love so much, still addresses me; but I have no tears to shed now; my heart has become hardened even under his ministry; I have few emotions of joy; I enter the house of God as a boy goes to school, without much love to it, and I go away without having my soul stirred. When I kneel down in secret prayer, the wheels are taken off my chariot, and it drags very heavily; when I strive to sing, all I can say is, I would but cannot'; Oh that I were as in months past!' when the candle of the Lord shone round about me!"
+And when they sang in the house of God, whose voice was so fond as mine. When I retired from worship, it was with a light tread; I went to tell my friends and my neighbors what glorious news I had heard in the sanctuary. Those were sweet Sabbaths; and when the prayer-meetings came round, how was I found in my places and the prayers were prayers indeed to my spirit; whoever I heard preach, provided it was the gospel, how did my soul feed and fatten under it! for I sat at a very banquet of joy. When I read the Scriptures they were always illuminated, and glory did gild the sacred page, whenever I turned it over. When I bent my knee in prayer, I could pour my soul out before God, and I loved the exercise; I felt that I could not be happy unless I spent my time upon my knees; I loved my God, and my God loved me; but oh! how changed now! Oh that I were as in months past!' I go up to God's house; it is the same voice that speaks, the same man I love so much, still addresses me; but I have no tears to shed now; my heart has become hardened even under his ministry; I have few emotions of joy; I enter the house of God as a boy goes to school, without much love to it, and I go away without having my soul stirred. When I kneel down in secret prayer, the wheels are taken off my chariot, and it drags very heavily; when I strive to sing, all I can say is, I would but cannot; 'Oh that I were as in months past!' when the candle of the Lord shone round about me!"
 
 I trust there are not many of you who can join in this; for I know ye love to come up to the house of God. I love to preach to a people who feel the word, who give signs of assent to it&mdash;men and women who can afford a tear now and then in a sermon&mdash;people whose blood seems to boil within them when they hear the gospel. I don't think you understand much of the phase I am describing; but still you may understand a little of it. The word may not be quite so sweet and pleasant to you as it used to be; and then you may cry out&mdash;"Oh that I were as in months past!"
 
@@ -111,4 +113,4 @@ God the Holy Spirit can build a new house out of thee, with neither stick nor st
 > But he will receive them, and bless them, and save    
 > From death and destruction, from hell and the grave.    
 
-and he will lift them up to his kingdom of glory. God so grant it; for his name sake.
+And he will lift them up to his kingdom of glory. God so grant it; for his name sake.

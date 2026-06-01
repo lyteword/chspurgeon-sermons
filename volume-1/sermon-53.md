@@ -1,7 +1,7 @@
 # Sermon 53 | Healing for the Wounded
 
 > He healeth the broken in heart, and bindeth up their wounds.    
-> Psalm 147:3.    
+> Psalm 147:3
 
 The next verse finely declares the power of God. "He telleth the number of the stars; he calleth them by their names." Perhaps there is nothing which gives us a nobler view of the greatness of God than a contemplation of the starry heavens. When by night we lift up our eyes and behold him who hath created all these things; when we remember that he bringeth out their host by number, calleth them all by their names, and that by the greatness of his power not one falleth, then indeed we adore a mighty God, and our soul naturally falls prostrate in reverential awe before the throne of him who leads the host of heaven, and marshals the stars in their armies. But the Psalmist has here placed another fact side by side with this wondrous act of God; he declares that the same God who leadeth the stars, who telleth the number of them, and calleth them by their names, healeth the broken in heart and bindeth up their wounds. The next time you rise to some idea of God, by viewing the starry floor of his magnificent temple above, strive to compel your contemplation to this thought, that the same mighty hand which rolls the stars along, puts liniments around the wounded heart; that the same being who spoke worlds into existence, and now impels those ponderous globes through their orbits, does in his mercy cheer the wounded, and heal the broken in heart.
 

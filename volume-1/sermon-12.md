@@ -27,57 +27,39 @@ But let me tell you who have no knowledge of your election in Christ Jesus, no t
 
 Again: there is the sleep of contentment which the Christian enjoys. How few people in this world are satisfied. No man ever need fear offering a reward of a thousand pounds to a contented man; for if any one came to claim the reward, he would of course prove his discontent. We are all in a measure, I suspect, dissatisfied with our lot; the great majority of mankind are always on the wing; they never settle; they never light on any tree to build their nest; but they are always fluttering from one to the other. This tree is not green enough, that is not high enough, this is not beautiful enough, that is not picturesque enough; so they are ever on the wing, and never build a peaceful nest at all. The Christian builds his nest; and as the noble Luther said, "Like yon little bird upon the tree, he hath fed himself tonight&mdash;he knoweth not where his breakfast is tomorrow. He sitteth there while the winds rock the tree; he shuts his eyes, puts his head under his wing, and sleeps; and, when he awakes in the morning sings,
 
-Mortals cease from toil and sorrow;
-
-God provideth for the morrow."
+> Mortals cease from toil and sorrow;  
+> God provideth for the morrow."
 
 How few there are who have that blessed contentment&mdash;who can say, "I want nothing else; I want but little here below&mdash;yea, I long for nothing more&mdash;I am satisfied&mdash;I am content." You sung a beautiful hymn just now; but I suspect that many of you had no right to it, because you did not feel it.
 
-With thy will I leave the rest,
-
-Grant me but this one request;
-
-Both in life and death to prove
-
-Tokens of thy special love.
+> With thy will I leave the rest,  
+> Grant me but this one request;  
+> Both in life and death to prove  
+> Tokens of thy special love.
 
 Could you say there was nothing you wanted on earth, save Jesus? Did you mean that you are perfectly content&mdash;that you had the sleep of contentment? Ah! no. You, who were apprentices, are sighing till you shall be journeymen; you who are journeymen, are groaning to be masters; masters are longing till they shall retire from business, and when they have retired, they are longing that all their children shall be settled in life. Man always looks for a yet-beyond; he is a mariner who never gets to port; an arrow which never reaches the target. Ah! the Christian hath this text and communed with it:&mdash;"So he giveth his beloved sleep." In my reverie, as I was on the border of the land of dreams, methought I was in a castle. Around its massive walls there ran a deep moat. Watchmen paced the walls both day and night. It was a fine old fortress, bidding defiance to the foe; but I was not happy in it. I thought I lay upon a couch; but scarcely had I closed my eyes, ere a trumpet blew, "To arms! To arms!" and when the danger was overpast I lay me down again. "To arms! To arms! once more resounded, and again I started up. Never could I rest. I thought I had my armour on, and moved about perpetually clad in mail, rushing each hour to the castle top, aroused by some fresh alarm. At one time a foe was coming from the west; at another from the east. I thought I had a treasure somewhere down in some dep part of the castle, and all my care was to guard it. I dreaded, I feared, I trembled lest it should be taken from me. I awoke, and I thought I would not live in such a tower as that for all its grandeur. It was the castle of discontent, the castle of ambition, in which man never rests. It is ever "To arms! To arms! To arms!" There is a foe here or a foe there. His dear-loved treasure must be guarded. Sleep never crosses the drawbridge of the castle of discontent. Then I thought I would supplant it by another reverie. I was in a cottage. It was in what poets call a beautiful and pleasant place, but I cared not for that. I had no treasure in the world, save one sparkling jewel on my breast; and I thought I put my hand on that and went to sleep, nor did I wake till morning light. That treasure was a quiet conscience and the love of God&mdash;"the peace that passeth all understanding." I slept, because I slept in the house of content, satisfied with what I had. Go ye, overreaching misers! Go ye, grasping ambitious men! I envy not your life of inquietude. The sleep of statesmen is often broken; the dream of the miser is always evil; the sleep of the man who loves gain is never hearty; but God "giveth," by contentment, "his beloved sleep."
 
 Once more: God giveth his beloved the sleep of quietness of soul as to the future. O that dark future! that future! The present may be well; but ah! the next wind may wither all the flowers, and where shall I be? Clutch thy gold, miser; for "riches make to themselves wings and fly away." Hug that babe to thy breast, mother; for the rough hand of death may rob thee of it. Look at thy fame and wonder at it, O thou man of ambition! But one slight report shall wound thee to the heart, and thou shalt sink as low as e'er thou hast been lifted high by the voices of the multitude. The future! All persons have need to dread the future, except the Christian. God giveth to his beloved sleep with regard to the events of coming time.
 
-What may be the future lot,
-
-High or low concerns me not;
-
-This doth set my heart at rest,
-
-What my God appoints is best.
+> What may be the future lot,  
+> High or low concerns me not;  
+> This doth set my heart at rest,  
+> What my God appoints is best.
 
 Whether I am to live or die is no matter to me; whether I am to be the "offscouring of all things," or "the man whom the king delighteth to honour," matters not to me. All is alike, provided my Father doth but give it. "So he giveth his beloved sleep." How many of you have arrived at that happy point that you have no wish of your own at all? It is a sweet thing to have but one wish; but it is a better thing to have no wish at all&mdash;to be all lost in the present enjoyment of Christ and the future anticipation of the vision of his face. O my soul! what would the future be to thee, if thou hadst not Christ? If it be a bitter and a dark future, what matters it, so long as Christ thy Lord sanctifies it, and the Holy Ghost still gives thee courage, energy, and strength? It is a blessed thing to be able to say with Madame Guyon&mdash;
 
-To me tis equal, whether love ordained,
-
-My life or death, appoint me pain or ease;
-
-My soul perceives no real ill in pain,
-
-In ease or health, no real good she sees.
-
-One good she covets, and that good alone,
-
-To choose thy will, from selfish bias free,
-
-And to prefer a cottage to a throne,
-
-And grief to comfort, if it pleases thee.
-
-That we should bear the cross is thy command&mdash;
-
-Die to the world, and live to sin no more;
-
-Suffer unmoved beneath the rudest hand,
-
-As pleased when shipwrecked, as when safe on shore.
+> To me tis equal, whether love ordained,  
+> My life or death, appoint me pain or ease;  
+> My soul perceives no real ill in pain,  
+> In ease or health, no real good she sees.  
+> One good she covets, and that good alone,  
+> To choose thy will, from selfish bias free,  
+> And to prefer a cottage to a throne,  
+> And grief to comfort, if it pleases thee.  
+> That we should bear the cross is thy command&mdash;  
+> Die to the world, and live to sin no more;  
+> Suffer unmoved beneath the rudest hand,  
+> As pleased when shipwrecked, as when safe on shore.  
 
 It is a happy condition to attain. "So he giveth his beloved sleep." Ah! if you have a self-will in your hearts, pray to God to uproot it. Have you self-love? Beseech the Holy Spirit to turn it out; for if you will always will to do as God wills, you must be happy. I have heard of some good old woman in a cottage, who had nothing but a piece of bread and a little wafer, and lifting up her hands, she said, as a blessing, "What! all this, and Christ too?" It is "all this," compared with what we deserve. And I have read of some one dying, who was asked if he wished to live or die; and he said, "I have no wish at all about it." "But if you might wish, which would you choose?" "I would not choose at all." "But if God bade you choose?" "I would beg God to choose for me, for I should not know which to take." Happy state! happy state! to be perfectly acquiescent&mdash;
 
