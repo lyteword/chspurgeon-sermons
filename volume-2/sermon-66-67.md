@@ -122,7 +122,7 @@ Having thus proved the resurrection of Christ, he goes on:
 > "And if Christ be not risen, then is our preaching vain, and your faith is also vain.    
 > "Yea, and we are found false witnesses of God; because we have testified of God that he raised up Christ: whom he raised not up, if so be that the dead rise not.    
 > "For if the dead rise not, then is not Christ raised:    
-> "And if Christ be not raised, your faith is vain; ye are yet in your sins:",    
+> "And if Christ be not raised, your faith is vain; ye are yet in your sins:"      
 
 Perhaps it does not strike you at first sight that there is an indissoluble connection between the resurrection of Christ and that of all his people; perhaps you do not see the marrow of the argument. The apostle says, "If the dead do not rise, then Christ did not rise; and if Christ did rise, then all the dead will rise." Do you see how it is? Why, because Christ and human nature are now so linked together that what Christ did, he did as the representative of all his people. When Adam sinned, the world sinned, and the world died. "As in Adam all die, so in Christ shall all be made alive." Christ could not rise except as the representative of his people; and "if Christ rose," says Paul, "then his people will rise; and if he did not rise then we shall not rise, because we are one with him; and if we do not rise Christ did not rise, because we are one with him." See here a connection which cannot be broken,&mdash;that if Christ rose, then must the dead rise also. This brings another argument
 
