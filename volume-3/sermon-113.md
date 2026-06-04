@@ -2,15 +2,15 @@
 
 My sermon this morning will have seven texts, and yet I pledge myself that there shall be but three different words in the whole of them; for it so happens that the seven texts are all alike, occurring in seven different portions of God's holy Word. I shall require, however, to use the whole of them to exemplify different cases; and I must request those of you who have brought your Bibles with you to refer to the texts as I shall mention them.
 
-The subject of this morning's discourse will be this&mdash;CONFESSION OF SIN. We know that this is absolutely necessary to salvation. Unless there be a true and hearty confession of our sins to God, we have no promise that we shall find mercy through the blood of the Redeemer. "Whosoever confesseth his sins and forsaketh them shall find mercy." But there is no promise in the Bible to the man who will not confess his sins. Yet, as upon every point of Scripture there is a liability of being deceived, so more especially in the matter of confession of sin. There be many who make a confession, and a confession before God, who notwithstanding, receive no blessing, because their confession has not in it certain marks which are required by God to prove it genuine and sincere, and which demonstrate it to be the work of the Holy Spirit. My text this morning consists of three words, "I have sinned." And you will see how these words, in the lips of different men, indicate very different feelings. While one says, "I have sinned," and receives forgiveness; another we shall meet with says, "I have sinned," and goes his way to blacken himself with worse crimes than before, and dive into greater depths of sin than heretofore he had discovered.
+The subject of this morning's discourse will be this&mdash;confession of sin. We know that this is absolutely necessary to salvation. Unless there be a true and hearty confession of our sins to God, we have no promise that we shall find mercy through the blood of the Redeemer. "Whosoever confesseth his sins and forsaketh them shall find mercy." But there is no promise in the Bible to the man who will not confess his sins. Yet, as upon every point of Scripture there is a liability of being deceived, so more especially in the matter of confession of sin. There be many who make a confession, and a confession before God, who notwithstanding, receive no blessing, because their confession has not in it certain marks which are required by God to prove it genuine and sincere, and which demonstrate it to be the work of the Holy Spirit. My text this morning consists of three words, "I have sinned." And you will see how these words, in the lips of different men, indicate very different feelings. While one says, "I have sinned," and receives forgiveness; another we shall meet with says, "I have sinned," and goes his way to blacken himself with worse crimes than before, and dive into greater depths of sin than heretofore he had discovered.
 
 ## The Hardened Sinner.
 
-> PHARAOH:    
+> Pharaoh:    
 > "I have sinned."    
 > Exodus 9:27.    
 
-The first case I shall bring before you is that of the HARDENED SINNER, who, when under terror, says, "I have sinned." And you will find the text in the book of Exodus, the 9th chap. and 27th verse: "And Pharaoh sent, and called for Moses and Aaron, and said unto them, I have sinned this time: the Lord is righteous, and I and my people are wicked."
+The first case I shall bring before you is that of the hardened sinner, who, when under terror, says, "I have sinned." And you will find the text in the book of Exodus, the 9th chap. and 27th verse: "And Pharaoh sent, and called for Moses and Aaron, and said unto them, I have sinned this time: the Lord is righteous, and I and my people are wicked."
 
 But why this confession from the lips of the haughty tyrant? He was not often wont to humble himself before Jehovah. Why doth the proud one bow himself? You will judge of the value of his confession when you hear the circumstances under which it was made. "And Moses stretched forth his rod toward heaven; and the Lord sent thunder and hail, and the fire ran along upon the ground; and the Lord rained hail upon the land of Egypt. So that there was hail, and fire mingled with the hail, very grievous, such as there was none like it in all the land of Egypt since it became a nation." "Now," says Pharaoh, whilst the thunder is rolling through the sky, while the lightning-flashes are setting the very ground on fire, and while the hail is descending in big lumps of ice, now, says he, "I have sinned." He is but a type and specimen of multitudes of the same class. How many a hardened rebel on shipboard, when the timbers are strained and creaking, when the mast is broken, and the ship is drifting before the gale, when the hungry waves are opening their mouths to swallow the ship up alive and quick as those that go into the pit&mdash;how many a hardened sailor has then bowed his knee, with tears in his eyes, and cried, "I have sinned!" But of what avail and of what value was his confession? The repentance that was born in the storm died in the calm; that repentance of his that was begotten amidst the thunder and the lightning, ceased so soon as all was hushed in quiet, and the man who was a pious mariner when on board ship, became the most wicked and abominable of sailors when he placed his foot on terra firma. How often, too, have we seen this in a storm of thunder and lightning? 
 
@@ -22,7 +22,7 @@ They were about to die, as they thought; they promised good behaviour if they mi
 
 ## The Double-minded Man.
 
-> BALAAM:    
+> Balaam:    
 > "I have sinned."    
 > Numbers 22:34.    
 
@@ -41,7 +41,7 @@ I dare say, like Balaam, they would overthrow everything in argument with their 
 
 ## The Insincere Man.
 
-> SAUL:    
+> Saul:    
 > "I have sinned."    
 > 1 Samuel 15:24.    
 
@@ -55,7 +55,7 @@ I have been brief upon this character; for it seemed to touch upon that of Balaa
 
 ## The Doubtful Penitent.
 
-> ACHAN:    
+> Achan:    
 > "I have sinned."    
 > Joshua 7:20.    
 
@@ -67,17 +67,17 @@ I have, therefore, selected his case, as being one of doubtful repentance. Ah! d
 
 ## The Repentance of Despair.
 
-> JUDAS:    
+> Judas:    
 > "I have sinned."    
 > Matthew 27:4.    
 
-I shall not detain you too long, I trust, but I must now give you another bad case; the worst of all. It is the REPENTANCE OF DESPAIR. Will you turn to the 27th chap. of Matthew, and the 4th verse? There you have a dreadful case of the repentance of despair. You will recognize the character the moment I read the verse: "And Judas said, I have sinned." Yes, Judas the traitor, who had betrayed his Master, when be saw that his Master was condemned, "repented, and brought again the thirty pieces of silver to the chief priests and elders, saying, I have sinned, in that I have betrayed innocent blood, and cast down the pieces in the temple, and went" and what?&mdash;" and hanged himself." Here is the worst kind of repentance of all; in fact, I know not that I am justified in calling it repentance; it must be called remorse of conscience. But Judas did confess his sin, and then went and hanged himself. Oh! that dreadful, that terrible, that hideous confession of despair. Have you never seen it? If you never have, then bless God that you never were called to see such a sight. I have seen it once in my life, I pray God I may never see it again,&mdash;the repentance of the man who sees death staring him in the face, and who says, "I have sinned." You tell him that Christ has died for sinners; and he answers, "There is no hope for me; I have cursed God to his face; I have defied him; my day of grace I know is past; my conscience is seared with a hot iron; I am dying, and I know I shall be lost!" Such a case as that happened long ago, you know, and is on record&mdash;the case of Francis Spira&mdash;the most dreadful ease, perhaps, except that of Judas, which is upon record in the memory of man. Oh! my hearers, will any of you have such a repentance? If you do, it will be a beacon to all persons who sin in future; if you have such a repentance as that, it will be a warning to generations yet to come. 
+I shall not detain you too long, I trust, but I must now give you another bad case; the worst of all. It is the repentance of despair. Will you turn to the 27th chap. of Matthew, and the 4th verse? There you have a dreadful case of the repentance of despair. You will recognize the character the moment I read the verse: "And Judas said, I have sinned." Yes, Judas the traitor, who had betrayed his Master, when be saw that his Master was condemned, "repented, and brought again the thirty pieces of silver to the chief priests and elders, saying, I have sinned, in that I have betrayed innocent blood, and cast down the pieces in the temple, and went" and what?&mdash;" and hanged himself." Here is the worst kind of repentance of all; in fact, I know not that I am justified in calling it repentance; it must be called remorse of conscience. But Judas did confess his sin, and then went and hanged himself. Oh! that dreadful, that terrible, that hideous confession of despair. Have you never seen it? If you never have, then bless God that you never were called to see such a sight. I have seen it once in my life, I pray God I may never see it again,&mdash;the repentance of the man who sees death staring him in the face, and who says, "I have sinned." You tell him that Christ has died for sinners; and he answers, "There is no hope for me; I have cursed God to his face; I have defied him; my day of grace I know is past; my conscience is seared with a hot iron; I am dying, and I know I shall be lost!" Such a case as that happened long ago, you know, and is on record&mdash;the case of Francis Spira&mdash;the most dreadful ease, perhaps, except that of Judas, which is upon record in the memory of man. Oh! my hearers, will any of you have such a repentance? If you do, it will be a beacon to all persons who sin in future; if you have such a repentance as that, it will be a warning to generations yet to come. 
 
 In the life of Benjamin Keach&mdash;and he also was once of my predecessors&mdash;I find the case of a man who had been a professor of religion, but had departed from the profession, and had gone into awful sin. When he came to die, Keach, with many other friends, went to see him, but they could never stay with him above five minutes at a time; for he said, "Get ye gone; it is of no use your coming to me; I have sinned away the Holy Ghost; I am like Esau, I have sold my birthright, and though I seek it carefully with tears, I can never find it again." And then he would repeat dreadful words, like these: My mouth is filled with gravel stones, and I drink wormwood day and night. Tell me not tell me not of Christ! I know he is a Saviour, but I hate him and he hates me. I know I must die; I know I must perish!" And then followed doleful cries, and hideous noises, such as none could bear. They returned again in his placid moments only to stir him up once more, and make him cry out in his despair, "I am lost ! I am lost ! It is of no use your telling me anything about it!" Ah! I there may be a man here who may have such a death as that; let me warn him, ere he come to it ; and may God the Holy Spirit grant that that man may be turned unto God, and made a true penitent, and then he need not have any more fear; for he who has had his sins washed away in a Saviour's blood, need not have any remorse for his sins, for they are pardoned through the Redeemer.
 
 ## The Repentance of the Saint.
 
-> JOB:    
+> Job:    
 > "I have sinned."    
 > Job 7:20    
 
@@ -85,7 +85,7 @@ And now I come into daylight. I have been taking you through dark and dreary con
 
 ## The Blessed Confession.
 
-> THE PRODIGAL:    
+> The Prodigal:    
 > "I have sinned."    
 > Luke 15:18.    
 
