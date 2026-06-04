@@ -10,7 +10,7 @@ And Scripture, most certainly teaches us, that he is God now, that he shares the
 
 That he is mighty we need not inform you; for as readers of the Scriptures you all believe in the might and majesty of the Incarnate Son of God. You believe him to be the Regent of providence, the King of death, the Conqueror of hell, the Lord of angels, the Master of storms, and the God of battles, and, therefore, you can need no proof that he is mighty. The subject of this morning is one part of his mightiness. He is "mighty to save." May God the Holy Spirit help us in briefly entering upon this subject, and make use of it to the salvation of our souls!
 
-First, we shall consider what is meant by the words "to save;" secondly, how we prove the fact that he is "mighty to save;", thirdly, the reason why he is "mighty to save;" and then, fourthly, the inferences which are to be deduced from the doctrine that Jesus Christ is "mighty to save."
+First, we shall consider what is meant by the words "to save;" secondly, how we prove the fact that he is "mighty to save," thirdly, the reason why he is "mighty to save;" and then, fourthly, the inferences which are to be deduced from the doctrine that Jesus Christ is "mighty to save."
 
 First, then, what are we to understand by the words "to save?"
 

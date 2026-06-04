@@ -26,7 +26,7 @@ They were about to die, as they thought; they promised good behaviour if they mi
 > "I have sinned."    
 > Numbers 22:34.    
 
-Now for a second text. I beg to introduce to you another character&mdash;the double-minded man, who says, "I have sinned," and feels that he has, and feels it deeply too, but who is so worldly-minded that he "loves the wages of unrighteousness." The character I have chosen to illustrate this, is that of Balaam. Turn to the book of Numbers, the twenty-second chapter and the thirty-fourth verse: "And Balaam said unto the angel of the Lord, I have sinned."
+Now for a second text. I beg to introduce to you another character&mdash;the double-minded man, who says, "I have sinned," and feels that he has, and feels it deeply too, but who is so worldly minded that he "loves the wages of unrighteousness." The character I have chosen to illustrate this, is that of Balaam. Turn to the book of Numbers, the twenty-second chapter and the thirty-fourth verse: "And Balaam said unto the angel of the Lord, I have sinned."
 
 "I have sinned," said Balaam; but yet he went on with his sin afterwards. One of the strangest characters of the whole world is Balaam. I have often marvelled at that man; he seems really in another sense to have come up to the lines of Ralph Erskine&mdash;
 
