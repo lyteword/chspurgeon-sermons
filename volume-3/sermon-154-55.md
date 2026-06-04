@@ -92,7 +92,7 @@ Let us now sing the second hymn. It is made up of verses selected from different
 > Be thou our guard while troubles last,    
 > And our eternal home.    
 
-Hoping to receive help from God's Holy Spirit, I shall now proceed to address you from a part of the 9th verse of the 6th chapter of Micah:&mdash;
+Hoping to receive help from God's Holy Spirit, I shall now proceed to address you from a part of the ninth verse of the sixth chapter of Micah:&mdash;
 
 ## SERMON.
 
