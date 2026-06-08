@@ -1,7 +1,7 @@
 # Sermon 83 | Indwelling Sin
 
 > Then Job answered the Lord and said, Behold, I am vile.    
-> Job 40:3-4.    
+> Job 40:3-4
 
 Surely, if any man had a right to say, I am not vile, it was Job; for, according to the testimony of God himself, he was "a perfect and an upright man, one that feared God and eschewed evil." Yet we find even this eminent saint, when by his nearness to God he had received light enough to discover his own condition, exclaiming, "Behold I am vile." We are sure that what Job was forced to say, we may each of us assent unto, whether we be God's children or not; and if we be partakers of divine grace, it becomes a subject of great consideration for us, since even we, although we be regenerated, must exclaim, each one for himself, "Behold, I am vile."
 

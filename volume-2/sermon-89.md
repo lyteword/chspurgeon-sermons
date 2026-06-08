@@ -1,7 +1,7 @@
 # Sermon 89 | Hatred Without Cause
 
 > They hated me without a cause.    
-> John 15:25.    
+> John 15:25
 
 It is usually understood, that the quotation our Saviour here refers to is to be found in the thirty-fifth Psalm, at the nineteenth verse, where David says, speaking of himself immediately and of the Saviour prophetically, "Let not them who are mine enemies rejoice over me, neither let them wink with the eye that hate me without a cause." Our Saviour refers to that as being applicable to himself, and thus he really tells us, in effect, that many of the Psalms are Messianic, or refer to the Messiah; and, therefore, Dr. Hawker did not err, when he said he believed the Psalms referred to the Saviour, though he may have carried the truth too far. But it will be a good plan, in reading the Psalms, if we continually look at them as alluding not so much to David, as to the man of whom Dave was the type, Jesus Christ, David's Lord.
 

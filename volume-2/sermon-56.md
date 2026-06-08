@@ -1,7 +1,7 @@
 # Sermon 56 | Heaven
 
 > As it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit; for the Spirit searcheth all things, yea, the deep things of God.    
-> 1 Corinthians 2:9-10.    
+> 1 Corinthians 2:9-10
 
 How very frequently verses of Scripture are misquoted! Instead of turning to the Bible, to see how it is written, and saying, "How readest thou?" we quote from one another; and thus a passage of Scripture is handed down misquoted, by a king of tradition, from father to son, and passes as current among a great number of Christian persons. How very frequently at our prayer meetings do we hear our brethren describing heaven as a place of which we cannot conceive! They say, "Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him;" and there they stop, not seeing that the very marrow of the whole passage lies in this&mdash;"But God hath revealed them unto us by his Spirit." So that the joys of heaven (if this passage alludes to heaven, which, I take it, is not quite so clear as some would suppose), are, after all, not things of which we cannot conceive; for "God hath revealed them unto us by his Spirit."
 

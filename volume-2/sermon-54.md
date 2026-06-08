@@ -1,7 +1,7 @@
 # Sermon 54 | Christ Our Passover
 
 > For even Christ our passover is sacrificed for us.    
-> 1 Corinthians 5:7.    
+> 1 Corinthians 5:7
 
 The more you read the Bible, and the more you meditate upon it, the more you will be astonished with it. He who is but a casual reader of the Bible, does not know the height, the depth, the length and breadth of the mighty meanings contained in its pages. There are certain times when I discover a new vein of thought, and I put my hand to my head and say in astonishment, "Oh, it is wonderful I never saw this before in the Scriptures." You will find the Scriptures enlarge as you enter them; the more you study them the less you will appear to know of them, for they widen out as we approach them. Especially will you find this the case with the typical parts of God's Word. Most of the historical books were intended to be types either of dispensations, or experiences, or offices of Jesus Christ. Study the Bible with this as a key, and you will not blame Herbert when he calls it "not only the book of God, but the God of books." One of the most interesting points of the Scriptures is their constant tendency to display Christ; and perhaps one of the most beautiful figures under which Jesus Christ is ever exhibited in sacred writ, is the Passover Paschal Lamb. It is Christ of whom we are about to speak to-night.
 

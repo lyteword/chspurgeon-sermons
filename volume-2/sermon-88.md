@@ -1,7 +1,7 @@
 # Sermon 88 | The Plea of Faith
 
 > Do as thou hast said.    
-> 2 Samuel 7:25.    
+> 2 Samuel 7:25
 
 Nathan had been giving to David, on God's behalf, sundry exceeding great and precious promises. David expresses his gratitude to God for having so promised, and he says, "Now, O Lord God, the word that thou hast spoken concerning thy servant, and concerning his house, establish it for ever, and do as thou hast said.'
 

@@ -1,7 +1,7 @@
 # Sermon 64 | The Enchanted Ground
 
 > Therefore let us not sleep, as do others: but let us watch and be sober.    
-> 1 Thess. 5:6    
+> 1 Thessalonians 5:6    
 
 As the spiritual guide of the flock of God along the intricate mazes of experience, it is the duty of the gospel minister to point out every turning of the road to heaven, to speak concerning its dangers or its privileges, and to warn any whom he may suspect to be in a position peculiarly perilous. Now, there is a portion of the road which leadeth from the City of Destruction to the Celestial City, which has in it, perhaps, more dangers than any other portion of the way. It doth not abound with lions; there are no dragons in it; it hath no dark woods, and no deep pitfalls; yet more seeming pilgrims have been destroyed in that portion of the road than anywhere else, and not even Doubting Castle, with all its host of bones, can show so many who have been slain there. It is the part of the road called the Enchanted Ground. The great geographer, John Bunyan, well pictured it when he said:
 

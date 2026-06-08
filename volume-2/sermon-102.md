@@ -1,7 +1,7 @@
 # Sermon 102 | False Professors Solemnly Warned
 
 > For many walk, of whom I have told you often, and now tell you even weeping, that they are the enemies of the cross of Christ: Whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things.    
-> Philippians 3:18-19.    
+> Philippians 3:18-19
 
 Paul was the very model of what a Christian minister should be. He was a watchful shepherd over the flock; he did not simply preach to them, and consider that he had done all his duty when he had delivered his message; but his eyes were always upon the Churches, marking their spiritual welfare, their growth in grace, or their declension in godliness. He was the unsleeping guardian of their spiritual welfare. When he was called away to other lands to proclaim the everlasting gospel, he seems always to have kept an eye upon those Christian colonies which he had founded in the midst of heathen darkness. While lighting up other lamps with the torch of truth, he did not fail to trim the lamps already burning. Here you observe he was not indifferent to the character of the little church at Philippi, for he speaks to them and warns them.
 

@@ -1,7 +1,7 @@
 # Sermon 69 | The Allegories of Sarah and Hagar
 
 > These are the two covenants.    
-> Galatians 4:24.    
+> Galatians 4:24
 
 There cannot be a greater difference in the world between two things than there is between law and grace. And yet, strange to say, while the things are diametrically opposed and essentially different from each other, the human mind is so depraved, and the intellect, even when blessed by the Spirit, has become so turned aside from right judgment, that one of the most difficult things in the world is to discriminate properly between law and grace. He who knows the difference, and always recollects it&mdash;the essential difference between law and grace&mdash;has grasped the marrow of divinity. He is not far from understanding the gospel theme in all its ramifications, its outlets, and its branches, who can properly tell the difference between law and grace. There is always in a science some part which is very simple and easy when we have learned it, but which, in the commencement, stands like a high threshold before the porch. Now, the first difficulty in striving to learn the gospel is this. Between law and grace there is a difference plain enough to every Christian, and especially to every enlightened and instructed one; but still, when most enlightened and instructed, there is always a tendency in us to confound the two things. They are as opposite as light and darkness, and can no more agree than fire and water; yet man will be perpetually striving to make a compound of them&mdash;often ignorantly, and sometimes wilfully. They seek to blend the two, when God has positively put them asunder.
 

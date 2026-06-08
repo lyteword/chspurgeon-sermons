@@ -1,7 +1,7 @@
 # Sermon 60 | Sovereignty and Salvation
 
 > Look unto me and be ye saved, all the ends of the earth: for I am God, and there is none else.    
-> Isaiah 45:22.    
+> Isaiah 45:22
 
 Six years ago to-day, as near as possible at this very hour of the day, I was "in the gall of bitterness and in the bonds of iniquity," but had yet, by divine grace, been led to feel the bitterness of that bondage, and to cry out by reason of the soreness of its slavery. Seeking rest, and finding none, I stepped within the house of God, and sat there, afraid to look upward, lest I should be utterly cut off, and lest his fierce wrath should consume me. The minister rose in his pulpit, and, as I have done this morning, read this text, "Look unto me, and be ye saved, all the ends of the earth: for I am God, and there is none else." I looked that moment; the grace of faith was vouchsafed to me in the self-same instant; and now I think I can say with truth,
 
