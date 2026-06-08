@@ -1,10 +1,10 @@
 # Sermon 197 | The Spies
 
 > And they brought up an evil report of the land which they had searched unto the children of Israel, saying, The land, through which we have gone to search it, is a land that eateth up the inhabitants thereof; and all the people that we saw in it are men of a great stature.    
-> Numbers 13:32.    
+> Numbers 13:32
 
-> And Joshua the son of Nun, and Caleb the son of Jephunneh, which were of them that searched the land, rent their clothes. And they spake unto all the company of the children of Israel, saying, The land which we passed through to search it, is an exceeding good land."    
-> Numbers 14:6-7.    
+> And Joshua the son of Nun, and Caleb the son of Jephunneh, which were of them that searched the land, rent their clothes. And they spake unto all the company of the children of Israel, saying, The land which we passed through to search it, is an exceeding good land.    
+> Numbers 14:6-7
 
 THE UNBELIEF OF THE CHILDREN of Israel, prompted them to send spies into Canaan. God had told them that it was a good land, and he had promised to drive out their enemies, they ought therefore to have marched forward with all confidence to possess the promised heritage. Instead of this, they send twelve princes to spy out the land, and "alas, for human nature," ten of these were faithless, and only two true to the Lord. Read over the narrative, and mark the ill effect of the lying message, and the holy boldness of the true spies.
 

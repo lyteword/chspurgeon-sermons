@@ -1,7 +1,7 @@
 # Sermon 217 | Declension from First Love
 
 > Nevertheless I have somewhat against thee, because thou hast left thy first love.    
-> Revelation 2:4.    
+> Revelation 2:4
 
 IT IS A GREAT THING to have as much said in our commendation as was said concerning the church at Ephesus. Just read what "Jesus Christ, who is the faithful witness," said of them&mdash;"I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars: and hast borne, and hast patience, and for my name's sake hast laboured, and hast not fainted." Oh, my dear brothers and sisters, we may feel devoutly thankful if we can humbly, but honestly say, that this commendation applies to us. Happy the man whose works are known and accepted of Christ. He is no idle Christian, he has practical godliness; he seeks by works of piety to obey God's whole law, by works of charity to manifest his love to the brotherhood, and by works of devotion to show his attachment to the cause of his Master. "I know thy works." Alas! some of you cannot get so far as that. Jesus Christ himself can bear no witness to your works, for you have not done any. You are Christians by profession, but you are not Christians as to your practice. 
 

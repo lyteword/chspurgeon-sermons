@@ -1,7 +1,7 @@
 # Sermon 179 | The Great Reservoir
 
 > Keep thy heart with all diligence; for out of it are the issues of life.    
-> Proverbs 4:23.    
+> Proverbs 4:23
 
 If I should vainly attempt to fashion my discourse after lofty models, I should this morning compare the human heart to the ancient city of Thebes, out of whose hundred gates multitudes of warriors were wont to march. As was the city, such were her armies, as was her inward strength, such were they who came forth of her. I might then urge the necessity of keeping the heart, because it is the metropolis of our manhood, the citadel and armory of our humanity. Let the chief fortress surrender to the enemy, and the occupation of the rest must be an easy task. Let the principal stronghold be possessed by evil, the whole land must be overrun thereby. Instead, however, of doing this, I shall attempt what possibly I may be able to perform, by a humble metaphor and a simple figure, which will be easily understood; I shall endeavor to set forth the wise man's doctrine, that our life issues from the heart, and thus I shall labor to show the absolute necessity of keeping the heart with all diligence.
 

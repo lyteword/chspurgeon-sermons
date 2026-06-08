@@ -1,7 +1,7 @@
 # Sermon 207 | Sovereign Grace and Man's Responsibility
 
 > But Esaias is very bold, and saith, I was found of them that sought me not; I was made manifest unto them that asked not after me. But to Israel he saith, all day long I have stretched forth my hands unto a disobedient and gainsaying people.    
-> Romans 10:20-21.    
+> Romans 10:20-21
 
 DOUBTLESS THESE WORDS primarily refer to the casting away of the Jews, and to the choosing of the Gentiles. The Gentiles were a people who sought not after God, but lived in idolatry; nevertheless, Jehovah was pleased in these latter times to send the gospel of his grace to them: while the Jews who had long enjoyed the privileges of the Word of God, on account of their disobedience and rebellion were cast away. I believe, however, that while this is the primary object of the words of our text, yet, as Calvin says, the truth taught in the text is a type of a universal fact. As God did choose the people who knew him not, so hath he chosen, in the abundance of his grace, to manifest his salvation to men who are out of the way; while, on the other hand, the men who are lost, after having heard the Word, are lost because of their wilful sin; for God doth all the day long "stretch forth his hands unto a disobedient and gainsaying people."
 

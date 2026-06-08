@@ -1,7 +1,7 @@
 # Sermon 187 | Providence
 
 > But the very hairs of your head are all numbered.    
-> Matthew 10:30.    
+> Matthew 10:30
 
 DURING THIS WEEK my mind has been much directed to the subject of Providence, and you will not wonder when I relate a portion of one day's story. I was engaged to preach last Wednesday at Halifax, where there was a heavy snow storm. Preparations had been made for a congregation of 8000 persons, and a huge wooden structure had been erected. I considered that owing to the severe weather, few persons could possibly assemble, and I looked forward to the dreary task of addressing an insignificant handful of people in a vast place. However, when I arrived, I found from 5000 to 6000 people gathered together to hear the Word; and a more substantial looking place it has not been my lot to see. It certainly was a huge uncomely building, but, nevertheless, it seemed well adapted to answer the purpose. We met together in the afternoon and worshipped God, and again in the evening, and we separated to our homes, or rather, we were about to separate, and all this while the kind providence of God was watching over us. Immediately in front of me there was a huge gallery, which looked an exceedingly massive structure, capable of holding 2000 persons. This, in the afternoon, was crowded, and it seemed to stand as firm as a rock. Again in the evening there it stood, and neither moved nor shook. But mark the provident hand of God: in the evening, when the people were about to retire, and when there was scarcely more than a hundred persons there, a huge beam gave way, and down came a portion of the flooring of the gallery with a fearful crash. 
 

@@ -1,7 +1,7 @@
 # Sermon 193 | The World Turned Upside Down
 
 > These that have turned the world upside down are come hither also.    
-> Acts 17:6.    
+> Acts 17:6
 
 THIS IS JUST an old version of an oft-repeated story. When disturbances arise in a state, and rebellions and mutinies cause blood to be shed, it is still the custom to cry, "The Christians have done this." In the days of Jesus we know that it was laid to the charge of our blessed and divine Master, that he was a stirrer of sedition, whereas he himself had refused to be a king, when his followers would have taken him by force to make him one, for he said, "My kingdom is not of this world;" yet was he crucified under the two false charges of sedition and blasphemy. The same thing occurred with the Apostles. Wherever they went to preach the gospel, the Jews who opposed them sought to stir up the refuse of the city to put an end to their ministry; and then, when a great tumult had been made by the Jews themselves, who had taken unto them certain lewd fellows of the baser sort, and gathered a company, and set all the city in an uproar, and assaulted the house of Jason, and sought to bring him out to the people, then the Jews laid the tumult and the uproar at the door of the Apostles, saying, "These that have turned the world upside down are come hither also." This plan was followed all through the Roman empire, until Christianity became the state religion. There was never a calamity befel Rome, never a war arose, never a famine or a plague, but the vulgar multitude cried, "The Christians to the lions! The Christians have done this." Nero himself imputed the burning of Rome, of which he himself doubtless was the incendiary, to the Christians. 
 

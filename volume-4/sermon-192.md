@@ -2,7 +2,8 @@
 
 On behalf of the Sunday School Union
 
-"Give an account of thy stewardship."&mdash;Luke 16:2.
+> Give an account of thy stewardship    
+> Luke 16:2  
 
 WE HAVE HEARD many times in our lives, that we are all stewards to Almighty God. We hold it as a solemn truth of our religion, that the rich man is responsible for the use which he makes of his wealth; that the talented man must give an account to God of the interest which he getteth upon his talents; that every one of us, in proportion to our time and opportunities, must give an account for himself before Almighty God. But, my dear brothers and sisters, our responsibility is even deeper and greater than that of other men. We have the ordinary responsibility which falls upon all professors of religion, to give an account of all we have to God; but besides this, you and I have the extraordinary responsibilities of our official standing&mdash;you, as teachers for Christ in your classes; and others of us as preachers for him before the great congregation. The first responsibility is too heavy for any man to fulfill. Apart from divine grace, it is not possible that any man should so use all that God has given him as to be accepted at last with a "Well done thou good and faithful servant;" yet even if that were possible, it would still remain an utter impossibility for us fully to sustain the fearful weight of responsibility which rests upon us as teachers of the Word of God to our fellow immortals. Upon our necks there are two yokes; Sovereign grace can make them light and easy, but apart from that they will gall our shoulders; for they are, of themselves, too heavy for us to bear. 
 

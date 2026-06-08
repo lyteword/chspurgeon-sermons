@@ -1,7 +1,7 @@
 # Sermon 180 | How To Keep the Heart
 
 > The peace of God, which passeth all understanding, shall keep your hearts and minds, through Christ Jesus.    
-> Philippians 4:7.    
+> Philippians 4:7
 
 IT IS REMARKABLE, that when we find an exhortation given to God's people in one part of the Holy Scripture, we almost invariably find the very thing which they are exhorted to do guaranteed to them, and provided for them, in some other part of the same blessed volume. This morning, my text was, "Keep the heart with all diligence, for out of it are the issues of life." Now, this evening we have the promise upon which we must rest, if we desire to fulfill the precept:&mdash;"The peace of God, which passeth all understanding, shall keep your hearts and minds, through Christ Jesus."
 

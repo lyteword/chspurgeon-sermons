@@ -1,7 +1,7 @@
 # Sermon 191 | Christ Glorified as the Builder of His Church
 
 > He shall build the temple of the Lord, and he shall bear the glory.    
-> Zechariah 6:13.    
+> Zechariah 6:13
 
 > There's music in all things, if men had ears;    
 > This world is but the echo of the spheres.    

@@ -1,7 +1,7 @@
 # Sermon 173 | The Death of Christ
 
 > Yet it pleased the Lord to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see his seed, he shall prolong his days, and the pleasure of the Lord shall prosper in his hand.    
-> Isaiah 53:10.    
+> Isaiah 53:10
 
 WHAT myriads of eyes are casting their glances at the sun! What multitudes of men lift up their eyes, and behold the starry orbs of heaven! They are continually watched by thousands&mdash;but there is one great transaction in the world's history, which every day commands far more spectators than that sun which goeth forth like a bridegroom, strong to run his race. There is one great event, which every day attracts more admiration than do the sun, and moon, and stars, when they march in their courses. That event is, the death of our Lord Jesus Christ. To it, the eyes of all the saints who lived before the Christian era were always directed; and backwards, through the thousand years of history, the eyes of all modern saints are looking. Upon Christ, the angels in heaven perpetually gaze. "Which things the angels desire to look into," said the apostle. Upon Christ, the myriad eyes of the redeemed are perpetually fixed; and thousands of pilgrims, through this world of tears, have no higher object for their faith, and no better desire for their vision, than to see Christ as he is in heaven, and in communion to behold his person. Beloved, we shall have many with us, whilst this morning we turn our face to the Mount of Calvary. We shall not be solitary spectators of the fearful tragedy of our Saviour's death: we shall but dart our eyes to that place which is the focus of heaven's joy and delight, the cross of our Lord and Saviour Jesus Christ.
 

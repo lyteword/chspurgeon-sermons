@@ -1,7 +1,7 @@
 # Sermon 185 | The Great Revival
 
 > The Lord hath made bare his holy arm in the eyes of all the nations; and all the ends of the earth shall see the salvation of our God.    
-> Isaiah 52:10.    
+> Isaiah 52:10
 
 WHEN THE HEROES of old prepared for the fight they put on their armour; but when God prepares for battle he makes bare his arm. Man has to look two ways&mdash;to his own defence, as well as to the offence of his enemy; God hath but one direction in which to cast his eye&mdash;the overthrow of his foeman, and he disregards all measures of defence, and scorns all armour. He makes bare his arm in the sight of all the people. When men would do their work in earnest, too, they sometimes strip themselves, like that warrior of old, who, when he went to battle with the Turks, would never fight them except with the bare arm. "Such things as they," said he, "I need not fear; they have more reason to fear my bare arm than I their scimitar." Men feel that they are prepared for a work when they have cast away their cumbrous garments. And so the prophet represents the Lord as laying aside for awhile the garments of his dignity, and making bare his arm, that he may do his work in earnest, and accomplish his purpose for the establishment of his church.
 

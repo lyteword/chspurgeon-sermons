@@ -1,7 +1,7 @@
 # Sermon 170 | The Immutability of Christ
 
 > Jesus Christ the same yesterday, and to-day, and for ever.    
-> Hebrews 13:8.    
+> Hebrews 13:8
 
 IT IS WELL that there is one person who is the same. It is well that there is one stable rock amidst the changing billows of this sea of life; for how many and how grievous have been the changes of this year? How many of you who commenced in affluence, have by the panic, which has shaken nations, been reduced almost to poverty? How many of you, who in strong health marched into this place on the first Sabbath of last year, have had to come tottering here, feeling that the breath of man is in his nostrils, and wherein is he to be accounted of? Many of you came to this hall with a numerous family, leaning upon the arm of a choice and much loved friend. Alas! for love, if thou wert all and naught beside, O earth! For ye have buried those ye loved the best. Some of you have come here childless, or widows, or fatherless, still weeping your recent affliction. Changes have taken place in your estate that have made your heart full of misery. Your cups of sweetness have been dashed with draughts of gall; your golden harvests have had tares cast into the midst of them, and you have had to reap the noxious weed along with the precious grain. Your much fine gold has become dim, and your glory has departed; the sweet frames at the commencement of last year became bitter ones at the end. Your raptures and your ecstacies were turned into depression and forebodings. Alas! for our changes, and hallelujah to him that hath no change.
 

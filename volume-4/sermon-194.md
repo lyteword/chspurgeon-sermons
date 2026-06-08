@@ -1,7 +1,7 @@
 # Sermon 194 | Human Responsibility
 
 > If I had not come and spoken unto them, they had not had sin: but now they have no cloke for their sin.    
-> John 15:22.    
+> John 15:22
 
 THE PECULIAR SIN of the Jews, the sin which aggravated above everything their former iniquities, was their rejection of Jesus Christ as the Messiah. He had been very plainly described in the books of the prophets, and they who waited for him, such as Simeon and Anna, no sooner beheld him even in his infant state, than they rejoiced to see him, and understood that God had sent forth his salvation. But because Jesus Christ did not answer the expectation of that evil generation because he did not come arrayed in pomp and clothed with power, because he had not the outward garnishing of a prince and the honors of a king, they shut their eyes against him, he was "a root out of a dry ground," he was "despised and they esteemed him not." Nor did their sin stop there. Not content with denying his Messiahship, they were exceeding hot against him in their anger; they hunted him all his life, seeking his blood; nor were they content till their fiendish malice had been fully glutted by sitting down at the foot of the cross, and watching the dying throes and the expiring agonies of their crucified Messiah. Though over the cross itself the words were written, "Jesus of Nazareth, the King of the Jews," yet they knew not their king, God's everlasting Son; and knowing him not, they crucified him, "for had they known him, they would not have crucified the Lord of glory."
 

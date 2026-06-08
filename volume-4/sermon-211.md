@@ -1,7 +1,7 @@
 # Sermon 211 | The Voice of the Blood of Christ
 
 > The blood of sprinkling, that speaketh better things than that of Abel.    
-> Hebrews 12:24.    
+> Hebrews 12:24
 
 OF all substances blood is the most mysterious, and in some senses the most sacred. Scripture teacheth us,&mdash;and after all there is very much philosophy in Scripture,&mdash;that "the blood is the life thereof,"&mdash;that the life lieth in the blood. Blood, therefore, is the mysterious link between matter and spirit. How it is that the soul should in any degree have an alliance with matter through blood, we cannot understand; but certain it is that this is the mysterious link which unites these apparently dissimilar things together, so that the soul can inhabit the body, and the life can rest in the blood. God has attached awful sacredness to the shedding of blood. Under the Jewish dispensation, even the blood of animals was considered as sacred. Blood might never be eaten by the Jews; it was too sacred a thing to become the food of man. The Jew was scarcely allowed to kill his own food: certainly he must not kill it except he poured out the blood as a sacred offering to Almighty God. Blood was accepted by God as the symbol of the atonement. "Without shedding of blood there is no remission of sin, because, I take it, blood hath such an affinity with life, that inasmuch as God would accept nought but blood, be signified that there must be a life offered to him, and that his great and glorious Son must surrender his life as a sacrifice for his sheep.
 

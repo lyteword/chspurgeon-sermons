@@ -1,7 +1,7 @@
 # Sermon 208 | Righteous Hatred
 
 > Ye that love the Lord, hate evil.    
-> Psalm 97:10.    
+> Psalm 97:10
 
 THE CHRISTIAN RELIGION is a golden chain with which the hands of men are fettered from all hatred. The spirit of Christ is love. Wherever he governs, love reigns as a necessary consequence. The Christian man is not allowed to hate any one. Ye have heard that it hath been said by them of old time, "Thou shalt love thy neighbor and hate thy enemy; but I say unto you," said Jesus, "Love your enemies; do good to them that hate you, and pray for them that despitefully use you." The word "hate" must be cut out of the language of a Christian, except it be used with one meaning and intention only, and that, the meaning of my text. Thou hast no right, O Christian, to tolerate within thy bosom wrath, malice, anger, harshness, or uncharitableness, towards any creature that God's hands have made. When thou hatest the man's sins, thou art not to hate him, but to love the sinner, even as Christ loved sinners and came to seek and save them. When thou hatest a man's false doctrine, thou art still to love the man, and hate his doctrine even out of love to his soul, with an earnest desire that he may be reclaimed from his error, and brought into the way of truth. Thou hast no right to excrete thy hatred upon any creature, however fallen or debased, however much he may irritate thy temper, or injure thee in thy estate or reputation. Still hatred is a power of manhood, and we believe that all powers of manhood are to be exercised, and may every one of them be exercised as in the fear of God. It is possible to be angry, and yet sin not, and it is possible to hate, and yet not be guilty of sin, but be positively performing a duty. 
 

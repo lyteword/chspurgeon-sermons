@@ -1,7 +1,7 @@
 # Sermon 199 | A Free Salvation
 
 > Yea, come, buy wine and milk without money and without price.    
-> Isaiah 55:1.    
+> Isaiah 55:1
 
 YOU see, I have something to sell this evening, I have to invite you to come and buy that which, in the gospel will this night be proclaimed. Now, it is usual when persons have anything to sell, to exhibit the article, to describe its character, and speak of its excellencies, for until persons are made aware of the nature of that which you exhibit, it is not likely that they will be prepared to buy it. That shall be my first business this evening Then the man who has aught to sell, in the next place, endeavors to bring those who hear him up to the price at which he desires to sell. My business tonight is to bring you down to the price&mdash;"Come buy wine and milk without money and without price." I shall then conclude by addressing a few sentences of earnest persuasion to those who despise that glorious salvation which it is our privilege to preach, and turn away from those generous stipulations&mdash;"without money and without price."
 

@@ -1,7 +1,7 @@
 # Sermon 218 | Self-Examination
 
 > Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates.    
-> 2 Corinthians 13:5.    
+> 2 Corinthians 13:5
 
 I HAD INTENDED to address you this morning from the third title given to our blessed Redeemer, in the verse we have considered twice before&mdash;"Wonderful, Counsellor, the mighty God;" but owing to excruciating pain and continual sickness, I have been unable to gather my thoughts together, and therefore I feel constrained to address you on a subject which has often been upon my heart and not unfrequently upon my lips, and concerning which, I dare say, I have admonished a very large proportion of this audience before. You will find the text in the thirteenth chapter of the second epistle to the Corinthians, at the fifth verse&mdash;"Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates?"&mdash;a solemn text, that we cannot preach too impressively, or too frequently meditate.
 

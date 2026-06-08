@@ -1,7 +1,7 @@
 # Sermon 213 | The Fatherhood of God
 
 > Our Father which art in heaven.    
-> Matthew 6:9.    
+> Matthew 6:9
 
 I THINK there is room for very great doubt, whether our Saviour intended the prayer, of which our text forms a part, to be used in the manner in which it is commonly employed among professing Christians. It is the custom of many persons to repeat it as their morning prayer, and they think that when they have repeated these sacred words they have done enough. I believe that this prayer was never intended for universal use. Jesus Christ taught it not to all men, but to his disciples, and it is a prayer adapted only to those who are the possessors of grace, and are truly converted. In the lips of an ungodly man it is entirely out of place. Doth not one say, "Ye are of your father the devil, for his works ye do?" Why, then, should ye mock God by saying, "Our Father which art in heaven." For how can he be your Father? Have ye two Fathers? And if he be a Father, where is his honor? Where is his love? You neither honor nor love him, and yet you presumptuously and blasphemously approach him, and say, "Our Father," when your heart is attached still to sin, and your life is opposed to his law, and you therefore prove yourself to be an heir of wrath, and not a child of grace! Oh! I beseech you, leave off sacrilegiously employing these sacred words; and until you can in sincerity and truth say, "Our Father which art in heaven," and in your lives seek to honor his holy name, do not offer to him the language of the hypocrite, which is an abomination to him.
 

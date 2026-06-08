@@ -1,7 +1,7 @@
 # Sermon 183 | The Solar Eclipse
 
 > I form the light, and create darkness.    
-> Isaiah 45:7.    
+> Isaiah 45:7
 
 WE ARE ALL expecting to-morrow to witness one of the greatest sights in the universe&mdash;the annular eclipse of the sun. It is possible that many of us shall have gone the way of all flesh before such a sight shall again be seen in this country and we are therefore looking for it with some degree of expectation. It is probable that hundreds and thousands of the human race will be attracted by it, to study for a few hours at least, the science of astronomy. Certain it is that our astronomers are making the most capital they possibly can of it by endeavouring to thrust it in every way under our notice, in order to induce us to make the sun, the moon, and the stars a little more the object of' our attention than they have been hitherto. Surely I need offer no apology whatever if religion comes forward to-day, and asks that attention should be drawn to her, even by the eclipse itself. Without a doubt, if there be sermons in stones, there must be a great sermon in the sun; and if there be books in the running brooks, no doubt there is many a huge volume to be found in a sun suffering eclipse. All things teach us, if we have but a mind to learn. There is nothing which we can see, or hear, or feel, which may not be the channels of great instruction to us. Let us see whether this may not lead us this morning into a train of thought which may, under God's blessing, be something far better to us than the seeing of an eclipse.
 

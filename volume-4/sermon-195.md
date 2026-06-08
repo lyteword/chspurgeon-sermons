@@ -1,7 +1,7 @@
 # Sermon 195 | Looking Unto Jesus
 
 > They looked unto him, and were lightened: and their faces were not ashamed.    
-> Psalm 34:5.    
+> Psalm 34:5
 
 FROM THE CONNECTION we are to understand the pronoun "him" as referring to the word "Lord" in the preceding verse. "They looked unto the Lord Jehovah, and were lightened." But no man ever yet looked to Jehovah God, as he is in himself, and found any comfort in him, for "our God is a consuming fire." An absolute God, apart from the Lord Jesus Christ, can afford no comfort whatever to a troubled heart. We may look to him, and we shall be blinded, for the light of Godhead is insufferable, and as mortal eye cannot fix its gaze upon the sun, no human intellect could ever look unto God, and find light, for the brightness of God would strike the eye of the mind with eternal blindness. The only way in which are can see God is through the Mediator Jesus Christ.
 

@@ -1,15 +1,12 @@
 # Sermon 219 | An Appeal To Sinners
 
-DEARLY BELOVED,
-
-It hath pleased the Lord by a painful illness to interrupt for a little while my usual labors. As I was unable to preach last Lord's day, accept this week the issue of an old sermon. Though it has been buried in my publisher's warehouse for two years, I pray God it may bud afresh and bring forth fruit, even as old corn after having been entombed in Egyptian sepulchres for centuries will often germinate again and yield an abundant crop. Ye have prayed for me. The Lord hath visited me in the chamber of affliction. I am recovering; and God knoweth "I long to see you, and impart unto you some spiritual gift;" and I trust that ere long "through your prayers I shall be given unto you."
-
-Yours in much affection,
-
-H. S.
+> Dearly Beloved,    
+> It hath pleased the Lord by a painful illness to interrupt for a little while my usual labors. As I was unable to preach last Lord's day, accept this week the issue of an old sermon. Though it has been buried in my publisher's warehouse for two years, I pray God it may bud afresh and bring forth fruit, even as old corn after having been entombed in Egyptian sepulchres for centuries will often germinate again and yield an abundant crop. Ye have prayed for me. The Lord hath visited me in the chamber of affliction. I am recovering; and God knoweth "I long to see you, and impart unto you some spiritual gift;" and I trust that ere long "through your prayers I shall be given unto you."    
+> Yours in much affection,    
+> C.H.S.
 
 > This man receiveth sinners.    
-> Luke 15:2.    
+> Luke 15:2 
 
 IT WAS A SINGULAR GROUP which had gathered round our Saviour, when these words were uttered; for we are told by the evangelist&mdash;"Then drew near unto him all the publicans and sinners for to hear him." The publicans&mdash;the very lowest grade, the public oppressors, scorned and hated by the meanest Jew&mdash;these, together with the worst of characters, the scum of the streets and the very riff-raff of the society of Jerusalem, came around this mighty preacher, Jesus Christ, in order to listen to his words. On the outside of the throng there stood a few respectable people, who in those days were called Pharisees and Scribes&mdash;men who were highly esteemed in the synagogues as rulers, and governors, and teachers. These looked with scorn upon the Preacher; and watched him with invidious eyes, to find some fault. If they could find none in him personally, yet they could easily find it in his congregation; his deportment towards them shocked their false notion of propriety, and when they observed that he was affable with the very worst of characters, that he spoke loving words to the most fallen of mankind, they said of him what they intended for a disgrace, albeit it was highly to his honour: "This man receiveth sinners." 
 

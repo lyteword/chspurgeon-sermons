@@ -1,7 +1,7 @@
 # Sermon 196 | A Present Religion
 
 > Beloved, now are we the sons of God.    
-> 1 John 3:2.    
+> 1 John 3:2
 
 I SHALL not pretend to preach from the whole of my text this morning, short though it be. The word "now" is to me the most prominent word in the text, and I shall make it so this morning. "Beloved, now are we the sons of God."
 

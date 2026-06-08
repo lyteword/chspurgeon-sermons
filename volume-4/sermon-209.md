@@ -1,7 +1,7 @@
 # Sermon 209 | The Way of Salvation
 
 > Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.    
-> Acts 4:12.    
+> Acts 4:12
 
 IT IS A VERY HAPPY CIRCUMSTANCE when the servants of God are able to turn everything to account in their ministry. Now, the apostle Peter was summoned before the priests and Sadducees, the chief of his nation, to answer for having restored a man who was lame from his mother's womb. Whilst accounting for this case of cure, or, if I may use the expression, for this case of temporal salvation, the apostle Peter had this thought suggested to him, "While I am accounting for the salvation of this man from lameness, I have now a fine opportunity of showing to these people, who otherwise will not listen to us, the way of the salvation of the soul." So he proceeds from the less to the greater, from the healing of a man's limb to the healing of a man's spirit; and having informed them once that it was through the name of Jesus Christ that the impotent man had been made whole, he now announces that salvation,&mdash;the great salvation, must be wrought by the selfsame means; "Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved."
 

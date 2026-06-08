@@ -1,10 +1,10 @@
 # Sermon 223 | The Evil and Its Remedy
 
 > The iniquity of the house of Israel and Judah is exceeding great.    
-> Ezekiel 9:9.    
+> Ezekiel 9:9
 
 > The blood of Jesus Christ his Son cleanseth us from all sin."    
-> 1 John 1:7.    
+> 1 John 1:7
 
 I SHALL HAVE two texts this morning&mdash;the evil and its remedy. "The iniquity of the house of Israel and Judah is exceeding great;" and "The blood of Jesus Christ his Son cleanseth us from all sin."
 

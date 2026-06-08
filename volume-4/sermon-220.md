@@ -1,21 +1,14 @@
 # Sermon 220 | God's Barriers Against Man's Sin
 
-BELOVED FRIENDS AND KINDRED IN CHRIST,
-
-The days seem like weeks and the weeks seem like months since I went up to the house of the Lord. My heart and my flesh are crying out for the assembly of the saints. Oh how I long to hear once more the solemn shout of the festal throng who with the voice of joy and praise keep holy day!
-
-I am slowly rallying. My great struggle now is with weakness. I feel as if my frail bark had weathered a heavy storm which has made every timber creak. Do not attribute this illness to my having laboured too hard for my Master. For his dear sake, I would that I may yet be able to labour more. Such toils as might be hardly noticed in the ramp for the service of one's country, would excite astonishment in the church for the service of our God.
-
-And now, I entreat you for love's sake to continue in prayer for me. When ye find access to God, remember me. Mind it is not by the words of your mouth, nor yet by the cravings of your heart, but it is by the precious blood of Christ ye must draw nigh to God. And when ye find his sweet presence and are bedewed with his holy anointing, then pour out your souls before him, and make mention of me in your supplications.
-
-Yours to love and serve in the Gospel,
-
-H. SPURGEON.
-
-Clapham, Tuesday Evening, 26th October, 1858.
+> BELOVED FRIENDS AND KINDRED IN CHRIST,    
+> The days seem like weeks and the weeks seem like months since I went up to the house of the Lord. My heart and my flesh are crying out for the assembly of the saints. Oh how I long to hear once more the solemn shout of the festal throng who with the voice of joy and praise keep holy day!    
+> I am slowly rallying. My great struggle now is with weakness. I feel as if my frail bark had weathered a heavy storm which has made every timber creak. Do not attribute this illness to my having laboured too hard for my Master. For his dear sake, I would that I may yet be able to labour more. Such toils as might be hardly noticed in the ramp for the service of one's country, would excite astonishment in the church for the service of our God.    
+> And now, I entreat you for love's sake to continue in prayer for me. When ye find access to God, remember me. Mind it is not by the words of your mouth, nor yet by the cravings of your heart, but it is by the precious blood of Christ ye must draw nigh to God. And when ye find his sweet presence and are bedewed with his holy anointing, then pour out your souls before him, and make mention of me in your supplications.    
+> Yours to love and serve in the Gospel,    
+> C.H.S.
 
 > Fear ye not me? saith the Lord; will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? But this people hath a revolting and a rebellious heart; they are revolted and gone.    
-> Jeremiah 5:22-23.    
+> Jeremiah 5:22-23
 
 THE MAJESTY OF God, as displayed in creation and providence, ought to stir up our hearts in adoring wonder and melt them down in willing obedience to his commands. The Almighty power of Jehovah, so clearly manifest in the works if his hands, should constrain us, his creatures, to fear his name and prostrate ourselves in humble reverence before his throne. When we know that the sea, however tempestuous, is entirely submissive to the behests of God; that when he saith, "Hitherto shalt thou come, but no further," it dares not encroach&mdash;"the pride of its waves is stayed." When we know that God bridles the tempest, though "nature rocks beneath his tread," and curbs the boisterous storm&mdash;he ought to be feared&mdash;verily, he is a God before whom it is no dishonour for us to bow ourselves in the very dust. The contemplation of the marvellous works which he doth upon "the great and wide sea," where he tosseth the waves to and fro, and yet keepeth them in their ordained courses, should draw forth our devoutest emotions, and I could almost say, inspire us with homage. Great art thou, O Lord God; greatly art thou to be praised; let the world which thou hast made, and all that therein is, declare thy glory! I can scarcely conceive a heart so callous that it feels no awe, or a human mind so dull and destitute of understanding, as fairly to view the tokens of God's omnipotent power, and then turn aside without some sense of the fitness of obedience. One might think the impression would be spontaneous in every breast, and if not, only let reason do her office, and by slower process every mind should yet be convinced. 
 

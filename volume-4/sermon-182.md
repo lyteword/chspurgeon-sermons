@@ -1,7 +1,7 @@
 # Sermon 182 | Human Inability
 
 > No man can come to me, except the Father which hath sent me draw him.    
-> John 6:44.    
+> John 6:44
 
 COMING to Christ" is a very common phrase in Holy Scripture. It is used to express those acts of the soul wherein, leaving at once our self-righteousness, and our sins, we fly unto the Lord Jesus Christ, and receive his righteousness to be our covering, and his blood to be our atonement. Coming to Christ, then, embraces in it repentance, self-negation, and faith in the Lord Jesus Christ, and it sums within itself all those things which are the necessary attendants of these great states of heart, such as the belief of the truth, earnestness of prayer to God, the submission of the soul to the precepts of God's gospel, and all those things which accompany the dawn of salvation in the soul. Coming to Christ is just the one essential thing for a sinner's salvation. He that cometh not to Christ, do what he may, or think what he may, is yet in "the gall of bitterness and in the bonds of iniquity." Coming to Christ is the very first effect of regeneration. No sooner is the soul quickened than it at once discovers its lost estate, is horrified thereat, looks out for a refuge, and believing Christ to be a suitable one, flies to him and reposes in him. Where there is not this coming to Christ, it is certain that there is as yet no quickening; where there is no quickening, the soul is dead in trespasses and sins, and being dead it cannot enter into the kingdom of heaven. We have before us now an announcement very startling, some say very obnoxious. 
 

@@ -1,7 +1,7 @@
 # Sermon 177 | God, the All-Seeing One
 
 > Hell and destruction are before the Lord: how much more then the hearts of the children of men?    
-> Proverbs 15:11.    
+> Proverbs 15:11
 
 YOU HAVE OFTEN smiled at the ignorance of heathens who bow themselves before gods of wood and stone. You have quoted the words of Scripture, and you have said, "Eyes have they but they see not; ears have they, but they hear not." You have therefore argued that they could not be gods at all, because they could neither see nor hear, and you have smiled contemptuously at the men who could so debase their understandings as to make such things objects of adoration. May I ask you one question&mdash;but one? Your God can both see and hear: would your conduct be in any respect different, if you had a god such as those that the heathen worship? Suppose for one minute, that Jehovah, who is nominally adored in this land, could be (though it is almost blasphemy to suppose it) smitten with such a blindness, that he could not see the works and know the thoughts of man: would you then become more careless concerning him than you are now? I trow not. In nine cases out of ten, and perhaps in a far larger and sadder proportion, the doctrine of Divine Omniscience, although it is received and believed, has no practical effect upon our lives at all. The mass of mankind forget God: whole nations who know his existence and believe that he beholds them, live as if they had no God at all. Merchants, farmers, men in their shops, and in their fields, husbands in their families, and wives in the midst of their households, live as if there were no God; no eye inspecting them; no ear listening to the voice of their lips, and no eternal mind always treasuring up the recollection of their acts. 
 

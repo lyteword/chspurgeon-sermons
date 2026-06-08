@@ -1,7 +1,7 @@
 # Sermon 214 | His Name&mdash;Wonderful!
 
 > His name shall be called Wonderful.    
-> Isaiah 9:6.    
+> Isaiah 9:6
 
 ONE EVENING LAST WEEK I stood by the sea-shore when the storm was raging. The voice of the Lord was upon the waters; and who was I that I should tarry within doors, when my Master's voice was heard sounding along the water? I rose and stood to behold the flash of his lightnings, and listen to the glory of his thunders. The sea and the thunders were contesting with one another; the sea with infinite clamor striving to hush the deep-throated thunder, so that his voice should not be heard; yet over and above the roar of the billows might be heard that voice of God, as he spoke with flames of fire, and divided the way for the waters. 
 

@@ -2,7 +2,8 @@
 
 On behalf of the Baptist Missionary Society.
 
-"Come, behold the works of the Lord, what desolations he hath made in the earth. He maketh wars to cease unto the end of the earth; he breaketh the bow, and cutteth the spear in sunder, he burneth the chariot in the fire."&mdash;Psalm 46:8-9.
+> "Come, behold the works of the Lord, what desolations he hath made in the earth. He maketh wars to cease unto the end of the earth; he breaketh the bow, and cutteth the spear in sunder, he burneth the chariot in the fire."    
+> Psalm 46:8-9
 
 IT SEEMS THAT EVERYTHING Christlike must have a history like that of Christ. His beginnings were small&mdash;the manger and the stable. So with the beginnings of that society which we love, and which we believe to be the very incarnation of the Spirit of Christ. Its beginnings also were small; but its latter end shall doubtless greatly increase&mdash;for, hath not the end of Christ become exceedingly glorious? He hath ascended up on high; he sitteth at the right hand of God, our Father; and doubtless this agency which God now employeth for the conversion of the world, shall have its ascension, and God shall greatly magnify it. But as Christ was called to suffer, so must everything Christlike suffer with him. The Christian who is the most like his Master will understand the most of the meaning of that term, "fellowship with him in his sufferings;" and inasmuch as the Missionary Society is like Christ, and hath Christ's heart, and Christ's aim, it also must suffer like Jesus. This year we have been made to sip of that cup. The blood of our martyrs has been shed; our confessors have witnessed to the faith of the Lord Jesus; at the hands of bloodthirsty and cruel men they have met their fate, and again the seed of the church has been sown in the blood of the martyred saint.
 

@@ -1,7 +1,7 @@
 # Sermon 174 | A Call to the Unconverted
 
 > For as many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them.    
-> Galatians 3:10.    
+> Galatians 3:10
 
 MY HEARER, ART THOU a believer, or no? for, according to thine answer to that question, must be the style in which I shall address thee to-night. I would ask thee as a great favor to thine own soul, this evening to divest thyself of the thought that thou art sitting in a chapel, and hearing a minister who is preaching to a large congregation. Think thou art sitting in thine own house, in thine own chair, and think that I am standing by thee, with thy hand in mine, and am speaking personally to thee, and to thee alone; for that is how I desire to preach this night to each of my hearers&mdash;one by one. I want thee, then, in the sight of God, to answer me this all important and solemn question before I begin&mdash;Art thou in Christ, or art thou not? Hast thou fled for refuge to him who is the only hope for sinners? or art thou yet a stranger to the commonwealth of Israel, ignorant of God, and of his holy Gospel? Come&mdash;be honest with thine own heart, and let thy conscience say yes, or no, for one of these two things thou art to-night&mdash;thou art either under the wrath of God, or thou art delivered from it. 
 
