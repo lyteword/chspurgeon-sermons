@@ -1,7 +1,7 @@
 # Sermon 136 | Israel in Egypt
 
 > And they sang the song of Moses the servant of God, and the song of the Lamb, saying, Great and marvelous are thy works, Lord God Almighty; just and true are thy ways, thou King of saints.    
-> Revelation 15:3.    
+> Revelation 15:3
 
 At the outset, let us remark the carefulness of the Holy Spirit in guarding the honor of our blessed Lord. This verse is often quoted as if it runs thus&mdash;"They sang the song of Moses and the Lamb." This mistake has led many weak minds to wonder at the expression, for they have imagined that it divided the honor of the song of heaven between Moses and the Redeemer. The clause&mdash;"the servant of God"&mdash;is doubtless inserted by the Holy Spirit to prevent any error upon this point, and therefore it should be carefully included in the quotation. I take it that the song of Moses is here united with the song of the Lamb, because the one was a type and picture of the other. The glorious overthrow of Pharaoh in the Red Sea shadowed forth the total destruction of Satan and all his host in the day of the great battle of the Lord; and there was in the song of Moses the expression of the same feelings of triumph which will pervade the breasts of the redeemed when they shall triumph with their Captain.
 

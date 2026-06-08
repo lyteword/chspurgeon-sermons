@@ -1,7 +1,7 @@
 # Sermon 120 | A Faithful Friend
 
 > There is a friend that sticketh closer than a brother.    
-> Proverbs 18:24.    
+> Proverbs 18:24
 
 Cicero has well said, "Friendship is the only thing in the world concerning the usefulness of which all mankind are agreed." Friendship seems as necessary an element of a comfortable existence in this world as fire or water, or even air itself. A man may drag along a miserable existence in proud solitary dignity, but his life is scarce life, it is nothing but an existence, the tree of life being stripped of the leaves of hope and the fruits of joy. He who would be happy here must have friends; and he who would be happy hereafter, must, above all things, find a friend in the world to come, in the person of God, the Father of his people.
 

@@ -1,7 +1,7 @@
 # Sermon 114 | Preaching for the Poor
 
 > The poor have the gospel preached to them.    
-> Matt. 11:5.    
+> Matthew 11:5
 
 John, the forerunner of Christ, had some followers who continued with him after Christ had come in the flesh, and openly manifested himself among the people. These disciples were in doubt as to whether Jesus was the Messiah or no. I believe that John himself had no doubt whatever upon the matter, for he had received positive revelations, and had given substantial testimonies on the subject. But in order to relieve their doubts, John said to his disciples, in some such words, "Go and ask him yourselves;" and, therefore, he dispatched them with this message, "Tell us whether thou art he that should come, or do we look for another?" Jesus Christ continuing his preaching for a while, said, "Stay and receive your answer;" and instead of giving them an affirmative reply, "I am that Messiah," he said, "Go and show John again those things which ye do hear and see: The blind receive their sight, and the lame walk, the lepers are cleansed and the deaf hear, the dead are raised up, and the poor have the gospel preached to them." As much as to say, "That is my answer; these things are my testimonies&mdash;on the one hand, that I come from God, and, on the other hand, that I am the Messiah." You will see the truth and force of this reply, if you will observe that it was prophesied of the Messiah, that he should do the very things which Jesus at that moment was doing. It is said of Messias, in the thirty-fifth chapter of Isaiah, at the fifth and sixth verses, "Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped. 
 

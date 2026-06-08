@@ -8,7 +8,7 @@ The subject of this morning's discourse will be this&mdash;confession of sin. We
 
 > Pharaoh:    
 > "I have sinned."    
-> Exodus 9:27.    
+> Exodus 9:27
 
 The first case I shall bring before you is that of the hardened sinner, who, when under terror, says, "I have sinned." And you will find the text in the book of Exodus, the ninth chapter and twenty-seventh verse: "And Pharaoh sent, and called for Moses and Aaron, and said unto them, I have sinned this time: the Lord is righteous, and I and my people are wicked."
 
@@ -24,7 +24,7 @@ They were about to die, as they thought; they promised good behaviour if they mi
 
 > Balaam:    
 > "I have sinned."    
-> Numbers 22:34.    
+> Numbers 22:34
 
 Now for a second text. I beg to introduce to you another character&mdash;the double-minded man, who says, "I have sinned," and feels that he has, and feels it deeply too, but who is so worldly minded that he "loves the wages of unrighteousness." The character I have chosen to illustrate this, is that of Balaam. Turn to the book of Numbers, the twenty-second chapter and the thirty-fourth verse: "And Balaam said unto the angel of the Lord, I have sinned."
 
@@ -43,7 +43,7 @@ I dare say, like Balaam, they would overthrow everything in argument with their 
 
 > Saul:    
 > "I have sinned."    
-> 1 Samuel 15:24.    
+> 1 Samuel 15:24
 
 And now a third character, and a third text. In the first book of Samuel, the fifteenth chapter and twenty-fourth verse: "And Saul said unto Samuel, I have sinned."
 
@@ -57,7 +57,7 @@ I have been brief upon this character; for it seemed to touch upon that of Balaa
 
 > Achan:    
 > "I have sinned."    
-> Joshua 7:20.    
+> Joshua 7:20   
 
 And now I have to introduce to you a very interesting case; it is the case of the doubtful penitent, the case of Achan, in the book of Joshua, the seventh chapter and the twentieth verse:&mdash;"And Achan answered Joshua, indeed I have sinned."
 
@@ -69,7 +69,7 @@ I have, therefore, selected his case, as being one of doubtful repentance. Ah! d
 
 > Judas:    
 > "I have sinned."    
-> Matthew 27:4.    
+> Matthew 27:4
 
 I shall not detain you too long, I trust, but I must now give you another bad case; the worst of all. It is the repentance of despair. Will you turn to the twenty-seventh chapter of Matthew, and the fourth verse? There you have a dreadful case of the repentance of despair. You will recognize the character the moment I read the verse: "And Judas said, I have sinned." Yes, Judas the traitor, who had betrayed his Master, when be saw that his Master was condemned, "repented, and brought again the thirty pieces of silver to the chief priests and elders, saying, I have sinned, in that I have betrayed innocent blood, and cast down the pieces in the temple, and went" and what?&mdash;" and hanged himself." Here is the worst kind of repentance of all; in fact, I know not that I am justified in calling it repentance; it must be called remorse of conscience. But Judas did confess his sin, and then went and hanged himself. Oh! that dreadful, that terrible, that hideous confession of despair. Have you never seen it? If you never have, then bless God that you never were called to see such a sight. I have seen it once in my life, I pray God I may never see it again,&mdash;the repentance of the man who sees death staring him in the face, and who says, "I have sinned." You tell him that Christ has died for sinners; and he answers, "There is no hope for me; I have cursed God to his face; I have defied him; my day of grace I know is past; my conscience is seared with a hot iron; I am dying, and I know I shall be lost!" Such a case as that happened long ago, you know, and is on record&mdash;the case of Francis Spira&mdash;the most dreadful ease, perhaps, except that of Judas, which is upon record in the memory of man. Oh! my hearers, will any of you have such a repentance? If you do, it will be a beacon to all persons who sin in future; if you have such a repentance as that, it will be a warning to generations yet to come. 
 
@@ -87,7 +87,7 @@ And now I come into daylight. I have been taking you through dark and dreary con
 
 > The Prodigal:    
 > "I have sinned."    
-> Luke 15:18.    
+> Luke 15:18
 
 I come now to the last instance, which I shall mention; it is the case of the prodigal. In Luke xv. 18, we find the prodigal says: "Father I have sinned." Oh, here is a blessed confession! Here is that which proves a man to be a regenerate character&mdash;" Father, I have sinned." Let me picture the scene. There is the prodigal; he has run away from a good home and a kind father, and he has spent all his money with harlots, and now he has none left. He goes to his old companions, and asks them for relief. They laugh him to scorn. "Oh," says he, "you have drunk my wine many a day; I have always stood paymaster to you in all our revelries; will you not help me?" "Get you gone" they say; and he is turned out of doors. He goes to all his friends with whom he had associated, but no man gives him anything. At last a certain citizen of the country said,&mdash;"You want something to do, do you? Well go and feed my swine." The poor prodigal, the son of a rich landowner, who had a great fortune of his own, has to go out to feed swine; and he a Jew too!&mdash;the worst employment (to his mind,) to which he could be put. See him there, in squalid rags, feeding swine; and what are his wages? Why, so little, that he "would fain have filled his belly with the husks the swine eat, but no man gave to him." Look, there he is, with the fellow commoners of the sty, in all his mire and filthiness. Suddenly a thought put there by the good Spirit, strikes his mind. "How is it," says he, "that in my father's house there is bread enough and to spare, and I perish with hunger? I will arise and go to my father, and will say unto him, Father, I have sinned against heaven and before thee, and am no more worthy to be called thy son: make me as one of thy hired servants." Off he goes. He begs his way from town to town. 
 

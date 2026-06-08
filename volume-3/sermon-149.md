@@ -1,7 +1,7 @@
 # Sermon 149 | Independence of Christianity
 
 > Not by might, nor by power, but by my Spirit, saith the Lord of Hosts.    
-> Zechariah 4:6.    
+> Zechariah 4:6
 
 GOD'S first and greatest object is his own glory. There was a time, before all time, when there was no day but the Ancient of days, when God dwelt alone in the magnificence of his sublime solitude. Whether he should create, or not create was a question depending upon the answer to another question&mdash;Would it be to his honor or not? He determined that he would glorify himself by creating; but, in creating, beyond all doubt, his motive was his glory. And since that time, he hath ever ruled the earth, and even blessed it with the same object in his infinite mind&mdash;his own glory and honor. Lesser motive for God to have, were less than divine; it is the highest position to which you or I could attain, to live for God; and the very highest virtue of God is for him to magnify himself in all his greatness as the Infinite and the Eternal. Whatever, then, God permits or does, he doeth with this one motive, his own glory. And even salvation, costly though it was, and infinitely a benefaction to us, had for its first object, and for its grand result, the exaltation of the Being and of the attributes of the Supreme Ruler.
 

@@ -1,7 +1,7 @@
 # Sermon 131 | Salvation of the Lord
 
 > Salvation is of the Lord.    
-> Jonah 2:9.    
+> Jonah 2:9
 
 Jonah learned this sentence of good theology in a strange college. He learned it in the whale's belly, at the bottom of the mountains, with the weeds wrapped about his head, when he supposed that the earth with her bars was about him for ever. Most of the grand truths of God have to be learned by trouble; they must be burned into us with the hot iron of affliction, otherwise we shall not truly receive them. No man is competent to judge in matters of the kingdom, until first he has been tried; since there are many things to be learned in the depths which we can never know in the heights. We discover many secrets in the caverns of the ocean, which, though we had soared to heaven, we never could have known. He shall best meet the wants of God's people as a preacher who has had those wants himself; he shall best comfort God's Israel who has needed comfort; and he shall best preach salvation who has felt his own need of it. Jonah, when he was delivered from his great danger, when, by the command of God the fish had obediently left its great deeps and delivered its cargo upon dry land, was then capable of judging; and this was the result of his experience under his trouble&mdash;"Salvation is of the Lord."
 

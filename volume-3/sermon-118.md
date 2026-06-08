@@ -1,7 +1,7 @@
 # Sermon 118 | The Blood-Shedding
 
 > Without shedding of blood is no remission.    
-> Hebrews 9: 22.    
+> Hebrews 9:22
 
 I will show you three fools. One is yonder soldier, who has been wounded on the field of battle, grievously wounded, well nigh unto death; the surgeon is by his side, and the soldier asks him a question. Listen, and judge of his folly. What question does he ask? Does he raise his eyes with eager anxiety and inquire if the wound be mortal, if the practitioner's skill can suggest the means of healing, or if the remedies are within reach and the medicine at hand? No, nothing of the sort; strange to tell, he asks, "Can you inform me with what sword I was wounded, and by what Russian I have been thus grievously mauled? I want," he adds, "to learn every minute particular respecting the origin of my wound." The man is delirious or his head is affected. Surely such questions at such a time are proof enough that he is bereft of his senses.
 

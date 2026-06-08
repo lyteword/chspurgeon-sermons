@@ -1,7 +1,7 @@
 # Sermon 137 | Mercy, Omnipotence, and Justice
 
 > The Lord is slow to anger and great in power, and will not at all acquit the wicked.    
-> Nahum 1:3.    
+> Nahum 1:3
 
 Works of art require some education in the beholder, before they can be thoroughly appreciated. We do not expect that the uninstructed should at once perceive the varied excellencies of a painting from some master hand; we do not imagine that the superlative glories of the harmonies of the prince of song will enrapture the ears of clownish listeners. There must be something in the man himself, before he can understand the wonders either of nature or of art. Certainly this is true of character. By reason of failures in our character and faults in our life, we are not capable of understanding all the separate beauties, and the united perfection of the character of Christ, or of God, his Father. Were we ourselves as pure as the angels in heaven, were we what our race once was in the garden of Eden, immaculate and perfect, it is quite certain that we should have a far better and nobler idea of the character of God than we can by possibility attain unto in our fallen state. But you can not fail to notice, that men, through the alienation of their natures, are continually misrepresenting God, because they can not appreciate his perfection. Does God at one time withhold his hand from wrath? Lo, they say that God hath ceased to judge the world, and looks upon it with listless phlegmatic indifference. Does he at another time punish the world for sin? They say he is severe and cruel. Men will misunderstand him, because they are imperfect themselves, and are not capable of admiring the character of God.
 

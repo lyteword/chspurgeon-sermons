@@ -1,7 +1,7 @@
 # Sermon 130 | Regeneration
 
 > Except a man be born again, he can not see the kingdom of God.    
-> John 3:3.    
+> John 3:3
 
 In daily life our thoughts are most occupied with things that are most necessary for our existence. No one murmured that the subject of the price of bread was frequently on the lips of men at a time of scarcity, because they felt that the subject was one of vital importance to the mass of the population? and therefore they murmured not, though they listened to continual declamatory speeches, and read perpetual articles in the newspapers concerning it. I must offer the same excuse, then, for bringing before you this morning the subject of regeneration. It is one of absolute and vital importance; it is the hinge of the gospel; it is the point upon which most Christians are agreed, yea, all who are Christians in sincerity and truth. It is a subject which lies at the very basis of salvation. It is the very groundwork of our hopes for heaven; and as we ought to be very careful of the basement of our structure, so should we be very diligent to take heed that we are really born again, and that we have made sure work of it for eternity. There are many who fancy they are born again who are not. It well becomes us, then, frequently to examine ourselves; and it is the minister's duty to bring forward those subjects which lead to self-examination, and have a tendency to search the heart and try the reins of the children of men.
 
