@@ -3,7 +3,7 @@
 > Beloved, now are we the sons of God.    
 > 1 John 3:2
 
-I SHALL not pretend to preach from the whole of my text this morning, short though it be. The word "now" is to me the most prominent word in the text, and I shall make it so this morning. "Beloved, now are we the sons of God."
+I shall not pretend to preach from the whole of my text this morning, short though it be. The word "now" is to me the most prominent word in the text, and I shall make it so this morning. "Beloved, now are we the sons of God."
 
 It is astonishing how distance blunts the keen edge of anything that is disagreeable. War is at all times a most fearful scourge. The thought of slain bodies and of murdered men must always harrow up the soul; but because we hear of these things in the distance, there are few Englishmen who can truly enter into their horrors. If we should hear the booming of cannon on the deep which girdles this island; if we should see at our doors the marks of carnage and bloodshed; then should we more thoroughly appreciate what war means. But distance takes away the horror, and we therefore speak of war with too much levity, and even read of it with an interest not sufficiently linked with pain. As it is with war, so it is with death. Death is a frightful thing; he who is the bravest must still fear before it, for at best it is a solemn thing to die. Man, therefore, adopts the expedient of putting off all thoughts of death: it may be very near to him, but he conceives it to be at a distance, and then the same effect is produced as when war is at a distance; its horror is forgotten, and we speak of it with less solemnity. 
 
