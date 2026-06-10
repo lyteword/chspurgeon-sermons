@@ -97,4 +97,4 @@ Finally, my brethren, I am cheered and comforted beyond measure by the joyous ho
 
 Yours in covenant,
 
-November 2nd, 1858.
+November second, 1858.
