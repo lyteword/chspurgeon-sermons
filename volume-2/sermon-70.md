@@ -1,7 +1,7 @@
 # Sermon 70 | Good Works
 
 > Zealous of good works.    
-> Titus 2:14.    
+> Titus 2:14
 
 We shall not be afraid of leading any of you into a legal spirit this morning through what we shall say, for after our frequent exhortations to avoid anything like trusting in your works, attended as they have been, we trust, by the Holy Spirit, we are not afraid that you will so misunderstand us, as to suppose that when we speak of good works, to-day, we shall in any way whatsoever wish you to imagine that they can promote your eternal salvation. We laboured when here the Sabbath morning before last, to let you know the difference between the two covenants, the covenant of grace and the covenant of works; we shall beg you to remember what we then said, and if by any slips of the tongue we should say anything that should look like legality, we beg you will put the two together, and wherein we shall err from the great truth of justification by faith, to reject our testimony.
 

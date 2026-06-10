@@ -1,7 +1,7 @@
 # Sermon 140 | A Simple Sermon for Seeking Souls
 
 > Whosoever shall call upon the name of the Lord shall be saved.    
-> Romans 10:13.    
+> Romans 10:13
 
 It has been said by an eminent divine that many of us in preaching the word suppose too great knowledge in our hearers. "Very often," says this divine, "there are in the congregation persons who are totally unacquainted with the great science of divinity. They are entire strangers to the whole system of grace and salvation." It is proper, then, that the preacher should address himself to his hearers sometimes as if they were totally ignorant of his message, and tell it to them as a new thing, going over the whole of it as if he believed them to be ignorant of it; "For," says this good man, "it is better to suppose too little knowledge, and so to explain the thing clearly, to the meanest comprehension, than to suppose too much, and thus to let the ignorant escape without a word of instruction."
 

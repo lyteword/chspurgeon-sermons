@@ -1,7 +1,7 @@
 # Sermon 99 | The Duty of Remembering the Poor
 
 > Only they would that we should remember the poor; the same which I also was forward to do.    
-> Galatians 2:10.    
+> Galatians 2:10
 
 Poverty is no virtue; wealth is no sin. On the other hand, wealth is not morally good, and poverty is not morally evil. A man may be a good man and a rich man; it is quite certain that very frequently good men are poor men. Virtue is a plant which depends not upon the atmosphere which surrounds it, but upon the hand which waters it, and upon the grace which sustains it. We draw no support for grace from our circumstances whether they be good or evil. Our circumstances may sometimes militate against the gracious work in our breast, but it is quite certain that no position in life is a sustaining cause of the life of grace in the soul. That must always be maintained by divine power, which can work as well in poverty as in riches; for we see some of the finest specimens of the full development of Christianity in those who are the very meanest in temporal circumstances; far outshining those whom we should have imagined, from their position in society, would have had many things to assist their virtues and sustain their graces. Grace is a plant which draws no nourishment from the wilderness in which it grows; it finds nothing to feed upon in the heart of man; all it lives upon it receives supernaturally. It sends all its roots upwards, none downwards; it draws no support from poverty, and none from riches. Gold cannot sustain grace; on the other hand, rags cannot make it flourish. Grace is a plant which derives the whole of its support from God the Holy Spirit, and is therefore entirely independent of the circumstances of man. 
 

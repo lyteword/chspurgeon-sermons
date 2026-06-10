@@ -1,7 +1,7 @@
 # Sermon 91 | Christ Exalted
 
 > This man, after he had offered on sacrifice for sins for ever, sat down on the right hand of God; From henceforth expecting till his enemies be made his footstool.    
-> Hebrews 10:12-13.    
+> Hebrews 10:12-13
 
 At the Lord's table we wish to have no subject for contemplation but our blessed Lord Jesus Christ, and we have been wont generally to consider him as the crucified One, "the Man of sorrows, and acquainted with grief," while we have had before us the emblems of his broken body, and of his blood shed for many for the remission of sins; but I am not quite sure that the crucified Saviour is the only appropriate theme, although, perhaps, the most so. It is well to remember how our Saviour left us&mdash;by what road he travelled through the shadows of death; but I think it is quite as well to recollect what he is doing while he is away from us&mdash;to remember the high glories to which the crucified Saviour has attained; and it is, perhaps, as much calculated to cheer our spirits to behold him on his throne as to consider him on his cross. We have seen him one his cross, in some sense; that is to say, the eyes of men on earth did see the crucified Saviour; but we have no idea of what his glories are above; they surpass our highest thought. Yet faith can see the Saviour exalted on his throne, and surely there is no subject that can keep our expectations alive, or cheer our drooping faith better than to consider, that while our Saviour is absent, he is absent on his throne, and that when he has left his Church to sorrow for him, he has not left us comfortless&mdash;he has promised to come to us&mdash;that while he tarries he is reigning, and that while he is absent he is sitting high on his father's throne.
 

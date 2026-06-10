@@ -1,7 +1,7 @@
 # Sermon 79 | The Form of Sound Words
 
 > Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus.    
-> 2 Timothy 1:13.    
+> 2 Timothy 1:13
 
 My incessant anxiety for you, dearly beloved in the faith of Jesus Christ, is that I may be able, in the first place, to teach you what God's truth is; and then, trusting that I have to the best of my ability taught you what I believe to be God's most holy gospel, my next anxiety is, that you should "hold fast the form of sound words;" that whatever may occur in the future, should death snatch away your pastor, or should anything occur which might put you in perilous circumstances, so that you were tempted to embrace any system of heresy, you might every one of you stand as firm and as unmoved as rocks, and as strong as mountains be, abiding in "the faith which was once delivered unto the saints," whereof ye have heard, and which we have proclaimed unto you. If the gospel be worth your hearing, and if it be a true gospel, it is worth your holding, and our anxiety is, that you should be so established in the faith, that you may, "hold fast the profession of your faith without wavering, for he is faithful that has promised."
 

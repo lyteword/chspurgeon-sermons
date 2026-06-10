@@ -1,7 +1,7 @@
 # Sermon 133 | Heavenly Rest
 
 > There remaineth therefore a rest to the people of God.    
-> Hebrews 4:9.    
+> Hebrews 4:9
 
 The apostle proved, in the former part of this and the latter part of the preceding chapter, that there was a rest promised in Scripture called the rest of God. He proved that Israel did not attain that rest for God sware in his wrath, saying, "They shall not enter into my rest." He proved that this did not merely refer to the rest of the land of Canaan; for he says that after they were in Canaan, David himself speaks again in after ages concerning the rest of God, as a thing which was yet to come. Again he proves, that "seeing those to whom it was promised did not enter in, because of unbelief, and it remaineth that some must enter in, therefore," saith he, "there remaineth a rest to the people of God."
 

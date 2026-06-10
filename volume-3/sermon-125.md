@@ -1,7 +1,7 @@
 # Sermon 125 | The Fruitless Vine
 
 > And the word of the Lord came unto me, saying, Son of man, What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?    
-> Ezekiel 15:1-2.    
+> Ezekiel 15:1-2
 
 The Jewish nation had arrogant ideas of themselves; when they sinned against God, they supposed that on account of the superior sanctity of their forefathers, or by reason of some special sanctity in themselves, they would be delivered, sin as they pleased. In consequence of the infinite mercy of Jehovah, which he had displayed toward them, in delivering them our of so many distresses, they gradually came to imagine that they were the favorite children of Providence, and that God could by no means ever cast them away. God, therefore, in order to humble their pride, tells them that they in themselves were nothing more than any other nation; and he asks them what there was about them to recommend them? "I have often called you a vine; I have planted you, and nurtured you in a very fruitful hill, but now you bring forth no fruit; what is there in you why I should continue you in my favor? If you imagine there is any thing about you more than about any other nation, you are mightily mistaken." "What is the vine-tree more than any tree, or than a branch which is among the trees of the forest?"
 

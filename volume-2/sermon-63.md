@@ -1,7 +1,7 @@
 # Sermon 63 | Marvellous Increase of the Church
 
 > Who are these that fly as a cloud, and as the doves to their windows?    
-> Isaiah 60:8.    
+> Isaiah 60:8
 
 The ancient church, in the foresight of her mighty increase in these latter days lifts up her hands in astonishment, and having been so used to see the Lord's grace confined to a small nation, she exclaims in amazement, "Who are these that fly as a cloud, and as the doves to their windows?" We, beloved, are in a somewhat similar position. It has pleased our Father to add to our numbers so greatly beyond all precedent in modern times, that I doubt not that many of our aged members, who remember days of yore, when God was pleased to bless them very greatly, and then think of days of sadness and weariness, when they were diminished and brought low, are this morning lifting up their hands, and saying, as they think of the present prosperity of our church, "Who are these that fly as a cloud, and as the doves to their windows?" I am sure whenever I appoint an evening for seeing the converts I am amazed; I can only stand up afterwards, clap my hands, and go home and weep for very joy, to think that the word of our God is so running and multiplying and abundantly increasing; and as post after post I receive letters from different parts of this country, from one person here, and another there, not in England only, but in Scotland, and even across the sea&mdash;in Ireland, and you know, in the Crimea also&mdash;I have been overwhelmed with amazement, and have been obliged to cry out, "Who hath begotten me these?" "Who are these that fly as a cloud, and as the doves to their windows?"
 

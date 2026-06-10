@@ -1,7 +1,7 @@
 # Sermon 126 | Justification by Grace
 
 > Being justified freely by his grace, through the redemption that is in Christ Jesus.    
-> Rom. 3:24.    
+> Romans 3:24
 
 The hill of comfort is the hill of calvary; the house of consolation is builded with the wood of the cross; the temple of heavenly cordials is founded upon the riven rock, riven by the spear which pierced its side. No scene in sacred history ever gladdens the soul like the scene on Calvary.
 

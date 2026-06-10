@@ -1,7 +1,7 @@
 # Sermon 75 | Final Perseverance
 
 > For it is impossible for those who were once enlightened, and have tasted of the heavenly gift, and were made partakers of the Holy Ghost, And have tasted the good word of God, and the powers of the world to come, If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame.    
-> Hebrews 6:4-6.    
+> Hebrews 6:4-6
 
 There are some spots in Europe which have been the scenes of frequent warfare, as for instance, the kingdom of Belgium, which might be called the battle field of Europe. War has raged over the whole of Europe, but in some unhappy spots, battle after battle has been fought. So there is scarce a passage of Scripture which has not been disputed between the enemies of truth and the upholders of it; but this passage, with one or two others, has been the special subject of attack. This is one of the texts which have been trodden under the feet of controversy; and there are opinions upon it as adverse as the poles, some asserting that it means one thing, and some declaring that it means another. We think that some of them approach somewhat near the truth; but others of them desperately err from the mind of the Spirit. We come to this passage ourselves with the intention to read it with the simplicity of a child, and whatever we find therein to state it; and if it may not seem to agree with something we have hitherto held, we are prepared to cast away every doctrine of our own, rather than one passage of Scripture.
 

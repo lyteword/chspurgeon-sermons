@@ -1,7 +1,7 @@
 # Sermon 81 & 82 | The God of the Aged
 
 > Even to your old age I am he; and even to hoar hairs will I carry you. I have made, and I will bear; even I will carry, and will deliver you.    
-> Isaiah 46:4.    
+> Isaiah 46:4
 
 Those will be peculiar circumstances under which I shall stand up to address the people next Tuesday; circumstances which perhaps seldom occur,&mdash;possibly may never have occurred before. It might have been more in order that the aged minister should himself address the people; but nevertheless, as it is his own choice, so it must be; and I shall draw my consolation from the third verse, where it is declared, that though God be the God of the close of our life, yet he is also the God of its beginning. He carries us from the very womb; therefore the child may trust in God, as well as the grey head; and he who giveth special blessings to the hoary hairs does also crown the head of the young with his perpetual favor, if they be his children.
 

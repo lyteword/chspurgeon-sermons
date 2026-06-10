@@ -1,7 +1,7 @@
 # Sermon 135 | Presumptuous Sins
 
 > Keep back thy servant also from presumptuous sins.    
-> Psalm 19:13.    
+> Psalm 19:13
 
 All sins are great sins, but yet some sins are greater than others. Every sin has in it the very venom of rebellion, and is full of the essential marrow of traitorous rejection of God. But there be some sins which have in them a greater development of the essential mischief of rebellion, and which wear upon their faces more of the brazen pride which defies the Most High. It is wrong to suppose that because all sins will condemn us, that therefore one sin is not greater than another. The fact is, that while all transgression is a greatly grievous sinful thing, yet there are some transgressions which have a deeper shade of blackness, and a more double scarlet-dyed hue of criminality than others. Now the presumptuous sins of our text are just the chief of all sins: they rank head and foremost in the list of iniquities. It is remarkable, that though an atonement was provided under the Jewish law for every kind of sin, there was this one exception: "But the soul that sinneth presumptuously shall have no atonement; it shall be out off from the midst of my people." And now, under the Christian dispensation, although in the sacrifice of our blessed Lord there is a great and precious atonement for presumptuous sins, whereby sinners who have sinned in this manner are made clean, yet, without doubt, presumptuous sinners, dying without pardon, must expect to receive a double portion of the wrath of God, and a more wonderful manifestation of the unutterable anguish of the torment of eternal punishment in the pit that is digged for the wicked.
 

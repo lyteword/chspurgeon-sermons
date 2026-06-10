@@ -1,8 +1,7 @@
 # Sermon 111 | A Mighty Saviour
 
-
 > Mighty to save.    
-> Isaiah 63:1.    
+> Isaiah 63:1
 
 This, of course, refers to our blessed Lord Jesus Christ, who is described as "coming from Edom with dyed garments from Bozrah," and who, when it is questioned who he is, replies, "I that speak in righteousness, mighty to save." It will be well, then, at the commencement of our discourse to make one or two remarks concerning the mysteriously complex person of the man and God whom we call our Redeemer, Jesus Christ our Saviour. It is one of the mysteries of the Christian religion, that we are taught to believe that Christ is God, and yet a man. According to Scripture, we hold that he is "very God," equal and co-eternal with the Father, possessing, as his Father doth, all divine attributes in an infinite degree. He participated with his Father in all the acts of his divine might; he was concerned in the decree of election, in the fashioning of the covenant; in the creation of the angels, in the making of the world, when it was wheeled from nothing into space, and in the ordering of this fair frame of nature. Before any of these acts the divine Redeemer was the eternal Son of God. "From everlasting to everlasting he is God." Nor did he cease to be God when he became man. He was equally "God over all, blessed for evermore," when he was "the man of sorrows, acquainted with grief," as before his incarnation. We have abundant proof of that in the constant affirmations of Scripture, and, indeed, also in the miracles which he wrought. The raising of the dead, the treading of the billows of the ocean, the hushing of the winds and the rending of the rocks, with all those marvellous acts of his, which we have not time here to mention, were strong and potent proofs that he was God, most truly God, even when he condescended to be man. 
 

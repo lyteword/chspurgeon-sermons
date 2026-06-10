@@ -1,7 +1,7 @@
 # Sermon 132 | Christ&mdash;The Power and Wisdom of God
 
 > Christ the power of God, and the wisdom of God.    
-> 1 Corinthians 1:24.    
+> 1 Corinthians 1:24
 
 Unbelief toward the gospel of Christ is the most unreasonable thing in all the world, because the reason which the unbeliever gives for his unbelief is fairly met by the character and constitution of the gospel of Christ. Notice that before this verse we read&mdash;"The Jews required a sign, the Greeks seek after wisdom." If you met the Jew who believed not on Christ in the apostle's day, he said, "I can not believe, because I want a sign;" and if you met the Greek, he said, "I can not believe, because I want a philosophic system, one that is full of wisdom." "Now," says the apostle, "both these objections are untenable and unreasonable. If you suppose that the Jew requires a sign, that sign is given him: Christ is the power of God. The miracles that Christ wrought upon earth were signs more than sufficiently abundant; and if the Jewish people had but the will to believe, they would have found abundant signs and reasons for believing in the personal acts of Christ and his apostles." And let the Greeks say, "I can not believe, because I require a wise system: O Greek, Christ is the wisdom of God. If thou wouldst but investigate the subject, thou wouldst find in it profoundness of wisdom&mdash;a depth where the most gigantic intellect might be drowned. It is no shallow gospel, but a deep, and a great deep too, a deep which passeth understanding. Thine objection is ill-founded; for Christ is the wisdom of God, and his gospel is the highest of all sciences. If thou wishest to find wisdom, thou must find it in the word of revelation."
 

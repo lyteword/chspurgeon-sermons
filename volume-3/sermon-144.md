@@ -1,7 +1,7 @@
 # Sermon 144 | Waiting Only Upon God
 
 > My soul, wait thou only upon God.    
-> Psalm 62:6.    
+> Psalm 62:6
 
 Calvin translates this verse, "My soul, be thou silent before God." Rest calm and undisturbed. Thine enemies are round about thee, and have sore beset thee thy troubles do surround thee like strong bulls of Bashan; but rest, my soul, in God. Thine enemies are mighty, but he is Almighty; thy troubles are grievous, but he is greater than thy troubles, and he shall deliver thee from them. Let not thy soul be agitated. The wicked are like the troubled sea that cannot rest: be not thou like unto them. Be thou calm: let not a wave ruffle thine untroubled spirit. "Cast thy burden on the Lord," and then sleep on his bosom. Commit thy way unto Jehovah, and then rest in sure and certain confidence, for
 

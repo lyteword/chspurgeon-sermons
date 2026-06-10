@@ -1,7 +1,7 @@
 # Sermon 115 | Why Are Men Saved?
 
 > Nevertheless he saved them for his name's sake.    
-> Psalm 106:8.    
+> Psalm 106:8
 
 In looking upon the works of God in creation, there are two questions which at once occur to the thoughtful mind, and which must be answered before we can procure a clue to the philosophy and science of creation itself. The first one is the question of authorship: Who made all these things? And the next question is that of design: For what purpose were all these things created? The first question, "Who made all these things?" is one which is easily answered by a man who has a honest conscience and a sane mind, for when he lifts eyes up yonder to read the stars, he will see those stars spell out in golden letters this word&mdash;God; and when he looks below upon the waves, if his ears are honestly opened, he will hear each wave proclaiming, God. If he looks to the summits of the mountains, they will not speak, but with a dignified answer of silence they seem to say,
 

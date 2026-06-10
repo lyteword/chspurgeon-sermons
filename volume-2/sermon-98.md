@@ -1,7 +1,7 @@
 # Sermon 98 | Making Light of Christ
 
 > But they made light of it, and went their ways, one to his farm, another to his merchandise.    
-> Matthew 22:5.    
+> Matthew 22:5
 
 Man is not much changed since the days of Adam. In his bodily frame he appears to be exactly similar, for skeletons many hundred years' old are the exact counterparts of ours; and sure enough that which was recorded in history as having been done by man centuries ago, might be written again, for "there is nothing new under the sun." The same class of men is still to be discovered (although, perhaps, differently dressed) as that which existed ages long gone by. There are still men who answer the character given to others, in his day, by the Saviour, "They go their way, one to his farm, another to his merchandise,: making light of the glorious things of the gospel. I am certain I have many such characters here to-night, and I pray the Lord that I may be enabled to discourse to them very solemnly and very pointedly. And I must ask all you who understand the heavenly art of prayer, to pray that God would be pleased to send home every thought into the breast where he intends it to lodge, that it may bring forth the comfortable fruit of righteousness in the salvation of many souls. "They made light of it;" so do too many in this day; and so will a large portion of my hearers to-night. I believe that to think lightly of Christ is a sin; and at all risks of being falsely called legalist, or free-willer, by those who are wise above what is written, I shall charge it upon you as such, for I hope I shall never belong to that class of Calvinists who do the devil's work by excusing sinners in their sins.
 

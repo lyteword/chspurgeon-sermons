@@ -1,7 +1,7 @@
 # Sermon 116 | Secret Sins
 
 > Cleanse thou me from secret faults.    
-> Psalm 19:12.    
+> Psalm 19:12
 
 Self-righteousness arises partly from pride but mainly from ignorance of God's law. It is because men know little or nothing concerning the terrible character of the divine law, that they foolishly imagine themselves to be righteous. They are not aware of the deep spirituality, and the stern severity of the law, or they would have other and wiser notions. Once let them know how strictly the law deals with the thoughts, how it brings itself to bear upon every emotion of the inner man, and there is not one creature beneath God's heaven who would dare to think himself righteous in God's sight in virtue of his own deeds and thoughts. Only let the law be revealed to a man; let him know how strict the law is, and how infinitely just, and his self-righteousness will shrivel into nothing&mdash;it will become a filthy rag in his sight, whereas before he thought it to be a goodly garment.
 

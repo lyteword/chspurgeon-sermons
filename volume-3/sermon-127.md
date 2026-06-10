@@ -1,7 +1,7 @@
 # Sermon 127 | Spiritual Resurrection
 
 > And you hath he quickened, who were dead in trespasses and sins.    
-> Ephesians 2:1.    
+> Ephesians 2:1
 
 It might naturally be expected that I should have selected the topic of the resurrection on what is usually called the Easter Sabbath. I shall not do so; for although I have read portions which refer to that glorious subject, I have had pressed on my mind a subject which is not the resurrection of Christ, but which is in some measure connected with it&mdash;the resurrection of lost and ruined men by the Spirit of God in this life.
 

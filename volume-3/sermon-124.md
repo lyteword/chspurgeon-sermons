@@ -1,7 +1,7 @@
 # Sermon 124 | The Snare of the Fowler
 
 > Surely he shall deliver thee from the snare of the fowler.    
-> Psalm 91:3.    
+> Psalm 91:3
 
 If Moses wrote this Psalm he might represent the fowler as being in his case the king of Egypt, who sought to slay him, or the Amalekites, who pounced upon Israel in the plain, when they little expected it. If David penned it, he might have compared Saul to the fowler, for he himself says, he was hunted like a partridge upon the mountains. But we believe, if the verse be applicable to either of those cases, it was intended by the Psalmist not to have a private interpretation, but to be applicable to all time; and we believe it is spoken concerning that arch-enemy of souls, the great deceiver, Satan, of whom we just now sang,
 

@@ -1,7 +1,7 @@
 # Sermon 86 | Unimpeachable Justice
 
 > Against thee, thee only, have I sinned, and done this evil in thy sight: that thou mightest be justified when thou speakest, and be clear when thou judgest.    
-> Psalm 51:4.    
+> Psalm 51:4
 
 Yesterday was to me a day of deep solemnity; a pressure rested on my mind throughout the whole of it, which I could not by any possibility remove, for at every hour I remembered that during that day one of the most fallen of my fellow-creatures was launched into an unknown world, and made to stand before his Maker. Some might have witnessed his execution without tears; I think I could not even have thought of it for long together without weeping, at the terrible idea of a man so guilty, about to commence that endless period of unmingled misery, which is the horrible doom of the impenitent, which God hath prepared for sinners. Yesterday morning the sun saw a sigh which sickened it&mdash;the sight of a man launched, by a judicial process, into eternity, for guilt which has rendered him infamous, and which will stamp his name with disgrace as long as it shall be remembered.
 

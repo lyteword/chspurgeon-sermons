@@ -1,7 +1,7 @@
 # Sermon 78 | The Character of Christ's People
 
 > They are not of the world, even as I am not of the world.    
-> John 17:16.    
+> John 17:16
 
 Christ's prayer was for a special people. He declared that he did not offer an universal intercession. "I pray for them," said he. "I pray not for the world, but for them which thou hast given me, for they are thine." In reading this beautiful prayer through, only one question arises to our minds; Who are the people that are described as "them," or as "they?" Who are these favoured individuals, who share a Saviour's prayers, are recognized by a Saviour's love, have their names written on the stones of his precious breastplate, and have their characters and their circumstances mentioned by the lips of the High Priest before the throne on high? The answer to that question is supplied by the words of our text. The people for whom Christ prays are an unearthly people. They are a people somewhat, above the world, distinguished altogether from it. "They are not of the world, even as I am not of the world."
 

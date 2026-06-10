@@ -1,7 +1,7 @@
 # Sermon 57 | The Incarnation and Birth of Christ
 
 > But thou, Beth-lehem Ephratah, though thou be little among the thousands of Judah, yet out of thee shall he come forth unto me that is to be ruler in Israel; whose goings forth have been from of old, from everlasting.    
-> Micah 5:2.    
+> Micah 5:2
 
 This is the season of the year when, whether we wish it or not, we are compelled to think of the birth of Christ. I hold it to be one of the greatest absurdities under heaven to think that there is any religion in keeping Christmas-day. There are no probabilities whatever that our Saviour Jesus Christ was born on that day, and the observance of it is purely of Popish origin; doubtless those who are Catholics have a right to hallow it, but I do not see how consistent Protestants can account it in the least sacred. However, I wish there were ten or a dozen Christmas-days in the year; for there is work enough in the world, and a little more rest would not hurt labouring people. Christmas-day is really a boon to us; particularly as it enables us to assemble round the family hearth and meet our friends once more. Still, although we do not fall exactly in the track of other people, I see no harm in thinking of the incarnation and birth of the Lord Jesus. We do not wish to be classed with those
 

@@ -1,7 +1,7 @@
 # Sermon 108 | The Question of Fear and the Answer of Faith
 
 > Will he plead against me with his great power? No; but he would put strength in me.    
-> Job 23:6.    
+> Job 23:6
 
 I shall not to-night consider the connexion of these words, or what was particularly intended by Job. I shall use them in, perhaps, another sense from that which he intended. No doubt Job meant to say, that if God would allow him to argue his case before him, it was his firm belief that God, so far from taking advantage of his superior strength in the controversy, would even strengthen him, that the controversy might be fair, and that the judgment might be unbiased. "He would not plead against me with his great strength; no, but he would put strength in me." We shall use the text, however, to-night, in another sense.
 

@@ -1,7 +1,7 @@
 # Sermon 110 | Heavenly Worship
 
 > And I looked, and, lo, a Lamb stood on the Mount Sion, and with him an hundred forty and four thousand, having his Father's name written in their foreheads. And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and I heard the voice of harpers harping with their harps; And they sung as it were a new song before the throne, and before the four beasts, and the elders; and no man could learn that song but the hundred and forty and four thousand, which were redeemed from the earth.    
-> Revelation 14:1-3.    
+> Revelation 14:1-3
 
 The scene of this marvellous and magnificent vision is laid upon Mount Sion; by which we are to understand, not Mount Sion upon earth, but Mount Sion which is above, "Jerusalem, the mother of us all." To the Hebrew mind Mount Sion was a type of heaven, and very justly so. Among all the mountains of the earth none was to be found so famous as Sion. It was there that patriarch Abraham drew his knife to slay his son; it was there, too, in commemoration of that great triumph of faith, Solomon built a majestic temple, "beautiful for situation and the joy of the whole earth." That Mount Sion was the centre of all the devotions of the Jews.
 

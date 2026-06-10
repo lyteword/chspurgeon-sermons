@@ -3,7 +3,7 @@
 *On behalf of the Baptist Fund for the Relief of Poor Ministers.*
 
 > The young lions do lack, and suffer hunger; but they that seek the Lord shall not want any good thing.    
-> Psalm 34:10.    
+> Psalm 34:10
 
 Right truly did Paul say, "Whereby he hath given unto us exceeding great and precious promises;" for surely this promise is exceeding great indeed. In the entire compass of God's holy word, there is not to be found a precious declaration which can excel this in sweetness; for how could God promise to use more than all things? how could even his infinite benevolence stretch the line of his grace farther than it hath gone in this verse of the psalm?&mdash;"They that seek the Lord shall not want any good thing." There is here no reserve; nothing is kept back; there is no solitary word of exception. There is no codicil in this will striking off the smallest portion of the estate; there is no caveat put in to warn us that there are domains upon which we must not intrude; a large field is laid before the children of God; a wide door is open, and no man can shut it. "They that seek the Lord shall not want any good thing."
 

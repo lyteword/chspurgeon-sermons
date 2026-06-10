@@ -1,7 +1,7 @@
 # Sermon 105 | Manasseh
 
 > Then Manasseh knew that the Lord he was God.    
-> 2 Chron. 33:13.    
+> 2 Chronicles 33:13
 
 Manasseh is one of the most remarkable characters whose history is written in the sacred pages. We are accustomed to mention his name in the list of those who greatly sinned, and yet found great mercy. Side by side with Saul of Tarsus, with that great sinner who washed the feet of Jesus with her tears, and wiped them with the hairs of her head, and with the thief that died upon the cross&mdash;a forgiven sinner at the eleventh hour&mdash;we are wont to write the name of Manasseh, who "shed innocent blood very much," and notwithstanding that, was forgiven and pardoned, finding mercy through the blood of a Saviour who had not then died, but whom God foresaw should die, and the merits of whose sacrifice he therefore imputed to so great a transgressor as Manasseh.
 
