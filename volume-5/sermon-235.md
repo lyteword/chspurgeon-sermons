@@ -1,7 +1,7 @@
 # Sermon 235 | The Fainting Warrior
 
 > O wretched man that I am I who shall deliver me from the body of this death? I thank God, through Jesus Christ our Lord.    
-> Romans 7:24, 25.    
+> Romans 7:24, 25
 
 IF I chose to occupy your time with controversial matter, I might prove to a demonstration that the apostle Paul is here describing his own experience as a Christian. Some have affirmed that he is merely declaring what he was before conversion, and not what he was when he became the recipient of the grace of God. But such persons are evidently mistaken, and I believe wilfully mistaken; for any ample-hearted, candid mind, reading through this chapter, could not fall into such an error. It is Paul the apostle, who was not less than the very greatest of the apostles&mdash;it is Paul, the mighty servant of God, a very prince in Israel, one of the King's mighty men&mdash;it is Paul, the saint and the apostle, who here exclaims, "O wretched man that I am!"
 

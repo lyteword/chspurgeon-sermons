@@ -1,7 +1,7 @@
 # Sermon 246 | Mr. Fearing Comforted
 
 > O thou of little faith, wherefore didst thou doubt?    
-> Matthew 14:31.    
+> Matthew 14:31
 
 TT SEEMS AS if doubt were doomed to be the perpetual companion of faith. As dust attends the chariotwheels so do doubts naturally becloud faith. Some men of little faith are perpetually enshrouded with fears; their faith seems only strong enough to enable them to doubt. If they had no faith at all, then they would not doubt, but having that little, and but so little, they are perpetually involved in distressing surmises, suspicions, and fears. Others, who have attained to great strength and stability of faith, are nevertheless, at times, subjects of doubt. He who has a colossal faith will sometimes find that the clouds of fear float over the brow of his confidence. It is not possible, I suppose, so long as man is in this world, that he should be perfect in anything; and surely it seems to be quite impossible that he should be perfect in faith. Sometimes, indeed, the Lord purposely leaves his children, withdraws the divine inflowings of his grace, and permits them to begin to sink, in order that they may understand that faith is not their own work, but is at first the gift of God, and must always be maintained and kept alive in the heart by the fresh influence of the Holy Spirit. 
 

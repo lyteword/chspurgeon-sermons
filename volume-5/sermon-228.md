@@ -1,7 +1,7 @@
 # Sermon 228 | The Blood
 
 > When I see the blood, I will pass over you.    
-> Exodus 12:13.    
+> Exodus 12:13
 
 GOD'S PEOPLE ARE ALWAYS SAFE. "All the saints are in his hand;" and the hand of God is a place for safety, as well as a place of honour. Nothing can hurt the man who has made his refuge God. "Thou hast given commandment to save me," said David; and every believing child of God may say the same. Plague, famine, war, tempest,&mdash;all these have received commandment of God to save his people. Though the earth should rock beneath the feet of man, yet the Christian, may stand fast, and though the heavens should be rolled up, and the firmament should pass away like a scroll that is burned by fervent heat, yet need not a Christian fear; God's people shall be saved: if they cannot be saved under the heavens, they shall be saved in the heavens; if there be no safety for them in the time of trouble upon this solid earth, they shall be "caught up together with the Lord in the air, and so shall they be ever with the Lord," and ever safe.
 

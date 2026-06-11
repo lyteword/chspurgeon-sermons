@@ -1,7 +1,7 @@
 # Sermon 254 | The Wounds of Jesus
 
 > He shewed them his hands and his feet.    
-> Luke 24:40.    
+> Luke 24:40
 
 I HAVE selected this sentence as the text, although I shall not strictly adhere to it. What was to be seen on Christ's hands and feet? We are taught that the prints of the nails were visible, and that in his side there was still the gash of the spear. For did he not say to Thomas? "Reach hither thy finger and behold my hands, and reach hither thy hand and thrust it into my side, and be not faithless, but believing." I wish to draw your attention to the ample fact, that our Lord Jesus Christ, when he rose again from the dead had in his body the marks of his passion. If he had pleased he could readily have removed them. He rose again from the dead, and he might have erased from his body everything which could be an indication of what he had suffered and endured before be descended into the tomb. But, no! Instead thereof, there were the pierced hands and feet, and there was the open side. What was the reason for this? There was no absolute necessity for it: it could easily have been dispensed with, What, then, were the reasons? I shall endeavor to enter into this subject, and I hope we may draw some profitable instructions therefrom.
 

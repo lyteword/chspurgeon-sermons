@@ -1,7 +1,7 @@
 # Sermon 231 | Faith in Perfection
 
 > The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands.    
-> Psalm 138:8.    
+> Psalm 138:8
 
 I HAVE SELECTED THIS TEXT, or, rather, it has been given to me to furnish a motto for the whole year to all the believing family of God now present. It was brought under my notice from the fact that I have a very dear friend, a venerable minister of the Church of England, and an earnest lover of the truth as it is in Jesus, who always sends me, at the beginning of the year, or a day or two previously, a little envelope sealed up, that I am not to open till New Year's day, containing a printed text of Scripture, which he desires to be preserved during the remainder of the year, to act as a staff whereon we may rest through the pilgrimage of the next twelve months. When I opened my envelope I found this text, and it charmed me. It contains in itself the very essence of the grace of God. It reads like music to the soul, and is like a bottle of water in the desert to the thirsty lip. Let me read it again, and remember it, and dwell upon it, and digest it during all the year. "The Lord will perfect that which concerneth me. Thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands."
 

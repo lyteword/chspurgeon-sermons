@@ -1,7 +1,7 @@
 # Sermon 256 | The Believer's Challenge
 
 > Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us    
-> Romans 8:34.    
+> Romans 8:34
 
 THE PROTEST OF an innocent man against the charge of an accuser may well be strong and vehement. But here we have a more uncommon and a sublimer theme. It is the challenge of a justified sinner protesting with holy and inspired fervour that his character is clear and his conscience clean, even in the sight of heaven. Yet it is not the natural innocence of his heart, but the perfect mediation of the Lord Jesus Christ, which gives him this amazing confidence. May the Spirit of God enable me to expound to you this most blessed portion of God's Word.
 

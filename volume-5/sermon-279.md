@@ -1,7 +1,7 @@
 # Sermon 279 | Come and Welcome
 
 > And the Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely.    
-> Revelation 22:17.    
+> Revelation 22:17
 
 THE CRY OF THE CHRISTIAN RELIGION is the simple word, "Come." The Jewish law said, "Go, and take heed unto thy steps as to the path in which thou shalt walk. Go, and break the commandments, and thou shalt perish; Go, and keep them, and thou shalt live." The law was a dispensation of the whip, which drove men before it; the gospel is just of the opposite kind. It is the Shepherds dispensation. He goeth before his sheep, and he bids them follow him, saying unto them, "Come." The law repels; the gospel attracts. The law shows the distance between God and man; the gospel bridges that distance, and brings the sinner across that great fixed gulf which Moses could never bridge. The fact is, as you will all have to learn, if you know anything of gracious experience, that from the first moment of your spiritual life until you are ushered into glory, the cry of Christ to you will be, "Come, come unto me." He will always be ahead of you, bidding you follow him as the soldier follows his leader. He will always go before you to pave your way, and to prepare your path, and he will bid you come after him all through life, and in the solemn hour of death, when you shall lie panting upon your bed, his sweet word with which he shall usher you into the heavenly world shall be&mdash;"Come, come unto me. Stretch thy wings and fly straight to this world of joy where I am dwelling. Come and be with me where I am."
 

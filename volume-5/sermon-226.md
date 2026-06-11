@@ -1,7 +1,7 @@
 # Sermon 226 | The Feast of the Lord
 
 > The governor of the feast called the bridegroom, and saith unto him, every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse; but thou hast kept the good wine until now.    
-> John 2:9-10.    
+> John 2:9-10
 
 I HAD EXHAUSTED my time this morning by describing the feast of Satan&mdash;how at the four tables, whereat did sit the profligate, the self-righteous, the worldly, and the secretly sinful, the course of Satan, was always on this wise,&mdash;first, the good wine, and when men had well drunken, that which was worse. His feast diminished in its value as it proceeded, and went from the bright crackling of the thorn under the pot to the blackness of darkness for ever. I had then in my second point to show, that the rule of Christ's banquet is just the very reverse&mdash;that Christ doth always give the best wine last&mdash;that he doth save the good things until the end of the feast; nay, that sometimes the first cups at the table of Christ are full of wormwood and gall, and are exceeding bitter, but that if we tarry at the feast, they will grow sweeter, and sweeter, and sweeter, until at last, when we shall come into the land Beulah, and especially when we shall enter into the city of our God, we shall be compelled to say, "Thou hast kept the good wine until now."
 

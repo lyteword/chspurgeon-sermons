@@ -1,7 +1,7 @@
 # Sermon 232 | Perfection in Faith
 
 > For by one offering he hath perfected for ever them that are sanctified.    
-> Hebrews 10:14.    
+> Hebrews 10:14
 
 THINK OF THIS MORNING'S TEXT&mdash;"The Lord WILL perfect that which concerneth me." Is it not very grateful to observe, that what is just in one part of Scripture presented to us as a matter of faith, is in another place states as a matter of fact? Think of this evening's text&mdash;"He HATH perfected us for ever." This morning we went downwards, from faith to prayer. After having said in confidence, "The Lord will perfect that which concerneth me," we meekly besought him&mdash;"Forsake not the works of thine own hands,"&mdash;sinking as it were to a lower note in the scale of music. Then we beheld Perfection in the dim obscurity of the future, like the sun veiled behind a cloud. Our faith rested on it as a thing at present unseen, our hearts yearned after it as an inheritance yet in reserve for us. Now to-night, this perfection is brought nigh to us, I thing accomplished, as an ever-present fact, whose eternal reality shines upon us with unclouded lustre. It is thus I read this verse&mdash;"By one offering our Lord Jesus Christ HATH perfected for ever them that are sanctified."
 

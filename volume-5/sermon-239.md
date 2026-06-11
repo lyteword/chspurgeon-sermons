@@ -1,7 +1,7 @@
 # Sermon 239 | Jacob and Esau
 
 > Jacob have I loved, but Esau have I hated.    
-> Romans 9:15.    
+> Romans 9:15
 
 DO NOT IMAGINE for an instant that I pretend to be able thoroughly to elucidate the great mysteries of predestination. There are some men who claim to know all about the matter. They twist it round their fingers as easily as if it were an everyday thing; but depend upon it, he who thinks he knows all about this mystery, knows but very little. It is but the shallowness of his mind that permits him to see the bottom of his knowledge; he who dives deep, finds that there is in the lowest depth to which he can attain a deeper depth still. The fact is, that the great questions about man's responsibility, free-will, and predestination, have been fought over, and over, and over again, and have been answered in ten thousand different ways; and the result has been, that we know just as much about the matter as when we first began. The combatants have thrown dust into each other's eyes, and have hindered each other from seeing; and then they have concluded, that because they put other people's eyes out, they could therefore see.
 

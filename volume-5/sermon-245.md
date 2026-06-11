@@ -1,7 +1,7 @@
 # Sermon 245 | The Way to God
 
 > No man cometh unto the Father, but by me.    
-> St. John 14:6.    
+> John 14:6
 
 THERE ARE many men in this world, who so far from coming to God, are going as far as they can from him. Nothing would delight such men so much as to be clean rid of his presence, and to be entirely escaped from the bounds of his dominions. They would be content to make their bed in hell, if they could thus find a satisfactory answer to the question, "Whither shall I go from thy Spirit, or whither shall I flee from thy presence?" Their hearts are at enmity with God; they hate his words and his ways. They know that God is angry with them; and they in return are angry with God. There is another class, who are but very little in advance of these. It cannot be said of them, with the same emphatic meaning, that they actually hate God, but nevertheless they run from him. Perhaps they would indignantly repel a charge of abhorring God, but nevertheless, it is true of them, that they live in utter disregard of him. They say in their hearts "No God." God is not in all their thoughts. They may have sublime thoughts of nature, but few yearnings after him who made nature. They think much of time, and sense, and of the things that are below; but as to eternity and its substantial realities, the things that are unseen and everlasting, these they scarce can think upon. "Beware, ye that forget God," for your state is no better than the state of those I first described. "The wicked shall be turned into hell." those who hate God shall feel his torment, but so shall their companions, for thus runs the text, "The wicked shall be cast into hell with all the nations that forget God." 
 

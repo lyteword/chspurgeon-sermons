@@ -1,7 +1,7 @@
 # Sermon 261 | The Call of Abraham
 
 > By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance obeyed; and he went out, not knowing whither he went.    
-> Hebrews 11:8.    
+> Hebrews 11:8
 
 ABRAHAM'S FAITH was of the most eminent order, for he is called the Father of the Faithful. Let us rest assured that nothing but repeated and fiery trials could have trained his faith to so great a strength as that which it exhibited in his preparation to slay his son at the command of God. This true Jerusalem blade was long annealed before it gained its marvellous edge and matchless temper. Men come not to their perfect stature except by years of growth. Stars cannot reach the zenith of the heavens by one sudden flash, nay even the sun himself must climb to his meridian. Trials are the winds which root the tree of our faith. They are the trainers, drilling God's young soldiers, and teaching their hands to war and their fingers to fight. Foremost among Abraham's trials was that of being called away to a land which he had never been; as this may be our trial also, I pray that my words may be adapted to our present condition.
 

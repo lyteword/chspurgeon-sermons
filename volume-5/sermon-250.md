@@ -1,7 +1,7 @@
 # Sermon 250 | War! War! War!
 
 > Fight the Lord's battles.    
-> 1 Samuel 18:17.    
+> 1 Samuel 18:17
 
 WE shall not take these words in their literal application, as coming from the lips of Saul, when he gave David his elder daughter, Merab, to wife; but shall accommodate the passage, and use it as an exhortation given to the church of Christ, and to every Soldier of Jesus: "Fight the Lord's battles." If this exhortation be not found in the selfsame words, coming from the lips of Jesus, nevertheless the whole tenor of the Word of God is to the same effect&mdash;"Fight the Lord's battles."
 

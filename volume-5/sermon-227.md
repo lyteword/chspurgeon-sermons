@@ -1,7 +1,7 @@
 # Sermon 227 | Compel Them to Come In
 
 > Compel them to come in.    
-> Luke 14:23.    
+> Luke 14:23
 
 I FEEL in such a haste to go out and obey this commandment this morning, by compelling those to come in who are now tarrying in the highways and hedges, that I cannot wait for an introduction, but must at once set about my business.
 

@@ -1,10 +1,10 @@
 # Sermon 255 | Justice Satisfied
 
 > Just, and the justifier of him which believeth in Jesus.    
-> Romans 3:26.    
+> Romans 3:26
 
 > Just to forgive us our sins, and to cleanse us from all unrighteousness.    
-> 1 John 1:9.    
+> 1 John 1:9
 
 WHEN THE SOUL is seriously impressed with the conviction of its guilt, when terror and alarm get hold upon it concerning the inevitable consequences of its sin, the soul is afraid of God. It dreads at that time every attribute of divinity. But most of all the sinner is afraid of God's justice. "Ah," saith he to himself, "God is a just God; and if so, how can he pardon my sins? for my iniquities cry aloud for punishment, and my transgressions demand that his right hand should smite me low. How can I be saved? Were God unjust, he might forgive: but, alas! he is not so, he is severely just. He layeth justice to the line, and righteousness to the plummet.' He is the judge of all the earth, and he must do right. How then can I escape from his righteous wrath which must be stirred up against me?" Let us be assured that the sinner is quite right in the conviction that there is here a great difficulty. The justice of God is in itself a great barrier to the salvation of sinners. There is no possibility for that barrier to be surmounted, nor even for it to be removed except by one means, which shall this day be proclaimed unto you through the gospel of Jesus Christ our Lord. It is true that God is just. Let old Sodom tell you how God rained fire and brimstone out of heaven upon man's iniquity. Let a drowning world tell you how God lifted the sluices of the fountains of the great deep, and bade the bubbling waters spring up and swallow up man alive. Let the earth tell you; for she opened her mouth when Korah, Dathan, and Abiram rebelled against God. Let the buried cities of Nineveh, and the tattered relics of Tyre and Sidon, tell you that God is just, and will by no means spare the guilty. And direst of all, let hell's bottomless lake declare what is the awful vengeance of God against the sins of man. Let the sighs, and groans, and moans, and shrieks of spirits condemned of God, rise in your ears, and bear witness that he is a God who will not spare the guilty, who will not wink at iniquity, transgression, and sin, but who will have vengeance upon every rebel, and will give justice its full satisfaction for every offence.
 

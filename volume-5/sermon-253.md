@@ -1,7 +1,7 @@
 # Sermon 253 | A Psalm of Remembrance
 
 > We have known and believed the love that God hath to us.    
-> 1 John 4:16.    
+> 1 John 4:16
 
 IT IS VERY pleasant to read descriptions of the Holy Land from observant travellers, who, in glowing language, have depicted its interesting scenes. I must confess, that all books which speak of the land where Jesus lived and died have an attraction for me; but how much more delightful must it be, to journey there one's-self, to stand on the very spot where Jesus preached and prayed, and to kneel upon that blood-stained garden of Gethsemane, in which he sweat that sacred sweat of blood. I can scarely imagine what must be the sensation of a true Christian, when he stands on Calvary, that spot of all others most dear to the believer's soul. All the descriptions that the traveller can possibly give, can never awaken the emotions which would be felt if we were really there ourselves. Now, this law of nature I would transfer to matters of grace. Let me tell you this day what I may concerning the acts of God's goodness in the souls of his people, my description will be dullness itself compared with the glorious reality. If God should lend me help, so that I could, in glowing pictures, pourtray the amazing love of Christ Jesus to those who believe in him; if I could tell you of their matchless experience, their divine drinkings at the fountain of life and bliss, their heavenly feastings in the banquetting-house, all this would be nothing, compared with what you would feel, if you yourself could taste, and handle, and see, and know, and believe.
 

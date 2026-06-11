@@ -1,7 +1,7 @@
 # Sermon 260 | An Earnest Invitation
 
 > Kiss the Son, lest he be angry, and ye perish from the way when his wrath is kindled but a little. Blessed are all they that put their trust in him.    
-> Psalm 2:12.    
+> Psalm 2:12
 
 IT WILL NOT BE NEEDFUL for me this morning to be controversial in my discourse; for but two Sabbaths ago I addressed you from that text, "The mighty God," and endeavored with the utmost of my ability to prove that Christ must be "very God of very God,"&mdash;co-equal and co-eternal with his Father. Without, then, attempting to prove that, let us drive onward towards the practical issue; for, after all, practice is the end of preaching; or, if ye will have it, I will put it into Herbert's words&mdash;
 

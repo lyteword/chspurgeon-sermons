@@ -1,7 +1,7 @@
 # Sermon 258 | His Name&mdash;the Mighty God
 
 > The mighty God.    
-> Isaiah 9:6.    
+> Isaiah 9:6
 
 OTHER TRANSLATIONS of this divine title have been proposed by several very eminent and able scholars. Not that they have any of them been prepared to deny that this translation is after all most accurate; but rather that whilst there are various words in the original, which we render by the common appellation of "GOD," it might be possible so to interpret this as to show more exactly its definite meaning. One writer, for example, thinks the term might be translate! "The Irradiator,"&mdash;he who gives light to men. Some think it bears the meaning of "The Illustrious,"&mdash;the bright and the shining one. Still there are very few, if any, who are prepared to dispute the fact that our translation is the most faithful that could possibly be given&mdash;the mighty God."
 

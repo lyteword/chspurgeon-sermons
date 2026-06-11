@@ -1,7 +1,7 @@
 # Sermon 284 | One Antidote for Many Ills
 
 > Turn us again, O Lord God of hosts, cause thy face to shine; and we shall be saved.    
-> Psalm 80:10.    
+> Psalm 80:10
 
 THIS SEEMS TO BE the only prayer the Psalmist puts up in this Psalm, as being of itself sufficient for the removal of all the ills over which he mourned. Though he sighs over the strife of neighbors and the ridicule of foes; and lamenting the ill condition of the goodly vine, he deplores its broken hedges, and complains of the wild beasts that waste and devour it, yet he does not petition the Most High against these evils in detail; but gathering up all his wishes into this one prayer, he reiterates it o'er and o'er&mdash;"Turn us again, O Lord God of hosts, cause thy face to shine; and we shall be saved." The reason is obvious. He had traced all the calamities to one source, "O Lord God, how long wilt thou be angry&mdash;?" And now he seeks refreshing from one fountain. Let thy face no longer frown, but let it beam upon us with a smile and all shall then be well. This is a select lesson for the church of Christ. "In your troubles, trials and adversities, seek first, chiefly, and above everything else, to have a revival of religion in your own breast, the presence of God in your own heart; having that, you have scarcely anything beside to pray for; whatever else may befal you shall work for your good, and all that seems to impede your course, shall really prove to be a prosperous gale, to waft you to your desired haven: only, take care that you seek of God that you yourselves are turned again unto him, and that he would give you the light of his countenance; so shall you be saved."
 

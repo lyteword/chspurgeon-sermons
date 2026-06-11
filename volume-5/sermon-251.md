@@ -1,7 +1,7 @@
 # Sermon 251 | The Necessity of the Spirit's Work
 
 > And I will put my Spirit within you.    
-> Ezekiel, 36:27.    
+> Ezekiel, 36:27
 
 The miracles of Christ are remarkable for one fact, namely that they are none of them unnecessary. The pretended miracles of Mahomet, and of the church of Rome, even if they had been miracles, would have been pieces of folly. Suppose that Saint Denis had walked with his head in his hand after it had been cut off, what practical purpose would have been subserved thereby? He would certainly have been quite as well in his grave, for any practical good he would have conferred on men. The miracles of Christ were never unnecessary. They are not freaks of power; they are displays of power it is true, but they all of them have a practical end. The same thing may be said of the promises of God. We have not one promise in the Scripture which may be regarded as a mere freak of grace. As every miracle was necessary, absolutely necessary, so is every promise that is given in the Word of God. And hence from the text that is before us, may I draw, and I think very conclusively, the argument, that if God in his covenant made with his people has promised to put his Spirit within them, it must be absolutely necessary that this promise should have been made, and it must be absolutely necessary also to our salvation that every one of us should receive the Spirit of God. This shall be the subject of this morning's discourse. I shall not hope to make it very interesting, except to those who are anxiously longing to know the way of salvation.
 

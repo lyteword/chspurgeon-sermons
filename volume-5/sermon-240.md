@@ -1,7 +1,7 @@
 # Sermon 240 | Prayer Answered, Love Nourished
 
 > I love the Lord, because he hath heard my voice and my supplication.    
-> Psalm 116:1.    
+> Psalm 116:1
 
 IN the Christian pilgrimage it is well for the most part to be looking forward. Whether it be for hope, for joy, for consolation, or for the inspiring of our love, the future after all must be the grand object of the eye of faith. Looking into the future we see sin cast out, the body of sin and death destroyed, the soul made perfect and fit to be a partaker of the inheritance of the saints in light. And looking further yet, the believer's soul can see Death's river passed, the gloomy steam forded; he can behold the hills of light on which standeth the celestial city; he seeth himself enter within the pearly gates, hailed as more than a conqueror&mdash;crowned by the hand of Christ, embraced in the arms of Jesus, glorified with him, made to sit together with him on his throne, even as he has overcome and has sat down with the Father upon his throne. The sight of the future may well relieve the darkness of the past, the hopes of the world to come may banish all the doubtings of the present. Hush, my fears! this world is but a narrow span, and thou shalt soon have passed it. Hush, hush, my doubts! death is but a narrow stream, and thou shalt soon have forded it. Time, how short&mdash;eternity, how long! Death, how brief&mdash;immortality, how endless!
 

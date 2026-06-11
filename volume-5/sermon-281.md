@@ -1,7 +1,7 @@
 # Sermon 281 | The Saviour's Many Crowns
 
 > On his head were many crowns.    
-> Revelation 19:12.    
+> Revelation 19:12
 
 AH, WELL YE KNOW what head this was, and ye have not forgotten its marvellous history. A head which once in infancy reclined upon the bosom of a woman! A head which was meekly bowed in obedience to a carpenter! A head which became in after years a fountain of water, and a reservoir of tears. A head which "sweat as it were great drops of blood falling to the ground!" A head which was spit upon, whose hair was plucked: A head which at the last in the grim agony of death, crowned with thorns, gave utterance to the terrible death-shriek&mdash;lama sabachthani! A head which afterwards slept in the grave; and&mdash;glory be unto him that liveth and was dead, but is alive for evermore&mdash;a head which afterwards rose again from the tomb, and looked with radiant eyes of love upon the holy women waiting at the sepulcher. This is the head whereof John speaks in the words of the text. Who would have thought that a head, the visage of which was more marred than that of any other man&mdash;a head which suffered more from the tempests of heavenward of earth than ever mortal brow before, should now be surrounded with these many diadems, these star-bestudded crowns!
 

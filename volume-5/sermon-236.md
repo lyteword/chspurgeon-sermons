@@ -1,7 +1,7 @@
 # Sermon 236 | The Shameful Sufferer
 
 > Who for the joy that was set before him endured the cross, despising the shame, and is now set down at the right hand of the throne of God.    
-> Hebrews 12:2.    
+> Hebrews 12:2
 
 OH what shall I do, my Saviour to praise?" Where shall language be found which shall describe his matchless, his unparalleled love towards the children of men. Upon any ordinary subject one may find liberty of speech and fullness of utterance, but this subject lies out of the line of all oratory, and eloquence cannot attain unto it. This is one of the unutterable things&mdash;unutterable, because it surpasses thought, and defies the power of words. How, then, can we deal with that which is unutterable? I am conscious that all I can say concerning the sufferings of Jesus, this morning, will be but as a drop of the bucket. None of us know the half of the agony which he endured; none of us have ever fully comprehended the love of Christ which passeth knowledge. Philosophers have probed the earth to its very center, threaded the spheres, measured the skies, weighed the hills&mdash;nay, weighed the world itself; but this is one of those vast, boundless things, which to measure doth surpass all but the Infinite itself. As the swallow but skimmeth the water, and diveth not into its depths, so all the descriptions of the preacher but skim the surface, while depths immeasurable must lie far beneath our observation. Well might a poet say
 

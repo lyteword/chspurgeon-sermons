@@ -1,7 +1,7 @@
 # Sermon 237 | Hypocrisy
 
 > Beware ye of the leaven of the Pharisees, which is hypocrisy.    
-> Luke 12:1.    
+> Luke 12:1
 
 This age is full of shams. Pretence never stood in so eminent a position as it does at the present hour. There be few, I fear, who love the naked truth; we can scarce endure it in our houses; you would scarcely trade with a man who absolutely stated it. If you walked through the streets of London, you might imagine that all the shops were built of marble, and that all the doors were made of mahogany and woods of the rarest kinds; and yet you soon discover that there is scarce a piece of any of these precious fabrics to be found anywhere, but that everything is grained, and painted, and varnished. I find no fault with this, except as it is an outward type of an inward evil that exists. As it is in our streets, so is it everywhere; graining, painting, and gilding, are at an enormous premium. Counterfeit has at length attained to such an eminence that it is with the utmost difficulty that you can detect it. The counterfeit so near approacheth to the genuine, that the eye of wisdom itself needs to be enlightened before she can discern the difference. Specially is this the case in religious matters. 
 
