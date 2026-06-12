@@ -98,7 +98,7 @@ He departed not from all the sins of Jeroboam, the son of Nebat, who made Israel
 
 12, 13. And the rest of the acts of Joash, and all that he did, and his might wherewith he fought against Amaziah, king of Judah, are they not written in the book of the chronicles of the kings of Israel? And Joash slept with his fathers; and Jeroboam sat upon his throne: and Joash was buried in Samaria with the kings of Israel. Now, here is a story about this Joash which is preserved to us.
 
-Now Elisha was fallen sick of his sickness of which he died. An old man, probably in his 90th year, he had served his generation well. We read nothing of him for 45 years. He seems to have been in comparative seclusion--perhaps in his old age he had been neglected and forgotten--as many a man of God has been who once stood in the front rank. El-isha has fallen mortally sick, at last, and he is about to go Home.
+Now Elisha was fallen sick of his sickness of which he died. An old man, probably in his ninetieth year, he had served his generation well. We read nothing of him for 45 years. He seems to have been in comparative seclusion--perhaps in his old age he had been neglected and forgotten--as many a man of God has been who once stood in the front rank. El-isha has fallen mortally sick, at last, and he is about to go Home.
 
 And Joash the king of Israel came down unto him. This is one good thing that Joash did. He remembered that it was through Elijah and Elisha that the men of his house, the house of Jehu, had been put upon the throne, and when he heard that Elisha was dying, something like compunction crossed his heart and he "came down unto him."
 

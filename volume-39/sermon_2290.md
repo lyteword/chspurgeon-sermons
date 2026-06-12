@@ -113,7 +113,7 @@ Now I am the blackbird that would start the praise tonight. There are birds of a
 
 EXPOSITION BY C. H. SPURGEON. ISAIAH53.
 
-Mr. Moody was once asked whether his creed was in print. In his own prompt way, he replied, "Yes, Sir. You will find it in the 53rd Chapter of Isaiah." A condensed Bible is in this chapter. You have the whole Gospel here.
+Mr. Moody was once asked whether his creed was in print. In his own prompt way, he replied, "Yes, Sir. You will find it in the fifty-third Chapter of Isaiah." A condensed Bible is in this chapter. You have the whole Gospel here.
 
 Verse 1. Who has believed our report? and to whom is the arm of the LORD revealed? Nobody ever does believe either Prophets or preachers except through the work of God's Spirit and Grace. The Lord's arm must be revealed, or else His Truth proclaimed by His servants will never be accepted. All the Prophets speak in these words of Isaiah, as if they all stood together, and lifted up this wail, "Who has believed our report? And to whom is the arm of the Lord revealed?"
 
