@@ -102,7 +102,7 @@ Verse 1. And you has He quickened. Is it so? Can anyone lay his hand on your sho
 
 4, 5. But God, who is rich in mercy, for His great love with which He loved us, even when we were deadin sins, has quickened us together with Christ, (by Grace you are saved). This is a wondrous Truth of God, that God loves the sinner even while he is dead in sin. This love is not caused by any goodness in him, for he is dead--he is wrapped up in the cerements of his sins. There is nothing lovable about him, yet God, "for His great love with which He loved us, even when we were dead in sins, has quickened us together with Christ."
 
-6-8. And has raised us up together, and made us sit together in heavenly places in Christ Jesus: that in the ages to come He might show the exceeding riches of His Grace and of kindness toward us through Christ Jesus. For by Grace are you saved through faith; and that not of yourselves: it is the gift of God. That great Truth was put in the 5th verse, in a parenthesis. Why did Paul write it twice? Because we cannot too often be reminded that we were saved by Grace. It is a
+6-8. And has raised us up together, and made us sit together in heavenly places in Christ Jesus: that in the ages to come He might show the exceeding riches of His Grace and of kindness toward us through Christ Jesus. For by Grace are you saved through faith; and that not of yourselves: it is the gift of God. That great Truth was put in the fifth verse, in a parenthesis. Why did Paul write it twice? Because we cannot too often be reminded that we were saved by Grace. It is a
 
 Truth which we so soon forget that we have need to have it rung in our ears as by a peal of bells, "By Grace are you saved, through faith; and that not of yourselves, it is the gift of God."
 
