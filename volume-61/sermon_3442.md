@@ -70,7 +70,7 @@ Then spole Haggai, the LORD'S messenger, the LORD'S message unto the people, say
 
 15. And the LORD stirred up the spirit of Zerubbabel, the son of Shealtiel, governor of Judah, and the spirit of
 
-Joshua, the son of Josedech, the high priest, and the spirit of all the remnant of the people; and they came and did worl on the house of the LORD ofHosts their God. In the four and twentieth day of the sixth month, in the second year of Darius the ling. Notice that date--the 24th day of the sixth month.
+Joshua, the son of Josedech, the high priest, and the spirit of all the remnant of the people; and they came and did worl on the house of the LORD ofHosts their God. In the four and twentieth day of the sixth month, in the second year of Darius the ling. Notice that date--the twenty-fourth day of the sixth month.
 
 HAGGAI2:1-9.
 
