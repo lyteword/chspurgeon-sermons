@@ -65,4 +65,4 @@ What! do you demur? Do you want for ever to go on in the old dead-and-alive way 
 
 My text has a main bearing upon the unconverted: I think of preaching from it this evening to those who are not agreed with God, and who cannot walk with him. I pray that they may be reconciled unto God by the death of his Son; and the most likely means to accomplish this, will be by your earnest and fervent prayers. O Lord, hear and answer for Jesus' sake. Amen.
 
-[Mr. Spurgeon's Sermon on "Baptismal Regeneration" has now reached the 180th thousand; it is felt to be important that it should be still more widely circulated, and friends are urged to make an earnest effort to scatter it far and wide.]
+[Mr. Spurgeon's Sermon on "Baptismal Regeneration" has now reached the one hundred and eightieth thousand; it is felt to be important that it should be still more widely circulated, and friends are urged to make an earnest effort to scatter it far and wide.]
