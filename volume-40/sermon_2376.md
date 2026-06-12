@@ -79,7 +79,7 @@ And sweats great drops of blood." After dwelling in the love of God from all ete
 
 and say that Jesus willed as God willed--and even prayed that the will of God, from which His Human Nature, at first, shrank, might be fulfilled. "Nevertheless not as I will, but as You will."
 
-O Brothers and Sisters--for you both need this Grace--pray God to help you to learn how to copy your Lord in total submission! Have you submitted to the Lord's will? Are you submitting now? Are not some of you like bullocks unaccustomed to the yoke? There is a text, you know, in the 131st Psalm, "My soul is even as a weaned child." I have sometimes thought that, for some of the Lord's children, the passage would have to be read, "My soul is even as a weaning child," and there are many of God's people who are very long in the weaning! You cannot get satisfaction, quiet and content, can you? Can you give yourself up entirely to God, that He may do whatever He likes with you?
+O Brothers and Sisters--for you both need this Grace--pray God to help you to learn how to copy your Lord in total submission! Have you submitted to the Lord's will? Are you submitting now? Are not some of you like bullocks unaccustomed to the yoke? There is a text, you know, in the one hundred and thirty-first Psalm, "My soul is even as a weaned child." I have sometimes thought that, for some of the Lord's children, the passage would have to be read, "My soul is even as a weaning child," and there are many of God's people who are very long in the weaning! You cannot get satisfaction, quiet and content, can you? Can you give yourself up entirely to God, that He may do whatever He likes with you?
 
 Have you some fear of a tumor, or a cancer? Is there before you the prospect of a painful and dangerous operation? Is business going badly with you, so that you will probably lose everything? Is a dear child sickening? Is the mother likely to be taken away? Will you have to lose your position and reputation if you are faithful to the Lord? Will you be exposed to cruel slanders? Will you probably be cast out of your employment if you do what is right? Come now, whatever you dread or expect, can you give yourself up wholly to God and say, "It is the Lord, let Him do what seem good to Him"? Your Lord and Master did--He said, "Not as I will." Oh, that He might teach you this Divine art of absolute resignation to the purpose and ordinance of God till you, also, would be able to say, "Not as I will"! Thus you will sing--
 
@@ -115,7 +115,7 @@ and if you will but breathe the penitent's prayer, "God be merciful to me, a sin
 
 EXPOSITION BY C. H. SPURGEON: John 17:15-26; Matthew26:36-46.
 
-We will read, this evening, a portion of two prayers offered by our Divine Lord and Master on that night in which He was betrayed. The first is that memorable intercessory prayer of His recorded in the 17th Chapter of the Gospel according to John.
+We will read, this evening, a portion of two prayers offered by our Divine Lord and Master on that night in which He was betrayed. The first is that memorable intercessory prayer of His recorded in the seventeenth Chapter of the Gospel according to John.
 
 John 17:15. I pray not that You should take them out of the world, but that You should keep them from the Evil One. Christ did not pray that His disciples should be taken out of the world. It is very seldom that we ought to present such a petition. If that had been a proper prayer for us to offer, it would have been authorized by the Master. There are times
 

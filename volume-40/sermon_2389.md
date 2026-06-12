@@ -42,7 +42,7 @@ But will God guide us? Well, it were in vain to choose Him if He would not! But 
 
 "The upward glancing of an eye," a sigh, an unexpressed desire and you have come to Him at once! And He has servants everywhere to do the bidding of His love when we have sought His help.
 
-The Psalmist was truly wise in saying to the Lord, "You shall guide me with Your counsel." Dear Friends, are you equally wise in that way? I see young men and women here in considerable numbers--will not each of you say, "Yes, Lord, it is even so. From this 4th day of October, my heart says to You, 'You shall guide me with Your counsel'"?
+The Psalmist was truly wise in saying to the Lord, "You shall guide me with Your counsel." Dear Friends, are you equally wise in that way? I see young men and women here in considerable numbers--will not each of you say, "Yes, Lord, it is even so. From this fourth day of October, my heart says to You, 'You shall guide me with Your counsel'"?
 
 Now I must pass on to my third point, only skimming the surface of the subject. Think of THE HEAVENLY COMMERCE WHICH NOW BEGINS BETWEEN THE SOUL AND ITS GUIDE.
 

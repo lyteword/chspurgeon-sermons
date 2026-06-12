@@ -119,7 +119,7 @@ Remember that verse of Joseph Hart's which we have often sung, and as I repeat i
 
 EXPOSITION BY C. H. SPURGEON: Psalm123,124.125.
 
-We shall read, this evening, three short Psalms--the 123rd , 124th and 125th . May the Holy Spirit, who Inspired the writers of them, strengthen our faith while we read these songs of joyous confidence!
+We shall read, this evening, three short Psalms--the one hundred and twenty-third , one hundred and twenty-fourth and one hundred and twenty-fifth . May the Holy Spirit, who Inspired the writers of them, strengthen our faith while we read these songs of joyous confidence!
 
 Psalm 123:1. Unto You lift I up my eyes. Instead of looking downward in despair, or looking to the right hand or to the left to human confidence, or looking within in pride, "Unto You lift I up my eyes."--
 
