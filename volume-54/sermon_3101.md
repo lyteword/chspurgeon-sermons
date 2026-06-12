@@ -116,7 +116,7 @@ For You had cast me into the deep, in the midst of the seas. The word Jonah used
 
 And the floods compassed me about "They rolled all over me, beneath me, above me, around me. 'The floods compassed me about.'"
 
-All Your billows and Your waves passed over me. Jonah had evidently read his Bible. At least he had read the 42nd Psalm, for he quotes it here. It is a blessed thing to have the Bible in your mind and heart so that wherever you may be, you do not need to turn to the Book because you have the Book inside you! Here is a man inside a fish with a Book inside of him--and it was the Book inside of him that brought him out from the fish again!
+All Your billows and Your waves passed over me. Jonah had evidently read his Bible. At least he had read the forty-second Psalm, for he quotes it here. It is a blessed thing to have the Bible in your mind and heart so that wherever you may be, you do not need to turn to the Book because you have the Book inside you! Here is a man inside a fish with a Book inside of him--and it was the Book inside of him that brought him out from the fish again!
 
 Then I said, I am cast out of Your sight; yet I will look again toward Your holy Temple. What grand faith Job displayed when he said, "Though He slay me, yet will I trust in Him." And here is another splendid manifestation of faith, "'I said, I am cast out of Your sight; yet I will look again toward Your holy Temple.' If God does not look at me, I will still look towards the place where He dwells. As I am being flung away from Him, I will give one more look towards His holy Temple."
 
