@@ -72,4 +72,4 @@ In this confidence let us possess our souls. Our lives, our cares, our trials, o
 
 Yours in the ever-remembering Father,
 
-H. SPURGEON. Mentone, February 1st.
+H. SPURGEON. Mentone, February first.
