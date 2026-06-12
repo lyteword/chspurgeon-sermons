@@ -94,7 +94,7 @@ one." They are of one nature and they have one destiny before them.
 
 For which cause He is not ashamed to call them brethren. Does not this bring very sweetly before you the close relationship of Christ to His people? He has espoused their nature and He acknowledges it by calling then brethren!
 
-Saying, I will declare Your name unto My brethren, in the midst of Your church will I sing praise unto You. The Apostle was writing to Hebrews and, therefore, he quoted from the books with which they were familiar. He here quotes the 22nd Psalm as the words of the Messiah.
+Saying, I will declare Your name unto My brethren, in the midst of Your church will I sing praise unto You. The Apostle was writing to Hebrews and, therefore, he quoted from the books with which they were familiar. He here quotes the twenty-second Psalm as the words of the Messiah.
 
 And again, I will put My trust in Him. And again, Behold Iand the children which God has given Me. There are some passages which we should never have thought related to the Messiah if the New Testament had not told us that they do. Hence I have no doubt that we much more often err in not seeing Christ in the Old Testament than in seeing Him there, for there may be many other passages besides these which are supposed to speak of Christ which do speak of Him.
 

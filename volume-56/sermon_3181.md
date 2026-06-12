@@ -108,7 +108,7 @@ And the servants and officers stood there, who had made a fire of coals, for it 
 
 If I have spoken evil, bear witness of the evil: but if well, why did you strike Me?Let us pray that whenever we are despitefully treated, we may keep our temper and be as composed as our Lord was. And if we must make an answer to our accusers, let it be as discreet and as justifiable as this answer of our Lord's.
 
-24, 25. Now Annas had Him sent bound to Caiaphas the high priest. And Simon Peter stood and warmed himself John thus resumes the narrative concerning Peter from the 17th verse--"Simon Peter stood and warmed himself."
+24, 25. Now Annas had Him sent bound to Caiaphas the high priest. And Simon Peter stood and warmed himself John thus resumes the narrative concerning Peter from the seventeenth verse--"Simon Peter stood and warmed himself."
 
 They said, therefore, to him. Two or three or more of them speaking at a time said to him--
 
