@@ -88,7 +88,7 @@ Every branch in Me that bears not fruit He takes away. This operation is always 
 
 And every branch that bears fruit, He purges it, that it may bring forth more fruit. Is this, then, dear Friend, one reason why you are being chastened--because you are a fruit-bearing branch? If you bore no fruit, you would be left unpruned because the knife would do its sterner work upon you by taking you altogether away. If you really do bring forth fruit to God, you must expect to have trial, trouble, affliction--and that full often.
 
-Now you are clean through the word which I have spoken unto you. That was a "word" which had sorely grieved them and cut them to the quick, so that the Savior had to say to them, more than once, "Let not your heart be troubled." (See the 1st, and the 27th , verses of the preceding chapter). They had felt the sharp edge of the pruning-knife, so Jesus said to them, "Now you are clean (purged or pruned) through the word which I have spoken unto you."
+Now you are clean through the word which I have spoken unto you. That was a "word" which had sorely grieved them and cut them to the quick, so that the Savior had to say to them, more than once, "Let not your heart be troubled." (See the first, and the twenty-seventh , verses of the preceding chapter). They had felt the sharp edge of the pruning-knife, so Jesus said to them, "Now you are clean (purged or pruned) through the word which I have spoken unto you."
 
 Abide in Me, and I in you. The main thing is not restless activity, running here and there, and doing this and that, and the other thing--it is abiding in Christ, persevering, constantly cleaving to Christ by virtue of a vital union with Him--"Abide in Me, and I in you."
 
