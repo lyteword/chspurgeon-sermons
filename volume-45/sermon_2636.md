@@ -72,7 +72,7 @@ Let me earnestly entreat you not to be looking out for some larger possible hope
 
 EXPOSITION BY C. H. SPURGEON: PSALMS 20,21.
 
-The 20th Psalm is a prayer for the King--not only for David or Solomon, but for "great David's greater Son"--the true King of the Church. As if the Church saw Jesus going forth to His work, she offers up a prayer for Him.
+The twentieth Psalm is a prayer for the King--not only for David or Solomon, but for "great David's greater Son"--the true King of the Church. As if the Church saw Jesus going forth to His work, she offers up a prayer for Him.
 
 Psalm 20:1. The LORD hear you in the day of trouble; the name of the God of Jacob defend you. And so it came to pass, in that dread night in Gethsemane, Jesus "was heard in that He feared." The God of wrestling Jacob heard the cries of His dear Son and defended Him, or supported Him, as it is in the marginal reading.
 
@@ -86,7 +86,7 @@ Grant you according to your own heart, and fulfill all your counsel. Is it not w
 
 We will rejoice in your salvation. Come, Brothers and Sisters, let us make this verse true! And even if we have anything to sigh over, let us lay it aside while we now devote ourselves to the happy work of rejoicing in the glorious salvation of our Lord and King!
 
-5-9. And in the name of our God we will set up our banners: the LORD fulfill all your petitions. Now know I that the LORD saves His anointed; He will hear him from His holy Heaven, with the saving strength of His right hand. Some trust in chariots, and some in horses: but we willremember the name of the LORD our God. They are brought down and fallen: but we are risen and stand upright. Save, LORD: let the king hear us when we call What a blessing it is that our King hears us when we call upon Him! He is full of sympathy with all His people, for, in the time of His sojourn on earth, He often knew what it was to plead with His Father. And as God heard Him, then, so does He, Himself, hear us. All glory be to His blessed name! The 21st Psalm views the King as having ended his battle and achieved his victory.
+5-9. And in the name of our God we will set up our banners: the LORD fulfill all your petitions. Now know I that the LORD saves His anointed; He will hear him from His holy Heaven, with the saving strength of His right hand. Some trust in chariots, and some in horses: but we willremember the name of the LORD our God. They are brought down and fallen: but we are risen and stand upright. Save, LORD: let the king hear us when we call What a blessing it is that our King hears us when we call upon Him! He is full of sympathy with all His people, for, in the time of His sojourn on earth, He often knew what it was to plead with His Father. And as God heard Him, then, so does He, Himself, hear us. All glory be to His blessed name! The twenty-first Psalm views the King as having ended his battle and achieved his victory.
 
 Psalm 21:1, 2. The king shall joy in Your strength, O LORD; andin Your salvation how greatly shall he rejoice! You have given him his heart's desire, and have not withheld the request of his lips. Selah God gave to Jesus the strength needed to accomplish the work which He came to do and He is daily giving Him to see of the travail of His soul that He may be satisfied.
 

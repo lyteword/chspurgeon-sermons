@@ -90,7 +90,7 @@ With their tongues they have used deceit; the poison of asps is under their lips
 
 16-19. Destruction and misery are in their ways: and the way of peace have they not known: there is no fear of God before their eyes. Now we know that whatever the Law says, it says to them who are under the Law. All these passages, which Paul has put together in this dreadful mosaic, are taken from the Old Testament, so they apply to the Jews. And he had already proven, in the first Chapter, the intolerable vice of the Gentiles, so that now he has shown that both Jews and Gentiles are guilty.
 
-That every mouth may be stopped, and all the world may become guilty before God. The 19th Century world, as well as the world of the 1st Century--all the world, in all time, has "become guilty before God."
+That every mouth may be stopped, and all the world may become guilty before God. The nineteenth Century world, as well as the world of the first Century--all the world, in all time, has "become guilty before God."
 
 Therefore by the deeds of the Law there shallno flesh be justified in His sight. Talk not, therefore, of righteousness by your own works! Dream not of meriting eternal life by any attempt to keep the Law of God, for this is the declaration of God's Holy Spirit, "By the deeds of the Law there shall no flesh be justified in His sight."
 
