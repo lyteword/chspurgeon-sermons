@@ -67,6 +67,6 @@ PORTION OF SCRIPTURE READ BEFORE SERMON--Romans 12.
 
 HYMNS FROM "OUR OWN HYMN BOOK."--30, 981, 978.
 
-GIRLS' ORPHANAGE.--We have purchased "The Hawthorns," near the Boys' Orphanage, for £4,000, in order to commence an institution for fatherless girls. We earnestly desire to pay the money when it is due, namely, on the 15th of July next. This will need not only liberal help, but help given speedily, for the time is very limited. Up to this moment, in all our movements, we have paid our way with ready money, and it would rejoice our heart if we should be enabled to do so now. About £1,200 has been given or promised.
+GIRLS' ORPHANAGE.--We have purchased "The Hawthorns," near the Boys' Orphanage, for £4,000, in order to commence an institution for fatherless girls. We earnestly desire to pay the money when it is due, namely, on the fifteenth of July next. This will need not only liberal help, but help given speedily, for the time is very limited. Up to this moment, in all our movements, we have paid our way with ready money, and it would rejoice our heart if we should be enabled to do so now. About £1,200 has been given or promised.
 
 H. Spurgeon.

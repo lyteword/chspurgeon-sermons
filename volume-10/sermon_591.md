@@ -65,6 +65,6 @@ The following sermons contain Mr. Spurgeon's views upon the Question now under c
 
 
 
-TWO LETTERS from C. H. SPURGEON--one to the Evangelical Alliance, signifying his withdrawal from that Association; and another to The Christian Public, proving that his accusations against the Evangelical Clergy are neither novel nor singular.--25th Thousand.
+TWO LETTERS from C. H. SPURGEON--one to the Evangelical Alliance, signifying his withdrawal from that Association; and another to The Christian Public, proving that his accusations against the Evangelical Clergy are neither novel nor singular.--twenty-fifth Thousand.
 
 One Penny each. The five post free for six stamps.

@@ -108,7 +108,7 @@ Hear my voice--So the Psalmist used to pray aloud! It is a very great help in pr
 
 According to Your loving kindness. That is, do not hear it to judge it, to censure it, to criticize it, but hear it as a father hears his child, loving to hear its little voice speaking in broken accents.
 
-O LORD, quicken me according to Your judgment. Just now, the Psalmist prayed, "Hear me, O Lord!" In the 146th verse, He cried, "Save me." Now his prayer is, "O Lord, quicken me!" When God puts more life into us, then we have more strength to bear our burdens and, having more spiritual life, we have more power to resist temptation! Quickening is an essential mercy, containing within itself a multitude of blessings. "Quicken me according to Your judgment."
+O LORD, quicken me according to Your judgment. Just now, the Psalmist prayed, "Hear me, O Lord!" In the one hundred and forty-sixth verse, He cried, "Save me." Now his prayer is, "O Lord, quicken me!" When God puts more life into us, then we have more strength to bear our burdens and, having more spiritual life, we have more power to resist temptation! Quickening is an essential mercy, containing within itself a multitude of blessings. "Quicken me according to Your judgment."
 
 They draw near that follow after mischief. He could hear the sound of their feet behind him--they were running after him and he could detect the pitter-patter of their malicious footsteps.
 

@@ -86,7 +86,7 @@ And the children of Israel said unto them, Would to God we had died by the hands
 
 Then said the LORD unto Moses, Behold, I will rain bread from Heaven for you; and the people shall go out and gather a certain quota every day, that I may prove them, whether they will walk in My Law, or no. See God's answer to man's murmuring? They send up their complaint and He promises to rain bread down from above! It is a blessed story on God's part all along--a rain of mercy for a smoke of complaining.
 
-And it shall come to pass, that on the sixth day they shall prepare that which they bring in; and it shall be twice as much as they gather daily. Now let us read at the 11th verse.
+And it shall come to pass, that on the sixth day they shall prepare that which they bring in; and it shall be twice as much as they gather daily. Now let us read at the eleventh verse.
 
 11, 12. And the LORD spoke unto Moses, saying, I have heard the murmurings of the children of Israel. "I have heard them." God always hears. Oh, His wonderful patience! If He took no notice of the murmurers, or punished them for their wickedness, we would have no cause for wonder, but He is long-suffering, even to those who do not deserve His pity.
 

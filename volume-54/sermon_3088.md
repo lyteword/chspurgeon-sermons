@@ -84,11 +84,11 @@ This Psalm so sweetly and so accurately pictures the inward griefs of our Divine
 
 written after the Crucifixion rather than so many hundreds of years before it. I call your attention to the fact that this
 
-Psalm is followed by the 23rd, which begins, "The Lord is my Shepherd; I shall not want," to remind you that you and I
+Psalm is followed by the twenty-third, which begins, "The Lord is my Shepherd; I shall not want," to remind you that you and I
 
-would never have had that sweet 23rd Psalm to sing if our Divine Shepherd had not been made, with groans and tears, to
+would never have had that sweet twenty-third Psalm to sing if our Divine Shepherd had not been made, with groans and tears, to
 
-weep out the 22nd Psalm, which begins with our Savior's saddest cry from the Cross. [See Sermons #2133, Volume 36--"my god, my GOD, WHY HAVE YOU FORSAKEN ME?"; #2562, Volume 44--CRIES FROM THE CROSS and #2803, Volume 48--THE SADDEST CRY FROM THE CROSS]
+weep out the twenty-second Psalm, which begins with our Savior's saddest cry from the Cross. [See Sermons #2133, Volume 36--"my god, my GOD, WHY HAVE YOU FORSAKEN ME?"; #2562, Volume 44--CRIES FROM THE CROSS and #2803, Volume 48--THE SADDEST CRY FROM THE CROSS]
 
 My God, My God! Why have You forsaken Me?Every word here is emphatic. Take the first two words "My God, My God. "These reveal our Savior's claim upon God as His God. Why have You forsaken Me? I can understand that others should leave Me, but why have You done so?" Then lay the stress upon the last word--"'Why have You forsaken Me--Your only-begotten Son, your ever-obedient Son, your well-beloved Son?"
 

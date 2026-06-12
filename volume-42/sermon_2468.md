@@ -110,7 +110,7 @@ The LORD is good to them that wait for Him, to the soul that seeks Him. Even tho
 
 28-31. He sits alone and keeps silent, because He has borne it upon him. He puts his mouth in the dust; if so there may be hope. He gives his cheek to him that smites him: he is filled full with reproach. For the Lord will not cast offforever. What music there is in that line! He may put you away for a while and seem to leave you, but, "the Lord will not cast off forever." God may seem to put us away from Him, but it is written, "He hates putting away "There is no divorce between Christ and the soul that is once espoused to Him! Their separation shall not be perpetual, for nothing shall be able to separate us from the love of God which is in Christ Jesus our Lord.
 
-32, 33. But though He causes grief, yet will He have compassion according to the multitude of His mercies. For He does not afflict willingly nor grieve the children of men. Now notice, in the 55th verse, what came to the Prophet after all this sorrow--
+32, 33. But though He causes grief, yet will He have compassion according to the multitude of His mercies. For He does not afflict willingly nor grieve the children of men. Now notice, in the fifty-fifth verse, what came to the Prophet after all this sorrow--
 
 55, 56. I called upon Your name, O LORD, out of the low dungeon. You have heard my voice: hide not Your ear at my breathing, at my cry. Sometimes our prayers get to be so very weak that they are only a breathing. Yet we must never forget that "Prayer is the breath of God in men, returning from where it came." And "Praying breath is never spent in vain."
 

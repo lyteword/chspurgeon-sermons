@@ -85,7 +85,7 @@ Thus have I tried to preach repentance and remission of sins in Christ's name to
 
 EXPOSITION BY C. H. SPURGEON: ACTS2:36-47.
 
-You know that Peter had been preaching a plain, simple, straightforward sermon upon the death, Crucifixion and Resurrection of our Lord Jesus Christ. He who was once such a coward that he trembled before a little maid, now that he is filled with the Spirit, boldly charges this crowd with being murderers and Deicides because their kind put to death the Lord of Life and Glory! If you turn to the 36th verse, you will see the effect of Peter's plain preaching through the power of the Holy Spirit--
+You know that Peter had been preaching a plain, simple, straightforward sermon upon the death, Crucifixion and Resurrection of our Lord Jesus Christ. He who was once such a coward that he trembled before a little maid, now that he is filled with the Spirit, boldly charges this crowd with being murderers and Deicides because their kind put to death the Lord of Life and Glory! If you turn to the thirty-sixth verse, you will see the effect of Peter's plain preaching through the power of the Holy Spirit--
 
 36, 37. Therefore let all the house of Israel know assuredly, that God has made that same Jesus, whom you have crucified, both Lord and Christ Now when they heard this, they were pricked in their heart [See Sermon #2102, Volume 35--"pricked
 

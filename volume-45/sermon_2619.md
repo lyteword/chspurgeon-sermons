@@ -106,7 +106,7 @@ For to the angels He has not put in subjection the world to come, of which we sp
 
 10, 11. For it became Him, for whom are all things, and by whom are all things, in bringing many sons to Glory, to make the Captain of their salvation perfect through sufferings. For both He that sanctifies and they who are sanctified are all of one: for which cause He is not ashamed to call them brethren. The Christ and the Christian are one--the Man, Christ Jesus, and the men whom He redefined are one! He has so become partaker of our nature that now we are one family and He is not ashamed to call us brothers and sisters. Am I addressing any who are ashamed of Christ, or who are ashamed of God's poor people, and who would not like to be known to be members of a poor Church? Ah, how you ought to be ashamed of yourselvesfor having any such pride in your hearts, for Christ is not ashamed to call His people brethren! Oh, what wondrous condescension! He has done this many times in the Psalms where He speaks of His brethren.
 
-Saying, I will declare Your name to My brethren, in the midst of the church will I sing praise to You. That is a quotation from the 22nd Psalm.
+Saying, I will declare Your name to My brethren, in the midst of the church will I sing praise to You. That is a quotation from the twenty-second Psalm.
 
 And again, I will put My trust in Him. Thus entering into the very faith of His people!
 

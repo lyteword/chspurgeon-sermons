@@ -70,7 +70,7 @@ The next morning he was found quiet and subdued--and during all the term of his 
 
 EXPOSITION BY C. H. SPURGEON: GENESIS 12:1-7; 14:17-24; 22:15-18.
 
-We will read two or three passages in the Book of Genesis concerning God blessing His servant Abraham. Turn first to the 12th chapter.
+We will read two or three passages in the Book of Genesis concerning God blessing His servant Abraham. Turn first to the twelfth chapter.
 
 Chapter 12, verse 1. Now thee lord had said unto Abram, Get you out of your country, and from your kindred, and from your father's house, unto a land that I will show you. It was God's intention to keep His Truth and His pure worship alive in the world by committing it to the charge of one man and the nation that should spring from him. In the Infinite Sovereignty of His Grace, He chose Abraham--passing by all the rest of mankind--and elected him to be the depository of the heavenly Light of God, that through him it might be preserved in the world until the days when it should be more widely scattered. It seemed essential to this end that Abraham should come right out from his fellow countrymen and be separate unto Jehovah, so the Lord said to him, "Get you out of your country, and from your kindred, and from your father's house, unto a land that I will show you."
 
@@ -92,7 +92,7 @@ And the king of Sodom said unto Abram, give me the persons, and take the goods t
 
 Save only that which the young men have eaten, and the portion of the men which went with me, Aner, Eshcol, and Mamre; let them take their portion. ' 'Though I am willing to give up my share of the spoil, that is no reason why these men should do the same." Christian men ought not to expect worldlings to do what they cheerfully and willingly do, themselves and, indeed, it is not much use to expect it, for they are not likely to do it!
 
-Now let us read in the 22nd Chapter of this same Book of Genesis. Abraham had endured the supreme test of his faith and had, in full intent, offered up his son Isaac at the command of God, his hand being withheld from the actual sacrifice only by an angelic voice.
+Now let us read in the twenty-second Chapter of this same Book of Genesis. Abraham had endured the supreme test of his faith and had, in full intent, offered up his son Isaac at the command of God, his hand being withheld from the actual sacrifice only by an angelic voice.
 
 Genesis 22:15-17. And the Angel of the Lord called unto Abraham out of Heaven the second time, and said, By Myself have I sworn, says the Lord, for because you have done this thing, and have not withheld your son, your only son: that in blessing I will bless you. "Whenever I am engaged in blessing, I will bless you. I will not pronounce a benediction in the which you shall not share--'In blessing I will bless you.'"
 

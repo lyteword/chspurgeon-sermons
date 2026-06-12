@@ -94,7 +94,7 @@ But the builder in the parable had not, and so he perished. The foolish builder 
 
 Thirdly, we will now gather from our text A SET OF ARGUMENTS URGING US TO TAKE CARE OF THE
 
-FOUNDATION. I will glance over these arguments, wishing much that I had time to enforce them. The first is this. We ought to build with a good foundation at the beginning, because otherwise we shall not build well in any other part of the house. Bad work in the foundation influences all the rest of the courses. In the Revised Version, at the end of the 48th
+FOUNDATION. I will glance over these arguments, wishing much that I had time to enforce them. The first is this. We ought to build with a good foundation at the beginning, because otherwise we shall not build well in any other part of the house. Bad work in the foundation influences all the rest of the courses. In the Revised Version, at the end of the forty-eighth
 
 verse, instead of, "For it was founded upon a rock," we read, "Because it had been well built." The house was built well at the bottom and that led the workman to put in good work all the way up, so that all through, "it had been well
 

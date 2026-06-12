@@ -84,7 +84,7 @@ As for you dear Souls who have never received the Living Seed, oh, that you woul
 
 EXPOSITION BY C. H. SPURGEON: PSALM106.
 
-This is one of the "Songs of Degrees." They are supposed to have been sung as the pilgrim caravan was going up to the Temple at Jerusalem. Every time they halted and pitched their tents, they sang a Psalm. If carefully read, it will be found that these Psalms exhibit a real advance in experience. For instance, the keynote of the 125th is stability, while that of the 126th is joy, and especially joyful hope. Each one appears to advance a stage higher than the one that precedes it.
+This is one of the "Songs of Degrees." They are supposed to have been sung as the pilgrim caravan was going up to the Temple at Jerusalem. Every time they halted and pitched their tents, they sang a Psalm. If carefully read, it will be found that these Psalms exhibit a real advance in experience. For instance, the keynote of the one hundred and twenty-fifth is stability, while that of the one hundred and twenty-sixth is joy, and especially joyful hope. Each one appears to advance a stage higher than the one that precedes it.
 
 Verse 1. When the LORD turned again the captivity of Zion, we were like they that dream. ' 'It seemed too good to be true. We were in a delirium ofjoy. 'We were like they that dream.' Our slumber had been profound--we thought that God had altogether forgotten us--but when we found that He was coming to our rescue, 'we were like they that dream.'"
 

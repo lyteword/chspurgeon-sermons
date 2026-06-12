@@ -110,7 +110,7 @@ man, the people must listen to him! Jerusalem must pour her thousands out of her
 
 And Jesus answering, said unto him, Suffer it to be so now, for thus it become us to fulfill all righteousness. Nothing that appertains to righteousness must be neglected--the little as well as the great must be observed!
 
-15-17. Then he allowed Him. And Jesus, when He was baptized, went up immediately out of the water: and lo, the heavens were opened unto Him, and He saw the Spirit of God descending like a dove, and lighting upon Him: and lo a Voice from Heaven saying, This is My Beloved Son, in whom I am well pleased. This doctrine of repentance was preached by the Master as well as by the servant. Turn to the 11th Chapter of Matthew's Gospel and let us read a few verses, beginning at the 20th .
+15-17. Then he allowed Him. And Jesus, when He was baptized, went up immediately out of the water: and lo, the heavens were opened unto Him, and He saw the Spirit of God descending like a dove, and lighting upon Him: and lo a Voice from Heaven saying, This is My Beloved Son, in whom I am well pleased. This doctrine of repentance was preached by the Master as well as by the servant. Turn to the eleventh Chapter of Matthew's Gospel and let us read a few verses, beginning at the twentieth .
 
 Matthew 11:20. Then began He to upbraid the cities wherein most of His mighty works were done, because they repented not. They listened. Sometimes, they applauded. But they repented not and there is nothing really accomplished until men have repented. In vain have we preached until men are brought to repent! So the Master said--
 

@@ -114,4 +114,4 @@ I am, your weekly visitor,
 
 H. SPURGEON.
 
-Mentone, Jan 1st, 1889.
+Mentone, Jan first, 1889.

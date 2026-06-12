@@ -86,4 +86,4 @@ That I may praise Your name. As soon as you are set at liberty, you ought at onc
 
 The righteous shall compass me about This is a beautiful idea. It seems to imply that they would be so astonished to find him at liberty that they would all come round him to hear his story! They would be so glad to see the mourner rejoicing that they would all begin to enquire what God had done for his soul.
 
-For you shall deal bountifully with me. In the 13th Psalm, David said, "I will sing unto the Lord because He has dealt bountifully with me." But here he looks into the future and sings, "You shalldeal bountifully with me."
+For you shall deal bountifully with me. In the thirteenth Psalm, David said, "I will sing unto the Lord because He has dealt bountifully with me." But here he looks into the future and sings, "You shalldeal bountifully with me."

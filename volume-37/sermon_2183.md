@@ -21,7 +21,7 @@ Now, I would to God that the word which I shall speak at this time might be hono
 
 Oh, that our life may be as a sea of glass! May the sacred circle of our fellowship be within the golden line of the peace of God! You who did bid us come to You and rest, now bid us, "go in peace."
 
-I am going to say a little in my opening upon a delightful assurance which constituted the reason why the woman went in peace--"Your faith has saved you;" or, as in the 48th verse, "Your sins are forgiven you." Upon the strength of the assurance that she was saved, she might safely go in peace! When we have talked a little upon that subject, we will then come to a considerate precept--the Savior directed her, in the moment of trial, to, "go in peace." There was an assurance for her comfort and a precept for her guidance.
+I am going to say a little in my opening upon a delightful assurance which constituted the reason why the woman went in peace--"Your faith has saved you;" or, as in the forty-eighth verse, "Your sins are forgiven you." Upon the strength of the assurance that she was saved, she might safely go in peace! When we have talked a little upon that subject, we will then come to a considerate precept--the Savior directed her, in the moment of trial, to, "go in peace." There was an assurance for her comfort and a precept for her guidance.
 
 First, then, consider A DELIGHTFUL ASSURANCE. The ground upon which the penitent woman might go in peace was that she had been saved. The Savior assured her--"Your faith has saved you."
 

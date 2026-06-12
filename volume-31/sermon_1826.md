@@ -69,4 +69,4 @@ My heart is with the Special Services at the Tabernacle; for which I beg every r
 
 H. Spurgeon
 
-Mentone, February 21st, 1885.
+Mentone, February twenty-first, 1885.

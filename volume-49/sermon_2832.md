@@ -110,7 +110,7 @@ Or which of My creditors is it to whom I have sold you? Behold, for your iniquit
 
 The Lord GOD has given Me the tongue of the learned, that Ishould know how to speak a word in season to him who is weary: He wakens Me morning by morning, He wakens My ears to hear as the learned. Just as scholars learn from their teacher. It was a wondrous stoop for the Omnipotent to become a Learner, but He descended lower than that.
 
-The Lord GOD has opened My ears and I was not rebellious, neither turned back This was another step in the ladder of Christ's humiliation, but He went lower still! Read the 3rd verse, again, and then read the 6th . "I clothe the heavens with blackness and I make sackcloth their covering."
+The Lord GOD has opened My ears and I was not rebellious, neither turned back This was another step in the ladder of Christ's humiliation, but He went lower still! Read the third verse, again, and then read the sixth . "I clothe the heavens with blackness and I make sackcloth their covering."
 
 7. I gave My back to the smiters, and My cheeks to them that plucked off the hair: I hid not My face from shame and spitting. For the Lord GOD will help Me, therefore shall I not be confounded, therefore have I set My face like a flint, and I know that I shall not be ashamed. Even though He had to stoop so low as to endure shame and spitting, He
 

@@ -8,7 +8,7 @@ Incessant labour has so completely wearied me, that I am compelled to retire for
 
 I shall hope to write a few lines to you, which will be appended to my weekly sermon, that the links of our communion may not be broken, and that I may have the opportunity of begging your daily prayers. The Lord bless you and preserve you until the day of His appearing.
 
-I am, yours in Jesus, Clapham, Monday, June 4th, 1860
+I am, yours in Jesus, Clapham, Monday, June fourth, 1860
 
 H. Spurgeon.
 

@@ -74,7 +74,7 @@ This is not a temporary remedy--it is a medicine which, when it once gets into t
 
 EXPOSITION BY C. H. SPURGEON: ISAIAH53.
 
-We will read, this evening, the 53rd Chapter of "the Gospel according to Isaiah," as we may very properly call it.
+We will read, this evening, the fifty-third Chapter of "the Gospel according to Isaiah," as we may very properly call it.
 
 Verse 1. Who has believed our report? All the Prophets reported that which had been revealed to them concerning Christ. They testified what they knew with regard to Jesus of Nazareth, the suffering Savior. Yet how few, comparatively, of the Jewish people--how few, indeed, of anypeople, compared with the great mass of mankind--accepted their testimony and believed their report? No blessing can come through that report if it is not believed. And this is the sorrow of the Lord's servants in every age--that so many refuse to believe it. "Who has believed our report?"
 

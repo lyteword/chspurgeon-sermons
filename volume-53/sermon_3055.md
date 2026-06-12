@@ -129,7 +129,7 @@ Lose all their guilty stains"-- and let all who can sing it from the heart join 
 
 EXPOSITION BY C. H. SPURGEON: PSALM 73.
 
-You may have noticed that the 73rd Psalm and the 37th Psalm are on the same subject. It will help you to recall this fact if you remember that the figures are the same, only reversed.
+You may have noticed that the seventy-third Psalm and the thirty-seventh Psalm are on the same subject. It will help you to recall this fact if you remember that the figures are the same, only reversed.
 
 Verse 1. Truly God is good to Israel Settle that matter in your hearts. Whatever doubts may distress or disturb your mind, fix this point as certain-- "Truly God is good to Israel."
 

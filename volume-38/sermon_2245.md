@@ -4,7 +4,7 @@
 
 BEFORE the funeral, at Norwood Cemetery, of the late Mr. William Olney, senior deacon of the Church at the Metropolitan Tabernacle, a service was held in the Tabernacle. The building was crowded with sympathizing friends who came to testify the affection they bore to the beloved deacon who had been so suddenly called from their midst. The senior Pastor presided. The hymn, "They are gathering homeward one by one," was sung, and Pastor James A. Spurgeon offered prayer.
 
-The hymn "Why do we mourn departing friends?" followed, and C.H. Spurgeon then read and expounded 1 Corinthians 15. The Reverend Burman Cassin, Rector of St. George's, Southwark, briefly engaged in prayer, and the assembly sang the 34th Psalm, in the version beginning--
+The hymn "Why do we mourn departing friends?" followed, and C.H. Spurgeon then read and expounded 1 Corinthians 15. The Reverend Burman Cassin, Rector of St. George's, Southwark, briefly engaged in prayer, and the assembly sang the thirty-fourth Psalm, in the version beginning--
 
 > Through all the changing scenes of life,   
 > In trouble and in joy,   
@@ -17,7 +17,7 @@ Pastor C.H. Spurgeon then rose and said--As I am in a very unfit condition to sp
 
 I am going to speak about the favorite expression of my Brother, William Olney, which he frequently used in prayer. I wonder whether you will agree with me as to what it was? As my memory serves me, I have heard him a score of times, at least, use the following sentence when he drew very near to the Lord, his God, in prayer. He said, "Lord Jesus, we are one with You. We feel that we have a living, loving, lasting union with You." I think that you must remember that gem of his. Those three words have stuck by me and ever since he has gone, I have found myself repeating them to myself quite involuntarily--"a living, loving, lasting union." He owed everything to that. He consciously enjoyed a living, loving, lasting union with the Lord Jesus Christ, and if you and I have that, we have all that we need for time and for eternity! If we have it not, we have nothing. Take anyone of us by himself, alone, he is lost, ruined, and undone. Take that same person linked with Christ by a living, loving, lasting union and he is a saint--saved, sanctified and sure to be glorified!
 
-I have taken for my text the words which occur in the fifth chapter of the Epistle to the Ephesians, the 13th verse. Concerning our Lord Jesus, the Apostle Paul says, We are members of His body, of His faith, and of His bones."
+I have taken for my text the words which occur in the fifth chapter of the Epistle to the Ephesians, the thirteenth verse. Concerning our Lord Jesus, the Apostle Paul says, We are members of His body, of His faith, and of His bones."
 
 "We," that is, His believing people, "are members of His body, and of His flesh, and of His bones." He is our Head and we are the members of the body--and so we are joined to Him by a living, loving, lasting union.
 

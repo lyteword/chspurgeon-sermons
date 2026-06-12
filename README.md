@@ -2,7 +2,7 @@
 
 ## **Overview**
 
-This project is a comprehensive markdown edition of the complete 63-volume collection of sermons by Charles H. Spurgeon, one of the most influential preachers of the 19th century. Spurgeon's sermons, originally delivered between 1855 and 1917, have inspired generations and remain a cornerstone of evangelical Christian literature. This markdown project aims to make these sermons easily accessible, searchable, and readable for modern audiences and developers.
+This project is a comprehensive markdown edition of the complete 63-volume collection of sermons by Charles H. Spurgeon, one of the most influential preachers of the nineteenth century. Spurgeon's sermons, originally delivered between 1855 and 1917, have inspired generations and remain a cornerstone of evangelical Christian literature. This markdown project aims to make these sermons easily accessible, searchable, and readable for modern audiences and developers.
 
 ## **Project Features**
 

@@ -56,7 +56,7 @@ The Lord give us such a frame of mind as that, tonight, when we come to the brea
 
 EXPOSITION BY C. H. SPURGEON: PSALM 69:1-21; MARK 15:15-23; LUKE23:26-33.
 
-We shall read together at this time a part of the 69th Psalm and afterwards two passages in the New Testament. Although there is no doubt that this Psalm is intended to describe a very large class of sufferers, we think it never had its full meaning perfectly carried out until our blessed Lord and Master suffered at the hands of men. We shall read the Psalm believing that it is full of Christ. It is absolutely certain that we have references hare to His Advent, His passion and His Resurrection.
+We shall read together at this time a part of the sixty-ninth Psalm and afterwards two passages in the New Testament. Although there is no doubt that this Psalm is intended to describe a very large class of sufferers, we think it never had its full meaning perfectly carried out until our blessed Lord and Master suffered at the hands of men. We shall read the Psalm believing that it is full of Christ. It is absolutely certain that we have references hare to His Advent, His passion and His Resurrection.
 
 To the chief Musician upon Shoshannim, a Psalm of David.
 
@@ -104,7 +104,7 @@ put His own clothes on Him, andledHim out to crucifyHim. And they compelled one 
 
 LUKE23:26-33.
 
-Luke supplies some particulars which Mark has left out. Turn, therefore, to the 23rd Chapter of Luke and the 26th verse. Luke, also, tells us of Simon.
+Luke supplies some particulars which Mark has left out. Turn, therefore, to the twenty-third Chapter of Luke and the twenty-sixth verse. Luke, also, tells us of Simon.
 
 Verse 26. Andas theyledHim away, theylaidhold upon one Simon, a Cyrenian, coming out ofthe country, and on him they laid the Cross, that he might bear it after Jesus. Now these are the things which Mark has not put in.
 

@@ -29,7 +29,7 @@ Faith stands in God's power and in God's majesty. It wears the royal apparel and
 
 I shall, this morning, dwell upon some of the achievements offaith and then notice where faith's great power lies. God help us to speak on both of these points with Divine power.
 
-First, SOME OF THE ACHIEVEMENTS OF FAITH. Time would fail me if I should attempt to rehearse the record of those who have earned a good report through faith. It is not necessary that my humble tongue should recapitulate what Paul, with inspired lips, has uttered in the ears of the Church. Turn to the 11th chapter of Hebrews and see there a mighty triumphal arch which God the Holy Spirit has raised in commemoration of the splendid triumphs which faith has achieved. Behold this tower of David, built for an armory, whereon there hang a thousand bucklers, all shields of mighty men.
+First, SOME OF THE ACHIEVEMENTS OF FAITH. Time would fail me if I should attempt to rehearse the record of those who have earned a good report through faith. It is not necessary that my humble tongue should recapitulate what Paul, with inspired lips, has uttered in the ears of the Church. Turn to the eleventh chapter of Hebrews and see there a mighty triumphal arch which God the Holy Spirit has raised in commemoration of the splendid triumphs which faith has achieved. Behold this tower of David, built for an armory, whereon there hang a thousand bucklers, all shields of mighty men.
 
 With joy the Church recounts her worthies, for the Lord utters His voice before His army, for His camp is very great. But it needs not that I remind you of these ancient things, I will rather speak of some of the things which faith can perform today, even today.
 

@@ -60,7 +60,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM50:14-23; Ezekiel36:21-38.
 
 PSALM50:14-23.
 
-In the first part of this Psalm, God has solemnly expostulated with His people as to the utter worthlessness of sacrifice and ceremony apart from living faith in Him, and holy life as its fruit. And He sums it all up in the searching question of the 13th verse, "Will I eat the flesh of bulls, or drink the blood of goats? Have you such a groveling opinion of Me, your God, as to conceive that I am satisfied with these things?" See what contempt the Lord pours upon sacrifices--even those that were of His own ordaining--when men rested in them and made them their confidence and their end!
+In the first part of this Psalm, God has solemnly expostulated with His people as to the utter worthlessness of sacrifice and ceremony apart from living faith in Him, and holy life as its fruit. And He sums it all up in the searching question of the thirteenth verse, "Will I eat the flesh of bulls, or drink the blood of goats? Have you such a groveling opinion of Me, your God, as to conceive that I am satisfied with these things?" See what contempt the Lord pours upon sacrifices--even those that were of His own ordaining--when men rested in them and made them their confidence and their end!
 
 Verse 14. Offer unto God thanksgiving. This is what He wants--heart-work.
 

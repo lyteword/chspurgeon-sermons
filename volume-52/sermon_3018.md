@@ -124,7 +124,7 @@ Then he goes, and takes to him seven other spirits more wicked than himself, and
 
 blessed, but still more blessed are they who have the Word of God in their hearts, who regard it as their own, and keep it as a great prize."
 
-And when the people were gathered thick together, He began to say, This is an evil generation: they seek a sign. Look back to the 16th verse--"Others, tempting Him, sought of Him a sign from Heaven." Christ had answered those who imputed His miraculous works to Satanic agency--now He answers these others.
+And when the people were gathered thick together, He began to say, This is an evil generation: they seek a sign. Look back to the sixteenth verse--"Others, tempting Him, sought of Him a sign from Heaven." Christ had answered those who imputed His miraculous works to Satanic agency--now He answers these others.
 
 29, 30. And there shall no sign be given it, but the sign of Jonah the Prophet For as Jonah was a sign unto the Ninevites, so shall also the Son of Man be to this generation. Jonah rose, as it were, from the dead, for he was buried in the deep, in the belly of the whale! And Christ was buried in Joseph's tomb, yet He came back from the grave on the third day.
 

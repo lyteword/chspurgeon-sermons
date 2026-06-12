@@ -38,7 +38,7 @@ Now, very briefly, I want you to regard this first sentence of our text as THE L
 
 ITSELF.
 
-According to the 11th verse, "Solomon had a vineyard at Baal Hamon. He let out the vineyard unto keepers-- everyone, for the fruit thereof, was to bring a thousand pieces of silver." So, dear Brothers and Sisters, everyone of us whom the Lord has brought to Himself, has a part of His vineyard to keep for Him. We do not sing, with Wesley--
+According to the eleventh verse, "Solomon had a vineyard at Baal Hamon. He let out the vineyard unto keepers-- everyone, for the fruit thereof, was to bring a thousand pieces of silver." So, dear Brothers and Sisters, everyone of us whom the Lord has brought to Himself, has a part of His vineyard to keep for Him. We do not sing, with Wesley--
 
 > A charge to keep I have,   
 > A God to glorify,   

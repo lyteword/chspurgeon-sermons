@@ -80,7 +80,7 @@ Here our sermon closes. And may God's blessing rest on it.
 
 EXPOSITION BY C. H. SPURGEON: PSALM 63; LUKE10:38-42; JOHN 12:1-8.
 
-I will read the 63rd Psalm first, as somewhat representing the state of heart into which I would we could all come tonight.
+I will read the sixty-third Psalm first, as somewhat representing the state of heart into which I would we could all come tonight.
 
 Psalm 63:1. O God, You are my God. Read that sentence how you will, it is unspeakably precious. If we say, "O God, You are my God," it brings out the possession which the Believer has in God. If we say, "O God, You are myGod," it shows the greatness of the possession which we thus have in having this God to be our God forever and ever. And if we say "O God, Youare my God," it leads us to think of God and not of His gifts as our chief good.
 

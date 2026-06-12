@@ -136,7 +136,7 @@ I find then a Law that when I would do good, evil is present with me. Speaking f
 
 I thank God through Jesus Christ our Lord. So then with the mind I myself serve the Law of God; but with the flesh the law of sin.
 
-Romans 8:1. There is therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit Some people talk about "getting out of the 7th Chapter, into the Eighth." But who made this into an Eighth Chapter? Certainly, the Holy Spirit did not! There are no chapters in the Epistle as He inspired Paul to write it--the whole of it runs straight on without a break--"There is, therefore, now no condemnation"--while struggling, fighting, warring, contending--
+Romans 8:1. There is therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit Some people talk about "getting out of the seventh Chapter, into the Eighth." But who made this into an Eighth Chapter? Certainly, the Holy Spirit did not! There are no chapters in the Epistle as He inspired Paul to write it--the whole of it runs straight on without a break--"There is, therefore, now no condemnation"--while struggling, fighting, warring, contending--
 
 For the Law of the Spirit of life in Christ Jesus has made me free from the law of sin and death. ' 'Has made me free"--that is, the real, "I," of which he wrote a little while before--the true man, himself. "'The Law of the Spirit of life in Christ Jesus has made me free from the law of sin and death.' I have broken its bonds, I am a free man. Contending against its usurpation, I have escaped from under its yoke and I shall yet tread sin under my feet, and God shall shortly bruise even Satan himself under my feet."
 

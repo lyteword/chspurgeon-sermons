@@ -100,7 +100,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM63.
 
 This is said to be, "A Psalm of David, when he was in the wilderness of Judah." I suppose, therefore, that it was composed when he fled from Jerusalem because of the cruel treachery of his son, Absalom. He must have been heart-broken, and stricken with the greatest possible sorrow as he fled away with his faithful followers into the wilderness of Judah. But even there he praised his God--and he did not sing to Him with old and stale Psalms, but with a new song! How restful and calm he must have been, in his great sorrow, to sit down, even in the wilderness of Judah, and make a new hymn of praise unto the Lord! How gloriously he begins!
 
-Verse 1. O God, You are my God. The Psalmist has no doubt about this great fact! He does not hesitate or falter, but he makes the positive assertion, "O God, You are my El, my mighty God, strong to deliver me." In the 62nd Psalm, he had finished up with the power of God--"God has spoken once; twice have I heard this; that power belongs unto God."
+Verse 1. O God, You are my God. The Psalmist has no doubt about this great fact! He does not hesitate or falter, but he makes the positive assertion, "O God, You are my El, my mighty God, strong to deliver me." In the sixty-second Psalm, he had finished up with the power of God--"God has spoken once; twice have I heard this; that power belongs unto God."
 
 So he begins this new song with the great name, El, which expresses the might and power of God--"O God, You are my El, my mighty God."
 

@@ -24,7 +24,7 @@ This is Paul's first argument, then, for the resurrection of the righteous, that
 
 But now he proceeds with his subject, not so much arguing upon the resurrection of others as upon the Resurrection of Christ. And his next argument is, that, IF THERE IS NO RESURRECTION, APOSTOLIC PREACHING
 
-FALLS. "If Christ is not risen, then is our preaching in vain" (see the 14th verse). "Yes, and we are found false witnesses of God; because we have testified of God that He raised up Christ: whom He raised not up, if it is so that the dead rise not."
+FALLS. "If Christ is not risen, then is our preaching in vain" (see the fourteenth verse). "Yes, and we are found false witnesses of God; because we have testified of God that He raised up Christ: whom He raised not up, if it is so that the dead rise not."
 
 If Christ was not raised, the Apostles were false witnesses. When a man bears false witness, he usually has a motive for doing so. What motive had these men? What did they gain by bearing false witness to Christ's Resurrection? It was all loss and no profit to them if He had not risen. They declared in Jerusalem that He had risen from the dead and straight-
 

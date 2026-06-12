@@ -100,7 +100,7 @@ Press onward, my Brothers and Sisters, go on bravely! If the darkness thickens a
 
 EXPOSITION BY C. H. SPURGEON PSALM103.
 
-Let us read, dear Friends, the 103rd Psalm, not because we do not know it, but because I trust that we know it by heart, and feel that it is a fit expression for our heart's thankfulness on this last Sabbath evening of another year.
+Let us read, dear Friends, the one hundred and third Psalm, not because we do not know it, but because I trust that we know it by heart, and feel that it is a fit expression for our heart's thankfulness on this last Sabbath evening of another year.
 
 Verse 1. Bless the LORD, O my soul. He has been blessing you; now begin you to bless Him. If, during the week, you have been busy about the things of the world, now leave these unimportant matters and come to the grandest exercise in which an intelligent spirit can be engaged. "Bless the Lord, O my soul." Let there be no sleeping, now, no coldness, no indifference. Let it be real soul-work. His blessings have been real, let your praises be real, too.
 

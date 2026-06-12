@@ -68,7 +68,7 @@ There may be, however, in this congregation--no, I know there are some who have 
 
 EXPOSITION BY C. H. SPURGEON: JEREMIAH 3:6-25; 4:1-29.
 
-Let us read part of the 3rd Chapter of Jeremiah where God brings a solemn accusation against the two nations of Israel and Judah because they forsook the living God and went after idols--neglected His pure and holy worship--and followed after the abominable rites of the heathen.
+Let us read part of the third Chapter of Jeremiah where God brings a solemn accusation against the two nations of Israel and Judah because they forsook the living God and went after idols--neglected His pure and holy worship--and followed after the abominable rites of the heathen.
 
 Verse 6, 7. The LORD said also unto me in the days of Josiah the king, Have you seen that which backsliding Israel has done? She is gone up upon every high mountain and under every green tree, and there has played the harlot Yet I said, after she had done all these things, Turn you unto Me. Depth of mercy that God should bid such a polluted one return to Him! "Yet I said, after she had done all these things, Turn you unto Me."
 

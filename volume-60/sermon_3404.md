@@ -92,7 +92,7 @@ For you have the poor with you always. If you help them one day, they are poor a
 
 And whenever you will, you may do them good. But Me you have not always. "You can only do this for Me during the few days that I shall be with you. Within a week I shall be crucified. Forty more days I shall be gone from you. Me you have not always."
 
-8, 9. She has done what she could: she is come beforehand to anoint My body to the burying. Verily I say unto you, Wherever this Gospel shall be preached throughout the whole world, this also what she has done shall be spoken of for a memorial of her.And it is so to this day! Christ's Gospel is preached, tonight, and this woman's love will be remembered. John also speaks of this in his 12th Chapter.
+8, 9. She has done what she could: she is come beforehand to anoint My body to the burying. Verily I say unto you, Wherever this Gospel shall be preached throughout the whole world, this also what she has done shall be spoken of for a memorial of her.And it is so to this day! Christ's Gospel is preached, tonight, and this woman's love will be remembered. John also speaks of this in his twelfth Chapter.
 
 JOHN 12.
 

@@ -96,7 +96,7 @@ Let us go our way with just this word of prayer. Lord, let us all know the Truth
 
 EXPOSITION BY C. H. SPURGEON: Psalm 37:1-18.
 
-Let us read, tonight, part of the 37th Psalm. David, here, first of all, dissuades himself and us from falling into a very common evil--that of envying the wicked because of their prosperity and murmuring against God because we, perhaps, are not so highly favored in our earthly affairs.
+Let us read, tonight, part of the thirty-seventh Psalm. David, here, first of all, dissuades himself and us from falling into a very common evil--that of envying the wicked because of their prosperity and murmuring against God because we, perhaps, are not so highly favored in our earthly affairs.
 
 Verses 1, 2. Fret not yourself because of evildoers, neither be you envious against the workers of inequity. For they shall soon be cut down like the grass, and wither as the green herb. No one envies the grass, let it be ever so green. No one envies flowers, let them be ever so fragrant, for we know that grass must be cut and that flowers must wither. Let us look upon the wicked in the same light--their time of perishing shall soon come, their end hastens on--therefore, let all envying be out of the question since they are such short-lived beings.
 

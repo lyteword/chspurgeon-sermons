@@ -72,7 +72,7 @@ Then Paul utters a strong expression of dissent--"Yes, let God be true, but ever
 
 But what everybody says is not, therefore, true. "Let God be true, but every man a liar." It is a strange, strong expression, but it is not too strong. If God says one thing and every man in the world says another, God is true, and all men are false! God speaks the truth and cannot lie. God cannot change. His word, like Himself, is immutable. We are to believe God's Truth if nobody else believes it. The general consensus of opinion is nothing to a Christian. He believes God's Word and he thinks more of that than of the universal opinion of men!
 
-Paul next uses a Scriptural argument. Whenever he gets thoroughly red hot and wants an overwhelming argument, he always goes to the Divine treasury of Revelation. He quotes what David had said in the 51st Psalm, "That You might be justified in Your sayings, and might overcome when You are judged."
+Paul next uses a Scriptural argument. Whenever he gets thoroughly red hot and wants an overwhelming argument, he always goes to the Divine treasury of Revelation. He quotes what David had said in the fifty-first Psalm, "That You might be justified in Your sayings, and might overcome when You are judged."
 
 God will be justified in everything that He has said. You may take every line of the Word of God and rest assured that God will be justified in having directed the sacred penman to write that line.
 

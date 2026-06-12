@@ -96,7 +96,7 @@ You have bought Me no sweet cane with money, neither have you filled Me with the
 
 You have burdened Me with your sins, you have wearied Me with your iniquities.A solemn charge, this, which God lays against His people. Now see the next verse and read it with wondering eyes!
 
-I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins. He has pointed out the fault. He has shown that He is not forgetful of it. And then He pronounces absolution! The transgression is put away! Blessed be His name! Now let us turn to the New Testament and read in the Epistle to the Romans, the 10th Chapter, and we shall there see the way in which pardon is brought home to the soul.
+I, even I, am He that blots out your transgressions for My own sake, and will not remember your sins. He has pointed out the fault. He has shown that He is not forgetful of it. And then He pronounces absolution! The transgression is put away! Blessed be His name! Now let us turn to the New Testament and read in the Epistle to the Romans, the tenth Chapter, and we shall there see the way in which pardon is brought home to the soul.
 
 ROMANS 10:1-19.
 

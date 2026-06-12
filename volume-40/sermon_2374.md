@@ -90,7 +90,7 @@ I have done when I have reminded you that He is accursed who has never felt the 
 
 EXPOSITION BY C. H. SPURGEON:
 
-Let us read, this evening, the 94th Psalm, and may the Spirit of God instruct us while we read it!
+Let us read, this evening, the ninety-fourth Psalm, and may the Spirit of God instruct us while we read it!
 
 Verse 1. O LORD God, to whom vengeance belongs; O God, to whom vengeance belongs, show Yourself. God is the God of Justice and when iniquity and oppression prevail, it is natural that His people should call upon Him to come forth out of His hiding places. Sometimes, when oppression and iniquity and error prevail, it seems as if God had hidden Himself away. Hence the prayer of the Psalmist, "O Jehovah, the God of recompenses (or revenges, as the margin has it), show Yourself."
 

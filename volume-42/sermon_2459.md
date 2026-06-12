@@ -114,7 +114,7 @@ God bless you, dear Friends, and give you to drink of this wine! And if any here
 
 EXPOSITION BY C. H. SPURGEON: ISAIAH26:20,21; 27:1-9.
 
-We will read a short passage in the Book of the Prophet Isaiah, commencing with the 26th chapter, and the 20th verse.
+We will read a short passage in the Book of the Prophet Isaiah, commencing with the twenty-sixth chapter, and the twentieth verse.
 
 Isaiah 26:20. Come, my people, enter into your chamber, and shut your doors about you: hide yourself, as it were, for a little moment, until the indignation is past. There is never a flood for the wicked without an ark for the righteous! Never shall a storm sweep over the earth till God has prepared a great rock wherein His people may be hidden.
 

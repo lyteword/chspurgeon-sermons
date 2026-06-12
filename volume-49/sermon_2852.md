@@ -120,4 +120,4 @@ As for such as turn aside unto their crooked ways. There are still such people w
 
 The LORD shall lead them forth with the workers of iniquity. They chose the same way, so they shall share the same end! What a sad end for those who once stood side by side with the saints, to be led out to execution side by side with the workers of iniquity!
 
-But peace shall be upon Israel. In the 1st and 2nd verses of the Psalm, they are said to be like Salem. In this last verse, they are said to have Salem, that is, peace--"Peace shall be upon Israel."
+But peace shall be upon Israel. In the first and second verses of the Psalm, they are said to be like Salem. In this last verse, they are said to have Salem, that is, peace--"Peace shall be upon Israel."

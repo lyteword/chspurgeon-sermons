@@ -105,12 +105,12 @@ PORTION OF SCRIPTURE READ BEFORE SERMON--Colossians 1.
 
 The attention of all our friends is earnestly directed to the SERIES OF SPECIAL SERVICES AT THE TABERNACLE. In order that London friends may unite with us we publish the meetings week by week, and at the same time our country friends will join with us in spirit:--
 
-Lord's-day, March 5th.--A deputation will address Mrs. Bartlett's class and the senior classes of the Sabbath School; as also Mrs. Bartlett's children's meeting at the Almshouses.
+Lord's-day, March fifth.--A deputation will address Mrs. Bartlett's class and the senior classes of the Sabbath School; as also Mrs. Bartlett's children's meeting at the Almshouses.
 
-Monday, March 6th.--Prayer-meeting for females only, at six. For young people at the same time. Special prayer-meetings at seven for the various agencies of the church. Meetings for enquirers at half-past eight.
+Monday, March sixth.--Prayer-meeting for females only, at six. For young people at the same time. Special prayer-meetings at seven for the various agencies of the church. Meetings for enquirers at half-past eight.
 
-Tuesday, March 7th.--The Pastor and others will meet the parents of the Sabbath School to tea, and speak with them upon heavenly things.
+Tuesday, March seventh.--The Pastor and others will meet the parents of the Sabbath School to tea, and speak with them upon heavenly things.
 
-Wednesday, March 8th.--Annual Meeting of Mrs. Bartlett's class.
+Wednesday, March eighth.--Annual Meeting of Mrs. Bartlett's class.
 
-Thursday, March 9th.--Closing gathering. May our hearts be filled with adoring praise. We shall meet to commemorate our Lord's death. Members will please show their tickets. Spectators will find room in the gallery.
+Thursday, March ninth.--Closing gathering. May our hearts be filled with adoring praise. We shall meet to commemorate our Lord's death. Members will please show their tickets. Spectators will find room in the gallery.

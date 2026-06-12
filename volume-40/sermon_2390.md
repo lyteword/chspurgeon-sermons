@@ -108,7 +108,7 @@ I have talked thus to you about Christ's dead body. Oh, that I had an opportunit
 
 EXPOSITION BY C. H. SPURGEON: Mark15:34-47; John19:38-42; 1 Corinthians 15:1-9.
 
-Concerning the death of our Lord Jesus Christ, we shall read in three portions of the New Testament. First, in the Gospel according to Mark, the 15th chapter, beginning at the 34th verse.
+Concerning the death of our Lord Jesus Christ, we shall read in three portions of the New Testament. First, in the Gospel according to Mark, the fifteenth chapter, beginning at the thirty-fourth verse.
 
 Mark 15:34. And at the ninth hour Jesus cried with a loud voice, saying, Eloi, Eloi, Lama Sabachthani? which is, being interpreted, My God, My God, why have You forsaken Me? It is, "My El, My strong God, My mighty One, why have You forsaken Me?"--the most bitter words that were ever uttered by mortal lips--and expressing the quintessence of agony. Alas, that my Savior should ever have had to say as much as this when He hung upon the Cross, suffering and dying for me!
 
@@ -136,7 +136,7 @@ And he bought fine linen. This was probably the first time that fine linen had t
 
 John 19:38-40. And after this, Joseph of Arimathea, being a disciple of Jesus, but secretly, for fear of the Jews, asked Pilate that he might take away the body of Jesus: and Pilate gave him leave. He came, therefore, and took the body of Jesus. And there came also Nicodemus, which at the first came to Jesus by night, and brought a mixture of myrrh and aloes, about an hundred pound weight. Then took they the body of Jesus. Oh, how tenderly and with how many tears, did they take their Lord's body from the Cross!
 
-40-42. And wound it in linen strips with the spices, as the manner of the Jews is to bury. Now in the place where He was crucified there was a garden; and in the garden a new sepulcher, wherein was never man yet laid. There laid they Jesus, therefore, because of the Jews' preparation day; for the sepulcher was near at hand. John's Gospel contains some particulars not mentioned by Mark. And the same may be said of Matthew's account and Luke's. Read them all when you are home and ponder the wonderful story! The Apostle Paul, speaking of our Lord's Resurrection, mentions His burial. We will now read in his first Epistle to the Corinthians, just a few verses from the 15th chapter.
+40-42. And wound it in linen strips with the spices, as the manner of the Jews is to bury. Now in the place where He was crucified there was a garden; and in the garden a new sepulcher, wherein was never man yet laid. There laid they Jesus, therefore, because of the Jews' preparation day; for the sepulcher was near at hand. John's Gospel contains some particulars not mentioned by Mark. And the same may be said of Matthew's account and Luke's. Read them all when you are home and ponder the wonderful story! The Apostle Paul, speaking of our Lord's Resurrection, mentions His burial. We will now read in his first Epistle to the Corinthians, just a few verses from the fifteenth chapter.
 
 1 Corinthians 15:1. Moreover, brethren I declare unto you the Gospel--Mark that Paul writes concerning "the Gospel." We shall see now what, "the Gospel" is.
 

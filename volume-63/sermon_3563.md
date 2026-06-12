@@ -84,6 +84,6 @@ He that receives a Prophet in the name of a Prophet shall receive a Prophet's re
 
 ANNOUNCEMENT CONCERNING THE SUSPENSION OF PUBLICATION:
 
-It is with sincere regret that the Publishers announce the suspension of publication of C. H. Spurgeon's Sermons. This step is rendered necessary by the present shortage of paper and other difficulties due to war conditions. There are still a number of the Rev. C. H. Spurgeon's Sermons which have never been issued in printed form, and it is hoped that when peace returns, it will be possible to publish these in some attractive form. The last issue of these Sermons, for the present, will be that of May 10th.
+It is with sincere regret that the Publishers announce the suspension of publication of C. H. Spurgeon's Sermons. This step is rendered necessary by the present shortage of paper and other difficulties due to war conditions. There are still a number of the Rev. C. H. Spurgeon's Sermons which have never been issued in printed form, and it is hoped that when peace returns, it will be possible to publish these in some attractive form. The last issue of these Sermons, for the present, will be that of May tenth.
 
 It is hoped that the suspension of publication will not in any way tend to lessen the world-wide ministry of these Sermons. Practically all the back numbers may still be obtained, so that those who know and appreciate the blessing which has been forthcoming from these weekly messages may still provide for their needs by selecting from the earlierissues.

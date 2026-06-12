@@ -40,7 +40,7 @@ And it will be a near sight, because it will be clear and distinct. "Your eyes s
 
 TO WHOM IS THIS VISION GIVEN?
 
-We find a remarkably full description of these people. Read the 15th verse. Their ordinary gait distinguishes them. "He who walks righteously." "The pure in heart shall see God." But if your deportment disgraces you, how deep will be your dishonor? Unholy creatures will never see a holy God! It is not possible! Oh, Sinners, what do you think of this? You must be changed! You must be cleansed! You must be converted! The Holy Spirit must regenerate you! You must be born-again! Otherwise you cannot walk uprightly or stand in the Presence of the King in His beauty!
+We find a remarkably full description of these people. Read the fifteenth verse. Their ordinary gait distinguishes them. "He who walks righteously." "The pure in heart shall see God." But if your deportment disgraces you, how deep will be your dishonor? Unholy creatures will never see a holy God! It is not possible! Oh, Sinners, what do you think of this? You must be changed! You must be cleansed! You must be converted! The Holy Spirit must regenerate you! You must be born-again! Otherwise you cannot walk uprightly or stand in the Presence of the King in His beauty!
 
 Next to this they are known by their tongues, "and speaks uprightly." No liar shall enter into Heaven. Those who talk lasciviously, those who swear profanely, the singers of idle songs, those who lend their lips to slander, backbite their neighbors and circulate evil reports in malice--these and such as these can have no inheritance in the Kingdom of God! Oh, may the Lord wash your tongues, rinse your mouths and make them sweet and clean--otherwise you will never sing
 

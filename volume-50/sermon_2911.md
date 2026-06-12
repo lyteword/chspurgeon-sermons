@@ -83,7 +83,7 @@ I have tried to preach the Gospel simply tonight. Remember, Souls, that the Word
 
 EXPOSITION BY C. H. SPURGEON: PSALM 38; ISAIAH 53.
 
-I am going to read two portions of Scripture. In the first--the 38th Psalm--we shall hear a suffering servant of Jehovah crying out to his God.
+I am going to read two portions of Scripture. In the first--the thirty-eighth Psalm--we shall hear a suffering servant of Jehovah crying out to his God.
 
 Psalm 38:1. O LORD, rebuke me not in Your wrath: neither chasten me in Your hot displeasure. "If You do rebuke me, do it gently, O my Lord! If You do chasten me, let not Your displeasure wax hot against Your servant."
 
@@ -109,7 +109,7 @@ You will hear, O LORD my God. ' 'Even if I do not hear You, You will hear me and
 
 16-20. For I said, hear me, lest otherwise they should rejoice over me: when my foot slips, they magnify themselves against me. For Iam ready to halt, and my sorrow is continually before me. For I will declare my iniquity. I will be sorry for my sin. But my enemies are vigorous, and they are strong: and they that hate me wrongfully are multiplied. They also that render evil for good are my adversaries; because I follow what is good. We need never be afraid of any man's opposition when the reason for his being our adversary is that we "follow what is good," as our translators quaintly express it.
 
-21, 22. Forsake me not, O Lord: O my God, be not far from me. Make haste to help me, O Lord, my Salvation. Now we shall see, as we read that wondrous 53rd chapter of Isaiah, not a man of God in trouble, but the Son of God in trouble! And we shall see Him, also, as a deaf man that hears not, "and as a dumb man that opens not His mouth."
+21, 22. Forsake me not, O Lord: O my God, be not far from me. Make haste to help me, O Lord, my Salvation. Now we shall see, as we read that wondrous fifty-third chapter of Isaiah, not a man of God in trouble, but the Son of God in trouble! And we shall see Him, also, as a deaf man that hears not, "and as a dumb man that opens not His mouth."
 
 Isaiah 53:1-9. Who has believed our report? And to whom is the arm ofthe LORD revealed?For He shallgrow up before Him as a tender plant, and as a root out of a dry ground: He has no form nor comeliness and when we shall see Him, there is no beauty that we should desire Him. He is despised and rejected of men; a Man of Sorrows, and acquainted with grief: and we hid, as it were, our faces from Him. He was despised, and we esteemed Him not. Surely He has borne our griefs, and carried our sorrows; yet we did esteem Him stricken, smitten of God, and afflicted. But He was wounded for our transgressions, He was bruised for our iniquities: the chastisement of our peace was upon Him; and with His stripes we are healed. All we, like sheep, have gone astray; we have turned everyone to His own way; and the LORD has laid on Him the iniquity of us all. He was oppressed, and He was afflicted, yet He opened not His mouth: He is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so He opens not His mouth. He was taken from prison and from judgment: and who shall declare His generation? For He was cut off out ofthe land ofthe living: for the transgression ofMy people was He stricken. And He made His grave with the wicked, and with the rich in His death; because He had done no violence, neither was any deceit in His mouth. Those wicked men were His enemies because He did "follow what is good." They that rewarded Him evil for good were His adversaries even as they are ours.
 

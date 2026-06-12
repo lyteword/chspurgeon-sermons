@@ -84,7 +84,7 @@ And as for you, poor Sinners, seek salvation by simply trusting in Jesus and if 
 
 EXPOSITION BY C. H. SPURGEON: LUKE 4:33-41; 5:12-17.
 
-We are going to read some verses in the fourth and fifth chapters of Luke's Gospel--hospital chapters, I may call them, for they record many marvelous cures which were worked by the Great Physician, the Lord Jesus Christ. We shall begin at the 33rd verse of the fourth chapter.
+We are going to read some verses in the fourth and fifth chapters of Luke's Gospel--hospital chapters, I may call them, for they record many marvelous cures which were worked by the Great Physician, the Lord Jesus Christ. We shall begin at the thirty-third verse of the fourth chapter.
 
 Luke 4:33, 34. And in the synagogue there was a man who had a spirit of an unclean devil, and cried out with a loud voice, saying, Let us alone; what have we to do with You, You Jesus of Nazareth? There are many people in the present day who have this evil spirit in them and they also say, "Let us alone." They do not want to have their consciences disturbed. They would rather sleep on until they wake up in another world where their awaking will be too late to be of use for their repentance.
 

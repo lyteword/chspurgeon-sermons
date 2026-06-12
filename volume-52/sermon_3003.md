@@ -120,7 +120,7 @@ He that believes on Me, as the Scripture has said, out of His belly shall flow r
 
 40-43. Many of the people, therefore, when they heard this saying, said, Of a truth this is the Prophet. Others said, This is the Christ. But some said, Shall Christ come out of Galilee? Has not the Scripture said that Christ comes of the seed of David, and out of the town of Bethlehem, where David was? So there was a division among the people because of Him. It is still true that Christ is a cause of division, as He, Himself, foretold that He would be.
 
-And some of them would have taken Him but no man laid hands on Him. In the 30th verse of this chapter, and in the 20th verse of the next Chapter, we are told why they did not take Him--"His hour was not yet come." And, like their Lord, saints are immortal till their work is done!
+And some of them would have taken Him but no man laid hands on Him. In the thirtieth verse of this chapter, and in the twentieth verse of the next Chapter, we are told why they did not take Him--"His hour was not yet come." And, like their Lord, saints are immortal till their work is done!
 
 45-48. Then came the officers to the chief priest and Pharisees; and they said unto them, Why have you not brought Him? The officers answered, Never man spoke like this Man. Then answered them the Pharisees, Are you also deceived? Have any of the rulers or of the Pharisees believed on Him? They professed to be the spiritual leaders of the nation and expected all to follow them.
 

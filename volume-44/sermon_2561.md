@@ -64,7 +64,7 @@ As for you who have no part nor lot in this matter, I am very sorry for you. I w
 
 EXPOSITION BY C. H. SPURGEON: PSALMS20AND21.
 
-The 20th Psalm is a prayer for the king going forth to the conflict--a prayer for David. Better still, a prayer for great David's greater Son. The 21st Psalm is a song of victory for the returning conqueror, it is a Te Deum, as the King has triumphed and has returned from the conflict to enjoy the congratulations of His loyal subjects.
+The twentieth Psalm is a prayer for the king going forth to the conflict--a prayer for David. Better still, a prayer for great David's greater Son. The twenty-first Psalm is a song of victory for the returning conqueror, it is a Te Deum, as the King has triumphed and has returned from the conflict to enjoy the congratulations of His loyal subjects.
 
 Psalm 20:1. The LORD hear you in the day of trouble; the name of the God of Jacob defend you. This is a prayer for David, a prayer for Jesus and a prayer for every child of God. "Jehovah hear you in the day of trouble." What do you need? Remember that the Lord gives you this promise, "Call upon Me in the day of trouble; I will deliver you, and you shall glorify Me." "The name of the God of Jacob defend you." The God that took care of Jacob when he slept with a stone for his pillow. The God that guarded him when he was a stranger in a strange land and brought him home again. The God that wrestled with him at Jabbok, the God that made all things work for him, instead of against him, as he feared "the name"--the Character, the Attributes, the Glory--"of the God of Jacob defend you."
 

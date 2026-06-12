@@ -79,4 +79,4 @@ Yours in Christ Jesus,
 
 H. SPURGEON.
 
-Mentone, Dec. 20th, 1888.
+Mentone, Dec. twentieth, 1888.
