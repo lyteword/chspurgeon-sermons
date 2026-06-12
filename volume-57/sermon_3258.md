@@ -72,7 +72,7 @@ without spot As your redemption cost so much, prize it highly and do not go back
 
 NATURE.] See how this love of the brethren is linked on to regeneration. The first time we are born, we are born in sin, and that tends to hate. But when we are born-again, born unto God, our life tends to love. "Being born-again"--
 
-23, Not of corruptible seed, but ofincorruptible, by the Word of God, which lives and abides forever. Peter reminds us, in the 18th verse, that we were not redeemed with corruptible things, but with incorruptible. And he here reminds us that we are "born-again, not of corruptible seed, but of incorruptible." Everything about a Christian means his deliverance from corruption and the bringing of him into a state of immortality and incorruption!
+23, Not of corruptible seed, but ofincorruptible, by the Word of God, which lives and abides forever. Peter reminds us, in the eighteenth verse, that we were not redeemed with corruptible things, but with incorruptible. And he here reminds us that we are "born-again, not of corruptible seed, but of incorruptible." Everything about a Christian means his deliverance from corruption and the bringing of him into a state of immortality and incorruption!
 
 24, 25. For all flesh is asgrass andall the glory ofman as the flower of grass. The grass withers, and the flower thereof falls away: but the Word of the Lord endures forever. Everything earthly is corruptible. That which is merely natural has its season of decay, but the children of God have the Word of the Lord abiding in them--and that never dies--it has no autumn or winter.
 
