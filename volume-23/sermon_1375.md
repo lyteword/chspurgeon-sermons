@@ -114,7 +114,7 @@ Here is the point about the King whom we preach to you--God has chosen Him to be
 
 Philistia's giants feared David, who cried, "over Philistia will I triumph." Your sins, your sorrows, death, the devil--all these, the Son of David overcomes for you. If He is accepted as King, you need fear no adversary, for He will guard you with His great power and utterly confuse your enemies. Oh, Sirs, kiss the Son! With the kiss of homage accept the Prince of Peace! Crown Him with your heart's love. Bow at His dear feet and be content to yield the utmost loyalty to Him. May the blessed Spirit sweetly draw you while I am persuading you and may you now approach the Throne of the Prince of the House of David and be forever His joyful subjects!
 
-Will you now turn to the 5th chapter of this second book of Samuel for one minute and see if we cannot all join in a reproduction of the scene which it describes. I wish and pray that the words of that passage may come true--"Then came
+Will you now turn to the fifth chapter of this second book of Samuel for one minute and see if we cannot all join in a reproduction of the scene which it describes. I wish and pray that the words of that passage may come true--"Then came
 
 all the tribes of Israel to David unto Hebron and spoke, saying, Behold, we are your bone and your flesh. Also in time past, when Saul was king over us, you were he that led out and brought in Israel. And the Lord said to you, You shall feed My people Israel, and you shall be a captain over Israel."
 
