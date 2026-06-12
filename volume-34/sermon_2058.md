@@ -142,4 +142,4 @@ BELOVED FRIENDS--We are in our measure partaking in the change of weather which 
 
 I hope and pray that this week's sermon may prove useful. Purposely I have made it striking and plain, with the design that it should be suitable for wide distribution. It contains the Gospel in its simplicity, stated in a pleasant manner.
 
-I have prepared three sermons, as a double number, to close the year with and I hope they will be a fit top stone to the thirty-fourth volume, which I am glad to have completed. Receive my sincere love in Christ Jesus. May all Grace abound towards you. Yours till death, C. H. Spurgeon. Mentone, Dec. 13th, 1888
+I have prepared three sermons, as a double number, to close the year with and I hope they will be a fit top stone to the thirty-fourth volume, which I am glad to have completed. Receive my sincere love in Christ Jesus. May all Grace abound towards you. Yours till death, C. H. Spurgeon. Mentone, Dec. thirteenth, 1888

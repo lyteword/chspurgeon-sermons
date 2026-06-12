@@ -149,4 +149,4 @@ DEAR FRIENDS--I am still somewhat like Mephibosheth, who "did eat continually at
 
 I have great cause for gratitude because of the continual items of news which I receive concerning the influence of the sermons. This is a rare restorative. May my readers still find in these simple discourses food for their souls and comfort for their hearts. When they distribute them among the unsaved, may the Spirit of God make them to minister life to the spiritually dead.
 
-I am most happy in being remembered in the prayers of many saints--and I would beg for more intercession--not for myself only, but for all who truly preach the Gospel of our Lord Jesus. Yours ever heartily, C H. Spurgeon Mentone, Dec. 8th, 1888
+I am most happy in being remembered in the prayers of many saints--and I would beg for more intercession--not for myself only, but for all who truly preach the Gospel of our Lord Jesus. Yours ever heartily, C H. Spurgeon Mentone, Dec. eighth, 1888
