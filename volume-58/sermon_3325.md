@@ -6,7 +6,7 @@ IT is no small advantage to know beyond mistake of whom this is declared. Our gr
 
 Think what was the burden of this unique discourse! It was concerning Himself as the preacher of good tidings--as the binder up of the brokenhearted and the liberator of the enslaved!
 
-No doubt there was an allusion here to the ancient Jewish Jubilee. When the silver trumpet sounded in the morning because the 50th year had come, that moment every captive throughout Judaea's land was free and none could hold him in bondage--
+No doubt there was an allusion here to the ancient Jewish Jubilee. When the silver trumpet sounded in the morning because the fiftieth year had come, that moment every captive throughout Judaea's land was free and none could hold him in bondage--
 
 > The year of Jubilee is come,   
 > Return, you ransomed captives, home.   
