@@ -4,7 +4,7 @@
 
 "I will trust, and not be afraid." Isaiah 12:2.
 
-I INTEND this evening to have two texts, though I shall not therefore have two sermons and so keep you a double length of time! Our first text, which will suffice to begin with, is in the 56th Psalm, at the 3rd verse-- "What time I am afraid, I will trust in You""
+I INTEND this evening to have two texts, though I shall not therefore have two sermons and so keep you a double length of time! Our first text, which will suffice to begin with, is in the fifty-sixth Psalm, at the third verse-- "What time I am afraid, I will trust in You""
 
 David was one of the boldest of men. From his youth up, he was noted for his courage. As a youth he went, in simple confidence in God, and attacked the giant Goliath. Throughout life there was no man who seemed to be more at home in wars and battles--and less likely to be afraid. But yet this hero, this courageous man, says that he wassometimes afraid. And I suppose that there are none of us but must plead guilty to the impeachment that sometimes the brave spirit gives way and that we tremble and are afraid. It is a disease for which the cure is here mentioned, "What time I am afraid, I will trust in You." When my soul suffers from the palsy of fear, I will lay hold upon the Strong One and get strength from Him--and so my fears shall all be cast out."
 
@@ -110,7 +110,7 @@ Nor fear the terror as she passed." You shall fear no fear and know no evil beca
 
 Now, Brothers and Sisters, I have taken you far, like a guide conducting a number of travelers up the first road on a mountain. And I think we have gathered something even there, but now I want you to go up still higher. I feel as if, in handling this text, we have been travelling third class to Heaven, but now I want you to get into the first class! Hitherto we have been going in a sort of parliamentary train, which will get to Heaven safe enough, but I want you now to take the express.
 
-My second text will let you know what I mean. It is in the 12th Chapter of Isaiah and the 2nd verse-- "I will trust and not be afraid."
+My second text will let you know what I mean. It is in the twelfth Chapter of Isaiah and the second verse-- "I will trust and not be afraid."
 
 This is several stages beyond the first text. David says, "What, time I am afraid, I will trust in You." Isaiah says, "I will trust and not be afraid," which is far better! When David is afraid, He trusts in God, but Isaiah trusts in God, first, and then he is not afraid at all! I told you in the first case that there was disease and that faith was the remedy, but you know prevention is always better than cure. I have heard of a man who had serious chills and he was thankful to have a medicine which helped him through it. But his neighbor said he should not be very thankful for that, for he had a remedy which prevented him from ever having the malady! So with you who are doubting and fearing--it is a good thing that faith can bear you through it--but how much better it will be if you get a faith that does not have these doubts, that lives above these fears and troubles!
 
