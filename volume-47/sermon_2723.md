@@ -80,7 +80,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM37'
 
 It may be, beloved Friends, that there is a word of comfort for some of you in this "Psalm of David." If any of you have been perplexed and worried, and there has been a stern conflict within your spirit, here are some cheering words which will bring a message from God to you.
 
-It may be worth your while to remember that the 37th Psalm and the 73rd are upon the same subject. They are the same figures, reversed, but they both deal with the great mystery which has vexed the hearts of godly men in all generations.
+It may be worth your while to remember that the thirty-seventh Psalm and the seventy-third are upon the same subject. They are the same figures, reversed, but they both deal with the great mystery which has vexed the hearts of godly men in all generations.
 
 Verses 1, 2. Fret not yourself because of evildoers, neither be you envious against the workers of iniquity. For they shall soon be cut down like the grass, and wither as the green herb. What a contrast there is between the grass before the mower comes with his scythe, and that same grass when it is cut down! And there is the same kind of difference between the glory of ungodly men at one moment and their destruction the next. How beautiful the fertile meadow appears before you mow its many-colored flowers, yet in how short a time all its beauties are cut down and withered in the sun!
 
