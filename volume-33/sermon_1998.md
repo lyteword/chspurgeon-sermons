@@ -132,4 +132,4 @@ In confidence in the unchanging God, let us forever abide.
 
 Yours in the Gospel of Jesus Christ,
 
-Mentone, December 9th, 1887.
+Mentone, December ninth, 1887.
