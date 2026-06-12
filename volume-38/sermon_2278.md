@@ -107,7 +107,7 @@ Oh, that some poor soul would get his first mouthful of Christ tonight! Take Him
 
 EXPOSITION BY C. H. SPURGEON ISAIAH55.
 
-Tonight we shall read that precious chapter of Gospel invitation, the 55th of Isaiah, which, I hope, you all know by heart.
+Tonight we shall read that precious chapter of Gospel invitation, the fifty-fifth of Isaiah, which, I hope, you all know by heart.
 
 Verse 1. Ho, everyone that thirsts. God would have the attention of sinners! He calls for it. Are not sinners eager for God? Oh, no! It is God who is eager for sinners and so He calls, "Ho!" Men pass by with their ears full of the world's tumult and God calls, again and again, "Ho! Ho!" Be you rich or poor, learned or illiterate, if you are in need, and especially if you feel your need, "Ho, everyone that thirsts."
 
