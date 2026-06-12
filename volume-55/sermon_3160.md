@@ -90,7 +90,7 @@ For some, when they had heard, did provoke: howbeit not all that came out of Egy
 
 But with whom was He grieved forty years? Was it not with them that had sinned, whose carcasses fell in the wildernes? God speaks very lovingly of the bodies of His saints, but see how He speaks of the bodies of apostates, "whose carcasses," as if they were no better than so many brute beasts, "whose carcasses fell in the wilderness."
 
-And to whom swore He that they should not enter into His rest, but to them that believed not Sinning and not believing seem to go together. The 17th verse asks the same question as the 18th, but the answer is different. "With them that had sinned" says the 17th verse, "to them that believed not," says the 18th verse. Lack of faith brings lack of holiness, and when we abide in the faith we abide in obedience.
+And to whom swore He that they should not enter into His rest, but to them that believed not Sinning and not believing seem to go together. The seventeenth verse asks the same question as the eighteenth, but the answer is different. "With them that had sinned" says the seventeenth verse, "to them that believed not," says the eighteenth verse. Lack of faith brings lack of holiness, and when we abide in the faith we abide in obedience.
 
 So we see that they could not enter in because of unbeliel.
 
