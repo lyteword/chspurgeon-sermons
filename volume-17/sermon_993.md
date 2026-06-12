@@ -39,7 +39,7 @@ PORTION OF SCRIPTURE READ BEFORE SERMON--Isaiah 40. 9-31.
 
 LETTER.
 
-CLAPHAM, JUNE 5TH.
+CLAPHAM, JUNE fifth.
 
 TO MY FRIENDS EVERYWHERE,
 
@@ -47,6 +47,6 @@ I HAVE now endured ten silent Sabbaths, and as I know that many of you are anxio
 
 I have one great favor to ask of all readers of the sermons, and that is, that they will try to spread them abroad, and increase the number of regular subscribers. What has been good to you will be good for others if the Lord bless it. If you cannot preach yourself, you can distribute the word spoken by others.
 
-I hope to be able to occupy the pulpit again by June 25th, if the Lord will; but all things are uncertain to us, especially when one is slowly recovering from severe affliction.
+I hope to be able to occupy the pulpit again by June twenty-fifth, if the Lord will; but all things are uncertain to us, especially when one is slowly recovering from severe affliction.
 
 Yours to serve till death,

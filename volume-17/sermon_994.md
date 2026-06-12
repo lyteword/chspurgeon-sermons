@@ -69,7 +69,7 @@ I have one thing more to mention before I bring this sermon to a close. The bles
 
 Now, I send you away with these three words: "Search." See whether the blessings are blessings indeed, and be not satisfied unless you know that they are of God, tokens of his grace, and earnests of his saving purpose. "Weigh"--that shall be the next word. Whatever thou hast, weigh it in the scale, and ascertain if it be a blessing indeed, conferring such grace upon you as causeth you to abound in love, and to abound in every good word and work. And lastly, "Pray." So pray that this prayer may mingle with all thy prayers, that whatsoever God grants or whatever he withholds thou mayest be blessed indeed. Is it a joy-time with thee? O that Christ may mellow thy joy, and prevent the intoxication of earthly blessedness from leading thee aside from close walking with him! In the night of sorrow, pray that he will bless thee indeed, lest the wormwood also intoxicate thee and make thee drunk, lest thy afflictions should make thee think hardly of him. Pray for the blessing, which having, thou art rich to all the intents of bliss, or which lacking, thou art poor and destitute, though plenty fill thy store. "If thy presence go not with me, carry us not up hence." But "Oh that thou wouldest bless me indeed!"
 
-Letter from Mr. Spurgeon, read at the Tabernacle on Lord's-day, June 11th:--
+Letter from Mr. Spurgeon, read at the Tabernacle on Lord's-day, June eleventh:--
 
 BELOVED FRIENDS,--Whom I have in constant and affectionate remembrance I am obliged again to take up the note of mourning, for I have been all the week suffering, and the most of it confned to my bed. The severe weather has driven me back, and caused a repetition of all my pains.
 
@@ -77,7 +77,7 @@ Nevertheless, the Lord's will be done. Let Him have his way with me, for he is L
 
 Beloved, hitherto I have had much solace in hearing that the Lord's work among you goes on. I pray you make earnest intercession that this may continue. I hope week-night services will not droop. If you stay away, let it be when I am there, but not now. May the Deacons and Elders find themselves at every meeting for worship surrounded by an untiring band of helpers.
 
-May abundance of grace rest on you all, especially on the sick, the poor, and the bereaved. Pray for me, I entreat you. Perhaps if the church met for prayer I should be speedily restored. I know thousands do pray, but should not the church do so as a church? I fear I must give up all hope of preaching on the 25th; but I trust the Lord will be merciful to me, and send me among you on the first Sabbath of July.
+May abundance of grace rest on you all, especially on the sick, the poor, and the bereaved. Pray for me, I entreat you. Perhaps if the church met for prayer I should be speedily restored. I know thousands do pray, but should not the church do so as a church? I fear I must give up all hope of preaching on the twenty-fifth; but I trust the Lord will be merciful to me, and send me among you on the first Sabbath of July.
 
 Next Sunday there should be a collection for the Association, an object very dear to me. With deep Christian love,
 

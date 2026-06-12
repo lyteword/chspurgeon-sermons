@@ -82,14 +82,14 @@ PORTION OF SCRIPTURE READ BEFORE SERMON--Epistle of Jude.
 
 The attention of all our friends is earnestly directed to the SERIES OF SPECIAL SERVICES AT THE TABERNACLE. In order that London friends may unite with us we publish the meetings week by week, and at the same time our country friends can join with us in spirit:--
 
-Lord's-day, February 26th.--Sermon to the Sabbath School and young people generally. By C.H.S., at 3 p.m.
+Lord's-day, February twenty-sixth.--Sermon to the Sabbath School and young people generally. By C.H.S., at 3 p.m.
 
-Monday, February 27th.--Prayer-meeting for females only, at six. Young people's prayer-meeting at the same time. At seven, Elders and Deacons will deliver addresses to the unconverted at the usual prayer-meeting.
+Monday, February twenty-seventh.--Prayer-meeting for females only, at six. Young people's prayer-meeting at the same time. At seven, Elders and Deacons will deliver addresses to the unconverted at the usual prayer-meeting.
 
-Tuesday, February 28th.--Great meeting of butcher's men, invited by Mr. Henry Varley. Addresses in the Tabernacle at 7. (Tickets.) C.H.S. to preside.
+Tuesday, February twenty-eighth.--Great meeting of butcher's men, invited by Mr. Henry Varley. Addresses in the Tabernacle at 7. (Tickets.) C.H.S. to preside.
 
-Wednesday, March 1st.--Prayer-meetings at the houses of our friends, according to the list, which will be issued. May the prayers of all the households be heard in heaven.
+Wednesday, March first.--Prayer-meetings at the houses of our friends, according to the list, which will be issued. May the prayers of all the households be heard in heaven.
 
-Thursday, March 2nd.--Mothers' prayer-meeting at six. Meeting for persons under concern of soul at half-past eight, after the lecture. Fathers' prayer-meeting at 8:30.
+Thursday, March second.--Mothers' prayer-meeting at six. Meeting for persons under concern of soul at half-past eight, after the lecture. Fathers' prayer-meeting at 8:30.
 
-Friday, March 3rd.--Meeting of our young friends above fifteen, and yet unsaved. Tea at six. (Tickets to be had of the Elders.)
+Friday, March third.--Meeting of our young friends above fifteen, and yet unsaved. Tea at six. (Tickets to be had of the Elders.)
