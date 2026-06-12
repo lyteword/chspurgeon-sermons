@@ -64,7 +64,7 @@ Oh, give yourselves to Jesus, dear Hearts! Give yourselves to Jesus! Now that so
 
 EXPOSITION BY C. H. SPURGEON: PSALM 77.
 
-The Book of Psalms, though it is Divinely Inspired, is also marvelously human--it is everywhere instinct with life-- and life in its most sympathetic forms. However glad you are, there is always a Psalm suitable for you to sing. And you are never so sad but a Psalm could be found to help you, in the very depths, to pour out your complaint before God. This 77th Psalm is the song of a man in deep depression.
+The Book of Psalms, though it is Divinely Inspired, is also marvelously human--it is everywhere instinct with life-- and life in its most sympathetic forms. However glad you are, there is always a Psalm suitable for you to sing. And you are never so sad but a Psalm could be found to help you, in the very depths, to pour out your complaint before God. This seventy-seventh Psalm is the song of a man in deep depression.
 
 Verse 1. Icried unto God with my voice, even unto God with my voice; andHegave ear unto me. It was only a cry. A monotonous cry, redoubled and full of sorrow. Yet the Lord gave ear unto him who cried. There were some who would have stopped their ears and have got out of the way, for the sound made them melancholy and they could not bear it. But the Lord gave ear unto His sad servant's cry. Oh, how sweet is this! Though He hears the songs of angels and though the hallelujahs of the blood-bought in Glory never cease before Him, yet He stoops from His throne of majesty and listens to the cry of misery! "He gave ear unto me." Are any of you troubled? Pour out your hearts before the Lord and He will give ear unto you as He did to the writer of this Psalm!
 

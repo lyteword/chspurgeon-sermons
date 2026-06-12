@@ -78,7 +78,7 @@ God grant us all to have a share in this precious knowledge, for Christ's sake! 
 
 EXPOSITION BY C. H. SPURGEON: PSALM32.
 
-A Psalm of David, giving instruction. The 32nd Psalm is a Gospel benediction. It belongs not to the law--it is a word which can only come of Sovereign Grace to the guilty. The very first sentence tells us that.
+A Psalm of David, giving instruction. The thirty-second Psalm is a Gospel benediction. It belongs not to the law--it is a word which can only come of Sovereign Grace to the guilty. The very first sentence tells us that.
 
 Verse 1. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed would have been the man who never transgressed, who never sinned, but, be encouraged, O Sinner, there is blessedness even for the likes of you! Blessed is he who, though he has transgressed, has had his transgression forgiven--who, though he has sinned, and sinned often, and sinned foully, yet, nevertheless, has had his sin covered. There is such blessedness in this forgiveness that scarcely can the bliss of an unfallen spirit excel it! There is a tenderness, a delicacy, a fragrance, a love about the dealings of God with pardoned sinners that even angels can scarcely tell the excessive sweetness of it! They have never known the joy of redeeming Grace and dying love and, although they are blessed, yet peculiarly and especially is he blessed "whose transgression is forgiven, whose sin is covered."
 

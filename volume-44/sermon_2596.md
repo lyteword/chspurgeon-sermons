@@ -72,7 +72,7 @@ So he went and did according to the word of the LORD: for he went and dwelt by t
 
 8, 9. And the word of the LORD came unto him, saying, Arise, get you to Zarephath, which belongs to Sidon, and dwell there: behold, I have commanded a widow woman there to sustain you. It was a time of famine, yet God sent him to a widow woman! She is sure to need sustaining, herself. Yes, and she shall get it, too, through sustaining the Prophet! He that could command the ravens to feed His servant, could command a widow woman to do the same thing--and He did. This woman does not appear to have been originally a worshipper of Jehovah. She lived in a heathen country and probably was, herself, a heathen, but she reverenced the servant of Jehovah and she did his bidding and, no doubt, became a true follower of the living God.
 
-So he arose and went to Zarephath. There is the same unreasoning faith--"So he arose"--just as, in the 5th verse, it is written, "So he went," that is, with all alacrity, as a matter of course, he did his Lord's bidding without any question.
+So he arose and went to Zarephath. There is the same unreasoning faith--"So he arose"--just as, in the fifth verse, it is written, "So he went," that is, with all alacrity, as a matter of course, he did his Lord's bidding without any question.
 
 And when he came to the gate of the city, behold, the widow woman was there. There she was, the woman who was to sustain him! She had come, no doubt, with a carriage and pair, to take him home, to her mansion. Oh, no! "The widow woman was there."
 
