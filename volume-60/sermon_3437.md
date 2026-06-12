@@ -74,7 +74,7 @@ He that rejects Me, and receives not My words, has One that judges him: the word
 
 For I have not spoken of Myself; but the Father which sent Me, He gave Me a commandment, what I should say, and what I should speak.God at the back of Christ. Omnipotence supporting Love. The expostulations of Christ, not left to our will to do as we like with them, but solemnly sanctioned by the royalties of God, so that to refute them is treason against the Majesty of Heaven!
 
-And I know that His commandment is life everlasting: whatever I speak, therefore, even as the Father said unto Me, so I speak.The eternal authority of God is at the back of the testimony of Christ. Oh, that men would not be so unwise as to reject it! Now in our reading at the 41st verse we met with these words-- "These things said Isaiah, when he saw His Glory and spoke of Him." Now let us read the passage which gives us an account of Isaiah's seeing the Glory of Christ.
+And I know that His commandment is life everlasting: whatever I speak, therefore, even as the Father said unto Me, so I speak.The eternal authority of God is at the back of the testimony of Christ. Oh, that men would not be so unwise as to reject it! Now in our reading at the forty-first verse we met with these words-- "These things said Isaiah, when he saw His Glory and spoke of Him." Now let us read the passage which gives us an account of Isaiah's seeing the Glory of Christ.
 
 ISAIAH 6.
 
