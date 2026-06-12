@@ -68,7 +68,7 @@ EXPOSITIONS BY C. H. SURGEON: PSALM 149; MATTHEW 5:1-12.
 
 Psalm 149:1. Praise you the Lord. This is a Hallelujah Psalm. It begins with, "Praise you the Lord," and finishes in the same way. It is a complete circle of praise. The long streams of the Psalms end in glorious cascades of hallelujahs. One after another these jubilant notes roll out, as in Handel's magnificent Hallelujah Chorus.
 
-Sing unto the LORD a new song, and His praise in the congregation of saints. There was an old song previous to this new one--in the 148th Psalm--the Psalm for sun and moon and stars, for deeps and dragons, for old men and maidens, and so on. But this is a Psalm for saints, so it is "a new song" for the new creation. Therefore, let all the new creatures of God sing it from their hearts!
+Sing unto the LORD a new song, and His praise in the congregation of saints. There was an old song previous to this new one--in the one hundred and forty-eighth Psalm--the Psalm for sun and moon and stars, for deeps and dragons, for old men and maidens, and so on. But this is a Psalm for saints, so it is "a new song" for the new creation. Therefore, let all the new creatures of God sing it from their hearts!
 
 Let Israel rejoice in Him that made him. This is the best and highest form of creation--the making, not only of men, but of men of God, the making of Israels, the making of prevailing princes.
 
@@ -90,7 +90,7 @@ To execute vengeance upon the heathen, and punishments upon the people. So they 
 
 To bind their kings with chains, and their nobles with fetters of iron. Reading the passage in a Gospel sense, we lead men captives in the bonds of love that are stronger than fetters of iron! O soldiers of Christ, army of the living God, this is the battle you have to fight--be this your victory, too!
 
-To execute upon them the judgment written: this honor have all His saints. Praise you the LORD. So the Psalm ends upon its keynote--"Hallelujah." "Praise you the Lord.' Now let us turn to the 5th chapter of the Gospel according to Matthew and see what we have to rejoice in there.
+To execute upon them the judgment written: this honor have all His saints. Praise you the LORD. So the Psalm ends upon its keynote--"Hallelujah." "Praise you the Lord.' Now let us turn to the fifth chapter of the Gospel according to Matthew and see what we have to rejoice in there.
 
 Matthew 5:1. And seeing the multitudes, He went up into a mountain: and when He was set, His disciples came unto Him. You notice that the Preacher sat down and that His disciples stood around Him. If you find it somewhat warm and trying, tonight, remember that you have the best of it, for you sit while the speaker stands! Concerning our Lord, we read, "When He was set, His disciples came unto Him."--
 

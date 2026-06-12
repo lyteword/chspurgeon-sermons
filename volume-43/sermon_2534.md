@@ -102,7 +102,7 @@ Shall My righteous Servant justify many; for He shal1 bear their iniquities. The
 
 Therefore will I divide Him a portion with the great, and He shall divide the spoil with the strong; because He has poured out His soul unto death. He not only died, but He poured out His very soul unto death.
 
-And He was numbered with the transgressors: and He bore the sin of many, and made intercession for the transgressors. We shall also do well to read part of the 55th chapter of Isaiah after this 53rd--the one is an admirable preparation for the other
+And He was numbered with the transgressors: and He bore the sin of many, and made intercession for the transgressors. We shall also do well to read part of the fifty-fifth chapter of Isaiah after this fifty-third--the one is an admirable preparation for the other
 
 Isaiah 55:1. Ho, everyone that thirsts; come you to the waters. To the waters which flowed from that smitten Rock of which we have been reading.
 

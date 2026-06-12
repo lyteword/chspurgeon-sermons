@@ -96,7 +96,7 @@ As for the people, so also for himself, to offer for sins. But our Lord had no s
 
 4, 5. And no man takes this honor unto himself, but he that is called of God, as was Aaron. So also Christ glorified not Himself to be made an High Priest but He that said unto Him, You are My Son, today have I begotten You. The text is quoted from the second Psalm and it proves that Christ did not arrogate to Himself any position before God. He is God's Son, not merely because He calls Himself so, but because the Father says, "You are My Son, today have I begotten You." He took not this honor upon Himself, but He was "called of God, as was Aaron."
 
-As He says also in another place.--In the 110th Psalm.
+As He says also in another place.--In the one hundred and tenth Psalm.
 
 You are a Priest forever after the order ofMelchisedec. He does not assume the office on His own account, but it is laid upon Him. He comes not in as an amateur, but as an authorized Priest of God!
 

@@ -78,7 +78,7 @@ I suppose that many of you know this chapter by heart. I notice that in all old 
 
 Verse 1. Let not your heart be troubled: you believe in God, believe also in Me. There is no cure for heart-trouble but heart-trust. "You believe in God"--you trust in Divine Providence, now trust in the Savior's great Atonement. You have come close to God already, come closer to the Incarnate God, the Lord Jesus Christ. Hear Him say to you, "You believe in God, believe also in Me." Your faith already deals with some things. Now let it deal with more things. Your past troubles have been endured by faith. Now endure the presentin the same way.
 
-In My Father's house are many mansions. You are at home in Christ even now if you are a Believer in Him. Wherever you are, you are your Heavenly Father's own child, and you have realized the Truth of what David wrote in the 23rd Psalm, "I will dwell in the house of the Lord forever." Usually, when we are singing that sweetly solemn hymn, beginning--
+In My Father's house are many mansions. You are at home in Christ even now if you are a Believer in Him. Wherever you are, you are your Heavenly Father's own child, and you have realized the Truth of what David wrote in the twenty-third Psalm, "I will dwell in the house of the Lord forever." Usually, when we are singing that sweetly solemn hymn, beginning--
 
 Forever with the Lord,"
 
