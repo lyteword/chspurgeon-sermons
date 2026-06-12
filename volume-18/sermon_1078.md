@@ -52,7 +52,7 @@ May I ask you, beloved Friends, to recollect what God has done for you? Thread t
 
 Let your conscience praise the Sin-Bearer who has caused it to flow with peace like a river and to abound in righteousness as the waves of the sea. Let your emotions join the sacred choir, for you have this day, if you are like the Psalmist, many feelings of delight. Bless Him "who crowns you with loving kindness and tender mercies, and who satisfies your mouth with good things so that your youth is renewed like the eagles." Is all within you peaceful today?
 
-Sing the 23rd Psalm. Let the calm of your spirit sound forth the praises of the Lord upon the pleasant harp and the psaltery.
+Sing the twenty-third Psalm. Let the calm of your spirit sound forth the praises of the Lord upon the pleasant harp and the psaltery.
 
 Do your days flow smoothly? Then consecrate the dulcimer to the Lord. Are you joyful this day? Do you feel the exhilaration of delight? Then praise the Lord with the timbrel and dance. On the other hand, is there a contention within? Does conflict disturb your mind? Then praise Him with the sound of the trumpet, for He will go forth with you to the battle. When you return from the battle and divide the spoil, then, "praise Him upon the loud cymbals: praise Him upon the high-sounding cymbals." Whatever emotional state your soul is found in, let it lead you to bless your Maker's holy name!
 
