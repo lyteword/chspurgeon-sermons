@@ -96,7 +96,7 @@ For he looked for a city which has foundations, whose Builder and Maker is God. 
 
 These all died in faith. That is the epitaph which God has carved over the resting place of His faithful ones-- "These all died in faith." Will this be the record concerning all of us, "These all died in faith"?
 
-Not having received the promises, but having seen them afar off and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth. The chapter is a very long one so I must condense it, as the Apostle, himself, did when he came to the 32nd verse. There was so much to be said that he added--
+Not having received the promises, but having seen them afar off and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth. The chapter is a very long one so I must condense it, as the Apostle, himself, did when he came to the thirty-second verse. There was so much to be said that he added--
 
 And what more shall I say? For the time would fail me to tell of Gideon, and of Barak, and of Samson, and of Jephthah; of David also, and Samuel, and of the Prophets. There are some names in this chapter which we would hardly have expected to see there--the characters mentioned having been so disfigured by serious faults, flaws and failings--but the distinguishing feature of faith was there in every instance--and especially in the case of Samson. Perhaps there was no more childlike faith in any man than there was in him. Who but a man full of faith would have hurled himself upon a
 
