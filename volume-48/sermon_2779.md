@@ -89,7 +89,7 @@ And then, lastly, He speaks to those of you who have long enjoyed fellowship wit
 
 EXPOSITION BY C. H. SPURGEON: 1 KINGS 10:1-13; MATTHEW12:38-45.
 
-Let us first read part of the 10th Chapter of the First Book of Kings and, afterwards, a part of the 12th Chapter of the Gospel according to Matthew.
+Let us first read part of the tenth Chapter of the First Book of Kings and, afterwards, a part of the twelfth Chapter of the Gospel according to Matthew.
 
 1 Kings 10:1. And when the queen of Sheba heard of the fame of Solomon concerning the name of the LORD, she came to prove him with hard questions. Her visit, you see, had a religious aspect. She "heard of the fame of Solomon concerning the name of the Lord." He had wisdom of various kinds, but it was his knowledge of God, and of God's ways, that seemed chiefly to attract this ruler from a far-distant land.
 
