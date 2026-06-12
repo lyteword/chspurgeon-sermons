@@ -22,7 +22,7 @@ In our text there are two things--prayer asked and a blessing given--"Now the Go
 
 First, here is PRAYER ASKED FOR.
 
-We will look at the Apostle's request for prayer in general and then, afterwards, we will look to the details which are mentioned in the 31st verse.
+We will look at the Apostle's request for prayer in general and then, afterwards, we will look to the details which are mentioned in the thirty-first verse.
 
 First, here is a request to the people of God for prayer in general. He asks it for himself--"That you strive together with me in your prayers to God for me." He knew his own weakness. He knew the difficulty of the work to which he had been called. He knew that if he failed in his enterprise, it would be a sad failure, injurious through coming ages to the entire Church. He cried, "Agonize for me," because he felt that much depended upon him. It is like a man who is willing to lead the forlorn hope, but he says to his comrades, "You will support me." It is like one who is willing to go into a far country, bearing his life in his hands, but he plaintively exclaims, "You won't forget me, will you? Though you stay at home, will you think of me?" It reminds us of Carey, who says, when he goes to India, "I will go down into the pit, but Brother Fuller and the rest of you must hold the rope." Can we refuse the request? Would it not be treachery?
 
