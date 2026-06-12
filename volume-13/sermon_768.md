@@ -136,7 +136,7 @@ And then, thirdly, lift them up at the last. Lift them up by taking them Home! L
 > To realms of everlasting day.   
 > Feed them also, and lift them up forever.   
 
-O my Brothers and Sisters, that you and I may but get Home at the last! How I love that desire of David's, in the 27th Psalm, where he says, "One thing have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord." That one desire sucked all the others up, and this is the one desire, I trust, which we have--
+O my Brothers and Sisters, that you and I may but get Home at the last! How I love that desire of David's, in the twenty-seventh Psalm, where he says, "One thing have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord." That one desire sucked all the others up, and this is the one desire, I trust, which we have--
 
 > Jerusalem! My happy home! Name ever dear to me.   
 > When shall my labors have an end, In joy, and in you?   

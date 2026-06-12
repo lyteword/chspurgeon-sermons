@@ -52,7 +52,7 @@ Beloved, you have not forgotten the famous text of His sermon at Nazareth, which
 
 Did the Master work in the power of the Spirit of God, and shall not the servants do so? If you would work such works as Christ did, you must work them in the power which Christ bestowed so abundantly on His Church when He ascended to His Father. If you would be here on earth wonder-workers to arouse the dead, to open blind eyes, and to set at liberty the captives--and to this you are ordained in your measure even as He was, every one of you--then you must have the power of the Holy Spirit resting upon you, for only by that power can you lead the life of Christ on earth!
 
-The resurrection of Christ from the dead is sometimes in Scripture ascribed to the Holy Spirit. You will recollect that passage in the eighth chapter of the Epistle to the Romans, at the 11th verse: here you are promised that the same power which "raised up Christ from the dead shall also quicken your mortal bodies." Our resurrection from the death of sin is worked in us by the Holy Spirit. There is no rising out of the grave of sin unless the voice shall say, "Lazarus, come
+The resurrection of Christ from the dead is sometimes in Scripture ascribed to the Holy Spirit. You will recollect that passage in the eighth chapter of the Epistle to the Romans, at the eleventh verse: here you are promised that the same power which "raised up Christ from the dead shall also quicken your mortal bodies." Our resurrection from the death of sin is worked in us by the Holy Spirit. There is no rising out of the grave of sin unless the voice shall say, "Lazarus, come
 
 forth."
 
