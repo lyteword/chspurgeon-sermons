@@ -9,7 +9,7 @@ ANY OF THE SAINTS of God are as mournful as if they were captives in Babylon, fo
 
 First, I shall urge upon you a stirring up of all your powers to sacred song. "Awake, awake, Deborah; awake, awake, utter a song." In the second place, I shall persuade you to practice a sacred leading of your captivity captive. "Arise, Barrak, and lead thy captivity captive, thou son of Abinoam."
 
-First, then, A STIRRING UP OF ALL OUR POWERS TO PRAISE GOD, according to the words of the holy woman in the text, "Awake, awake,"&mdash;repeated yet again "Awake, awake."
+First, then, a STIRRING UP OF ALL OUR POWERS TO PRAISE GOD, according to the words of the holy woman in the text, "Awake, awake,"&mdash;repeated yet again "Awake, awake."
 
 WHAT is there that we need to awaken if we would praise God? I reply, we ought to arouse all the bodily powers. Our flesh is sluggish; we have been busy with the world, our limbs have grown fatigued, but there is power in divine joy to arouse even the body itself, to make the heavy eyelids light, to reanimate the drowsy eye, and quicken the weary brain. We should call upon our bodies to awake, especially our tongue, "the glory of our frame." Let it put itself in tune like David's harp of old. A toilworn body often makes a mournful heart. The flesh has such a connection with the spirit, that it often boweth down the soul. Come, then, my flesh, I charge thee, awake. Blood, leap in my veins? Heart, let thy pulsings be as the joy-strokes of Miriam's timbrel! Oh, all my bodily frame, stir up thyself now, and begin to magnify and bless the Lord, who made thee, and who has kept thee in health, and preserved thee from going down into the grave.
 

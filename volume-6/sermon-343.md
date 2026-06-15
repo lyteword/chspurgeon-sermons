@@ -9,7 +9,7 @@ And now look at my text in the light of what I have already said. It appears tha
 
 There is no need for any labored disquisition; there are no hard words in a herdsman's language, and no great mysteries in a herdsman's vision. There is a basket of fruit which is so ripe that it has been gathered, and it is a sort of fruit&mdash;summer fruit&mdash;which will not keep, which will not lay by unto the winter, but which must be eaten at once. Amos sees at once that God's purposes were now ripe with regard to his people Israel, and that the nation itself had become ripe in its sin, so ripe that it must be destroyed. It teaches to us in these modern times, that there is a ripeness of men as well as of summer fruit; there is a ripening in holiness till we are gathered by the hand of Jesus for heaven, and a ripening in sin till we are swept away with the rough hand of death, and are cast away into the rottenness of destruction.
 
-I shall use my text then, in three different ways; the first remark being that GOD'S PURPOSES HAVE A RIPENESS.
+I shall use my text then, in three different ways; the first remark being that GOD's PURPOSES HAVE a RIPENESS.
 
 God always times his decrees. He is never before his time, and he never is so much as a single hour behind. Many men are wise too late; God is always wise, and always proves his wisdom, not only by what he doeth, but by the time when he doeth it. Let us notice two of God's greatest acts, and notice the ripeness of them.
 

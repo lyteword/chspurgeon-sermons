@@ -11,7 +11,7 @@ H. Spurgeon.
 
 "Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light: who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son."&mdash;Colossians 1:12, 13.
 
-THIS PASSAGE IS A MINE of riches. I can anticipate the difficulty in preaching and the regret in concluding we shall experience this evening because we are not able to dig out all the gold which lies in this precious vein. We lack the power to grasp and the time to expatiate upon that volume of truths which is here condensed into a few short sentences.
+THIS PASSAGE IS a MINE of riches. I can anticipate the difficulty in preaching and the regret in concluding we shall experience this evening because we are not able to dig out all the gold which lies in this precious vein. We lack the power to grasp and the time to expatiate upon that volume of truths which is here condensed into a few short sentences.
 
 We are exhorted to "give thanks unto the Father." This counsel is at once needful and salutary. I think, my brethren, we scarcely need to be told to give thanks unto the Son. The remembrance of that bleeding body hanging upon the cross is ever present to our faith. The nails and the spear, his griefs, the anguish of his soul, and his sweat of agony, make ouch tender touching appeals to our gratitude&mdash;these will prevent us always from ceasing our songs, and sometimes fire our hearts with rekindling rapture in praise of the man Christ Jesus. Yes we will bless thee, dearest Lord; our souls are all on fire. As we survey the, wondrous cross, we cannot but shout&mdash;
 
@@ -45,7 +45,7 @@ Ah! this makes the heirs of glory think much of God the Father. When we reflect,
 
 Into this subject I might have entered more fully; but I have not time. I am sure I have left some knots untied, and you must untie them if you can yourselves; and let me recommend you to untie them on your knees&mdash;the mysteries of the kingdom of God are studied much the best when you are in prayer.
 
-The second mercy is A MERCY THAT LOOKS BACK. We sometimes prefer the mercies that look forward, because they unfold such a bright prospect.
+The second mercy is a MERCY THAT LOOKS BACK. We sometimes prefer the mercies that look forward, because they unfold such a bright prospect.
 
 "Sweet fields beyond the swelling flood."
 
