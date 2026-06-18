@@ -89,7 +89,7 @@ Well, all this is to come again, "I will see you again and your heart shall rejo
 
 "O love Divine, how sweet You are, When shall I find my willing heart All taken up with You? I thirst, I faint, I die to prove The fullness of redeeming love-- The love of Christ to me."
 
-And now, secondly, with as great brevity as we can, this lovesickness may be seen in A SOUL LONGING FOR A VIEW OF JESUS IN HIS GLORY.
+And now, secondly, with as great brevity as we can, this lovesickness may be seen in a SOUL LONGING FOR a VIEW OF JESUS IN HIS GLORY.
 
 And here we will consider the complaint itself for a moment. This ailment is not merely a longing after communion with Christ on earth--that has been enjoyed and generally this sickness follows that--
 

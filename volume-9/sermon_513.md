@@ -19,7 +19,7 @@ Still, it appears to me that without straining so much as one word even in the s
 
 I shall use the text in two ways, first, as the ground of my address to the young. And then, secondly, as a model for your address to God.
 
-WE WILL MAKE OUR TEXT THE GROUND WORK OF A SOLEMN PLEADING WITH YOUNG MEN AND WOMEN TO GIVE THEIR HEARTS TO CHRIST THIS DAY.
+WE WILL MAKE OUR TEXT THE GROUND WORK OF a SOLEMN PLEADING WITH YOUNG MEN AND WOMEN TO GIVE THEIR HEARTS TO CHRIST THIS DAY.
 
 The voice of Wisdom reminds you in this, our text, that you are not pure in God's sight, but NEED HIS MERCY. Early as it is with you, you must come before God on the same footing as those who seek Him at the eleventh hour. Here is nothing said about merit, nothing concerning the natural innocence of youth or the beauty of the juvenile character. You are not thus flattered and deceived. But Holy Scripture guides you aright, by dictating to you an evangelical prayer, such as God will deign to accept--"O satisfy us early with your mercy."
 

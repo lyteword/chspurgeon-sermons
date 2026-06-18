@@ -91,7 +91,7 @@ You know, my Sisters, how you wear your rings. I would that every Christian wore
 
 I will give you those four subdivisions again: universally, without dividing. Sincerely, without dissembling. Cheerfully, without disputing. Constantly, without declining.
 
-Now for the second point, which is CALEB'S FAVORED PORTION. In reward for his faithful following of his
+Now for the second point, which is CALEB's FAVORED PORTION. In reward for his faithful following of his
 
 Master, his life was preserved in the hour ofjudgment. The ten fell, smitten with plague, but Caleb lived. Blessed is the man who has the God of Jacob for his confidence--
 
@@ -133,7 +133,7 @@ She had the field and a south country--she would have the land of springs--and h
 
 There are some of us who are young in years, members of this Church, men and women, and we have before us, I hope, the opportunity, if God gives us Divine Grace, of becoming Calebs. And if the Lord should spare me as he spared Joshua, and spare you as he spared Caleb, we may yet, when our hairs are gray, do something, still, for the Lord our God, when those that fought the fight before us shall sleep among the clods of the valley. O for the Holy Spirit within us and the love of Jesus upon us, that we may be accepted in the Beloved!
 
-And now, the last point of all--CALEB'S SECRET CHARACTER. The Lord says of him, "Because he has another spirit with him." He had another spirit--not only a bold, generous, courageous, noble and heroic spirit, but the Spirit and influence of God which thus raised him above human inquietudes and earthly fears. Therefore he followed God fully--literally he filled after him. God showed him the way to take and the line of conduct he must pursue--and he filled up this line, and in all things followed the will of his Master. Everything acts according to the spirit that is in it.
+And now, the last point of all--CALEB's SECRET CHARACTER. The Lord says of him, "Because he has another spirit with him." He had another spirit--not only a bold, generous, courageous, noble and heroic spirit, but the Spirit and influence of God which thus raised him above human inquietudes and earthly fears. Therefore he followed God fully--literally he filled after him. God showed him the way to take and the line of conduct he must pursue--and he filled up this line, and in all things followed the will of his Master. Everything acts according to the spirit that is in it.
 
 Yonder lamp gives no light. Why? It has no oil. Here is another. It cheers the darkness of the cell. Why? It is full of oil and oil is the mother of light. There are two huge bags of silk. One of them lies heavily upon the ground, the other mounts up towards the stars. The one is filled with carbonic-acid gas. It cannot mount, it acts according to the spirit that is in it. It has a heavy gas and there it lies. There is another full of hydrogen and it acts according to the spirit that is in it and up it goes. The light air seeks the lighter regions and up it mounts. Everything recording to its own order. The real way to make a new life is to receive a new spirit. There must be given us, if we would follow the Lord fully, a new heart and that new heart must be found at the foot of the Cross, where the Holy Spirit works through the bleeding wounds of Jesus.
 

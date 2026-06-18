@@ -83,7 +83,7 @@ Why, this would be Hell, if there were no other Hell to a Christian--to be banis
 
 "You lovely chief of all my joys, You sovereign of my heart! How could I bear to hear Your voice Pronounce the sound 'Depart'? Oh wretched state of deep despair, To see my God remove, And fix my doleful station where I must not taste His love. Jesus, I throw my arms around, And hang upon Your breast; Without a gracious smile from You My spirit cannot rest."
 
-But I am afraid I weary you and therefore, dear Friends, let me take you very briefly to the third point. There is in our text A FEAR, as if a whisper awakened the Psalmist's ear to trembling, "Perhaps, after all, you may be gathered with the wicked."
+But I am afraid I weary you and therefore, dear Friends, let me take you very briefly to the third point. There is in our text a FEAR, as if a whisper awakened the Psalmist's ear to trembling, "Perhaps, after all, you may be gathered with the wicked."
 
 Now, that fear, although marred by unbelief, springs, in the main, from holy anxiety. Do you not think that some of us may well be the subjects of it? This holy anxiety may well arise if we recollect our past sins. Before we were converted we lived as others lived. The lusts of the flesh were ours. We indulged our members. We permitted sin to reign in our mortal bodies without restraint. And there will be times to the pardoned man, even though he has faith in Christ, when he will begin to think--"What if, after all, those sins should be remembered and I should be left out of the catalogue of the saved?"
 
