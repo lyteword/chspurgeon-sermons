@@ -37,7 +37,7 @@ I think, also, that he had in his mind's eye the fact that they were now about t
 > But there's a nobler Co venant sealed   
 > To David's greater Son.   
 > His seed forever shall possess   
-> A Throne above the skies;   
+> a Throne above the skies;   
 > The meanest subject of His Grace   
 > Shall to that glory rise.   
 
@@ -49,7 +49,7 @@ and have no confidence in the flesh--the words of Moses to the tribes, "Happy ar
 
 First, let us consider the happy condition of God's people. And then, secondly, let us consider the result of our fully realizing this happiness. May the Holy Spirit, the Comforter, fill us with all joy and peace while we commune upon this subject. May the blessed God now bless all His children!
 
-Let us dwell upon THE HAPPY CONDITION OF GOD'S PEOPLE. The Israelites were so favored that Moses,
+Let us dwell upon THE HAPPY CONDITION OF GOD's PEOPLE. The Israelites were so favored that Moses,
 
 himself, was astonished at the eminently desirable condition in which they were placed. We may readily imagine that we see him lifting up his hands with surprise and saying, "Happy are you, O Israel; who is like unto you?" He considered the nation to be incomparably favored and, therefore, enquired in astonishment, "Who is like unto you?" He had seen Egypt with all its wisdom and its wealth--and the desert tribes in all their rustic simplicity--and doubtless he knew the condition of most of the nations under Heaven. But having his eyes upon them all, he, nevertheless, looks upon the chosen race which God had brought up out of Egypt and he says, "Who is like unto you?"
 
@@ -73,7 +73,7 @@ Have you not, also, somewhat neglected to survey your hopes? What if you have li
 
 We have every reason to be happy and if we are not so, it must be because we fail to remember the privileges which our Lord has bestowed upon us. Let me stir you up, my Brothers and Sisters, to happiness this morning--
 
-"Why should the children of a King Go mourning all their days? Come, cease to groan, and loudly sing A Psalm of gladsome praise."
+"Why should the children of a King Go mourning all their days? Come, cease to groan, and loudly sing a Psalm of gladsome praise."
 
 What a blessed task is mine--to urge my Brothers and Sisters to be happy! How highly favored are you to be exhorted to so delicious a privilege! When happiness becomes a duty, who will not be glad? What a blessed people are they to whom to be delighted is but to obey the Divine command to rejoice in the Lord--an obligation as well as a privilege! My Brethren, I would urge you to rejoice, this morning, because if you are, indeed, believers in Christ, you are "a people saved by the Lord."
 
