@@ -1,4 +1,4 @@
-# Sermon 881 | The Believer A New Creature
+# Sermon 881 | The Believer a New Creature
 
 > "Therefore if any man be in Christ, he is a new creature."  
 > 2 Corinthians 5:17.  
@@ -7,7 +7,7 @@ THIS TEXT IS exceedingly full of matter, and might require many treatises, and e
 
 We have two great truths here, which would serve us for the subject of meditation for many a day: the believer's position--he is "in Christ;" and the believer's character--he is a "new creature." Upon both of these we shall speak but briefly this morning, but may God grant that we may find instruction therein.
 
-First, then, let us consider THE CHRISTIAN'S POSITION--he is said to be "in Christ."
+First, then, let us consider THE CHRISTIAN's POSITION--he is said to be "in Christ."
 
 There are three stages of the human soul in connection with Christ: the first is without Christ, this is the state of nature; the next is in Christ, this is the state of grace; the third is with Christ, that is the state of glory.
 
@@ -27,7 +27,7 @@ We may be in Christ also as the stone is in the building. The stone is built int
 
 The phrase "in Christ Jesus," then, has a weight of meaning in it. "How do we come to be there?" saith one. To whom we answer: our union to Christ is practically and experimentally wrought in us by faith when a man giveth himself up to Christ to sink or swim with Christ, when he leaneth his soul wholly on the Beloved, when as for his good works he abhorreth them, and as for his self-righteousness, he counteth it dross and dung, when he clingeth to the sole hope of the cross, then is such a man in Christ. He is further in Christ when he loves Jesus, when the heart having trusted and reposed in the cross, is moved with deep and warm affection to the Crucified, so that the soul clings to Christ, embracing him with fervent love, and Christ becomes the bridegroom, and the heart becomes his spouse, and they are married to one another in a union which no divorce can ever separate. When love and faith come together, then is there a blessedly sweet communion; these two graces become the double channel through which the Holy Spirit's influence flows forth daily, making the Christian to grow up more fully unto Christ Jesus in all things. The riper the Christian becomes, the nearer to the glory, the closer to the perfection which is promised, the more completely will he think and act, and live and move, in Christ his Master, being one with Jesus in all things. I shall not detain you longer over that one matter, every true Christian is in Christ.
 
-Now we survey THE BELIEVER'S CHARACTER, for it is said that if any man be in Christ he is a "new creature." This is a great utterance. We shall not attempt to dive into it--this were work for a leviathan divine--but merely like the swallow, we touch the surface of it with our wing, and away.
+Now we survey THE BELIEVER's CHARACTER, for it is said that if any man be in Christ he is a "new creature." This is a great utterance. We shall not attempt to dive into it--this were work for a leviathan divine--but merely like the swallow, we touch the surface of it with our wing, and away.
 
 What is meant by the Christian being a new creature? Three thoughts seem to me to spring up from the words, and the first is, the believer must then have been the subject of a radical change. He is said to be a new creature, which is of all things a most sweeping change. There are many changes which a man may undergo, but they may be far from being radical enough to be worth calling a new creation. Saul is among the prophets: hear how he prophesies; if they speak with sacred rapture the secrets of God, so doth he. Is not Saul converted--the Scripture tells us that God gave him another heart! Ay, another heart, but not a new heart. A man may be changed from one sin to another, from reckless profanity to mocking formality, from daring sin to hypocritical pretension to virtue; but such a change as is very far from being saving, and not at all like the work which is called a new creation. Ahab went and humbled himself after his murder of Naboth, and God turned away His vengeance for awhile from him, but that temporary humiliation of Ahab was no sign of a renewal of his nature; it was like the changes of the sea, which today is smooth, but which anon will be as ravenous after wrecks as ever, being still unchanged in its nature, still voracious and cruel, fickle and unstable. Ahab may humble himself, but he is Ahab still, and as Ahab will he go down into the pit.
 
