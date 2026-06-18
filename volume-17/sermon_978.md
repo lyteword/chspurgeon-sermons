@@ -105,7 +105,7 @@ PORTION OF SCRIPTURE READ BEFORE SERMON--Colossians 1.
 
 The attention of all our friends is earnestly directed to the SERIES OF SPECIAL SERVICES AT THE TABERNACLE. In order that London friends may unite with us we publish the meetings week by week, and at the same time our country friends will join with us in spirit:--
 
-Lord's-day, March fifth.--A deputation will address Mrs. Bartlett's class and the senior classes of the Sabbath School; as also Mrs. Bartlett's children's meeting at the Almshouses.
+Lord's-day, March fifth.--a deputation will address Mrs. Bartlett's class and the senior classes of the Sabbath School; as also Mrs. Bartlett's children's meeting at the Almshouses.
 
 Monday, March sixth.--Prayer-meeting for females only, at six. For young people at the same time. Special prayer-meetings at seven for the various agencies of the church. Meetings for enquirers at half-past eight.
 

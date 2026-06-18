@@ -55,6 +55,6 @@ For, remember again, that to be subjected to Christ is, according to our text, t
 
 PORTIONS OF SCRIPTURE READ BEFORE SERMON--Philippians 3.
 
-MESSRS, PASSMORE AND ALABASTER, 18, Paternoster Row, beg to inform the sermon readers that the second volume of MR. SPURGEON'S GREAT WORK UPON THIS PSALMS is receiving the most favorable notice of the reviewers. The first edition of Vol. I is nearly exhausted, and a second edition will be issued. The large volumes, unusually crowded with matter, are published at 8s. each, a price far below the usual charge for such books. The following extract is from the Baptist Magazine:--
+MESSRS, PASSMORE AND ALABASTER, 18, Paternoster Row, beg to inform the sermon readers that the second volume of MR. SPURGEON's GREAT WORK UPON THIS PSALMS is receiving the most favorable notice of the reviewers. The first edition of Vol. I is nearly exhausted, and a second edition will be issued. The large volumes, unusually crowded with matter, are published at 8s. each, a price far below the usual charge for such books. The following extract is from the Baptist Magazine:--
 
 "It seems to us that Mr. Spurgeon has got himself not only to the devout and scholarly exposition of the Psalms, but also to the rendering of his work positively fascinating by its many charms. . . . In the possession of this book the young will find themselves at college, with the learned and the good of all ages for their tutors; and maturer Christians will have the largest spiritual knowledge increased, and its richest experiences strengthened."

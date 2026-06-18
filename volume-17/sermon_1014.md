@@ -36,7 +36,7 @@ Note, further, that the words before us clearly show that the believer's departu
 
 I cannot detain you longer over these words: suffice it to add, that whatever belonged to Simeon in this benediction must not be regarded as peculiar to him alone, but as, in their measure, the possession of all believers. "This is the heritage of the servants of the Lord, and their righteousness is of me, saith the Lord."
 
-But now, secondly, we remind you, that SOME BELIEVERS ARE CONSCIOUS OF A SPECIAL READINESS TO DEPART IN PEACE.
+But now, secondly, we remind you, that SOME BELIEVERS ARE CONSCIOUS OF a SPECIAL READINESS TO DEPART IN PEACE.
 
 When do they feel this? Answer: first, when their graces are vigorous. All the graces are in all Christians, but they are not all there in the same proportion, nor are they at all times in the same degree of strength. In certain believers faith is strong and active. Now, when faith becomes "the evidence of things not seen," and "the substance of things hoped for," then the soul is sure to say, "Lord, now lettest thou thy servant depart in peace." Faith brings the clusters of Eschol into the desert, and makes the tribes long for the land that floweth with milk and honey. When the old Gauls had drunk of the wines of Italy, they said, "Let us cross the Alps, and take possession of the vineyards, which yield such generous draughts." So, when faith makes us realize the joy's of heaven, then it is that our soul stands waiting on the wing, watching for the signal from the glory-land.
 
