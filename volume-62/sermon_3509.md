@@ -38,7 +38,7 @@ This is the first way of salvation--simply trusting and looking up to Christ for
 
 Thus I have tried to explain as clearly as I can that coming to Jesus is the first business of salvation. Now, secondly, and with brevity. This is:--
 
-A GOOD DESCRIPTION OF THE ENTIRE CHRISTIAN LIFE.
+a GOOD DESCRIPTION OF THE ENTIRE CHRISTIAN LIFE.
 
 The Christian is always coming to Christ. He does not look upon faith as a matter of twenty years ago, and done with, but he comes today and he will come to-morrow. He will come to Jesus Christ afresh to-night before he goes to bed. We come to Jesus daily, for Christ is like the well outside the cottager's house. The man lets down the bucket and gets the cooling draught, but he goes again to-morrow, and he will have to go again at night if he is to leave a fresh supply. He must constantly go to the same place. Fishes do not live in the water they were in yesterday; they must be in it to-day. Men do not breathe the air which they breathed a week ago; they must have fresh air into the lungs moment by moment. Nobody thinks that he can be fed upon the fact that he did have a good meal six weeks ago; he has to eat continually. So "the just shall live by faith." We come to Jesus just as we came at first, and we say to him:--
 
@@ -59,7 +59,7 @@ And I may say, too, that it is coming of a dearer sort, for there is more love i
 
 Yet, mark you, it is coming still to the same person, coming still as poor humble ones to Christ. I have often told you, my dear brethren and sisters, that when you get a little above the ground, if it is only an inch, you get too high. When you begin to think that surely you are a saint, and that you have some good thing to trust to, that rotten stuff must all be pulled to pieces. Believe me, God will not let his people wear a rag of their own spinning; they must be clothed with Christ's righteousness from head to foot. The old heathen said he wrapped himself up in his integrity, but I should think he did not know what holes there were in it, or else he would have looked for something better. But we wrap ourselves in the righteousness of Christ, and there is not a cherub before the throne that wears a vestment so right royal as the poor sinner does when he wears the righteousness of Jesus Christ. Oh! child of God, always live upon your Lord. Hang upon him, as the pitcher hangs upon the nail. Lean on your Beloved; his arm will never weary of you. Stay yourselves upon him; wash in the precious fountain always; wear his righteousness continually; and be glad in the Lord, and your gladness need never fail while you simply and wholly lean upon him. And now, not to detain you longer, I come to the last point, upon which we will only say a word or two. The text is:--
 
-A VERY CORRECT DESCRIPTION OF OUR DEPARTURE.
+a VERY CORRECT DESCRIPTION OF OUR DEPARTURE.
 
 "To whom coming." We shall soon, very soon, quit this mortal frame. I hope you have learned to think of that without any kind of shudder. Can you not sing:--
 

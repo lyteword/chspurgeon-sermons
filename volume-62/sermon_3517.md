@@ -97,7 +97,7 @@ Patient in tribulation.The word, "tribulation," signifies threshing as with a fl
 
 12, 13. Continuing instant in prayer Distributing to the necessity of the saints. When you have told your own needs to God, then help the necessities of those who come to you.
 
-13, 14. Given to hospitality. Bless them who persecute you: bless, and curse not A Christian cursing is a very awkward spectacle. Even the Pope, when he takes to cursing, as at least the former one used to do very liberally, seems as if he could hardly be the vicar of God on earth! Our work is to bless the sons of men. "Bless and curse not."
+13, 14. Given to hospitality. Bless them who persecute you: bless, and curse not a Christian cursing is a very awkward spectacle. Even the Pope, when he takes to cursing, as at least the former one used to do very liberally, seems as if he could hardly be the vicar of God on earth! Our work is to bless the sons of men. "Bless and curse not."
 
 Rejoice with them who rejoice. Do not be a wet blanket on their joys. If they have good cause for rejoicing, join in it. Help them to sing their hymn of gratitude.
 

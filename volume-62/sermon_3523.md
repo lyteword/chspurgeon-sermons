@@ -16,7 +16,7 @@ Such reflections, though prolific of instruction, I must not tarry to pursue. I 
 
 The scene itself suggests to us three pictures. The first picture will naturally rise up in your imagination without my attempting any graphic description of it. The old man, a kind and doting father, bears in his hands a sharp knife, and hot blazing coals of fire. The younger man, perhaps twenty-five--so Josephus thinks--possibly 33 years of age and, if so, very manifestly the type of Christ, who was about that age when He came to die. The young man comes toiling up the side of the hill, bearing a load of wood upon his back. He knows that that wood is destined to burn some victim, for his father carries the fire and the knife. He understands that they are about to worship God yonder in the most solemn manner by a sacrifice of blood. On the way he puts but one question, marveling where the victim can be. He sees the fire and the wood, but where is the lamb? he asks. Abraham tells him with a bursting heart, that--
 
-GOD WILL PROVIDE HIMSELF A LAMB.
+GOD WILL PROVIDE HIMSELF a LAMB.
 
 Little did Isaac think that he was to be that lamb! They came to the spot. No doubt Abraham there tells Isaac what God had bid him do. The young man is strong--the old man has lost some of his youthful vigor. If that young man chose to struggle, the intent would be frustrated. But he, like his father, is ready to say to that Sovereign command of God, "Here I am." He allows himself to be bound by his aged sire, no, helps to put himself upon the altar! And there he lies, a willing victim, cheerfully consenting to be bound, willing then and there to die at God's command!
 

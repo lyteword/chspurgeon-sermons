@@ -7,7 +7,7 @@ I HAVE no doubt that the first and most natural meaning of these words is this, 
 
 But in reading the other day Masillon's Reflections of the Psalms, I noticed that that eminent French preacher gives quite another turn to the passage, and he seems to regard this as being the prayer of David when he was exposed to the association of the ungodly, fearful lest he should become in character like those that go down into the pit, and even if that should not be the first meaning of the text, it seems to me to be a natural inference from it, and if not, still the thought, itself, is one which contains so much of holy caution about it that I desire to commend it to all my Brothers and Sisters in Christ Jesus tonight, and especially to such as are usually exposed to danger from evil society. We will begin, then, by remarking that--
 
-MANY OF THE BEST OF GOD'S SAINTS ARE CALLED IN THE ORDER OF PROVIDENCE TO BE TRIED BY EVIL COMPANIONSHIP.
+MANY OF THE BEST OF GOD's SAINTS ARE CALLED IN THE ORDER OF PROVIDENCE TO BE TRIED BY EVIL COMPANIONSHIP.
 
 "I pray not that You should take them out of the world," said Christ, "but that You should keep them from the Evil One." Hence we are not shut up in monasteries or nunneries. We have not to--
 
