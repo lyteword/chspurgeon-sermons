@@ -91,7 +91,7 @@ bulent--into any society, however discordant the elements may be--and yet he wil
 
 Once let the mind be thoroughly disturbed and unhinged before the Lord--and you are weak as any other man and you will say that which you will have to unsay--and you will do that which you would wish to wipe out with your tears! When rest of soul is gone, hard things are spoken and hard things are done which would not consort with communion with the tender Lord. Let the peace of God always rule, or otherwise you will not always be safe. Especially let the peace of God rule your affections! Be satisfied that you love God and that your heart cleaves to God and does not follow after any other. Be at peace with God as to your heart and, when that is so, and the affections are dominated by conscious love to God, it is then that you fight the battles of life with comfort to yourself and with honor to the name of Him to whom you belong.
 
-Very briefly, I want, in the third place, to say, STRENGTHEN YOURSELF, dear Friends, BY GOD'S SPIRIT,
+Very briefly, I want, in the third place, to say, STRENGTHEN YOURSELF, dear Friends, BY GOD's SPIRIT,
 
 WITH ARGUMENTS, in order that you may let the peace of God rule in your hearts and may be kept from any breach of that heavenly peace. Remember, you can only be happy in heart and healthy in spirit as long as you keep the peace of God. You are sure to become wretched and unhappy--you are sure to stumble, here and there, into faults--if that peace of God is gone. As you would be in the best possible condition for walking with God in joy while here, below, look to your peace. This is no mean argument--try to feel the force of it.
 

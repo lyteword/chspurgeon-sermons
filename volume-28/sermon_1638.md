@@ -34,7 +34,7 @@ Yet they know it not, neither guess at their folly. How sad it is that there sho
 
 This morning I shall speak, as I shall be helped by the Holy Spirit, first upon a very mournful fact. Secondly, upon a yet more mournful reason for that fact. And thirdly, upon a mournful result which comes out of that fact. May what is said be taken as a word of warning and may God, the Holy Spirit bless it to the conversion of everyone here present who remains as yet unrenewed! I say everyone, for there is not one among you whom I would knowingly exempt from my prayers.
 
-First, we shall think upon A MOURNFUL FACT. Here was a whole nation, with but very few exceptions, of whom their leader, who knew them best and loved them best, was obliged to say, "The Lord has not given you a heart to perceive to this day." The mournful part of it was that this was the nation that had been specially favored of God above
+First, we shall think upon a MOURNFUL FACT. Here was a whole nation, with but very few exceptions, of whom their leader, who knew them best and loved them best, was obliged to say, "The Lord has not given you a heart to perceive to this day." The mournful part of it was that this was the nation that had been specially favored of God above
 
 all others. God had not entered into covenant with Edom or with Moab. He had not sent the light of His Truth to Egypt, or to Ethiopia, nor to any other of the nations of antiquity. But this comparatively little and insignificant people had been selected that to it might be committed the oracles of God! They were the one candlestick of the human race! They had light in their dwellings while all around them brooded a darkness which might be felt.
 

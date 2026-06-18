@@ -49,7 +49,7 @@ This, then, is the gift which is presented by Christ Jesus at this moment to all
 
 Jesus is here in our midst with hands loaded with mercy. May He prove His Presence among us by giving rest to all those who came in here laboring and laden. Thus have I spoken upon the value of the gift. Oh, Spirit of God, teach men its value!
 
-Bear with me, in the second place, while I speak upon THE LARGENESS OF THE SAVIOR'S HEART. Oh, that I could stand aside and that He would come here, Himself, and utter the words of my text with His own dear lips! "Come unto Me, all you that labor and are heavy laden." See the persons whom He invites to come to Him! None but a Man of great soul would keep such company! If we would be merry, we choose merry company. Some folks I should be glad to be in Heaven with, but I could dispense with their company here--for ten minutes with them on earth is enough to make
+Bear with me, in the second place, while I speak upon THE LARGENESS OF THE SAVIOR's HEART. Oh, that I could stand aside and that He would come here, Himself, and utter the words of my text with His own dear lips! "Come unto Me, all you that labor and are heavy laden." See the persons whom He invites to come to Him! None but a Man of great soul would keep such company! If we would be merry, we choose merry company. Some folks I should be glad to be in Heaven with, but I could dispense with their company here--for ten minutes with them on earth is enough to make
 
 one wretched! Only a generous spirit would say, "Come to Me, all you that are downcast--all you that are despond-ing--all you that are broken-hearted."
 

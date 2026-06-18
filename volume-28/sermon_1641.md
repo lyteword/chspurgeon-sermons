@@ -20,7 +20,7 @@ The labored notes of the trained bird's little tune may be remarkable, but are t
 
 Having thus prefaced my discourse, I come to look into this joy of David over God's Word which he compares to the joy of a warrior when he finds great spoil. To such overflowing joy we are not strangers--we feel quite at home with the text.
 
-Let me first observe that THIS GREAT JOY IS SOMETIMES AROUSED BY THE FACT THAT THERE IS A WORD OF GOD. This is true if we regard the Scriptures as a revealing of God. After going up and down in the world searching after Deity, it is a great delight to come upon a Book in which the one only living and true God has unveiled Himself to those who care to behold Him. It is a great "find" for a man to discover that, after all, he is not left in a fog to grope his way, but that God has kindled a sun that honest hearts may walk in the light of and in that light see all things clearly. I say that a Revelation of God is a great discovery over which a man rejoices "as one that finds great spoil." For, dear Friends, there can be no revealing of God except by God Himself.
+Let me first observe that THIS GREAT JOY IS SOMETIMES AROUSED BY THE FACT THAT THERE IS a WORD OF GOD. This is true if we regard the Scriptures as a revealing of God. After going up and down in the world searching after Deity, it is a great delight to come upon a Book in which the one only living and true God has unveiled Himself to those who care to behold Him. It is a great "find" for a man to discover that, after all, he is not left in a fog to grope his way, but that God has kindled a sun that honest hearts may walk in the light of and in that light see all things clearly. I say that a Revelation of God is a great discovery over which a man rejoices "as one that finds great spoil." For, dear Friends, there can be no revealing of God except by God Himself.
 
 The Apostle Paul tells us very truly that the things of a man know no man but the spirit of a man that is in him. You cannot read a man until that man brings out somewhat from within and thus reveals himself. A man must speak, or act, or we cannot know his mind. The chief means of a man's revealing himself is by his word--language is the gate of the soul. If the man is true and honest, his word will be a window through which you may see his mind. Even so, says the Apostle, as the heart of a man is only known to the man, himself, so the things of God knows no man but the Spirit of God. The Divine thought must be hidden in the heart of God forever until the Spirit of God is pleased to tell it to us.
 
@@ -46,7 +46,7 @@ At last a passage comes home to my soul with power. I have found it. What joy fi
 
 Ah, yes, you have rejoiced as one that finds great spoil. You see, then, that there is a distinct a joy which comes to the man who gets God's Word into his soul--a joy which arises out of the fact that there is a Word of God which comes to us as the Revelation of God, as an Infallible Guide through life, as the pledge of Divine mercy, the beginning of Divine communion and the instrument of usefulness! Upon all these things we might profitably enlarge, but time would not allow it, so I beg you to follow me to the next point. May the Holy Spirit lead our minds.
 
-Secondly, let us remark that FREQUENTLY THE JOY OF THE BELIEVER IN THE WORD ARISES OUT OF HIS HAVING HAD TO BATTLE TO OBTAIN A GRASP OF IT. Read the text again--"I rejoice at Your Word, as one that finds great spoil." Covered with sweat, dirty with dust, bleeding from many a wound, wearied and faint, the fighting man has conquered the enemy and now he staggers forward to seize his portion of the prey, finding new strength in
+Secondly, let us remark that FREQUENTLY THE JOY OF THE BELIEVER IN THE WORD ARISES OUT OF HIS HAVING HAD TO BATTLE TO OBTAIN a GRASP OF IT. Read the text again--"I rejoice at Your Word, as one that finds great spoil." Covered with sweat, dirty with dust, bleeding from many a wound, wearied and faint, the fighting man has conquered the enemy and now he staggers forward to seize his portion of the prey, finding new strength in
 
 the joy of victory. Did you ever have to do that with God's Word, for I have had to do many times, and I will try to describe the battle as I know it.
 
@@ -76,7 +76,7 @@ We must get to be like He and, oh, when we do, then every line of that dear face
 
 May it be our resolve that we will take every part of the Word of God to be our heritage and rejoice over it "as one that finds great spoil."
 
-We shall now tarry a moment upon a third thought which is altogether different from that which has gone before. AT TIMES THE JOY OF THE BELIEVER LIES IN ENJOYING GOD'S WORD WITHOUT ANY FIGHTING
+We shall now tarry a moment upon a third thought which is altogether different from that which has gone before. AT TIMES THE JOY OF THE BELIEVER LIES IN ENJOYING GOD's WORD WITHOUT ANY FIGHTING
 
 AT ALL. In the text I am not sure that fighting is certainly mentioned or necessarily implied, though it is highly probable. David says, "I rejoice at Your Word, as one that finds great spoil," as if he fell upon it all of a sudden, like the lep-
 
@@ -90,7 +90,7 @@ O, Brothers and Sisters, we rejoice when we get a hold of the precious treasures
 
 My fourth head is the principal one and I need all your attention while I dwell on it for a short time. THERE IS
 
-A JOY ARISING OUT OF THE VERY FACT THAT HOLY SCRIPTURE MAY BE CONSIDERED TO BE A SPOIL. I
+a JOY ARISING OUT OF THE VERY FACT THAT HOLY SCRIPTURE MAY BE CONSIDERED TO BE a SPOIL. I
 
 will show you that in five particulars. First, a spoil is the end of the uncertainty. Whenever a fight begins, it is questionable who will win. While it rages, the result still hangs quivering in the balances, but we know who has won the battle when the victor begins to divide the spoil. No question now remains--the debate is ended. Blessed is that man who has found in Scripture a spoil in the sense that he has come to the end of uncertainty and arrived at something without doubt.
 
