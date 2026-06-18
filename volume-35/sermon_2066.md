@@ -23,7 +23,7 @@ of His mouth, for His love is better than wine." And yet you may still be lying 
 
 We must leave those other positions and consider the one in our text. And we have only two remarks to make-- namely, first, that at His feet is a becoming posture. And, secondly, at His feet is a helpful posture.
 
-First, AT HIS FEET IS A BECOMING POSTURE. This is proper because of the majesty of His Person. As He is Divine, "at His feet" is the creature's becoming place. Jesus is "God over all, blessed forever." Let us exhibit the lowliest reverence whenever we think of Him. He comes very near us and we sing at the communion table--
+First, AT HIS FEET IS a BECOMING POSTURE. This is proper because of the majesty of His Person. As He is Divine, "at His feet" is the creature's becoming place. Jesus is "God over all, blessed forever." Let us exhibit the lowliest reverence whenever we think of Him. He comes very near us and we sing at the communion table--
 
 "His sacred name a common word On earth He loves to hear; There is no majesty in Him Which love may not come near."
 
@@ -56,7 +56,7 @@ But now remember, dear Friends, that at Jesus' feet is the position which the ve
 
 The Lord has put all things under His feet. Let us put ourselves "at His feet." If we will not accept Him now to be our Master and Lord, we shall be flung into the winepress of the wrath of God and then shall He trample upon us in His wrath and crush us in His sore displeasure. God save us from such a doom and may we rejoice to be at His feet.
 
-Now we shall attend to our second observation. We have shown, I think, that it is a becoming posture. But now, secondly, IT IS A VERY HELPFUL POSTURE.
+Now we shall attend to our second observation. We have shown, I think, that it is a becoming posture. But now, secondly, IT IS a VERY HELPFUL POSTURE.
 
 Turn to my text and see that it is a very helpful posture for a weeping penitent. "Behold, a woman in the city, which was a sinner, when she knew that Jesus sat at meat in the Pharisee's house, brought an alabaster box of ointment and stood at His feet behind Him weeping." It helps us to repent. Do not go and stand at Moses' feet. You will never repent there. To stand at the foot of Sinai and tremble may have its uses. But Gospel repentance does not spring from legal terror. Gracious tears are wept at Jesus' feet.
 

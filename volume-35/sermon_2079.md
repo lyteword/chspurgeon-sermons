@@ -85,7 +85,7 @@ Next, let me say, know your sorrow well. "The heart knows its own bitterness." I
 
 Above all, remember that the cure for bitterness of heart is to take it to your Lord at once. Remember this word-- "In all their affliction He was afflicted." No drop of gall was too bitter for His mouth--He tasted death, itself. There is no corner in your heart so dark but Christ has been in as dark a room as that. All the thorns that pierce your feet once pierced His head. Go to Him with the full vessel of your woe. "You people, pour out your hearts before Him: God is a refuge for us." Then shall you sing for joy of heart. Enough, perhaps too much, upon that part of the text.
 
-I wish I had an hour in which to speak upon the second part of our subject. THE HEART KNOWS A SWEETNESS WHICH IS ALL ITS OWN. I will go into one or two of the forms of this sweetness.
+I wish I had an hour in which to speak upon the second part of our subject. THE HEART KNOWS a SWEETNESS WHICH IS ALL ITS OWN. I will go into one or two of the forms of this sweetness.
 
 You have tasted, many of you, the joy of pardoned sin. Do you remember when you were, for the first time, sure that God, for Christ's sake, had forgiven you? Could you tell anybody the joy you then felt? If you had tried to explain it, you would have been compelled to use your legs to dance with, your hands to clap with, your eyes for tears of joy and your countenance for beams of delight, as well as your tongue for speech! You would have had to speak by signs and gestures, as well as by words. In proportion as you were burdened before, you felt the bliss of rest. In proportion as the iron had entered into your soul before, the joy came leaping into your heart.
 

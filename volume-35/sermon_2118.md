@@ -125,7 +125,7 @@ The glorious doctrine of the atonement--when we hear it scoffed at--we burn with
 
 Church?
 
-I have done when I say just this one thing more--A BELIEF THAT GOD HEARS AND SEES HAS A VERY
+I have done when I say just this one thing more--a BELIEF THAT GOD HEARS AND SEES HAS a VERY
 
 BENEFICIAL TENDENCY UPON THOSE WHO FIRMLY HOLD IT. It works good in a thousand ways. Time would fail me to recount a tithe of them. It may suffice to take a thought or two, and turn the matter over in our minds. If we feel that God sees and hears, what an incentive it is to do right and to be valiant for His Truth! Soldiers will play the man in the presence of their prince. If our Lord looks on, what will we not do and dare?
 

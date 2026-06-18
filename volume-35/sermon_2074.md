@@ -85,7 +85,7 @@ The facts of the case prove this. I shall put it to any Believer here who can hu
 
 Thus are you without the Spirit of God. But when the Divine Spirit comes upon you, such complaints are at an end. Then does the lame man leap as an hart and the tongue of the dumb is made to sing. Then are you full of living joy in listening to the Gospel--every word you hear seems to be on wheels. And towards you the cherubim fly swiftly bringing live coals from off the altar.
 
-My third head is BELIEVERS ENJOY A SACRED INTIMACY WITH THE SPIRIT OF GOD. I am not going
+My third head is BELIEVERS ENJOY a SACRED INTIMACY WITH THE SPIRIT OF GOD. I am not going
 
 to withdraw that word intimacy. It is warranted by the language of our Lord. For He says, "You know Him, for He dwells with you and shall be in you."
 
@@ -118,7 +118,7 @@ When our Lord rose from the dead, we had the guarantee that even so the Spirit o
 
 I have urged the question upon myself and therefore I urge it upon you. Does the Spirit of Truth dwell in you? If not, what will you do?
 
-I come to a conclusion with one more observation. BELIEVERS SHALL HAVE A CONTINUANCE AND AN INCREASE FOR THE SPIRIT'S INTIMACY. "He dwells with you and shall be in you."
+I come to a conclusion with one more observation. BELIEVERS SHALL HAVE a CONTINUANCE AND AN INCREASE FOR THE SPIRIT's INTIMACY. "He dwells with you and shall be in you."
 
 Mark well the increase. Is it not a blessed step from "with" to "in"? "He dwells with you"--that is, a Friend in the same house. "And shall be in you," that is, a Spirit within yourself. This is nearer, dearer, more mysterious and more effective by far. The bread yonder is "with" me. I eat it and now it is "in" me. It could not nourish me until it advanced from "with" to "in." What a distinct advance it is for the child of God when he rises from the Spirit of God being with him to the Spirit of God being in him! When the Spirit of God helped the Apostles to work miracles, He was with them. But when they came to feel His spiritual work in their own souls and to rejoice in the comfort which He brought to them, then He was in them. Even if you could obtain miraculous gifts, you ought not to be satisfied to speak with tongues, nor to work miracles. But you should press on to know the Spirit with yourself--indwelling, communing, quickening you.
 

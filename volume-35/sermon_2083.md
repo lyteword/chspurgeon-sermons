@@ -79,9 +79,9 @@ At the last He saves--completely saves. He has not come to make the salvation of
 
 The salvation of a single soul is a mass of miracles. I have heard of a fire which consumed the shop of a jeweler and a number of costly treasures of gold and silver and precious stones were found among the ruins, caked into a conglomerate of riches. What a salvage! Such is the salvation of a single man--it is a mass of priceless mercies melted into one inestimable ingot--dedicated to the praise of the glory of His Grace who makes us to be "accepted in the Beloved" and "saved in the Lord with an everlasting salvation." When I think of the energy which is put forth by the Lord to save a single lost soul I feel stirred in my heart and I desire that your hearts should be stirred also--that we may put forth all our strength to go and find the Lord's lost ones. Let us co-operate with Him in His great labor of seeking that which is lost, Oh, that the Holy Spirit may put such a spirit within us and keep it there!
 
-I am compelled to pass onward somewhat hurriedly. Notice, in the third place, that our Lord FEELS A
+I am compelled to pass onward somewhat hurriedly. Notice, in the third place, that our Lord FEELS a
 
-SPECIAL REJOICING AT THE RECOVERY OF A WANDERING SHEEP. Do not make a mistake here. Do not
+SPECIAL REJOICING AT THE RECOVERY OF a WANDERING SHEEP. Do not make a mistake here. Do not
 
 suppose that our Lord loves the one soul that has wandered more than the ninety and nine who have been preserved by His Grace from going astray. Oh, no! He thinks ninety-nine times more of ninety-nine than of one. For His sheep are each one equally precious to Him. We must not suppose that He looks upon any one soul of His redeemed with a tenderness ninety-nine times greater than He gives to another.
 
@@ -95,7 +95,7 @@ The Shepherd rejoices when He brings back the lost sheep because He makes that r
 
 Shepherds and their flocks cannot have holiday every day. But when a lost one has been recovered, they feel such mutual delight in each other and such a common delight in the saving of the lost that they seize upon the occasion for rejoicing. I want you all to recognize that. If you love the Church of Christ you are bound to keep a feast day when fallen ones are raised up. And that you may hold that festival, you are bound to put out all your strength to bring in the lost one.
 
-Now we come to the tug-of-war, that is, to look upon our Divine Shepherd as HE SETS US A STRIKING
+Now we come to the tug-of-war, that is, to look upon our Divine Shepherd as HE SETS US a STRIKING
 
 EXAMPLE.
 
