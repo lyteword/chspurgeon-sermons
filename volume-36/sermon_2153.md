@@ -20,7 +20,7 @@ God thinks not so--He has said, "Take away the filthy garments from Him. Let the
 What great things God thinks of His elect! What a high price He puts upon His redeemed! His delight is in His saints. He takes more solace in them that fear Him than in all creation besides. "Unto you that believe Christ is precious"--but you that believe are also precious to Him! Does He not say, "Since you were precious in My sight, you have been honorable"? Therefore none but an honorable and glorious Person shall represent the chosen. Let us humbly rejoice in the glory and beauty of Him who takes our place before the Infinite Jehovah--
 
 > Jesus, in You our eyes behold   
-> A thousand glories more   
+> a thousand glories more   
 > Than the rich gems, and polished gold,   
 > The sons of Aaron wore.   
 
@@ -28,7 +28,7 @@ I thank God that though the meanest and vilest of all His creatures because of m
 
 May God, the Holy Spirit, open up the type before us and also open our hearts to receive its teaching!
 
-First, consider A SAD SUBJECT--"The iniquity of the holy things which the children of Israel shall hallow." They were "holy things." Despite the iniquity, their offerings were hallowed and holy! This is a precious saving clause. Our prayers, our praises, our service to God--these are holy things--albeit iniquity attaches to them. They are holy as to God's ordinance, for He has ordained them for His Glory. He has bid us serve Him. He has bid us draw near in prayer. He has also said--"Whoever offers praise glorifies Me." When we do what God bids us, the act is holy because it is done in obedience to the Divine ordinance.
+First, consider a SAD SUBJECT--"The iniquity of the holy things which the children of Israel shall hallow." They were "holy things." Despite the iniquity, their offerings were hallowed and holy! This is a precious saving clause. Our prayers, our praises, our service to God--these are holy things--albeit iniquity attaches to them. They are holy as to God's ordinance, for He has ordained them for His Glory. He has bid us serve Him. He has bid us draw near in prayer. He has also said--"Whoever offers praise glorifies Me." When we do what God bids us, the act is holy because it is done in obedience to the Divine ordinance.
 
 Such deeds are holy as to the Divine design, for the sacrifices which the Israelites brought were meant to set forth Christ and His glorious work--therefore they were holy. They were meant to be tokens of our gratitude, love, dedication, homage--therefore they are holy. The great Father teaches us much precious Truth by every institution of the tabernacle, the temple and the Gospel Church--and therefore obedience to each ordinance is holy. These deeds were often holy in the intent of the worshipper. When he brought his turtle doves, or his lamb, or his bullock he intended, if he was not altogether outside of spiritual worship, to exercise real reverence, true allegiance and sincere gratitude to God--and this intent was holy.
 
@@ -127,7 +127,7 @@ Profaneness in my head,
 
 Defects and darkness in my breast,
 
-A noise of passions ringing me for dead
+a noise of passions ringing me for dead
 
 Unto a place where is no rest.
 

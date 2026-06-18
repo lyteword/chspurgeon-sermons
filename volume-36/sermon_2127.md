@@ -77,7 +77,7 @@ He that thinks that he will quietly enjoy religion all alone will soon find that
 
 I was about to compare the heart of my Lord to a volcanic mountain constantly streaming with the burning lava of love. Oh, that my soul could but get that fire-stream poured into it to set the whole of my nature on fire and consume me in the flame-torrent of love! You see that it is suggested in the text that there are differences in the degrees of love and there let us leave it, for we must come to the third point.
 
-Thirdly, THE TEXT PUTS TO US A QUESTION, "WHO WILL LOVE HIM MOST?" I want to introduce the question to you by saying that it is a very interesting one. After what the Lord has done for us, one takes pleasure in thinking what will come of it. One likes to think of the farmer's harvest. After all that plowing and sowing, what will come of it? It is interesting to begin to calculate the crop and to anticipate the shouts of harvest home.
+Thirdly, THE TEXT PUTS TO US a QUESTION, "WHO WILL LOVE HIM MOST?" I want to introduce the question to you by saying that it is a very interesting one. After what the Lord has done for us, one takes pleasure in thinking what will come of it. One likes to think of the farmer's harvest. After all that plowing and sowing, what will come of it? It is interesting to begin to calculate the crop and to anticipate the shouts of harvest home.
 
 Now, what will come of infinite love--the supreme act of God's heart to men? What will come out of the gift of His Only-Begotten Son and the putting away of sin through the death of Jesus? What will men do for God after this? How much will they love Him? It is an interesting question. What have you to say upon it? And it is a personal question which the Lord puts to each one of us. You know He put it to Simon. "Tell Me," He said, "which of them will love him most?" And He puts it to us to consider it, to turn it over and to give our own verdict because there may be some blunder in our heart which this question is meant to set right--and the thoughts which the enquiry will cause in the spirit are meant to correct our judgments.
 
@@ -89,7 +89,7 @@ persons, in whom there is no particular difference of character, but only this o
 
 We will suppose that they are equally tender of heart and equally regenerate and that they do know, each of them, certainly, that his debt has been discharged. The only difference between them is that one has been a grosser sinner than the other. And the question asked is, "Which of those two will love the Savior most?" It is a very simple question, too, not at all hard to answer--for even this Simon, the Pharisee, who, like the rest of the Pharisees, was very badly instructed, yet, nevertheless, could see his way to answer the question correctly. So he answered, "I suppose that he, to whom he forgave most." And the Lord replied, "You have rightly judged." Thus I have set before you the question.
 
-And so, lastly, IT IS EXPECTED THAT WE GIVE A REPLY. And I wish for myself--and therefore wish the
+And so, lastly, IT IS EXPECTED THAT WE GIVE a REPLY. And I wish for myself--and therefore wish the
 
 same for you--that each one of us may say, "I am the man that ought to love the Lord Jesus most and, by His Grace, I will surely do so." The most indebted should love most. Have we not here many 500-pence debtors? Some of my dear Brethren, here present, were, among outward sinners, the very chief--men who could drink and swear and lie-- ringleaders in everything that was evil.
 

@@ -13,7 +13,7 @@ But the former fulfillment of a promise does not make it useless like a cashed c
 
 Taking the text as containing a general principle, I shall use it for our own encouragement and edification, praying God the Holy Spirit to make it truly useful. I notice, in the text, first, a privilege to be desired--"The house of Jacob shall possess their possessions." Secondly, a favor to be remembered--"Upon Mount Zion shall be deliverance." And, thirdly, a character to be conspicuous--"And there shall be holiness."
 
-First of all, consider A PRIVILEGE TO BE DESIRED. The land of Canaan had been granted to Israel by the Lord of All. Each family had a lot and portion which belonged to it forever, being entailed upon it by a Covenant of salt. Through their sins the tribes were carried into captivity--the land was taken from them by their conquerors and they could no longer possess their possessions. Now, the promise comes to them by the prophet Obadiah: "The house of Jacob shall possess their possessions."
+First of all, consider a PRIVILEGE TO BE DESIRED. The land of Canaan had been granted to Israel by the Lord of All. Each family had a lot and portion which belonged to it forever, being entailed upon it by a Covenant of salt. Through their sins the tribes were carried into captivity--the land was taken from them by their conquerors and they could no longer possess their possessions. Now, the promise comes to them by the prophet Obadiah: "The house of Jacob shall possess their possessions."
 
 A property may be my lawful possession and yet, for different reasons, I may not be able to get at it--it may be in the hands of one who defrauded me of it, or I may be far away and unable to reach it. The words are singular, but their meaning is distinct--"They shall possess their possessions." Let us use the words as applicable to souls who shall be led to
 
@@ -72,7 +72,7 @@ Drunkenness must come down like Jericho before the trumpets of Israel! Sin and l
 
 If we have been chosen of God we have been chosen with this objective--that we gather out from the world the rest of the Lord's redeemed--and win for our King the nations now in revolt against Him. Many of us are, just now, praying day and night that this may be our best year--that we may have a larger increase than ever before. I invite you all to join with me in this continual supplication and may it come to pass before our own eyes, that, in this Tabernacle, "the house of Jacob shall possess their possessions."
 
-So much upon the main part of our discourse. There are two other things to be handled and, first, comes this--A FAVOR TO BE REMEMBERED--"Upon Mount Zion shall be deliverance." This fact should help us to possess our possessions! See what God has done for us! What can He not do? Is anything too hard for the Lord? That you may see the
+So much upon the main part of our discourse. There are two other things to be handled and, first, comes this--a FAVOR TO BE REMEMBERED--"Upon Mount Zion shall be deliverance." This fact should help us to possess our possessions! See what God has done for us! What can He not do? Is anything too hard for the Lord? That you may see the
 
 force of the passage, let me work out its meaning. We have been saved, for, "Upon Mount Zion shall be deliverance" and we have found it so. In Christ Jesus we have been saved!
 

@@ -111,7 +111,7 @@ And in this the first place should be given to the worship of the Lord Jesus. We
 
 I suggest this to you--I cannot teach you how to do it. God's Holy Spirit must show your hearts the way. But let me entreat you to believe that it will be no wasted thing if on Him the good work of prayer and adoration shall begin and end on Him. It will be a right thing and well done of you if the Lord Jesus has for Himself the choicest of your thoughts, emotions, words and deeds. Oh, that all that we have could be laid at His feet! It would be no waste, but the proper use of all our good things.
 
-But time fails me and therefore I must, thirdly, and with extreme brevity, OFFER YOU A WORD OR TWO OF
+But time fails me and therefore I must, thirdly, and with extreme brevity, OFFER YOU a WORD OR TWO OF
 
 ADVICE ABOUT DOING GOOD WORKS FOR JESUS. Take care that self never creeps in. It is to be all for Jesus--let
 
@@ -125,7 +125,7 @@ Let us, above all, keep out of our heart the thought which is so common in this 
 
 It is the devil's logic which says, "You see I cannot come out and avow the Truth of God because I have a sphere of usefulness which I hold by temporizing with what I fear may be false." O Sirs, what have we to do with consequences? Let the heavens fall but let the good man be obedient to his Master and loyal to His Truth. O man of God, be just and fear not! The consequences are with God-- not with you! If you have done a good work unto Christ, though it should seem to your poor bleared eyes as if great evil has come of it, yet you have done it, Christ has accepted it and He will note it down and in your conscience He will smile you His approval.
 
-I will not detain you longer, but just close by saying that THERE IS A GOOD DEFENSE FOR ANY KIND OF
+I will not detain you longer, but just close by saying that THERE IS a GOOD DEFENSE FOR ANY KIND OF
 
 WORK WHICH YOU MAY DO UNTO JESUS AND UNTO JESUS ONLY. However large the cost, nothing is wasted
 

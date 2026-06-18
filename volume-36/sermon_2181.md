@@ -9,7 +9,7 @@ At this time, however, while the thought of sin becomes clear, the thought of pa
 
 In our text God in condescension helps the sinner to believe in pardon by elevating his idea of God. Because God is infinitely superior to man, He can abundantly pardon. "For My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts." He can abundantly pardon because His Nature is not on our level. May God bless what I shall say and enable doubting ones to have confidence in Divine mercy and at once receive the pardon of our God!--
 
-"Pardon for crimes of deepest dye, A pardon bought with Jesus' blood."
+"Pardon for crimes of deepest dye, a pardon bought with Jesus' blood."
 
 YOUR OWN THOUGHTS JUDGE PARDON TO BE IMPOSSIBLE. Let me show you why. To some it seems impossible that there can be forgiveness for them, because of some special, secret, gross and grievous sin. Most persons, when they remember their past lives, see a certain spot blacker than the rest. Perhaps more light falls upon that spot than upon any other, but certainly the eye of memory constantly returns to it. And when they take a view of their lives, they are overwhelmed by the remembrance of certain enormous transgressions. In conversing with enquirers, it has been my painful lot to hear many an awful story which will never be repeated by me.
 
@@ -35,7 +35,7 @@ Perhaps one may even say, "But, Sir, my sin was of this kind, that I dishonored 
 
 It is mine to proclaim at this time pardon for every form of transgression and iniquity. David said, "Against You, You only, have I sinned and done this evil in Your sight"--and though you may be compelled to feel that your sin is peculiarly of that kind, yet the Lord will abundantly pardon, for He says, "My thoughts are not your thoughts, neither are your ways My ways. As the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts."
 
-But, secondly, GOD'S THOUGHTS OF OTHER THINGS ARE FAR ABOVE YOURS. I am not going to keep you long on that. It is quite certain that the best thoughts--the most logical thoughts, the most original thoughts, the most correct thoughts you have ever had--are not worthy to be compared with God's thoughts. Look in nature. The things you see in nature were, at first, thoughts in God's mind and He embodied them. Did you ever think such thoughts as God has thought in creation?
+But, secondly, GOD's THOUGHTS OF OTHER THINGS ARE FAR ABOVE YOURS. I am not going to keep you long on that. It is quite certain that the best thoughts--the most logical thoughts, the most original thoughts, the most correct thoughts you have ever had--are not worthy to be compared with God's thoughts. Look in nature. The things you see in nature were, at first, thoughts in God's mind and He embodied them. Did you ever think such thoughts as God has thought in creation?
 
 You take the wing of a fly, an insignificant thing and simple enough--but you put it under a microscope and you see it to be a fabric of great beauty, of exquisite delicacy and of marvelous adaptation to the end for which it was made. Many a person who has looked in a microscope has been overwhelmed with wonder! You put a needle under it, the best Redditch needle and it is a rough bar of iron--but you take any of the works of God and magnify them as much as ever you will, you never detect any roughness. Nothing can be better finished than God's little things. Even in minute matters His thoughts are not as your thoughts!
 
@@ -79,7 +79,7 @@ to him, then you see how I love. And if it comes to this--that I must die, mysel
 
 You have measured God's corn with your own bushel! He is greater at forgiving than you ever dreamed. Oh, He is a great forgiver! Wonderful is God in every position which He assumes, but when He takes to pardoning through the bleeding Sacrifice, then is He glorious, indeed! The silver scepter is the most majestic ensign of His royalty.
 
-I might finish here, but I wanted to say, had there been time, that GOD'S THOUGHTS ARE ABOVE YOURS
+I might finish here, but I wanted to say, had there been time, that GOD's THOUGHTS ARE ABOVE YOURS
 
 IN ALL THINGS WHICH CONCERN HIS GRACE. Would you mind reading the chapter through again? Just see the
 

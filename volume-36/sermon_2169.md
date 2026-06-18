@@ -37,7 +37,7 @@ Furthermore, the gracious man obeys His precepts. No man can be said to keep Chr
 
 > Faith must obey her Father's will,   
 > As well as trust His Grace:   
-> A pardoning God is jealous still   
+> a pardoning God is jealous still   
 > For His own holiness.   
 
 So now you see who the man is that keeps Christ's sayings. That man receives, through the Word of God, a new and everlasting life, for the Word of God is a "living and incorruptible seed, which lives and abides forever." Wherever the seed of the Word drops into a soil which accepts it, it takes root, abides and grows. "For God so loved the world, that He gave His only-begotten Son, that whoever believes in Him should not perish, but have everlasting life." It is by Christ's sayings, or by Christ's Word, that life is implanted in the soul--by that same Word the heavenly life is fed, increased, developed and at length perfected. The power and energy of the Holy Spirit which work through the Word are used as the beginning, the sustaining and the perfecting of the inner life. The life of Grace on earth is the blossom of which the life of Glory is the fruit.

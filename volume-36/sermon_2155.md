@@ -68,7 +68,7 @@ Our Lord began with this special miracle as if to show us that He had come here 
 
 and to array it in garments of glory and beauty. Soon shall we see new heavens and a new earth! The new Jerusalem will come down out of Heaven from God, prepared as a bride adorned for her husband! Jesus has come to elevate and to fulfill--and He gives the token of this in this beginning of signs.
 
-Secondly, I want you to notice in this miracle ITS SPECIALTY AS A MANIFESTATION. "This beginning of
+Secondly, I want you to notice in this miracle ITS SPECIALTY AS a MANIFESTATION. "This beginning of
 
 miracles did Jesus in Cana of Galilee, and manifested forth His glory." I believe that there is a very clear connection between the first chapter of this Gospel and the passage before us. John, in the first chapter, said, "And the Word was made flesh, and dwelt among us, (and we beheld His Glory, the glory as of the only begotten of the Father), full of Grace and truth." Here you have an unveiling of that Grace and Glory. Observe that He manifested forth His Glory. Truly, He glorified the Father, for that was His great end and aim, but yet He manifested forth His own Glory in that very act.
 
@@ -92,7 +92,7 @@ There was a special reason for this. Oh, my beloved Hearers, if you come to Chri
 
 I say again, the specialty of this manifestation lies in the fact that it revealed the Lord Jesus, by His own Almighty power, uplifting everything He touched, transforming men, things and facts into nobler ones than they were before, or could ever have become. This is the specialty of the manifestation of Christ--He says, "Behold, I make all things new." He brings forth the best last! He raises the poor from hunger to feasting! He lifts up fallen humanity into something so glorious that it stands, in His Person, near to the Throne of God! In all this Christ is revealed and His name is glorified!
 
-And now, lastly, I think we have here A REASON FOR THE CONFIRMING OF FAITH. It is said, "And His
+And now, lastly, I think we have here a REASON FOR THE CONFIRMING OF FAITH. It is said, "And His
 
 disciples believed on Him." Brothers and Sisters, notice something here. How did John know that the disciples believed on Him? Why, because he was one of them and he himself believed on Him. The best witness is that of one who has a share in the fact. When you feel a thing yourself, you have a full assurance of it. John knew that the other five disciples believed on Jesus by what they said to him, for their feelings coincided with his own. Let us see to it that we, also, share in the faith which the marvels of our Lord are designed to produce.
 

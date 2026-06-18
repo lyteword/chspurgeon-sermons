@@ -11,7 +11,7 @@ He lays this down as a general rule--"A mediator is not a mediator of one, but G
 
 I understand Paul here, not as going on with any argument, but as letting fall a general principle which I--taking it out of its connection--hope to use for our profit tonight. A mediator, a go-between, an interposer, is not a mediator of one, that is clear--but God is one. What shall we learn from this?
 
-First, A MEDIATOR IS NOT FOR GOD ALONE. A mediator deals with two persons--with God and man. A mediator does not come because God needs, Himself, any kind of mediator. He is eternally One and if you view Him as the sacred Trinity, yet He is a Trinity in Unity. God is One. Some persons call themselves Unitarians who have no exclusive right to the name. All Trinitarians are Unitarians--though we believe that the Father is God, the Son is God and the Holy Spirit is God, yet we confess that there are not three gods, but one God. Now, between the Father, the Son and the Holy Spirit there is no difference, no ground for contention--and therefore no mediator is needed to reconcile the Divine Persons. God is One--therefore our God does not need the mediator for Himself.
+First, a MEDIATOR IS NOT FOR GOD ALONE. A mediator deals with two persons--with God and man. A mediator does not come because God needs, Himself, any kind of mediator. He is eternally One and if you view Him as the sacred Trinity, yet He is a Trinity in Unity. God is One. Some persons call themselves Unitarians who have no exclusive right to the name. All Trinitarians are Unitarians--though we believe that the Father is God, the Son is God and the Holy Spirit is God, yet we confess that there are not three gods, but one God. Now, between the Father, the Son and the Holy Spirit there is no difference, no ground for contention--and therefore no mediator is needed to reconcile the Divine Persons. God is One--therefore our God does not need the mediator for Himself.
 
 Who is the mediator needed for, then? Why, for somebody else! That somebody else is here tonight and I want to find him out. A mediator! Blessed be God, there is a Mediator, but God does not need Him for His personal purposes! There is another person for whom the Mediator is required. Where is that other person? In the very gift of Christ as a Mediator, in the sending of Him in His Divine and Human Nature--in Christ's life, in Christ's death--God had an eye to another
 
@@ -21,13 +21,13 @@ Now, according to the run of the text and according to the run of Scripture, tha
 
 Let me lift my eyes to Heaven, and say, "O gracious Lord, grant that I may be that other person for whom this Mediator is concerned!" For a mediator is not a mediator of one, but God is One, and would have me to be the second, that there may be work for a Mediator to do! That is clear enough.
 
-Now go a step further. In the second place, A MEDIATOR IS NOT FOR PERSONS WHO ARE AGREED
+Now go a step further. In the second place, a MEDIATOR IS NOT FOR PERSONS WHO ARE AGREED
 
 WITH EACH OTHER. A mediator is not needed for persons of one heart and of one soul. I need no mediator between myself and my brother, between myself and my son, between myself and my wife. We are perfectly at one already and no mediator is needed. So, then, it is clear that if there is a mediator, it is for two persons between whom there is some ground of difference. Mark well this Truth of God and understand it. I am not going to say pretty things, or use fine words, yet I say to those of you who long to be saved--Understand what I am saying, for it will help you!
 
 A Mediator! That must be for persons between whom them and God there is ground of quarrel. Sinner! Sinner, this is good news for you! A Mediator is not for a man who is perfectly at one with God, but for you, who has by many sins provoked God! For you who by the sinfulness of your nature stand at a distance from Him! There is need of a Mediator between you and the thrice-holy God--and it is for such as you that a Mediator has appeared! Do you understand this Truth of God? A mediator is not a mediator between those who are at one. He is a mediator between persons who differ--and that is the case with you as to your God!
 
-A mediator also comes when THERE IS A GROUND OF DIFFERENCE WHICH CANNOT READILY BE
+A mediator also comes when THERE IS a GROUND OF DIFFERENCE WHICH CANNOT READILY BE
 
 RESOLVED, for if the ground of difference is trivial and the two parties are willing to be agreed, they soon settle the matter. A mediator, an arbitrator, is brought in when the case is hard. Such is your case and mine by nature. We have sinned. God is just. He is full of compassion and willing to forgive as far as the slight is against His Person, but He is also King and Judge of all the earth and He must punish sin. If He does not punish sin, He will be unjust and the injustice which does not punish sin is cruelty to all righteous men.
 
@@ -35,7 +35,7 @@ If our judges were tomorrow to say to every thief, housebreaker, murderer, "Go y
 
 In this case, if there is any wish on the part of the offending one to be reconciled, it may be done, for the offended
 
-God is willing to be at peace. THERE WOULD BE NO USE IN A MEDIATOR UNLESS THE PARTIES WERE BOTH WILLING TO BE RECONCILED TO EACH OTHER. A mediator who comes in between two who have a
+God is willing to be at peace. THERE WOULD BE NO USE IN a MEDIATOR UNLESS THE PARTIES WERE BOTH WILLING TO BE RECONCILED TO EACH OTHER. A mediator who comes in between two who have a
 
 continued hatred simply wastes his time. But in our case God is willing to be reconciled. "Fury is not in Me," He says. But man is not willing to be reconciled to God until Divine Grace changes his heart. If there is, on your part, a wish to end your quarrel and to be friends with God, you will be happy to know that there is a Mediator. Jesus stands waiting to remove the barrier that divides you from God and to reconcile you to God by His own death.
 
@@ -55,7 +55,7 @@ of one. A mediator, when he would make peace, goes to this one and he states the
 
 A mediator is not a mediator of one. He who should come in and pretend to be a mediator and then throw all the blame on one party, and care only for the interests of the other party, would not be a mediator, but a partisan! But, in this case, here is One who has something to say, not in vindication, or excuse for sin, but in pleading for mercy to the sinner! He has something to say to magnify the justice of God and yet He cries for mercy. He prays, "Have mercy, O God! Have mercy upon the guilty!" I think that I have got the run of this text, somehow, if I cannot give you the exact meaning of the words. This meaning lies hidden within the words--a mediator is not for one, but he studies the interests of both.
 
-It is, then, most clear that A MEDIATOR MUST HAVE TWO PARTIES TO DEAL WITH or else his office is a mere name. An umpire is chosen to keep order between two sets of people, but if only one set shall put in an appearance, you may go home, Mr. Umpire. There is evidently nothing for you to do. "A mediator is not a mediator of one, but God is one."
+It is, then, most clear that a MEDIATOR MUST HAVE TWO PARTIES TO DEAL WITH or else his office is a mere name. An umpire is chosen to keep order between two sets of people, but if only one set shall put in an appearance, you may go home, Mr. Umpire. There is evidently nothing for you to do. "A mediator is not a mediator of one, but God is one."
 
 Now, tonight my Lord is here to be a Mediator. God is willing to be reconciled to men, but if there is nobody here to be reconciled--if the preaching of tonight has no relation to anybody here--then it is quite clear that the office of Christ
 
@@ -73,7 +73,7 @@ Do not be afraid because there are so many sinful ones here and such great numbe
 
 I have been nearly 40 years now trying to preach. I cannot get at it yet. Oh, that I knew how to put this so as to move every soul to come to God and sue for peace! How willing must God be to be at peace with men when He provides a Mediator between Himself and them! How readily ought you to come when Christ's honor and Glory depend upon men's trusting their problems in His hands! I ask again, what is a mediator if no case is trusted to him? A king without a crown, a shepherd without a flock, a farmer without land, a physician without sick people--these are all in a poor plight. And Christ without sinners, where is He? His name is an empty thing and His Glory gone! Come, then, you chief of sinners, come to Christ and leave your problems with Him!
 
-But I close by noticing that, although it is necessary, when the mediator begins, that there should be two parties--for he is not a mediator of one, and God is one--yet when the case ends, A MEDIATOR MUST MAKE THE
+But I close by noticing that, although it is necessary, when the mediator begins, that there should be two parties--for he is not a mediator of one, and God is one--yet when the case ends, a MEDIATOR MUST MAKE THE
 
 TWO ONE OR HE HAS NOT SUCCEEDED. Our Lord Jesus has broken down the middle wall of partition. He has really reconciled those who stood apart. Christ has done this for so many that I should like you, sitting in the gallery to ask, "Why should not He do it for me?" Hung up in Christ's private chamber there is a record of millions of quarrels between men and God that He has settled. Why should He not have your name among them? Why should He not end the quarrel between you and God? Why should He not reconcile you to the Father so that the Father should give you the kiss of peace? He has never failed in a case yet!
 

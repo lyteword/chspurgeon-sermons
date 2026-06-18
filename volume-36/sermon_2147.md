@@ -20,7 +20,7 @@ At times you and I are assailed as to our faith in the Bible, by people who say,
 Note well, that Noah believed alone, and preached on though none followed him. There were no other believers, if you except his wife and his sons and daughters. There were eight in all; but I am afraid that some of these rather believed in father Noah than in the living God. Noah shone as a lone star. He stood like yonder solitary column in the midst of a ruined temple. He believed with an unbuttressed faith. How pleasant it is to associate with our fellow-believers! It is a great refreshment for a solitary Christian to get into a large congregation, and to feel in unison with the child's hymn'
 
 > Lord, how delightful 'tis to see   
-> A great assembly worship thee!   
+> a great assembly worship thee!   
 > At once they sing, at once they pray,   
 > They hear of heaven and learn the way.   
 > I have been there, and still would go,   

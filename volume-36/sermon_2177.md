@@ -41,7 +41,7 @@ It is a camp, too, especially, because it is always assailing the powers of dark
 
 Chosen and made peculiar ground,
 
-A little spot enclosed by Grace
+a little spot enclosed by Grace
 
 Out of the world's wide wilderness." We dare not feel content to let the wilderness remain what it is! We may not give up vast regions to the dragon and the owl. No, no, dear Friends, we are going to break up more ground and make the little spot into a far wider space. And if the garden is walled around, we hope to build a wall round many more acres of ground and so enlarge the garden of the Great King!
 
@@ -73,7 +73,7 @@ We remember, very sadly, that when rough men get into camp--and soldiers, as a r
 
 A camp of angels should not be more holy than a Church of saints among whom the Lord God has taken up His abode! Thus much upon the very instructive figure of the text.
 
-Secondly, I come to notice A SPECIAL PRIVILEGE. The text mentions a privilege specially promised to Israel, but I am sure, to a very high and real degree, enjoyed by ourselves. "The Lord your God walks in the midst of your camp, to deliver you, and to give up your enemies before you." By this walking is intended a special Presence of love. The Lord is present in His Church in a higher sense than in the world. The Lord walks in the midst of His Church as a man takes pleasure in the walks of his garden. The Church is the garden of the Lord, His Paradise. "His delights are with the sons of men." He looks on this one, and on that--all plants of His own right-hand planting--He looks to see where the knife is needed, that He may prune the vine, or where refreshment is needed, that He may water the roots.
+Secondly, I come to notice a SPECIAL PRIVILEGE. The text mentions a privilege specially promised to Israel, but I am sure, to a very high and real degree, enjoyed by ourselves. "The Lord your God walks in the midst of your camp, to deliver you, and to give up your enemies before you." By this walking is intended a special Presence of love. The Lord is present in His Church in a higher sense than in the world. The Lord walks in the midst of His Church as a man takes pleasure in the walks of his garden. The Church is the garden of the Lord, His Paradise. "His delights are with the sons of men." He looks on this one, and on that--all plants of His own right-hand planting--He looks to see where the knife is needed, that He may prune the vine, or where refreshment is needed, that He may water the roots.
 
 The Lord, with unutterable care, is in the midst of His Church. Remember how He says, "I the Lord do keep it; I will water it every moment; lest any hurt it, I will keep it night and day." If you want to find God on earth, you must look among His chosen! Where is a father most at home but with his children? God has said, "This is My rest forever: here will I dwell; for I have desired it." While Israel was a dweller in tents the Ark of the Covenant was among them, the token of the Lord's Presence--and in His warring Church the great Captain of the host is ever lovingly near! Hear how He gives the assurance, "Lo, I am with you always, even unto the end of the world."
 
