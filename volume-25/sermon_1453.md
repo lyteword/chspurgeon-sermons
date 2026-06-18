@@ -74,9 +74,9 @@ Our Savior and His Gospel abide the same! The Gospel of Paul, the Gospel of Augu
 
 He is also faithful to His saints. He has promised to preserve them to His eternal kingdom and Glory and He will preserve them. He says, "I give unto My sheep eternal life and they shall never perish, neither shall any pluck them out of My hands"--and He has held them in His loving grasp and He will hold them even to the end! And all this, though all the unbelief in the world should rise against Him! He will stand to every Word He has spoken and carry out every promise He has declared, though all should distrust and deny. "Yes and amen in Christ Jesus" are all the promises, henceforth and forever--and we shall find it so.
 
-And now we have but a little time to spend upon the second very important part of our text, which is A
+And now we have but a little time to spend upon the second very important part of our text, which is a
 
-GLORIOUS IMPOSSIBILITY WITH A SWEET INFERENCE THAT MAY BE DRAWN FROM IT. "He cannot deny
+GLORIOUS IMPOSSIBILITY WITH a SWEET INFERENCE THAT MAY BE DRAWN FROM IT. "He cannot deny
 
 Himself." Three things God cannot do. He cannot die. He cannot lie. And He cannot be deceived. These three impossibilities do not limit His power, but they magnify His majesty, for these would be infirmities, and infirmity can have no place in the Infinite and Ever-Blessed God. Here is one of the things impossible with God--"He cannot deny Himself." What is meant by that?
 

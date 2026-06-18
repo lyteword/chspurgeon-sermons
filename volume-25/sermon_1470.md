@@ -20,7 +20,7 @@ So far, I believe, I have not misread the text, but have mentioned a very probab
 
 No, there is a limit to the efforts of kindness and in fullness of time the labor ceases--the rock remains a sterile rock, forever unplowed.
 
-Taking that sense, we shall speak upon it and remark, first, that MINISTERS LABOR TO BREAK UP MEN'S HEARTS. This is the first effort of the wise preacher. The servant of Christ who teaches the Gospel, whatever he may be called, is a sower of seed--and though it may appear useless to sow seed upon rocks, we are bound, while acting as evangelists, to sow our Seed everywhere. Broadcast is our Master's rule--"Go you into all the world and preach the Gospel to every creature." Hence in our Lord's parable a handful fell upon the highway where the birds devoured it and another handful fell upon the rocky soil where it sprung up, but tomorrow perished because it had not depth of earth.
+Taking that sense, we shall speak upon it and remark, first, that MINISTERS LABOR TO BREAK UP MEN's HEARTS. This is the first effort of the wise preacher. The servant of Christ who teaches the Gospel, whatever he may be called, is a sower of seed--and though it may appear useless to sow seed upon rocks, we are bound, while acting as evangelists, to sow our Seed everywhere. Broadcast is our Master's rule--"Go you into all the world and preach the Gospel to every creature." Hence in our Lord's parable a handful fell upon the highway where the birds devoured it and another handful fell upon the rocky soil where it sprung up, but tomorrow perished because it had not depth of earth.
 
 It was no business of the sower to select the soil. He was to sow as he went along, for so his Master told him. But I think he would not be blamed, but commended if he threw double handfuls over there where the soil was evidently rich and well prepared! As a sower he was to sow broadcast and leave the Seed to fall where it might under the guardian care of Him who sent Him to sow. But when he became a farmer, he would have further duties and among the rest, that of breaking up the fallow ground that he might no longer sow among thorns.
 
@@ -68,7 +68,7 @@ With some, too, there is a hardness produced by what I might almost call the opp
 
 I might thus multiply reasons why some are harder than others, but it is a well-assured fact that they are so and there I leave it to notice a third point.
 
-I shall now ask everybody to judge whether this running of horses upon a rock and this plowing there with oxen shall always be continued? I assert that IT IS UNREASONABLE TO EXPECT THAT GOD'S SERVANTS SHOULD
+I shall now ask everybody to judge whether this running of horses upon a rock and this plowing there with oxen shall always be continued? I assert that IT IS UNREASONABLE TO EXPECT THAT GOD's SERVANTS SHOULD
 
 ALWAYS CONTINUE TO LABOR IN VAIN. These people have been preached to, taught, instructed, admonished,
 

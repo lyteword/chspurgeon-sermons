@@ -6,7 +6,7 @@ Bildad was declaring the history of the hypocritical, presumptuous and wicked ma
 
 Nevertheless, because what Bildad said was, in the most part, true, though unkindly and wrongly applied, we feel ourselves quite at liberty to take a text out of his mouth. It is true of many persons that their strength shall be starved-- and I shall speak concerning these words in three ways, noticing, first, that this is a curse which will surely be fulfilled upon the ungodly. Secondly, this is a discipline which God often exercises upon the self-righteous when He means to save them. And, thirdly--and it is grievous work to have to say it--this is a form of chastisement upon Believers who are not living near to God as they ought to be--their strength becomes starved or weak.
 
-First we shall view our text as A CURSE WHICH WILL BE FULFILLED UPON THE UNGODLY. "His strength shall be starved." It is not said that they are starved merely, but that their strength is. And if their strength is starved, what must their weakness be? When a man's strength is bitten with hunger, what a hunger must be raging throughout the whole of his nature! Now, a large proportion of men make their gold to be their strength, their castle and their high tower and, for a while they rejoice in their wealth and find great satisfaction in gathering it, in seeing it multiplied and in hoping, by-and-by, that it shall come to great store.
+First we shall view our text as a CURSE WHICH WILL BE FULFILLED UPON THE UNGODLY. "His strength shall be starved." It is not said that they are starved merely, but that their strength is. And if their strength is starved, what must their weakness be? When a man's strength is bitten with hunger, what a hunger must be raging throughout the whole of his nature! Now, a large proportion of men make their gold to be their strength, their castle and their high tower and, for a while they rejoice in their wealth and find great satisfaction in gathering it, in seeing it multiplied and in hoping, by-and-by, that it shall come to great store.
 
 But every ungodly man ought to know that riches are not forever and often they take to themselves wings and fly away! Men of colossal fortunes have dwindled down to beggars--they made great ventures and realized great failures. None are secure. As long as a man is in this world, he is like a ship at sea, he is still liable to be shipwrecked. O you that are boasting in your gold and calling your treasure your chief good, the day may come when your strength will be starved and, like the victims of famine, you will find yourselves helpless--you whose money answered all things and made you feel omnipotent!
 
@@ -34,7 +34,7 @@ When he comes to die they cannot help him. The soul that is within him, which he
 
 I have said these things mournfully to my own heart. But I would say to any of you who may not be rich, but who are looking for your good in your own little home and the comforts of it--any of you young men who are seeking the great object of life in learning or the like--if you are not living for God, your strength will be starved! If you do not "seek first the kingdom of God and His righteousness," whatever you gain and however satisfied you may be for a little while, an awful hunger must ultimately come upon you and you will then lament that you spent your money for that which is not bread and your labor for that which satisfies not!
 
-Briefly, in the second place, we shall speak of our text as indicating A KIND OF DISCIPLINE THROUGH
+Briefly, in the second place, we shall speak of our text as indicating a KIND OF DISCIPLINE THROUGH
 
 WHICH GOD PUTS THE SELF-RIGHTEOUS WHEN HE MEANS TO SAVE THEM. Many people are very religious
 
@@ -60,7 +60,7 @@ Dear Soul, if you are resting anywhere short of Christ, may your strength be sta
 
 Lastly, and very earnestly--and perhaps this last part may have more reference to most of you than anything I
 
-have said--I believe THERE ARE MANY OF GOD'S SERVANTS WHOSE STRENGTH IS LAMENTABLY
+have said--I believe THERE ARE MANY OF GOD's SERVANTS WHOSE STRENGTH IS LAMENTABLY
 
 HUNGER-BITTEN. In this age we are all busy and through being busy we are apt to neglect the soul-feeding ordinances. I mean the reading of Scripture, the hearing of the Word, meditation upon it, prayer and communion with God. Some of you do not rise as soon as you might in the morning and prayer is hurried over. And too often at eventide you are half-asleep with the many cares of the day and prayer is offered in a slovenly way.
 

@@ -92,7 +92,7 @@ The Believer is saved at first by believing and he shall be so to the last. Do n
 
 This brings me to conclude with the third clause of our text which is a prayer. The Lord, having given His people
 
-Grace to rest in His mercy, PUTS IT INTO THEIR HEARTS TO PRAY AND SUPPLIES THEM WITH A PLEA--
+Grace to rest in His mercy, PUTS IT INTO THEIR HEARTS TO PRAY AND SUPPLIES THEM WITH a PLEA--
 
 "Forsake not the works of Your own hands." To my mind, it is a very touching prayer. "Lord, You have begun the work
 

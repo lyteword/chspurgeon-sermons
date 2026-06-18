@@ -52,7 +52,7 @@ It is the doom of evil to persevere in its spite after it knows that it is all i
 
 I thought this morning that I would call attention to one particular instance which is seen in the soul that is coming to Christ, in whom Satan often has great wrath knowing that his time is short. My objective is to comfort those who are awakened and are seeking the Savior. If they are sorely beset, I long that they may find peace, rest and hope very speedily. When the poor man who was possessed with an evil spirit was being brought to Christ, we read that, "as he was a coming, the devil threw him down and tore him." That is the way with the great enemy--when he is about to be cast out, his energy is more displayed than ever--that if possible he may destroy the soul before it has obtained peace with God. May the sacred Comforter help me while I try to speak encouragingly upon this subject.
 
-Our first head shall be, How DOES SATAN KNOW WHEN HIS TIME IS SHORT IN A SOUL? He watches over
+Our first head shall be, How DOES SATAN KNOW WHEN HIS TIME IS SHORT IN a SOUL? He watches over
 
 all souls that are under his power with incessant maliciousness. He goes about the camp like a sentinel, spying out every man who is likely to be a deserter from his army. In some men's hearts he dwells at ease, like a monarch in his pavilion-- their minds are his favorite mansions--he goes in and out whenever he pleases and he makes himself wonderfully much at home. He counts the man's nature to be his own inheritance and he works within him after his own evil pleasure.
 
