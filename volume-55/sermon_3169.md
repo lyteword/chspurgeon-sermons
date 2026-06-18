@@ -2,7 +2,7 @@
 
 "We who have believed do enter into rest." Hebrews 4:3.
 
-[Other Sermons by Mr. Spurgeon upon the same text are Sermons #866, Volume 15--REST and #2090, Volume 35-- A DELICIOUS EXPERIENCE.]
+[Other Sermons by Mr. Spurgeon upon the same text are Sermons #866, Volume 15--REST and #2090, Volume 35-- a DELICIOUS EXPERIENCE.]
 
 THE text does not say that we who have believed shall enter into rest. That is a very great Truth, but it is not the Truth that is taught here. We "do enter into rest," even in this present life! All who are Believers in the Lord Jesus Christ are already enjoying rest of heart and, in proportion as faith possesses their souls, in that proportion they enjoy perfect rest. It is not a future privilege--it is a matter of present enjoyment. And I pray my Brothers and Sisters in Christ not to impoverish themselves by making the text apply to the future, but to seek for the spiritual enrichment which God has given them by accepting the text just as the Apostle wrote it and so realizing that "we who have believed do enter into
 
@@ -32,7 +32,7 @@ But, on further thinking this subject over, you will remember that God's great r
 
 but it is because there is a blessed absence of all the sin which must forever mar our peace and restfulness!
 
-Now, secondly, I am going to DESCRIBE THIS REST FROM MY OWN EXPERIENCE AND FROM THE EXPERIENCE OF GOD'S PEOPLE GENERALLY. "We who have believed do enter into rest."
+Now, secondly, I am going to DESCRIBE THIS REST FROM MY OWN EXPERIENCE AND FROM THE EXPERIENCE OF GOD's PEOPLE GENERALLY. "We who have believed do enter into rest."
 
 First, we enter into rest concerning all dread of God and all terror on account of past sin. It is but a little while ago that our sins greatly alarmed us. We knew that God must punish us for them and, therefore, we could not rest. But those sins, which then disturbed us, have been forgiven--we are reconciled to God by the death of His Son--and now, we who have believed, have no dread of punishment, no fear of the wrath to come, for we have entered into rest! I can truly say that this is my condition. Is it not yours, also, my beloved Brothers and Sisters in Christ? If you really believe in Jesus, it must be!
 

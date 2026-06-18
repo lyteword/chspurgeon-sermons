@@ -2,7 +2,7 @@
 
 "And we being exceedingly tossed with a tempest, the next day they lightened the ship; and the third day we cast out with our own hands the tackling of the ship. And when neither sun nor stars in many days appeared, and no small tempest lay on us, all hope that we should be saved was then taken away. But after long abstinence Paul stood forth in the midst of them, and said, Sirs, you should have listened to me, and not have sailed from Crete, and incurred this disaster and loss. And now I exhort you to be of good cheer: for there shall be no loss of life among you, but only of the ship. For there stood by me this night the angel of God, whose I am, and whom I serve, saying, Fear not, Paul, you must be brought before Caesar: and, lo, God has given you all them that sail with you. Therefore, Sirs, be of good cheer: for I believe God, that it shall be even as it was told me." Acts 27:18-25.
 
-[Other Sermons by Mr. Spurgeon, upon parts of this passage, are as follows--Sermons #1070, Volume 18--WRECKED, BUT NOT RECKLESS; #2952, Volume 51--THE CHURCH--THE WORLD'S HOPE and #1355, Volume 23--A CHEERY WORD IN TROUBLOUS TIMES.]
+[Other Sermons by Mr. Spurgeon, upon parts of this passage, are as follows--Sermons #1070, Volume 18--WRECKED, BUT NOT RECKLESS; #2952, Volume 51--THE CHURCH--THE WORLD's HOPE and #1355, Volume 23--a CHEERY WORD IN TROUBLOUS TIMES.]
 
 HERE we see a Believer full of comfort cheering others. The words of good cheer now before us are from a man, but inasmuch as he does but repeat what the Lord had spoken to him, they are none the less precious. And they may be all the more profitable if they move us, by their example, to speak words of cheer to others.
 
@@ -38,7 +38,7 @@ Before we leave this point we ought to notice that while Paul thus believed God,
 
 Nowadays, people are so dreadfully modest that they are afraid to glorify God. God save us from such cowardice! Infidelity brawls in every street--shall faith be dumb? If you believe, there is at this time a grave necessity that you should declare your faith, for unbelief is rampant. Look at the high-class reviews, look at popular literature--these things reek with unbelief of the worst kind! Alas that it should ever come to this--that men who call themselves Christians should lend their pens to suggest and spread infidel principles and even enter into pulpits to insinuate mistrust of the Truths of God which they were ordained to preach! Honesty seems to have fled from the earth and men have lost all conscience. Let us who believe in God speak out at once, though men will call us narrow-minded, destitute of culture, incapable of enlarged views and other pretty things! What does it matter what they say? All that they say or insinuate should only make us the more vehemently declare, "I believe God." Why it has become a rare thing to meet a man who believes anythingnow, for the reputed wise man of the period is he who says, "I do not believe in anything in particular. I hold certain views, but I am quite prepared to change them, for there is a great deal to be said on the other side." This is not after the manner of Christ, nor according to the ways of the faithful in the olden time, who held fast the form of sound words and were ready to die for the Truths of God which had taken possession of their souls. It is time now, if ever in the world's history, for those who are Believers to speak with all confidence. Fear nothing! Can there be anything to fear in believing God? Can there be any shame in avowing an implicit faith in the God of Truth? For my own part, I had rather be ridiculed for bigotry than be applauded for "advanced and liberal views." I would sooner be despised with the orthodox than reign with "the intellectual."
 
-We have thus gone over Paul's words as an avowed Believer. And now we may turn to look at him AS A BOLD
+We have thus gone over Paul's words as an avowed Believer. And now we may turn to look at him AS a BOLD
 
 PROPHET.
 
@@ -60,7 +60,7 @@ lent spirits to sit down by the side of some poor half-starved woman who is full
 
 May God make you to be so far a prophet that you may be prophetic on several points! In the first place, always declaring that God will hear believing prayer and, next, that a wrong thing cannot have the Divine blessing resting upon it. Be prophet enough to say these two things and act upon them as downright matters of fact. You can also foretell that if the Gospel is faithfully and simply preached, with the Holy Spirit sent down from Heaven, it will win souls. You may prophesy that and never fail! And you may prophesy, also, that if the biggest sinner in the world will come to Christ, he shall be forgiven! That if the vilest heart will yield itself to the Savior, it shall be renewed! That if the most rebellious and obstinate man that ever lived is touched by the finger of God and is led to repentance and faith, he is capable of becoming one of the brightest of the sons of God! No one shall ever shame you by proving that you spoke falsely if you speak for God in this fashion! Speak out, then, and banish guilty silence.
 
-The Apostle may be viewed in a third character, as A SYMPATHETIC COMFORTER.
+The Apostle may be viewed in a third character, as a SYMPATHETIC COMFORTER.
 
 They were all in trouble, for they were all in danger of drowning. The ship was going to pieces, death stared them in the face, dismay was written on every countenance, but Paul says to them, "Sirs, be of good cheer." Doubtless, his cheerful tones and manly voice helped to banish their fears and to prevent a panic. Beloved Christian Friend, should it not be our effort, wherever we are, to make troubled ones happy? Next to loving God, the first duty of a Christian is to spread peace on earth and goodwill to men. Whenever we meet with a person in trouble--I do not mean only spiritual trouble--we should administer relief. Even when we meet with a child who has lost a penny, or has broken a jug, we should take pleasure in soothing its grief. His mother will scold him, so buy him another jug, if you can, and try and cheer his little heart. What a mass of happiness you can buy for a few pence, if you will spend them on poor children.
 
@@ -96,7 +96,7 @@ So teach us to number our days, that we may apply our hearts unto wisdom. That i
 
 13, 14. Return, O LORD, how long? And let it repent You concerning Your servants. O satisfy us early with Your
 
-mercy; that we may rejoice and be glad all our days. [See Sermons #513, Volume 9--THE YOUNG MAN'S PRAYER and #2987, Volume 52--THE "BEAU IDEAL" OF LIFE.] Dear young people, here is a suitable
+mercy; that we may rejoice and be glad all our days. [See Sermons #513, Volume 9--THE YOUNG MAN's PRAYER and #2987, Volume 52--THE "BEAU IDEAL" OF LIFE.] Dear young people, here is a suitable
 
 prayer for you to present to God--"O satisfy us early with Your mercy." Believe me, there is no joy for a lad like that of loving the Lord Jesus Christ while he is yet young! And O you maidens--there is no fairer jewel that you can ever wear than that of love to Jesus Christ--
 

@@ -12,7 +12,7 @@ I am going to speak of these two courts. First, of the lower court of the heart 
 
 correct verdict of acquittal, (that is in the second verse of our text). And then, lastly, I will say something about an incorrect verdict of acquittal, which, perhaps, our heart may sometimes give.
 
-First, then, the Apostle speaks of A CORRECT VERDICT AGAINST OURSELVES--"If our heart condemn
+First, then, the Apostle speaks of a CORRECT VERDICT AGAINST OURSELVES--"If our heart condemn
 
 us."
 
@@ -57,7 +57,7 @@ Savior, I will trust You and I do trust You. Lost and ruined, and guilty, and al
 
 So, you see, there is a blessedly comforting meaning in these words of the Apostle John as well as a meaning that should awaken us all to earnest concern about our real standing in the sight of God.
 
-Now, thirdly, we have A CORRECT VERDICT OF ACQUITTAL, "If our heart condemn us not, then have we confidence toward God."
+Now, thirdly, we have a CORRECT VERDICT OF ACQUITTAL, "If our heart condemn us not, then have we confidence toward God."
 
 When is it that our heart does not condemn us? Of course it always condemns us i n some things. There may be people in the world who are perfect. I would like to have the pleasure of their acquaintance, yet I do not know whether they would like to have the pleasure of mine, for I am afraid that my imperfections and their perfections would make a quarrel, before long, and I do not know whether they would not be the people to quarrel first. Superior articles generally crack the soonest and whenever a Brother has had a very high polish on him and much varnish of the very first quality, I have generally proved him to be a hypocrite before long! Still, it is not my business to judge him--to his own Master let him stand or fall. If he is perfect, I say again that I should like to know him, for I know that I am not perfect.
 

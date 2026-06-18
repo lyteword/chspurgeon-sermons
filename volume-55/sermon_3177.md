@@ -4,7 +4,7 @@
 
 THOUSANDS of times that song of Simeon has been sung by careless, thoughtless persons, but surely it is one of those songs that ought never to come except from believing lips. To make it merely a part of a liturgy and for shamelessly living men to say, "My eyes have seen Your Salvation," must be an atrocious sin before God! Let all who have ventured to use such words as these without having thought of their meaning, confess their sin before God and ask that He would make those words to be true which have up to now been so frivolously uttered and that before they close their eyes in death, they maysee God's Salvation!
 
-I shall, first of all, TAKE THE TEXT AS IT DROPS FROM SIMEON'S LIPS and follow his leading.
+I shall, first of all, TAKE THE TEXT AS IT DROPS FROM SIMEON's LIPS and follow his leading.
 
 We will start with Simeon's main idea. He came into the Temple. He saw there a little Babe and he recognized, in that newly-born Child, Jesus the promised Savior! And as he took up that Savior into his arms, he said, "Mine eyes have seen"--what? "Your Salvation," God's Salvation--not only the Worker of the Salvation, but the Salvation itself! From which I gather that wherever we see Jesus, we see God's Salvation, Wherever our eyes spiritually light upon the Christ of God, there we see God's Salvation! Whether in Bethlehem's manger, or on Calvary's Cross, or on yonder Throne of Glory from which He shall judge the quick and the dead--wherever we see Him, we see the Salvation of God!
 
@@ -54,7 +54,7 @@ they shall not depart from Me." That was a glorious discovery! None of your two 
 
 But further on, (and it was with me a long time later), when I had discovered that the Christ who saved me from the guilt was also pledged to save me from the power of sin--then I found afresh that He was God's Salvation! I discovered partly through thought and partly through the clear testimony of the written Word, that every soul that believes in Christ, believes in Christ because God made Him believe in Christ That concerning that soul there was a purpose made by God that that soul should be a Believer--and that purpose was made from all eternity, and that purpose once made could never be changed! It was like the mountains of brass which could never be moved. I say that the salvation of the Believer in Christ did not rest on his own will, but on God's will! That the purpose that saved him was not his own purpose, even as it is written, "it is not of him that wills, nor of him that runs, but of God that shows mercy." Why, I remember that was as good a discovery to me as the very first one that I made! It was almost like another conversion! I had been up to the ankles in the Water of Life before, but now I was up to my very neck! And what could I say but this--
 
-"I'm a monument of Grace, A sinner saved by blood! The streams of love I trace Up to the Fountain, God. And in His sacred bosom see Eternal thoughts of love to me"?
+"I'm a monument of Grace, a sinner saved by blood! The streams of love I trace Up to the Fountain, God. And in His sacred bosom see Eternal thoughts of love to me"?
 
 Here it is that "my eyes have seen God's Salvation"--seen the source of it, the secret springs of it, the eternity of it, the immutability of it and the Divinity of it! I pray that every burdened child of God may also get to see that. Then will he indeed sing for joy of heart!
 
@@ -72,7 +72,7 @@ And, Brothers and Sisters, (to put a better, a more pleasing light upon it)--
 
 when I shall see Him--and see Him I shall, for I can say with Job, "Whom I shall see for myself and my eyes shall behold, and not another." When you and I shall cast our crowns at His feet, when we shall raise our voices with all the white-robed throng in the everlasting hallelujahs, then we shall say, "My God, my Father, 'My eyes have seen Your Salvation.'"
 
-Time fails me, so I must pass on to spend a few minutes in a third portion of my topic. It is this--THERE ARE SOME HERE WHO HAVE NEVER SEEN GOD'S SALVATION.
+Time fails me, so I must pass on to spend a few minutes in a third portion of my topic. It is this--THERE ARE SOME HERE WHO HAVE NEVER SEEN GOD's SALVATION.
 
 The Gospel is hid from them. And if it is hid, it is not hid because we have used hard words to hide it. "If our Gospel is hid, it is hid from them who are lost; in whom the god of this world has blinded the minds of them which believe not." Blind Sinner, do you desire to see the Salvation of God? "Ah," you say, "If I know my own heart, I do." Why, then, can you not see it, Man? It is very plain. Ah, I see, your eyes are sealed up!
 
@@ -104,7 +104,7 @@ And suddenly there was with the angel a multitude of the heavenly host praising 
 
 In her heart. The best of coffers to lay up anything in is the heart! Happy are those who, like Mary, store up the things of Christ, not in their brain, though that would make them orthodox--but in their heart--for that will bring them salvation!
 
-20-24. And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them. And when eight days were accomplished for the circumcising of the Child, His name was called JESUS, which was so named of the angel before He was conceived in the womb. And when the days of her purification according to the Law of Moses were accomplished, they brought Him to Jerusalem, to present Him to the Lord; (as it is written in the Law of the Lord, Every male that opens the womb shall be called holy to the Lord) and to offer a sacrifice according to that which is said in the Law of the Lord, A pair of turtledoves, or two young pigeons. Our Savior put Himself under the Law for our sakes and in every jot and tittle He observed it. So we are delivered from its dominion, for if Christ has fulfilled the Law on our account, it has no more claim upon us. "You are not under the Law, but under
+20-24. And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them. And when eight days were accomplished for the circumcising of the Child, His name was called JESUS, which was so named of the angel before He was conceived in the womb. And when the days of her purification according to the Law of Moses were accomplished, they brought Him to Jerusalem, to present Him to the Lord; (as it is written in the Law of the Lord, Every male that opens the womb shall be called holy to the Lord) and to offer a sacrifice according to that which is said in the Law of the Lord, a pair of turtledoves, or two young pigeons. Our Savior put Himself under the Law for our sakes and in every jot and tittle He observed it. So we are delivered from its dominion, for if Christ has fulfilled the Law on our account, it has no more claim upon us. "You are not under the Law, but under
 
 Grace."
 

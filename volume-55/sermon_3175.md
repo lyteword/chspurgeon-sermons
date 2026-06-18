@@ -4,7 +4,7 @@
 
 [This Address is an interesting souvenir of an afternoon visit paid by Mr. Spurgeon to an invalid at Mentone, the late Giles Shaw, Esq., of Bewdley--brother-in-law of Miss Frances Ridley Havergal. The Address was delivered without preparation and followed immediately the singing of the hymn upon which it is based.]
 
-[A Sermon by Mr. Spurgeon upon Isaiah 26:3 is #1818, Volume 31--THE SONG OF A CITY AND THE PEARL OF PEACE. Expositions of the whole Chapter are included with Sermons #2430, Volume 41--CHRISTIANS AND THEIR COMMUNION WITH GOD and #2713, Volume 47--WALKING IN THE LIGHT OF THE LORD]
+[a Sermon by Mr. Spurgeon upon Isaiah 26:3 is #1818, Volume 31--THE SONG OF a CITY AND THE PEARL OF PEACE. Expositions of the whole Chapter are included with Sermons #2430, Volume 41--CHRISTIANS AND THEIR COMMUNION WITH GOD and #2713, Volume 47--WALKING IN THE LIGHT OF THE LORD]
 
 
 "Peace! Perfect peace! In this dark world of sin?

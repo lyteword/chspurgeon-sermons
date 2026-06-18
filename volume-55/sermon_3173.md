@@ -2,7 +2,7 @@
 
 "As you have therefore received Christ Jesus the Lord, so walk you in Him." Colossians 2:6.
 
-[Two other Sermons by Mr. Spurgeon upon the same text are Sermons #483, Volume 8--LIFE AND WALK OF FAITH and #3030, Volume 53-- A CONSISTENT WALK FOR TIME TO COME]
+[Two other Sermons by Mr. Spurgeon upon the same text are Sermons #483, Volume 8--LIFE AND WALK OF FAITH and #3030, Volume 53-- a CONSISTENT WALK FOR TIME TO COME]
 
 THIS is a very simple text, yet no human being has ever discovered its full meaning. It is a great deep--happy are they who know how to dive into its depths and to swim at ease in its lengths and breadths! Blessed are they who continually obey the exhortation which it contains, "As you have therefore received Christ Jesus the Lord, so walk you in Him." The text divides itself into faith and practice. "You have received Christ Jesus the Lord," there is your faith. "Walk you in Him," that is to be your daily practice!
 
@@ -30,7 +30,7 @@ It soothes his sorrows, heals his wounds, And drives away his fears." You also s
 > And in Your Presence rest   
 > Nor voice can sing, nor heart can frame,   
 > Nor can the memory find   
-> A sweeter sound than Your blest name,   
+> a sweeter sound than Your blest name,   
 > OSavior of mankind!   
 
 You received Him as your Savior and, therefore, He has saved you from the penalty of sin and He will also save you from the dominion and power of sin. If you are saved, you are saved entirely through Jesus--and you do not need, and you do not desire any other Savior! You look to Jesus for all that can be comprehended in the word, salvation. His name means Savior and you have found Him to be a Savior to you. So you have received the anointed Savior, Christ Jesus.
@@ -106,7 +106,7 @@ PROVED BY LOVE] He that loves not his brother abides in death.
 
 Whoever hates his brother is a murderer: and you know that no murderer has eternal life abiding in him. Hereby perceive
 
-we the love of God, because He laid down His life for uS [See Sermons #2656, Volume 46--THE DEATH OF CHRIST FOR HIS PEOPLE and #2959, Volume 51--GOD'S LOVE TO THE SAINTS] and we ought to lay down our
+we the love of God, because He laid down His life for uS [See Sermons #2656, Volume 46--THE DEATH OF CHRIST FOR HIS PEOPLE and #2959, Volume 51--GOD's LOVE TO THE SAINTS] and we ought to lay down our
 
 lives for the brethren. Such self-sacrifice as this is the very highest form of love to the brethren and is a following of the example of Christ, who "laid down his life for us."
 

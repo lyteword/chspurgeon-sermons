@@ -39,7 +39,7 @@ And even now, Brothers and Sisters, our success is wonderfully like the non-succ
 > Lord, revive us,   
 > All our help must come from You!   
 
-Now, secondly, I have to speak upon THE MEANS WHICH WE ARE TO USE SO AS TO GAIN OUR MASTER'S PRESENCE. I have tried to show you that all our success must come from Him and all that He gives us must be ascribed to Him. So how can we secure His Presence? We have it in a measure--how can we have it more fully?
+Now, secondly, I have to speak upon THE MEANS WHICH WE ARE TO USE SO AS TO GAIN OUR MASTER's PRESENCE. I have tried to show you that all our success must come from Him and all that He gives us must be ascribed to Him. So how can we secure His Presence? We have it in a measure--how can we have it more fully?
 
 Well, let us always remember that He comes just where He wills to come. There is absolute Sovereignty about the work of Christ in the Kingdom of His Grace. As the wind blows where it wishes, so does the Spirit of God work wherever He pleases. I do not think that we can always account for the great success of one preacher and the non-success of another by anything that we can see. We have to fall back upon the Sovereignty of God and say, "God wills it and, therefore, it is." He will have us know that Sovereignty is His Divine prerogative. He has the key of David--He opens and no man shuts. He shuts and no man opens. If He wills it, the rain shall descend steadily to make fat the fields. But if He wills it, He can restrain the dew of Heaven until the most fertile Church shall become barren as the mountains of Gilboa! He exercises His power not according to ourwill, but according to His own will--we must never forget that.
 
@@ -101,7 +101,7 @@ And none of the disciples dared ask Him, Who are You? knowing that it was the Lo
 
 He said unto Him, Yes, Lord; You know that Ilove You. He said unto him, FeedMylambs. [See Sermon #1684, Volume
 
-28--"FEED MY LAMBS"--A SUNDAY SCHOOL SERMON.] "Do not go after
+28--"FEED MY LAMBS"--a SUNDAY SCHOOL SERMON.] "Do not go after
 
 fish any more, but attend to My business--'feed My lambs.' The proof of your greater love to Me than to all worldly things will be found in your doing of the work which I have committed to your charge."
 
@@ -113,7 +113,7 @@ Lord; You know that I love You. He said unto him, Feed My sheep. "Quit the sea. 
 
 He said unto him the third time, Simon, son of Jonas, Do you love Me? Peter was grieved because He said unto him the third time, Do you love Me? And he said unto Him, Lord, You know all things; You know that Ilove You. [See
 
-Sermon #2669, Volume 46--COMFORT FROM CHRIST'S OMNISCIENCE.] Thrice
+Sermon #2669, Volume 46--COMFORT FROM CHRIST's OMNISCIENCE.] Thrice
 
 he had denied his Lord, so thrice he must be questioned concerning his love to the Lord whom he said he did not even know. And then for the third time he was re-commissioned by his Lord.
 

@@ -99,7 +99,7 @@ This is the fruit of my labor He lived to work for Christ and to see souls saved
 
 22, 23. Yet what I shall choose I know not For I am in a strait between two, having a desire to depart, and to be
 
-with Christ; which is far better [See Sermons #274, Volume 5--PAUL'S DESIRE TO DEPART and #1136, Volume 19--"FOREVER WITH THE LORD."] There were the two currents flowing in opposite directions.
+with Christ; which is far better [See Sermons #274, Volume 5--PAUL's DESIRE TO DEPART and #1136, Volume 19--"FOREVER WITH THE LORD."] There were the two currents flowing in opposite directions.
 
 The Apostle seemed to hear two voices speaking to him. One of them said, "Live, and you will gather the fruit of your labor. You will see sinners saved, Churches established and the Kingdom of Christ extended in the earth." The other said, "Die, and you will be with Christ!" So he knew not which to choose.
 
