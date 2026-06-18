@@ -18,7 +18,7 @@ as God shall help us, first, consider our Lord's inward grief. And then, secondl
 
 "Did Christ over sinners weep And shall our cheeks be dry? Let floods of penitential grief Burst forth from every eye."
 
-First, we are to contemplate OUR LORD'S INWARD GRIEF. We note concerning it that it was so intense that it could not be restrained by the occasion. The occasion was one entirely by itself--a brief gleam of sunlight in a cloudy day, a glimpse of summer amid a cruel winter. His disciples had brought the colt and had placed Him on it and He was riding to the city which was altogether moved at His coming. The multitudes were eager to do Him homage with waving branches and loud hosannas, while His disciples in the inner circle were exulting in songs of praise which almost emulated the angelic chorales of His birth night. "Glory to God in the highest, peace on earth, goodwill toward men," found its echo when the disciples said, "Blessed be the King that comes in the name of the Lord: peace in Heaven and glory in the
+First, we are to contemplate OUR LORD's INWARD GRIEF. We note concerning it that it was so intense that it could not be restrained by the occasion. The occasion was one entirely by itself--a brief gleam of sunlight in a cloudy day, a glimpse of summer amid a cruel winter. His disciples had brought the colt and had placed Him on it and He was riding to the city which was altogether moved at His coming. The multitudes were eager to do Him homage with waving branches and loud hosannas, while His disciples in the inner circle were exulting in songs of praise which almost emulated the angelic chorales of His birth night. "Glory to God in the highest, peace on earth, goodwill toward men," found its echo when the disciples said, "Blessed be the King that comes in the name of the Lord: peace in Heaven and glory in the
 
 highest."
 
@@ -64,7 +64,7 @@ Let me add that I think the lament of Jesus should instruct all those who would 
 
 Penitential sorrow works life into men. Only come to Jesus and tell Him you have sinned and are ashamed and gladly would cease to do evil and learn to do well. Come in all your misery and degradation, in all your consciousness of your Hell-deservedness. Come in sorrow to the Man of Sorrows who is even now on the road to meet you! He has said, "Him that comes to Me I will in no wise cast out," and He will not forfeit His Word. God bless these feeble words concerning the inner emotions of my Lord and may the Holy Spirit again rest upon us while we further pursue the subject into another field.
 
-We are now to consider OUR LORD'S VERBAL LAMENTATIONS. These are recorded in the following
+We are now to consider OUR LORD's VERBAL LAMENTATIONS. These are recorded in the following
 
 words--"Oh that you had known, even you, at least in this, your day, the things which belong unto your peace! But now they are hid from your eyes." First, notice He laments over the fault by which they perished--"Oh that you had known." Ignorance, willful ignorance, was their ruin. "Oh that you had known." They did not know what they might have known--what they ought to have known--they did not know their God. "The ox knows his owner and the ass his master's crib, but Israel does not know, My people do not consider."
 

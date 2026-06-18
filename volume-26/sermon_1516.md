@@ -16,7 +16,7 @@ I thank God for a thousand things I cannot understand. When I cannot get to know
 
 Men are saved, and the same men that are saved come to a knowledge of the truth. The two things happen together, and the two facts very much depend upon each other. God's way of saving men is not by leaving them in ignorance. It is by a knowledge of the truth that men are saved; this will make the main body of our discourse, and in closing we shall see how this truth gives instruction to those who wish to be saved, and also to those who desire to save others. May the Holy Spirit make these closing inferences to be practically useful.
 
-Here is our proposition: IT IS BY A KNOWLEDGE OF THE TRUTH THAT MEN ARE SAVED.
+Here is our proposition: IT IS BY a KNOWLEDGE OF THE TRUTH THAT MEN ARE SAVED.
 
 Observe that stress is laid upon the article: it is the truth, and not every truth. Though it is a good thing to know the truth about anything, and we ought not to be satisfied to take up with a falsehood upon any point, yet it is not every truth that will save us. We are not saved by knowing any one theological truth we may choose to think of, for there are some theological truths which are comparatively of inferior value. They are not vital or essential, and a man may know them, and yet may not be saved. It is the truth which saves. Jesus Christ is the truth: the whole testimony of God about Christ is the truth. The work of the Holy Ghost in the heart is to work in us the truth. The knowledge of the truth is a large knowledge. It is not always so at the first: it may begin with but a little knowledge, but it is a large knowledge when it is further developed, and the soul is fully instructed in the whole range of the truth.
 

@@ -14,7 +14,7 @@ Now, whenever you try to serve Jesus Christ do not make a fuss about it, because
 
 Let all these remarks stand as a kind of preface; for now I want to draw out the principles which are hidden in my text; and then, secondly, when I have displayed those principles, I want to show how they should be carried out.
 
-Jesus saith unto them, Fill the waterpots with water.' WHAT ARE THE PRINCIPLES INVOLVED IN OUR LORD'S MODE OF PROCEDURE?
+Jesus saith unto them, Fill the waterpots with water.' WHAT ARE THE PRINCIPLES INVOLVED IN OUR LORD's MODE OF PROCEDURE?
 
 First, that, as a rule, when Christ is about to bestow a blessing he gives a command. This is a fact which your memories will help you to establish in a moment. It is not always so; but, as a general rule, a word of command goes before a word of power, or else with it. He is about to give wine, and the process does not consist in saying, Let wine be,' but it begins by a command addressed to men,'Fill the waterpots with water.' Here is a blind man: Christ is about to give him sight. He puts clay on his eyes, and then says, Go to the pool of Siloam and wash.' There is a man with his arm swinging at his side, useless to him: Christ is going to restore it, and he says, Stretch forth thine hand.' Ay, and the principle goes so far that it holds good in cases where it would seem to be quite inapplicable, for if it be a child that is dead he says, Maid, arise;' or if it be Lazarus, who by this time stinks, being four days buried, yet he cries, Lazarus, come forth.' And thus he bestows a benefit by a command. Gospel benefits come with a gospel precept.
 
@@ -68,7 +68,7 @@ HYMNS FROM OUR OWN HYMN BOOK'432, 645, 739.
 
 Just Published. Stiff covers, 1s; cloth, gilt edges, 2s.
 
-JOHN PLOUGHMAN'S PICTURES;
+JOHN PLOUGHMAN's PICTURES;
 
 OR,
 

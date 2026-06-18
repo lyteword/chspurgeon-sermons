@@ -1,4 +1,4 @@
-# Sermon 1534 | Salvation By Works, A Criminal Doctrine
+# Sermon 1534 | Salvation By Works, a Criminal Doctrine
 
 "I do not frustrate the Grace of God: for if righteousness comes by the Law, then Christ is dead in vain." Galatians 2:21.
 

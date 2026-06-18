@@ -94,9 +94,9 @@ Secondly, in the comparison of the saint to the lily we remark that he has, like
 
 sin. "Thorns, also, and thistles shall it bring forth unto you." Not so the lily--it is a fair type of the blessing which makes rich without the sorrow of carking care. The thorn is the mark of wrath and the lily is the symbol of Divine Providence. A true Believer is a blessing, a tree whose leaves heal and whose fruit feeds. A genuine Christian is a living Gospel, an embodiment of goodwill towards men. Did not the old Covenant blessing run, "In you and in your seed shall all the nations of the earth be blessed"? I cannot refrain from quoting a metrical meditation of one who loved the Song of Solomon and drank into its spirit. He says of the Church, she is--
 
-> A radiant thing, where all is gloomy else,   
+> a radiant thing, where all is gloomy else,   
 > Florescent where all else is barrenness.   
-> A blossom in the desert, that proclaims   
+> a blossom in the desert, that proclaims   
 > Man is no friendless outcast, hopeless doomed   
 > To traverse scenes of wickedness and grief,   
 > But, pilgrim as he is, has One who plans,   
@@ -106,7 +106,7 @@ sin. "Thorns, also, and thistles shall it bring forth unto you." Not so the lily
 > How amazing it is that busy throngs   
 > Pause not to look on you!   
 > That few reflect   
-> On the strange fact of your existence still, A lily among thorns--a life in death, Distinct from, yet in contact with the world; Burning, yet unconsumed; though cumbered, free With glorious liberty!   
+> On the strange fact of your existence still, a lily among thorns--a life in death, Distinct from, yet in contact with the world; Burning, yet unconsumed; though cumbered, free With glorious liberty!   
 
 Yes, the Church is a blessing, a blessing abiding and scattering its delights in the midst of the curse--and each particular Believer is, in his measure, a blessing, too, "as the lily among thorns."
 

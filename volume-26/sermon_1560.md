@@ -50,7 +50,7 @@ Now, if some come to Christ and the devil is not permitted to assail them; if so
 
 It is admitted as an undoubted fact that many are much troubled in coming to Christ but now, secondly, THIS IS
 
-NOT AT ALL ESSENTIAL TO A REAL SAVING COMING TO THE LORD JESUS CHRIST. I mention this because I
+NOT AT ALL ESSENTIAL TO a REAL SAVING COMING TO THE LORD JESUS CHRIST. I mention this because I
 
 have known Christian men distressed in heart because they fear that they came to Christ too easily. They have half imagined, as they looked back, that they could not have been converted at all because their conversion was not attended with such agony and torment of mind as others speak of.
 
@@ -72,7 +72,7 @@ Once again, many instances prove that all this law work and doubting and fearing
 
 Taught from their very youth the way of God; trained by godly parents; they came under the influences of the Holy Spirit very early in life. They heard that Jesus Christ could save them. They knew that they needed saving and they just went to Him. I was about to say, almost as naturally as they went to their mother or their father when they were in need--they trusted the Savior and they found peace at once! Several of the honored leaders of this Church came to the Lord in this simple manner. Only yesterday I was greatly pleased with several that I saw who confessed faith in Jesus in a way which charmed me and yet, about their Christian experience there was little trace of terrible burns and scars. They heard the Gospel--they saw the suitability of it to their case--and they accepted it then and there and entered immediately into peace and joy.
 
-Now, we do not tell you that there are a few such plain cases, but we assert boldly that we know hosts of like instances and that there are thousands of God's most honored servants who are walking before Him in holiness and are eminently useful whose experience is as simple as A B C. Their whole story might be summed up in the verse--
+Now, we do not tell you that there are a few such plain cases, but we assert boldly that we know hosts of like instances and that there are thousands of God's most honored servants who are walking before Him in holiness and are eminently useful whose experience is as simple as a B C. Their whole story might be summed up in the verse--
 
 > I came to Jesus as I was,   
 > Weary and worn and sad;   
