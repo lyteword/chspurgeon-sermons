@@ -14,7 +14,7 @@ himself--"After they have helped you, they shall help themselves!" And so they d
 
 Looking at this fallacy of a nation as illustrative of a common tendency of mankind--and using my text as the picture of a sinner in a certain peculiar state of mental anxiety, I shall observe, first, the sinner's partial discovery of his lost estate. Secondly, the wrong means which he takes to be cured of his evil And then I will endeavor to direct you, as God shall enable me, to the right means of finding healing and deliverance through the Atonement and obedience of our Lord Jesus Christ.
 
-We have in our text somewhat of A PICTURE OF THE SINNER WHEN HE HAS PARTIALLY DISCOVERED
+We have in our text somewhat of a PICTURE OF THE SINNER WHEN HE HAS PARTIALLY DISCOVERED
 
 HIS LOST ESTATE.
 

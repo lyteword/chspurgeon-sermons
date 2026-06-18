@@ -84,7 +84,7 @@ All that I am, and all that I have, all is there! Of Benjamin, Moses said, "The 
 
 What about the sheep now? Well, it is resting--not as it will rest, by-and-by, when it will lie in the Shepherd's bosom in yet sweeter fellowship, but, even now it is resting. It has not to carry itself back to the fold. It is a long way, but neither the Shepherd nor the sheep will get weary. It is a toilsome way, full of dangers, but those boils and dangers are for the Shepherd rather than for the sheep. We are right in singing--
 
-" 'Safe in the arms of Jesus'"
+" 'safe in the arms of Jesus'"
 
 for now that He has found us, we are under His protection. No wolf can come near us now, or, if he did, he would be quite unable to hurt us. The sheep that is found is perfectly secure in the Good Shepherd's grip. It could not stray away even if it could. If it struggled to get free, He would grip it all the more firmly. So, Beloved, was it with us--when Christ took us on His shoulders, He held us fast and He will not let us go.
 

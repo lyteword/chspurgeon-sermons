@@ -18,7 +18,7 @@ Now, to you who are trusting in Jesus, yet who have fears about your election, l
 
 "A monument of Grace,
 
-A sinner saved by blood--
+a sinner saved by blood--
 
 The streams of love I trace
 

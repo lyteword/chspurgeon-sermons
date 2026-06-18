@@ -10,7 +10,7 @@ These Galatians had most foolishly sought to burden themselves with a load which
 
 Should there be any of you here who desire to come under the yoke of bondage, or who wish to be burden-bearers, or who find great music in the word, "law," I hope you will discover all these things in the text. I see in it, first of all, community--"Bear you one another's burdens." Then the latter part of the text teaches us immunity. You are not bound to consider other people's burdens so much as your own, that you become responsible for them. No, "every man shall bear his own burden." Then the third point, which will be a further opening up of the fifth verse, will be personality. "Every man shall bear his own burden."
 
-First, I see, in the text, A MARVELOUS COMMUNITY. "Bear you one another's burdens." What does this mean?
+First, I see, in the text, a MARVELOUS COMMUNITY. "Bear you one another's burdens." What does this mean?
 
 Well, dealing with it first, negatively, it does notmean that we are to burden one another. There are some whose religion consists in laying heavy burdens upon other men's shoulders while they, themselves, will not carry them for a single yard. You recollect that sect of Pharisees with whom our Master was always in conflict--they have their representatives in these modern times. Why, even this text, itself, is twisted by some into a reason for burdening others. "'Bear you one another's burdens,'" they say --"do you not see, Friend, that you have to help me?" Yes, friend number one, but do you not see that you are not to go and burden that other friend? It is true that you have to bear his burdens. Let the first application of this passage be to yourself, and be not eager to apply it to your neighbor from whom you want to draw something. You have begun by violating the spirit of the text, not only by not bearing your brother's burden, but also by thrusting upon him your own burden without taking his in exchange! I say this because I have often found that men naturally draw this inference--"We are to help one another, therefore, please help me." The proper inference would be, "We are to help one another--where is the man whom I am to help?" Is not that the most logical conclusion from the text? Yet such is the selfishness of our nature that we begin straightway to say, "This text is a cow, I will milk it," not, "this text gives me something to do, so I will do it," but, "This text gives me a chance of getting something and I am going to get it." If you talk like that, it proves that you are out of gear with the text and have not entered into the spirit of it at all.
 
@@ -40,9 +40,9 @@ Nor do I think, dear Friends, that our text could be made to mean that any of us
 
 There are some Christian people--at least, I call them Christians by courtesy--whose main thought is about saving their own souls. Their favorite hymn is not in "Our Own Hymn Book"--
 
-> A change to keep I have,   
-> A God to glorify--   
-> A never-dying soul to save,   
+> a change to keep I have,   
+> a God to glorify--   
+> a never-dying soul to save,   
 > And fit it for the sky.   
 
 That is nothing but a kind of spiritual selfishness--living unto yourself! There is something that you want to get and that something is what you strive after. Blessed is that man who is saved beyond all fear and who, for the love he bears his Lord, lives wholly and only to prove the power of the Grace of God that has been bestowed upon him--and earnestly seeks to be the means of saving the souls of others. The Doctrines of Grace do this for us, by delivering us from all fear with regard to the future and fixing us firmly upon the Rock of Ages. They turn our thoughts away from self to the service and the glory of our God. I delight to sing--

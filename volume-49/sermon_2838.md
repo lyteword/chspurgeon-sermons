@@ -50,7 +50,7 @@ And He can do it without causing any injury to the rest of mankind. There is no 
 
 The greatest blessing of all is, dear Friends, that, when God covers sin, He does it so effectually that it never appears again. He declares that He casts it into the depths of the sea. He says that as far as the east is from the west, so far does He remove it from us. He even goes the length of saying, "The iniquity of Israel shall be sought for, and there shall be none." So far as anything can be annihilated, that is what will happen to the sin of the Lord's people. You know that the work of the Messiah was "to finish the transgression, and to make an end of sins, and to make reconciliation for iniquity, and to bring in everlasting righteousness"--and that is the work of which He said, "It is finished." Then it is finished! There is an end of it! That is the glorious way in which the Lord covers sin and it is His peculiar glory that He is continually doing this. Kings may search out matters and they ought to do so, or government will not be safe--but it is to the honor of God to forgive sin.
 
-Now, secondly, to make a practical use of this Doctrine, THIS SHOULD BE VERY GREAT ENCOURAGEMENT TO THOSE WHO ARE SEEKING MERCY AT GOD'S HANDS.
+Now, secondly, to make a practical use of this Doctrine, THIS SHOULD BE VERY GREAT ENCOURAGEMENT TO THOSE WHO ARE SEEKING MERCY AT GOD's HANDS.
 
 Beloved Friend, do you wish to have your sin forgiven? Then do not attempt to cover it yourself, for it is the glory of God to cover that matter, so do not try to rob Him of His glory. If you could have covered your sin, there would have been no need for a Redeemer! Do not attempt to excuse or extenuate your guilt, but make a clean breast of it. You are a sinner. Therefore say that you are a sinner. In all your approaches to God, seeking mercy at His hands, come in your true colors. Do not even plead your own repentance, or your tears, or your feelings. Plead as David did, "For Your name's sake, O Lord, pardon my iniquity: for it is great "Call your sin great, as it really is. Never try to make it out to be little.
 
@@ -69,7 +69,7 @@ There is Christ on the Cross--look to Him with the eyes of faith and take Him to
 
 "For he that believes on Him is not condemned." "He that believes in Him is justified from all things from which he could not be justified by the Law of Moses." Oh, what an encouragement this ought to be to all sinners who are seeking the Savior!
 
-Now, lastly, THIS GRAND DOCTRINE OUGHT TO BE A GREAT STIMULUS TO THE PEOPLE OF GOD.
+Now, lastly, THIS GRAND DOCTRINE OUGHT TO BE a GREAT STIMULUS TO THE PEOPLE OF GOD.
 
 First, it should excite you to glorify God in having covered your sin. Do not go and talk to everybody about what you used to be before conversion, as I have known some to do. They will almost revel in what they were! I have more than a little hesitation about what is sometimes said by converted burglars and men of that sort. I am glad they are converted, but I wish they would not talk so much about that which is covered. Let it be covered. Still, never be backward to glorify God for having covered your sin. Speak of it with delicacy and modesty, but, if the Grace of God has saved you, tell all men of it and do not let people imagine that God has done only a small thing for you. When He saved you, it was the grandest thing He could do for you. Do you not think so? Well, then, tell the story of it--
 

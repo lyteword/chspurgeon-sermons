@@ -83,7 +83,7 @@ In a little while there will be a great concourse of people in the streets. I th
 God grant that you may not have to bear the bitter reproach of your own conscience! But, as I feel that "the time is short," I will stir you up as long as I am in this Tabernacle! And I do pray the Lord to bless the word every time I preach it from this platform. Oh, that some souls may be saved, that Jesus Christ may be glorified, Satan defeated and Heaven filled with saved ones!--
 
 > 'Tis not for man to trifle! Life is brief And sin is here!   
-> Our age is but the falling of a leaf, A dropping tear.   
+> Our age is but the falling of a leaf, a dropping tear.   
 > We have no time to sport away the hours All must be earnest in a world like ours. Not many lives, but only one, have we--   
 > Frail, fleeting man!   
 > How saved should that one life ever be-- That narrow span!   

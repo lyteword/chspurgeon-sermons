@@ -127,7 +127,7 @@ I cannot foretell to what a state of anarchy or of despotism this world may yet 
 
 To sum all up, Beloved, I do not know what your storms, inwardly or outwardly, may be, or what may be your special dread or terror; but if you hide away in the Man Christ Jesus, you will find that He will afford you shelter from every trouble that can possibly befall you!
 
-So I close my discourse by saying to you, AS THE LORD JESUS CHRIST IS SUCH A HIDING PLACE AS
+So I close my discourse by saying to you, AS THE LORD JESUS CHRIST IS SUCH a HIDING PLACE AS
 
 THIS, LET US RUN TO HIM FOR SHELTER.
 

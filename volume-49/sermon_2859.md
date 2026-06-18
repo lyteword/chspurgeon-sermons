@@ -20,7 +20,7 @@ We can easily imagine that, like Paul and Silas, when Daniel did not sleep, he m
 
 prison house. So Daniel was delivered and his foes were confounded. There is the story. Now, what lessons are we to learn from it?
 
-First, I want to set before you DANIEL'S EARLY AND ENTIRE CONSECRATION TO THE SERVICE OF
+First, I want to set before you DANIEL's EARLY AND ENTIRE CONSECRATION TO THE SERVICE OF
 
 GOD.
 

@@ -4,8 +4,8 @@
 
 IN our text the Prophet makes use of the flight of migratory birds to teach a valuable lesson. He mentions the swallow, which is the most prominent among the summer visitors to our own country, but he also names the stork, the crane and the turtledove, all of them familiar instances of birds that came, at a certain season, to Palestine and, punctual to the hour, at given changes of the weather, winged their way back again to warmer climates. Too many careless observers, like the peasant of whom Wordsworth writes--
 
-> A primrose by a river's brim   
-> A yellow primrose was to him   
+> a primrose by a river's brim   
+> a yellow primrose was to him   
 > And it was nothing more,   
 
 would have seen those birds and soon forgotten all about them. But the Prophet, observing the wisdom of these wanderers of the air, contrasts it with the folly of man who knows not "the judgment of the Lord," and obeys not so readily the monitions of his God as the birds do the instinct by which He guides them to and fro. We shall mark these migratory birds and set the wisdom of their instinct in contrast with the folly of mankind.
