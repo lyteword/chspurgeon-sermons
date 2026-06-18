@@ -8,7 +8,7 @@ The Apostles said it and the Apostles said it to Jesus. They went to the Strong 
 
 Now, I shall need your attention at this time to five or six observations about faith as a growing thing. The first observation is this--
 
-THE TEXT THROWS A LITTLE LIGHT UPON WHAT FAITH IS.
+THE TEXT THROWS a LITTLE LIGHT UPON WHAT FAITH IS.
 
 This is not altogether a dark subject, but still it is one upon which there has been a great deal of controversy. You are aware, perhaps, that in the first flush of the Reformation it was asserted by most Divines that saving faith was full assurance, or, at the least, that full assurance of salvation and of a personal interest in Christ entered into the essence of saving faith--and this has been maintained by a very large number of Divines and is still maintainedby many Christians that to personallybelieve that Christ died for me is saving faith.
 
@@ -72,7 +72,7 @@ I know that the enemy will tell you that you are placed in a position where you 
 
 It is not where you are, but whatyou are. And it is not how you are seen, but how you live in the sight of God. That is the thing that matters! Ah, dear Friends, it is possible that in the sphere where you are, to excel as much in faith as Paul did when preaching at Athens! Or Peter, standing in the midst of Jerusalem before the Parthians, Medes and Ela-mites! Let nothing deter you. Believe that you would not be taught to pray, "Lord, increase our faith," if God would not answer the prayer--and that He will answer it and give you the highest faith that ever man had--even you, so that on the sickbed, or in the midst of poverty you may be as illustrious an example of faith as the best known Believer who has ever adorned the annals of the Church. But to proceed--as this growth in faith is obtainable, so, in the next place--
 
-THERE IS A PROPER MEANS FOR OBTAINING IT.
+THERE IS a PROPER MEANS FOR OBTAINING IT.
 
 If I might advise you, the first means I would lay down for making faith grow would be that which the Apostles adopted, namely, prayer They said, "Lord, increase our faith." Pray much that your faith may grow. Oh, I am afraid in this naughty age in which we are so busy with a thousand cares, that we are only too deficient at the Mercy Seat and this accounts for the fact that there is so much superficial religion among us. If you would learn to believe God's promises, go with the promises to God and see them in the light of His Countenance! Plead them with solemn earnestness, not wavering before the Mercy Seat till you have a comfortable assurance that God will be to you what He has said. Let us have more prayer and there will be more faith!
 

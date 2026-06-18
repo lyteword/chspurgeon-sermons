@@ -50,7 +50,7 @@ In many instances this desire for prayer is one of the movements of the Spirit u
 
 Take warning, you that do not pray--you will yet need to pray! There will come a time to the most of you when you will not be able to bear yourselves without crying unto God. May God, in His Infinite Mercy lead you to begin at once! For when it can be said of you, "Behold, he prays," it will be the best of news! Beginning to pray is the turning point of life! Why not at once set a high price upon that which in times of trouble you will seek for with tears? Our third observation is this--
 
-IN SORE TROUBLE THE PRAYER IS OFTEN A WRONG ONE.
+IN SORE TROUBLE THE PRAYER IS OFTEN a WRONG ONE.
 
 The petitions which men offer when they are in distress are often wrong prayers. Pharaoh said, "Entreat the Lord, that He may take away the frogs from me."
 

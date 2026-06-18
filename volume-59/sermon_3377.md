@@ -40,7 +40,7 @@ But it was not their mourning which saved those who escaped--it was the mark whi
 
 This brings me to this last point of which I desire to speak. What were--
 
-THE PROPHET'S EMOTIONS WHEN HE SAID, "AND I WAS LEFT"?
+THE PROPHET's EMOTIONS WHEN HE SAID, "AND I WAS LEFT"?
 
 He saw men falling right and left and he, himself, stood like a lone rock amidst a sea of blood! And he cried in wonder, "And I was left."
 

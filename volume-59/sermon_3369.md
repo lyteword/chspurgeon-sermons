@@ -36,7 +36,7 @@ Oh, Brothers and Sisters, how humbling this is! To think that all Christ found i
 
 But now, in the next place, while the plan of salvation aims at this--
 
-THE FIRST WORK OF SALVATION ALSO SECURES IT TO A VERY LARGE EXTENT.
+THE FIRST WORK OF SALVATION ALSO SECURES IT TO a VERY LARGE EXTENT.
 
 When the Grace of God comes into a man, it comes with an axe in its hand. It does not come at first to build up, but to pull down. I think we should beware of being too suddenly filled with strong confidence and assurance. I do not say beware of too suddenly believing in Christ! That is a blessed thing and is a sinner's present business. When the Holy Spirit gives faith--joy and peace come immediately. But I believe that, as a general rule, God strips before He clothes, and when He means to build a house for His own indwelling, He does what every wise architect does--He first digs out the deep foundations. An early work of Grace in the soul is conviction of sin. We who speak to hundreds and thousands of souls--for we speak without exaggeration when we say we have seen thousands of souls under conviction of sin--we observe this, that conviction of sin is a wondrous puller-down. When a man begins to feel his sin lying heavy upon his heart, when his iniquity is continually before him, as David puts it in the fifty-first Psalm, then his high looks are gone. Have you ever seen a rich man in the anguish of conviction? You would not know him from a beggar then! His purse-pride has gone! All his wealth gives him but little comfort. "My sin! My sin! My sin!" he says. "Would to God I were as poor as the paupers in the workhouse, if I were but rid of my sin! What is my wealth while I have my sin?"
 

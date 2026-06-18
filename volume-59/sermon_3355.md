@@ -59,7 +59,7 @@ So, too, the Christian has Christ all to himself. I have sometimes tried to thin
 
 Once again, it is true that we, all of us, have a burden to carry, but then we have not to carry that burden long. You do not much pity a man who has to carry a load only during the twinkling of an eye. Well, the whole of life is not any more than that! Just think, my dear Friends, of eternity--and what is life? Imagine ourselves sitting down in Heaven in the midst of eternal blessedness, and what a moment life will seem! We shall know, then, what Paul meant when he said, "These light afflictions which are but for a moment." But for a moment! Oh, pluck up courage, Brothers and Sisters! You are nearer Home than you thought you were and every moment you are getting nearer! We find our horses quicken their speed when we turn their heads homeward and they drag their loads with speed. Now, your head is homeward, Christian, you--
 
-"Nightly pitch your moving tent, A day's march nearer home."
+"Nightly pitch your moving tent, a day's march nearer home."
 
 Therefore, be of good comfort and let not the burden gall your shoulders.
 

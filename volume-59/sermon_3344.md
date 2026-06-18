@@ -24,7 +24,7 @@ It will already comfort you to know that Christ has been where you are. It will 
 
 In the first place, the text--without any inquiry into the cause of unanswered prayer, seems to give--
 
-A GENERAL GUIDE FOR OUR CONDUCT.
+a GENERAL GUIDE FOR OUR CONDUCT.
 
 Suppose that we have been seeking some blessing from God for many months and have not obtained it? Whether it is a personal blessing, or on behalf of others, what ought to be our conduct under such a trial as that, the trial of a long delay, or an apparent refusal?
 

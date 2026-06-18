@@ -8,7 +8,7 @@ If you will read carefully over the history of the children of Israel in the wil
 
 Now in drawing a parallel between the children of Israel and ourselves, we shall invite you to notice, first, in the text--the Divine Instructor,' 'the Lord alone did lead them." And then the method of instruction illustrated--they were trained as an eagle trains the eaglet for their flight. First, then, we have--
 
-A DIVINE INSTRUCTOR.
+a DIVINE INSTRUCTOR.
 
 The Israelites had for their Guide, Instructor and Tutor, in order to prepare them for Canaan, none other than Jehovah, Himself! He might employ Moses and Aaron and He did also make use of those marvelous picture books, if I may so call them, of sacrifice, type and metaphor, but still, God, Himself, was their Guide and their Instructor. And it is so with us. The Holy Spirit is the teacher of the Christian Church. Although He uses this Book, of which we can never speak too highly. Although He still uses the ministry of the Word, for which we are thankful as for a candlestick which we trust may never be taken out of its place, still, our true Teacher is God the Holy Spirit. He instructs us in the Truths of God and, meanwhile, it is also God, who, in the rulings and guiding of Providence, is our Instructor if we will but learn. He is
 
@@ -63,7 +63,7 @@ Are broken by His hand--
 
 Before His Cross I find myself
 
-A stranger in the land." Are there loved ones to bind you here?--
+a stranger in the land." Are there loved ones to bind you here?--
 
 "Your Best-Beloved keeps His Throne
 
