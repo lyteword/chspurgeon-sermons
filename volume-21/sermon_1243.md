@@ -1,4 +1,4 @@
-# Sermon 1243 | Rivers Of Water In A Dry Place
+# Sermon 1243 | Rivers Of Water In a Dry Place
 
 "As rivers of water in a dry place." Isaiah 32:2.
 
@@ -88,7 +88,7 @@ The text speaks of rivers, which implies both variety and unity--upon this we ca
 
 Glory be to God! Christ Jesus will accomplish the Divine purposes! The pleasure of the Lord shall prosper in His hand! None can stay His course--winding this way and that, He must go to this sinner and the other--He cleanses a dying thief and waters some of "Caesar's household." Between the high hills of proud opposition He speeds His way and makes glad the lowly valleys of the contrite in heart! Neither death nor Hell can stay His course. He sweeps away all opponents even as that mighty river, the river Lisbon, swept away the armies of Jabin. And when it seems as if there is no longer a channel for the Gospel, the Truth of God leaps down the precipice in some great reformation or revival like a glorious Niagara--and the wonders of Divine power are seen more clearly--the Lord making bare His arm in the eyes of all the people. Flow on, O river of God, forev-ermore!
 
-Secondly, WE WILL CONSIDER A SPECIAL EXCELLENCE which the text mentions. "Rivers of water in a dry place." I cannot tell you how I leaped at that word on my own account. In this country we do not value rivers so much because we have springs and wells in all our villages and hamlets. But in the country where Isaiah lived, the land is parched and burnt up without rivers. You can trace the Jordan and the other streams by the fringe of vegetation skirting their banks and, consequently a river is greatly prized in a dry place.
+Secondly, WE WILL CONSIDER a SPECIAL EXCELLENCE which the text mentions. "Rivers of water in a dry place." I cannot tell you how I leaped at that word on my own account. In this country we do not value rivers so much because we have springs and wells in all our villages and hamlets. But in the country where Isaiah lived, the land is parched and burnt up without rivers. You can trace the Jordan and the other streams by the fringe of vegetation skirting their banks and, consequently a river is greatly prized in a dry place.
 
 Ah, my Brethren, when the Man Jesus Christ came here with blessings from God, He brought rivers into the dry place of our humanity! When He came down among Abraham's race, He brought rivers of water into the dry old stock of Jesse. When Judah had lost her king, He came to renew the royalty of the house of David and today, we Gentiles, who had been cut off from all Covenant blessings and left like the desert while Israel was like a garden--we have Jesus Christ coming among us as rivers of water in a dry place!
 

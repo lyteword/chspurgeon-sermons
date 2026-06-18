@@ -108,7 +108,7 @@ Light reveals and so does Grace, for without it we could not see the Glory of Go
 
 This leads me to close with a practical observation, namely, that GOD RECORDED HIS ESTIMATE OF THIS
 
-FIRST DAY'S PRODUCT. Here we have His judgement expressed--"God saw the light that it was good." This leads me to say to the young Christian, the Lord would have you encouraged. You have been looking at yourself since you have been converted and, perhaps, you have grown desponding, and have cried, "Alas, I am vile! I did not know all that was in
+FIRST DAY's PRODUCT. Here we have His judgement expressed--"God saw the light that it was good." This leads me to say to the young Christian, the Lord would have you encouraged. You have been looking at yourself since you have been converted and, perhaps, you have grown desponding, and have cried, "Alas, I am vile! I did not know all that was in
 
 me!"
 

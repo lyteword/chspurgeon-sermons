@@ -51,7 +51,7 @@ If these things are so, it is evident that the man who does not love Christ is n
 
 Not to love Christ is a thing so dreadful that those who do love Him can hardly tell you how they tremble at the bare notion of being in such a condition! Death in the most horrible form would be preferable! Many a time have we sung, and I, for one, have felt it at my heart's core--
 
-> A very wretch, Lord, I should prove,   
+> a very wretch, Lord, I should prove,   
 > Had I no love to Thee.   
 > Rather than not my Sa vior love,   
 > Oh, may I cease to be.   

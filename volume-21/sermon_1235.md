@@ -1,4 +1,4 @@
-# Sermon 1235 | How A Man's Conduct Comes Home To Him
+# Sermon 1235 | How a Man's Conduct Comes Home To Him
 
 "The backslider in heart shall be filled with his own ways: and a good man shall be satisfied from himself." Proverbs 14:14.
 
