@@ -71,7 +71,7 @@ Oh, you that readily believe in Christ--you are the men and women to whom Christ
 
 O my beloved Hearers, may it be so with you! Because your faith so readily chimes in with what Christ reveals, may you have visions of God and may none of you be so dull of heart that it shall be said, "He could not show them many mighty works because of their unbelief"!
 
-I have thus spoken and I come, thirdly, to notice that HERE IS A MAN WHO MIGHT POSSIBLY BE TROUBLED WITH A PECULIAR TEMPTATION.
+I have thus spoken and I come, thirdly, to notice that HERE IS a MAN WHO MIGHT POSSIBLY BE TROUBLED WITH a PECULIAR TEMPTATION.
 
 People of this kind are subject to a special trial with which I will now deal. In this Church a considerable number of us, beginning with the pastor, came to Christ after an awful amount of conviction and despondency. We are none the better for this but we are at least free from one particular temptation of the Evil One. Oh, how I look back upon those times in which I felt my bondage but could not attain liberty--those days in which Christ was preached to me but I could not hear Him and I wandered up and down everywhere before I found peace!
 

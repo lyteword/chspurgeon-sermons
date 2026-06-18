@@ -49,7 +49,7 @@ If you believe your faith and your repentance to have come to you without the wo
 
 On the other hand, if you fully believe the doctrine which Jonah learned in the belly of the great fish--"salvation is of the Lord"--then you will trust in God, hope in God, love God, worship God, serve God and God will be even unto you as the rising sun, shining more and more in your heart unto the perfect day. I do pray that God may be great and greatly to be praised in the heart of everyone of us. May we serve Him with gladness and come before Him with thanksgiving. For we are His people and the sheep of His pasture.
 
-Secondly, IT WILL CREATE IN US A PROPER DISREGARD FOR HUMAN OPINION. I have already told
+Secondly, IT WILL CREATE IN US a PROPER DISREGARD FOR HUMAN OPINION. I have already told
 
 you that in his worship David did not allow the opinions of men to weigh with him. He worshipped "before the Lord," and there he left it. Men might judge him mad, as Michal seems to hint that he was. Or they might condemn him as fanatical, extravagant and rabid--but this was as the chaff of the threshing floor to him. If any despised him in their hearts he was not moved. So long as he knew that his heart was right before God and that his worship was accepted of God, he would let others commend or censure at their own sweet wills.
 
@@ -77,7 +77,7 @@ The Scriptures tell us that we must be born again and called out of our spiritua
 
 mercy." We are saved by Divine Grace and Divine Grace alone. And that Divine Grace is free and sovereign according to that wondrous word, "I will have mercy on whom I will have mercy and I will have compassion on whom I will have compassion." So, you see, the effect of this doctrine, when it is really grasped is to set the Lord on high in the soul but to put human opinion in a lower place.
 
-Then, thirdly, A SENSE OF ELECTION CAUSES A LOW OPINION OF SELF. David said, "I will yet be more vile than thus and will be base in my own sight." David would more and more abase himself before the Lord. He felt that whatever Michal's opinion of him might be, it could not be more humbling than his own view of himself. Brother, if any man thinks ill of you, do not be angry with him. For you are worse than he thinks you to be. If he charges you falsely on some point, yet be satisfied, for if he knew you better he might change the accusation and you would be no gainer by the correction.
+Then, thirdly, a SENSE OF ELECTION CAUSES a LOW OPINION OF SELF. David said, "I will yet be more vile than thus and will be base in my own sight." David would more and more abase himself before the Lord. He felt that whatever Michal's opinion of him might be, it could not be more humbling than his own view of himself. Brother, if any man thinks ill of you, do not be angry with him. For you are worse than he thinks you to be. If he charges you falsely on some point, yet be satisfied, for if he knew you better he might change the accusation and you would be no gainer by the correction.
 
 If you have your moral portrait painted and it is ugly, be satisfied. For it only needs a few blacker touches and it would be still nearer the truth. "I will be base in my own sight." This was well said. Perhaps if David had carried it out more fully and had been rendered watchful thereby, it might have saved him from his great fall. A sense of electing love will render you base in your own sight. I will tell you why.
 
@@ -104,7 +104,7 @@ I once had a dear Friend, a man of God who is now in Heaven, a clergyman of the 
 
 All the while David had a deep sense of his personal unworthiness. He did not know his own heart fully--no man does so. But he knew enough of himself to make him base in his own sight. For he could never think himself worthy of the choice of God and all that it involved. Our heart adores and wonders as we think of the election of God. As we rise in the assurance of the Divine choice, we sink in our valuation of ourselves.
 
-A SENSE OF DIVINE ELECTION FOSTERS A FEELING OF HOLY BROTHERHOOD. There is David arrayed as a common Levite. He is down among the people and he is leading them in the holy dance before the Ark of the Lord. David, why, you ought to have had too much self-respect to be acting so! Kings should keep themselves to themselves. Dignities should be worn with decorum. Yes, but David does not feel that he is in the least degraded by associating with the people of the Lord.
+A SENSE OF DIVINE ELECTION FOSTERS a FEELING OF HOLY BROTHERHOOD. There is David arrayed as a common Levite. He is down among the people and he is leading them in the holy dance before the Ark of the Lord. David, why, you ought to have had too much self-respect to be acting so! Kings should keep themselves to themselves. Dignities should be worn with decorum. Yes, but David does not feel that he is in the least degraded by associating with the people of the Lord.
 
 It is wonderful how democratic the Doctrines of Grace are and how aristocratic they are, too. The chosen are all kings and when we mix with the poorest of them we are kings with kings. Free Grace strips the proud but it adorns the humble. If we can fare as God's people fare, we are well content. We despise not one of the least of Christ's little ones. David was the Lord's servant, like the rest of them and he was not ashamed to show it. No, he rejoiced that it was so and said, "O Lord, I am Your servant. I am Your servant and the son of Your handmaid; You have loosed my bonds." Specially had the bonds of pride been broken from him and he had been made to feel it a joy to be numbered with the least of the people of God.
 
@@ -116,7 +116,7 @@ And I pray its power may be felt more and more until everything like caste and c
 
 I have been quick upon that point, for time is flying with six wings and I want to dwell a minute upon this point.
 
-A SENSE OF BEING CHOSEN OF GOD STIRS A DESIRE FOR THE SERVICE OF GOD.
+A SENSE OF BEING CHOSEN OF GOD STIRS a DESIRE FOR THE SERVICE OF GOD.
 
 Such service will be personal. Look at David. He must serve God himself. He cannot let the priests and Levites do it. He must take a turn as a Levite himself. Lots of people allow their ministers to serve God for them, or they subscribe to societies that by means of a committee they may serve God secondhand. The man that God has chosen must have a personal religion and he must offer a personal service. The woman who had had much forgiven did not come to Peter and say, "Please, Mr. Peter, I have an alabaster box of ointment--will you at some proper time or other be pleased to pour it upon the Master?"
 

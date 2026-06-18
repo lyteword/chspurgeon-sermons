@@ -126,7 +126,7 @@ It will also stimulate holy desire. They that love God can never have enough of 
 > Each moment listening for the voice,   
 > 'Rise up and come away.'   
 
-A heavenly love-sickness sometimes makes God's handmaids swoon. For they long to see the Beloved face to face and to be like Him and to be with Him where He is. The Lord direct your hearts into the love of God in some such fashion as this. For it will make you sit loose by all things here below.
+a heavenly love-sickness sometimes makes God's handmaids swoon. For they long to see the Beloved face to face and to be like Him and to be with Him where He is. The Lord direct your hearts into the love of God in some such fashion as this. For it will make you sit loose by all things here below.
 
 Do you ever feel that your wings are growing? Do you ever sigh, "Oh, that I had wings like a dove! For then would I fly away and be at rest"? And this love, better still, will transform the character. It is wonderful what a difference love makes in the person that is possessed with it. A poor timid hen that will fly away from every passerby loves its offspring and when it has its chicks about it, it will fight like a very lion for its young. And when the love of Christ comes into a timid Believer, how it changes him! It takes the love of sin away and implants a sublime nature.
 

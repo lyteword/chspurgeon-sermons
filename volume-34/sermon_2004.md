@@ -15,7 +15,7 @@ God's Law comprises all His precepts and in keeping these we have peace of consc
 
 Three things in the text are worthy of earnest attention. May the Spirit of God bless all we say! First, here is a spiritual character--"they which love Your Law." Secondly, here is a special possession--"great peace have they." And thirdly, here is a singular preservation--"nothing shall offend them"--or nothing shall be a stumbling block to them. Oh, that we may know our text experimentally!
 
-First, here is A SPIRITUAL CHARACTER--"they which love Your Law." Love lies deep--it is in the heart--it is not a thing of the surface, it is of the man's own self. As a man loves so is he. To love God's Law is to have the very nature and essence of our manhood in a right condition. To love the Word is something more than to read it, even though we should study it day and night. It is more even than to understand it. For the cold light of the intellect is of little worth
+First, here is a SPIRITUAL CHARACTER--"they which love Your Law." Love lies deep--it is in the heart--it is not a thing of the surface, it is of the man's own self. As a man loves so is he. To love God's Law is to have the very nature and essence of our manhood in a right condition. To love the Word is something more than to read it, even though we should study it day and night. It is more even than to understand it. For the cold light of the intellect is of little worth
 
 compared with the warm sunlight of love. Many, no doubt, perceive the Truths which are taught in God's Word and so become orthodox in their professed creed.
 
@@ -79,7 +79,7 @@ What can your love to God be but a reflection of His love to you? Hear Him say, 
 
 accept and obey God's Word in everything and to be conformed to it in thought and life, that desire will ultimately get the victory. Use well the sword of the Spirit, which is the Word of God--and by the force of your love give sin sharp and heavy thrusts and you shall conquer until every thought is brought into captivity to the Law of Christ.
 
-We have spent too long a time upon our first point and shall have to be brief upon the other heads. Our second division is a very sweet part of the text. Here is A SPECIAL POSSESSION, "great peace have they which love Your Law."
+We have spent too long a time upon our first point and shall have to be brief upon the other heads. Our second division is a very sweet part of the text. Here is a SPECIAL POSSESSION, "great peace have they which love Your Law."
 
 When Orientals meet each other their usual salutation is "Shalom"--"Peace be to you." The word does not mean merely quiet and rest but happiness or prosperity. Great peace means great prosperity. Those who love God's Law have great blessedness in this life as well as in that which is to come. In loving the Law of God we have intense enjoyment and real success in
 
@@ -111,7 +111,7 @@ When we love God's Law, we reach forward to the peace of resignation to God, acq
 
 Besides, the love of the Word breeds a happy confidence in God as to all things in the past, the present and the future. Whatsoever the Lord does or permits must be right, or works right. "We know that all things work together for good to them that love God, to them that are the called according to His purpose." This is a very peace-breathing belief. When we love God's Word, we see God at the beginning of everything, God at the end of everything and God in the middle of everything. And as we see Him present whom we love, we cease from anxious thought. "My soul is even as a weaned child." Of such a man is it written, "His soul shall dwell at ease." The Lord whom he takes to be his Shepherd makes him to lie down in green pastures and he asks no more.
 
-I am cramped by want of time. I must, therefore, in a very few words sum up what deserves to be spoken at length upon the third point. Here is A SINGULAR PRESERVATION--"Nothing shall offend them." There shall be no stumbling block in their way.
+I am cramped by want of time. I must, therefore, in a very few words sum up what deserves to be spoken at length upon the third point. Here is a SINGULAR PRESERVATION--"Nothing shall offend them." There shall be no stumbling block in their way.
 
 Intellectual stumbling blocks are gone. One asks me, "Do you mean to say that you read the Bible and do not find difficulties in it?" I regard the Word of God as being infallibly inspired and therefore if I find difficulties in it, which I must do from the very nature of things, I accept what God says about those difficulties and pass on. The Word of God does not profess to explain all mysteries--it leaves them mysteries and my faith accepts them as such. When out in a yacht in the Clyde we came opposite the great rock called the Rock of Arran. Our captain did not steam right ahead and rush at the rock--no, he did what was much wiser--he cast anchor for the night in the bay at the foot of it, so that we were sheltered from the wind by the vast headland.
 

@@ -27,7 +27,7 @@ One Truth of God, however, comes out of this passage more plainly than any other
 
 "And the fifth angel poured out his vial upon the seat of the beast. And his kingdom was full of darkness. And they gnawed their tongues for pain and blasphemed the God of Heaven because of their pains and their sores and repented not of their deeds." The twenty-first verse is to the same effect--"And there fell upon men a great hail out of Heaven, every stone about the weight of a talent: and men blasphemed God because of the plague of the hail." The terrors of the Lord produced blasphemy but they did not produce repentance.
 
-In considering this subject, by the guidance of the Holy Spirit, I would begin by saying that JUDGMENTS, APART FROM DIVINE GRACE, MAY PRODUCE A KIND OF REPENTANCE. It is repentance after a fashion but it is not of that holy, healthy, heavenly sort which is worked in the renewed heart by the Holy Spirit.
+In considering this subject, by the guidance of the Holy Spirit, I would begin by saying that JUDGMENTS, APART FROM DIVINE GRACE, MAY PRODUCE a KIND OF REPENTANCE. It is repentance after a fashion but it is not of that holy, healthy, heavenly sort which is worked in the renewed heart by the Holy Spirit.
 
 Judgment may produce a carnal repentance--a repentance that is of the flesh and after the manner of the sinful nature of men. In this repentance the depravity of the heart remains the same in essence, though it takes another form of showing itself. Though the man changes, he is not savingly changed--he becomes another man but not a new man. The same sin rules in him but it is called by another name and wears another coat. The stone is carved into a more sightly shape but it is not turned into flesh. The iron is cast into another image but it is not transformed into gold.
 
@@ -59,7 +59,7 @@ If any of you are under the power of despair at this moment, I pray you, do not 
 
 So you see, my Brethren, judgments may produce a certain likeness of repentance--but then, secondly, THEY
 
-DO NOT AND THEY CANNOT OF THEMSELVES PRODUCE A REPENTANCE SUCH AS GIVES GOD GLORY.
+DO NOT AND THEY CANNOT OF THEMSELVES PRODUCE a REPENTANCE SUCH AS GIVES GOD GLORY.
 
 "They repented not to give Him glory."
 

@@ -72,7 +72,7 @@ Come, angels and archangels and help us with your burning words! No, even you mu
 
 This is no inert opinion but a living, active principle. I leave these things with you that you may search yourselves and see whether you belong to the mass outside, guessing and blundering. Or whether you are of the inner circle, who are taught of the Father and therefore know the Son.
 
-Secondly and this is a very important point--THE KNOWLEDGE OF CHRIST POSSESSED BY TRUE DISCIPLES IS RECEIVED IN A SPECIAL WAY. "Flesh and blood has not revealed it unto you."
+Secondly and this is a very important point--THE KNOWLEDGE OF CHRIST POSSESSED BY TRUE DISCIPLES IS RECEIVED IN a SPECIAL WAY. "Flesh and blood has not revealed it unto you."
 
 Beloved, if we know the Savior aright, we have not learned it by the instruction of other men. Peter had heard others speak but he did not know Jesus as the Christ till the Father revealed Him. Paul tells us concerning the Gospel that he neither received it of man, neither was he taught it, but he received it by the Revelation of Jesus Christ. I grant you that God uses men to instruct us. But all the Prophets and Apostles could not teach us Christ if the Father did not reveal His Son in us personally. Holy men are the pens but God Himself must write with them, or they will write nothing on our hearts. God must reveal Jesus to us, or we shall never see Him, however faithful the minister may be.
 
