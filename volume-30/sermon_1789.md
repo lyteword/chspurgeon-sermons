@@ -28,7 +28,7 @@ But some of these are true-hearted, notwithstanding their timidity. It was found
 
 "Am I a soldier of the Cross,
 
-A follower of the Lamb?
+a follower of the Lamb?
 
 And shall I fear to own His cause, Or blush to speak His name?
 

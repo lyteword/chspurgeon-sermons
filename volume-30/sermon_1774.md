@@ -10,7 +10,7 @@ Though priestcraft is far too dominant in our land, we may yet hear that "a grea
 
 Note with care how men are converted. I shall show you God's preparation for it, in a work worked upon the minister, making him a fit witness for the Truths of God. Then I shall speak upon God's work worked in the convert in opening his eyes and turning him from darkness to light. And, lastly, I shall call your attention to a work which must be worked by the convert, himself, for Paul preached that they should repent and turn to God and do works meet for repentance.
 
-First, let us notice A WORK WORKED BY GOD UPON THE MINISTER. "It pleased God by the foolishness of preaching to save them that believe." "Faith comes by hearing." "How shall they hear without a preacher? And how shall they preach except they are sent?" In order to the conversion of the hearer, many processes must be experienced by
+First, let us notice a WORK WORKED BY GOD UPON THE MINISTER. "It pleased God by the foolishness of preaching to save them that believe." "Faith comes by hearing." "How shall they hear without a preacher? And how shall they preach except they are sent?" In order to the conversion of the hearer, many processes must be experienced by
 
 the preacher--he must be made, called, sent and, afterwards, delivered. All the work of the Lord upon him is a work of Grace on behalf of those who shall be converted by his means. The minister whom God sends is, first of all, himself subdued and made to be obedient to the will of his Lord.
 
@@ -106,7 +106,7 @@ May God work it in your souls! I feel pleased, at times, to dig down to the old 
 
 His purpose shall stand and He will do all His pleasure. His miracles of Grace shall be worked and all the devils in Hell shall not be able to prevent them. Neither skeptics nor fiends can hinder, even for a moment, the eternal purpose of God which must and shall be fulfilled--and this is it--"He shall see of the travail of His soul, and shall be satisfied." This work in the hearts of men He must and will carry on to His own praise and Glory--let who will, say no to Him.
 
-Now, I close by the last point, which is A WORK WHICH MUST BE DONE BY THE HEARER HIMSELF.
+Now, I close by the last point, which is a WORK WHICH MUST BE DONE BY THE HEARER HIMSELF.
 
 This text speaks of Paul being an instrument in the hands of God of opening men's eyes and turning them to God, that they may receive pardon and so forth--in all of which they seem to be passive. But in this later verse they are called upon to be active--"That they should repent and turn to God, and do works meet for repentance." Paul was commanded to go and do such-and-such things in the power of the Spirit, but when he commenced to do them, it was by telling men that they should repent.
 
