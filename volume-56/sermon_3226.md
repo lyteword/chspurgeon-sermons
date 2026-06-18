@@ -34,7 +34,7 @@ I am only imagining a monstrous case--such a case as must not be ours. O my dear
 
 An unholy man or woman who pretends to be a Christian is a stench in the nostrils of the thrice-holy God and a byword and reproach among those who make no pretense of being the Lord's. How can you rebuke sin in others while you are living in it, yourself? How can you preach the Christ whom you dishonor in your daily life? How can you reprove worldliness when you are, yourself, worldly? We speak with contempt of Satan rebuking sin and of the pot calling the kettle black, so if in any degree any of us have been guilty of this great crime against God, may we now sincerely repent of our sin and may the sanctifying Grace of the Holy Spirit preserve us from such evil walking for all time to come!
 
-Now, thirdly--and this is the point upon which I want most strongly to insist--IT IS IMPOSSIBLE FOR A FIG TREE TO BEAR OLIVES--and it is impossible for an unconverted man to produce the fruits of righteousness! That is a task which is altogether beyond his power. The real text of this last division of my sermon is this--
+Now, thirdly--and this is the point upon which I want most strongly to insist--IT IS IMPOSSIBLE FOR a FIG TREE TO BEAR OLIVES--and it is impossible for an unconverted man to produce the fruits of righteousness! That is a task which is altogether beyond his power. The real text of this last division of my sermon is this--
 
 "YOU MUST BE BORN-AGAIN." Unless you are regenerated, born from above by a new and heavenly birth, you are not Christians, whatever you may be called, and you cannot produce the fruit which is acceptable to God any more than a fig tree can produce olives.
 

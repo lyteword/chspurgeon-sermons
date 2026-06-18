@@ -102,7 +102,7 @@ And I will make those who limped a remnant, and those who were cast far off, a s
 
 Andyou, O tower ofthe flock, the stronghold ofthe daughter of Zion, unto you shallit come, even the first dominion; the Kingdom shall come to the daughter of Jerusalem. So it did. "Beginning at Jerusalem," was Christ's order concerning the preaching of the Gospel after His Resurrection. The first servants of Christ were of that ancient people who might be called the "tower of the flock, the stronghold of the daughter of Zion." Oh, that Christ would soon return in mercy to the--
 
-"Chosen seed of Israel's race, A remnant weak and small"--
+"Chosen seed of Israel's race, a remnant weak and small"--
 
 and gather them to Himself, for that would be the fullness of the Gentiles, also!
 

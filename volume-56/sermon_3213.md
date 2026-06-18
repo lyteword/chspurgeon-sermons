@@ -132,9 +132,9 @@ JESUS.] "They looked unto Him"-a whole army of them, an
 
 innumerable company--"They looked unto Him and were lightened: and their faces were not ashamed." There never was a face that was ashamed of being turned Christward and Godward!
 
-This poor man cried, and the LORD heard him, and saved him out of all his troubles. [See Sermon #2193, Volume 27--A
+This poor man cried, and the LORD heard him, and saved him out of all his troubles. [See Sermon #2193, Volume 27--a
 
-POOR MAN'S CRY--AND WHAT CAME OF IT.] Here David speaks of himself again, but he refers to himself in the third person--"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
+POOR MAN's CRY--AND WHAT CAME OF IT.] Here David speaks of himself again, but he refers to himself in the third person--"This poor man cried, and the Lord heard him, and saved him out of all his troubles."
 
 The angel of the LORD encamps round about them that fear Him, and delivers them. The great Angel of the Covenant, the Lord Jesus Christ, surrounds with His army the dwellings of the saints and takes care to have them in safe keeping.
 

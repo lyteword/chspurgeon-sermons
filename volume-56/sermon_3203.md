@@ -94,7 +94,7 @@ Yet perhaps for a good man some would even dare to di. For a benevolent man, a t
 
 But God commends His love toward us, in that while we were yet sinners, Christ died for us. [See Sermon #104, Volume
 
-2--LOVE'S COMMENDATION.] Certainly we were not "good" men, we
+2--LOVE's COMMENDATION.] Certainly we were not "good" men, we
 
 were not even "just" men, but we are included in this black description, "sinners." And "while we were yet sinners, Christ died for us." He died for us as sinners--He did not come to save saints, but to save sinners--and it was for sinners that He died.
 
@@ -150,6 +150,6 @@ Therefore, from now on, we regard no man after the flesh. Even though we have kn
 
 Therefore if any man is in Christ, he is a new creature: old things are passed away; behold all things are become new.There could not be a greater change than that which is worked by regeneration! It is a new creation, the passing
 
-away of the old, and the making of all things new. [See Sermons #881, Volume 15--THE BELIEVER A NEW CREATURE and #1328, Volume 22-- CHRIST THE MAKER OF ALL THINGS NEW.]
+away of the old, and the making of all things new. [See Sermons #881, Volume 15--THE BELIEVER a NEW CREATURE and #1328, Volume 22-- CHRIST THE MAKER OF ALL THINGS NEW.]
 
 18-21. And all things are of God who has reconciled us to Himself by Jesus Christ, and has given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto Himself, not imputing their trespasses unto them; and has committed unto us the Word of reconciliation. Now, then, we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead be you reconciled to God. For He made Him who knew no sin, to be sin for us, that we might be made the righteousness of God in Him.

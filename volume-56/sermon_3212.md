@@ -10,7 +10,7 @@ These spiritual beings are divided into two bands. One band is under the leaders
 
 Now, having noted the connection of our text, I am going to apply it to three classes of persons. First, to the Believer. Secondly, to the backslider. And then, last of all, to the unconverted.
 
-First, then, we have here, A MESSAGE TO THE BELIEVER. "Draw near to God, and He will draw near to you."
+First, then, we have here, a MESSAGE TO THE BELIEVER. "Draw near to God, and He will draw near to you."
 
 In Scripture, drawing near has various meanings. First, it means, draw near to God in worship, in prayer and in praise. When the hen sees a hawk in the air hovering over her brood, she gives a peculiar warning cluck, calling her little ones to come to her while, at the same moment she, herself, draws near to them. In a far higher fashion, the voice of God calls you to Him, warning you of the danger that lurks all round you. And while you run to hide from peril beneath the shadow of His wings, He, on His part, runs to meet you as the forgiving father ran to meet his prodigal son. You draw near to Him in the fearfulness and feebleness of your supplication and He draws near to you in the faithfulness and al-mightiness of His everlasting love! I am afraid that we often pray as if our God were at a distance from us--this can never be prevailing prayer. I do not despise that prayer which is like shooting an arrow up to the Throne of God, but I love still better the prayer that grips the Angel of the Covenant, the prayer that stands foot to foot with Him and wrestles with Him until the breaking of the day, and even then cries, "I will not let You go, except You bless me." If you can draw
 
@@ -90,7 +90,7 @@ Let him ask of God. That is the short road to true knowledge--to pray. Study is 
 
 For he that wavers.The man who does not know whether prayer will succeed or not--
 
-Is like a wave of the sea driven with the wind and tossed. [See Sermon #2537, Volume 43--A warning to waverers.] You can never tell what will become of the wave. It goes just
+Is like a wave of the sea driven with the wind and tossed. [See Sermon #2537, Volume 43--a warning to waverers.] You can never tell what will become of the wave. It goes just
 
 where it is driven--and there are many men who can be good, after a certain fashion, if they are in good company--but they can be just as bad if the wind blows from another quarter! But if we have true faith in God and true faith in prayer, we shall not be "like a wave of the sea driven with the wind and tossed."
 
@@ -106,7 +106,7 @@ But the rich, in that he is made low: because as the flower of the grass, he sha
 
 he, himself, "as the flower of the grass, shall pass away" Let him rejoice to get down to the Rock of Ages! Let him lay hold of eternal things as if he had nothing else in which he could trust!
 
-11, 12. For the sun is no sooner risen with a burning heat, but it withers the grass, and the flo wer falls and the beauty of the fashion of it perishes; so also shall the rich man fade away in his ways. Blessed is the man that endures temptation. [See Sermon #1874, Volume 31--A DISCOURSE UPON TRUE BLESSEDNESS HERE AND HEREAFTER.] Or, trial. The man that holds on and holds out under it and does not give way under it--blessed is the man that is tried--
+11, 12. For the sun is no sooner risen with a burning heat, but it withers the grass, and the flo wer falls and the beauty of the fashion of it perishes; so also shall the rich man fade away in his ways. Blessed is the man that endures temptation. [See Sermon #1874, Volume 31--a DISCOURSE UPON TRUE BLESSEDNESS HERE AND HEREAFTER.] Or, trial. The man that holds on and holds out under it and does not give way under it--blessed is the man that is tried--
 
 12, 13. For when he is tried, he shall receive the crown of life, which the Lord has promised to them that love Him. Let no man say, when he is tempted, I am tempted of God. Here we must take the word, "tempted," in its dark meaning, for the Scriptural word, "temptation," means two very different things. When we are drawn towards evil, that is the black meaning of the word, "temptation." But when we are tested or tried in order that it may seen that the good in us is real--that is the bright meaning of the word, "temptation." In that sense, God did tempt (try or test) Abraham, but not in the other sense.
 

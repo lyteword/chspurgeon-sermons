@@ -91,7 +91,7 @@ Then said He also to him that bade Him, When you make a dinner or a supper, call
 
 were bidden, Come, for all things are now ready. [See Sermon #1354, Volume 23--ALL THINGS ARE READY, COME.] They had accepted the invitation, so they were pledged to be present but, in the meantime, they had changed their minds with regard to their intended host--and they were unwilling to grace his feast.
 
-And they all with one consent began to make excuses. The first said unto him, I have bought a piece of ground, and I must go and see it I pray you have me excused. Yet it was supper time and people do not generally go to see pieces of ground at night! And if the man had bought the land, he ought to have seen it before he bought it! People do not generally buy land without looking at it. A bad excuse is worse than none. [See Sermon #578, Volume 10--A bad excuse is worse than
+And they all with one consent began to make excuses. The first said unto him, I have bought a piece of ground, and I must go and see it I pray you have me excused. Yet it was supper time and people do not generally go to see pieces of ground at night! And if the man had bought the land, he ought to have seen it before he bought it! People do not generally buy land without looking at it. A bad excuse is worse than none. [See Sermon #578, Volume 10--a bad excuse is worse than
 
 NONE.] and this is one of those excuses which will not hold water
 

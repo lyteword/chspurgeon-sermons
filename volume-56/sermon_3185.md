@@ -2,7 +2,7 @@
 
 "My Beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether." Song of Solomon 2:16,17.
 
-[Other Sermons by Mr. Spurgeon, upon parts of the same passage, are #1190, Volume 20--A SONG AMONG THE LILIES; #2442, Volume 41--"MY BELOVED IS MINE" and #2477, Volume 42--DARKNESS BEFORE THE DAWN.]
+[Other Sermons by Mr. Spurgeon, upon parts of the same passage, are #1190, Volume 20--a SONG AMONG THE LILIES; #2442, Volume 41--"MY BELOVED IS MINE" and #2477, Volume 42--DARKNESS BEFORE THE DAWN.]
 
 IT has been well said that if there is a happy verse in the Bible, it is this one--"My Beloved is mine, and I am His: He feeds among the lilies." So peaceful, so full of assurance, so bursting with happiness and contentment is it, that it might well have been written by the same hand which penned the twenty-third Psalm--"The Lord is my shepherd; I shall not want. He makes me to lie down in green pastures: He leads me beside the still waters." The verse savors of Him who, just before He went to Gethsemane, said to His disciples, "Peace I leave with you, My peace I give unto you: not as the world gives, give I unto you...In the world you shall have tribulation: but be of good cheer; I have overcome the world." Let us ring the silver bell of this verse again, for its notes are exquisitely sweet! "My Beloved is mine, and I am His: He feeds among the lilies."
 
@@ -20,7 +20,7 @@ word as to a well and sit down on the brink and drink a refreshing draught! Come
 
 The text begins with the words, "my Beloved." Come, Soul, can you venture to call Christ your Beloved? Certainly He should be beloved by you, for what has He not done for you? Favors rich and rare have been the gifts of His hands-- gifts purchased by His own most precious blood! If you do not love Him, my Heart, you are a most ungrateful thing, indeed! You are deceitful, rotten, loathsome above all things and desperately wicked, O my Heart, if Jesus, being your Savior, you do not love Him! He ought to be loved by the most of you here, for you profess to have been redeemed by His blood and adopted into the family of God through Him. You professed, when you were baptized, to be dead with Him-- and when you come to this Communion Table, tonight, you will profess that He is your meat and your drink, your life, your soul's stay and comfort! So, if you do not love Him, what shall I say to you? I will let you say it to yourselves--
 
-> A very wretch, Lord!I should prove,   
+> a very wretch, Lord!I should prove,   
 > Had I no love for Thee--   
 > Rather than not my Savior love,   
 > Oh may I cease to be!   
@@ -85,7 +85,7 @@ From His footsteps never depart." If we would find Christ, we must get into comm
 
 If you would meet with Him, look, too, in the blessed lily beds of Scripture. Each Book of the Bible seems to be full of lilies, yet you must never be satisfied merely with Scripture, but must get to the Christ of Scripture, the Word of God, the sum and substance of the Revelation of the Most High! "He feeds among the lilies." That is where He is to be found. Lord Jesus come and feed us among the lilies tonight! Come and feed our hungry souls and we will bless Your holy name!
 
-I must leave that part of the subject unfinished because I want to speak of THE SOUL, ASSURED OF CHRIST'S LOVE, DESIRING HIS CONSCIOUS PRESENCE. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
+I must leave that part of the subject unfinished because I want to speak of THE SOUL, ASSURED OF CHRIST's LOVE, DESIRING HIS CONSCIOUS PRESENCE. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
 
 You observe that the soul speaks here of the day breaking. All of us who love the Lord have to look for daybreak, but the sinner has a night to come. Sinner, this is your day! And when you die, that will be your long and awful night-- unbroken by a single star of hope! But Christian, this is your night, the darkest period that you will ever have--but your day will break! Yes, the Lord will come in His Glory, or else you shall sleep in Him and then your day shall break. When the Resurrection trumpet shall sound, the Day of the Lord will be darkness and not light to the sinner, but to you it will be an everlasting daybreak! Perhaps at the present moment your life is wrapped in shadows. You are poor, and poverty casts a shadow. You have a sick one at home, or perhaps you are sickly in body--that is a shadow to you. And the reflection of your sin is another shadow, but when the day breaks the shadows will flee away! No poverty then! No sin then, which is better still! And--
 
@@ -101,7 +101,7 @@ And you, poor Sinner, who have never comfortably seen His face--remember that th
 
 EXPOSITION BY C. H. SPURGEON: 2 THESSALONIANS1.
 
-[This exposition belongs to Sermon #3179, Volume 56--A COMPREHENSIVE BENEDICTION--but there was not sufficient space available for its insertion there.]
+[This exposition belongs to Sermon #3179, Volume 56--a COMPREHENSIVE BENEDICTION--but there was not sufficient space available for its insertion there.]
 
 Verse 1. Paul, Silvanus and Timothy, to the church of the Thessalonians. Paul loved to associate his fellow workers with himself when writing to his Brothers and Sisters in Christ. Although he had a superior experience to theirs, he put Silvanus, and Timothy, his own son in the faith, with him as his fellow Evangelists in writing to "the church of the Thessalonians."
 
@@ -109,7 +109,7 @@ In God our Father. What a wonderful expression! The Church is in God as God is i
 
 I, 2. And the Lord Jesus Christ. Grace unto you, and peace, from God our Father and the Lord Jesus Christ. This is the Apostle's usual salutation when he is writing to a Christian Church. When he is writing to a minister, it is, "Grace, mercy, and peace," for God's most prominent servants especially need great mercy on account of their heavy responsibilities and many shortcomings. But to the Church, Paul's greeting is, "Grace unto you, and peace, from God our Father and the Lord Jesus Christ."
 
-We are bound to thank Godalways foryou, brethren, as it is meet, because that your faith [See Sermons #205, Volume 4--A
+We are bound to thank Godalways foryou, brethren, as it is meet, because that your faith [See Sermons #205, Volume 4--a
 
 LECTURE FOR LITTLE-FAITH; #1856, Volume 31--THE HISTORY OF LITTLE-FAITH and #1857, Volume 31--THE NECESSITY OF GROWING FAITH] grows exceedingly, and the charity of every one of you all toward each other abounds. What a kind of sacred network Christian love makes, intertwisting every believer in Christ with every other Believer! "The love of every one of you all toward each other abounds." Oh, that this might really be the case in all the Churches of our Lord Jesus Christ!
 

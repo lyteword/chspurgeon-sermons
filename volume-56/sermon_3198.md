@@ -94,7 +94,7 @@ And that not of yourselves: it is the gift of God. "Not of yourselves." What do 
 
 Not of works, lest any man should boast.God will not have a boaster in Heaven! He will not have the creature exalting himself in His Presence. The command, "Look unto Me, and be you saved, all the ends of the earth." is backed up by this reason, "for I am God, and there is none else." Therefore unto God, Himself, must be the praise and glory for all who are saved.
 
-For we are His workmanship. [See Sermons #1829, Volume 31--THE SINGULAR ORIGIN OF A CHRISTIAN and #2210, Volume 37--THE AGREEMENT OF SALVATION BY GRACE WITH WALKING IN GOOD WORKS] Salvation cannot be of works, for if we have any good works, it is because we are God's workmanship.
+For we are His workmanship. [See Sermons #1829, Volume 31--THE SINGULAR ORIGIN OF a CHRISTIAN and #2210, Volume 37--THE AGREEMENT OF SALVATION BY GRACE WITH WALKING IN GOOD WORKS] Salvation cannot be of works, for if we have any good works, it is because we are God's workmanship.
 
 10-12. Created in Christ Jesus unto good works, which God has before ordained that we should walk in them. Therefore remember that you being in time past, Gentiles in the flesh--who are called Uncircumcision by that which is called the Circumcision in the flesh by hands--that at that time you were without Christ Certainly we were poor sinners of the Gentiles, having no participation whatever in the old Mosaic dispensation.
 
