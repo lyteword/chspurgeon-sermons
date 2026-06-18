@@ -24,7 +24,7 @@ The city of refuge, I must have you note, too, had around it, suburbs of a very 
 
 Christ's garment, you shall be made whole! If you do but lay hold of Him with "faith as a grain of mustard seed," with faith which is very feeble, but is truly a living principle, you are safe--
 
-> A little genuine Grace ensures   
+> a little genuine Grace ensures   
 > The death of all our sins!   
 
 Get anywhere within the borders of the city of refuge and you are, at once and forever, secure from the avenger!

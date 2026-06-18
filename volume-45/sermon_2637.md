@@ -34,7 +34,7 @@ Paul wrote to the Galatians that our Lord Jesus Christ "gave Himself for our sin
 
 You, poor troubled Soul, need not continue to lie at the pool! You need not wait there a single moment more! Trust in Christ, who comes to you in all your inability, in all your sinfulness, in all your depression of spirit, in all your despair and who says to you, "Live. I have loved you with an everlasting love; therefore with loving kindness have I drawn you." "Look unto Me, and be you saved, all the ends of the earth: for I am God, and there is none else." "Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." These are glorious Words of Grace! May the Lord speak them home to your heart even now! The devil himself cannot hold a man in captivity when once Christ gives him liberty! Though his feet are made fast in the stocks, and it is the dead hour of midnight, yet shall he begin to sing praises unto God! And his fellow prisoners shall hear him when Jesus of Nazareth passes by and gives him the gracious Word which makes him free! Christ crucified is your only hope! Therefore, turn your eyes to Him. By faith, look to those dear wounds of His. From your inmost soul, breathe your penitent prayer to Him and He will grant you the desire of your heart, even life forevermore!
 
-Secondly, IF WE HAVE A GRIEF OR SORROW, IT IS WELL TO KNOW IT, for Solomon here speaks "of any man, or of all Your people Israel, when everyone shall know his own burden and his own grief."
+Secondly, IF WE HAVE a GRIEF OR SORROW, IT IS WELL TO KNOW IT, for Solomon here speaks "of any man, or of all Your people Israel, when everyone shall know his own burden and his own grief."
 
 In visiting the sick, lately, I have been struck with the different ways in which the children of men are afflicted. There is one of our Beloved Brothers who is covered with blisters from head to foot. Another is lying in a critical condition through congestion of the lungs. There is another gradually melting away with consumption, while cancer is eating out the very life of yet another friend. Now, just as it is with the pangs of the body, so is it with the diseases of the mind and the soul. They are of various kinds and though they may be arranged under different heads, there is no one spiritual burden or sorrow exactly like another and, therefore, it is well for every man to know his own burden and his own grief. My faults are not exactly the same as yours and yours, probably, are not quite like mine. That which greatly grieves me might never trouble you if you had it, while that which worries and troubles you might be a thing which I could laugh at if it came to me. We must never judge one another, nor may we wish to have other people's sorrows and griefs, but we must try, as far as we can, to know, every man, his own burden and his own grief.
 
@@ -62,7 +62,7 @@ Remember, again, that there is One who is quite ready to give you a fullhearing,
 
 "Our fellow Sufferer yet retains
 
-A fellow feeling of our pains
+a fellow feeling of our pains
 
 And still remembers in the skies
 

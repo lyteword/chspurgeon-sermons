@@ -34,7 +34,7 @@ And, moreover, God is never asleep in the sense that He ceases to consider us. I
 
 You remember how Cowper represents Alexander Selkirk, when far away an that island of Juan Fernandez, saying--
 
-"My friends, do they now and then send A wish or a thought after me?"
+"My friends, do they now and then send a wish or a thought after me?"
 
 He could not bear, in his loneliness, to be altogether forgotten by everybody. And none of us would like to be in that condition, but even if we were in such a plight, we could still find comfort in that ancient promise, "Can a woman forget her sucking child, that she should not have compassion on the son of her womb? Yes, they may forget." It is rarely enough that mothers are so unnatural--still, "they may forget. Yet," says the LORD, "will I not forget you." Oh, drink that down! Is it not a sweet draught? Of all the luscious drinks that men ever delighted in, there can be none with such flavor as this choice wine of Covenant faithfulness!
 
@@ -98,7 +98,7 @@ for Ihave wounded you with thee wound ofan enemy, with the chastisement of a cru
 
 Again I remind you that these are the people who had their hands on their loins! These are they who were in sore trouble of soul! Yet now they are merry and full of gladness! And we, also, have learned to sing--
 
-My mourning He to dancing turns, For sackcloth, joy He gives, A moment, Lord, Your anger burns, But long your favor lives.
+My mourning He to dancing turns, For sackcloth, joy He gives, a moment, Lord, Your anger burns, But long your favor lives.
 
 20, 21. Their children also shall be as before, and their congregation shall be established before Me, and I will punish all that oppress them. And their nobles shall be of themselves, and their governor shall proceed from the midst of them; and I will cause him to draw near, and he shall approach unto Me: for who is this that engaged his heart to approach unto Me?says the LORD. There is One, whom we call Master and Lord, who approaches the Throne of God on our behalf--One who fulfils that ancient Word of God, "I have exalted One chosen out of the people." Our glorious Savior, through His humanity, is one of us and He appears before God on our behalf, blessed be His holy name!
 
