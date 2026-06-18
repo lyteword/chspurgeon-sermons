@@ -1,4 +1,4 @@
-# Sermon 651 | A Sermon From A Rush
+# Sermon 651 | A Sermon From a Rush
 
 > Can the rush grow up without a marsh? Can the reeds grow without water? While it is yet green and not cut down, it withers before any other plant. So are the paths of all that forget God. And the hypocrite's hope shall perish.    
 > Job 8:11-13.    
@@ -15,7 +15,7 @@ Down by the river's bank let us go, like Pharaoh's daughter, and perhaps among t
 
 The rush shall, this morning, by God's Grace, teach us a lesson of self-examination. Bildad, the Shuhite, points it out to us as the picture of a hypocrite--so, going to our work at once we shall have three things to talk about this morning. The hypocrite's religion--first, what is it like? Secondly, what it lives on. And thirdly, what will become of it?
 
-First, then, THE HYPOCRITE'S PROFESSION--WHAT IS IT LIKE? It is here compared to a rush growing in the mire and a reed flourishing in the water. This comparison has several points in it.
+First, then, THE HYPOCRITE's PROFESSION--WHAT IS IT LIKE? It is here compared to a rush growing in the mire and a reed flourishing in the water. This comparison has several points in it.
 
 In the first place, hypocritical religion may be compared to the rush for the rapidity with which it grows. True conversions are often very sudden--as, for example, the conversion of Saul on the road to Damascus and the conversion of the Philippian jailer when suddenly startled out of his sleep and made to cry, "What must I do to be saved?" But the after-growth of Christians is not quite so rapid and uninterrupted--seasons of deep depression chill their joy. Hours of furious temptation make a dreadful onslaught upon their quiet.
 
@@ -75,7 +75,7 @@ I will not stay further to work out this parallel--only if any words have seemed
 
 But those who are never afraid--who have just written it down as a matter of fact that all is well with them--should listen to the word of the Prophet, "Strangers have devoured his strength and he knows it not: yes, gray hairs are here and there upon him, yet he knows not." The worm may be in the center of the apple when the cheek of the fruit is still beautiful to look upon. God save us from hypocrisy and grant us Grace to see ourselves in a true light!
 
-Secondly, we have to consider WHAT IT IS THAT THE HYPOCRITE'S RELIGION LIVES ON. "Can the rush grow up without a marsh? Can the reeds grow without water?" The rush is entirely dependent upon the ooze in which it is planted. If there should come a season of drought and the water should fail from the marsh, the rush would more speedily die than any other plant. "While it is yet green and not cut down, it withers before any other plant." The Hebrew name for the rush signifies a plant that is always drinking. And so the rush lives perpetually by sucking and drinking in moisture.
+Secondly, we have to consider WHAT IT IS THAT THE HYPOCRITE's RELIGION LIVES ON. "Can the rush grow up without a marsh? Can the reeds grow without water?" The rush is entirely dependent upon the ooze in which it is planted. If there should come a season of drought and the water should fail from the marsh, the rush would more speedily die than any other plant. "While it is yet green and not cut down, it withers before any other plant." The Hebrew name for the rush signifies a plant that is always drinking. And so the rush lives perpetually by sucking and drinking in moisture.
 
 This is the case of the hypocrite. The hypocrite cannot live without something that shall foster his apparent piety. Let me show you some of this mire and water upon which the hypocrite lives. Some people's religion cannot live without excitement--revival services, earnest preachers and zealous Prayer Meetings keep them green. But the earnest minister dies, or goes to another part of the country. The Church is not quite so earnest as it was and what then? Where are your converts?
 
@@ -117,7 +117,7 @@ Do you think you would have the Grace to suffer for Christ Jesus? You may say, "
 
 But mark you, if the present trials and troubles of the day are too much for you and you cannot exhibit Christian patience under them, I am compelled to ask you in the language of Jeremiah, "If you have run with the footmen and they have wearied you, how will you contend with horses? And if in the land of peace wherein you trusted, they wearied you, then how will you do in the swelling of Jordan?" This may help us to try ourselves.
 
-We have a third point to close with and that is, WHAT BECOMES OF THE HYPOCRYTE'S HOPE? "While it is yet green and not cut down, it withers before any other plant. So are the paths of all that forget God. And the hypocrite's hope shall perish. Long before the Lord comes to cut the hypocrite down it often happens that he dries up for want of the mire on which he lives. The excitement, the encouragement, the example, the profit, the respectability, the prosperity upon which he lived fail him and he fails, too.
+We have a third point to close with and that is, WHAT BECOMES OF THE HYPOCRYTE's HOPE? "While it is yet green and not cut down, it withers before any other plant. So are the paths of all that forget God. And the hypocrite's hope shall perish. Long before the Lord comes to cut the hypocrite down it often happens that he dries up for want of the mire on which he lives. The excitement, the encouragement, the example, the profit, the respectability, the prosperity upon which he lived fail him and he fails, too.
 
 Alas, how dolefully is this the case in all Christian Churches! Little have we had to mourn over defections during the years of our ministry. But we have had some sorrowful, very sorrowful cases, and I doubt not we shall have more. "Lord, is it I?" "Lord, is it I?" is a question that may be passed round among professing Christians. I fear that there are those here this morning who one day will deny the Lord that bought them and crucify the Son of God afresh and put Him to an open shame.
 

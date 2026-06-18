@@ -105,7 +105,7 @@ Now, all this appetite, this hunger and thirst I look upon as not of the devil, 
 
 "Determined to save, He watched over my path When, Satan's blind slave, I sported with death."
 
-And now we come to the last point, which is, PAUL'S ACTUAL CALLING BY DIVINE GRACE. All preparatory work of which we have spoken was not the source or origin of the vital godliness which afterwards distinguished that renowned servant of God--that came to him suddenly.
+And now we come to the last point, which is, PAUL's ACTUAL CALLING BY DIVINE GRACE. All preparatory work of which we have spoken was not the source or origin of the vital godliness which afterwards distinguished that renowned servant of God--that came to him suddenly.
 
 Beloved, there may be some here tonight who cannot discern anything in themselves of God's work of Grace at all. I do not wonder at this. I do not suppose that the Apostle could discern it in himself, or even thought of looking for it! He was as careless of Christ as is the butterfly of the honey in the flowers. He lived with no thought of honoring Jesus and no desire to magnify Him--but with the very reverse passion glowing like a hot coal within his soul. And yet in a moment he was turned from an enemy into a friend! Oh, what a mercy it would be if some here tonight were turned from enemies into friends in a moment--and we are not without hope but that this will be the case!
 

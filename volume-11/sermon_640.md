@@ -1,4 +1,4 @@
-# Sermon 640 | The Gospel's Power In A Christian'S Life
+# Sermon 640 | The Gospel's Power In a Christian's Life
 
 > Only let your conversation be as it becomes the Gospel of Christ    
 > Philippians 1:27.    

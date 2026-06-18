@@ -11,7 +11,7 @@ I must use no other argument when I plead with God but the name of His dear Son,
 
 "For Christ's sake," this is the one unbuttressed pillar upon which all prayer must lean--take this away and it comes down with a crash! Let this stand and prayer stands like Heaven--reaching upward--holding communion with the skies. In two ways, as the Holy Spirit may enable us, we will read the words before us. It is God's argument for mercy--"For Christ's sake." It is our reason for service--"For Christ's sake."
 
-GOD'S ARGUMENT FOR MERCY. He forgives us "for Christ's sake." Here let us first look at the force of this motive. And then, secondly, let us notice some qualifications in it which may, through God's blessing, be the means of comforting seeking sinners who desire to find rest in and through Jesus Christ.
+GOD's ARGUMENT FOR MERCY. He forgives us "for Christ's sake." Here let us first look at the force of this motive. And then, secondly, let us notice some qualifications in it which may, through God's blessing, be the means of comforting seeking sinners who desire to find rest in and through Jesus Christ.
 
 Let us consider the force of this motive by which God is moved to forgive sinners, "for Christ's sake." You know that if we do a thing for the sake of a person, several considerations may work together to make our motive powerful. We may be willing not only to do some things, but many things--no, all things--for the sake of the individual admired or beloved. The first thing which will move us to do anything for another's sake is his person, with its various additions of position and character. The excellence of a man's person has often moved others to high enthusiasm, to the spending of their lives--yes, to the endurance of cruel deaths for his sake.
 
@@ -85,7 +85,7 @@ Now, do this, Sinner--take Christ in your arms and say, "For Christ's sake." The
 
 You may cry as long as you will, reform as much as you please, pray as earnestly as you like--but the gate of Heaven will never stir to your knockings till you plead, "For Jesus' sake!" There is the, "Open Sesame," which will make the gates of the city turn on their hinges. But if you have not this watchword all your doings and almsgivings and praying and what not will be but a heap of filth piled up against Heaven's gate. Remember, "other foundation can no man lay than that which is laid." And that, "there is none other name under Heaven given among men, whereby we must be saved," save Jesus Christ, the Righteous. Use that! Plead that and you shall succeed with God!
 
-"FOR CHRIST'S SAKE" IS THE BELIEVER'S GREAT MOTIVE FOR SERVICE. Two or three hints as to what kind of service may be expected of us. Then a little exhortation by way of stirring us up to do this service for Christ.
+"FOR CHRIST's SAKE" IS THE BELIEVER's GREAT MOTIVE FOR SERVICE. Two or three hints as to what kind of service may be expected of us. Then a little exhortation by way of stirring us up to do this service for Christ.
 
 We begin with a few hints as to what service is expected of us. One of the first things which every Christian should feel bound to do, "for Christ's sake," is to avenge His death. "Avenge His death?" asks one. "Upon whom?" Upon His murderers. And who were they? Our sins! Our SINS!--
 
