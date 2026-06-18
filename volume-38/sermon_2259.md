@@ -6,7 +6,7 @@ EVERYTHING here is simple. Everything is sublime. Here is that simple Gospel by 
 
 Let us go to the text at once and notice, first, a matter which is very simple--"As many as received Him...even to them that believe on His name." Secondly, a matter which is very delightful--"to them gave He power to become the sons of God." And thirdly, a matter which is very mysterious--"Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God."
 
-Here is, first, A MATTER WHICH IS VERY SIMPLE--receiving Christ and believing on His name. Oh, that many here may be able to say, "Yes, I understand that simple matter. That is the way in which I found eternal life!"
+Here is, first, a MATTER WHICH IS VERY SIMPLE--receiving Christ and believing on His name. Oh, that many here may be able to say, "Yes, I understand that simple matter. That is the way in which I found eternal life!"
 
 The simple matter of which John here speaks is receiving Christ, or, in other words, believing on His name.
 
@@ -34,7 +34,7 @@ This is a very simple matter and I have noticed a great many sneers at this simp
 
 But where does this wonderful power of faith come from? Not from the faith, but from Him on whom it leans! What power Christ has! The power of His Manhood suffering, the power of His Godhead bowing on the Cross, the power of the God-Man, the Mediator, surrendering Himself as the greatest Sacrifice for sin! Therefore, he who touches this has touched the springs of Omnipotence! He who comes, by faith, into contact with Christ, has come into contact with boundless love, power, mercy and Grace. I marvel not at anything that faith brings when it deals with Christ! You have a little key, a little rusty key, and you say, "By use of this key I can get all the gold that I need." Yes, but where is the box to which you go for the gold? When you show me and I see that it is a great chamber filled full of gold and silver, I can understand how your little key can enrich you when it opens the door into such a treasury. If faith is the key which unlocks the fullness of God, "for it pleased the Father that in Him should all fullness dwell," then I can understand why faith brings such boundless blessings to him who has it. Salvation is a very simple business. God help us to look at it simply and practically--and to receive Christ and believe on His name!
 
-Now, secondly, here is A MATTER WHICH IS VERY DELIGHTFUL--"To them gave He power to become
+Now, secondly, here is a MATTER WHICH IS VERY DELIGHTFUL--"To them gave He power to become
 
 sons of God."
 
@@ -64,7 +64,7 @@ You were put in school because you were a son. You did not like it. I daresay th
 
 It is a good thing to be without a trouble, but it is a better thing to have a trouble and know how to get Grace enough to bear it. I am not so much afraid of the devil when he roars, as I am when he pretends to be asleep. I think that, oftentimes, a roaring devil keeps us awake--and the troubles of this life stir us up to go to God in prayer--and that which looks to us as bad turns to our good. "We know that all things work together for good to them that love God, to them who are called according to His purpose."
 
-Now I come to my last point, that is, A MATTER WHICH IS MYSTERIOUS. We are not only given the status of children and the privilege of being called sons, but this mysterious matter is one of heavenly birth--"Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God."
+Now I come to my last point, that is, a MATTER WHICH IS MYSTERIOUS. We are not only given the status of children and the privilege of being called sons, but this mysterious matter is one of heavenly birth--"Which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God."
 
 This new birth is absolutely necessary. If we are ever to be numbered among God's children, we must be born again! Born from above. We were born in sin, born children of wrath, even as others--to be God's children, it is absolutely necessary that we should be born again!
 

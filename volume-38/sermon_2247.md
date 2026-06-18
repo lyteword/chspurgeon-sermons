@@ -122,7 +122,7 @@ And vie with Gabriel while he sings
 
 In notes almost Divine." But I can neither speak it nor sing it as I ought, yet would I finish Medley's hymn and say--
 
-"Well, the delightful day will come When my dear Lord will bring me Home, And I shall see His face! Then with my Savior, Brother, Friend, A blest eternity I'll spend, Triumphant in His Grace."
+"Well, the delightful day will come When my dear Lord will bring me Home, And I shall see His face! Then with my Savior, Brother, Friend, a blest eternity I'll spend, Triumphant in His Grace."
 
 But, even then, Christ will still be in Heaven forever a gift unspeakable! Perhaps we shall have another talk together, Friends, on this subject when we get there. One good woman said to me, "We shall have more time in eternity than we have now," to which I replied, "I do not know whether there is any time in eternity. The words look like a contradiction." "Oh, but," she said, "I shall get a talk with you, anyhow. I have never had one yet." Well, I dare say we shall commune up there of these blessed things when we shall know more about them. As we are to be there forever and ever, we shall need some great subjects with which to keep up the conversation--what vaster theme can we have than this? Addi-son, in one of her verses, says--
 
@@ -150,7 +150,7 @@ Now, dear Friends, let me ask you to join in this exercise. Let us first unitedl
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above,   
-> A suffering Man became.   
+> a suffering Man became.   
 > 'Twas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   

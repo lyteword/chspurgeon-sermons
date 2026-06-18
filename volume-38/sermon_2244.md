@@ -56,7 +56,7 @@ The wife, too, is the keeper of the house. She takes care of the household conce
 
 never be broken. It is a sweet subject, but I cannot linger upon it. You must let your own thoughts be fragrant with its aroma. However close may be the union of husband and wife, the union between the Believer and Christ is still closer. Oh, to realize more and more of it each day!--
 
-"O Jesus! Make yourself to me A living, bright reality, More present to faith's vision keen More than any outward object seen! More dear, more intimately nigh, Than even the sweetest earthly tie!"
+"O Jesus! Make yourself to me a living, bright reality, More present to faith's vision keen More than any outward object seen! More dear, more intimately nigh, Than even the sweetest earthly tie!"
 
 All human imagery fails to set forth the union between Christ and His people, but the figure in our text is that of the head and the member. The Apostle says of Christ that "we are members of His body, of His flesh, and of His bones." Christ is the Head and we are members of His body. Wonderful union, this! In the first metaphor, the foundation and the stone, we had the idea of rest. In the second, the vine and the branches, the idea of life. The union of the husband and wife gave us the thought of love. Now, here, we have the suggestion of identity. There are two lives in the husband and the wife, but there is only one life in the head and the body--and in this respect this metaphor brings out the true relation of Christ to His people more clearly than any other!
 

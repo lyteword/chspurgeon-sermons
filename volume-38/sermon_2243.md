@@ -82,7 +82,7 @@ David is an example of what will befall those who know Christ at the end of thei
 
 were falling asleep in Jesus, their friends did not bid them "good-bye," but, "good night." So we say, in the words of that beautiful hymn--
 
-"Sleep on, Beloved, sleep, and take your rest, Lay down your head upon your Savior's breast-- We love you well, but Jesus loves you best. Goodnight! Goodnight! Goodnight! Only 'good night,' Beloved--not 'farewell!' A little while, and all His saints shall dwell In hallowed union, indivisible-- Goodnight!
+"Sleep on, Beloved, sleep, and take your rest, Lay down your head upon your Savior's breast-- We love you well, but Jesus loves you best. Goodnight! Goodnight! Goodnight! Only 'good night,' Beloved--not 'farewell!' a little while, and all His saints shall dwell In hallowed union, indivisible-- Goodnight!
 
 Until we meet again before His Throne, Clothed in the spotless robe He gives His own, Until we know even as we are known-- Goodnight""
 

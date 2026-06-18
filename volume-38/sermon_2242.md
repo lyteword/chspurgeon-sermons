@@ -38,7 +38,7 @@ Why, then, is it, that we are always counting upon what we are going to do? How 
 
 We thus see that counting on the future is folly.
 
-Secondly, IGNORANCE OF THE FUTURE IS A MATTER OF FACT. Whatever we may say about what we mean to do, we do not know anything about the future. The Apostle, by the Spirit, speaks truly when he says, "You know not what shall be on the morrow." Whether it will come to us laden with sickness or health, prosperity or adversity, we cannot tell. Tomorrow may mark the end of our life--possibly even the end of the age. Our ignorance of the future is certainly a fact.
+Secondly, IGNORANCE OF THE FUTURE IS a MATTER OF FACT. Whatever we may say about what we mean to do, we do not know anything about the future. The Apostle, by the Spirit, speaks truly when he says, "You know not what shall be on the morrow." Whether it will come to us laden with sickness or health, prosperity or adversity, we cannot tell. Tomorrow may mark the end of our life--possibly even the end of the age. Our ignorance of the future is certainly a fact.
 
 Only God knows the future. All things are present to Him--there is no past and no future to His all-seeing eyes. He dwells in the present tense forevermore as the great I AM. He knows what will be on the morrow and He, alone knows! The whole course of the universe lies before Him, like an open map. Men do not know what a day may bring forth, but Jehovah knows the end from the beginning! There are two great certainties about things that shall come to pass--one is that God knows--and the other is that we do not know.
 

@@ -12,7 +12,7 @@ This word on the Cross we shall use, tonight, and we shall see if we cannot gath
 
 I am not going to handle this text so much by way of exposition, as by way of experience. I believe there are many here to whom these words will be very appropriate. This will be our line of thought. First, we were, in a measure, ignorant. Secondly, we confess that this ignorance is no excuse. Thirdly, we bless our Lord for pleading for us and fourthly, we now rejoice in the pardon we have obtained. May the Holy Spirit graciously help us in our meditation!
 
-Looking back upon our past experience, let me say, first, that WE WERE, IN A MEASURE, IGNORANT. We who have been forgiven, we who have been washed in the blood of the Lamb, we once sinned in a great measure through ignorance. Jesus says, "They know not what they do." Now, I shall appeal to you, Brothers and Sisters--when you lived under the dominion of Satan and served yourselves and sin--was there not a measure of ignorance in it? You can truly say, as we said in the hymn we sang just now--
+Looking back upon our past experience, let me say, first, that WE WERE, IN a MEASURE, IGNORANT. We who have been forgiven, we who have been washed in the blood of the Lamb, we once sinned in a great measure through ignorance. Jesus says, "They know not what they do." Now, I shall appeal to you, Brothers and Sisters--when you lived under the dominion of Satan and served yourselves and sin--was there not a measure of ignorance in it? You can truly say, as we said in the hymn we sang just now--
 
 "Alas! I knew not what I did."
 
