@@ -38,7 +38,7 @@ This Light, which God gives to His people, is far superior to the light which co
 
 Cowper said, as some of you may remember, when contrasting the infidel Voltaire with the poor, godly lace-maker, she--
 
-"Just knows, and knows no more, her Bible true, A truth the brilliant Frenchman never knew."
+"Just knows, and knows no more, her Bible true, a truth the brilliant Frenchman never knew."
 
 Perhaps you smile and think within yourself--"That is not knowing much." Ah, but to know the Bible to be true, to live in that Bible Truth and to have it all round about you, filling the air, filling your own soul, filling earth and Heaven with wondrous things that the spirit's eye can see--this is truly marvelous! He who sees even the most of this world has but the same sort of eyes that birds and beasts have--but he who knows his Bible to be true and who realizes the truth of it in his soul--has another set of eyes that can peer into another realm altogether. He sees spiritual things and around him there shines a Light which is, indeed, marvelous!
 

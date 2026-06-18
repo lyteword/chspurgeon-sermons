@@ -6,7 +6,7 @@ EVEN concerning those who have heard the Gospel, it can still be said, "They hav
 
 That, however, is not my subject at this time. I want, in the name of the Lord Jesus Christ, to have a time of earnest pleading with those who have not obeyed the Gospel. It is true of many who meet with us, in this House of Prayer, as it is of those who assemble elsewhere, that though they have often heard the Gospel, yet "they have not all obeyed the Gospel." Perhaps some of those who up to now have been disobedient, will now obey it. May the Spirit of God make it to be so!
 
-My first observation upon the text will be this. THE GOSPEL COMES TO MEN WITH THE FORCE OF A
+My first observation upon the text will be this. THE GOSPEL COMES TO MEN WITH THE FORCE OF a
 
 COMMAND. "They have not all obeyedthe Gospel." But you cannot speak of obeying anything which has not the authority of a command--it is clear, therefore, that the Gospel comes to men in the form of a command and that it has the force of a command!
 

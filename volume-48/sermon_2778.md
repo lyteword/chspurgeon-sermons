@@ -3,7 +3,7 @@
 "And when the queen of Sheba heard of the fame of Solomon concerning the name of the Lord, she came to test him with hard questions...So Solomon answered all her questions: there was nothing so difficult for the king, that he could not explain it to her" 1 Kings 10:1-3.
 
 
-THE QUEEN OF SHEBA, A SIGN]. I tried, then, to prove that the queen of
+THE QUEEN OF SHEBA, a SIGN]. I tried, then, to prove that the queen of
 
 Sheba is a condemning sign to those who do not believe our report concerning Him, or who do not act upon it so as to seek His face. Tonight we will follow the queen of the south little further.
 
@@ -11,7 +11,7 @@ As our Lord has given the queen of Sheba for a sign, it would be unbecoming if w
 
 In speaking of the queen of Sheba coming to Solomon as a type of our coming to Christ, I will, first, call upon you to admire the queen's mode of procedure. Then, secondly, we will try to imitate it in reference to Christ And, then, thirdly, we will close by answering certain questions of a truly practical character
 
-First, then, I call upon you to ADMIRE THIS QUEEN'S MODE OF PROCEDURE WHEN SHE CAME TO SOLOMON. We are told in the text that "she came to prove him with hard questions."
+First, then, I call upon you to ADMIRE THIS QUEEN's MODE OF PROCEDURE WHEN SHE CAME TO SOLOMON. We are told in the text that "she came to prove him with hard questions."
 
 She wanted to prove whether he was as wise as she had been led to believe and her mode of proving it was by endeavoring to learn from him. She put difficult questions to him in order that she might be instructed by his wisdom. And if you want to ascertain what the wisdom of Christ is, the way to know it is to come and sit at His feet and learn of Him. I know of no other method--it is a very sure one and it will be a very profitable and blessed one if you adopt it. He has Himself said, "Take My yoke upon you and learn of Me, for I am meek and lowly in heart: and you shall find rest unto your souls."
 
@@ -71,7 +71,7 @@ I have one more hard question. How can a man's life be in Heaven while he still 
 
 There are the 10 hard questions. I might have asked a great many more, and He, "who is greater than Solomon," could have answered them all!
 
-Now in closing, let us ANSWER CERTAIN QUESTIONS OF A PRACTICAL CHARACTER.
+Now in closing, let us ANSWER CERTAIN QUESTIONS OF a PRACTICAL CHARACTER.
 
 Answer, first, this question--How can we come to Christ? He is in Heaven, so we cannot climb up to Him there. Yes, but He has graciously said, "Lo, I am with you always, even unto the end of the world." And though we see Him not, and hear Him not, yet in spirit He is among us at this moment! You need not stir even a step in order to get to Him. If Jesus were again upon earth, He could not, in His bodily Presence, be in all places at once. Suppose He were in London, what would they do who live in Australia and needed to get to Him? They might die on the voyage! Or if He were at Jerusalem, how many poor people would never be able to get to Palestine? It is much better that He is not on earth--it is more expedient for us, because His Spirit is everywhere and, desiring to think about Him, wishing to know Him, seeking Him, and, above all, trusting Him, we have come to Him!
 

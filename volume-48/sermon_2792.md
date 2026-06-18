@@ -12,7 +12,7 @@ Note, also, how intensely the Psalmist pleads. In the second verse of the Psalm,
 
 This brings us to the threefold position which the Psalmist occupied when he prayed this prayer. It was, first, one of confession--"If You, Lord, should mark iniquities, O Lord, who shall stand?" It was also one of humble confidence-- "But there is forgiveness with You." And it was one in which he saw the consequences of God's mighty pardon--"There is forgiveness with You, that You may be feared."
 
-First, then, in our text, we have A CONFESSION--a confession which it will be well for everyone to make--"If You, Lord, should mark iniquities, O Lord, who shall stand?"
+First, then, in our text, we have a CONFESSION--a confession which it will be well for everyone to make--"If You, Lord, should mark iniquities, O Lord, who shall stand?"
 
 The Psalmist may have felt that if a human witness had been appointed to mark his sin, he might have been able to stand, but he says, "If You, Lord, should mark iniquities, who shall stand?" "If my fellow man should watch me honestly and speak of me candidly, it may be that he would not be able to see a flaw in my life." There are some men who could say as much as that. They have been enabled, by the Grace of God, to behave themselves in all integrity and uprightness, so that no one could justly bring any accusation against them. If the policeman were set to watch, or a spy were put into their house, or if even wife or child were the watcher, there are some who might be able to say, "I have borne myself uprightly both in the house and abroad among my fellow men and I could pass such a test as that." But the Psalmist said, "If You, Lord, should mark iniquities, Lord, who shall stand?" He knew that the Lord sees what no one else can see and He sees behind the action into the motive of it, the secret design hidden in the heart.
 
@@ -30,7 +30,7 @@ The Psalmist asks, " Who shall stand?" as if he felt that he could not himself d
 
 Let us, therefore, all repeat this confession of the Psalmist and acknowledge that we are all guilty before God, for it is clear that no mercy can come to us until we are willing to put ourselves in the position where mercy can rightly deal with us. Mercy is for the guilty, forgiveness is for the unrighteous--so, if we will not class ourselves among the guilty and the unrighteous, mercy and forgiveness can never come to us!
 
-Now, secondly, we come to THE PSALMIST'S CONFIDENCE. Although he felt that none could stand before God by themselves, yet he said, "But there is forgiveness with You." How did he know that? And how do we know it?
+Now, secondly, we come to THE PSALMIST's CONFIDENCE. Although he felt that none could stand before God by themselves, yet he said, "But there is forgiveness with You." How did he know that? And how do we know it?
 
 Well, we know that there is forgiveness with God, because we have been informed by Revelation concerning the Character of God--and we find one prominent feature in the Character of God is that "He delights in mercy." It gives Him the greatest possible pleasure when He can righteously forgive sin. He needs not to be entreated, as though He were slow to pardon, for it is one of His special joys to cast iniquity into the depths of the sea! God's Character, as it is revealed to us in the Scriptures, convinces us that there is forgiveness with Him!
 
