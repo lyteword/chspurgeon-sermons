@@ -13,7 +13,7 @@ First, then, Jesus Christ is typified here under the Paschal Lamb; and should th
 
 We commence, first of all, with the victim&mdash;the lamb. How fine a picture of Christ. No other creature could so well have typified him who was holy, harmless, undefiled, and separate from sinners. Being also the emblem of sacrifice, it most sweetly pourtrayed our Lord and Saviour Jesus Christ. Search natural history through, and though you will find other emblems which set forth different characteristics of his nature, and admirably display him to our souls, yet there is none which seems so appropriate to the person of our beloved Lord as that of the Lamb. A child would at once perceive the likeness between a lamb and Jesus Christ, so gentle and innocent, so mild and harmless, neither hurting others, nor seeming to have the power to resent an injury.
 
-> A humble man before his foes, a weary man and full of woes.    
+> a humble man before his foes, a weary man and full of woes.    
 
 What tortures the sheepish race have received from us! how are they, though innocent, continually slaughtered for our food! Their skin is dragged from their backs, their wool is shorn to give us a garment. And so the Lord Jesus Christ, our glorious Master, doth give us his garments that we may be clothed with them; he is rent in sunder for us; his very blood is poured out for our sins; harmless and holy, a glorious sacrifice for the sins of all his children. Thus the Paschal Lamb might well convey to the pious Hebrew the person of a suffering, silent, patient, harmless Messiah.
 

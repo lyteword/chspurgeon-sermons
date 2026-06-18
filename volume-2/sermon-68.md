@@ -42,7 +42,7 @@ But we must dwell on the rest of the passage. "They shall walk with me in white,
 
 But chiefly we should understand this to refer to justification. "They shall walk in white;" that is, they shall enjoy a constant sense of their own justification by faith; they shall understand that the righteousness of Christ is imputed to them, that they have
 
-> A matchless robe which far exceeds    
+> a matchless robe which far exceeds    
 > What earthly princes wear;    
 
 that they have been washed and make whiter than snow, and purified and made more cleanly than wool.

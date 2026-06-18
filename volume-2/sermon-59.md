@@ -123,7 +123,7 @@ And now, I appreciate the power of silence. You will please to observe strict an
 
 Now we have had a solemn meeting, and let us have a cheerful ending of it. As we go away let us sing a sweet hymn to encourage our hearts.
 
-*A hymn was then sung*
+*a hymn was then sung*
 
 Now may the Lord bless you, and lift up the light of his countenance upon you, and give you peace! May you, during this year of grace; receive much grace; and may you proceed onwards towards heaven! And may we as a church, as members of churches, as ministers, as deacons, mutually strive together for the faith of Jesus, and be edified therein! And may the Lord save the ungodly! If the last year is clean gone and they are not yet pardoned and forgiven, let not another year roll away without their finding mercy!
 

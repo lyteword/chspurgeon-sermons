@@ -1,4 +1,4 @@
-# Sermon 96 | The Christian, A Debtor
+# Sermon 96 | The Christian, a Debtor
 
 > Therefore, brethren, we are debtors.    
 > Romans 8:12
