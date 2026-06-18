@@ -102,7 +102,7 @@ Fear not: for I am with you. This is the second time that the blessed words, "fe
 
 For I have created him for My glory, I have formed him; yes, I have made him. And God will be glorified in His people; the object of their creation is the glory of their God and that end shall, somehow or other, be answered in the Lord's good time. Now I want you to notice the other side of the question. God says, in the twenty-first verse--
 
-This people have I formed for Myself; they shall show forth My praise. But--A sorrowful, "but." And the strain sinks from a triumphant shout to a doleful lamentation. "But"--
+This people have I formed for Myself; they shall show forth My praise. But--a sorrowful, "but." And the strain sinks from a triumphant shout to a doleful lamentation. "But"--
 
 You have not called upon Me, O Jacob; but you have been weary of Me, O Israel How sad it is that those who have been loved so much should make such a shameful return for it all!
 
