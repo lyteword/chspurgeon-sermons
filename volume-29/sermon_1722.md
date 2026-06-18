@@ -59,7 +59,7 @@ sing--
 
 When shall we end our lingering years,
 
-Our sorrows, sins, and doubts, and fears-- A howling wilderness"?
+Our sorrows, sins, and doubts, and fears-- a howling wilderness"?
 
 Oh, my dear Brothers and Sisters, if your length of years has become a burden, God grant that you many not be discouraged! May you be "such an one as Paul the Aged," and bear up under all the growing weaknesses of your years, bringing forth fruit in your old age. Be not cast down, for the Master will come, and will not tarry. He has not forgotten His servants! He will give them their penny at sundown. The ripe sheaf shall not be left in the field too long. Your Lord will come and receive you unto Himself, that where He is you may also be. Quietly hope and patiently wait for the salvation of God. And yet, no doubt, the length of the way has discouraged full many a true pilgrim.
 
