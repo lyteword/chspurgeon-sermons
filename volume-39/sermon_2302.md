@@ -68,7 +68,7 @@ We are to wait with one objective in view, viz., to open the door to Him and to 
 
 Pardon me for using a dog as a picture of what you ought to be, but when you have attained to a state above that, I will find another illustration to explain my meaning.
 
-Now, lastly, THERE IS A REWARD FOR WATCHERS. Their reward is this, "Blessed are those servants,
+Now, lastly, THERE IS a REWARD FOR WATCHERS. Their reward is this, "Blessed are those servants,
 
 whom the master, when he comes, shall find watching."
 

@@ -48,7 +48,7 @@ There let me leave that point, then. Hear the Gospel, only mind that what you he
 
 of sight. Let the eloquent men have a shop for themselves on a Monday, but let us have the Lord's-Day given up to plain dealing with the souls of men! We want none of this word-daubing! Men are going to Heaven or to Hell and it is time that we came to close grips with them about this all-important matter. God help us to do so! Hear that which is really aimed at your heart and conscience! Hear that which tells of Christ, Heaven and the way there! Hearing that, you are on the way to believing it!
 
-Thirdly, THERE IS NO HEARING WITHOUT A PREACHER--"And how shall they hear without a
+Thirdly, THERE IS NO HEARING WITHOUT a PREACHER--"And how shall they hear without a
 
 preacher?" Therefore, let us preach.
 

@@ -6,7 +6,7 @@ You notice how much David is at home with God. He talks about Him. He does bette
 
 David here tells us, no, he tells God, rather than us, that he had been God's pupil all his life--"O God, You have taught me from my youth"--and then he says that he had been God's pupil-teacher--"and until this time have I declared Your wondrous works." When we have listened to David on these two points, the preacher will venture, with some hesitancy, but still under a sort of compulsion, to use the words, himself, and say, "O God, You have taught me from my youth: and until this time have I declared Your wondrous works." The preacher using the Psalmist's language in the hope that many here will make bold to come into the same lot and take a share in the same heritage, that many here, especially many young people may say in later days, "O God, You have taught me from my youth: and until now have I declared Your wondrous works."
 
-First, then, let us think of DAVID AS A PUPIL. God was his Teacher. "O God, You have taught me from my
+First, then, let us think of DAVID AS a PUPIL. God was his Teacher. "O God, You have taught me from my
 
 youth."
 
@@ -30,7 +30,7 @@ pray that you will begin learning soon enough to be able to say afterwards, "O G
 
 Surely, dear Friends, we are so foolish that we need to be taught, and we cannot have a better Teacher than the Omniscient God! Let us, therefore, pray, tonight, that if we are at God's school, we may stay there. And that if we are not there, we may go there at once. May all our names be put down in the roll of scholars of the College of Christ, the University of Grace, this very night, and God shall have the praise!
 
-But now I want you, for a minute or two, to notice DAVID AS A PUPIL-TEACHER. While he was a pupil, he was also teaching. He says, "Until this time have I declared Your wondrous works."
+But now I want you, for a minute or two, to notice DAVID AS a PUPIL-TEACHER. While he was a pupil, he was also teaching. He says, "Until this time have I declared Your wondrous works."
 
 Observe, then, that David taught people what he saw. He saw God's works all around him. Ah, me, that is a great sight! God is at work everywhere and there are none so blind as those who will not see His works. But the mass of men do not see God. You see the working of machinery. You see the working of the laws of Nature. You see the working of the laws of supply and demand. But many of you cannot see the working of God! May the Lord open your eyes, poor blind bats, for if there is anything that stares in the face of the man who is willing to see it, it is God, and God at work in Providence, in Nature, in Grace and in all sorts of ways! I read of one, the other day, of whom somebody said that when he stayed at his house, he noticed that he talked as if he saw God always before him--and truly, that is how every Christian should talk, for we should see God always before us! David said, "I have set the Lord always before me: because He is at my right hand, I shall not be moved." We do not see God as we should and we shall never teach aright for God until we have a kind of instinctive feeling of the Presence of God--till we are conscious that God is in us, round about us and at work for us!
 

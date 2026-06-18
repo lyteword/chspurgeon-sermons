@@ -34,7 +34,7 @@ Then there is another cult that has lately come up which some have chosen, so th
 
 You will find great demands made upon your faith by Shishak, if you become his servants. He will tax you and take all you have, whereas, to believe what God has said is, after all, but a reasonable service. The man who goes in for the new ideas in religion--the man of "progress," who is so wise and learned--must confess that he loses that sweet rest of heart that he has seen in Christian people, which was enjoyed by the godly woman described by Cowper--
 
-"Who knows, and knows no more, her Bible true, A truth the brilliant Frenchman never knew." There is safe anchorage for us, here, but there is no anchorage in the sea ofpersonal infallibility. "Oh!" says one, "I never claimed that." No, my dear Sir, but there must be infallibility somewhere--and if you are the judge of the Word of God, you have shifted the infallibility from the Word to yourself--and you are really the claimant of it. In your own heart of hearts, you think so! Where will you ever get rest with such a delusion as that? He who rests on himself, rests on a very frail foundation, indeed!
+"Who knows, and knows no more, her Bible true, a truth the brilliant Frenchman never knew." There is safe anchorage for us, here, but there is no anchorage in the sea ofpersonal infallibility. "Oh!" says one, "I never claimed that." No, my dear Sir, but there must be infallibility somewhere--and if you are the judge of the Word of God, you have shifted the infallibility from the Word to yourself--and you are really the claimant of it. In your own heart of hearts, you think so! Where will you ever get rest with such a delusion as that? He who rests on himself, rests on a very frail foundation, indeed!
 
 I believe this night that upon which I can pray, that upon which I can live, that upon which I can die! My faith is fixed in the revealed Word of God and I find that it sustains me in the hour of bitter bodily pain, with which I am too well acquainted--and in the hour of deep depression of spirit, with which I am all too familiar--and in the time of cruel desertion, for I have had some of the best friends fail me. And in the time of slander, for who has had anything worse spoken of him than they have uttered against me? I can fall back upon the eternal Truths of God--they are the hills from which my help comes--and they never fail me. Can any man say the same of his "culture" and "progress," and of his "advanced thought"? Can he live or die on such stuff as that? Why, he cannot even live on it, for, by his own admission, he cannot write out his creed because he believes one thing, today, but he may believe quite another thing tomorrow--and
 
@@ -60,7 +60,7 @@ There are some who turn aside because religion has brought them to a point where
 
 "Through floods and flames, if Jesus leads, I'll follow where He goes! 'Hinder me not,' shall be my cry, Though earth and Hell oppose."
 
-I am going to finish with this point. THERE IS A GREAT CONTRAST BETWEEN THE SERVICE OF GOD
+I am going to finish with this point. THERE IS a GREAT CONTRAST BETWEEN THE SERVICE OF GOD
 
 AND ANY OTHER SERVICE.
 

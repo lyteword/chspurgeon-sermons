@@ -56,7 +56,7 @@ I have seen an artist make his crayon drawing. He takes a piece of charcoal and 
 
 Thus much upon the outline of the character of saints while they are upon the earth.
 
-Now indulge me for just a few minutes while I try to give you A GLIMPSE OF THE PERFECT PICTURE IN
+Now indulge me for just a few minutes while I try to give you a GLIMPSE OF THE PERFECT PICTURE IN
 
 HEAVEN. I cannot really show you the picture--that is in the upper gallery in Glory and you must go up there to see it. I can only tell you my idea of what that picture is like when it is finished.
 

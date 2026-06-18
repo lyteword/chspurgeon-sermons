@@ -20,7 +20,7 @@ This, then, is the work that is to occupy us tonight, and the work in which we s
 
 Notice, in the text, which is clearly intended to excite us to praise, first, a mournful memory, suggested by the word "but." Secondly, a happy resolution--"we will bless the Lord." Thirdly, an appropriate commencement--"from this time forth." And then, fourthly, an everlasting continuance--"and forevermore. Praise the Lord."
 
-First, then, there is in the text the trace of A MOURNFUL MEMORY. Read the preceding verse, without which we do not get the sense of this one to the fullest. "The dead praise not the Lord, neither any that go down into silence. But we will bless the Lord from this time forth."
+First, then, there is in the text the trace of a MOURNFUL MEMORY. Read the preceding verse, without which we do not get the sense of this one to the fullest. "The dead praise not the Lord, neither any that go down into silence. But we will bless the Lord from this time forth."
 
 The mournful memory is that of those who, at one time praised the Lord with us, and exulted in His holy name during the past year, some have been numbered with the dead. There are gaps in our ranks, my Brothers and Sisters, which death has made during the past year. Some have been taken from us whom we could ill spare, as we thought, but they were, nevertheless, needed up above. He who bought them had a better right to them than we had and His prayers prevailed over ours, as they always should. We said, "Father, we will that they whom You have given us be with us where we are." But Jesus prayed, "Father, I will that they, also, whom You have given Me, be with Me where I am." And they have gone. He had the best right to them and we can only say, "It is the Lord: let Him do what seems good to Him." But, as far as this world is concerned, they who have been taken from us do not praise the Lord, save that, being dead, they speak by the recollection of their holy lives. And their memory is sweet, like incense that has been burned, and leaves a perfume behind. Save for this, "The dead praise not the Lord, neither any that go down into silence."
 
@@ -44,7 +44,7 @@ To keep the Church of God on earth, the Church militant, in good marching order,
 
 High!
 
-Let us now go to our second point which is this--A HAPPY RESOLUTION. "The dead praise not the Lord, neither any that go down into silence. But we will bless the Lord."
+Let us now go to our second point which is this--a HAPPY RESOLUTION. "The dead praise not the Lord, neither any that go down into silence. But we will bless the Lord."
 
 "We will bless the Lord," for it seems to us to be the very thing for which we were created. This is the flower of our being! We are never happier, surely, never more developing what God has put into us by His Grace, than when we are praising and blessing Him.
 
@@ -154,7 +154,7 @@ The LORD has been mindful of us: He will bless us. There is a New Year's motto f
 
 14, 15. The LORD shall increase you more and more, you and your children. You are blessed of the LORD which made Heaven and earth. This is the Creator's blessing, therefore a real one. Many of you have had the new creation worked in you--you shall live to see new heavens and a new earth!
 
-The Heaven, even the heavens, are the LORD'S: but the earth has He given to the children of men. And they seem as if they meant to keep it, too. The sad thing is that they get the earth into their hearts and so they miss the blessing which the Lord intended them to receive from His gift of it.
+The Heaven, even the heavens, are the LORD's: but the earth has He given to the children of men. And they seem as if they meant to keep it, too. The sad thing is that they get the earth into their hearts and so they miss the blessing which the Lord intended them to receive from His gift of it.
 
 The dead praise not the LORD, neither any that go down into silence. As far as this world is concerned, no note is heard from the grave.
 

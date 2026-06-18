@@ -110,7 +110,7 @@ And said, O my father, my father, the chariot of Israel, and the horsemen thereo
 
 And he said, Open the window eastward. They had no glass windows in those days, you know, but they threw back the iron bars that made the shutter and opened the window eastward.
 
-And he opened it. Then Elisha said, Shoot. And he shot. And he said, The arrow of the LORD'S deliverance, and the arrow of deliverance from Syria: for you shall strike the Syrians in Aphek, till you have consumed them. It was usual, in the East, when war was proclaimed, to do it by shooting an arrow towards the enemy's country, and this brave old man, soon about to breathe out his life, had strengthened the king in the great weakness of the Israelite state to proclaim war once more against Syria!
+And he opened it. Then Elisha said, Shoot. And he shot. And he said, The arrow of the LORD's deliverance, and the arrow of deliverance from Syria: for you shall strike the Syrians in Aphek, till you have consumed them. It was usual, in the East, when war was proclaimed, to do it by shooting an arrow towards the enemy's country, and this brave old man, soon about to breathe out his life, had strengthened the king in the great weakness of the Israelite state to proclaim war once more against Syria!
 
 And he said, Take the arrows. And he took them. I suppose, a quiver full.
 

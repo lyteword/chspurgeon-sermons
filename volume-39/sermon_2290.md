@@ -4,13 +4,13 @@
 
 IF you will read, at home, the chapter from which our text is taken, you will find that Paul was stirring up the Corinthians to an act of liberality. He had boasted of what they would do, but he had just a little fear that they might fall behind and not quite come up to what he had promised on their behalf. He stirred them up to liberal giving, telling them that they who sowed liberally, should reap liberally, and they who sowed sparingly would reap sparingly. Once upon that theme of giving, the Apostle could not help speaking of another gift. He saw a track just off the main road and he felt that it led him straight away to his God and to his Savior. And so, while the ink was yet flowing in his pen, he began to write about it as though he would say, "I am not thinking now, my Brethren, so much of your gifts as I am of another gift--not so much of your gifts to the Lord's poor people as of the Lord's great Gift to you--His poor people. "Thanks be unto God for His unspeakable Gift."
 
-A person, who was collecting for some good objective, called upon a friend one day and, as he needed him to be very generous, pleaded hard with him. After a while, he seemed to quit the subject altogether, and he said, "I knew your father." "Did you?" "Yes, and I called upon him about a certain business, just as I do upon you, and your father did not need any prompting. He said, 'State the case,' and as soon as the case was stated, he pulled out his purse and gave me ten times as much as I had expected to obtain from him." You see, our friend was not exactly pleading with the son when he told that story, and yet I do not know how he could have pleaded better, for reverence for his father's name and the desire not to seem to fall off from his father's standard, were the very best arguments that could have been used with him!
+A person, who was collecting for some good objective, called upon a friend one day and, as he needed him to be very generous, pleaded hard with him. After a while, he seemed to quit the subject altogether, and he said, "I knew your father." "Did you?" "Yes, and I called upon him about a certain business, just as I do upon you, and your father did not need any prompting. He said, 'state the case,' and as soon as the case was stated, he pulled out his purse and gave me ten times as much as I had expected to obtain from him." You see, our friend was not exactly pleading with the son when he told that story, and yet I do not know how he could have pleaded better, for reverence for his father's name and the desire not to seem to fall off from his father's standard, were the very best arguments that could have been used with him!
 
 So I admire the wisdom of Paul. When he would bring these Corinthians up to a high standard of liberality towards their poor Brethren in Judea, he says, as though it were only by the way, "Thanks be unto God, your Father and my Father, for His unspeakable Gift. Whatever you give, I can speak about, but what He gave surpasses all powers of speech! Thanks be unto God for His unspeakable Gift."
 
 Now, this text, tonight, gives me three things to speak of. The first is, that Christ is a Gift. And, secondly, that as a Gift, Christ is unspeakable. And, thirdly, that as a Gift unspeakable, Christ calls forth praise to God from us.
 
-First, then, CHRIST IS A GIFT.
+First, then, CHRIST IS a GIFT.
 
 How often you hear people speak about Christ and His salvation as though they were the reward of merit--as though we did something by which to win his Divine favor! If they do not teach that salvation comes through our own merits, yet, according to them, it is the effect of our feelings and our experiences. Somehow or other, according to this common notion, we must get fit to receive God's Gift and thus, what comes to us is more our due than an alms of heavenly charity! I hesitate not to say that this teaching flies in the teeth of the entire Word of God. Everywhere in the Scriptures the great word is not merit, but GRACE--not deserving, but receiving freely of the great mercy of our God!
 
@@ -38,7 +38,7 @@ I was surprised, the other day, when I found that a poor soul in deep despair ha
 
 Thus much, and perhaps too much, considering our time, on the first point, that Christ is a Gift, the free Gift of God's Grace.
 
-Now, in the second place, let us consider the fact that, AS A GIFT, CHRIST IS UNSPEAKABLE. "Thanks be
+Now, in the second place, let us consider the fact that, AS a GIFT, CHRIST IS UNSPEAKABLE. "Thanks be
 
 unto God for His unspeakable Gift," said the Apostle Paul--and so say we. "Why," asks one, "do you speak about Him, then?" Well, principally because He is unspeakable. By this time, after nearly 1900 years, if the theme we have to preach about were speakable, we should have exhausted it--but as it is unspeakable, a sea without a shore, an ocean without a bottom--we will keep on preaching for another 1900 years, if the Lord does not come--and we shall never get to the end of this theme, I am quite sure!
 
@@ -62,7 +62,7 @@ I know a man, an eminent painter, and a person sat for him 13 times for his port
 
 I have come so far and reached my last point. I wish that we had more time for such a glorious theme.
 
-Now, thirdly, AS A GIFT UNSPEAKABLE, CHRIST CALLS FORTH PRAISE TO GOD FROM US. "Thanks
+Now, thirdly, AS a GIFT UNSPEAKABLE, CHRIST CALLS FORTH PRAISE TO GOD FROM US. "Thanks
 
 be unto God for His unspeakable Gift."
 
@@ -71,7 +71,7 @@ The Gift of Christ makes us view God with thankfulness. Never fall into the mist
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His throne above,   
-> A suffering Mian became.   
+> a suffering Mian became.   
 > 'Twas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   

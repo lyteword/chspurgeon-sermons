@@ -10,7 +10,7 @@ What shall we do to keep Christ's name before the sons of men? Let us be inventi
 
 Let that stand as a preface. May the Lord put our hearts in tune, now, while we think upon two things! The first is the small type, Jonathan's love to David. The second is the infinite anti-type, Christ's love to men. Perhaps it will be sweetest, tonight, if we can, each one, say, "Christ's love to me. He loved me and gave Himself for me." That expression will be in harmony with the words of the text, "Your love to me was wonderful."
 
-First, then, we have to think a little about JONATHAN'S LOVE TO DAVID.
+First, then, we have to think a little about JONATHAN's LOVE TO DAVID.
 
 Jonathan's was a singular love, because of thepureness of its origin. Jonathan loved David out of great admiration of him. When he saw him come back with the head of Goliath in his hand, he loved him as a soldier loves a soldier, as a brave man loves another brave man. He felt that there was the right kind of metal in that young man and though Jonathan was the king's son, and heir-apparent to the throne, we find that he, "stripped himself of the robe that was upon him, and gave it to David, and his garments, even to his sword, and to his bow, and to his belt." He felt that such a hero, who could so trust his God, and so expose his life, and come off so victorious, deserved his utmost love. It did not begin in self-interest--it did not begin in relationship--but it began in the likeness that Jonathan saw between his own nature and that of David. It was one brave man loving another brave man.
 

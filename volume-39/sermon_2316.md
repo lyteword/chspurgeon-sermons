@@ -24,7 +24,7 @@ Now, here is a Covenant that God will give the knowledge of Himself to the lost,
 
 Oh, what a privilege this is! "If any of you lack wisdom, let him ask of God." If any man is ignorant of his God, let him hear the Word of the Lord and let him seek the Lord, and God will give him instruction concerning Himself, and make him to know the great Jehovah, the Father of our spirits, who passes by iniquity, transgression, and sin.
 
-But I must not linger on any one blessing. The first Covenant mercy is saving knowledge. The next is, GOD'S LAW WRITTEN IN THE HEART. Let me read you verse 33, again--"After those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts; and will be their God, and they shall be My people." You know that the Law of Moses was written on two tablets of stone. Wonderfully precious those two slabs of marble must have been when the Divine finger had traced the solemn lines. Moses had a great charge to keep when he had those two Di-
+But I must not linger on any one blessing. The first Covenant mercy is saving knowledge. The next is, GOD's LAW WRITTEN IN THE HEART. Let me read you verse 33, again--"After those days, says the Lord, I will put My Law in their inward parts, and write it in their hearts; and will be their God, and they shall be My people." You know that the Law of Moses was written on two tablets of stone. Wonderfully precious those two slabs of marble must have been when the Divine finger had traced the solemn lines. Moses had a great charge to keep when he had those two Di-
 
 vinely written tablets, but he destroyed them because the people had, in spirit, broken them. It could not be that such Divine writing should ever be handled or looked at by such an unholy people!
 

@@ -4,7 +4,7 @@
 
 I REMARKED in the reading that the Gospel of Matthew is especially the Gospel of the Kingdom and of the King. All through Matthew's writing, the title of King constantly occurs in connection with Christ, and His kingliness is prominent from the opening chapter to the close. Here we see the King exercising His royal prerogatives. In this passage we have several instances of Christ acting as He could not have acted if He had not possessed a royal and Divine Power.
 
-I will go at once to my text and note, first, that JESUS DEALT WITH THE PALSIED MAN IN A TRULY ROYAL AND DIVINE WAY.
+I will go at once to my text and note, first, that JESUS DEALT WITH THE PALSIED MAN IN a TRULY ROYAL AND DIVINE WAY.
 
 The bearers of the man sick of the palsy, had broken through the tiling, whatever that may have been, to get him near the Savior. They had dropped him down over the heads of the eager throng and there he lay upon his pallet before Christ, unable to stir hand or foot, but looking up with that gaze of eager expectancy which Christ so well understood.
 
@@ -22,7 +22,7 @@ Notice, also, that Jesus did absolutely forgive that man--"Son, be of good cheer
 
 This is how Christ behaves towards poor, palsied, sin-bound men and women. He sees their faith and then puts their sin away where it shall be seen no more, forever, for He is King, He is God and He is able to forgive and blot out all iniquity. I have heard of one who, having been under a great sense of sin and being relieved of it, could, for a long time, only cry out, "He is a great Forgiver!" When there were other things to be attended to, he could not see to them, nor speak of any other kind of business but this, "He is a great Forgiver!" I do not feel as if, tonight, I need to say anything else to you but this, "He is a great Forgiver! I have found Him so. Many here have found Him so and all who will trust His great atoning Sacrifice shall also know that He is a great Forgiver."
 
-The second division of my subject diverges a little from the first, but it follows the text, and so it is no real divergence. By His royal and Divine Power, CHRIST READ AND JUDGED MEN'S THOUGHTS. See those scribes, those
+The second division of my subject diverges a little from the first, but it follows the text, and so it is no real divergence. By His royal and Divine Power, CHRIST READ AND JUDGED MEN's THOUGHTS. See those scribes, those
 
 students of the letter of the Word, who know how many letters there are in every Book of the Old Testament and have counted them so accurately that they can tell which is the middle letter! Wonderfully wise men, those! Do you see them? They are very vexed and angry and they think hard thoughts of Christ. They did not dare to speak out what they thought--the people would not have listened to them, just then, if they had spoken, so they held their tongues, but they
 

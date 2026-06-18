@@ -12,13 +12,13 @@ Brothers and Sisters, you will have trials! Thorns, also, and thistles shall the
 
 I should like to say to those here who have their portion in this life, that it is not much of a portion. Thorns, also, and thistles shall it bring forth to you and, if this is all you have, you have a very poor pittance to live upon--
 
-"There is beyond the sky A Heaven of joy and love,"
+"There is beyond the sky a Heaven of joy and love,"
 
 but beneath the sky there is no such Heaven! Even for the godly there are thorns and thistles, but for you who are not godly, thorns and thistles are all that you have! If you have no heritage on the other side of Jordan, in the land of the hereafter, in the dwelling place of the blessed, it were better for you that you had never been born! Notwithstanding all the transient delights that you now possess, they will only be as the crackling of thorns under a pot, soon over, and nothing but a handful of ashes left in everlasting darkness. Oh, that you would learn from this not to set your affection upon things below, but to be looking for a better and a brighter land, where the thorn never grows, and the thistle never springs up!
 
 But now let us come to the handling of our text, thorny though it may seem to be.
 
-And, first, A GENERAL FACT is here stated. This fact we will consider. Ever since that first sin of our first parents, this has been generally true of the whole human race, not only of the earth, literally, but of everything else round about us, "Thorns, also, and thistles shall it bring forth to you."
+And, first, a GENERAL FACT is here stated. This fact we will consider. Ever since that first sin of our first parents, this has been generally true of the whole human race, not only of the earth, literally, but of everything else round about us, "Thorns, also, and thistles shall it bring forth to you."
 
 It is so with regard to the natural world. This world is full of beauty; it is full of light; it yields a thousand pleasures; but still, it is full of terror. There is much, indeed, to distress the frail mortals who live in this world. Have you ever been to sea in a storm? Have you not felt as if Nature were at war with you then? Have you never been on the land in some tremendous thunderstorm, when the whole earth seemed to shake, and the skies were split with the fiery bolts? Ah, then you have felt that this world is not quite a paradise since man has become a sinner! The stars of Heaven do not fight for him, but they sometimes fight against him. There are many things in this world, with its stern laws, that make it a place that has not all the comfort that a creature might wish. He is a sinful creature and although he does not suffer all the discomfort that he deserves, yet this world is changed from what it was when God placed Adam in it to delight himself in Paradise!
 
