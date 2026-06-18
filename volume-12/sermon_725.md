@@ -103,7 +103,7 @@ To publish the doctrine of a reconciled God! To tell men that the Lord has laid 
 
 Gracious God, revive Your work!
 
-And now we close with A POTENT ARGUMENT. He uses the argument of mercy--"in wrath remember mercy." If God were to say to the Churches in England, "I will have nothing to do with you. You have been so idle, so worldly, so purse-proud, so prayerless, so quarrelsome, so inconsistent that I will never bless you again." If God were to say that, the churches of God in England might remain as astounding monuments of the justice of God towards the people who forsake His ways.
+And now we close with a POTENT ARGUMENT. He uses the argument of mercy--"in wrath remember mercy." If God were to say to the Churches in England, "I will have nothing to do with you. You have been so idle, so worldly, so purse-proud, so prayerless, so quarrelsome, so inconsistent that I will never bless you again." If God were to say that, the churches of God in England might remain as astounding monuments of the justice of God towards the people who forsake His ways.
 
 Sorrowfully, not wishing to be an accuser of the Brethren, it does seem to me that considering the responsibilities which were laid upon us, and the means which God has given us, the Church generally, (there are blessed exceptions!), has done so little for Christ that if "Ichabod" were written right across its brow, and it were banished from God's House, it would have its just deserts. We cannot, therefore, appeal to merit--it must be to mercy. O God, have mercy upon Your poor Church, and visit her and revive her. She has but a little strength. She has desired to keep Your Word. Oh, refresh her! Restore to her Your power, and give her yet to be great in this land.
 

@@ -1,4 +1,4 @@
-# Sermon 682 | Future Punishment A Fearful Thing
+# Sermon 682 | Future Punishment a Fearful Thing
 
 > "It is a fearful thing to fall into the hands of the living God."  
 > Hebrews 10:31.  
@@ -73,7 +73,7 @@ I feel like the judge in America, who when he was waited upon by the Universalis
 
 The moral sense of man is not stamped out yet, and while it remains it will in more or less distinct terms declare that "It is a fearful thing to fall into the hands of the living God."
 
-Let me urge you, my dear Hearer, in the second place, NOT TO ATTEMPT TO DEPRIVE YOURSELF OF THE BENEFICIAL EFFECT WHICH A PROPER CONSIDERATION OF THIS DOCTRINE WOULD HAVE UPON YOU.
+Let me urge you, my dear Hearer, in the second place, NOT TO ATTEMPT TO DEPRIVE YOURSELF OF THE BENEFICIAL EFFECT WHICH a PROPER CONSIDERATION OF THIS DOCTRINE WOULD HAVE UPON YOU.
 
 Do not deny the fact, at any rate. If you do, be consistent and deny Scripture altogether. If you doubt the punishment of the future state, doubt the inspiration of Scripture at once--for to doubt one and hold the other is impossible! Do not so violate your own conscience as to dream of sin's escaping punishment. If you should persuade yourself to doubt the existence of Hell, your doubting it will not quench its fires. If there is no Hell hereafter I am as well off as you are, but if there is, where will you be? Take it on the most common supposition--I have two strings to my bow, you have only one--and that one I believe to be a lie. Oh, my Hearers, if I were to stand here and persuade you that there was no danger, you might very well say, "Then why need you tell us so? Why be in earnest when there is nothing to be in earnest about?"
 

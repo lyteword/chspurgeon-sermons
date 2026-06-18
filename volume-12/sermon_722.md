@@ -29,7 +29,7 @@ The willingness of Jesus! Let us see it clearly, and let us reverently adore Him
 
 Let us never enter upon Christian exercises as a slave would enter upon his labor, hearing the crack of the whip behind him. But let love put wings to our feet and inspire our souls with a sacred alacrity, that as the seraphs fly upon the high behests of Heaven, we may run upon our Savior's commands with as much swiftness as mortals can command. Let our duty be our delight! Let the service of Christ be a kingdom to us! Let us count it to be our highest gain to suffer loss for Him, and our greatest ease to be fully immersed in abundant labors for His sake. His willing sacrifice ought to ensure our willing sacrifice. The Savior bleeds freely like the camphor tree that needs no pressure--let us as freely, from our very hearts, pour forth our love and all the kindred graces and deeds of virtue.
 
-Turning from this thought, I beg you, secondly, to notice OUR LORD'S CARE FOR HIS PEOPLE IN THE
+Turning from this thought, I beg you, secondly, to notice OUR LORD's CARE FOR HIS PEOPLE IN THE
 
 HOURS OF HIS GREATEST DISTURBANCE OF MIND. "If you seek Me, let these go their way." That word was intended, in the first place, to be a preservation for His immediate attendants. It is singular that the Jews did not surround that little handful of disciples, put them in prison, and then execute them in due season. If they had done so, where would have been the Christian church?
 

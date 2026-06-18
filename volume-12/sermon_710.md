@@ -79,7 +79,7 @@ Sinner! It is far otherwise with you! Your ruin is sure when the testing time co
 
 I need a few minutes--and I have but too few left--to DRAW THE INFERENCES WHICH FLOW FROM
 
-SUCH A SIGHT AS THIS--and so turn the vision to practical account. Believer in Christ, a word in your ear. Can you see the great white throne, and Him that sits upon it? I think I see it now. Then let me search myself. Whatever profession I may make, I shall have to face that great white throne. I have passed the elders. I have been approved by the pastor. I stand accepted by the Church. But that great white throne is not passed yet.
+SUCH a SIGHT AS THIS--and so turn the vision to practical account. Believer in Christ, a word in your ear. Can you see the great white throne, and Him that sits upon it? I think I see it now. Then let me search myself. Whatever profession I may make, I shall have to face that great white throne. I have passed the elders. I have been approved by the pastor. I stand accepted by the Church. But that great white throne is not passed yet.
 
 1 have borne a reputable character among my fellow Christians. I have been asked to pray in public and my prayers have been much admired, but I have not yet been weighed in the last balances--and what if I should be found wanting! Brother Christian, what about your private prayers? Can you live in neglect of the closet and yet remember that your prayers will be tried before the great white throne? Is your Bible left unread in private? Is your religion nothing but a public show and sham? Remember the great white throne, for mere pretense will not pass there!
 

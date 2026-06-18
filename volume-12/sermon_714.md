@@ -91,7 +91,7 @@ Brothers and Sisters, beware of an unbelieving repentance, for God does not acce
 
 This, then, is the superiority of the Covenant of Grace. It really does sanctify a man, supplying him with motives for holiness. It really does justify and pardon a man, actually and really taking away his sin, so that it is said of him, "His sins and iniquities I will remember no more." We must now, very briefly, glance at the second point.
 
-Secondly, THERE IS A DOCTRINE TAUGHT BY THIS which is to be found in the eighteenth verse, "Now where there is remission of these, there is no longer an offering for sin." We have tried to show from the words of the text that Christ is sufficient to purify us by supplying us with holy motives, and to pardon us by His having Himself atoned for sin. The doctrine, then, is, that THERE IS NO MORE SACRIFICE FOR SIN, BECAUSE CHRIST SUPPLIES ALL THAT IS NEEDED.
+Secondly, THERE IS a DOCTRINE TAUGHT BY THIS which is to be found in the eighteenth verse, "Now where there is remission of these, there is no longer an offering for sin." We have tried to show from the words of the text that Christ is sufficient to purify us by supplying us with holy motives, and to pardon us by His having Himself atoned for sin. The doctrine, then, is, that THERE IS NO MORE SACRIFICE FOR SIN, BECAUSE CHRIST SUPPLIES ALL THAT IS NEEDED.
 
 Just see what a broom this doctrine is to sweep this country from Popery, and to sweep all nations of it! Think, in the first place, of what is called, "the unbloody sacrifice of the 'mass for the quick and the dead.' " What becomes of that? The Apostle says, "Where there is remission of these, there is no longer an offering for sin." Where, then, did the "mass" come from, and of what good is it? The Lord's Supper was intended to be the remembrance to us of our Lord's sufferings, instead of which it has been prostituted by the Church of Rome into the blasphemy of a pretended continual offering up of the body of the Lord Jesus Christ--a continual sacrifice!
 
@@ -121,7 +121,7 @@ My Savior loves sinners! My heavenly Father loves His prodigal children, but He 
 
 He will have you as you are, just as you are--only trust Him! Trust Him, and you shall find that this New Covenant will do for you what the Old Covenant of "Do, do, do," could never do--it will sanctify you and justify you.
 
-Lastly, does not this doctrine ANSWER A QUESTION that has often been propounded to me, namely, HOW IS IT
+Lastly, does not this doctrine ANSWER a QUESTION that has often been propounded to me, namely, HOW IS IT
 
 THAT THERE ARE SO MANY HEARTS WHICH CAN FIND NO PEACE? Some people are always learning, but never coming to the Truth of God. They are good people in many senses, and you are very hopeful that there is a work of Divine Grace in them, but they cannot be happy. They are always dissatisfied and discontented. And they are not only miserable, themselves, but they make other people miserable--and so do mischief to others' souls by their unhappiness.
 

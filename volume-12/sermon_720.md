@@ -13,7 +13,7 @@ To do the same in religion is even more unwise. To say, "You shall all speak aft
 
 Luke did not cease to be Luke when he was called by Divine Grace. He was the same man elevated and refined, and taught to consecrate to noblest ends the gifts which he had acquired in his earthly calling. He was a physician before, and he became "the beloved physician" after his conversion.
 
-The text, as we read it, suggests, in the first place, that THE POWER OF CHRIST IN THE GOSPEL IS MAINLY A POWER TO HEAL. "The power of the Lord was present to heal them." The power of the Gospel, of which Christ is the Sum and Substance, is a healing power. My Brethren, when Christ came on earth He might have come with destroying power. Justly enough might God have sent His only Son with the armies of vengeance to destroy this rebellious world.
+The text, as we read it, suggests, in the first place, that THE POWER OF CHRIST IN THE GOSPEL IS MAINLY a POWER TO HEAL. "The power of the Lord was present to heal them." The power of the Gospel, of which Christ is the Sum and Substance, is a healing power. My Brethren, when Christ came on earth He might have come with destroying power. Justly enough might God have sent His only Son with the armies of vengeance to destroy this rebellious world.
 
 But--
 

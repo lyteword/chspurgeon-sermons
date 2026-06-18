@@ -113,7 +113,7 @@ But some of you do not do it. Some of you neglect prayer in the closet for the C
 
 Oh the untold benefits that come to a Christian Church from the quiet prayerful members--least known on earth but best known in Heaven! Let us have both at work. May the Lord Jesus help us to advance from strength to strength in earnest effort of every kind, and may He at the same time be our strength upon the mountain while we draw near to God's Throne in prayer.
 
-But lastly, THE HISTORY OF THE WHOLE CHRISTIAN CHURCH IS HERE BEFORE US AS IN A
+But lastly, THE HISTORY OF THE WHOLE CHRISTIAN CHURCH IS HERE BEFORE US AS IN a
 
 PICTURE. The sacramental host of God's elect is warring, still, on earth--Jesus Christ being the Captain of their salvation. He has said, "Lo, I am with you always, even to the end of the world." Though this is the dispensation of the Holy Spirit, yet is it not incorrect to say that the Lord Jesus Christ is still at the head of His people? Hark to the shouts of war! Onward come the bands of priest-craft, hooded monks, and shaven priests with an allied host of England's silly clergy arrayed in gaudy vestments and tricked out with childish ornaments!
 

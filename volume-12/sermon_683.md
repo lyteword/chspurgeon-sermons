@@ -115,7 +115,7 @@ Such is every Believer. He has been begotten again unto a lively hope by the res
 
 Believers, also, have made discoveries in the vast desert of their own nature and have found out the source of the eternal love of God. They can sing with Kent--
 
-"A monument of Grace, A sinner saved by blood. The streams of love I trace, Up to their fountain, God. And in His mighty breast I see, Eternal thoughts of love to me."
+"A monument of Grace, a sinner saved by blood. The streams of love I trace, Up to their fountain, God. And in His mighty breast I see, Eternal thoughts of love to me."
 
 It is better than finding out the source of fifty Niles, to find out my name inscribed upon the heart of God and to find myself chosen and dear to God! Truly then, though we are little and despised, we can say without any exaggeration, "your gentleness has made me great."
 
