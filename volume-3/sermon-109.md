@@ -1,4 +1,4 @@
-# Sermon 109 | Going Home&mdash;A Christmas Sermon
+# Sermon 109 | Going Home&mdash;a Christmas Sermon
 
 > Go home to thy friends, and tell them how great things the Lord hath done for thee, and hath had compassion on thee.    
 > Mark 5:19

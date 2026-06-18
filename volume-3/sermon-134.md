@@ -45,7 +45,7 @@ You may decide for him merely as an outward form, but not as an inward spiritual
 > And heal it, if it be."    
 > "O sovereign grace, my heart subdue;    
 > I would be led in triumph too,    
-> A willing captive to my Lord,    
+> a willing captive to my Lord,    
 > To sing the triumphs of his word.    
 
 And it may be, that whilst I speak, the mighty fire, unseen by men, and unfelt by the vast majority of you, shall descend into some heart which has of old been dedicated to God by his divine election, which is now like an altar broken down, but which God, by his free grace, will this day build up. O! I pray that that influence may enter into some hearts, that there may be some go out of this place, saying,

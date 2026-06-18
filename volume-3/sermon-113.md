@@ -1,4 +1,4 @@
-# Sermon 113 | Confession of Sin&mdash;A Sermon With Seven Texts
+# Sermon 113 | Confession of Sin&mdash;a Sermon With Seven Texts
 
 My sermon this morning will have seven texts, and yet I pledge myself that there shall be but three different words in the whole of them; for it so happens that the seven texts are all alike, occurring in seven different portions of God's holy Word. I shall require, however, to use the whole of them to exemplify different cases; and I must request those of you who have brought your Bibles with you to refer to the texts as I shall mention them.
 

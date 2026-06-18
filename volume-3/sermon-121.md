@@ -16,7 +16,7 @@ What a history is the history of the Jew! He has antiquity stamped upon his fore
 He claims a high dignity above us, and he has a history to come which will be greater and more splendid than the history of any nation that has yet existed. If we read the Scriptures aright, the Jews have a great deal to do with this world's history. They shall be gathered in; Messiah shall come, the Messiah they are looking for&mdash;the same Messiah who came once shall come again&mdash;shall come as they expected him to come the first time. They then thought he would come a prince to reign over them, and so he will when he comes again. He will come to be king of the Jews, and to reign over his people most gloriously; for when he comes, Jew and Gentile will have equal privileges, though there shall yet be some distinction afforded to that royal family from whose loins Jesus came; for he shall sit upon the throne of his father David, and unto him shall be gathered all nations. O!
 
 > Ye chosen seed of Israel's race,    
-> A remnant weak and small,    
+> a remnant weak and small,    
 
 ye may indeed,
 

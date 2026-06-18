@@ -79,7 +79,7 @@ O sinner, thou canst never perish, if thou wilt cast thyself at the foot of the 
 > Now, freed from sin I walk at large;    
 > My Saviour's blood's a full discharge    
 > At his dear feet my soul I lay,    
-> A sinner saved, and homage pay.    
+> a sinner saved, and homage pay.    
 
 And O! my heart pants for you. O that you who never knew him could taste his love now. O that you who have never repented might now receive the Holy Ghost who is able to melt the heart! And O that you who are penitents would look to him now! And I repeat that solemn assertion&mdash;I am God's hostage this morning; ye shall feed me on bread and water to my life's end, ay, and I will bear the blame for ever, if any of you seek Christ and Christ rejects you. It must not, it can not be. "Whosoever cometh," he says, "I will in no wise cast out." "He is able to save to the uttermost them that come unto God by him." May God Almighty bless you; and may we meet again in yonder Paradise; and there will we sing more sweetly of redeeming love and dying blood, and of Jesus' power to save
 
