@@ -48,7 +48,7 @@ The drift of the argument is this--if God dwells in us, let us make the house cl
 
 Divinely adopted into the family of the Most High and made heirs of God, and joint-heirs with Jesus Christ, what need is there of further argument to constrain us to holiness? You see the, "therefore." It means just this--because we have attained to such choice and special privileges, "therefore"--for this reason, "let us cleanse ourselves from all filthiness of the flesh and spirit."
 
-The text goes on to DESCRIBE THE CHRISTIAN AS AIMING AT A MOST EXALTED POSITION--
+The text goes on to DESCRIBE THE CHRISTIAN AS AIMING AT a MOST EXALTED POSITION--
 
 "Perfecting holiness."
 

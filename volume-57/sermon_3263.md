@@ -22,7 +22,7 @@ The obedience which seeks to know the Lord's will also INDICATES THE TRUEST SINC
 
 A man who is not sincere in his obedience may conform to the regular order of that which he knows to be prescribed, but only the sincere man will seek to find out matters he is not yet acquainted with. Which is the better servant--the man who must always have his orders written for him every morning and who at night excuses himself for the neglect of many an obvious duty because, as he says, "It was not down on the paper, Sir. I have followed your instructions"--is he the better servant, or the other man who thinks after he has obeyed his orders, "What ought I to do for my master? Is there not this thing, or that thing which, though it may not be absolutely recorded or written down, yet is intended in the spirit of my instructions?" Do you not love the child who looks out for occasions and opportunities to please you? Do you not feel a satisfaction in accepting from a friend a kindness which may be almost unexpected and which manifests to you that he must have been thinking about you and has, perhaps, lain awake at night to consider how he could gratify or serve you? You feel that this is sincere friendship! So it is with your service for God. If you do only those duties which I stand here and write out to you so plainly that you cannot help seeing them, why, is there any great forwardness or fidelity of purpose in it? But if you go to that grand old Book and on your knees say to your Lord and Master, "I want to do all that I can to show how my heart loves You--teach me what You would have me do," this manifests a sincerity which is indisputable!
 
-Again, is not the seeking out of the Divine commands A PROOF OF AN INTENSE AFFECTION?
+Again, is not the seeking out of the Divine commands a PROOF OF AN INTENSE AFFECTION?
 
 Common affection will do what it must, but intense affection will do all it can. A vehement enthusiasm, a constraining love, such as that which Jesus Christ deserves of us, says--
 
@@ -41,7 +41,7 @@ search and pry into things which are not so clear until he has grown and had his
 
 not that I may cringe at the foot of the priest and lower myself into a beast of burden to be driven wherever those incarnations of evil spirits may goad me on! No, but You have made me a man and given me mind, thought, capacity--and You have put into my hands a Book which I can understand, and here I am--assist me while I bow this judgment to Your sway, and teach me what Your mind is." God would have us all educated for the skies. We are here but minors. I trust, however, we have, many of us, passed our infancy! We are getting something beyond the mere first childhood of Grace and now we seek to know, and to practically know, the Lord's will and mind respecting us! If you would always be babes, then sit still and have this word and that put into your mouths, forms of prayer composed for your use and unintelligible creeds compiled for you to repeat! But if you would grow into men in Christ Jesus, come to the Book and keep and seek out the commands of God with full purpose of heart to obey them!
 
-I KNOW THERE WILL BE A GREAT MANY EXCUSES MADE.
+I KNOW THERE WILL BE a GREAT MANY EXCUSES MADE.
 
 In these days, people do not read their Bibles much. One reason why Romanism is popular is because it allows a man to get a deputy to do his thinking for him--and to do his praying for him. But what a poor affair it is with the man who keeps his brains in somebody else's head and carries his heart in somebody else's bosom! Are there not many of you who do not read the Word of God? We stand up as Protestants and say, "The Bible, and the Bible, alone, is the religion of Protestants!" And yet what multitudes never think of reading it! They hear a Chapter read in public service and, perhaps now and then, read a chapter at home. But as to downright studyof the Word and searching out the Divine meaning, I do believe that is an exercise to which many professors are totally unaccustomed! They do not engage in it regularly and constantly, nor come to it as a daily duty and a daily privilege. Indeed, their great theme is unsectarianism. Unsectarian-ism! That is the correct thing nowadays--unsectarianism! Which, being translated means--it does not signify which is which, whether it is right or wrong, it matters not one atom whether you obey God or obey man, whether you belong to a Church which is apostate from the Truth, or one that holds the Truth of God! Unsectarianism, my Friends, is treason
 
@@ -109,7 +109,7 @@ Moreover whom He did predestinate, them He also called: and whom He called, them
 
 31, 32. What shall we then say to these things? If God is for us who can be against us? He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also give us all things?'After having given us His own Son, what is there that He can withhold from us if it is for our real good? No, He has already virtually given us all
 
-things in giving Him to us! [See Sermons #159, Volume 3--THE TRUE CHRISTIAN'S BLESSEDNESS; #355, Volume 7--PORTRAITS OF CHRIST; #1043, Volume 18--GLORIOUS PREDESTINATION; #241, Volume 5--PREDESTINATION AND CALLING and #627, Volume 11--JUSTIFICATION AND GLORY]
+things in giving Him to us! [See Sermons #159, Volume 3--THE TRUE CHRISTIAN's BLESSEDNESS; #355, Volume 7--PORTRAITS OF CHRIST; #1043, Volume 18--GLORIOUS PREDESTINATION; #241, Volume 5--PREDESTINATION AND CALLING and #627, Volume 11--JUSTIFICATION AND GLORY]
 
 33, 34. Who shall lay anything to the charge of God's elect? It is God that justifies. Who is it that condemns? It is
 
@@ -137,4 +137,4 @@ present, nor things to come, nor height, nor depth, nor any other creature shall
 
 God which is in Christ Jesus our Lord. Paul had good reason for being persuaded that there was no separation for those
 
-for whom there was no condemnation! May we be among them by God's Grace! Amen. [See Sermons #256, Volume 5--the believer's CHALLENGE; #2240, Volume 38--A CHALLENGE AND A SHIELD; #751, Volume 13--MORE THAN CONQUERORS and #2492, Volume 42--PAUL'S PERSUASION.]
+for whom there was no condemnation! May we be among them by God's Grace! Amen. [See Sermons #256, Volume 5--the believer's CHALLENGE; #2240, Volume 38--a CHALLENGE AND a SHIELD; #751, Volume 13--MORE THAN CONQUERORS and #2492, Volume 42--PAUL's PERSUASION.]

@@ -10,7 +10,7 @@ Our text is rather an extraordinary one, yet it represents the experience of man
 
 You notice in the text, first, a complex condition--here is a man afraid and yet he is trusting. Then we will look at the natural side of this condition--"I am afraid." And then we will look at the gracious side--"I will trust in You."
 
-Notice, first, then, that here is David in A COMPLEX CONDITION. He says, "I am afraid," yet with the same breath he says, "I will trust in You." Is not this a contradiction? It looks like a paradox. Paradox it may be, but contradiction it is not! What strange creatures we are! I suppose every man is a trinity, certainly every Christian is--spirit, soul and body--and we may be in three states at once. And we may not know which of the three is our real state! The whole three may be so mixed up that we become a puzzle to ourselves. Though certain mental philosophers would say that I flagrantly err in asserting that such a thing can be, yet nevertheless I am quite certain that it is a very common experience of the child of God!
+Notice, first, then, that here is David in a COMPLEX CONDITION. He says, "I am afraid," yet with the same breath he says, "I will trust in You." Is not this a contradiction? It looks like a paradox. Paradox it may be, but contradiction it is not! What strange creatures we are! I suppose every man is a trinity, certainly every Christian is--spirit, soul and body--and we may be in three states at once. And we may not know which of the three is our real state! The whole three may be so mixed up that we become a puzzle to ourselves. Though certain mental philosophers would say that I flagrantly err in asserting that such a thing can be, yet nevertheless I am quite certain that it is a very common experience of the child of God!
 
 It is even quite possible for us to find two minds and two wills--two sets of facilities within ourselves clashing and jarring and warring and contending with one another. In a record of some very notable experiences of doctors who attend upon the insane, there is a very singular case described of a man who was always sane regularly one day, as clear in the intellect and intelligent in judgment as any man--but the next day he was always insane. On the day on which he was sane, he used to talk about how the doctor ought to treat him on the morrow, and to express his surprise that he entered into such a state, reasoning in the most practical manner. He seemed to be two men! There is a record of another case, even more remarkable, of a man who would act and speak and think as an intelligent full-grown person, but after sleeping two or three days he would wake up a child, to learn like a child, to walk like a child, to speak like a child, and to all
 
@@ -110,7 +110,7 @@ And Jesus said, Make the men sit down. Now there was much grass in the place. So
 
 10, 11. In number about five thousand. And Jesus took the loaves; and when He had given thanks--[See Sermon #2216,
 
-Volume 37--THE LAD'S LOAVES IN THE LORD'S HANDS.] Among the Jews, it
+Volume 37--THE LAD's LOAVES IN THE LORD's HANDS.] Among the Jews, it
 
 is always the master of the house who gives thanks. They do not call upon a child to say Grace, but the father of the family, like a priest in his own house, stands up and pronounces a blessing upon the food. It is a beautiful thought that Christ
 

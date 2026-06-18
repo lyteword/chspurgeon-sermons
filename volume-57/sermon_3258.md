@@ -102,7 +102,7 @@ He not? Then enjoy His preciousness, all of you who truly believe in Him! Precio
 
 But you are a chosen generation--Hear this, you Believers! Drink in this precious Truth of God! See God's election, making you to be a people born of the Holy Spirit--"a chosen generation"--
 
-A royal priesthood--This is a wonderful combination! Kings and priests at the same time! All honors meet on you through Divine Grace! "A royal priesthood"--
+a royal priesthood--This is a wonderful combination! Kings and priests at the same time! All honors meet on you through Divine Grace! "A royal priesthood"--
 
 An holy nation, a peculiar people--You have national privileges. God reckons you not as a mob or a herd of men, but as a nation, and a nation with this peculiar hallmark upon you, that you are "a holy nation." This is the true token of your nationality that you are "holiness unto the Lord." "A peculiar people" belonging to God alone, marked off from the rest of mankind as peculiarly His! You are not and you are not to be as other men are--you are "a peculiar people." Your road is not the broad one where the many go--it is the narrow one which the few find. Your happiness is not worldly pleasure, but pleasures at the right hand of God which are forevermore. You are "a peculiar people"--
 

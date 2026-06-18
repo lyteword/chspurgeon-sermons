@@ -108,7 +108,7 @@ And their soul shall be as a watered garden. What a delightful simile! It is of 
 
 And My people shall be satisfied with My goodness, says the LORD.What a delightful promise this is! Listen to it and carry it home, all of you who are truly the Lord's people.
 
-Thus says the LORD, A voice was heard in Ramah, lamentation, and bitter weeping; Rachel weeping for her children refused to be comforted for her children, because they were not.There is here a prophetic allusion to the massacre of the infants by Herod at the time of the birth of our Lord. It was a time of sorrow, indeed.
+Thus says the LORD, a voice was heard in Ramah, lamentation, and bitter weeping; Rachel weeping for her children refused to be comforted for her children, because they were not.There is here a prophetic allusion to the massacre of the infants by Herod at the time of the birth of our Lord. It was a time of sorrow, indeed.
 
 17. Thus says the LORD; Refrain your voice from weeping, and your eyes from tears: for your work shall be rewarded, says the LORD: and they shall come again from the land of the enemy. And there is hope in your end, says the LORD, that your children shall come again to their own border. As Rachel is represented as weeping for her children, so is she represented as mourning for the tribes that were carried away into captivity. Yet is she comforted with the Lord's gracious assurance--"they shall come again from the land of the enemy." So they did, and there is to be a glorious future yet for the people of God of the ancient race of Abraham!
 

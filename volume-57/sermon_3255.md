@@ -80,7 +80,7 @@ For the Law of the Spirit of life in Christ Jesus has made me free from the Law 
 
 4. For what the Law could not do, in that it was weak through the flesh, God sending His own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh: that the righteousness of the Law might be fulfilled in us who walk
 
-not after the flesh, but after the Spirit [See Sermons #699, Volume 12--SIN CONDEMNED AND EXECUTED BY CHRIST JESUS and #2228, Volume 37-- THE LAW'S FAILURE AND FULFILLMENT.] If there are any men in the
+not after the flesh, but after the Spirit [See Sermons #699, Volume 12--SIN CONDEMNED AND EXECUTED BY CHRIST JESUS and #2228, Volume 37-- THE LAW's FAILURE AND FULFILLMENT.] If there are any men in the
 
 world who keep the Law of God, they are the very persons who do not hope to be saved by the keeping of it, for they have by faith found righteousness in Christ! And now by love and gratitude they are put under the power of the Law of the spiritual life in Christ and they so live, by God's Grace, that they do manifest the holiness of the Law in their lives.
 

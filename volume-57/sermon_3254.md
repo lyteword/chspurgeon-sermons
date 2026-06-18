@@ -2,7 +2,7 @@
 
 "Christ has redeemed us from the curse of the Law, being made a curse for us: for it is written, Cursed is every one that hangs on a tree." Galatians 3:13.
 
-[Another Sermon by Mr. Spurgeon upon the same text is #873, Volume 15--CHRIST MADE A CURSE FOR US.]
+[Another Sermon by Mr. Spurgeon upon the same text is #873, Volume 15--CHRIST MADE a CURSE FOR US.]
 
 THE Law of God is a Divine Law, holy, heavenly, perfect. Those who find fault with the Law, or in the least degree depreciate it, do not understand its design and have no right idea of the Law itself. Paul says, "We know that the Law is spiritual: but I am carnal, sold under sin." In all that we ever say concerning justification by faith, we never intend to lower the opinion which our hearers have of the Law, for the Law is one of the most sublime of God's works. There is not a commandment too many--there is not one too few! The Law of the Lord is so incomparable that its perfection is a proof of its Divinity. No human lawgiver could have given forth such a Law as this which we find in the Decalogue. It is a perfect Law, for all human laws that are right are to be found in that brief compendium and epitome of all that is good and excellent toward God, or between man and man.
 
@@ -68,7 +68,7 @@ Should there be one here who does not yet understand the Doctrine of Substitutio
 
 for all who believe in Him! All the punishment, all the curse was laid upon Him--now it is all gone forever. Yet it had not gone without having been taken away by the Savior. The thunder has not been reserved, the lightning has been launched at Him! Divine Justice is satisfied because Christ has endured the full penalty of all His people's guilt.
 
-Now we come to answer that last question, HOW MANY OF US CAN SAY THAT CHRIST HAS REDEEMED US FROM THE CURSE OF THE LAW, HAVING BEEN MADE A CURSE FOR US?
+Now we come to answer that last question, HOW MANY OF US CAN SAY THAT CHRIST HAS REDEEMED US FROM THE CURSE OF THE LAW, HAVING BEEN MADE a CURSE FOR US?
 
 The first part of our discourse has been entirely doctrinal, some of you have not cared for it because you did not feel that you were interested in it. It was natural that it should be so. At the reading of a will, does the servant stay to listen? No, for there is nothing for her. But if a man is a son of the testator, how eagerly does he open his ears to catch every sound, that he may know whether the estate has been left to him or not? However badly the lawyer may read the will, he is anxious to hear every word that he may learn if he is to have a portion among the children. Now, Beloved, let us read the will again to see if you are among those for whom Christ was the Substitute. The usual way with most of our congregations is this--they write themselves down as Christ's long before they know whether God has done so or not. You make a profession of religion, you wear a Christian's cloak, you behave like a Christian, you take a seat in a church or a chapel, and you think you are Christianized at once. Yet many in our congregation who fancy that they are Christian, have made a great mistake! Let me beg you not to suppose that you are Believers in Christ because your parents were, or because you belong to an orthodox church. Religion is a thing which we must have for ourselves, and it is a question which we all ought to ask--whether we are savingly interested in the Atonement of Christ and have a portion in the merit of His agonies?
 

@@ -109,7 +109,7 @@ Deliver me from bloodguiltiness, O God, You God of my salvation: and my tongue s
 
 "But surely," says someone, "there is nobody here who needs to pray thatprayer!" Well, there is one in the pulpit, at least, who often feels that he has need to pray it, for what will happen if I preach not the Gospel or if I preach it not with all my heart? It may be that the blood of souls shall be required at my hands! And, my Brothers and Sisters, if anything in your example should lead others into sin, or if the neglect of any opportunities that are presented to you should lead others to continue in their sin till they perish, will not the sin of bloodguiltiness be possible to you? I think you had better, each one, pray David's prayer, "Deliver me from bloodguiltiness, O God, You God of my salvation." "And then, O Lord, if I once get clear of that, 'my tongue shall sing aloud of Your righteousness.'"
 
-O Lord, open You my lips. He is afraid to open them himself lest he should say something amiss. Pardoned sinners are always afraid lest they should err again. [See Sermons #1130, Volume19--THE CHRISTIAN'S GREAT BUSINESS and #713, Volume 12-- SOUL-MURDER--WHO IS GUILTY?]
+O Lord, open You my lips. He is afraid to open them himself lest he should say something amiss. Pardoned sinners are always afraid lest they should err again. [See Sermons #1130, Volume19--THE CHRISTIAN's GREAT BUSINESS and #713, Volume 12-- SOUL-MURDER--WHO IS GUILTY?]
 
 15, 16. And my mouth shall show forth Your praise. For You desire no sacrifice; else would I give it "Whatever there is in the whole world that You desire, I would gladly give it to You, my God."
 

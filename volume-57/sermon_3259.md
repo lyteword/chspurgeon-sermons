@@ -124,7 +124,7 @@ Accounting that God was able to raise him up, even from the dead from which he a
 
 can raise the dead," says Faith, and that is a most comforting Truth of God! O you bereaved ones, wear that ring! [See
 
-Sermons #107, Volume 3--FAITH; #2100, Volume 35--FAITH ESSENTIAL TO PLEASING GOD; #2513, Volume 43--HOW TO PLEASE GOD; #2740, Volume 47-- WHAT IS ESSENTIAL IN COMING TO GOD? and #2147, Volume 46--NOAH'S FAITH, FEAR, OBEDIENCE AND SALVATION.] O you who fear to die, wear that priceless jewel! It will be better than any amulet or talisman that the ancients ever wore!
+Sermons #107, Volume 3--FAITH; #2100, Volume 35--FAITH ESSENTIAL TO PLEASING GOD; #2513, Volume 43--HOW TO PLEASE GOD; #2740, Volume 47-- WHAT IS ESSENTIAL IN COMING TO GOD? and #2147, Volume 46--NOAH's FAITH, FEAR, OBEDIENCE AND SALVATION.] O you who fear to die, wear that priceless jewel! It will be better than any amulet or talisman that the ancients ever wore!
 
 20, 21. By faith Isaac blessed Jacob and Esau concerning things to come. By faith Jacob, when he was dying, blessed both the sons of Joseph and worshipped, leaning upon the top of his staff Faith can bless other people as well as the Believer, himself! It not only brings good cheer into a man's own heart, but it enables him to speak words of love and consolation to his children. Dying Jacob pronounces living blessings upon his sons and upon their sons generation after generation!
 
@@ -140,7 +140,7 @@ By faith the walls of Jericho fell down after they were compassed about seven da
 
 31-33. By faith the harlot Rahab perished not with them that believed not, when she had received the spies with
 
-peace. And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and [See Sermons #1401, Volume 24--JACOB WORSHIPPING ON HIS STAFF; #966, Volume 16--JOSEPH'S BONES; #1421, Volume 24--THE HIDING OF MOSES BY FAITH; #163, Volume 18--MOSES' DECISION and #2030, Volume 34--MOSES--HIS FAITH AND DECISION.]
+peace. And what more shall I say? for the time would fail me to tell of Gideon, and of Barak, and of Samson, and [See Sermons #1401, Volume 24--JACOB WORSHIPPING ON HIS STAFF; #966, Volume 16--JOSEPH's BONES; #1421, Volume 24--THE HIDING OF MOSES BY FAITH; #163, Volume 18--MOSES' DECISION and #2030, Volume 34--MOSES--HIS FAITH AND DECISION.]
 
 of Jephthae, of David also, and Samuel, and of the Prophets who through faith subdued kingdoms, worked righteousness, obtained promises, stopped the mouths of lions--Remember Daniel in the lions' den and then ask yourself, "What is there that faith cannot do?"
 

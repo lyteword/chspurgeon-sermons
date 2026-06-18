@@ -35,7 +35,7 @@ Your righteous Law approves it well." When we feel this, then let us make a prop
 > Show pity, Lord! O Lord, forgive!   
 > Let a repenting rebel live.   
 
-This is also A PLEA FULL OF PITY.
+This is also a PLEA FULL OF PITY.
 
 Though there is weakness, yet there is also power, for weakness is, for the most part, a prevalent plea with those who are strong and good. I trust you could not see on your road home tonight a poor fainting woman, and pass her by. You could not have brought in before your presence a half-starved child who could not drag its weary limbs along without feeling that you must give relief. The mere sight of weakness draws pity. As a certain town was being sacked, one of the rough soldiers is said to have spared a little child, because it said, "Please, Sir, don't kill me, I am so little." The rough warrior felt the urgency of the plea. You may yourselves plead thus with God. "O God, do not destroy me! I deserve it, but oh, I am so little! Turn Your power upon some greater thing and let Your heart move with compassion towards me!"
 
@@ -65,7 +65,7 @@ fro!
 
 Shall I tell another story of the woman who came behind the Master, in the press, and stole a cure by touching His garment? She thought she would receive a curse, but He said--"Be you of good cheer. Your faith has made you whole. Go in peace." It was poor faith--it was very much like unbelief, but yet it was rewarded with a rich acceptance, for He will not break a leaf that is driven to and fro!
 
-Once more, my text is A FAINT PLEA WHICH INVITES FULL SUCCOR.
+Once more, my text is a FAINT PLEA WHICH INVITES FULL SUCCOR.
 
 "Will You break a leaf that is driven to and fro?" O Job! There is much wrapped up in what you have said!
 

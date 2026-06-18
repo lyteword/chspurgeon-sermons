@@ -8,7 +8,7 @@ It is possible that the historical setting of the text is this--that the Jews wh
 
 Without any further preface, I will try to direct your thoughts to these four things. First, a King pre-eminent Secondly, a vision predicted. Thirdly, a peculiar beauty. And, fourthly, a land possessed.
 
-First, dear Friends, we have plainly enough in the text, A KING PRE-EMINENT--"Your eyes shall see the King." No name is given and no name is needed. It is here as it was when the spouse began the Canticles by singing, "Let Him kiss me with the kisses of His mouth." There was no need to say to whom she was referring, for the chaste bride wanted no kisses from anyone but her Beloved!
+First, dear Friends, we have plainly enough in the text, a KING PRE-EMINENT--"Your eyes shall see the King." No name is given and no name is needed. It is here as it was when the spouse began the Canticles by singing, "Let Him kiss me with the kisses of His mouth." There was no need to say to whom she was referring, for the chaste bride wanted no kisses from anyone but her Beloved!
 
 I am speaking to those who know the Lord and, therefore, I say to them--You know, Beloved, that our Lord Jesus is King by Divine right. He is the brightness of His Father's Glory and the express Image of His Person. God has appointed Him heir of all things, and by Him God made the worlds. "For by Him were all things created that are in Heaven, and that are in earth, visible and invisible, whether they be thrones, or dominions, or principalities or powers: all things were created by Him, and for Him: and He is before all things, and by Him all things consist." He "is the blessed and only Potentate, the King of kings, and Lord of lords." Well did the inspired Prophet write concerning Him, "The government shall be upon His shoulder: and His name shall be called Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace. Of the increase of His government and peace there shall be no end." It is by His permission that other kings reign! And when He pleases, He can in a moment remove the mightiest monarchs from their throne! He is the only Sovereign who is King by Divine right--the absolute Disposer of all events, to whom all power in
 
@@ -31,7 +31,7 @@ I must not forget to remind you that our Lord Jesus Christ is still King in His 
 
 "Bring forth the royal diadem, And crown Him Lord of all!"
 
-Now, secondly, we have A VISION PREDICTED--"Your eyes shall see the King."
+Now, secondly, we have a VISION PREDICTED--"Your eyes shall see the King."
 
 Mark well that this is not a vision to be seen by you who have never looked to Christ by faith and who have never trusted to His precious blood to cleanse you from your sin! The sight of the glorified Savior is only for those who have looked upon the dishonored Savior hanging on the Cross of Calvary--it is their eyes that "shall see the King in His beauty."
 
@@ -68,7 +68,7 @@ I will add only one more characteristic of this vision of Christ--it will be an 
 
 Ah, well, that everlasting Sabbatismos--that eternal keeping of Sabbath may be nearer than you think! And when once you enter into that blessed state, you will remain in it forever. "Your eyes," my poor Brother or Sister, "shall see the King in His beauty," and you shall never lose that rapturous vision!
 
-Time fails me, so I must go on to the third point, A PECULIAR BEAUTY--"Your eyes shall see the King in His beauty."
+Time fails me, so I must go on to the third point, a PECULIAR BEAUTY--"Your eyes shall see the King in His beauty."
 
 Now, the "beauty" of a king consists, first, in his person, so you shall see the beauty of Christ's Person. It is delightful to think of the priestly, prophetic and royal offices of our Lord Jesus Christ, but our choicest meditations must ever cluster around His blessed Person. All His garments smell of myrrh, aloes and cassia. His name is as ointment poured forth, but He, Himself, is "altogether lovely." It is no phantom, no shadow at which we are to look, but we are to see the King, Himself--that King who once was the Babe in Bethlehem, the Carpenter at Nazareth--who went about doing good, preaching the Gospel, healing the sick, raising the dead, feeding the fainting multitudes--that same Jesus who agonized in Gethsemane and died on Calvary--this is the King whom we are to see in all the Glory of His combined Deity and Humanity, very God of very God, yet just as truly Man!
 
@@ -92,7 +92,7 @@ Further, the "beauty" of a king sometimes consists in the splendor of his court 
 
 "With them numbered may we be,
 
-Now and through eternity!" IV. Now I close with but a brief mention of A LAND POSSESSED.
+Now and through eternity!" IV. Now I close with but a brief mention of a LAND POSSESSED.
 
 Read the text thus, "the land that is very far off' from sinners. They look upon this world as something that is present to their senses, but they regard the world to come as so "very far off " that it hardly seems to concern them at all! They take no more interest in the "Land that is very far off" than a poor farmer in a country village takes in some Republic in South America of which he has only heard the name. They know no more about Heaven than swine know about the stars in the firmament, perhaps not as much, for the swine can see the stars, but Heaven is "very far of" from sinners so long as they remain in their sins! Yet if they will but leave their sins and look to Jesus in all the beauty of His substitutionary Sacrifice for the guilty, that far-off land shall be brought very near to them and, in God's good time, they shall enter it and abide there forever and ever!
 
@@ -165,12 +165,12 @@ COMFORTING HIS PEOPLE.] Well may Heaven and Earth and mountains sing when they h
 
 15, 16. Can a woman forget her sucking child, that she should not have compassion on the son of her womb? Yes, they may forget, yet will 1not forget you. Behold, I have engraved you upon the palms of My hands. [See Sermons #512, Volume
 
-9--A PRECIOUS DROP OF HONEY and #2672, Volume 46--NEITHER FORSAKEN NOR FORGOTTEN.] However unnatural an earthly mother may prove to be, God will never forsake or forget one of His children--
+9--a PRECIOUS DROP OF HONEY and #2672, Volume 46--NEITHER FORSAKEN NOR FORGOTTEN.] However unnatural an earthly mother may prove to be, God will never forsake or forget one of His children--
 
 "'Yet,'says the Lord, 'should Nature change And mothers, monsters prove, Sion still dwells upon the heart Of everlasting love.
 
 16-21. Your walls are continually before Me. Your children shall make haste, your destroyer and they that make you waste shall go forth from you. Lift up your eyes round about, and behold: all that gather themselves together, and come to you. As I live, says the LORD, you shall surely clothe yourselves with them all, as with an ornament, and bind them on you, as a bride does. For your waste andyour desolate places, and the land ofyour destruction, shall even now be too narrow by reason of the inhabitants, and they that swallowed you up shall be far away. The children which you shall have, after you have lost the other, shall say again in your ears, The place is too strait for me, give place to me that I may dwell. Then shall you say in your heart, Who has begotten me these, seeing I have lost my children, and am desolate, a captive and moving to and fro? And who has brought up these? Behold, I was left alone; these, where had they been? [See
 
-Sermons #2692, Volume 46--CHURCH INCREASE and #2776, Volume 48--THE CHURCH A MOTHER.] Oh, that we might often have such a glad surprise as this and be made to marvel at the Lord's gracious dealings with us!
+Sermons #2692, Volume 46--CHURCH INCREASE and #2776, Volume 48--THE CHURCH a MOTHER.] Oh, that we might often have such a glad surprise as this and be made to marvel at the Lord's gracious dealings with us!
 
 22-26. Thus says the Lord GOD, Behold, I will lift up My hand to the Gentiles, and set up My standard to the people: and they shall bring your sons in their arms, andyour daughters shall be carried upon their shoulders. And kings shall be your nursing fathers, and their queens your nursing mothers: they shall bow down to you with their face toward the earth, and lick up the dust ofyour feet, andyou shallknow that I am the LORD: for they shall not be ashamed that wait for Me. Shall the prey be taken from the mighty, or the lawful captive delivered? But thus says the LORD, Even the captives of the mighty shall be taken away, and theprey of the terrible shall be delivered: for I will contend with him that contends with you, and I will save your children. And I will feed them that oppress you with their own flesh; and they shall be drunk with their own blood, as with sweet wine: and all flesh shall know that I the Lord am your Savior and your Redeemer, the Mighty One of Jacob. The enemies of the Lord's people are His enemies, too, and He will overthrow them in His own good time--and make the whole world know that He is their Savior and Redeemer, the Mighty One of Jacob!

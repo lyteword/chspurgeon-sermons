@@ -6,7 +6,7 @@ WHEN a person is very ill, one of the greatest kindnesses that you can show to h
 
 I propose, this evening, as God shall enable me, to give you some of my experience. Indeed, I think that what I shall have to say will describe the experience of most of those who have been led to understand their state as spiritually sick, and who have been guided to the Great Physician and have found out how He works a complete and permanent cure. I have no doubt that this Psalm refers to actual bodily sickness and that it teaches us that we ought to praise the Lord very heartily whenever we are restored from any illness. It is no small mercy to have life preserved and health restored, especially if the end of life would be to us the beginning of eternal death and that our soul, when separated from the body, would have no "better land" to enter, and no right to a place in the home of the blessed where sickness is unknown! But while I think that the Psalm refers to bodily sickness, I am fully persuaded that it also applies to spiritual sickness and that we shall act in accordance with the mind of the Spirit if we consider the text as first, describing the spiritually sick Then, as showing the means by which they are cured. And lastly, as revealing what they do after they are cured.
 
-So, first, we have in the text A DESCRIPTION OF THOSE WHO ARE SPIRITUALLY SICK.
+So, first, we have in the text a DESCRIPTION OF THOSE WHO ARE SPIRITUALLY SICK.
 
 First, we are told their name. It is not a complimentary one--"Fools." But it is a name which they richly deserve! At least I know that I deserved it when I was in their case. God never calls a man a fool unless he is one. Why, then, are unconverted sinners rightly called fools?
 

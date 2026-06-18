@@ -36,7 +36,7 @@ Are you, my Friend, one who has cried for mercy long and found it not? Have you 
 
 Note, then, that this blind man is an example to us because he did not take much notice of discouragements, whatever they were. He had within himself a spring of action which none could dry up! He was resolved to draw near to the Great Physician and put his case into His hands. O my dear Friend, let this be your firm determination and you, too, shall yet be saved!
 
-Observe, in the second place that there came a change over the scene. "Jesus stood still and commanded him to be called." Here we see him under a warmer and brighter light for a moment, and we remark that AFTER A WHILE HE RECEIVED ENCOURAGEMENT.
+Observe, in the second place that there came a change over the scene. "Jesus stood still and commanded him to be called." Here we see him under a warmer and brighter light for a moment, and we remark that AFTER a WHILE HE RECEIVED ENCOURAGEMENT.
 
 The encouragement was not given to him by our Lord, but by the same persons who had formerly rebuked him. Christ did not say to him, "Be of good comfort," because the man was not in need of such a word. He was by no means backward, or disconsolate, or staggered by the opposition he had met with. Jesus Christ said, "Be of good cheer" in the case of the poor paralytic man who was let down by cords from the roof because he was sad at heart. But this man was already of good courage and, therefore, the Savior gave him no superfluous consolation. The onlookers were pleased with the hope of seeing a miracle and so offered their encouragements which were not of any great worth or weight since they came from lips which a few minutes before had been singing quite another tune!
 
@@ -99,13 +99,13 @@ out of its precepts. [There is a Sermon by Mr. Spurgeon upon the whole of this p
 
 But he, willing to justify himself said unto Jesus, And who is my neighbor?He probably meant to say, "I have not any neighbors. I have no near relations. My father and mother are dead and gone, I have no brothers and sisters, and therefore I may be excused from the duty of loving anyone else as I love myself." Jesus did not answer the lawyer's question, "Who is my neighbor?" He did not turn the eyes of the man to the poor mendicants who needed charity, but he made him look at himself.
 
-30, 31. And Jesus answering said, A certain man went down from Jerusalem to Jericho, and fell among thieves, who stripped him of his raiment, and wounded him, and departed, leaving him half dead. And by chance there came down a certain priest that way: and when he saw him, he passed by on the other side.This priest had been up to the Temple to perform his part of the service--he was much too good, in his own opinion, to go and touch a man who was wounded! "He passed by on the other side."
+30, 31. And Jesus answering said, a certain man went down from Jerusalem to Jericho, and fell among thieves, who stripped him of his raiment, and wounded him, and departed, leaving him half dead. And by chance there came down a certain priest that way: and when he saw him, he passed by on the other side.This priest had been up to the Temple to perform his part of the service--he was much too good, in his own opinion, to go and touch a man who was wounded! "He passed by on the other side."
 
 And likewise a Levite, when he was at the place, came and looked on him. He did a little more than the priest, who would not even cross the road.
 
 32-34. And passed by on the other side. But a certain Samaritan, as he journeyed, came where he was: and when he saw him, he had compassion on him and went to him, and bound up his wounds, pouring in oil and wine, and set him on his own beast--Denying himself, therefore, because, of course, he had to walk--
 
-34, 35. And brought him to an inn, and took care of him. And on the morrow when he departed, he took out two pence A much more valuable sum than two pence of our money--
+34, 35. And brought him to an inn, and took care of him. And on the morrow when he departed, he took out two pence a much more valuable sum than two pence of our money--
 
 35, 36. And gave them to the host, and said unto him, Take care of him; and whatever you spend more, when I come again, I will repay you. Which now of these three, think you, was neighbor unto him that fell among the thieves?He might have said, "The Samaritan," but he would not, for the Jews hated them.
 

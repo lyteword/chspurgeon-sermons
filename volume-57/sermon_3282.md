@@ -38,7 +38,7 @@ Note also the acceptability of prayer. God has made provision for ensuring the a
 
 think that you are numbered among the saints at all, do not imagine because you could not put two sentences together at the Prayer Meeting that, therefore, your prayers do not reach the ear and heart of God. I can assure you that your petitions are put into the golden censer just as surely as were those of John, the beloved Apostle to whom this wondrous Revelation was given! And when the sacred fire is applied to them, they yield as sweet a fragrance to the Most High as do the supplications of the greatest and noblest of the Lord's children. According to the text, the smoke of the incense ascended up before God with the prayers of all the saints--none of them would have been acceptable without the incense--but with the incense all ascended up before God.
 
-Now, secondly, I must speak briefly concerning JESUS CHRIST'S INTERCESSION.
+Now, secondly, I must speak briefly concerning JESUS CHRIST's INTERCESSION.
 
 And first I beg you to notice what a fit Person Jesus Christ is to intercede for us. He is Man. He knows the imperfection of our prayers, He understands our needs and frailties and can sympathize with us in presenting our petitions before His Father's Throne. He is Man who has finished His own work and can, therefore, take our work into His hands and bring it to perfection. He is always acceptable to His Father, so that when He presents our case before His Father's Throne, He has such a claim to be heard because of all that He has done and suffered--that His advocacy of our case must prevail! Moreover, He is also God, "the Only-Begotten of the Father, full of Grace and Truth." If I can have the well-beloved Son of God to plead for me, what other intercessor can I need? Is He not the best Advocate of whom your heart can conceive? No, more--if He had not told you that it is so, could you have ever dreamed that He, who is the brightness of His Father's Glory and the express image of His Person, would have condescended to become intercessor for such worthless worms as we are? O You glorious Christ, in Your wondrous Person as both Man and God we worship You with all our hearts! And we bless the Lord that You are our Great High Priest with the golden censer, into which our poor prayers shall be put and then, when perfumed with the much incense of Your wondrous intercession, shall be presented acceptably before Your Father in Heaven!--
 
@@ -48,7 +48,7 @@ In ourImmnanuel's heart!
 
 He condescends to act
 
-A Mediator's part.
+a Mediator's part.
 
 He is our Friend and Brother, too,
 
@@ -70,7 +70,7 @@ faulty, and the petition, itself, is not very plain. So I say to the petitioners
 
 The text says that there was given to the angel "much incense, that he should offer it with the prayers of all saints upon the golden altar which was before the throne." There is little enough of our prayers in the golden censer that is in Christ's hand, but He adds much of His merit to them and so makes them acceptable to His Father. As the smoke of the incense ascends up before God, perhaps you say, "I never thought that my prayer would smell as sweetly as that." No, it would not have done so by itself, but Jesus Christ added the "much incense" to it and thatmake it so fragrant. When you say, "My prayer is so poor that it will never prevail with God," you do not know what it will be when Christ has added His intercession to it! If you could pray a prayer that seemed to you a thousand times better than those you now present, I am not sure that it would not really be any better. If you said to yourself, "There, that prayer will do, it will find its way to God all by itself," I am certain that it would never reach the Throne of God! But if, when we have prayed, we feel that we must have Christ's intercession to make our prayers acceptable, He will add the "much incense" to our poor petitions and so they shall prevail with God!
 
-Now, lastly, and very briefly, notice THE RESULT OF THE BLENDING OF CHRIST'S INTERCESSION WITH HIS PEOPLE'S PRAYERS.
+Now, lastly, and very briefly, notice THE RESULT OF THE BLENDING OF CHRIST's INTERCESSION WITH HIS PEOPLE's PRAYERS.
 
 When the "much incense" was offered with the prayers of the saints upon the golden altar which was before the Throne of God, we are told that "the smoke of the incense, which came with the prayers of the saints, ascended up before God." And, Christian, you may have what you will of God if you know how to get the "much incense" of Christ's intercession put with your prayers! Church of God, you may utterly rout your foes if you can pray after this fashion! If our prayers have prevailed with God, they will certainly prevail against all our adversaries! The Spartans called their spears their walls, and Christians may well call their prayers their walls. There is a secret of prevailing in prayer which you may know to your heart's comfort if you will learn the lesson of our text, and then, as your prayer is presented by Christ to His Father, the answer will come down in blessings which many others will be glad to share with you.
 

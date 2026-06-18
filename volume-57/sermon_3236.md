@@ -10,7 +10,7 @@ In attempting to obey the precept of the text, I am going to speak upon three to
 
 So, first, THERE IS MOST COMFORTING CORDIAL IN THE GOSPEL. Dr. Watts truly sings--
 
-"Salvation! Oh, the joyful sound! 'Tis pleasure to our ears A sovereign balm for every wound, A cordial for our fears."
+"Salvation! Oh, the joyful sound! 'Tis pleasure to our ears a sovereign balm for every wound, a cordial for our fears."
 
 I will take, first, the case of a true Believer in Jesus who is sorely tried with cares and losses and crosses. I will suppose that you have come in here, tonight, dreading what may happen to you tomorrow. Perhaps your trouble, my Brother, is that your business is failing and that need is staring you in the face. Possibly you, my Sister, are sorrowing over that dear child who lies in her little coffin in the quiet room upstairs at home. Or it may be that you, my Friend, have a sick wife and, day by day you see fresh signs and tokens of the great loss that is surely awaiting you. I cannot mention all the causes of sad heart in the believing members of this great assembly, but my Master has sent me here with His own blessed cordial which is more than sufficient to comfort every sorrowing saint here!
 

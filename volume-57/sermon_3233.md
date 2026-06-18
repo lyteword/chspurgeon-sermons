@@ -2,7 +2,7 @@
 
 "Is not this a brand plucked out of the fire?" Zechariah 3:2.
 
-[Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11--ZECHARIAH'S VISION OF JOSHUA THE HIGH PRIEST.]
+[Another Sermon by Mr. Spurgeon on verses 1 to 5 is Sermon #611, Volume 11--ZECHARIAH's VISION OF JOSHUA THE HIGH PRIEST.]
 
 IT may be well to explain these words, for simple as they are, a few words of exposition may be useful to open up the metaphor and enforce the thrilling Truth of God that underlies it.
 
@@ -64,7 +64,7 @@ And when, in the midst of many a conflict and soul-struggle, the heart flings aw
 
 I would invite you to think over these signs of Grace and if you see them in yourselves, may you ask the question, and be able to answer it with joy, "Is not this a brand plucked out of the fire?"
 
-And lastly, WHAT A QUESTION OF DEFIANCE THIS IS!
+And lastly, WHAT a QUESTION OF DEFIANCE THIS IS!
 
 Do you not catch the idea of the text? There stood Joshua, the High Priest. There stood the angel of the Lord and there stood Satan. The adversary began to attack Joshua, but the angel of the Lord said to him, "'The Lord rebuke you, O Satan; even the Lord that has chosen Jerusalem rebuke you: Is not this a brand plucked out of the fire?' What have you to do with him? If God has plucked him out of the fire, you can never put him in again. Seeing God has plucked him out of the fire, go your way and mind your own business! You have nothing to do with this saved soul, this elect vessel, this one whom God has chosen, in whom the Spirit's power has shown itself! He has plucked him out of the fire! Go your way, Satan, and leave this soul alone!"
 
