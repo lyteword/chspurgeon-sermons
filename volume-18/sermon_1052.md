@@ -20,7 +20,7 @@ Now, let this be taken as a plain statement of our belief as to the Lord's work 
 > To form the heart anew.   
 > To chase the shades of death a way,   
 > And bid the sinner live!   
-> A beam of Heaven, a vital ray   
+> a beam of Heaven, a vital ray   
 > 'Tis Yours alone to give.   
 
 And, having said this, we proceed to bear witness that what can be done by us ought to be done, since what can be done by man will not be done by Christ. It is a rule with our Lord never to work needless miracles. Indeed, He only
@@ -108,7 +108,7 @@ We will mention one more stone, and that is despair. Some men are not only spiri
 
 I exhort you, dear fellow laborers in Christ, yourselves saved, to do all that lies in you to take away every one of these hindrances from sinners' souls, and then pray the Lord to speak the quickening Word!
 
-But my time goes too swiftly, and therefore I must come to my second point with brevity. AFTER A MAN IS CONVERTED he labors under many disabilities, and Christian love should help him. When lambs are born the shepherd takes care of them. Christ's word is, "Feed My lambs." When plants are put into the ground they must be watered. It is not enough that the child is born--it needs a mother's care. "Take this child and nurse it for me, and I will give you your wages," is God's word to His people whenever a new convert is born into the Church.
+But my time goes too swiftly, and therefore I must come to my second point with brevity. AFTER a MAN IS CONVERTED he labors under many disabilities, and Christian love should help him. When lambs are born the shepherd takes care of them. Christ's word is, "Feed My lambs." When plants are put into the ground they must be watered. It is not enough that the child is born--it needs a mother's care. "Take this child and nurse it for me, and I will give you your wages," is God's word to His people whenever a new convert is born into the Church.
 
 Lazarus is alive, but he is encumbered with grave clothes and it is the business of those who are his friends to loose him and let him go. New converts need loosing for the sake of their own comfort. It was a very uncomfortable thing for Lazarus to be tied up in his winding-sheets--for his own ease they must be taken off. When a man is saved, perhaps he does not grasp all that is involved in salvation. He thinks, "I am a Christian, but I may fall from Grace." Unwrap that band at once and let him know that the Lord does not cast away His people whom He did foreknow.
 

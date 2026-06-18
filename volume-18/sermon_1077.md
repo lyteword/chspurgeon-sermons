@@ -6,7 +6,7 @@ WITHOUT any preface, (for where there is such a feast before us anything which d
 
 First, it is a blessing belonging to a peculiar people. Secondly, it is a blessing coming from a peculiar quarter. Thirdly, a blessing with a peculiar date. Fourthly, a blessing with a peculiar certainty, and fifthly, a blessing involving a peculiar duty. Where there is so much country to survey we must travel swiftly and make but a short stay upon any single thought.
 
-First, we have before us A BLESSING BELONGING TO A PECULIAR PEOPLE. "You are blessed of the Lord." "You." Who are these distinguished persons? We would reply, first, that they are a people whom God has blessed because He willed to do so. He has given us no other reason as the first cause of their being blessed but the fact that He is good and that He is Sovereign in the distribution of His Grace. If you search to the very bottom of things you hear a voice proclaiming these words, "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion."
+First, we have before us a BLESSING BELONGING TO a PECULIAR PEOPLE. "You are blessed of the Lord." "You." Who are these distinguished persons? We would reply, first, that they are a people whom God has blessed because He willed to do so. He has given us no other reason as the first cause of their being blessed but the fact that He is good and that He is Sovereign in the distribution of His Grace. If you search to the very bottom of things you hear a voice proclaiming these words, "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion."
 
 If you go back to the first spring and wellhead of all blessing, you shall not find the merits of man as the guardian of the fountain, nor the will of man as the digger of the well--but you shall find there written, "Not of blood, nor of the will of the flesh, nor of the will of man, but of God." The will of God, alone, is the source of the rich, eternal, saving blessing which abounds towards the Lord's elect! If you are blessed of the Lord who made Heaven and earth, you are not a people who claim to have deserved His favor--you abhor all boasting in self and you magnify Divine mercy. Free Grace is the Shibboleth of the true saints--those who cannot speak out upon that point may well question their lineage!
 
@@ -46,7 +46,7 @@ The bitterness of persecution is gone when this is realized. Your faithful soul 
 
 Thus have I spoken upon the peculiar people chosen by Sovereign Grace receiving perpetual tokens of love; known by their character; all of them receiving the blessing, whether great or small, and all of them finding that blessing inexpressibly sweet.
 
-Now, secondly, this is A BLESSING FROM A PECULIAR QUARTER. "You are blessed of the Lord which made Heaven and earth." This is a blessing from one peculiarly related to us and therefore it is the more to be prized. We are glad to get a father's blessing--let no man think little of it. A father's curse might wither a man. If in any case it has been justly earned, I pity the poor wretch who wears it like the mark of Cain upon his soul--for him the sun has no smiling beams and the clouds no silver linings--the past no comfortable memories, the future no joyful prospects.
+Now, secondly, this is a BLESSING FROM a PECULIAR QUARTER. "You are blessed of the Lord which made Heaven and earth." This is a blessing from one peculiarly related to us and therefore it is the more to be prized. We are glad to get a father's blessing--let no man think little of it. A father's curse might wither a man. If in any case it has been justly earned, I pity the poor wretch who wears it like the mark of Cain upon his soul--for him the sun has no smiling beams and the clouds no silver linings--the past no comfortable memories, the future no joyful prospects.
 
 A mother's blessing--how like the breath of cloudless morn--foretelling a day of peace! A brother's blessing--how bright with sacred dew like that which gemmed old Hermon's woods. The blessing of saintly men and holy women--who shall set a price upon it? Its merchandise is far above silver. In the olden times paternal benedictions were more thought
 
@@ -80,7 +80,7 @@ The Lord is my inheritance,
 
 My soul can wish no more." The blessing of the Lord that made Heaven and earth is all in all.
 
-Let us turn to the third word, which is this--IT IS A BENEDICTION WITH A PECULIAR DATE for it is in
+Let us turn to the third word, which is this--IT IS a BENEDICTION WITH a PECULIAR DATE for it is in
 
 the present tense. The preceding verses spoke of the past and the future. "The Lord has been mindful of us, He will bless us. He will bless the house of Israel. He will bless the house of Aaron." These are blessed "wills." "He will bless them that fear Him, both small and great. The Lord shall increase you more and more, both you and your children." These are all in the future but you know the Proverb says a bird in the hand is worth two in the bush!
 
@@ -102,7 +102,7 @@ And then it is the Lord that "made Heaven." Why, these two words are meant to en
 
 The heathens used to be afraid that though they might have the blessing of the god of the hills, if they went into the valleys they would not have his blessing there, for their god might not be the god of the valleys. But our God is the God of every place, and every scene, and every circumstance--and we are blessed of Him--glory be to His holy name!
 
-Now, fourthly and briefly, this is A BLESSING WITH A PECULIAR CERTAINTY. Scripture does not lie, or
+Now, fourthly and briefly, this is a BLESSING WITH a PECULIAR CERTAINTY. Scripture does not lie, or
 
 utter perhapses, and ifs, and buts. "You are blessed of the Lord which made Heaven and earth." Oh you that fear God, this is a matter offact--you daily and continually abide under a true and real blessing. Some blessings are vain words-- the person who utters them is a hypocrite. Other blessings are sincere, but the person pronouncing them has no power to fulfill them. Such blessings are wells without water or barren fig trees bearing leaves but no fruit.
 
@@ -127,7 +127,7 @@ Try your God--I mean, when He is trying you, trust Him and test His promise. Pro
 
 You will know the Lord's Truth, for you have seen it. You will know His love, for you rejoice in it. You will know His faithfulness, for it is the pillow of your weary head. You will know His Immutability, for it is the anchor of your poor tempest-tossed boat. You will know that you are blessed of God that made Heaven and earth! May God grant us to know it by the witness of His Holy Spirit--to know it more and more by living more and more by faith, for only so shall we know it--to know it by despising everything else in comparison with it and relishing it and prizing it above all the delicacies that can be put upon the tables of worldlings. "Blessed of the Lord that made Heaven and earth"--may we be as assured of this as we are of our existence! Then shall we be "strong in the Lord and in the power of His might."
 
-The fifth point is THIS BLESSING INVOLVES A PECULIAR DUTY for, if God has blessed us, the succeeding duty is that we should bless Him. Note the eighteenth verse--"We will bless the Lord from this time forth and forevermore." Come, then, Beloved, if God has blessed us let us bless Him! Let us answer to His benediction as the Alpine echo to the horn. I am afraid we are not very abundant in blessing and glorifying God.
+The fifth point is THIS BLESSING INVOLVES a PECULIAR DUTY for, if God has blessed us, the succeeding duty is that we should bless Him. Note the eighteenth verse--"We will bless the Lord from this time forth and forevermore." Come, then, Beloved, if God has blessed us let us bless Him! Let us answer to His benediction as the Alpine echo to the horn. I am afraid we are not very abundant in blessing and glorifying God.
 
 What were you doing before you came here? What was your last word at home? Grumbling? Complaining? Very likely. Is this becoming in one whom God has blessed? What were your thoughts before you came here? Were you fully expecting something terrible to happen by-and-by? Mourning you know not why! Was that it? If so, is this a fit state of mind for one on whom the Divine benediction rests like a halo? What were your words on the road here? Let me guess again. Some silly chat? Some idle tale? Some frivolous joke? Is this worthy of your destiny? Is this worthy of an employment suitable for your rank?
 

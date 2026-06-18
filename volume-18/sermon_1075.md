@@ -1,4 +1,4 @@
-# Sermon 1075 | A Root Out Of A Dry Ground
+# Sermon 1075 | A Root Out Of a Dry Ground
 
 "A root out of a dry ground." Isaiah 53:2.
 
