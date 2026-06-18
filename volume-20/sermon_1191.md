@@ -56,7 +56,7 @@ I still had stubborn been;
 
 But mercy has my heart subdued,
 
-A bleeding Saviour I have view'd,
+a bleeding Saviour I have view'd,
 
 And now I hate my sin.'
 

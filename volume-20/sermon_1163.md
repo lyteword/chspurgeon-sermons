@@ -10,7 +10,7 @@ Out of that fact grow certain most weighty practical Truths of God and I have ch
 
 First, I shall have to say to you that redemption is our chief blessing--nothing better can be said of you than this, "You are bought with a price." Then I shall have to remind you that redemption on God's part becomes His paramount claim upon us. And thirdly, I shall have to show that this claim is remarkably extensive, and I shall urge you to admit it.
 
-First, then, "YOU ARE BOUGHT WITH A PRICE." To every man of whom this may be said, it is the best news he ever heard! An angel sent from Heaven could not bring to any man or woman a more delightful message than this, "You are bought with a price, even with the precious blood of Christ." "You are Christ's," says the Apostle in the chapter we read to you (1 Corinthians 3), and he seemed as if his heart glowed as he said it. He even made it the climax of a remarkable burst of eloquence. "Therefore let no man glory in men. For all things are yours, whether Paul, or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come; all are yours; and you are Christ's; and Christ is God's."
+First, then, "YOU ARE BOUGHT WITH a PRICE." To every man of whom this may be said, it is the best news he ever heard! An angel sent from Heaven could not bring to any man or woman a more delightful message than this, "You are bought with a price, even with the precious blood of Christ." "You are Christ's," says the Apostle in the chapter we read to you (1 Corinthians 3), and he seemed as if his heart glowed as he said it. He even made it the climax of a remarkable burst of eloquence. "Therefore let no man glory in men. For all things are yours, whether Paul, or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come; all are yours; and you are Christ's; and Christ is God's."
 
 To be bought with a price is the grandest distinction of our manhood and lifts us above angels themselves! It puts great honor upon the saints, even as the Lord has said, "Since you are precious in My sight, you have been honorable and I have loved you." Redemption is a greater mercy than creation. It is no mean blessing to have been made and to have been made a man rather than a dog or a toad, or a worm--to have been blest with intellect, with a mind that can soar into the unseen, a judgment which can weigh, a memory which can retain, an imagination which can create and color thoughts of every kind. It is no little matter to be capable of a mental capacity which widens the sphere of existence, beliefs which open up the past and make us see the far-gone ages and hopes which relieve the darkness of the present with lamps borrowed from the future.
 
@@ -38,7 +38,7 @@ Our head shall soon wear the immortal crown and our hands shall bear the harp fr
 
 I have thus assured you all that redemption is our best blessing. I trust you will not rest without it. Now, I want
 
-to dwell upon the next point, namely, that therefore REDEMPTION IS THE LORD'S PARAMOUNT CLAIM UPON
+to dwell upon the next point, namely, that therefore REDEMPTION IS THE LORD's PARAMOUNT CLAIM UPON
 
 US. Paul does not say, "You are not your own, for God made you." That is true of all things that are--cattle, the trees, the dust of the earth as well as regenerated man. He does not say, "You are not your own for God created you." That would be true of the devil and his angels, and of the whole race of rebellious men.
 
