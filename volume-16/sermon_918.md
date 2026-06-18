@@ -142,7 +142,7 @@ The descriptions of Scriptures are, after all, but condescensions to our ignoran
 > You do a soul espy   
 > Whose towering hopes are built on sand,   
 > I ask, 'Lord, is it I?'   
-> A thousand doubts arise,   
+> a thousand doubts arise,   
 > I bring them all to You.   
 > Am I unconsciously deceived?   
 > Lord, search my heart and see.   

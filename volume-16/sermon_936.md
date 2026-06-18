@@ -14,7 +14,7 @@ Consider well the work of God within the human heart. Consider well the faith wh
 
 I shall speak upon what there was that was so remarkable in the centurion's faith, making practical remarks in a kind of running comment as we pass along. And then if there should be any fragments that remain to be gathered up, we shall try again to apply them in the same style of personal application.
 
-What was there, then, about the centurion's faith so remarkable that Christ wondered at it? Methinks the first point was THAT THERE WAS SUCH FAITH FOUND IN SUCH A PERSON. The Lord seemed to imply this when He said, "I have not found so great faith, no, not in Israel." As if He might have expected to find it in Israel, among an instructed people, among a people to whom the oracles had been committed--but He could not have expected to find it in a Gentile, in a Roman, in a soldier--in one who was apparently an unlikely subject for spiritual influences.
+What was there, then, about the centurion's faith so remarkable that Christ wondered at it? Methinks the first point was THAT THERE WAS SUCH FAITH FOUND IN SUCH a PERSON. The Lord seemed to imply this when He said, "I have not found so great faith, no, not in Israel." As if He might have expected to find it in Israel, among an instructed people, among a people to whom the oracles had been committed--but He could not have expected to find it in a Gentile, in a Roman, in a soldier--in one who was apparently an unlikely subject for spiritual influences.
 
 From this I gather that the most astonishing and acceptable faith may be exercised by the most unlikely persons. Here was a Gentile believing, a Gentile believing far better than one of the seed of Israel. Rich Grace thus brought the far-off one into the full blessing of the kingdom. Here was a soldier believing, a Roman soldier believing in the Lord!
 
@@ -40,7 +40,7 @@ and take out of the ranks of the enemy the stoutest hearted men, and make them b
 
 The prey shall be taken from the mighty, and the lawful captive shall be delivered. Grace shall yet more abound where sin abounded. As in the present case, the marvel of Grace shall be the more memorable because of the singularity of the person enjoying it. May God make YOU such a person, and such a wonder, too!
 
-The next point concerning which our Lord may have marvelled was THE SUBJECT OF THE CENTURION'S CONFIDENCE. He had a servant who was struck with palsy. This was a disease which, at that time at any rate, if not at present, was reckoned to be utterly incurable. In the case of this servant the disease was of the most aggravated kind, for he was "grievously tormented." The strength of his constitution battling with the paralysis caused an unusual agony.
+The next point concerning which our Lord may have marvelled was THE SUBJECT OF THE CENTURION's CONFIDENCE. He had a servant who was struck with palsy. This was a disease which, at that time at any rate, if not at present, was reckoned to be utterly incurable. In the case of this servant the disease was of the most aggravated kind, for he was "grievously tormented." The strength of his constitution battling with the paralysis caused an unusual agony.
 
 It had come to a climax, for he was at the point of death. Though a cure of the palsy had never been heard of, and was a most astounding miracle if ever worked, this man believed that Christ could heal the palsy and could at once restore his servant to perfect health. Yes, here was a faith which took an impossibility into its hand and threw it aside--faith which knew that all things were possible with an Omnipotent Savior--faith which saw in Christ that Omnipotent Savior, and therefore raised no question as to His ability or willingness.
 
@@ -60,7 +60,7 @@ culties which stand in your path, and make you a straight road to Glory, for it 
 
 "It says to the mountains, Depart, That stand between God and the soul. It binds up the broken in heart, And makes wounded consciences whole. Bids sins of a crimson-like dye Be spotless as snow, and as white, And makes such a sinner as I As pure as an angel of light.'"
 
-Thirdly, another wonder was THE ENERGY OF THIS MAN'S FAITH WHICH LED HIM TO DEAL WITH THE CASE IN SUCH A BUSINESS-LIKE WAY. Alas, alas, the hackneyed form which most men's religion assumes!
+Thirdly, another wonder was THE ENERGY OF THIS MAN's FAITH WHICH LED HIM TO DEAL WITH THE CASE IN SUCH a BUSINESS-LIKE WAY. Alas, alas, the hackneyed form which most men's religion assumes!
 
 They take it up at second-hand, or they cut and shape it after somebody else's fashion. Not so this man. I do not know that he had ever had a religious acquaintance, but falling in probably with some of the books of Scripture, he read them, and he discovered that Jesus Christ was what He professed to be--the Son of God and the Savior of men.
 
@@ -80,7 +80,7 @@ What God appoints, and God delights in, I may truthfully and confidently accept.
 
 It does not seem long ago since we were in the depth of winter, and now we are getting near the longest day in summer, and soon the wings of time will bear us again into months of frost and snow. How long halt you between two opinions? Are these delays to continue forever? Will you always go on hearing about these things, but never attending to them? I do pray you by the flight of time, by the certainty of death to each of you, and your ignorance of its appointed hour--seek the Lord while He may be found, call you upon Him while He is near. Lay hold of eternal life. And, like the centurion, come and put your trust in Jesus to save you. And though your faith will be marvelous, yet the honor shall be all to Him, and the glory to His blessed name.
 
-I will pass on. Another point of wonder in the centurion's faith was THAT HE DID NOT ASK FOR A SIGN. Many of the great ones of old, when God was about to fulfill a promise, needed to be strengthened for service by a sign. Gideon was a man of great faith, yet he needed first to have the fleece wet when all was dry around, and then to have the fleece dry while the threshing-floor was wet. He needed to hear the soldiers' dream of the barley cake that tumbled upon the tent of Midian. He wanted signs and wonders or his heart would have fainted.
+I will pass on. Another point of wonder in the centurion's faith was THAT HE DID NOT ASK FOR a SIGN. Many of the great ones of old, when God was about to fulfill a promise, needed to be strengthened for service by a sign. Gideon was a man of great faith, yet he needed first to have the fleece wet when all was dry around, and then to have the fleece dry while the threshing-floor was wet. He needed to hear the soldiers' dream of the barley cake that tumbled upon the tent of Midian. He wanted signs and wonders or his heart would have fainted.
 
 With many others the desire for signs and wonders has been a great barrier to simple faith. Now the centurion did not say as Naaman did, "I thought He would surely come and put His hand over the place and recover the paralytic." No, he did not need Jesus to come to the house and say a word, or offer prayer, or even to touch the sick with His hand. "No, Master," said he, "there is no need for You to come. My servant is far away, lying sick and near to death. You need not stir an inch--say in a word, and he will be healed. Distance is nothing to You. Your word at a mile's distance can cure as well as your touch."
 
@@ -118,7 +118,7 @@ The new birth of the soul--the regeneration of our nature by the Holy Spirit--is
 
 All things are possible with Him, and we will therefore add, that if each one of you tonight were led to put his trust in Jesus, what I said was possible would be literally done. You would all retire, each one saved, and saying, "Blessed be the name of the Lord who has taken us out of the horrible pit and out of the miry clay, and set our feet upon a rock, and put a new song into our mouths, and established our goings!" O that You would do this, good Lord, that Your name might have praise!
 
-Once more. One other point of wonder. THROUGHOUT THIS WHOLE STORY THE CENTURION'S DEEP
+Once more. One other point of wonder. THROUGHOUT THIS WHOLE STORY THE CENTURION's DEEP
 
 HUMILITY WAS CONSPICUOUS, BUT THAT DEEP HUMILITY, INSTEAD OF WEAKENING HIS FAITH,
 

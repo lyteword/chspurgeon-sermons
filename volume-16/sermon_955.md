@@ -14,7 +14,7 @@ And yet I should not wonder if there are many here who through having waited so 
 
 To get a truthful answer to this enquiry from the inmost soul of every hearer is my object now, believing that it will be a very healthful thing to you--even if you are honestly compelled to give a negative answer. It will at least expose the condition of the heart to itself, and that may be helpful towards something better. As God may help me, I shall labor to press upon you very earnestly this question this morning, O unsaved Man or Woman, "Will you be made whole?"
 
-This question is necessary to be put, in the first place, because IT IS A QUESTION NOT ALWAYS UNDERSTOOD. It is not the same as this question, "Will you be saved from going to Hell?" Everyone answers, "Yes," to that. "Will you be saved so as to go to Heaven?" At once, without deliberation, everyone says, "Yes." For the harps of gold, for the songs of blessedness, for the eternity of immortality--we have all a heart and a strong desire--but that, you see, is not the question.
+This question is necessary to be put, in the first place, because IT IS a QUESTION NOT ALWAYS UNDERSTOOD. It is not the same as this question, "Will you be saved from going to Hell?" Everyone answers, "Yes," to that. "Will you be saved so as to go to Heaven?" At once, without deliberation, everyone says, "Yes." For the harps of gold, for the songs of blessedness, for the eternity of immortality--we have all a heart and a strong desire--but that, you see, is not the question.
 
 Heaven and its joys come out of what is proposed in our question, as a result, as a consequence--but that is not the matter in hand just now. We are not now saying to the thief, "Will you have your imprisonment remitted?" We are putting it to him in another shape--"Are you willing to be made an honest man?" We are not now saying to the murderer, "Are you anxious to escape the gallows?" We know his reply. The question we are putting to him is, "Will you be made righteous, upright, kind, forgiving, so as to give up all this evil of yours?"
 
@@ -76,7 +76,7 @@ Now, if we were to appeal to many, and they fully knew what we meant by it, and 
 
 So, having explained the question, I shall, as strength holds out, go on to notice in the second place, that THIS
 
-QUESTION IS CAPABLE OF A GREAT MANY REPLIES, and therefore it is the more necessary that it should be
+QUESTION IS CAPABLE OF a GREAT MANY REPLIES, and therefore it is the more necessary that it should be
 
 asked and answered.
 
@@ -136,7 +136,7 @@ They count it better to be lost with the approbation of fools than to be saved w
 
 Thank God, there are some who can say, "Yes, yes, I would be made whole." And of their case I am going to speak now.
 
-WHEREVER AN HONEST, AFFIRMATIVE ANSWER IS GIVEN TO THIS QUESTION, WE MAY CONCLUDE THAT THERE IS A WORK OF GRACE COMMENCED IN THE SOUL. If any one of my hearers can earnestly say, "Yes, my great longing is to be set free from sin," my dear Friend, I am thrice happy to be privileged to speak to you this morning!
+WHEREVER AN HONEST, AFFIRMATIVE ANSWER IS GIVEN TO THIS QUESTION, WE MAY CONCLUDE THAT THERE IS a WORK OF GRACE COMMENCED IN THE SOUL. If any one of my hearers can earnestly say, "Yes, my great longing is to be set free from sin," my dear Friend, I am thrice happy to be privileged to speak to you this morning!
 
 If you say, "It is not fear of punishment, sin is punishment enough for me. If I could be in Heaven and yet be a sinner such as I am, it would be no Heaven to me. I want to be clear from every fault both of thought, and word, and deed, and if I could be perfect I should be perfectly happy, even if I were sick and poor." Well, if the Lord has made you long after holiness, there is in your heart already the embryo of Divine Grace, the seed of everlasting life. Before long you shall rejoice that you are born again, and are passed from death unto life.
 

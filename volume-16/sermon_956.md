@@ -18,7 +18,7 @@ Put the two together, holy thoughts and holy living, and you have two sure evide
 
 I mean, this morning, to take the two parts of the text separately, and then to consider the link which unites them. First, then, we shall have to consider the mind occupied with a fruitful subject. Secondly, the life ordered by a right rule. And thirdly, the link which connects the two.
 
-First then, may every Christian experimentally know to a fuller degree what it is to have A MIND OCCUPIED WITH A FRUITFUL SUBJECT. "Your loving kindness is before my eyes." It is exceedingly profitable to the Christian to have always some subject of thought upon his mind. The mind that is vacant, frivolous, unoccupied, will be sure to
+First then, may every Christian experimentally know to a fuller degree what it is to have a MIND OCCUPIED WITH a FRUITFUL SUBJECT. "Your loving kindness is before my eyes." It is exceedingly profitable to the Christian to have always some subject of thought upon his mind. The mind that is vacant, frivolous, unoccupied, will be sure to
 
 issue in a barren and unprofitable life. I fear, to a very large extent, in this age the minds, even of good people, are empty, and void, and a waste.
 
@@ -94,7 +94,7 @@ And sing with rapture and surprise,
 
 His loving kindness in the skies." I have thus introduced to you the topic for mental contemplation. We will at once proceed to the second part of our subject.
 
-The Psalmist sets before US A LIFE ORDERED BY A RIGHT RULE. "I have walked in Your Truth." I wish we could say this as positively as he does, each of us. I am afraid we should have to alter it, and say, "I desire to have Your loving kindness before my eyes, and to walk in Your Truth." I shall invite each of you to look over your diaries to see how you could make such a statement, and the following remarks I offer as reflections to help you.
+The Psalmist sets before US a LIFE ORDERED BY a RIGHT RULE. "I have walked in Your Truth." I wish we could say this as positively as he does, each of us. I am afraid we should have to alter it, and say, "I desire to have Your loving kindness before my eyes, and to walk in Your Truth." I shall invite each of you to look over your diaries to see how you could make such a statement, and the following remarks I offer as reflections to help you.
 
 He means, first, by the words, "Your Truth," "I have tried to order my religion according to the Truth concerning God and the way in which He would be worshipped. I have worshipped the true God in the true way. I have searched to
 

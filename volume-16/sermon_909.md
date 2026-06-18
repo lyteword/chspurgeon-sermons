@@ -14,7 +14,7 @@ His Testimony is unique and bears a majesty of Deity about it which bespeaks its
 
 Without any further preface, let us consider the three Testimonies given to our Lord by the voice of the Most High. If time permits we will then notice one or two instructive circumstances connected with them. And we will close by drawing a great practical lesson from them.
 
-In endeavoring to bring before your attentive minds THE THREE OCCASIONS ON WHICH THE FATHER, BY A VOICE FROM HEAVEN, BORE WITNESS TO HIS SON, I would invite you to observe, first, when these voices were heard.
+In endeavoring to bring before your attentive minds THE THREE OCCASIONS ON WHICH THE FATHER, BY a VOICE FROM HEAVEN, BORE WITNESS TO HIS SON, I would invite you to observe, first, when these voices were heard.
 
 Angels had proclaimed His birth, and wise men had seen His star, but the Divine Voice was not heard during the first thirty years of His sojourn. The three celestial utterances were reserved for the brief period of His public life. The first came at the commencement of His public ministry--at His Baptism. The second some little time after the central point of His ministry. And the last, just before He closed His work, by being offered up. It is a fit thing to pray that all our works may be begun, continued, and ended under the Divine blessing.
 

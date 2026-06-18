@@ -1,4 +1,4 @@
-# Sermon 953 | Done In A Day, But Wondered At Forever
+# Sermon 953 | Done In a Day, But Wondered At Forever
 
 "I will remove the iniquity of that land in one day. In that day, says the Lord of hosts. They shall call every man his neighbor under the vine, and under the fig tree." Zechariah 3:9,10.
 
