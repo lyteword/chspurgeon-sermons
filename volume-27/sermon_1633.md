@@ -99,7 +99,7 @@ In this way we must believe in God about everything. It so happened that about t
 
 This holy calm comes, also, from walking with God. No spot is so serene as the secret place of the tabernacles of the Most High. Commune with God and you will forget fear. Keep up daily fellowship with Christ in prayer, in praise, in service, in searching the Word, in submitting your heart to the work of the eternal Spirit--and as you walk with God, you will find yourself calm. You know how our poet puts it--
 
-"Oh for a closer walk with God, A calm and heavenly frame."
+"Oh for a closer walk with God, a calm and heavenly frame."
 
 These go together. If you would feed upon certain Truths of God which will produce this calm of mind, remember, first, that God is full of love and, therefore, nothing that God sends can harm His child. Take everything from the Lord as a token of love, even though it is a stroke of His rod, or a cut of His knife. Everything from that dear hand must mean love, for He has said, "I have engraved you upon the palms of My hands." When you accept every affliction as a love token, then will your fear be ended.
 

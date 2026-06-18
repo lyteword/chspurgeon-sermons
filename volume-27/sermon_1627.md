@@ -1,4 +1,4 @@
-# Sermon 1627 | Baptism--A Burial
+# Sermon 1627 | Baptism--a Burial
 
 Know ye not, that so many of us as were baptized into Jesus Christ were baptized into his death? Therefore we are buried with him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life.''Romans 6:3-4.
 
@@ -34,7 +34,7 @@ So far the doctrine: is it not a precious one indeed? Oh, if you be indeed one w
 
 Baptism is thus an embodied creed, and you may read it in these words: Buried with him in baptism, wherein also ye are risen with him through the faith of the operation of God, who hath raised him from the dead.'
 
-But , secondly, A REALIZED UNION WITH CHRIST is also set forth in baptism, and this is rather a matter of experience than of doctrine.
+But , secondly, a REALIZED UNION WITH CHRIST is also set forth in baptism, and this is rather a matter of experience than of doctrine.
 
 First, there is, as a matter of actual experience in the true believer, death. Know ye not that so many of us as were baptized into Jesus Christ were baptized into his death?' It must be contrary to all law to bury those who are yet alive. Until they are dead, men can have no right to be buried. Very well, then, the Christian is dead,'dead, first, to the dominion of sin. Whenever sin called him aforetime he answered, Here am I, for thou didst call me.' Sin ruled his members, and if sin said, Do this,' he did it, like the soldiers obedient to their centurion; for sin ruled over all the parts of his nature, and exercised over him a supreme tyranny. Grace has changed all this. When we are converted we become dead to the dominion of sin. If sin calls us now, we refuse to come, for we are dead. If sin commands us we will not obey, for we are dead to its authority. Sin comes to us now'oh, that it did not,'and it finds in us the old corruption which is crucified, but not yet dead; but it has no dominion over our true life. Blessed be God, sin cannot reign over us, though it may assail us and work us harm. Sin shall not have dominion over you; for ye are not under law, but under grace.' We sin, but not with allowance. With what grief we look back upon our transgressions! How earnestly do we endeavour to avoid them! Sin tries to maintain its usurped power over us; but we do not acknowledge it as our sovereign. Evil enters us now as an interloper and a stranger, and works sad havoc, but it does not abide in us upon the throne; it is an alien, and despised, and no more honoured and delighted in. We are dead to the reigning power of sin.
 

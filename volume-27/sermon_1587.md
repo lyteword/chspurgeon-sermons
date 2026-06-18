@@ -1,4 +1,4 @@
-# Sermon 1587 | Jesus At A Standstill
+# Sermon 1587 | Jesus At a Standstill
 
 "And Jesus stood still." Mark 10:49.
 
@@ -8,7 +8,7 @@ I trust there will, at this time, be a word in season, both to those who fear Go
 
 If we delight in a trait of His Character as drawn in the Gospels, we may be sure that He possesses the same excellence now that He is at the right hand of the Father. His dealing with blind Bartimaeus 19 centuries ago is a fair type of His conduct towards every poor blind sinner who at this hour comes to Him crying, "Son of David, have mercy on me." I hope we shall see the miracle of Jericho repeated in this house this very day! I am persuaded that it will be so, for even now, encouraged by the prayers already offered, Jesus waits to be gracious and today it shall be said that at the entreaties of His people, Jesus paused to work wonders of love--"Jesus stood still."
 
-First, let us answer this question--WHAT DOES THIS PAUSE MEAN IN THE SAVIOR'S PROGRESS. "Jesus stood still"? This was not His frequent posture, for He was always on the move--"He went about doing good." He might have done much among men if He had taken up His station and remained in one place so that the crowds could have come to Him to listen to His voice or to be healed by His power. But Jesus was not an immovable statue of benevolence! He was active and energetic--an itinerant Preacher who never wearied in His circuit. One does not often see Jesus standing still. His was the love which does not wait to be sought after by men, for it has come to seek as well as to save that which was lost. The zeal of the Lord's house consumed Him so that for Him there was no loitering or standing still. Yet in the case before us, the Great Worker ceased from His activity--"Jesus stood still."
+First, let us answer this question--WHAT DOES THIS PAUSE MEAN IN THE SAVIOR's PROGRESS. "Jesus stood still"? This was not His frequent posture, for He was always on the move--"He went about doing good." He might have done much among men if He had taken up His station and remained in one place so that the crowds could have come to Him to listen to His voice or to be healed by His power. But Jesus was not an immovable statue of benevolence! He was active and energetic--an itinerant Preacher who never wearied in His circuit. One does not often see Jesus standing still. His was the love which does not wait to be sought after by men, for it has come to seek as well as to save that which was lost. The zeal of the Lord's house consumed Him so that for Him there was no loitering or standing still. Yet in the case before us, the Great Worker ceased from His activity--"Jesus stood still."
 
 In the Gospel we read that our Lord was going up to Jerusalem with His face steadfastly set to accomplish His great work. His own words were, "Behold, we go up to Jerusalem; and the Son of Man shall be delivered unto the chief priests, and unto the scribes; and they shall condemn Him to death, and shall deliver Him to the Gentiles: and they shall mock Him, and shall scourge Him, and shall spit upon Him, and shall kill Him: and the third day He shall rise again." (Mark 10:33, 34). He bad a Baptism to be baptized with and be was straitened until it was accomplished and, therefore, with brave resolve He forced His way to the city.
 
@@ -88,7 +88,7 @@ He turns indignantly from fancied claims of proud, self-righteous men, but He ha
 > Behold me waiting, in the way,   
 > For You, the heavenly light!   
 > Command me to be brought, and say,   
-> 'Sinner, receive your sight.'   
+> 'sinner, receive your sight.'   
 
 Thus I have tried to show what was the power which riveted the Savior to the spot so that the Gospel says, "Jesus stood
 
