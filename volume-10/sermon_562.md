@@ -68,7 +68,7 @@ Are broken by his hand;
 
 Before his cross I find myself,
 
-A stranger in the land.
+a stranger in the land.
 
 My heart is with him on his throne,
 

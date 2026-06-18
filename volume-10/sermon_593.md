@@ -45,7 +45,7 @@ We have whole volumes upon this subject. There is "Bunyan's Holy War," describin
 
 Ralph Erskine has left us that strange work, "The Believer's Riddle," the greatest riddle that was ever written, a perfect maze to all but those who have the clue within. He says--
 
-"My heart's a mirror, dim and bright, A compound strange of day and night, Of dung and diamonds, dross and gold, Of summer's heat and winter's cold." Hart, whose hymns come, indeed, from the heart--rightly named was he--in his hymn called "The Paradox," says--
+"My heart's a mirror, dim and bright, a compound strange of day and night, Of dung and diamonds, dross and gold, Of summer's heat and winter's cold." Hart, whose hymns come, indeed, from the heart--rightly named was he--in his hymn called "The Paradox," says--
 
 "How strange is the course that a Christian must steer, How perplexed is the path he must tread. The hope of his happiness rises from fear, And his life he receives from the dead. His fairest pretensions must wholly be waved, And his best resolutions be crossed. Nor can he expect to be perfectly sa ved Till he finds himself utterly lost. When all this is done and his heart is assured, Of the total remission of sins When his pardon is signed and his peace is procured, From that moment his conflict begins."
 
@@ -57,7 +57,7 @@ But I need not repeat it, because you have it in your books.
 
 You will there find that instead of God's working in the way in which he expected, the singer was made to feel the hidden evils of his heart and so he was humbled and brought in true penitence nearer to God. Cowper thus sings of himself in a hymn which is also in your book--
 
-> The Lord will happiness Divine On contrite hearts bestow. Then tell me, gracious God, is mine A contrite heart or no? I sometimes think myself inclined To love You, if I could. But often feel another mind, Averse to all that's good. My best desires are faint and few, I gladly would strive for more! But, when I cry, 'My strength renew,'   
+> The Lord will happiness Divine On contrite hearts bestow. Then tell me, gracious God, is mine a contrite heart or no? I sometimes think myself inclined To love You, if I could. But often feel another mind, Averse to all that's good. My best desires are faint and few, I gladly would strive for more! But, when I cry, 'My strength renew,'   
 > Seem weaker than before.   
 > O make this heart rejoice or ache!   
 > Decide this doubt for me;   

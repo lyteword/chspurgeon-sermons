@@ -78,7 +78,7 @@ I say if Omnipotence itself had not interposed--it was not the minister, it was 
 
 Thus, dear Friends, we have presented to you the deplorable picture of the infatuated sinner, perfectly infatuated and drunken with the love of sin and enmity to God! And Mercy itself, so far as we have gone, foiled of its purpose. The thorn hedge not enough--the stone wall not enough. What shall come now?
 
-Our next business is to consider THAT THE BACKSLIDER'S FAILURE IS FOLLOWED BY A BLESSED RESULT. The hunt was very arduous but the greedy hunter has missed his prey and there he sits weary with the chase and ashamed of himself. What comes of it? Do observe it, for the result is one which I hope you and I know already. "Then shall she say, I will go and return to my first husband; for then it was better with me than now." O Lord, teach some who are here this morning to pray this prayer!
+Our next business is to consider THAT THE BACKSLIDER's FAILURE IS FOLLOWED BY a BLESSED RESULT. The hunt was very arduous but the greedy hunter has missed his prey and there he sits weary with the chase and ashamed of himself. What comes of it? Do observe it, for the result is one which I hope you and I know already. "Then shall she say, I will go and return to my first husband; for then it was better with me than now." O Lord, teach some who are here this morning to pray this prayer!
 
 Observe here is repentance attended with sorrow. The poor creature in this case feels, deeply feels to the very soul, the wretchedness of her condition. She is in so bad a plight that though she had despised her former state she now confesses it to be better. Observe that it is an active repentance. It is not merely "I will return," but, "I will go and return." When the Grace of God sets a backslider upon returning, he will stir up all the powers of his soul to seek after God. He cries, "My soul waits for the Lord more than they that watch for the morning." I say more than they that watch for the morning.
 
@@ -126,7 +126,7 @@ In letters of fire he sees written across that burning sky: "YOU KNEW YOUR DUTY 
 
 "This, I say, may be your case and mine, if we are not really rooted and grounded in Christ--we may fall by little and little. We may even continue till we die to be Church members and yet backslide in heart by slow degrees until we become rotten through and through and God casts us on the dunghill. I say by the special and miraculous mercy of God His elect will be ingathered, but take heed, Sirs, that you build not on your profession, for profession is no proof of election. You must be born again and only the man who continues to the end shall be saved. May we have such perseverance given us, for His name's sake.
 
-With this last we conclude--IS NOT THIS SUBJECT A VERY SOLEMN WARNING TO THE PEOPLE OF
+With this last we conclude--IS NOT THIS SUBJECT a VERY SOLEMN WARNING TO THE PEOPLE OF
 
 GOD? What some do others may do. If one man falls, another may. If one professor turned out to be a hypocrite, so may another. If one minister reels from the pinnacle of honor and is dashed upon the rocks beneath, so may another. I want to make a personal application of this to myself and I pray my Brothers in office behind me, venerable though some of them are in years, to remember that this may be their case.
 
