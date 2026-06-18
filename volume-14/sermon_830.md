@@ -125,7 +125,7 @@ I recommend to every Believer here a daily self-examination. Pythagoras commande
 > Lord, let me weep for nothing but sin,   
 > And after none but You.   
 > And then I would, O that I might,   
-> A constant weeper be.   
+> a constant weeper be.   
 
 Look at the great heinousness of the sin of departing from God! See sin in its true deformity and blackness, and repent of it!
 

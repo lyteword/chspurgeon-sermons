@@ -98,7 +98,7 @@ Faith is operative in the land of the unseen, not in the seen. Faith is to come 
 
 Do understand that even faith itself will be no guarantee against trials and against poverty, for it is good for God's people to be tried and there are some of them who would not glorify God if they were not poor. Therefore, you are not to suppose that you have no faith because you are in need--neither are you to expect that in answer to prayer God will necessarily keep you in easy circumstances. If it is best for you that you should not be poor, He will keep you from it. But if it is better that you should be, He will sustain you in it. Resignation should walk hand-in-hand with faith, and they each will minister to the other's beauty.
 
-Lastly, THIS IS ALSO TRUE IN THE HISTORY OF THE CHRISTIAN CHURCH AS A WHOLE. The
+Lastly, THIS IS ALSO TRUE IN THE HISTORY OF THE CHRISTIAN CHURCH AS a WHOLE. The
 
 Christian Church lives by faith. She lives by faith in opposition to speculation. Every now and then a fit of speculative philosophy seizes the Church and then her vitality withers. In the days of the school-men, just before Luther's time, good men were fighting and squabbling from morning to night--gathered like so many carrion crows around the dead body of Aristotle--fighting about nobody knows what. It is said that they held sage discussions upon how many angels could poise themselves upon the point of a needle!
 
