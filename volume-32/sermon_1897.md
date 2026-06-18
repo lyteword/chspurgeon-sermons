@@ -34,7 +34,7 @@ As the pastor of this Church, I can joyfully say of the most of those who are he
 
 We have faith and we have hope--and we know that we have them. Are we not enriched with the Grace of God? Where faith and hope are found, love cannot be far off, for the three Divine sisters are seldom separated. Let us love the Lord who has given us the first two.
 
-Secondly, we have gone a step further than the silent possession of faith and hope. We have made A PROFESSION OF OUR FAITH AND A CONFESSION OF OUR HOPE. I am not going to say much about this, but to remind
+Secondly, we have gone a step further than the silent possession of faith and hope. We have made a PROFESSION OF OUR FAITH AND a CONFESSION OF OUR HOPE. I am not going to say much about this, but to remind
 
 you of certain joyously solemn facts.
 

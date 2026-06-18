@@ -16,7 +16,7 @@ As we saw in the reading of this chapter, the Prophet seems to take wing as he p
 
 I shall speak upon our text thus, if the Holy Spirit will help me. First, there is such a thing as present forgiveness-- "The people that dwell in it shall be forgiven their iniquity." Secondly, with this forgiveness there comes the removal of the consequences of sin--"The inhabitant shall not say, I am sick." And, thirdly, this makes a remarkable change in the language of the favored people--"The inhabitant shall not say, I am sick." They shall be so greatly blessed that their language shall lose its complaining tone! They shall no longer sigh and lament. They shall now have other things to talk about than their own infirmities and sufferings. "The inhabitant shall not say, I am sick, the people that dwell in it shall be forgiven their iniquity."
 
-First, then, Beloved, I introduce to you a topic upon which I am sure you have no question, but still, it may do you good to be confirmed in the acknowledged Truth of God. THERE IS SUCH A THING AS THE PRESENT FORGIVENESS OF SIN. "The people that dwell in it shall be forgiven their iniquity."
+First, then, Beloved, I introduce to you a topic upon which I am sure you have no question, but still, it may do you good to be confirmed in the acknowledged Truth of God. THERE IS SUCH a THING AS THE PRESENT FORGIVENESS OF SIN. "The people that dwell in it shall be forgiven their iniquity."
 
 There must be a present conscious enjoyable pardon of sin, otherwise there would be no joy in the world for thoughtful minds. To the thoughtless and careless, there might be a flash in the pan, a noisy mirth as the crackling of thorns under a pot, but to the penitent, to the serious, to the careful, where could there be a spark of joy if sin were unforgiven? When we once begin to feel what sin is, to discern its true nature and to understand the just punishment which must follow upon it, we cannot rest under its condemnation. Though God should give us dainties from day to day, clothe us in scarlet and fine linen and set us among the princes of the earth, we would be restless--we would be wretched as long as sin preyed upon our heart. Sin--this casts darkness upon the sun, eclipsing its meridian light. Sin is the blast which withers all the flowers of life. Sin is the gall of bitterness--a drop of it would turn an ocean of pleasure into wormwood! Sin would again blight the Garden, could it be restored. Yes, it would turn Heaven into Hell could it enter there! Sin is a burden which an awakened conscience cannot bear. It crushes the spirit into the dust and threatens further to bear it down, even to the lowest Hell.
 
@@ -76,7 +76,7 @@ that justifies. Who is he that condemns? It is Christ that died, yes, rather, th
 
 The specialty of what I want to say lies in my last point--that THE LORD EVEN CHANGES THE TONE OF
 
-HIS PEOPLE'S SPEECH. "The inhabitant shall not say, I am sick." That is the point! Why shall they not say, "I am sick"?
+HIS PEOPLE's SPEECH. "The inhabitant shall not say, I am sick." That is the point! Why shall they not say, "I am sick"?
 
 First, they have no need to say it when the Lord comes and dwells with them, for the Sun of Righteousness has risen upon them with healing in His wings. When Jesus healed the sick of the palsy, He said to him, "Son, be of good cheer; your sins are forgiven you." Pardon and healing were one! Spiritually the pardoned one shall not need to say, "I am sick," because his soul diseases then receive a healing medicine.
 

@@ -15,7 +15,7 @@ our table, accept the ring which He has prepared for our finger and wear the gar
 
 I am going to speak upon my text thus--First, here is a confession, which I think many of us will be very happy to make--"Inasmuch as the Lord has blessed me until now." Secondly, here is an argument, which is stated after the manner of logic--"Inasmuch as the Lord has blessed me until now, therefore," so and so.
 
-We look at our text, then, first of all, as A CONFESSION--"The Lord has blessed me until now."
+We look at our text, then, first of all, as a CONFESSION--"The Lord has blessed me until now."
 
 I will not at present speak to those of you upon whom the blessing of God has never rested. Remember, my dear Hearers, that every man is either under the curse or under the blessing. They that are of the works of the Law are under the curse. Those upon whom their sin is resting are under the curse, for a curse always attends upon sin. Though we read no denunciation service; though we do not speak to you from Ebal and Gerizim, with the blessing and the curse, yet rest assured that there is, before the living God, a separation of the precious from the vile, and each day there is a judgment which, in God's apprehension, puts some upon the right hand with the, "Come, you blessed," and others upon the left hand with the, "Depart, you cursed." This will be finally done in "that day of days for which all other days were made." At this hour, my Hearer, if you are not the blessed of the Lord, you are resting under the dark shadow of a curse from which I pray God you may at once escape! Faith in Him who was made a curse for us is the only way to the blessing.
 
