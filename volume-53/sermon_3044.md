@@ -118,7 +118,7 @@ Snatch them in pity from sin and the grave." In such a city as this, with hundre
 > 'Tis not for man to trifle!   
 > Life is brief,   
 > And sin is here.   
-> Our age is but the falling of a leaf, A dropping tear.   
+> Our age is but the falling of a leaf, a dropping tear.   
 > We have no time to sport away the hours, All must be earnest in a world like ours. Not many lives but only one have we, One, only one--   
 > How sacred should that one life always be, That narrow span!   
 > Day after day filled up with blessed toil, Hour after hour still bringing in new spoil.   

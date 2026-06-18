@@ -62,7 +62,7 @@ As briefly as possible we turn to notice THE COUNSEL GIVEN--"As you have therefo
 
 To walk in a certain way means continuing in it. Now, Christian, you took Christ to be your All-in-All, did you not? Well, then, continueto take Him as your All-in-All. The true way for a Christian to live is to live entirely upon Christ. Living by frames and feelings is a dying form of life. "He lived by a feeling experience," said one--and a poor method of living, too! Christians have experiences and they have feelings, but, if they are wise, they never feed upon these things, but upon Christ, Himself. You took Christ to be your All-in-All at first. You did not, then, mix up your frames and feelings with Him--you looked entirely out of self to Him. Well now, continue in the same frame of mind! You sat down at the foot of the Cross and you said--
 
-"Now free from sin, I'll walk at large My Savior's blood's my full discharge! At His dear feet myself I lay-- A sinner saved, and homage pay."
+"Now free from sin, I'll walk at large My Savior's blood's my full discharge! At His dear feet myself I lay-- a sinner saved, and homage pay."
 
 Well, then stay there! Stay there! Never get an inch beyond that position. When you get sanctified, still look to Christ as if you were unsanctified! When you are on the verge of being glorified, look to Him as if you were just newly come out of the hole of the Pit. Hang upon Christ, you who are the best, just as though you were the worst! The same faith which saved Mary Magdalene, which saved Saul of Tarsus--must save you in the moment when you shall be the nearest to the perfect image of Christ Jesus! It is "none but Jesus" now to your soul--let it be "none but Jesus--none but Jesus," as long as you live!
 

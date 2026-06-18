@@ -6,7 +6,7 @@ THIS question is addressed to the Church of God, for in the context it is writte
 
 We have before us a question implying three things. First, aDoctrine, namely, that our Counselor has not perished. Secondly, a reproof, for we sometimes act as if our Counselor had perished. And, thirdly, an encouragement for, however we may be situated and whatever may have perished--our Counselor has not perished.
 
-First, then, here is A QUESTION IMPLYING A DOCTRINE, namely, the Doctrine that the Church of God has a Counselor and that that Counselor has not perished.
+First, then, here is a QUESTION IMPLYING a DOCTRINE, namely, the Doctrine that the Church of God has a Counselor and that that Counselor has not perished.
 
 In olden times, the Lord's people, whenever they were in a difficulty, could always find direction. Any man who doubted whether he should build his house, or whether he should go to war, or whether in any matter of his business he should do this or that, could at once receive instruction and advice by referring to the high priest who wore the ephod. And, being moved by the Spirit, the high priest spoke with his hand on the Urim and Thummim and gave an authoritative answer. Thus David told Abiathar to bring the ephod, and when he asked the Lord, "Will the men of Keilah deliver me and my men into the hand of Saul?" the Lord said, "They will deliver you up." So in other critical periods of the history of the saints, you will find it recorded that they were constantly in the habit of going to the priest and seeking for direction. Some of us may bewail the loss of such priests. We may be thinking, "I know not which way to go. I have no direction, I have no means of obtaining guidance." O Christian! Has your Counselor perished? Ah, no! The Doctrine is assuredly taught us in Scripture that the Church of God still has an Infallible Guide!
 
@@ -46,7 +46,7 @@ The blessed Spirit also makes intercession for us on earth even as Christ makes 
 
 Patriarchs and Prophets, Apostles and martyrs. Such is the Doctrine implied in the inquiry of my text, "Has your Counselor perished?"
 
-Then, secondly, THIS QUESTION SUGGESTS A REPROOF--"Has your Counselor perished?"
+Then, secondly, THIS QUESTION SUGGESTS a REPROOF--"Has your Counselor perished?"
 
 It is a reproof because the child of God does not believe, doctrinally, that his Counselor has perished, but he does so practically. He at times runs of his own accord instead of waiting for the guidance of God. At other times he is afraid to move forward, even when the finger of Him who "is wonderful in counsel, and excellent in working," has clearly pointed the way and made the vision so plain "that he may run that reads it." How often does the child of God nurse his difficulties as Asaph did when he said, "When I thought to know this, it was too painful for me." But then he adds, "until I went into the sanctuary of God; then understood I their end." O Beloved, remember how Habakkuk, in a time of danger, stood upon his watch and sat upon his tower to see what the Lord would say to him! Remember what Hezekiah did with the letter which he received from the hand of the messengers of Sennacherib, king of Assyria! When he had read it, "he went up into the house of the Lord and spread it before the Lord." Alas, alas! That, your lives should be constantly vexed with trifling cares instead of "casting all your care upon God." The knowledge that "He cares for you" ought to drive all your anxious cares away!
 

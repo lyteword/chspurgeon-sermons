@@ -46,7 +46,7 @@ The hand that was stretched out to the nail is the very hand that wields the sce
 
 THIS GREAT MANIFESTATION OF DIVINE RIGHTEOUSNESS IN THE PERSON OF CHRIST, as I
 
-understand the text, INTELLIGIBLY CLEARS GOD'S MORAL GOVERNMENT OF TWO GREAT DIFFICULTIES.
+understand the text, INTELLIGIBLY CLEARS GOD's MORAL GOVERNMENT OF TWO GREAT DIFFICULTIES.
 
 When Christ became a Propitiation, He declared God's Righteousness for the remission of sin. We are pardoned through the forbearance of God. For thousands of years men lived and sinned, and yet were justified--rebelled, and yet were forgiven--wandered, yet were restored. I say, for thousands of years poor fallible men claimed complete righteousness and entered into the rewards which belong exclusively to those who are justified before God. There they go, streaming up to Heaven, a long bright line of patriarchs, Prophets, warriors for the holy cause, kings, priests and saintly men and women who believed in God--and this was imputed to them for righteousness. Now here we are in a difficulty. A just God is saving all these sinners and taking them to Heaven without any sort of vindication of His Justice! But Christ comes in and declares the Righteousness of God, "for the remission of sins that are past, through the forbearance of God," and all the difficulties of the antediluvian, Patriarchal, and Mosaic times are cleared up at once.
 

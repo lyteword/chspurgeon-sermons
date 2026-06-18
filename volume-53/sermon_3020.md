@@ -16,7 +16,7 @@ It happens to many and many a heart that after it has obtained the blessing of s
 
 We will meditate, first, upon this woman's need of comfort Secondly, upon the comfort which Jesus gave her And then, in the third place we will enter a little further into that comfort and think of the faith which Jesus Christ declared had made her whole--the faith to which He pointed her for comfort.
 
-Come, then, dear Friend, and attentively consider THIS WOMAN'S NEED OF GOOD CHEER. She felt in her body that she was made whole and yet she stood in urgent need of comfort. This necessity arose from several causes.
+Come, then, dear Friend, and attentively consider THIS WOMAN's NEED OF GOOD CHEER. She felt in her body that she was made whole and yet she stood in urgent need of comfort. This necessity arose from several causes.
 
 First, she had hoped to obtain the blessing secretly, but she was found out She thought that by coming behind the Lord Jesus in the press, she would not be observed. And she anxiously desired secrecy because the peculiarity of her bodily disorder caused her to dread publicity. She aimed at gaining her end and retreating unnoticed into the multitude. Truth to tell, she stole the cure! Her touch was given in stealth, no eye resting upon her. No disciple seems to have spied her out, nor had anyone in the throng perceived the deed, or else when the Master said, "Who touched Me?" one or other of them would have pointed her out. So far she had shunned observation and even the Savior, Himself, had not seen her with His bodily eyes. But faith such as hers could not be hidden. It was not meet that such a flower should bloom unseen. She is called for and she stands discovered, the center of all eyes.
 
@@ -99,4 +99,4 @@ Trusting in Jesus is a man's best evidence that he is saved, for it is written, 
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

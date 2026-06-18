@@ -10,7 +10,7 @@ Having thus comprehended all God's mercies under these two heads, the Psalmist a
 
 thereof."
 
-In considering these words, let us think, first, of THIS THING WHICH WE DO NOT KNOW, NAMELY, THE NUMBER OF GOD'S MERCIES.
+In considering these words, let us think, first, of THIS THING WHICH WE DO NOT KNOW, NAMELY, THE NUMBER OF GOD's MERCIES.
 
 Have you ever tried to count them? Probably you never did that for even any dayin your life. I would like you to undertake that task and to jot down every mercy you receive from God in a single day--from the moment when the eyelids of the morning are opened till the moment when the curtains of the night are drawn. If your judgment were sufficiently enlightened to discern all the items, you would find that your arithmetic would fail to tell the total of them. But, Brothers and Sisters, the days of most of us have been many and there are some here who are approaching the longest period of human life. If the mercies of one da/would surpass their computation, what shall we say of the mercies of all these days in which they have been living as gentlemen-commoners upon the bounty of God, pensioners upon the loving kindness and faithfulness of the Most High? Truly, they may say, in the retrospect of all the loving kindness of the Lord, "We know not the numbers thereof."
 
