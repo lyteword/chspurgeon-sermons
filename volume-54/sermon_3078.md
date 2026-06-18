@@ -86,7 +86,7 @@ disciples, very much cast down, so their Divine Master, full of infinite tendern
 
 In My Father's house are many mansions: if it were not so, I would have told you. "You have all My heart, so I have no secrets from you. 'If it were not so, I would have told you.' Even in going away from you, I am going away for your good."
 
-I go to prepare a place for you [See Sermon #2751, Volume 47--"A PREPARED PLACE FOR A PREPARED PEOPLE"] "I am all yours, and always yours, and everywhere yours--and I am doing everything for you."
+I go to prepare a place for you [See Sermon #2751, Volume 47--"A PREPARED PLACE FOR a PREPARED PEOPLE"] "I am all yours, and always yours, and everywhere yours--and I am doing everything for you."
 
 And if I go and prepare a place for you, I will come again, and receive you unto Myself "I will not send an angel to fetch you, but I will Myself come for you. If you die, I will come for you in that way. But if you live on until my Second Advent, 'I will come again, and receive you unto Myself.'"
 

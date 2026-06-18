@@ -10,7 +10,7 @@ But I would commend to you a wisdom which springs not up from earth, but comes d
 
 Leaving this preliminary point, for I trust you seek to avoid all ignorance and ask God to lead you into the knowledge of all Truth of God, I proceed now to the special application of my text, as the Holy Spirit has designed to place a lamp in the sepulcher where darkness was known to hold an undisputed sway. And here we have, first, an affecting metaphor--a metaphor for death--"those who are asleep." Secondly, there is a solemn distinction. There are some that die without hope and there are others for whom we sorrow not as for them that are without hope. And then, thirdly, there is a very gentle exhortation--not to sorrow for those who sleep in Jesus, "even as others which have no hope."
 
-So, in the first place, here is A MOST AFFECTING SIMILE--"those who are asleep."
+So, in the first place, here is a MOST AFFECTING SIMILE--"those who are asleep."
 
 Scripture continually uses the term, "sleep," to express death. Our Savior did. He said, "Our friend Lazarus sleeps." And so well, with such an evident and appropriate truthfulness, did He describe death as being a sleep, that His disciples mistook the sense of His words and said, "Lord, if he sleeps, he shall do well." But Jesus spoke not of the transient sleep of the weary, but of the deep slumber of death. And very frequently, even in the Old Testament, you find it said that certain persons "slept with their fathers, and were buried in a sepulcher." Nor did they count that sleep a hopeless end of life, but as David said, "I shall be satisfied, when I awake, with Your likeness"--they expected to awake from that slumber into which they believed death did cast their bodies. In the New Testament the same emblem is continually used. And it is very pleasant to remember that in the old catacombs of Rome, where the bodies of many saints were buried, it is continually found inscribed on their graves, "She sleeps." "He sleeps in Jesus." "He shall wake up one day" and similar epitaphs which mark the firm belief of Christians that sleep was a very fine and beautiful pictureof death!
 
@@ -38,7 +38,7 @@ Beloved, such a description of death makes us wish to sleep too! O Lord, let us 
 
 Oh, let me rest! Come, night, and let me slumber! Come, my last hour! Let me bow myself upon the bed! Come, Death, oh, come lightly to my couch! Yes, strike if you will, but your stroke is the loving touch that makes my body slumber! Happy, happy, they who die in the Lord!
 
-Now, secondly, here is A SOLEMN DISTINCTION.
+Now, secondly, here is a SOLEMN DISTINCTION.
 
 All men die, but all men die not alike. There are two sorts of death. I speak not now of the inferior animals--of them we never read in Scripture that they sleep--I speak of MAN, concerning whom it is certain that "there shall be a resurrection of the dead, both of the just and unjust." There is the death of the righteous, which is peaceful, happy and joyous beyond expression! In its future consequences there is, moreover, the death of the wicked, sad in itself, but doleful, indeed, in its inevitable results throughout a dread eternity! Come, then, Beloved, let us consider this distinction. There are some, we must infer from this text, for whom we can sorrow as those for whom we have no hope. While there are others for whom we are told we may not thus sorrow--concerning their death we have every hope and every joy.
 
@@ -74,7 +74,7 @@ We are looking for the time when we shall meet the saints in their very bodies a
 
 "Teachers, too, shall meet above.
 
-And our pastors whom we love Shall meet to part no more." III. And now, in the third place, we HAVE A GENTLE EXHORTATION.
+And our pastors whom we love Shall meet to part no more." III. And now, in the third place, we HAVE a GENTLE EXHORTATION.
 
 The exhortation here is delicately hinted at--that the sorrow of bereaved Christians for their Christian friends ought not to be at all like the sorrow of unconverted persons for their ungodly relatives. We are not forbidden to sorrow--"Jesus wept." The Gospel does not teach us to be stoics--we ought to weep, for it was intended that the rod should be felt, otherwise we could not "hear the rod, and who has appointed it." If we did not feel the stroke when our friends were taken away, we would prove ourselves worse than heathen men and publicans. God's Grace does not take away our sensibilities, it only refines them and, in some degree, restrains the violence of their expression. Still, there ought to be some difference between the sorrow of the righteous and the sorrow of the wicked.
 

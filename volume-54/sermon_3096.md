@@ -14,7 +14,7 @@ may ultimately come an utter infidelity like that of those of old who said, "The
 
 Dear seeking Friend, I tremble lest that should ever be the case with you. I fear lest you should wipe away those tears and that they should be succeeded by the infidel's jest. I dread lest your trembling should cease and be succeeded by a conscience seared as with a hot iron! Such experiences have happened to others and I am afraid lest they should happen to you. The sun has been shining upon you and it seemed as if it was going to melt you into penitence. It will certainly do one of two things--it will either soften you or harden you. And if the melting time should pass over and you are not melted, there may then come a hardening time, and you will become Gospel-hardened and remain forever without hope concerning the world to come! May the God of Infinite Love and Mercy graciously grant that it may not be so with you! And that it may not be so, I shall try now to speak some words of encouragement to you. And may God the Holy Spirit move all who are the Lord's people to pray that these words of encouragement may be the means of bringing you, this very hour, to full acceptance with God through faith in His Son, Jesus Christ our Lord and Savior!
 
-I want to remind you, first, that THERE IS A SOMETHING WHICH YOU DO NOT KNOW.
+I want to remind you, first, that THERE IS a SOMETHING WHICH YOU DO NOT KNOW.
 
 Those who went down into Egypt did not know their brother Joseph in his exalted position, but "at the second time Joseph was made known to his brothers." Sinner, you need above everything to know Christ When Joseph's brothers went down into Egypt, they thought that if they could buy corn there, it would be enough to supply all their needs. But the grand thing that God had in store for them there was not merely corn, but that they might find Joseph who would secure to them all the corn and everything else that they could possibly need! So, Sinner, I remind you again that your great need is to know Jesus Christ! And if you do come to know Him, you will have all that you can require.
 
@@ -24,7 +24,7 @@ But you also need to know not only that Christ is Savior and Lord, but that He i
 
 very hour, so that you may go out of this place saying, "Christ has now been made known to me. I never knew Him before. I have ridiculed His religion, I have despised His Gospel, but now that I know that He loved me and gave Himself for me, that makes all the difference! Knowing that I am one of His chosen people, one of His redeemed ones, one for whom His precious blood was shed, I can never speak against Him again! But I will praise Him as long as I live, and after I die I shall live again to extol Him forever and ever for having made Himself known to me as my Lord and Savior, and Brother!" That is what you all need to know if you have not yet learned it.
 
-Now, secondly, THERE IS A REASON WHY, AT YOUR FIRST GOING, YOU DID NOT LEARN THIS. Joseph was not made known to his brothers at their first visit, nor have you yet found Jesus so as to know His love. You have sought Him in some fashion or other, but He has not yet made Himself known to you. Shall I try to tell you why?
+Now, secondly, THERE IS a REASON WHY, AT YOUR FIRST GOING, YOU DID NOT LEARN THIS. Joseph was not made known to his brothers at their first visit, nor have you yet found Jesus so as to know His love. You have sought Him in some fashion or other, but He has not yet made Himself known to you. Shall I try to tell you why?
 
 I cannot be sure, but I think that one reason is that you have not really looked for Christ to be made known to you. These sons of Jacob went down into Egypt, not to hunt for Joseph, but to buy corn. In like manner, you prayed, but for what did you pray? You say that you asked that your sins might be pardoned, that you might be saved from Hell. That is quite right as far as it goes, for you need that, even as Joseph's brothers needed corn, but you need more than that, as they did. Your prayers were not answered because you did not really ask for what you most needed. Your previous searches ended in failure because you were not seeking what you most needed. If you had truthfully said--
 
@@ -80,7 +80,7 @@ He was wanting them badly, yet they did not know it! And Jesus Christ is wanting
 
 "I'll go to Jesus, though my sin Has like a mountain rose. I know His courts, I'll enter in, Whatever may oppose."
 
-What will happen if you do go to Christ again? This story of Joseph and his brothers gives us A FORECAST OF WHAT WILL HAPPEN IF YOU DO GO TO CHRIST AGAIN.
+What will happen if you do go to Christ again? This story of Joseph and his brothers gives us a FORECAST OF WHAT WILL HAPPEN IF YOU DO GO TO CHRIST AGAIN.
 
 Suppose that the Spirit of God should now work upon your soul and show you that all that is needed for your salvation is already done, that you have nothing to do because Christ has done it all? Suppose that the Holy Spirit should then enable you simply to put your trust in Jesus? You will be saved, saved now, and saved forever! Yet it is possible that your experience will be like that of Joseph's brothers. At first, when you know who Jesus is, you will tremble in His
 

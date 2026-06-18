@@ -12,7 +12,7 @@ You observe that it speaks of prisoners who are groaning and of those who are ap
 
 not appear to him that the preacher had much, if any sympathy with those who were of a sorrowful spirit, like Hannah,
 
-[See Sermon #1515, Volume 26--A WOMAN OF A SORROWFUL SPIRIT] or those
+[See Sermon #1515, Volume 26--a WOMAN OF a SORROWFUL SPIRIT] or those
 
 who were in an afflicted and depressed condition who could not rejoice as he could. I do not think that charge could be truthfully brought against me. If it could, I would be sorry, for where the Spirit of God rests upon any man at all after the manner in which it rested upon Christ, that man will repeat, in his measure, what his Lord could say in the fullest
 
@@ -89,7 +89,7 @@ But You, O LORD, shall endure forever; and Your remembrance unto all generations
 
 13,14. You shall arise, and have mercy upon Zion: for the time to favor her, yes, the set time is come. For Your
 
-servants take pleasure in her stones, and favor the dust thereof [See Sermon #2576, Volume 44--ZION'S PROSPERITY] They delight in her so greatly that even her rubbish is dear to them. It was a good omen for Jerusalem when the captives began to feel a homesickness and began to sigh after her.
+servants take pleasure in her stones, and favor the dust thereof [See Sermon #2576, Volume 44--ZION's PROSPERITY] They delight in her so greatly that even her rubbish is dear to them. It was a good omen for Jerusalem when the captives began to feel a homesickness and began to sigh after her.
 
 15-17. So the heathen shall fear the name of the LORD, and all the kings of the earth Your Glory. When the LORD shall build up Zion, He shall appear in His Glory. He will regard the prayer of the destitute, and not despise their prayer
 

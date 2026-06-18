@@ -48,7 +48,7 @@ And, certainly, as difficulties are removed, this unstaggering faith preserves a
 
 I think, if I had mentioned only these four things concerning unstaggering faith, you would say, "There is none like that." It grasps promises, wins positions, overcomes difficulties and lives in perpetual peace. What then? Why, "give it to me." O Little-Faith, do you not say, "Give it to me"? Perhaps you have been in Giant Despair's castle and you have thought he would surely devour you. But if you could get hold of this Goliath's sword, you might soon have the giant's head in your hand! If you keep better company, if your spiritual lungs take in more of the air of Heaven, there is no reason why that little trembling faith of yours should not grow into strong faith, for the promise is as true to you as to any other. You are as much a child of God as any other. God is as willing to answer your prayer as the prayer of any of His people. He is as true to you as He is to others. He "waits to be gracious." I hope before you go home you will say of this strong faith, "There is none like that; give it to me."
 
-The fourth thing is one which I think equally as precious as any I have spoken of, and that is A LIFE OF NEAR AND DEAR COMMUNION WITH CHRIST.
+The fourth thing is one which I think equally as precious as any I have spoken of, and that is a LIFE OF NEAR AND DEAR COMMUNION WITH CHRIST.
 
 There may not be many here who have enjoyed it, for it is not given to all God's people to live in this center of true religion. The higher life is neither known nor possessed by all the saints, but those who do know and possess it will tell you that "there is none like that." A man who gets into close communion with Christ is sure that his soul is saved. He does not sing--
 
@@ -86,7 +86,7 @@ The Christian knows that he is "accepted in the Beloved. "He knows that whatever
 
 And now, Sinner, does not your heart say, "Give it to me. Let me be treated as You treat the rest of the family. Do unto me as You use to do unto them that fear Your name"? There is a gate to God's heart and that gate is not shut! And by the way we came into that heart, dear Sinner, you may also come! "I am the Way," says Christ. If you look to Him bleeding, suffering, bearing the guilt of man, you are accepted, for looking to Jesus is a token off your being "accepted in the Beloved." But never be satisfied with merely knowing what is the privilege of a Christian, try to get it! "There is none like that; give it to me."
 
-Only once more on this point. Mark THE CHRISTIAN'S HOPE and may we not justly say, "There is none like
+Only once more on this point. Mark THE CHRISTIAN's HOPE and may we not justly say, "There is none like
 
 that"?
 

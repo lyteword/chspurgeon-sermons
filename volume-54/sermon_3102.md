@@ -69,7 +69,7 @@ Hebrews 9:24. For Christ is not entered into the Holy Place made with hands, whi
 
 25, 26. Nor yet that He should offer Himself often, as the high priest enters into the Holy Place every year with blood of others; for then must He often have suffered since the foundation of the world: but now once in the end of the world has He appeared to put away sin by the Sacrifice of Himself The high priest brought the blood of the animals that were slain for a sin-offering, and hence he came often. He could not bring his own blood, or he would only have come once, but our Savior has come only once, "to put away sin by the Sacrifice of Himself." [See Sermons #759, Volume 13--jesus
 
-PUTTING AWAY SIN; #911, Volume 16--THE PUTTING AWAY OF SIN and #2283, Volume 38--CHRIST'S ONE SACRIFICE FOR SIN]
+PUTTING AWAY SIN; #911, Volume 16--THE PUTTING AWAY OF SIN and #2283, Volume 38--CHRIST's ONE SACRIFICE FOR SIN]
 
 27, 28. And as it is appointed unto men once to die, that after this the judgment: so Christ was once offered to bear the sins of many; and unto them that look for Him shall He appear the second time without sin unto salvation. He had to suffer because of sin once, but He will never again have to do that! His Sacrifice will never need to be repeated and never can be repeated.
 
