@@ -6,7 +6,7 @@ MEN who have no Grace in their hearts despise the Church of God. Those who have 
 
 I do not expect to say anything upon this subject which will interest those who have no love for the Church of God, but those who belong to her and who are spending their lives to promote her welfare because she is the bride of Christ, will, I trust, find something in what I say which will interest and perhaps encourage them. I shall come at once to the text and notice that, first, we must expect a measure of decrease in the Church But then, secondly, we may expect a great increase in the Church And, thirdly, from what this text has to say upon that subject and also for other reasons, we ought to be encouraged to seek the increase of the Church of God.
 
-First, then, dear Friends, THERE IS A DECREASE GOING ON IN THE CHURCH OF GOD ON EARTH.
+First, then, dear Friends, THERE IS a DECREASE GOING ON IN THE CHURCH OF GOD ON EARTH.
 
 Zion is represented here as mourning for the children that she had lost. The Jewish Church in the olden times saw her sons and daughters slain with the sword, or carried away captive. Afterwards, she saw the great majority of the nation refusing Christ and turning away from Him--and thus the Jewish Church was diminished and brought very low. The same thing has happened in many other cases and I am going to apply the text to ourselves and our own churches. We must naturally expect to see, in each separate church of Jesus Christ, a certain process and measure of decrease.
 

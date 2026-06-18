@@ -70,7 +70,7 @@ Our friend will excuse me when I say that it cannot mean that. You notice that t
 > From Reason's darkened eyes.   
 > To chase the shades of death away,   
 > And bid the sinner live--   
-> A beam of Heaven, a vital ray--   
+> a beam of Heaven, a vital ray--   
 > 'Tis Yours alone to give.   
 
 How often have I thought, when I have been preaching, "There is a young woman in the gallery and down there in that area is a young man--how interested they look during the sermon!" I have met with them, I have admired their characters. They have had an amiable carriage and deportment. There has been much in them that everybody would tell others to imitate and emulate. I have said, "Ah, I shall soon have them added to the Church--there is so much that is good about them, it will be such an easy transition for them--they are so moral and so excellent, surely it will be very easy for them to take a step into the Kingdom of Heaven." I don't say that I have said so much as that in words to my heart, but that has been about what I have thought. Well, there has been a very different sort of fellow, a strange looking object, certainly, who came running into the Chapel one Thursday evening, towards the end of the service. He was not even washed, nor in any way prepared for Divine worship--he only came to hear something that would make him laugh, as he thought. I did not expect to have him converted, but the next time I sat to see enquirers, in he came--cleaned and brushed up--but I recognized him, for all that, and I said to him, "Didn't you come into the Chapel, one Thursday night, after you had been hammering and tinkering away somewhere? I thought you looked a strange customer, certainly." "Yes," he said, "and the Lord met with me that night!"
