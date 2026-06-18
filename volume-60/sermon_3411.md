@@ -6,7 +6,7 @@ SOME persons are always trying to prove what is customary in the Christian Churc
 
 Now, our text tells us of one old custom in the Apostles' days. Those who became Christians first gave themselves to the Lord and then they gave themselves to the Church, according to God's will. Let us ponder these things in their order. Of course we shall think of the main and most important point first--that action which gives value and beauty to all that follows and is its fruit--
 
-THE SOUL'S SUPREME GIFT
+THE SOUL's SUPREME GIFT
 
 The first thing that the original Christians, the Christians of the old and Holy Spirit times did was, "they gave themselves unto the Lord." This is vital, the one all-important bestowal. Have all of us who are professors that we are Christ's disciples really given ourselves to the Lord? Are there not in this House of Prayer some who have never thought of doing so, and even some who would reject with contempt the idea of doing so? Oh, my Hearers, the day will come when you will look at these matters in a very different light! And in the next world it will be seen that it would have been your highest wisdom to have given yourselves to the Lord--and your supreme folly to have lived unto self!
 

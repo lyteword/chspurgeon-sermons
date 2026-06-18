@@ -8,7 +8,7 @@ Wishing to speak of the text, then, in this sense, I shall ask you to accompany 
 
 Our first thought shall be some plain, earnest talk concerning--
 
-A FEW PRELIMINARY DISCOVERIES WHICH A MAN MAKES BEFORE HE GETS PEACE WITH GOD.
+a FEW PRELIMINARY DISCOVERIES WHICH a MAN MAKES BEFORE HE GETS PEACE WITH GOD.
 
 These, I do not think, are by any means foreign to the text, or merely imported to it, but belong rightfully to it. You see that Paul, before he came to this justification by faith, had been speaking about sin. It would not have been possible for him to have given an intelligent definition ofjustification without mentioning that men are sinners, without informing them that they had broken God's holy Law and that the Law, by and of itself, could never restore them to the favor of God. Now, some of these things of which I am going to speak are absolutely necessary, if not to my sermon, yet certainly to your spiritually understanding even so much as one jot or tittle of what it is to be justified by faith!
 

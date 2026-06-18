@@ -34,7 +34,7 @@ Thus much upon the points which are in debate--about which we are to examine our
 
 TO PRESS THIS VERY IMPORTANT SUBJECT UPON YOU, WITH SOME REASONS WHY THERE
 
-SHOULD BE SUCH A SELF-EXAMINATION.
+SHOULD BE SUCH a SELF-EXAMINATION.
 
 I might say, Brothers and Sisters, that such an examination should be used because self-knowledge is always valuable. The old Greeks, whose wonderful sayings often verged upon Inspiration, used to say, "Man, know yourself!" It is ill for a man to be acquainted with foreign countries and to know nothing of his own--to understand other men's farms and to let his own run to waste--to be conversant with other men's health and to be dying of a secret disease! To study other men's characters, but to allow his own character to be obnoxious in the sight of God. Know yourselves! Nothing will pay you better than to search your own hearts and to know yourselves. Of all stock-taking, this is one of the most beneficial. It will often be the death of pride when a man finds out what he really is. Self-righteousness will fly before such a searching, as owls fly before the rising sun! Know yourself and you are on the road to knowing Christ, for the knowledge of self will humble you, will make you feel your need of Jesus and may, in the hands of God the Holy Spirit, lead you to the finding of the Savior! Oh, Men and Women, how is it that you have so many acquaintances, such a large circle of friends and yet do not make acquaintance with yourselves? While you will read much of literature, you read not your own hearts! You commune with others, yet you commune not with yourselves and do not know yourselves. I pray you examine yourselves, if for no other reason than because such lore is among the most precious that a man can gain!
 

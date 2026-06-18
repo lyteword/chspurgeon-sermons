@@ -6,7 +6,7 @@ BEYOND all controversy, this is a most remarkable text. Zeal is an attribute whi
 
 Now, Brothers and Sisters, it was such a plan as this that awoke the zeal of God! This was what could not have been done by mere power, but must bring forth all the attributes of God--the work that had to be achieved here was worthy of a great Creator--it was a work which would reveal the Deity as no other work had ever done and, therefore, if I may use the expression (I have often to excuse myself, not to you, but to Him), He seems to brace Himself up to a display of all the Divine Energy and Almighty Omnipotence, to accomplish His purpose, to carry out His plan and make Jesus the King of a chosen company! "The zeal of the Lord of Hosts shall perform this."
 
-GOD ENTERS INTO THE PLAN OF GLORIFYING CHRIST AND MAKING TO HIMSELF A PEOPLE
+GOD ENTERS INTO THE PLAN OF GLORIFYING CHRIST AND MAKING TO HIMSELF a PEOPLE
 
 WITH GREAT ZEAL.
 
@@ -44,7 +44,7 @@ But last of all, if God is thus zealous for the crown rights, the Kingdom of Chr
 
 EXPOSITION BY C. H. SPURGEON: ISAIAH 40:1-17; 25-31; JOHN1:29-42.
 
-Verses 1, 2. Comfort you, comfort you My people, says your God. Speak you comfortably to Jerusalem, and cry unto her, that her warfare is accomplished, that her iniquity is pardoned: for she has received of the LORD'S hand double for all her sins.God would have His people happy. He knows that we are not in strong, vigorous state, neither do we honor His name while we are lacking in holy joy. Let the sinners be uncomfortable. Let them be "like the troubled sea that cannot rest." But as for God's people, it is His great joy that they should be happy. He bids His servants again and again to comfort them! Sometimes we are in a condition of warfare and we are under the chastising rod, but now the Lord appears graciously to His servants, and He says, "Your warfare is over: your chastisement is ended." Now the Lord returns in mercy and He grants a sense of forgiven sin.
+Verses 1, 2. Comfort you, comfort you My people, says your God. Speak you comfortably to Jerusalem, and cry unto her, that her warfare is accomplished, that her iniquity is pardoned: for she has received of the LORD's hand double for all her sins.God would have His people happy. He knows that we are not in strong, vigorous state, neither do we honor His name while we are lacking in holy joy. Let the sinners be uncomfortable. Let them be "like the troubled sea that cannot rest." But as for God's people, it is His great joy that they should be happy. He bids His servants again and again to comfort them! Sometimes we are in a condition of warfare and we are under the chastising rod, but now the Lord appears graciously to His servants, and He says, "Your warfare is over: your chastisement is ended." Now the Lord returns in mercy and He grants a sense of forgiven sin.
 
 The voice of him that cries in the wilderness, Prepare you the way of the LORD, make straight in the desert a highway for our God.You know this was John the Baptist coming to proclaim the Savior. That was the best comfort God's people could have--the coming of the Lord. So it is now. The joy of the Church is the coming of the Lord! And toeach one of us the greatest source of joy is the drawing near to us of our Lord. If He appears to us, our winter is over, our summer's sun has come! If Christ is with us, the time of the singing of birds has come and our heart is glad.
 
@@ -98,4 +98,4 @@ Then Jesus turned and saw them following, and said unto them, What do you seek?C
 
 39-42. They came and saw where He dwelt, and abode with Him that day, for it was about the tenth hour. One of the two which heard John speak and followed Him, was Andre w, Simon Peter's brother. He first found his own brother, Simon, and said unto him, We have found the Messiah, which is, being interpreted, the Christ. And he brought him to Jesus. This is how the Kingdom began to grow--by individual effort. "Andrew found Simon"--one convert must bring another--"and He brought Him to Jesus."
 
-And when Jesus beheld him, He said, You are Simon, the son of Jonah. You shall be called Cephas, which is by interpretation, A Stone.There was a meaning in the change of names, for there was about to be a change of character-- the timid son of a dove soon to become a very rock for the Church!
+And when Jesus beheld him, He said, You are Simon, the son of Jonah. You shall be called Cephas, which is by interpretation, a Stone.There was a meaning in the change of names, for there was about to be a change of character-- the timid son of a dove soon to become a very rock for the Church!

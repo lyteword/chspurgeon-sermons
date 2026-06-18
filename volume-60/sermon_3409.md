@@ -86,7 +86,7 @@ What man is he that desires life?What man is he that does notdesire life? Love o
 
 12, 13. Andloves many days, that he maysee good?Keep your tongue from evilandyour lips from speaking guile. He begins with one of the hardest practical duties of the fear of God, for he that bridles his tongue is also able to bridle the whole body! The tongue is such an unruly member that if that is kept--and only through Divine Grace can it be so--then we may be quite certain that all the other organs and faculties will be kept, too.
 
-Depart from evil and do good. Seek peace and pursue it A great deal packed away into a small compass there. There is the negative, "Depart from evil," and the positive which must go with it, "Do good." And if you do not do good, you will soon do evil. And then there is that blessed precept--"Seek peace." Hunt after it if you cannot find it. And if it runs away from you, follow it--pursue it--hunt after it till you gain it! A peaceable life is a happy life.
+Depart from evil and do good. Seek peace and pursue it a great deal packed away into a small compass there. There is the negative, "Depart from evil," and the positive which must go with it, "Do good." And if you do not do good, you will soon do evil. And then there is that blessed precept--"Seek peace." Hunt after it if you cannot find it. And if it runs away from you, follow it--pursue it--hunt after it till you gain it! A peaceable life is a happy life.
 
 The eyes ofthe LORD are upon the righteous. He watches them. He loves them too well to let them ever be out of His sight. He views them with complacency. He regards them with affection. The eyes of the Lord are upon the righteous.
 

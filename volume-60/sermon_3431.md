@@ -18,7 +18,7 @@ For, Brothers and Sisters, David came again up to Jerusalem. The Lord smote his 
 
 Thus much on David. I think there is much of interesting Truths of God to be gathered from David's history in passing over Kidron, if we had time to bring it out. But I rather suggest a vein of thought than attempt to enlarge upon it. But now, secondly--
 
-A GREATER KING THAN DAVID PASSED OVER THE BROOK KIDRON and if, as David passed, all thepeople wept, let the people weep tonight as they remember how Zion's greater King passed over that black brook!
+a GREATER KING THAN DAVID PASSED OVER THE BROOK KIDRON and if, as David passed, all thepeople wept, let the people weep tonight as they remember how Zion's greater King passed over that black brook!
 
 There never was such a King as He--so glorious and fair to look upon. His eyes were the suns of Heaven, and His Presence was the Glory thereof. But He came down among His creatures, who were fallen, seeking nothing but their good. He raised their dead. He healed their sick. When they were hungry, He fed them, and when they were fainting, He refreshed them. His words were those of love and His teachings full of wisdom and of Grace. But now they seek His blood! Yes, they seek His blood and in the night they are pursuing Him. They will come upon Him. They will haul Him off to the judgment seat--they will put Him to death. Oh, cruel world, not to know its best Benefactor! One of our poets has called Christ, "the Great Philanthropist," and so He was, only the word falls far short of what He really was, for He loved His people with all His heart! He came unto His own, and His own received Him not. Yes, His own, the Jews, were the most fierce in His destruction!
 
@@ -30,7 +30,7 @@ To enter into the griefs of our Lord in Gethsemane is not our business, tonight,
 
 See then, dear Brothers and Sisters, in the Person of our Lord, that this is a prophecy and an assurance that the cause of right and of truth--that those who espouse that cause and are pure and perfect, themselves, may, nevertheless, be brought very low--even to the dust! They may be slandered, despised and rejected and yes, for all that, their triumph is not in jeopardy and neither their cause nor themselves imperiled! Oh, it makes one strong to feel this! There cannot be anything happen to us so severe as has already happened to our King! There cannot be any slander more fierce than the slander poured on Him. They have called the Master of the house, Beelzebub! What can they now call the men of His household? They must find some lighter name for us! Be encouraged, then, you feeble bands of trembling Christians, encouraged in all your sufferings and griefs for Christ's sake, for as He yet rose from the dead and led captivity captive, even so shall the feeblest of His followers! And so I shall close by just speaking--
 
-A WORD OR TWO TO OURSELVES CONCERNING OUR PASSING THE BROOK KIDRON.
+a WORD OR TWO TO OURSELVES CONCERNING OUR PASSING THE BROOK KIDRON.
 
 Ah, we do not like going over Kidron. When it comes to the pinch, how we struggle against suffering, and especially against dishonor and slander! How many there were who would have gone on pilgrimage, but that Mr. Shame proved too much for them--they could not bear to go over the black Brook Kidron, could not endure to be made nothing of for the sake of the Lord of Glory--they even turned back!
 

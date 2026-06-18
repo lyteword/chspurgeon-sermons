@@ -42,7 +42,7 @@ Before long we have sometimes seen those very persons who were the most determin
 
 But I hasten from that to notice that the same wonderful effect in another form is produced--
 
-WHEN THE GOSPEL OF CHRIST COMES INTO A SINGLE HEART.
+WHEN THE GOSPEL OF CHRIST COMES INTO a SINGLE HEART.
 
 Do not some of you remember when Jesus Christ first came to your heart? Oh, I remember when Moses came into mine, with the Law and the great Commandments. When I saw myself a sinner in the light of the Law of God! When the fiery light of Sinai made me see my multitude of spots--yes, discover that I was covered all over with filthiness and blackness! Then the minister came to my gate and I heard the Word preached, preached affectionately, too. Then parents taught me the Word with tears and prayers, but I got no comfort and my soul continued in bondage under a sense of sin. But what a mercy it is when Jesus Christ, Himself, comes! When it is no longer the coming of the minister or of the preacher, but the coming of Jesus Christ, Himself, when Jesus passes by! I know some of you can remember right well the time when He passed by you and came into your heart. You believed Him--it was but a small action--you believed in Jesus! You gave up all trying to save yourselves by your works--you renounced once and for all your reliance upon ceremonies, past or future, and you cast yourselves down before that Cross whereon the Master shed His atoning blood! You remember that. Now, do you not remember what peace there was that came into your spirit, a peace that passes all understanding?
 

@@ -8,7 +8,7 @@ What is our resting place, Beloved? We have only one answer, I am sure--"We who 
 
 Three things--here is the first--a sin of which to be convinced. Secondly, the cause of it to be sought out. And thirdly, the cure of it to be brought about. "They have forgotten their resting place."
 
-THIS IS TO BE ACCOUNTED A SIN FOR MANY REASONS.
+THIS IS TO BE ACCOUNTED a SIN FOR MANY REASONS.
 
 Let us recollect how dearly our resting place was purchased for us. To give your soul rest, my Brothers and Sisters, Jesus Christ gave up His rest and more--His Heaven, His Throne, His honor, His life. No rest could there ever have beenfor you, a wandering sheep, if the Shepherd had not given up Himself as a ransom for the flock. Did it cost Him Gethse-mane's bloody sweat? Did it cost Him Calvary's wounds and death? And did you receive it and yet forget it? Have not you often thought that whatever else might have passed away from your mind, never could the thought of that dying love depart? Yet it has faded on the tablet of your heat, for you have forgotten the priceless gift which that dying love has procured for you! Oh, chide yourself, that Immanuel's purchase should be lightly esteemed, that He, your rest, should ever slip away from your thoughts!
 
@@ -112,7 +112,7 @@ Verses 1, 2. If you will return, O Israel, says the LORD, return unto Me, and if
 
 Then said I, Ah, Lord God! Surely You have greatly deceived this people and Jerusalem, saying, You shall have peace; whereas the sword reaches unto the soul. God promised them peace, but it was upon a condition which they did not fulfill. There was peace while they gave up their sin, but, "There is no peace with God unto the wicked." And so they missed it.
 
-11, 12. At that time shall it be said to this people and to Jerusalem, A dry wind of the high places in the wilderness toward the daughter of My people, not to fan, nor to cleanse. Even a full wind from those places shall come unto Me: now also will'I give sentence against them. What an awful line that is. "Now also will I give sentence against them." They had been on their trial. They are found guilty. They will not repent. "Now will I proceed to pronounce their doom and give sentence against them."
+11, 12. At that time shall it be said to this people and to Jerusalem, a dry wind of the high places in the wilderness toward the daughter of My people, not to fan, nor to cleanse. Even a full wind from those places shall come unto Me: now also will'I give sentence against them. What an awful line that is. "Now also will I give sentence against them." They had been on their trial. They are found guilty. They will not repent. "Now will I proceed to pronounce their doom and give sentence against them."
 
 Behold, he shall come up as clouds, and his chariots shall be as a whirlwind: his horses are swifter than eagles. Woe unto us!For we are spoiled. They began to cry out when they began to smart. And the Prophet comes in, again.
 
