@@ -13,7 +13,7 @@ Dear Friends, I feel assured that the text of this morning, terrible as it must 
 
 First, we shall this morning enquire for the criminals whose brother's blood cries from the ground. Next, we will endeavor to show the hateful character of the crime. Then, thirdly, we will select the judgment. And fourthly, we will exhort the guilty ones to turn from their ways and to hear the voice of mercy.
 
-First, then, we are to MAKE A SEARCHING ENQUIRY FOR THE CRIMINALS.
+First, then, we are to MAKE a SEARCHING ENQUIRY FOR THE CRIMINALS.
 
 I do not intend to say much, this morning, about the act of actually slaying one's brother. The question of the right-ness of war is a moot point even among moral men. Among those who read their Bibles, the allowance of defensive war may, perhaps, still be a question. But any other sort of war must certainly be condemned by the man who is a disciple of the Lord Jesus Christ. We shall say nothing, however, or but very little, concerning the criminality of those ambitious and unscrupulous persons who hurry nations into war without cause.
 

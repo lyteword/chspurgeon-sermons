@@ -91,7 +91,7 @@ The difference appears once more in this. He will come again for a very differen
 
 He came to open wide the door of Divine Grace, He comes to shut the door. He comes not to redeem but to judge. Not to save but to pronounce the sentence. Not to weep while He invites, but to smile while He rewards. Not to tremble in heart while He proclaims Grace but to make others tremble while He proclaims their doom. Oh Jesus! How great the difference between Your first and Your second Advent!
 
-I must now spend the few minutes that remain in ASKING A FEW QUESTIONS.
+I must now spend the few minutes that remain in ASKING a FEW QUESTIONS.
 
 What has this to do with us? It has something to do with everyone of us, from the oldest bald-head here, down to that rosy child who is listening with eyes of wonder to the thought that Christ shall come and every eye shall see Him. There are many spectacles which only a few among the children of men can see but every eye shall see Him. Many of us may be gone from this earth before the next great display shall be seen in London, but every eye shall see Him. There may be some grand sights which you feel no interest in. You would not see them if you might, but you shall see Him.
 

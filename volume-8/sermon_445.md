@@ -33,7 +33,7 @@ And most certainly our ultimate resurrection rests here. For, "If the Spirit of 
 
 It is time to pass on and come more fully to the text. "But now is Christ risen from the dead and become the first fruits of them that slept." Let me draw your attention, first of all, to the pictures here given of the death of the saints. Further, we shall observe the singular relationship which exists between Christ's resurrection and the resurrection of the saints. And before we leave the subject, we shall suggest certain practical considerations arising from the doctrine before us.
 
-First of all, then, THE TEXT GIVES A VIEW OF DEATH VERY COMMOM IN SCRIPTURE, BUT NOT SUFFICIENTLY ACCEPTED AMONG US.
+First of all, then, THE TEXT GIVES a VIEW OF DEATH VERY COMMOM IN SCRIPTURE, BUT NOT SUFFICIENTLY ACCEPTED AMONG US.
 
 The representations of the text, I take it, are twofold. Death is here compared to a sleep--"The first fruits of them that slept." But moreover, you will plainly perceive it is compared also to a sowing. For Christ is pictured as being "the first fruits." Now, to a harvest there must have been a sowing. If the resurrection of Christ is the first fruits, then the resurrection of the elect must be looked upon as a harvest, and death would, therefore, be symbolized by a sowing.
 
@@ -115,7 +115,7 @@ He was, again, the first fruits, not only as a pledge but as the representative 
 
 Triumph, you children of God, triumph in this. You are risen in Christ today! We see not the saints as yet ascended-- rather, we see their bones dried in the valley, and we ask, "Can these dry bones live?" But we see Jesus, who was made a little lower than the angels for the suffering of death. And we know that He is risen, and sits at the right hand of the Father! And by faith we perceive that as our Covenant Head He has raised us up together and made us sit together in heavenly places even in Him--for He is the Head over all things to His Church, which is His Body, the fullness of Him that fills all in all. Never doubt, Believer, of your resurrection, since the second Adam was loosed from the bands of the tomb.
 
-And now, lastly, we will close by noticing THE INFLUENCE OF THE WHOLE DOCTRINE OF THE RESURRECTION AND CHRIST'S CONNECTION WITH IT UPON OUR OWN SPIRITS.
+And now, lastly, we will close by noticing THE INFLUENCE OF THE WHOLE DOCTRINE OF THE RESURRECTION AND CHRIST's CONNECTION WITH IT UPON OUR OWN SPIRITS.
 
 First, let us look well to the holiness of our bodies. "Know you not that your bodies are the temples of the Holy Spirit? If any man defile the temple of God, him will God destroy." We do not believe in consecrated Churches. We think it altogether absurd to talk of holy bricks and mortar. But we do know by Scriptural authority that the body is holy--that the body of the saint is as really holy as men pretend that Churches and temples may be.
 

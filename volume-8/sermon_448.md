@@ -1,4 +1,4 @@
-# Sermon 448 | Another And A Nobler Exhibition
+# Sermon 448 | Another And a Nobler Exhibition
 
 > "To the intent that now unto the principalities and powers in heavenly places might be known by the Church the manifold wisdom of God."  
 > Ephesians 3:10.  
@@ -71,7 +71,7 @@ And in a moment or two your road winds again and you will see a narrow valley an
 
 And since then, through every trial of the Church, as the eighteen centuries have rolled on since the Master went up to Heaven, they have been constantly catching fresh views and seeing fresh manifestations of the varied and constantly-changing wisdom of the unchanging God, as it is manifested in His dealings with the Church. So that both in the dispensations, as well as in the plan, there is made known to principalities and powers "the manifold wisdom of God."
 
-Thirdly, to be brief upon each point, we may conclude, without any doubt, that they mainly see the wisdom of God in His Church, IN THE CHURCH'S COVENANT HEAD AND REPRESENTATIVE.
+Thirdly, to be brief upon each point, we may conclude, without any doubt, that they mainly see the wisdom of God in His Church, IN THE CHURCH's COVENANT HEAD AND REPRESENTATIVE.
 
 Oh, when first they heard that the Lord of Life and Glory was to be made flesh and to dwell among us, how they must have admired the plan of Heaven's going down to earth that earth might come up to Heaven! The Babe in the manger commanded all their songs. When they saw that Babe become a Man and heard Him preach, how they must have marveled at the wisdom of sending God Himself to be God's own Prophet! When they saw that Man living a life of perfect holiness, how they must have clapped their wings at the thought that man could see perfection now in God's own Self, shrouded in human form!
 
@@ -111,7 +111,7 @@ They see wisdom in the prosperity of Christians when their feet stand like hinds
 
 They lean from the battlements of Heaven today to gaze on you, you tried Believers. They look into your furnace as did the King of Babylon and they see the fourth man with you like unto the Son of God. They track you, O you children of Israel in the wilderness. They see the places of your encampment and the land to which you are hastening. And as they mark the fiery cloudy pillar that conducts you and the Angel of God's house that leads the van and brings up the rear, they discover in every step of the way the wonderful wisdom of God.
 
-And lastly, beyond all controversy, WHEN THE LAST OF GOD'S PEOPLE SHALL BE BROUGHT IN and the bright angels shall begin to wander through the heavenly plains and converse with all the redeemed spirits, they will then see "the manifold wisdom of God." Let the angel speak awhile for himself. "Here," he says, "I see men of all nations and kindreds and tongues, from Britain to Japan, from the frozen north to the burning zone beneath the equator. Here I see souls of all ages, babes here snatched from the womb and breast, and spirits that once knew palsied age to whom the grasshopper was a burden.
+And lastly, beyond all controversy, WHEN THE LAST OF GOD's PEOPLE SHALL BE BROUGHT IN and the bright angels shall begin to wander through the heavenly plains and converse with all the redeemed spirits, they will then see "the manifold wisdom of God." Let the angel speak awhile for himself. "Here," he says, "I see men of all nations and kindreds and tongues, from Britain to Japan, from the frozen north to the burning zone beneath the equator. Here I see souls of all ages, babes here snatched from the womb and breast, and spirits that once knew palsied age to whom the grasshopper was a burden.
 
 "Here I see men from all periods, from Adam and Abel down to the men who were alive and remained at the coming of the Son of God from Heaven. Here I see them from the days of Abraham, and the times of David and the period of the Apostles and the seasons of Luther and of Wickliffe, even to the last times of the Church. Here I see them of all classes. There is one who was a king and at his side, as his fellow, is another that tugged the oar as a galley-slave. There I see a merchant prince who counted not his riches dear unto him and by his side a poor man who was rich in faith and heir of the kingdom.
 

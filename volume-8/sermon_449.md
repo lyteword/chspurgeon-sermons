@@ -55,7 +55,7 @@ Can the hart in the wilderness cease from panting for the water brooks? Can a si
 
 Brethren, will you look at yourselves, and at your own experience this morning, and see if you ever were brought down to the spot where Judah and his brothers stood? For I fear we have never been brought rightly unless we have been brought here. He that was never condemned, I think, was never forgiven. He who never confessed his guilt cannot have had a pardon. And if we have never trembled before Jesus the Judge, we can never have rejoiced before Jesus the elder Brother.
 
-We turn, however, now to remark that THE SINGULARLY ROUGH BEHAVIOR OF JOSEPH IS A NOTABLE REPRESENTATION OF THE WAY IN WHICH CHRIST DEALS WITH SOULS UNDER CONVICTION OF SIN.
+We turn, however, now to remark that THE SINGULARLY ROUGH BEHAVIOR OF JOSEPH IS a NOTABLE REPRESENTATION OF THE WAY IN WHICH CHRIST DEALS WITH SOULS UNDER CONVICTION OF SIN.
 
 Joseph always was their brother, always loved them, had a heart full of compassion for them, even when he called them spies. Kind words were often hastening to his lips, yet for their good he showed himself to be as a stranger and even as an enemy, so that he might bring them very low and prostrate before the throne.
 
@@ -97,7 +97,7 @@ SWEETLY REVEAL HIMSELF TO POOR CONSCIENCE-STRICKEN PENITENT SINNERS.
 
 The reading of the chapter which we heard this morning is enough to bring tears to all eyes that are connected with tender hearts. I must acknowledge that when reading the chapter in my own study, I could not resist weeping copiously at the picture which the Holy Spirit has so admirably drawn. Those ten, poor trembling brothers. Judah's speech just finished and all of them on their knees supplicating the clearing of the court house and then Joseph, whose soul was swelling with such grief and love, bursting out with that, "I am Joseph."
 
-What a scene for tender souls! Though he must have spoken in deep affection, yet, "I am Joseph," must have fallen on their ears like thunder. "Joseph! Where are we now? Better for us that we were in a lion's den, than here with him whom we mocked, saying, 'Behold, this dreamer comes,' with him whom we sold and dipped his coat of many colors in blood. And then took it to his father, saying, 'See whether this is your son's coat or not.' " Well might they tremble!
+What a scene for tender souls! Though he must have spoken in deep affection, yet, "I am Joseph," must have fallen on their ears like thunder. "Joseph! Where are we now? Better for us that we were in a lion's den, than here with him whom we mocked, saying, 'Behold, this dreamer comes,' with him whom we sold and dipped his coat of many colors in blood. And then took it to his father, saying, 'see whether this is your son's coat or not.' " Well might they tremble!
 
 And then look at the tenderness of Joseph when he says to them again, while they are retiring from him afraid, "I am Joseph, your brother, whom you sold into Egypt, I pray you come near to me." You hear his pathetic speech as he discovers his brotherhood and relationship, and then you see that generous embrace when, beginning with Benjamin, his next of kin, his own uterine brother, he afterwards weeps with all the rest and sends them home with favors, enriched and happy.
 
