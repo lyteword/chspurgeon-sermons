@@ -26,7 +26,7 @@ Then comes the speculative perfectionist He tells you that you must believe in J
 
 Where, then, is perfection to be found? The text tells us that all Christians are perfect in Christ Jesus, that the sons and daughters of the Lord God Almighty are perfect in Christ Jesus. Let me try to explain the meaning of this perfection in Christ.
 
-First, consider HOW GOD'S PEOPLE ARE "IN CHRIST."
+First, consider HOW GOD's PEOPLE ARE "IN CHRIST."
 
 I remark, first, they are, all of them, in Christ in the Covenant of Election. When God chose His people, He did not choose them one by one, separately, but He chose Christ and all His people were chosen in Him. Just as when I select an acorn, I select all the unborn forests slumbering in that acorn cup, so, when God chose Jesus, He chose all the people that were in Him, all whom Christ had taken to Himself by an eternal union and had made one with His own Person.
 

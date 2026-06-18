@@ -64,7 +64,7 @@ You and I might act like that, but the Lord does not. He not only does not turn 
 
 You shall be delivered from going down to the Pit, your eyes shall be saved from tears and your feet from falling." There is Divine Sovereignty! There is unparalleled mercy!
 
-Now may God help us while we ENDEAVOR TO MAKE A SOLEMN APPLICATION OF THIS SUBJECT, first, TO THE OLD!
+Now may God help us while we ENDEAVOR TO MAKE a SOLEMN APPLICATION OF THIS SUBJECT, first, TO THE OLD!
 
 It would be presumption in a young man to speak to the aged if he spoke to them simply as a young man. But, as a preacher, I am God's ambassador, and if God has sent me, no man may despise my youth, nor is it to be considered in the least degree, nor do I consider it, myself. I speak with the same authority that the most aged minister can command, for I have the same commission that he has and he has no better message than mine. [This sermon was preached in Brother Spurgeon's first full calendar year as a preacher in London. He was 21 years of age.--EOD.] Old man, come here and let me give you a solemn address, to warn you of the wrath to come!
 

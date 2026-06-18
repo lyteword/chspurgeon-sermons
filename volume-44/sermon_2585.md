@@ -26,7 +26,7 @@ But God has one field on a hill which is as rich as any of the others! And, inde
 
 Children of God, go into all these fields. Do not despise any of them, but go and glean in them all, for there is the richest gleaning in all creation!
 
-Now, in the second place, we have to think and speak of A HUMBLE GLEANER. Ruth was a gleaner and she may serve as an illustration of what every Believer should be in the fields of God.
+Now, in the second place, we have to think and speak of a HUMBLE GLEANER. Ruth was a gleaner and she may serve as an illustration of what every Believer should be in the fields of God.
 
 He should be a gleaner, and he may take a whole sheaf home if he likes. He may be something more than a gleaner if he can be, but I use the figure of a gleaner because I believe that is the most a Christian ever is. Some may ask, "Why does not the Christian go and reap all the field and take all the corn home with him?" So he may, if he can. If he likes to take a whole sheaf on his back and go home with it, he may do so. And if he will bring a great wagon and carry away all there is in the field, he may have it all! But, generally, our faith is so small that we can only glean--we take away but a little of the blessing which God has prepared so abundantly. And though, sometimes faith does take and enjoy much, yet, when we compare it with what there is to be enjoyed, a gleaner is the true picture of faith--but more especially of little faith. All it can do is to glean--it cannot cart the wheat home, or carry a sheaf on its shoulders--it can only take it up, ear by ear.
 
@@ -52,7 +52,7 @@ And then, once more, the good woman, after threshing the corn, no doubt afterwar
 
 Let me advise you to winnow the sermon, to meditate upon it, to pray over it, to separate the chaff from the wheat and to take care of that which is good. That is the true art of heavenly gleaning--may the Lord teach us it, that we may become "rich to all the intents of bliss," that we may be filled and satisfied with the favor and goodness of the Lord!
 
-Now, in the last place, here is A GRACIOUS PERMISSION GIVEN. "Let her glean even among the sheaves, and reproach her not."
+Now, in the last place, here is a GRACIOUS PERMISSION GIVEN. "Let her glean even among the sheaves, and reproach her not."
 
 Ruth had no right to go among the sheaves to glean, but Boaz gave her a right to go there by saying, "Let her do it." For her to be allowed to go among the sheaves, in that part of the field where the wheat was not already carted, was a special favor, but to go among the sheaves and to have handfuls of corn dropped on purpose for her, was a further proof of the kindness of Boaz.
 

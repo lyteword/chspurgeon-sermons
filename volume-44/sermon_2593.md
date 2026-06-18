@@ -16,7 +16,7 @@ As we read the chapter, we saw that it was so in this instance. The people waite
 
 I am going to divide my subject in this way. First, here is a beautiful sight. "They were all waiting for Him." Secondly, here is a sure arrival. "Jesus returned." The people were all waiting for Him, so He came to them. And, thirdly, here is a hearty welcome. "The multitude welcomed Him, for they were all waiting for Him."
 
-First, then, here is A BEAUTIFUL SIGHT. "They were all waiting for Him." I shall try to show you this beautiful sight in four pictures.
+First, then, here is a BEAUTIFUL SIGHT. "They were all waiting for Him." I shall try to show you this beautiful sight in four pictures.
 
 I think that it is a very beautiful sight, first, to see a waiting assembly when all the people have come together--not to hear fine music, or merely to listen to the voice of a man, but anxious to meet with God, desirous to feel the power of Jesus Christ! Happy preacher who has to address such an audience! Happy audience that has been brought into such a condition! "They were all waiting for Him." Just for a minute or two look at our ordinary congregations and see if our text is true concerning them. Alas, the people are not all waiting for Jesus, for they have not all assembled at the hour of worship! A few come on time and take their seats, but it is not so with others. I am not speaking of you, my Hearers, for I exempt you from this description. You would not get in if you came late, so you do not generally attempt it, but you know how it is in many places.
 
@@ -48,7 +48,7 @@ I would begin to wait for Him now, dear Brothers and Sisters, while yet in healt
 
 Thus have I set before you the picture in four panels which my mind's eye sees in the last words of our text--"They were all waiting for Him."
 
-Now let us turn to the second point, A SURE ARRIVAL--"Jesus returned." Men never wait in vain for Christ--if they are truly waiting for Him, He will come to them. How do we know this?
+Now let us turn to the second point, a SURE ARRIVAL--"Jesus returned." Men never wait in vain for Christ--if they are truly waiting for Him, He will come to them. How do we know this?
 
 Well, we infer it, first, from the fact that His Spirit is there already. Brethren, are you waiting for Christ? Who but the blessed Spirit of God made you wait? There was a time when you would have been like the Gadarenes and would have asked Him to depart from you. But now the longing, the pining, the fainting, the swooning are all proofs of His Spirit's work within you. Where His Spirit is, there Christ will surely be. Indeed, He is there by His Spirit. He never set a soul hungering without intending to feed it with the Bread of Life. He never made a spirit thirst without meaning to fill it with the Water of Life. You can be sure that if you are waiting for Him, He will come to you, for His Spirit is already with you.
 
@@ -64,7 +64,7 @@ Sirs, I tell you that there is not, even among the damned in Hell, a single one 
 
 Thus have I spoken upon a sure arrival--Christ will come to those who wait for Him
 
-Now, lastly, those who have waited for Christ are sure to give Him A HEARTY WELCOME when He does come. I know that for certain because many things will lead them to do so.
+Now, lastly, those who have waited for Christ are sure to give Him a HEARTY WELCOME when He does come. I know that for certain because many things will lead them to do so.
 
 First, their fears. You know that at the time mentioned in our text, the people came down to the shore of the Sea of Galilee and waited, and watched, and looked everywhere for Christ. He was gone. He who had fed them was gone. He who had healed their sick was gone. They said, one to another, "Which way did He go?" And the answer was, "He sailed across the sea and there was a storm that night--and He has not come back." They may have said, "Perhaps He never will come back." And some of the Galileans may have sadly added, "Alas, we did not treat Him well when He was here. We did not honor and reverence Him as we ought to have done and now, possibly, we shall never see Him again." Among them was that poor woman with the issue of blood--and she would say, "Ah, if He does not come back, then I cannot be healed. I have not a penny left to spend on another doctor! And if I had, I would probably only get worse instead of better." There was Jarius also, the ruler of the synagogue, and he was asking, "Where is the great Prophet? Do you think He will come back? My dear little girl, my only daughter, is getting worse and worse. I fear she is dying. Would God He were back, for He might heal her! If He does not return soon, she will be dead before He comes. And then what shall I do?"
 

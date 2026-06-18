@@ -28,7 +28,7 @@ Ah, me, why did He do it? When you have told me why He chose Jacob, I shall then
 
 So we leave this first point, the choice--"The Lord has chosen Jacob."
 
-The second part of our subject is full of practical teaching, for it concerns THE REASON OR RESULT OF GOD'S CHOICE.
+The second part of our subject is full of practical teaching, for it concerns THE REASON OR RESULT OF GOD's CHOICE.
 
 There are many persons who like to hear about God having chosen Jacob, but listen, dear Friends, to the next words in our text. "The Lord has chosen Jacob unto Himself" It does not say, "unto Heaven"--"unto certain privileges"-- "unto certain favors." All that is quite true, but it does not say so here. "The Lord has chosen Jacob unto Himself" Oh, what a blessed choice is this--to be chosen unto God! Then Jacob is not his own, for God has chosen him, "unto Himself." Then Jacob does not belong to any man, for the Lord has chosen him, "unto Himself." Now Jacob must have no motives except such as he finds in God. He must have no aims for which he is to live but that he may glorify his God, for "the Lord has chosen Jacob unto Himself." So, my Brothers and Sisters, if you are chosen by the Lord, you are chosen to be God's child, picked out from the rest of mankind to be, from henceforth, no longer your own, or the world's, or the devil's, but to be God's--and God's alone!
 

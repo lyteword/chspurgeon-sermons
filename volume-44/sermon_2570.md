@@ -28,7 +28,7 @@ I am just getting into my sermon, now--all these observations which I have made 
 
 First, dear Friends, if I have, here, a weary sinner who longs to find rest, I want his conscience to paint a picture. And after his conscience has painted it, I want his faith to come and study it And when that has been done, I want his gratitude and his love to remove thatpicture and to paint another
 
-First, then, I want every conscience here that is awakened, but has never been quieted by the blood of Christ, to PAINT A PICTURE--and that picture is the portrait of a wearied Savior, a Savior wearied by you, worn out by you-- wearied, not with His journey, but wearied with your sin.
+First, then, I want every conscience here that is awakened, but has never been quieted by the blood of Christ, to PAINT a PICTURE--and that picture is the portrait of a wearied Savior, a Savior wearied by you, worn out by you-- wearied, not with His journey, but wearied with your sin.
 
 "Can that be?" someone asks. Yes, the Lord has said it in Isaiah. "You have wearied Me with your iniquities." You have wearied Christ by doing wrong and doing it again and again, and sinning against conscience and against light. You are wearying my Lord, my loving Lord! In the Book of Amos He says, "I am pressed under you, as a cart is pressed that is full of sheaves." You know how they heap the sheaves on till the wagon creaks and the axle is ready to break--do you treat my Lord like an old wagon and load on your sins, sheaf upon sheaf, till He can bear no more? He says that it is so with some of you and I want you to paint the picture of a wearied Christ, wearied with your sin.
 
