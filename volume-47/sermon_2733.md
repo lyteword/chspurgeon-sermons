@@ -72,7 +72,7 @@ And cry unto her, that her warfare is accomplished, After all, Beloved, you have
 
 That her iniquity is pardoned. Oh, when that is the case, what does it matter about the warfare? Brothers and Sisters, if you have a sense of forgiven sin, you may well bear the trials of the way. The sting is gone from death itself when sin is pardoned and, therefore, it is certainly gone from life as well
 
-For she has received of the LORD'S hand double for all her sins. If the Lord's ancient people could thus be comforted in their seasons of sorrow, how much more may we be cheered when we think of all the blessing which has come to us through the sorrows of our great Covenant Head! All is settled now. "It is finished," was our Savior's cry from the Cross. Our debts are all paid, so we may well be comforted.
+For she has received of the LORD's hand double for all her sins. If the Lord's ancient people could thus be comforted in their seasons of sorrow, how much more may we be cheered when we think of all the blessing which has come to us through the sorrows of our great Covenant Head! All is settled now. "It is finished," was our Savior's cry from the Cross. Our debts are all paid, so we may well be comforted.
 
 The voice of him that cries in the wilderness, Prepare you the way of the LORD, make straight in the desert a highway for our God. You have not to turn the wilderness into a garden--you have only to make "a highway for our God." It is the Presence of God that you need, O sorrowing Soul, O mourning Church! Let the Lord but come to you, and then all shall be well. Your business is to give heed to the cry, "Prepare you the way of the Lord, make straight in the desert a highway for our God."
 

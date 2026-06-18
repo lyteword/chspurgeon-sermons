@@ -10,7 +10,7 @@ We cannot, on the present occasion, enter into the wondrous depths of the promis
 
 "He will rest in His love." This short sentence is capable of several interpretations and each view we take of it has in it something extremely delightful.
 
-Here is, first of all, THE DOCTRINE THAT CHRIST WILL ALWAYS STAY FAITHFUL TO THOSE UPON WHOM HE HAS SET HIS HEART'S AFFECTION.
+Here is, first of all, THE DOCTRINE THAT CHRIST WILL ALWAYS STAY FAITHFUL TO THOSE UPON WHOM HE HAS SET HIS HEART's AFFECTION.
 
 The love of human beings is a fitful and flickering flame. It may be set, for a season, with apparent constancy upon a certain object, but you can never tell how long it will remain steadfast. However firm, however true and however fervent it may seem to be--and even may reallybe--yet trust it not so implicitly as to come under that ancient sentence, "Cursed is the man who trusts in man, and makes flesh his arm, and whose heart departs from the Lord." Trust not too much to any friend whom you may have! Put not all your confidence in any man, for the best of men are but men at the best, and the firmest of men are subject to the infirmities and the frailties of their race!
 

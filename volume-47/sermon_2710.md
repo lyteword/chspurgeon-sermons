@@ -10,7 +10,7 @@ So, then, we may not expect unanimity among mankind, whoever shall be the speake
 
 And yet, my Brothers and Sisters, I am sorry that there should be any division among the people about the Lord Jesus Christ, because if there is a point in which all mankind ought to have been agreed, it is concerning Him who came to save men--the Unselfish One who laid aside His robes of Glory that He might take upon Himself our nature, our suffering and our sin, so that He might redeem us from all our iniquities. There ought to have been only one opinion upon this subject--"This is the Son of God! Let us adore Him. This is the Christ of God! Let us trust Him. This is our God! We have waited for Him--let us rejoice and be glad in Him." But it was not so--"There was a division among the people because of Him." And, to this day, the greatest division in the world is "because ofHim."
 
-I ask you to notice, first, that THERE WAS A DIVISION AMONG NON-BELIEVERS CONCERNING CHRIST. A large proportion of those who listened to Christ did not accept Him as their Savior and, although they all agreed upon thatpoint, there was a division among them concerning Him.
+I ask you to notice, first, that THERE WAS a DIVISION AMONG NON-BELIEVERS CONCERNING CHRIST. A large proportion of those who listened to Christ did not accept Him as their Savior and, although they all agreed upon thatpoint, there was a division among them concerning Him.
 
 First, there were some who rejected His claims altogether, and who even said, "He deceives the people." They went so far as to wish to lay violent hands upon Him and, more than once we read that they took up stones to stone Him. And
 
@@ -28,7 +28,7 @@ As for those who believe everything about Christ, but yet do not savingly rely u
 
 not take the practical step that ought to follow as the result of that knowledge! May the Lord, in His infinite mercy, lead you to take it this very hour! If you do not take it, you will be convicted--self-convicted at the bar of God! I must not spend more time, however, on this part of the subject--but you can all see that there was a division among the unbelievers concerning Christ.
 
-But now, secondly, THERE WAS ALSO A DIVISION OF BELIEVERS FROM NON-BELIEVERS.
+But now, secondly, THERE WAS ALSO a DIVISION OF BELIEVERS FROM NON-BELIEVERS.
 
 There were some who did really and savingly take Christ to be theirs and, "there was a division among the people" on that account, and what a division that always is! How deep it is! How wide it is! Between the poorest saint and the brightest moralist, there is a great gulf. We may not be able to perceive it in the outward character, but there is as deep a gulf as there is between the feeblest form of life and death--a gulf which only Omnipotent Grace can cause any man to pass over. The radical difference between the true Believer and the unbeliever lies in their relation to Christ. That is the point of divergence--"There was a division among the people because of Him."
 

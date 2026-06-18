@@ -60,7 +60,7 @@ think that the voice of your crying shall be lost. The voice of boasting dies aw
 
 God!
 
-I must speak very briefly upon the second point, which is this. THERE ARE TIMES WHEN EVEN A BELIEVER CANNOT GET TO CHRIST AS HE DESIRES.
+I must speak very briefly upon the second point, which is this. THERE ARE TIMES WHEN EVEN a BELIEVER CANNOT GET TO CHRIST AS HE DESIRES.
 
 Then, thank God there is the prayer of our text--"Lead me to the Rock that is higher than I." Some people make out faith to be a marvelously easy thing--and so it is in theory--but it is the hardest thing in the world in practice. If men are to be saved on the condition of their repenting and believing, they can be no more saved than on the condition of their being perfect, unless there is added to this condition the promise that the God who requires faith will givefaith and work repentance in them! I have been astonished to find, in this age, that there are great preachers and men who, I have no doubt, gather many around them, who tell the people that the condition and the ground of the sinner's justification are his faith, his repentance and his obedience. Why, the ground of our justification is the righteousness of Christ! And as to conditions, there is no condition at all, for God gives justification freely! And He gives faith and He gives repentance, too--it is all His gift. There never was a man saved by faith or repentance which he performed as a matter of duty. Albeit that the Word of God demands of every man that he should submit himself to God by repentance, and lay hold of Christ by faith, yet no man ever wiilor ever can do this of himself--it is only the Sovereign will of God and the Sovereign Grace of God that give repentance and faith.
 

@@ -30,7 +30,7 @@ Who is the one here now who will take Jesus in? A stranger from the country, per
 
 There is plenty of room for enlargement upon this point, but we must go on to the next one.
 
-So, secondly, LET US ENQUIRE WHETHER THERE IS SUCH A NECESSITY IN REFERENCE TO OURSELVES. Has the Lord Jesus Christ any necessity to come and stay at your house, to come and abide in your heart? I can answer that question best by putting a few enquiries to you.
+So, secondly, LET US ENQUIRE WHETHER THERE IS SUCH a NECESSITY IN REFERENCE TO OURSELVES. Has the Lord Jesus Christ any necessity to come and stay at your house, to come and abide in your heart? I can answer that question best by putting a few enquiries to you.
 
 First, are you willing to receive Christ at once?Then, there is a necessity laid upon Him to come to you, for He never sent the will into a man without also sending His Grace with the will! Indeed, the willingness to receive Him is the proof of the working of His Grace! Do you long and sigh that Christ might be yours? Then you shall surely have Him! Are you earnestly anxious to be reconciled to God by Jesus Christ? Then you may have that great blessing at once! Are you thirsting after righteousness? Then you shall be filled, for what say the Scriptures? "Let him who is thirsty, come." And lest anybody should say, "Oh, but there is some preparation implied in that word, thirst, and I am afraid that I do not thirst enough." What does the Scripture further say? "And whoever will--whoever will--let him take the water of life freely."
 

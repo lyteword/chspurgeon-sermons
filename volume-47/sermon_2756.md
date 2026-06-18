@@ -10,7 +10,7 @@ At this present moment, under the Gospel dispensation, there is no division betw
 
 If you were never lost, you have no part or lot in His work of salvation. But if you are lost, and know it, this is the very link which unites you to the Savior! He has come to seek and to save just such as you are and I hope, in the observations I am about to make, that I shall be able to show that He came to save you!
 
-I shall speak concerning OUR LORD'S MISSION. He has come to seek and to save that which was lost.
+I shall speak concerning OUR LORD's MISSION. He has come to seek and to save that which was lost.
 
 Notice, first, what a gracious mission it was!It was a mission of pure mercy and indescribable love. Our Lord Jesus Christ did not come into the world to seek His own honor, but to seek and to save the lost. Not to get anything for Himself, but to give everything to those who are lost. His mission is one of undeserved goodness, on His part, towards those who have treated Him evilly and who deserve very different treatment at His hands. There was no law except His own love to compel Christ to come to save sinners. They had no claim upon Him. When He resolved to come, it was an act of matchless Grace. If He had not chosen to come, He would still have been the ever-blessed Son of the Highest, enshrined in everlasting Glory though everyone of us had perished! His coming was Infinite goodness, returning good for evil, coming down to our lost estate and determining, by superabundant affection, to save us from it! Our Savior is embodied Grace,
 
