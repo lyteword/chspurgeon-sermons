@@ -28,8 +28,8 @@ The lower classes, as they are called, are less than ever within the reach of th
 
 But those who love the cause of God and Truth must not be discouraged, as though some new thing had happened unto us. Dark times and wintry seasons there have been before. Sharp frosts and drenching rains are no novelties. We are passing through a spiritual winter, but the spring shall surely come and with it spiritually--
 
-> A season of refreshing, A waking as from sleep,   
-> A longing and a singing That make the pulses leap! A sense of renovation Of freshness and of health, A casting off of worldliness A love for heavenly wealth.   
+> a season of refreshing, a waking as from sleep,   
+> a longing and a singing That make the pulses leap! A sense of renovation Of freshness and of health, a casting off of worldliness a love for heavenly wealth.   
 
 While our text leads us to expect a time of unprofitable sowing, it excites the hope of a sacred spring time. God's Gospel cannot perish, His kingdom cannot fail, His Truth cannot be overcome! And that for many reasons, among which are these--That which is sown in the garden springs up from out of the ground because there is vitality in it. The life is dormant for a while, but it displays itself in due season. There is at the appointed hour for all the buried seeds a bursting of grave clothes, a rending of sepulchers and an upheaval of the earth. And then in resurrection freshness comes forth the blade, to be succeeded by the ear and that by the full corn in the ear.
 
@@ -87,7 +87,7 @@ If God's work were as weak as God's workers are, it would be weak, indeed, and i
 
 I beg you, in the third place, to CONTEMPLATE THIS SAME TRUTH IN REFERENCE TO THE
 
-BELIEVER'S SPIRITUAL STATE. Do you not sometimes fall into a wintry condition? I mean you who love the Lord. I think I need hardly ask you, for one of us may generally serve as specimen of the rest. There are times when we feel as if we had no life at all. We hope we love God and our faith is fixed in Christ, but we cannot see much evidence of it. We read the Bible and it is dull. We try to pray and we get through a sort of exercise which we hope is prayer, but it does not refresh us. And even the prospect of going up to the House of God on Sunday makes us groan out, "Lord send us a blessing," but we hardly think He will. We feel so dull and dead and cold.
+BELIEVER's SPIRITUAL STATE. Do you not sometimes fall into a wintry condition? I mean you who love the Lord. I think I need hardly ask you, for one of us may generally serve as specimen of the rest. There are times when we feel as if we had no life at all. We hope we love God and our faith is fixed in Christ, but we cannot see much evidence of it. We read the Bible and it is dull. We try to pray and we get through a sort of exercise which we hope is prayer, but it does not refresh us. And even the prospect of going up to the House of God on Sunday makes us groan out, "Lord send us a blessing," but we hardly think He will. We feel so dull and dead and cold.
 
 Well, it is not to be wondered at. We are living in a world whose influences are never helpful to Divine Grace and we bear about us a body of sin and death which never will aid us in the way to Heaven. At such times we are like the earth in the winter. The seed is there but it lies hidden. The sap is in the tree, but it has gone down to the root and is not actively flowing and revealing itself. Now, in such times as these we cannot make any change in ourselves. "All the king's horses and all the king's men," as we have already said, could not turn winter into spring. Neither can we warm ourselves into energy. We say, "I will read the Bible and I will pray." Well, we do it, but it is no better than a dead form. We are none
 

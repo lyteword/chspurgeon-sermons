@@ -28,7 +28,7 @@ Thought does it all. If thoughts are full of faith in Jesus, confidence in the g
 
 Now, as I may be helped to do it, I shall this morning first speak upon the Psalmist's declarations, setting it out in some of the different lights in which he intended it to be seen. And, secondly, I shall dwell for a little upon the subject in this declaration upon which he lays the greatest stress, "Your comforts delight my soul."
 
-First, then, let us look at THE PSALMIST'S DECLARATION. We shall set it forth under five aspects. The first
+First, then, let us look at THE PSALMIST's DECLARATION. We shall set it forth under five aspects. The first
 
 will be this--May we not, without twisting the text, understand David to mean that when passing many subjects in review before him, he selected the joys of true religion, or the comforts of God as the subjects which he preferred beyond all others?
 
@@ -94,7 +94,7 @@ The last meaning I shall give the text is this--that if ever we are beset by a m
 
 Francis Quarles, in his quaint, "Emblems," represents a man with a flail who is dealing heavy blows all round. And the only one who escapes is a person who, with much daring, comes close to him. The way to escape the heavy blows of Providence is to close in with Him who wields the rod, for the further off the heavier is the blow! In all dark times run home! Return unto your rest. If you cannot come to the Lord as a saint, come as a sinner! If the past should have been altogether a delusion, yet begin again! Do not discuss with Satan the question as to whether you are a saint or not, but fly to Christ Jesus! Cease all your questions about whether or not you are saved, and say--
 
-> A guilty, weak, and helpless worm,   
+> a guilty, weak, and helpless worm,   
 > On Christ's kind arms I'll fall.   
 > He'll be my strength and righteousness,   
 > My Jesus, and my All.   

@@ -96,7 +96,7 @@ Now by faith the Son embrace,
 
 Plead His promise, trust His Grace." Still, perhaps, there will be some here who say, "I do not feel in a fit state to ask for mercy." My dear Friends, it is your unfitness that is your fitness! Your poverty fits you for alms, your sickness fits you for the physician, your being nothing fits you to have Christ made All in All to you! Your emptiness is all He wants, that He may fill it with all the fullness of His Grace! Take to begging--that is the way to be rich towards God.
 
-But now, thirdly, here is THE BEGGAR'S VERY NATURAL FEAR. He is afraid that the great King will
+But now, thirdly, here is THE BEGGAR's VERY NATURAL FEAR. He is afraid that the great King will
 
 despise his prayers, or will not regard them. And he is afraid of this, first, from the greatness and holiness of that God to whom he addresses himself. He is thrice holy--can He regard the cry of one who has been a drunk or a harlot? He is infinitely great and fills immensity--can He listen to the prayers of a poor little boy, or of a gray-headed old rebel, whose only inheritance is a place in the workhouse? Can He look on such an insignificant worm as I am, the creature of a day, whose non-existence would make no flaw in the universe--whose damnation would be no loss to Him?
 
@@ -118,7 +118,7 @@ Now, somewhere in this place there is a young man in the same condition as that 
 
 The Lord visit you at this moment and give you peace!
 
-Our last head is to be this--our text affords to the destitute beggar A MOST COMFORTABLE ASSURANCE.
+Our last head is to be this--our text affords to the destitute beggar a MOST COMFORTABLE ASSURANCE.
 
 "He will regard the prayer of the destitute." Now, Beloved, whatever is in Scripture we accept as the Infallible Truth of
 

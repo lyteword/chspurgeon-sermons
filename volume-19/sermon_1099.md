@@ -67,7 +67,7 @@ The various parts of His Character were so singularly harmonious that no one qua
 
 Tears were His insignia and the Cross His escutcheon. He was the warrior in black armor and not as now, the rider upon the white horse. He was the Lord of Grief, the Prince of Pain, the Emperor of Anguish, a "Man of Sorrows, and acquainted with grief."--
 
-"Oh! King of Grief! (A title strange, yet true, To You of all kings only due) Oh! King of Wounds! How shall I grieve for You, Who in all grief prevent me?"
+"Oh! King of Grief! (a title strange, yet true, To You of all kings only due) Oh! King of Wounds! How shall I grieve for You, Who in all grief prevent me?"
 
 Is not the title, "Man of Sorrows," given to our Lord by way of eminence? He was not only sorrowful, but pre-eminent among the sorrowful! All men have a burden to bear, but His was heaviest of all! Who is there of our race that is quite free from sorrows? Search the whole earth through and everywhere the thorn and thistle will be found--and these have wounded everyone born of woman.
 

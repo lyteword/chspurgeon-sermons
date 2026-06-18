@@ -42,7 +42,7 @@ Some of you have attended this place ever since it was built [12 years earlier] 
 
 The devil himself could not make a Judas till he had found a false Apostle. You must look among hypocritical professors of religion if you would find the worst of men! And I must add, you may succeed best in your search if you can find a false-hearted minister. The higher the place in God's garden the more the weeds stink. The hardest-hearted men of all are not those who have been guilty of crimes against society and have been put away into our jails--often a little kindness will melt these savages down. No, the worst of all are those demons in human shape who make a profession of being the people of God and all the while know that they are sinning wickedly with both hands! To cover a vile life with the coverlet of a Christian profession is a sign of reprobation. Take men, however, at any stage, this is still true--that the heart of flesh is not to be found in any unregenerate man.
 
-WHEREVER TRUE TENDERNESS IS FOUND, IT IS A SPECIAL GIFT OF THE NEW COVENANT. A
+WHEREVER TRUE TENDERNESS IS FOUND, IT IS a SPECIAL GIFT OF THE NEW COVENANT. A
 
 heart of flesh is a gift of Sovereign Grace and it is always the result of Divine power. No heart of stone was ever turned into flesh by accident, nor by mere Providential dispensations, nor by human persuasions. You might argue with a rock a long while before you would persuade it into flesh. Neither is such a change worked by a man's own actions. How shall a stone, being a stone, produce in itself flesh?
 

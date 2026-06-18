@@ -42,7 +42,7 @@ He was ever lowly in manner and deportment and though He could flame and flash w
 
 "There are some that use Humility to serve their pride, and seem Humble upon their way, to be prouder At their wish'd journey's end."
 
-It is said of Thomas A'Becket that he affected the greatest lowliness and humility and for this reason he washed the feet of 13 beggars every morning--but yet he was arrogance itself--and lorded it over his king. He was the proudest of the proud, though he pretended to be the humblest of the humble.
+It is said of Thomas a'Becket that he affected the greatest lowliness and humility and for this reason he washed the feet of 13 beggars every morning--but yet he was arrogance itself--and lorded it over his king. He was the proudest of the proud, though he pretended to be the humblest of the humble.
 
 Many men have concealed inordinate pride beneath a crouching manner, mimicking humility while harboring arrogance. While their spirit has been full of imperial despotism they have pretended to be the friends of the people and have talked like the most truthful demagogue. Not so our truthful Master. He was "meek and lowly in heart." To Him association with the poor and sinful was no affectation of condescension--He was already on their level in intense sympathy with their sorrows. His heart was with the common people. He did not force Himself down from a natural haughtiness to a constrained contact with the lowly, but He became a real Friend of sinners and a willing Companion of the needy.
 

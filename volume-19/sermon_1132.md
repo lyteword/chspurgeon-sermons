@@ -12,7 +12,7 @@ I feel that I have very solemn work on hand. I have always pleasure in preaching
 
 First, we shall read the history of stony-ground hearers. Secondly, we shall mark the radical defect of their character. And, thirdly, we shall try to learn a lesson from the whole.
 
-First, we have here A BRIEF BIOGRAPHY OF CERTAIN PROFESSORS OF RELIGION. Let us read it carefully. It is said of them, first, that they heard the Word. "These are they which are sown on stony ground; who, when they have heard the Word, immediately receive it with gladness." They enjoyed the great privilege of hearing God's
+First, we have here a BRIEF BIOGRAPHY OF CERTAIN PROFESSORS OF RELIGION. Let us read it carefully. It is said of them, first, that they heard the Word. "These are they which are sown on stony ground; who, when they have heard the Word, immediately receive it with gladness." They enjoyed the great privilege of hearing God's
 
 Word. They heard the real Gospel--they did not attend upon ritualistic falsehoods, or philosophic speculations--it was the Word of God which they heard. The sower did not sow tares, but he sowed good corn. How happy are those who sit under a downright Gospel ministry! May God be pleased to multiply such ministries everywhere--and the lovers of them!
 

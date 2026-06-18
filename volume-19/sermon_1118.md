@@ -66,7 +66,7 @@ day."--
 
 You, whose blood my pardon bought? Slight Your mercy, scorn your favor? Perish such an impious thought! Leave You--never!
 
-Where for peace could I resort?" II. The second point of our reflection is to be this. Seeing that we are servants to Jesus, there is A CONDUCT
+Where for peace could I resort?" II. The second point of our reflection is to be this. Seeing that we are servants to Jesus, there is a CONDUCT
 
 WHICH IS CONSISTENT THEREWITH. What conduct is consistent in a servant? Is it not, first, that he should
 
