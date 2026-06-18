@@ -14,7 +14,7 @@ Therefore, preacher, ring that bell again and again! It may be that when you ran
 
 I am going, at least on this occasion, to do what I urge other preachers often to do--that is, keep to the simplicities of the faith, trying to show how the dire disease of sin is strangely cured by the stripes that fell upon our Lord Jesus Christ--for both the Prophet and the Apostle say that we are healed by or with "His stripes"
 
-So, I begin by saying THERE IS A DISEASE IMPLIED.
+So, I begin by saying THERE IS a DISEASE IMPLIED.
 
 You cannot heal men who are not sick, or wounded. It matters not how matchless the medicine is--even though it is the substitutionary suffering of the Son of God, Himself--if it is to heal, it must heal some malady or other and, Brothers and Sisters, it is quite true that there is a dreadful disease which has attacked the whole human race! You scarcely need that I should tell you that it is the disease of sin. It came to this earth when that old serpent, the devil, tempted Mother
 
@@ -106,7 +106,7 @@ Verses 27-30. Then the soldiers of the governor took Jesus into the Praetorium a
 
 And when they were come unto a place called Golgotha, that is to say, a place of a skull We do not know why it was so called. There have been many conjectures concerning the name, but they are only conjectures. It was probably just a little knoll outside the gate of the city--the common place of execution for malefactors. The special points to be noted are that Jesus suffered outside the gate, in the regular place of doom--the Tyburn or Old Bailey of Jerusalem--and so was numbered with the transgressors.
 
-They gave Him vinegar to drink mingled with gall A stupefying draught was usually given to the criminals who were crucified, to mitigate their agony. But Christ did not wish for that to be done in His case.
+They gave Him vinegar to drink mingled with gall a stupefying draught was usually given to the criminals who were crucified, to mitigate their agony. But Christ did not wish for that to be done in His case.
 
 And when He had tasted thereof, He would not drink He came to earth that He might suffer and He would retain all His faculties while suffering. He would have every nerve made into a straight road for the hot feet of pain to travel over, for He would drink, even to the last dregs, every drop that was in the cup of suffering for His people's sin.
 

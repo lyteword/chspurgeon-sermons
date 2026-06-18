@@ -18,7 +18,7 @@ Judicial blindness has happened unto them even until the present day but they wi
 
 I want to remind you that the way in which the Jews will come to Christ is just the way in which you and I also must come to Him if we ever come to Him at all. They are to come mourning for Him and sorrowing especially because they crucified Him. But you and I also crucified Him as much as the Jews did--at least in a certain sense of which I am going to speak to you and, consequently, when we come to Christ, we must come in just the same way that the Jews are to come to Him. In fact, there is no difference in this matter between the Jews and the Gentiles. There is similar sin in each case and the same Savior--and when we come to Christ, it must be with the same kind of mourning and the same kind of faith with which Israel shall come in the days when God, in His mercy, shall gather her to Himself.
 
-My subject is to be Evangelical sorrow--godly sorrow for sin--and my first remark concerning it is that WHEREVER IT EXISTS, IT IS ALWAYS A CREATION OF THE HOLY SPIRIT. "I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications:..and they shall mourn." There was never any
+My subject is to be Evangelical sorrow--godly sorrow for sin--and my first remark concerning it is that WHEREVER IT EXISTS, IT IS ALWAYS a CREATION OF THE HOLY SPIRIT. "I will pour upon the house of David, and upon the inhabitants of Jerusalem, the Spirit of Grace and of supplications:..and they shall mourn." There was never any
 
 real godly sorrow which worked repentance acceptable to God except that which was the result of the Holy Spirit's own work within the soul.
 
@@ -69,7 +69,7 @@ The Prophet then goes on to compare the mourning for sin to the mourning of the 
 > Lord, let me weep for nothing but sin,   
 > And after none but Thee!   
 > And then I would--oh, that I might!--   
-> A constant weeper be.   
+> a constant weeper be.   
 
 I must not dwell upon this sacred topic, but close with what would have been my fourth division if there had been time for it. That is that EVANGELICAL REPENTANCE DOES NOT ITSELF CLEANSE US FROM SIN.
 

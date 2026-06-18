@@ -22,7 +22,7 @@ And still the care of guardian Heaven,
 
 Secures the bliss itself has given." Blessed be God that on this fifth of November we can record such deliverances! Our Puritan forefathers never suffered this day to pass over without a commemoration service. So far from this day being forgotten, it ought to be remembered, not by the festival of striplings, but by the songs of saints! I think I have now in my possession a record of sermons preached on the fifth of November by Matthew Henry. Many divines of his time regularly preached on this day. I think the true Protestant feeling of this country which has so lately revived and which has shown itself so strongly, will scarcely forgive me if I do not, this morning, return most humble and hearty thanks to that God who has delivered us from the curse and enabled us to stand as Protestant men free to preach the Gospel of Christ.
 
-I notice, in my text, two things--the first is the saint's heritage. The second the saint's watchword. I. First, THE SAINT'S HERITAGE.
+I notice, in my text, two things--the first is the saint's heritage. The second the saint's watchword. I. First, THE SAINT's HERITAGE.
 
 Now, do not suppose that this morning I shall have time, or opportunity, or talents, or power, to enter into an investigation of all the saint's heritages, especially when you remember that--
 
@@ -80,7 +80,7 @@ Let the saints also know that they shall soon have a yet more public triumph ove
 
 Now, Beloved, I think I have spoken sufficiently, for the present, on this glorious heritage of the saints of God. The weapons forged against us are not to prosper and the tongues raised against us are to be condemned.
 
-Now I am to speak upon THE SAINT'S WATCHWORD. What is that? "This is the heritage of the servants of the Lord, and their righteousness is of Me, says the Lord."
+Now I am to speak upon THE SAINT's WATCHWORD. What is that? "This is the heritage of the servants of the Lord, and their righteousness is of Me, says the Lord."
 
 In ancient times, as well as at the present time, armies used to have their watchwords by which they might recognize one another in the dark. We need a watchword now. It is very difficult to tell the children of God unless we have certain signs. God Himself gives us the watchword--"Their righteousness is of Me, says the Lord." You can always tell a saint of God by this watchword. If he says, "My righteousness is of God," you may safely believe that he is a disciple of Jesus
 
@@ -130,7 +130,7 @@ one."
 
 Isaiah 44:1-3. Yet now hear, O Jacob My servant and Israel, whom I have chosen. Thus says the LORD, that made you, and formed you from the womb, which will help you. Fear not O Jacob, My servant; and you, Jeshrun, whom I have chosen. For I willpour water upon him that is thirsty, and floods upon the dry ground: I willpour My Spirit upon your seed, and My blessing upon your offspring. "Think not that I am anxious to punish you for your sin. Only return to Me, and I will be delighted to bless you. I will help you out of your troubles. I will supply your needs and not only so, but I will bless your children, generation after generation."
 
-4, 5. And they shall spring up as among the grass, as willows by the water courses. One shall say, I am the LORD'S, and another shall call himself by the name of Jacob; and another shall subscribe with His hand unto the LORD, and, surname himself by the name of Israel. God still has power over human hearts--He can bring back to himself His wandering children.
+4, 5. And they shall spring up as among the grass, as willows by the water courses. One shall say, I am the LORD's, and another shall call himself by the name of Jacob; and another shall subscribe with His hand unto the LORD, and, surname himself by the name of Israel. God still has power over human hearts--He can bring back to himself His wandering children.
 
 Thus says the LORD the King ofIsrael, andHis Redeemer the LORD ofHosts; Iam the First, andIam the Last; and beside Me there is no God. He gathered up all into Himself as He is the First and the Last, where is there space for any other god? He, therefore, would have all our hearts. He would have us love, adore and serve Him and Him alone.
 

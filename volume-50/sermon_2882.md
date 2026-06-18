@@ -12,7 +12,7 @@ And if, to soul-trouble and earnest prayer, there should be added a very deep se
 
 I am going to take the text thus. First, here is a most cheering announcement--"There is forgiveness with You." Secondly, here is a most admirable design--"That You may be feared."
 
-First, here is A MOST CHEERING ANNOUNCEMENT--"There is forgiveness with You."
+First, here is a MOST CHEERING ANNOUNCEMENT--"There is forgiveness with You."
 
 This announcement has great force and value because it is most certainly true. When a man hears some news which pleases him, he loses that pleasure if he has reason to suspect that it is not true. The first questions you ask, when someone tells you of some good fortune that concerns you, are of this sort, "Are you quite sure it is so? Can you give me good authority for your assertion?"
 
@@ -40,7 +40,7 @@ Let me also add that the forgiveness which God gives to a sinner is complete. He
 
 forgiven to all eternity! Forgiveness is one of the gifts of God that are without change--He never gives it and then regrets that He has done so. If you get forgiveness from God, you have the first link in an endless chain of mercies. You shall become God's child--His beloved. He will teach you, care for you, keep you, sanctify you, bless you, perfect you and, in due time, bring you to Heaven! Oh, the heap of blessedness which lie in this one gracious gift of God--the forgiveness of sins! I wish that, by any power of mine, I could induce all of you to seek this forgiveness. No, I retract that expression--I do not wish that any power of mine should do it, lest I should have the honor of it--but I do pray that God'spower may do it for all of you--that you may be made conscious of sin, believe in Jesus Christ and so find that perfect pardon which God is waiting and willing to give to all who trust His Son!
 
-Now I pass on to the second part of our subject which is A MOST ADMIRABLE DESIGN--There is forgiveness with You, that You may be feared." How does forgiveness cause men to fear God?
+Now I pass on to the second part of our subject which is a MOST ADMIRABLE DESIGN--There is forgiveness with You, that You may be feared." How does forgiveness cause men to fear God?
 
 First, it is clear that God's design in proclaiming forgiveness is the opposite of what some men have said and thought. We have known many who have said, "There is forgiveness, so let us keep on sinning." Others, not quite so base, have said, "There is forgiveness, so we can have it whenever we please." Holding this idea, they have trifled with sin and they have delayed to seek forgiveness, drawing--oh, I am ashamed to say it of my fellow men!--drawing the infamous inference that, as God is merciful, they may live in sin as long as they like and then find mercy at the last! I would like any man who has adopted that strangely cruel and wicked way of dealing with God's mercy to look straight at it for a minute. I think that if I had a friend whom I had grieved and I knew that he was ready to forgive me, I would not, therefore, put off the reconciliation and so grieve him still more! I would be very base, indeed, if I acted like that! Or if I were a child and I had vexed my father, but he was very gentle and forgiving, I think that if I were to say, "It does not matter much--father will forgive me whenever I ask him, so I shall not ask him for months, or perhaps years." If I did talk so, it would be very base on my part. I ask you, Brothers and Sisters, not to talk so and not to act so. It is not fair and just treatment of our gracious God! It is not even worthy of man. Why, if even a beast is treated kindly, it will scarcely return a kick for kindness. Some perverse animals will do that, but most will generally, at length, yield to kindness. And the long-suffering of God ought much more to lead you to repentance and not induce you to continue in your sins.
 
@@ -118,17 +118,17 @@ HYMNS FROM "OUR OWN HYMN BOOK"--202, 556, 559.
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.Sermon #2883
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.Sermon #2883
 
 Metropolitan Tabernacle Pulpit
 
 Prisoners Delivered
 
-A SERMON PUBLISHED ON THURSDAY, MAY 12, 1904.
+a SERMON PUBLISHED ON THURSDAY, MAY 12, 1904.
 
 DELIVERED BY C. H. SPURGEON,
 
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON, LORD'S-DAY EVENING, APRIL 2, 1876.
+AT THE METROPOLITAN TABERNACLE, NEWINGTON, ON, LORD's-DAY EVENING, APRIL 2, 1876.
 
 "As for you also, by the blood of your covenant Ihave sent forth yourr prisoners from the waterless pit. Return to the stronghold, you prisoners of hope: even today do I declare that I will render double unto you."
 
@@ -151,7 +151,7 @@ The forty-eighth Psalm reminds us of the glory of the ancient "city of the great
 
 Looking into this passage, we notice, first, that there are some prisoners mentioned and they are said to be in a terrible plight Then, in the second place, there is an emancipation spoken of and the cause of that emancipation is mentioned.
 
-First, THERE ARE SOME PRISONERS MENTIONED AND THEY ARE SAID TO BE IN A TERRIBLE PLIGHT. We need not look long to find those prisoners, for some of them are here in our midst--and there are others here who were once imprisoned thus--but they have been set free.
+First, THERE ARE SOME PRISONERS MENTIONED AND THEY ARE SAID TO BE IN a TERRIBLE PLIGHT. We need not look long to find those prisoners, for some of them are here in our midst--and there are others here who were once imprisoned thus--but they have been set free.
 
 These prisoners are said to be in a pit. It was a common custom and still is, in the East, not to go to the expense of building prisons, but to make use of dry wells--and the authorities were not always very particular in seeing that they were dry. They just let the prisoner down by a rope, which they pulled up, leaving him in what was, usually, a very secure prison, indeed. No trouble was taken to fit up a proper cell. No money was expended upon ventilation, or anything of the kind. The pit was usually deep and dark--and a great stone was rolled over the mouth of it--and there the prisoner was left, in solitary confinement, often to die of hunger and thirst. If anyone thought or cared to bring him bread and water, it was well for him, but, in many cases, the prisoners were forgotten and nobody ever heard of them anymore. In fact, they were buried alive--and that was, spiritually, our condition when we were in the pit where there is no water.
 
@@ -185,7 +185,7 @@ If, Sirs, you take away the atoning Sacrifice, you make that blessed Book to be 
 
 I should like to have said more upon this blessed theme, but time fails me, so I must only say, in passing--"Let every Christian remember that if once he knows the power of the blood of Jesus, there is a Covenant existing between him and his God, and he can say with David, "He has made with me an everlasting covenant, ordered in all things and sure." Believer, between your soul and the Maker of Heaven and earth there is a compact which can never be broken! Though earth's huge pillars bow and break, this Covenant stands forever sure. You being in Christ and Christ being in you, you shall be saved, world without end, for God has declared it and His truth stands fast forever!
 
-Thirdly, our text contains A RECOMMENDATION TO THOSE WHO ONCE WERE PRISONERS--"Return to the stronghold, you prisoners of hope." I thought, dear Friends, that you were pulled up out of the pit--have you
+Thirdly, our text contains a RECOMMENDATION TO THOSE WHO ONCE WERE PRISONERS--"Return to the stronghold, you prisoners of hope." I thought, dear Friends, that you were pulled up out of the pit--have you
 
 been made prisoners again? If it is so, it is very sad, but you can never be imprisoned as you were before. Perhaps you have not been living as carefully as you ought. Or, for some other reason your faith has become weak and so you have fallen into the pit again. But you are not now in prison as you were before, for now you believe you will get out again. No, better than that, you are surethat you will. Albeit that sometimes Giant Despair tells you that you will die in the dungeons of Doubting Castle, you know that you have a key called, "Promise," in your bosom--and though you have not used it as you should have done, you have the firm conviction that it will open any lock that old tyrant has made-- and you hope, some day, to employ it to such good purpose that you will again be free! But, Sirs, you had no business to get into that pit again. When the Lord once set you free, you should have taken good care not to go back again into bondage.
 
@@ -197,7 +197,7 @@ Oh, the many hundreds of times that I have done that! And I expect to do it many
 
 That is my earnest advice and it is the advice of the text, too, to all Christians who have, in any sense, come into bondage again--"Return to the stronghold, you prisoners of hope." If you do that, you shall soon come once more into light and liberty and joy and peace!
 
-The last thing in our text is A DOUBLE BLESSING PROMISED--"Even today do I declare that I will render double unto you." If you turn to Christ, you shall get a double blessing! What does this part of the text mean?
+The last thing in our text is a DOUBLE BLESSING PROMISED--"Even today do I declare that I will render double unto you." If you turn to Christ, you shall get a double blessing! What does this part of the text mean?
 
 Well, it means that God has such abundant Grace to give that He will not only give you what you really need, but He will give you twice as much as that!All the flowers in God's spiritual garden bloom double. There never was any mercy of His which had not many other mercies wrapped up in it. Every one of them contains far more blessing than we thought it did. Now, dear Brother, dear Sister--can you open your mouth wide and ask from God some great thing? If you do so, you shall receive from God twice as much as you asked for! Do you feel a great need within your soul--a need that is
 

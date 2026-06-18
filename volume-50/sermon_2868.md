@@ -56,9 +56,9 @@ His pardon at once He receives,
 
 Redemption in full through His blood." If the Lord wills, you may be pardoned this very moment. Jehovah needs not months and years in which to write out the charter of your forgiveness and put the great seal of Heaven to it. He can speak the word and swifter than the lightning flash, the message shall come to you, "Your sins, which are many, are all forgiven." And you shall say, "I'm forgiven--
 
-"'A monument of Grace
+"'a monument of Grace
 
-A sinner saved by blood!
+a sinner saved by blood!
 
 The streams of love I trace
 
@@ -78,7 +78,7 @@ My third text is intended as a hammer to drive home the last nail. This sentence
 
 About three years ago I gazed into the eternal world. It then pleased God to stretch me upon a bed of the most agonizing pain and my life hung in jeopardy, not merely every hour, but every moment. Eternal realities were vivid enough before my eyes, but it pleased God, for some purpose which is known to Him, to spare my life and I went to spend a little season, that I might fully recover, with a beloved friend who seemed, then, far more likely to live than I was. This day, it is his turn to lie upon the borders of the grave and mine to stand by his bedside. The grave then seemed ready for me--it now seems ready for him. As I stood talking to him this afternoon, he said with greater force than Addison, "See how a Christian can die." When I asked him about his worldly goods and possessions, he said that he had been content to leave them all, some time ago. "And what about your wife and your little ones?" I asked. And he replied, "I have left them all with God." "And how about eternal things?" I enquired. "Oh," said he, "you know that God's love is everlasting and His Grace is unchanging, so why should we fear?"
 
-He had no doubt about his acceptance in the Beloved, or about the power of Christ to carry him through his dying moments. When I said, "The battle's fought, the victory's won forever," I saw his eyes sparkle as though he heard the melodious voice of the great Captain of our salvation saying to him, "Well done! Enter into your rest." I never saw a bride at her marriage look more happy than this man upon the eve of death. I never saw a saint more peaceful, when retiring at eventide, than he was when about to undress himself that he might stand before his God. "Ah," he exclaimed, "remember what you said to me, 'Sudden death, sudden glory!'" and his eyes sparkled again at the prospect of soon beholding his Lord--
+He had no doubt about his acceptance in the Beloved, or about the power of Christ to carry him through his dying moments. When I said, "The battle's fought, the victory's won forever," I saw his eyes sparkle as though he heard the melodious voice of the great Captain of our salvation saying to him, "Well done! Enter into your rest." I never saw a bride at her marriage look more happy than this man upon the eve of death. I never saw a saint more peaceful, when retiring at eventide, than he was when about to undress himself that he might stand before his God. "Ah," he exclaimed, "remember what you said to me, 'sudden death, sudden glory!'" and his eyes sparkled again at the prospect of soon beholding his Lord--
 
 "Onegentle sigh, the fetter breaks"--
 
