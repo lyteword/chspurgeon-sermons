@@ -70,7 +70,7 @@ And forthwith they sprung up, because they had no deepness of earth. They seemed
 
 And when the sun was up, they were scorched; and because they had no root, they withered away. [See Sermon #2844,
 
-Volume 49--THE SEED UPON A ROCK.] They seemed to be alive at the
+Volume 49--THE SEED UPON a ROCK.] They seemed to be alive at the
 
 top, but they were really dead below. How many there still are of that sort--they make a bold profession, but it is only for a while--and then they wither away.
 

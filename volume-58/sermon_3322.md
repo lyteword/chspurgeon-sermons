@@ -16,7 +16,7 @@ I thought that this little incident of Saul's hiding himself among the stuff whe
 
 First, then, let us have--
 
-A FEW WORDS WITH THE SINNER WHO IS HIDING HIMSELF AWAY AMONG THE STUFF. I dare say he thinks tonight that if he had been Saul, he would not have been hiding himself. If it were to have his head taken off, a man might very wisely hide himself, but to have a crown put upon his head does not seem to be a reason
+a FEW WORDS WITH THE SINNER WHO IS HIDING HIMSELF AWAY AMONG THE STUFF. I dare say he thinks tonight that if he had been Saul, he would not have been hiding himself. If it were to have his head taken off, a man might very wisely hide himself, but to have a crown put upon his head does not seem to be a reason
 
 for hiding oneself, but a reason for coming out into the open and saying, "Here I am! Do unto me as seems good to you!" But this conduct, which seems so strange in Saul, is an exact image of the behavior of many of you who are here tonight. There may be some of you here present who may be doing precisely what Saul did, only you are doing it more foolishly than he did. He did but hide away from an earthly crown, but you hide from a heavenly one! He did but shun a crown that fades--you seem as though you would avoid a crown that is undefiled and that fades not away! The crown which Saul sought to hide from no doubt brought many cares with it, for it is only too often true that--
 

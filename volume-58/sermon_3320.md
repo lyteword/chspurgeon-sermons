@@ -6,7 +6,7 @@ WE must take the text, of course, with definite and full reference to its histor
 
 We shall make several remarks upon this text, perhaps too numerous to call them divisions as a discourse, but they will be illustrations drawn from the narrative before us. The first remark we shall make is this--
 
-GOD'S ELECTING LOVE SOMETIMES HAS THE OBJECTS OF ITS CHOICE IN STRANGE PLACES.
+GOD's ELECTING LOVE SOMETIMES HAS THE OBJECTS OF ITS CHOICE IN STRANGE PLACES.
 
 Of all the houses of Israel, the palace of Tirzah was, surely, the last place one would think in which to look for a worshiper of the true God! The father of the family was a great sinner. He had set up gods of gold and said, "These are your gods, O Israel." Though much distinguished by God's Providential goodness and lifted up from the rank of an officer to that of a monarch, he forgot the God in whose sunshine he had flourished and must make the men of Israel bow down before an ox that eats grass! There could be in his palace no toleration for anything like true religion. There must have been a total neglect of all the hallowed engagements of the Sabbath and of everything else that looked like reverence to the unseen, but almighty God of Israel! And yet God's Sovereign, electing Love was bestowed upon a child of this wicked and rebellious Jeroboam, the son of Nebat, who made Israel to sin! God's everlasting mercy had designed that there should be a break in the line of sin and that there should be at least one who should be found among the choristers of Glory who had been nursed and nurtured among the degraded worship of calves!
 
@@ -53,7 +53,7 @@ If I might venture to do it, I would say to our elder Brothers and Sisters--Do l
 
 We will now go a step further and remark--
 
-THAT A TRULY GOOD THING, IN THE DIVINE SENSE, IS ALWAYS TOWARDS THE LORD.
+THAT a TRULY GOOD THING, IN THE DIVINE SENSE, IS ALWAYS TOWARDS THE LORD.
 
 This is the tendency and the strong direction of the current. You observe it says not merely that "there is found some good thing," but, "some good things toward the Lord God of Israel" Here, then, is a test by which we may try religion, both in the old and in the young! There are many men who have some good thing in them politically. I can admire the man who stands up for the Constitution and who, although he may be called one of the stupid party, yet really believing that it is necessary that things should stand forever where they now are, can readily encounter disgrace for the matter. I can admire even more and with greater intensity the man who goes ahead and who desires to change everything that is wrong, even though it is venerable with years! I can admire him standing in the midst of storm and quietly enduring it, bearing all manner of rebuke for the sake of reform. Yet I can quite imagine all this existing without any "good thing toward the Lord God of Israel." Though one appreciates all this, yet he is compelled to lament if there is not something more. In daily life it is a noble thing to see some good thing in business. There are some of you who would as soon bleed to death as cheat others--to whom it would be the most tremendous misfortune to know deep poverty--but who would sooner be beggars than bankrupt, if bankruptcy meant in your case what it often means today! Now, I can admire this fine noble honesty.
 

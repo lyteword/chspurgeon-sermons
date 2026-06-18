@@ -40,7 +40,7 @@ ITS APPLICATION TO OUR LORD JESUS CHRIST MYSTICALLY, that is, TO EVERY BELIEVING
 
 I want you to go back a little in your own histories. Just take out your diaries and turn back to the book of His mercies. I want you to think of prevenientProvidences. You may open your children's hymnbook if you like, and you may sing--
 
-"I thank the goodness and the Grace, Which on my birth have smiled That in this land I passed my days, A happy English child. I was not born a little slave, To labor in the sun, Wishing I were put in my grave, And all my labor done. I was not born as thousands are, Where God was never known And taught to pray a senseless prayer To blocks of wood and stone. My God, I thank You who have planned, A better lot for me! And placed me in this happy land, Where I can hear of Thee."
+"I thank the goodness and the Grace, Which on my birth have smiled That in this land I passed my days, a happy English child. I was not born a little slave, To labor in the sun, Wishing I were put in my grave, And all my labor done. I was not born as thousands are, Where God was never known And taught to pray a senseless prayer To blocks of wood and stone. My God, I thank You who have planned, a better lot for me! And placed me in this happy land, Where I can hear of Thee."
 
 I remember hearing it once said that this was a hymn for little Pharisees, but the man who said that did not know any better and was, therefore, to be pitied. It is a hymn which a child may very gratefully sing and which we may all join in when we thank God for the Providence which caused us to be born where the Gospel is preached!
 

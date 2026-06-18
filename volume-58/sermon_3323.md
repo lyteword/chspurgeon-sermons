@@ -4,7 +4,7 @@
 
 WITHOUT a sentence of introduction, I invite you, Beloved, to see herein,
 
-A BLESSED SEASON HERE ANTICIPATED!--A time when the day shall break and the shadows shall flee away.
+a BLESSED SEASON HERE ANTICIPATED!--a time when the day shall break and the shadows shall flee away.
 
 It is not every man who can count upon such a time as that, for to some there is no prospect of the day breaking. They are now in the shade and that shade will grow darker and darker with them till, in the hour of death, their sun will go down forever in a tenfold night--a night not gladdened by a solitary star--a night that shall never have an ending--a night of glooms more terrible than imagination itself could picture! I fear there are some in this place for whom we might utter such forebodings! The world is dark enough to them, now, but they have no hope of the Lord as though it would be brightness to them. Conscience tells them--and if conscience is not enlightened enough to do so--the Word of God tells them that the day of the Lord shall be darkness and not light to them. But, to every soul in this house that believes in Jesus, there is the delightful anticipation of the hour spoken of in the text--when the day shall break and the shadows shall flee away!
 
@@ -17,7 +17,7 @@ Let us take each expression and muse on it. " Until the day breaks." In a certai
 wings it comes! Every day of winter's sorrow or of summer's joy brings it nearer. We said last Sunday evening, "Now is our salvation nearer than when we believed," and we often sing--
 
 > We nightly pitch our moving tent   
-> A day's march nearer home.   
+> a day's march nearer home.   
 
 This is one of the choicest consolations of the present--that we are getting nearer to the daybreak!
 
@@ -71,7 +71,7 @@ We will not tarry longer on these two causes, "Until the day breaks"--we expect 
 
 But while the season of joyful release is anticipated, there is also,
 
-A PRAYER PRESENTED. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
+a PRAYER PRESENTED. "Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether."
 
 Till Heaven shall come to us and we to Heaven, sweet Lord Jesus be with us! Let us have Your company. But a difficulty arises. There is so much between us and Christ to keep Him away. Hence the prayer, "Come, Lord, be like some hart or roe--like the chamois of the Alps that leaps from crag to crag--come over all these mountains of Bether and come to us when we cannot come to You."
 

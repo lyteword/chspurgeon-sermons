@@ -50,7 +50,7 @@ They have nobody to rebuke them. If the many have grown cold, then the few among
 
 And then the tendency is to grow still colder. They go on freezing. There is no telling how cold people can be. I have been burnt with cold and I suppose you have been too. I have preached in places whose spiritual temperature was that of an icehouse and, preach as hard as I could, nothing could possibly come of it, for my words fell to the ground like lumps of ice! Colder and colder Churches become till, at last, the great God who breaks up icebergs in due season, destroys a Church and its place knows it no more!
 
-In the presence of the danger which is seriously threatening many Churches, there is A CALL FOR SERIOUS ACTION ON OUR PART. What is that serious action?
+In the presence of the danger which is seriously threatening many Churches, there is a CALL FOR SERIOUS ACTION ON OUR PART. What is that serious action?
 
 Why, it is, first, that we should remember that if the love of the many may grow cold, then our love may grow cold! What are we that we should think ourselves secure where others are in danger? If other men as good as we are have gradually cooled down, may not we? Let us be watchful and careful--and let us go to God for more Grace.
 
