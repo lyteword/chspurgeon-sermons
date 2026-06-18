@@ -100,7 +100,7 @@ He has caused the arrow of His quiver to enter into my loins. "They are not mere
 
 18-21. And I said, My strength and my hope is perished from the LORD: remembering my affliction and my misery, the wormwood and the gall. My soul has them still in remembrance, and is humbled in me. This I recall to my mind, therefore have I hope. Notice that in all his sorrow, this man still had hope! His soul was humbled and, therefore, he had hope. I think that in the New Zealand language, the word for hope is, "swimming thought"--the thought that swims when everything else is drowned! Oh, what a mercy it is that hope can live on when all things else appear to die!
 
-It is of the LORD'S mercies that we are not consumed, because His compassions fail not. Hear that, troubled heart! You are not yet destroyed, you are still in the land of the living--as we say--"on praying ground and pleading terms with God." "It is of Jehovah's mercies that we are not consumed, because His compassions fail not."
+It is of the LORD's mercies that we are not consumed, because His compassions fail not. Hear that, troubled heart! You are not yet destroyed, you are still in the land of the living--as we say--"on praying ground and pleading terms with God." "It is of Jehovah's mercies that we are not consumed, because His compassions fail not."
 
 23, 24. They are new every morning: great is Your faithfulness. The LORD is my portion, says my soul; therefore will I hope in Him. "With all my troubles, losses and griefs, I still have a God! Therefore will I hope in Him."
 

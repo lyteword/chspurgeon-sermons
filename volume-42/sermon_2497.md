@@ -52,7 +52,7 @@ Sinner, you may never be as strong and healthy as you are today. You may have sa
 
 Thus have I, as it were, brought before you the Truth of the text as it may be applied to the Lord Jesus Christ--and left it to every man and woman's conscience to decide whether they ought not to join us in saying, "We are truly guilty concerning our Brother."
 
-Now, in the second place, we will, with great brevity, consider CHRIST'S TREATMENT OF US.
+Now, in the second place, we will, with great brevity, consider CHRIST's TREATMENT OF US.
 
 Oh, for an angel's tongue with which to tell this wondrous tale! There is Christ looking down from Heaven and marking all our sin and ill behavior towards Him. He is not weak, for He is very God of very God! He is able to avenge the insults to His name, to cast us off for all our shameful treatment of Him and to make us smart forever under the Divine lash of infinite and inflexible Justice. But how has He treated us?
 

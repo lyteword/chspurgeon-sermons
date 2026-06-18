@@ -20,7 +20,7 @@ I may further say that some of them do not get much beyond hope. I would not con
 
 This, then, is the approved company--"all you that hope in the Lord." Not, "you that hope in yourselves." Not, "you that hope in your priests." Not, "you that have any confidences anywhere else"--but you who hope in God alone!
 
-Well now, secondly, my text seems to intimate that there is AN OCCASIONAL WEAKNESS--I might say, A FREQUENT WEAKNESS which is apparent in many of those that hope in the Lord.
+Well now, secondly, my text seems to intimate that there is AN OCCASIONAL WEAKNESS--I might say, a FREQUENT WEAKNESS which is apparent in many of those that hope in the Lord.
 
 It is a dangerous weakness, for it is a weakness of the heart. The text says, "Be of good courage, and He shall strengthen your heart." Wherein it is implied that sometimes the heart of them that hope in the Lord grows weak. As you well know, heart disease is a very dangerous disease--even if a very little is wrong with the heart, it is a serious matter-- for every other part of the body will be affected. Some of God's own people are occasionally and, many of them very often, subject to a weakness of the heart. They lose their courage, their joy departs from them and they become timorous and fearful.
 
@@ -40,7 +40,7 @@ This feeble heart pleads many excuses. I do not marvel that it does--how can I, 
 
 You and I are invincible though a thousand stronger than Hercules should be against us--as long as we can fall back on our God! And the only hope of the enemy's victory is if he can keep us away from God. But even if he should throw us down and seem to break us in pieces, yet in that fall we fall upon our God and rest on Him, alone. We may lie prone upon the earth and cry, "Rejoice not against me, O my enemy: when I fall, I shall arise." Come into contact with your God, fall upon Divine power and you will rise with new force and new strength! But, if you should once be separated from Him, then it would be all over with you. Yet, blessed be His name, nothing shall be able to separate us from the love of God which is in Christ Jesus our Lord!
 
-Now, thirdly, I call your most earnest heed to the trumpet voice of the exhortation in the text, A SEASONABLE EXHORTATION--"Be of good courage, and He shall strengthen your heart."
+Now, thirdly, I call your most earnest heed to the trumpet voice of the exhortation in the text, a SEASONABLE EXHORTATION--"Be of good courage, and He shall strengthen your heart."
 
 I like the way this is put. It is not alone, "Be of good courage." There is an, "and" with it--"and He shall strengthen your heart." At the same time, the exhortation is not omitted. It does not say, "He shall comfort your heart, therefore you need do nothing." They err from the Scriptures who make the Grace of God a reason for doing nothing--it is the reason for doing everything! They who say that predestination and the working of a living God put man out of the field, make a gross mistake--it is these facts that bring man into the field. The most stern predestination is not the least in conflict with the most perfect freedom of the human will. I may not be able to explain how it is so to you, but I know that it is so as a matter of fact--and that God requires us to be of good courage at the same moment that He says that He will strengthen our heart.
 
@@ -52,7 +52,7 @@ If you are not of good courage, what will happen to you? I will not say that you
 
 Why are you afraid? Is God with you and yet are you afraid? What ails you? Has God forsaken you? Has He forgotten to be gracious? Has Omnipotence grown weak? Has He been a wilderness to you? Has the manna ceased to fall, or the waters to flow? Go, yield yourself up to Him! Ask Him, by His Grace, to make you heroic instead of being numbered among the fearful and the unbelieving who turn their backs in the day of battle and seek their own selfish ease and comfort.
 
-I finish up with A CHEERING PROMISE--"He shall strengthen your heart."
+I finish up with a CHEERING PROMISE--"He shall strengthen your heart."
 
 God, alone, can strengthen the heart. I suppose that physicians can do something for weak hearts, though I do not know. As a general rule, when a man dies suddenly and they do not know what it is that killed him, they say, "It is disease of the heart." The heart is a mysterious portion of our being and needs great care. Spiritually, the mercy is that God, who made the heart, understands the heart and He who sees its weakness, knows how to strengthen it!
 
