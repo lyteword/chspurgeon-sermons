@@ -72,7 +72,7 @@ Only one more observation--avoid setting any time limits to God in your prayers.
 
 And so I come, in the last place, to dwell upon the third matter, which is very amazing. The charge to take no
 
-rest was notable, but here is A STILL MORE REMARKABLE CHARGE--Give Him no rest." What a word is this! I
+rest was notable, but here is a STILL MORE REMARKABLE CHARGE--Give Him no rest." What a word is this! I
 
 speak with solemn awe! When the Lord condescends so greatly, we must be doubly reverent. Give God no rest? I am amazed at such a command! Come, gracious Spirit and teach me how to speak!
 

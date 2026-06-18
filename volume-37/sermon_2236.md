@@ -62,7 +62,7 @@ There stood the prodigal, overwhelmed by his father's goodness, yet remembering 
 
 "In wonder lost, with trembling joy We take the pardon of our God! Pardon for crimes of deepest dye,
 
-A pardon bought with Jesus' blood.
+a pardon bought with Jesus' blood.
 
 Who is pardoning God like Thee?
 
