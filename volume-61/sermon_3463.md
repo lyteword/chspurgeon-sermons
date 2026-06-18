@@ -8,7 +8,7 @@ Now our Lord asked no testimonials from anybody. He stood up and spoke very simp
 
 Now this is an illustration of a general rule upon which I wish to speak tonight. The moral character has a great effect upon the faith. These men, through being proud, stilted and fond of titles, were unable to believe in Christ--but there are other faults more common than these which effectually prevent men from becoming the disciples of our blessed Master. Of some of these I intend to speak this evening. And when I have done so, I shall have a few words to address to the individuals here who cannot believe in Christ because there is a something within their hearts that very effectually prevents their coming to the faith of God's elect. First, then, it is very clear that--
 
-IT IS NOT BECAUSE A TRUTH IS PLAIN THAT, THEREFORE, ALL MEN SEE IT.
+IT IS NOT BECAUSE a TRUTH IS PLAIN THAT, THEREFORE, ALL MEN SEE IT.
 
 There are some men in such a condition of mind, of such a blinding sort, that even if the Truth of God could be still more plain, it would be the most unlikely thing in all the world that they would receive it! We will suppose for a moment that teetotalism is based upon the surest Truth of God and cannot, for a moment, be disputed. Some earnest Brother is endeavoring to convince a man. He belabors him with the most potent arguments--he brings before him the most astonishing facts and some of those wonderful "statistics" which the more we look at, the less we believe! And after bringing all these to bear upon the man, he is still unmoved. You are surprised, but somebody whispers in your ear, "He owns a gin palace," and now you are not surprised at all! It would be a very unlikely thing that he should be convinced of the propriety of total abstinence while he, himself, gets his gain by selling the pernicious evils! But take another case of the same sort. A young gentleman, in conversation with a bishop, was endeavoring to show his lordship the unscriptural character of the Episcopal body as now held in the Church of England. His lordship was observed to smile and when he was asked the reason, he replied, "Why, I wonder at the courage of this young gentleman that he should imagine he could ever convince me out of 3,000 a year!" And, indeed, it was not very likely that he would be converted from the errors of Episcopacy, if these are errors, any more than our friend of the gin palace was likely to be converted to anti-alcoholic
 
@@ -36,7 +36,7 @@ in Jesus Christ. Why, how could I meet my old companions? What would they say to
 
 Now I might enlarge, but I shall not. You clearly see that there are many moral faults which keep men back from believing in Jesus. Now for--
 
-A FEW PLAIN, EARNEST WORDS WITH THOSE OF YOU WHO HAVE NOT BELIEVED.
+a FEW PLAIN, EARNEST WORDS WITH THOSE OF YOU WHO HAVE NOT BELIEVED.
 
 There have been many arguments which have been used at different times to bring over the skeptical to the faith. I will just tell you what has often strengthened my own mind, so that, my dear Friends, if God inclines you to overcome the moral difficulty, you may not have a mental difficulty. In the first place, the Doctrine that we are called upon to be-lieveis, that having sinned we are condemned, but that God, full of mercy, had pity upon us and that His Son, God Himself, came down on earth to suffer what was due on account of our sins. In order that the Justice of God might not even seemto be robbed of its due, Jesus, God's only-begotten Son--
 

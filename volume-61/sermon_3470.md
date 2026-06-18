@@ -36,7 +36,7 @@ Brother, God can deliver you! Oh, what a blessing it is to have such a God to de
 
 So this prayer will do for beginners, and it is alike suitable for those who are ending their course. I may call it the Alpha-prayer and the Omega-prayer--fit for babes, and fit for strong men! Take it up, each one of you, and say, "Show me Your marvelous loving kindness." Having thus taken this prayer first as to meditation, and then as to experience, we will now take it as--
 
-A REQUEST PREFERRED FOR SOME SIGNAL GIFT.
+a REQUEST PREFERRED FOR SOME SIGNAL GIFT.
 
 "Show Your marvelous loving kindness by some special revelation to me at this time." I think one of the best translators of the Hebrew gives it, "Distinguish Your loving kindness." I do not know which to quote, but several of them seem to treat the passage in this way, "Lord, You have a great many loving kindnesses. I am just now in great trouble. Pick out one of Your loving kindnesses--distinguish--give me in my time of extraordinary need some extraordinary loving kindness. Show Your marvelous loving kindness." If you lay the stress on the word, "marvelous," you will then get the pith of it. I think it is Trapp who said that "God is good at a dead-lift"--and he has put a deal of meaning into that homely phrase. When you and I can do nothing, and it has come to a dead-lift, then we need our God and then we may say to Him, "Now, Lord, show me more than Your known goodness--show Your marvelous loving kindness. Oh, let us see what Omnipotence can do! Human wisdom fails--let Omniscience come to our aid! Lord, we are at our wits' end--may this, our extremity, prove to be Your opportunity. Show Your marvelousloving kindness." Do you not think we shall be warranted in using this prayer as we gather round the Table, tonight, to partake of the Lord's Supper? (My sermon seems to have more praying than preaching in it). Lord, here are the emblems that set forth Your body and Your blood--now "show Your marvelous loving kindness." Oh, do give us some choice token for good, some special mercy such as we received not when last we met for this communion! Lord, we are very weary. We have been harassed in the world. We need rest--give us some marvelous peace, some sacred calm, some sweet repose which we have not known before! Gathered as we are here, can we not, as Believers, cry, "Have You not a blessing, O my Father? Give it to me, even to me, O my Father"?
 
@@ -50,7 +50,7 @@ But you are going away, many of you. I beg you not to pass from under yonder col
 
 "I the chief of sinners am, But Jesus died for me.
 
-'Show Your marvelous loving kindness.' Oh, forgive me. I do accept Your Son. I do believe in Jesus, that He is able to save my soul, and my soul does rest on Him alone. Lord, for Jesus' sake 'show Your marvelous loving kindness.'" Amen.
+'show Your marvelous loving kindness.' Oh, forgive me. I do accept Your Son. I do believe in Jesus, that He is able to save my soul, and my soul does rest on Him alone. Lord, for Jesus' sake 'show Your marvelous loving kindness.'" Amen.
 
 EXPOSITION BY C. H. SPURGEON: PSALM 51; PSALM119:145-168.
 
