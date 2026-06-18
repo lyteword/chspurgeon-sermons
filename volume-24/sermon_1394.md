@@ -118,7 +118,7 @@ Any time between the first of January and the last of December in which you seek
 
 To some of you I have spoken these many years, getting, now, into the twenty-fifth year, and shall I speak in vain? Our
 
-last word was to be something about A DARK CLOUD WHICH MAY DARKEN THE CLOSE OF THIS DAY OF
+last word was to be something about a DARK CLOUD WHICH MAY DARKEN THE CLOSE OF THIS DAY OF
 
 SALVATION. I pray it may not, yet I fear it. My dread is lest you receive this great favor in vain, lest you live in this day
 

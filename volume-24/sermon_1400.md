@@ -2,7 +2,7 @@
 
 "These were the potters, and those that dwelt among plants and hedges: there they dwelt with the king for his work." 1 Chronicles 4:23.
 
-(A slogan for Sunday school teachers).
+(a slogan for Sunday school teachers).
 
 ALL labor is honorable. No man ever needs to be ashamed of an honest calling. Whether a potter or a gardener, or whatever else his occupation may be, the workman need never blush at the craft or toil by which he earns his honest wage. "In the sweat of your face shall you eat bread," belongs to us all. The sluggard may well be ashamed of his sloth, but not the diligent man of his industry. It is quite certain that the Word of God does not disparage the most humble calling. I suppose that there is scarcely a trade or occupation which is not mentioned in sacred Scripture. The rough hand and the rugged face of the peasant are to be preferred before the dainty finger and the sleek form of the Pharisee.
 

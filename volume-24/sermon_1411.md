@@ -84,7 +84,7 @@ Dirty little creatures in the gutter. Filthy women polluting the streets. Base m
 
 The love of Jesus Christ was a practical love. He did not love in thought, only, and in word, but in deed and in truth--and if the love of Christ constrains us--we shall throw our souls into the work and service of love. We shall be really at work for men, giving alms of our substance, enduring our measure of suffering and making it clear that our Christianity is not mere talk, but downright work! We shall be like the bullock of the burnt offering, laid upon the altar to be wholly consumed. We shall consider nothing but how we can most completely be eaten up with the zeal of God's House, how without the reserve of one single faculty we may be entirely consumed in the service of our Lord and Master. May the Lord bring us to this!
 
-THE CONSTRAINT OF WHICH WE HAVE SPOKEN WAS JUSTIFIED BY THE APOSTLE'S
+THE CONSTRAINT OF WHICH WE HAVE SPOKEN WAS JUSTIFIED BY THE APOSTLE's
 
 UNDERSTANDING. "The love of Christ constrains us; because we thus judge." Love is blind. A man may say that in the affairs of love he exercises a calm discretion, but I take leave to doubt it. In love to Christ, however, you may be carried right away and be as blind as you like and yet you shall act according to the most sound judgment. The Apostle says warmly, "The love of Christ constrains us," and yet he adds with all coolness, "because we thus judge." When understanding is the basis of affection, then a man's heart is fixed and his conduct becomes in a high degree exemplary. So it is here.
 

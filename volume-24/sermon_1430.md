@@ -90,7 +90,7 @@ One said of old, "My soul is even as a weaned child." A great many might far mor
 
 My time flies so rapidly that I cannot stop long on any one branch of this very fruitful topic. There is no doubt that electing love does use the furnace as its workshop and that there the vessels of mercy are made to receive many a line of beauty and marks of Divine Grace.
 
-But now, fifthly, THE FURNACE IS A GREAT SCHOOL IN WHICH WE LEARN OF ELECTION ITSELF.
+But now, fifthly, THE FURNACE IS a GREAT SCHOOL IN WHICH WE LEARN OF ELECTION ITSELF.
 
 First, in the furnace we learn the graciousness of election. When a child of God, in the time of trouble, sees the corruption of his heart--the little Hell, the perfect Sodom which reeks within his nature--he begins to say, "How can the Lord ever love me? If He has loved me, His affection must be traced to Grace, Free Grace, Sovereign Grace, Divine Grace and nothing but Grace." Now that is a great thing to learn!
 
@@ -106,7 +106,7 @@ So, Beloved, you learn election in the furnace and, though I do not desire any B
 
 and are very cloudy about the Doctrines of Grace and cannot, indeed, say, "Grace," without somehow stuttering, "free will," I would to God that they had a little touch of the furnace for their eternal good! A scorch or two might do them good and they might, perhaps, be better able to speak to the praise of the glory of that infinite eternal Grace which chose the saints of old and will not cast them away!
 
-Now, lastly, by the FURNACE SOME OF THE HIGHER ENDS OF A YET MORE SPECIAL ELECTION
+Now, lastly, by the FURNACE SOME OF THE HIGHER ENDS OF a YET MORE SPECIAL ELECTION
 
 ARE OFTEN REVEALED for there is not only an election of Grace, but there is an election from among the elect to the highest position and to the noblest service! Jesus Christ had many choice disciples, but it is written, "I have chosen you twelve." Out of the 12 there were three--you know their names and out of the three there was one, elect out of the elect--that loving, tender John, who leaned upon his Master's bosom!
 

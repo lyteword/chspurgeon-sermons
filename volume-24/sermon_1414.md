@@ -26,7 +26,7 @@ Some such sensible reply was given to certain of our friends on Kennington Commo
 
 "Sweet day so cool, so calm, so bright, The bridal of the earth and sky." Coming just in the middle of this fair season of hope and promise, concerning which he sang--
 
-"Sweet spring, full of sweet days and roses, A box where sweets compacted lie," it has a still small voice which all should wish to hear.
+"Sweet spring, full of sweet days and roses, a box where sweets compacted lie," it has a still small voice which all should wish to hear.
 
 What a blessing to have enjoyed such a May day as this has been! We have had God speaking to us according to the exact style of our text--He has made His sun to shine, and He has us sent rain. Our days, for some little time, have been made up of sunshine and shower with, every now and then, that wondrous masterpiece of glory in the sky which we call the rainbow, of which God has said, "I, even I, do set My bow in the cloud," "whose warp is the raindrop of earth and whose woof is the sunbeam of Heaven!" Glorious symbol of His Grace and faithfulness, who hung it in the clouds! Now what does God say to us in the sunshine and the shower which come, the one after the other, in such pleasant alternation, making the grass so green and causing flowers to deck both tree and herb? What does He say in all this?
 
@@ -116,7 +116,7 @@ His Grace in conversion, pardon, adoption and preservation is as large as ever! 
 
 Lest I should weary you, I will finish with the last head, under which I should like to MAKE THE EARTH, THE
 
-FLOWERS AND THE TREES WHICH HAVE BEEN WATERED AND WARMED, SPEAK TO YOU A LITTLE.
+FLOWERS AND THE TREES WHICH HAVE BEEN WATERED AND WARMED, SPEAK TO YOU a LITTLE.
 
 And, first, I will suppose, dear Friend, that you are here tonight and feel that you cannot pray--feel as if you could not come to God, could not do anything. The flowers say, "We are cheered by the sun and refreshed by the rain. We do nothing to deserve these blessings, but we do long for them." The little flowers say, "We do long for the rain." Look at them--they droop their heads during a long drought. See the grass, how brown it gets! See the leaves, how dry they are! See the earth, how chapped it is after a dry season.
 
