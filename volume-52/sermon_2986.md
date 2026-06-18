@@ -18,7 +18,7 @@ It was, doubtless, also necessary to complete the perfect example of our Lord an
 
 There is no need, with such a subject as this, for the use of grand periods and eloquent language, even if I ever indulged in that kind of thing. But I shall just give utterance to a few simple Truths of God which you already know, trying to stir up your pure minds by way of remembrance. And, first, let us contemplate the love of Christ resplendent in the act of death, l aying down His life for His friends. Secondly, let us see that love enhanced by a consideration of the friends for whom He laid down His life. And then, thirdly, let us see the love of Christ reflected and reproduced by His friends. This, however, will have to be done outside this place--I can only make the rough outline of the picture which is to be drawn by all of you who are the friends of Christ. My text reminds us of one of the strongest reasons why we should love one another even as Christ has loved us--"Greater love has no man than this, that a man lay down his life for his friends."
 
-Let us, then, first SEE CHRIST'S LOVE RESPLENDENT IN THE LAYING DOWN OF HIS LIFE FOR HIS
+Let us, then, first SEE CHRIST's LOVE RESPLENDENT IN THE LAYING DOWN OF HIS LIFE FOR HIS
 
 PEOPLE.
 

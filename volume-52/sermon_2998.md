@@ -12,7 +12,7 @@ morning, when the sun rises, even a morning without clouds; as the tender grass 
 
 I want to do two things. First, to show you that this passage describes our experience of the rule of Christ Secondly, to prove to you that our experience should encourage others to receive Him as their Ruler.
 
-First, then, there are many of you, my dear Brothers and Sisters in Christ, who can join with me in saying that the text IS A TRUTHFUL DESCRIPTION OF OUR OWN EXPERIENCE OF THE RULE OF CHRIST since that dear hour which brought us to His feet, cut up all our self-righteousness by the root and blessedly taught us to trust and rest in Him.
+First, then, there are many of you, my dear Brothers and Sisters in Christ, who can join with me in saying that the text IS a TRUTHFUL DESCRIPTION OF OUR OWN EXPERIENCE OF THE RULE OF CHRIST since that dear hour which brought us to His feet, cut up all our self-righteousness by the root and blessedly taught us to trust and rest in Him.
 
 Let us take the sentences as they stand and let the hearts of God's children respond as I speak upon each one of them. Has it not been true, Beloved, that Jesus has been to us as the light of the morning, when the sun rises Was He not so when first you saw Him? You were in the dark--an Egyptian darkness that might be felt was upon you. You had aforetime walked in the feeble and fickle light of the sparks of your own kindling, but those sparks were, at last, all stamped out and the light of all your candles was quenched in thickest gloom. Was it not like the rising of the sun when you--
 

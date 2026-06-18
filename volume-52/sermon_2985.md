@@ -8,7 +8,7 @@ We might have supposed that these people would have gladly accepted the very che
 
 I purpose to take my text out of its context and to address two different classes of hearers, using one of the sentences of my text as a message concerning the salvation of sinners. And using another sentence as a message concerning the strength of saints.
 
-First, then, here is A MESSAGE CONCERNING THE SALVATION OF SINNERS--"In returning and rest shall you be saved."
+First, then, here is a MESSAGE CONCERNING THE SALVATION OF SINNERS--"In returning and rest shall you be saved."
 
 Dealing, first, with the matter of returning to God, let me ask you a few questions. Have you played the prodigal? Have you got far away from your father's house. Have your joyous days all ended? Is your money all spent? Is your strength all but gone? Have your so-called "friends" forsaken you? Are you brought very low? Is there a mighty famine in the land and have you begun to be in need? There is but one thing for you to do--and that is to return. There is nothing more required of you than that you should return to God and rest in Him. Returning, however, is your first business. I would that you would say, as the prodigal in his hunger said, "I will arise and go to my father." You will never get right till you get back to God. You cannot do without the God who made you. You may try to do so as much as you will, but a creature apart from the Creator is nothing but vanity, a man apart from his Maker is in utter misery!
 

@@ -8,7 +8,7 @@ And, when we come to think of it rightly, we see at once that it is a theme for 
 
 Taking the text somewhat out of its immediate context and speaking simply upon these six words, "The Lord has comforted His people," we see that in the first place, the Lord has a people. Secondly, they are a people who need to be comforted. And thirdly, the Lord gives them the comfort that they need.
 
-First, then, it is clear, from the very wording of our text, that THE LORD HAS A PEOPLE. Isaiah does not say, in general terms that the Lord has comforted the children of men as a whole, but he says, "the Lord has comforted His people." Here is, as Dr. Watts says--
+First, then, it is clear, from the very wording of our text, that THE LORD HAS a PEOPLE. Isaiah does not say, in general terms that the Lord has comforted the children of men as a whole, but he says, "the Lord has comforted His people." Here is, as Dr. Watts says--
 
 "A garden walled around, Chosen and made peculiar ground! A little spot, enclosed by Grace Out of the world's wide wilderness"-- and it is concerning this particular portion of the human race--selected and elected by God--that the Prophet was moved by the Holy Spirit to write, "the Lord has comforted His people."
 
@@ -35,7 +35,7 @@ I need not try to describe the sense in which the saints are to be God's people 
 
 Thus I have shown you that God has a people.
 
-Now, secondly, and very briefly, because I do not want to make the roll of lamentation too long, THEY ARE A PEOPLE WHO NEED TO BE COMFORTED.
+Now, secondly, and very briefly, because I do not want to make the roll of lamentation too long, THEY ARE a PEOPLE WHO NEED TO BE COMFORTED.
 
 You never find God giving any blessings that are not really required. "Works of supererogation" are talked of by fools and knaves, but such works are never performed by God, nor by man either! So that, when the Lord comforts His people it is because they needcomfort.
 

@@ -6,7 +6,7 @@
 
 THESE verses furnish a striking illustration of the unwise way in which, in certain cases, the Bible has been divided into chapters. The meaning of many portions of Scripture would be much more manifest if Gospels, Epistles and even Prophecies were left in their undivided state. The two sentences which I have selected for my text ought never to have been separated--and we may rightly say of them, "What God has joined together, let no man put asunder." So we will consider them together as they should be considered--"Every man went unto his own house. Jesus went unto the Mount ofOlives."
 
-Here we have, in the first place, A FACT FOR OUR EARNEST CONSIDERATION. Let us turn it over in our mind under the Holy Spirit's gracious guidance. While Christ's friends and enemies had, everyone of them, a house to go to, He must go spend the night in the open air watching and praying on the Mount of Olives.
+Here we have, in the first place, a FACT FOR OUR EARNEST CONSIDERATION. Let us turn it over in our mind under the Holy Spirit's gracious guidance. While Christ's friends and enemies had, everyone of them, a house to go to, He must go spend the night in the open air watching and praying on the Mount of Olives.
 
 Observe, first, His extreme poverty. Among them all--friends or foes--there was not one without a house excepting Himself. No, more, among some of the meanest of His creatures, there was not one without a shelter. Foxes, though they were but worthy to be exterminated, had holes in which they could hide. And the birds of the air, though many ruthlessly sought to destroy them, had nests wherein they could rest--but the Son of Man had not where to lay His head. Possibly, in all Judaea, there was only that one houseless man! Certainly there was no other who was so voluntarily houseless as Himself. He had brought Himself down from the glories of His Father's court, from the majesty of reigning with His Father in Heaven to become dependent upon the bounty of His own disciples for His daily bread--and He had no house that He could call His own, no home to which He could retire when His day's work was done. Believers, admire His amazing condescension in that, "though He was rich, yet for your sakes He became poor, that you, through His poverty, might be rich." If any of you are poor in this world, be comforted, for you are not poorer than your Master was! Remember that every true Christian is the image of Christ but the godly poor man is the expressimage of Christ! He has one quality beyond those which other Christians have, that is, his poverty, which makes him even more like his Master than they are. He who was born in a stable and cradled in a manger. He who wore the homely garb of the peasantry of Palestine, the garment which was without seam, woven from the top throughout. He who made fishermen His chosen companions, was the poor man's Christ, poorer than the poorest of you and able, therefore, to sympathize with you in all the pangs and griefs which penury may bring upon you! And you great ones of the earth, despise not the unlettered and the poor, for "has not God chosen the poor of this world, rich in faith," to be "heirs of the Kingdom which He has promised to them that love Him"? And has He not "exalted One chosen out of the people," even His only-begotten and well-beloved Son, to sit with Him on the Throne of His Glory?
 
@@ -32,7 +32,7 @@ I am not going to thresh these thoughts out for you--I merely suggest them as th
 
 Olives."
 
-Now I want to take the text in another way. The second thing which it presents to us is A VIVID CONTRAST FOR SELF-EXAMINATION.
+Now I want to take the text in another way. The second thing which it presents to us is a VIVID CONTRAST FOR SELF-EXAMINATION.
 
 What a true description this first verse is of our own usual conduct! "Every man went unto his own house." We go, each one of us, to our own house for ease. That is right enough up to a certain point, but do we not often seek our own ease when we should be engaged in the service of our Lord? Christ goes to the mountain to pray, but we go to our beds to sleep, or to our tables to feast, to our friends to while away an hour in empty talk, or to our amusements to kill the time which hangs so heavily upon our hands. I doubt not that the greatest saint among us has some cause to reproach himself for having wasted time and disobeyed that solemn Apostolic injunction, "See, then, that you walk circumspectly, not as fools, but as wise, redeeming the time because the days are evil." I can, in imagination, see the Savior lifting up His hands in an agony of spirit on the mountain at midnight, while His disciples are all sleeping comfortably in their beds. As we think of our Savior thus agonizing in prayer for His people, can we not find more time for prayer than the most of us usually do? Might it not be profitable to ourselves to mortify the body a little more that we might have a greater advantage in spirit? I am afraid we would have to present a very poor record if we gave a true account of the time we spend in prayer--yet we have no excuse to offer for being slow in this holy duty. It is not a bondage, a slavery--it is the highest privilege of the Believer's soul to be engaged in prayer to our Heavenly Father--yet we often prefer the disastrous ease of wasting our time instead of drawing near to God in prayer!
 
@@ -50,7 +50,7 @@ We go home, also, forrest and refreshment. We are toil-worn--it is not more ease
 
 I think that I have said enough upon this point of contrast. To my mind there is a very suggestive line of thought in these two sentences--"Every man went unto his own house. Jesus went unto the Mount of Olives."
 
-Just for a minute or so, dear Friends, I want to remind you that we also have here A COMPARISON FOR OUR
+Just for a minute or so, dear Friends, I want to remind you that we also have here a COMPARISON FOR OUR
 
 INSTRUCTION.
 
@@ -58,7 +58,7 @@ Perhaps I shall startle and surprise you when I say that Jesus Christ did exactl
 
 Christ's home. It was there that He met with His Father. It was there that the Man, Christ Jesus, met with kindred spirits in the Father and the Holy Spirit. It was there that He cast off the cares of the day and unburdened Himself as a weary son does in his parent's presence. It was there that He told the tale of all the traps which had been laid to trap Him in speech, of all the ways that His enemies had tried to catch Him. It was there that He cried to Heaven for wisdom and it was there that, made strong by fresh contact with His Father, He girt on His golden armor to go forth once more fully protected from all the arrows of the Evil One. Beloved Brothers and Sisters in Christ, that season of prayer upon the Mount of Olives was to Jesus what our going to our houses and to our loved ones is to us. We grieve that His body was wet with the dews of the night, yet we would gladly have some of those same drops upon our body if we could have communion with Him in spirit. We have sympathy with the members of His physical frame because they were tried by the cold of the mountains, and the loneliness of His night vigil, but we wish that our souls could be braced with something like the same vigor which He received upon the Mount of Olives, or in the Garden of Gethsemane. Yes, the cold mountain was His home. There He hada place where He could lay His head, and rest, though only in a spiritual sense.
 
-There is just one other point for me to mention and then I will close. We have here A TYPE FOR OUR
+There is just one other point for me to mention and then I will close. We have here a TYPE FOR OUR
 
 EDIFICATION.
 
@@ -68,7 +68,7 @@ We hope to go to our houses after this service, but Jesus is still, in a certain
 
 I have a strong, a perfect plea,
 
-A great High Priest, whose name is Love,
+a great High Priest, whose name is Love,
 
 Who always lives and pleads for me!
 

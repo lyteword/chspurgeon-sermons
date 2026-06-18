@@ -8,7 +8,7 @@ The mountains of Israel were a soil of glass in which you could see reflected, a
 
 I intend to take the hills of Israel as a representation of our own state--the state of our own heart. As they really did mirror forth the condition of the people of old, the metaphor becomes peculiarly attractive. I shall divide the subject thus--first, man's heart, by nature, is like a waste field. Secondly, there is no hope for that field unless Godshall turn to it in mercy. Thirdly, when Hie does turn to it, He will have to till it, for, lastly, not until after tillage can it be sown with any hope of success.
 
-MAN'S HEART, BY NATURE, IS LIKE A WASTE FIELD.
+MAN's HEART, BY NATURE, IS LIKE a WASTE FIELD.
 
 A waste field produces no harvest. Reaper, you shall never fill your arms with sheaves, the axle of the wagon shall never creak beneath the load of harvest and the young men shall never dance with the maidens at the harvest home. Let the field lie waste and the fruit it will yield in a whole century will not be sufficient to feed a single individual!
 
