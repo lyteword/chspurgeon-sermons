@@ -36,7 +36,7 @@ I do not know how to speak adequately upon my glorious theme! I have talked abou
 
 "But we cannot receive the Divine Nature," says one. No, we cannot be Divine, but yet we can be partakers of the Divine Nature in all its moral and spiritual qualities. We are to become holy and we aspire to be perfect even as our Father which is in Heaven is perfect and, then, when we shall have reached that blessed point, we shall more fully have proved the Truth of God that we are "all of one." But long before we attain that height, it is still true, and always will be true, amidst all our infirmities and imperfections, that we are still one with Christ in nature and one with Him in all our interests! What He has done, He has done for us, and it is reckoned as what we have done in Him--and it is ours to work out the life of Christ in our own souls and to feel how truly all that is in Him is also in His people, as all the griefs and woes of His people have been reproduced in Him. "All of one!" I love the very words! Even without any exposition they are music to the believing heart--"Both He that sanctifies and they who are sanctified are all of one."
 
-Now, in the second place, I have to notice OUR SAVIOR'S EXPRESSIONS WHICH PROVE THIS WONDERFUL UNITY.
+Now, in the second place, I have to notice OUR SAVIOR's EXPRESSIONS WHICH PROVE THIS WONDERFUL UNITY.
 
 The Apostle says, "for which cause He is not ashamed to call them brethren." He is glorious and they are often in shame and poverty, but He is not ashamed to call them brethren! There is an immeasurable disparity between the Lord Christ and His poor erring disciples, but there is no disparity which His love dwells upon, for He calls them brethren! Our hymn, just now, spoke of it as a wonder--
 
@@ -122,7 +122,7 @@ My praise shall be of You in the great congregation. It is so, here, this evenin
 
 All the ends of the world shall remember and turn unto the LORD: and all the kindreds of the nations shall worship before You. He talks of the LORD and He talks to the LORD--"Before You." He talks about God's Glory and about the salvation of the heathen, and about all nations worshipping the one true God.
 
-28-30. For the Kingdom is the LORD'S: and He rules over all the nations. All they that are prosperous upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive his own soul. A posterity shall serve Him. He Himself was like a seed about to be put into the ground that He might bring forth fruit unto God-- and He cheers His heart with the prospect.
+28-30. For the Kingdom is the LORD's: and He rules over all the nations. All they that are prosperous upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive his own soul. A posterity shall serve Him. He Himself was like a seed about to be put into the ground that He might bring forth fruit unto God-- and He cheers His heart with the prospect.
 
 30, 31. It shall be accounted to the Lord for a generation. They shall come. How He rolls it like a sweet morsel under His tongue! "They shall come." Those great sinners, those far-off ones, "they shall come"--
 

@@ -40,7 +40,7 @@ The Israelites were also to eat the Passover "with unleavened bread." Leavened b
 
 I will say no more on this first part of my subject, but I pray you, in the silence of your spirits, to feed upon Christ Jesus.
 
-This brings me to my second point, which is that WE ARE TO RECEIVE CHRIST AS A WHOLE. The Lord said, concerning the Passover, "They shall leave none of it unto the morning, nor break any bone of it." If we receive Christ, we must receive Him as a whole.
+This brings me to my second point, which is that WE ARE TO RECEIVE CHRIST AS a WHOLE. The Lord said, concerning the Passover, "They shall leave none of it unto the morning, nor break any bone of it." If we receive Christ, we must receive Him as a whole.
 
 We must receive Christ in the entirety of His Person. There was Arias--he would receive Christ as a good man, but not as God. But you cannot have Christ at all unless you have Him as a whole. There were some who took the opposite side and were willing to receive Christ as God, but not as a bleeding, suffering Man. But you cannot receive Christ at all if you will not have Him altogether--you must have Him in the entirety of His Person--as God and Man, or else you cannot have Him at all, and cannot enjoy Him as the food of your soul.
 

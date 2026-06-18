@@ -20,7 +20,7 @@ Public worship is also, in the next place, a good way of securing unity in praye
 
 "Lord, how delightful 'tis to see
 
-A whole assembly worship Thee!
+a whole assembly worship Thee!
 
 At once they sing, at once they pray;
 
@@ -47,7 +47,7 @@ But you cannot sing that heavenly anthem alone, because however well you can sin
 
 "I have been there and still would go, 'Tis like a little Heaven below." That little Heaven below shall help to prepare us for the great Heaven above! That is our first observation, then. It is well to worship God in public.
 
-Secondly, IT IS WELL TO HAVE A REASON WHEN WE GO UP TO PUBLIC WORSHIP. "Two men went up into the Temple to pray." They went there for that express purpose.
+Secondly, IT IS WELL TO HAVE a REASON WHEN WE GO UP TO PUBLIC WORSHIP. "Two men went up into the Temple to pray." They went there for that express purpose.
 
 Now, whenever we go to the assembly of God's people, we should have some good reason--and the right reason is that which these two men had--they went up to the Temple to pray. I would rather that you came with a bad reason than that you did not come at all. I have known people come to pick pockets and yet they have gone away with a blessing. I am sorry if any of you came, tonight, for that reason, yet I am glad that you are here. Perhaps friends will prevent you from committing the sin of theft by taking a little extra care of their pockets! I have known persons go into the House of God out of sheer mockery and yet God has blessed them, for His ways are strangely sovereign. But that is to be ascribed to matchless mercy and it is not the way we ought to appear before the Lord!
 
@@ -73,7 +73,7 @@ In the publican's prayer there is, in the Greek, a reference to sacrifice. He cr
 
 I will pause, here, and pass a few questions round for everyone to ask, "Did I come, tonight, for such a reason? Is that my general habit, to go up to my place of worship for such a reason? Or do I go jauntily, as if it were an ordinary transaction to go up for the worship of God?" I will not propose any answers to you--your own consciences will be able to give the reply. Only let them speak and God bless the inquiry to you all!
 
-Thirdly, IT IS POSSIBLE TO GO UP TO PUBLIC WORSHIP WITH A GOOD REASON AND YET TO FORGET IT. "Two men went up into the Temple to pray; the one a Pharisee, and the other a publican."
+Thirdly, IT IS POSSIBLE TO GO UP TO PUBLIC WORSHIP WITH a GOOD REASON AND YET TO FORGET IT. "Two men went up into the Temple to pray; the one a Pharisee, and the other a publican."
 
 It was very remarkable that a Pharisee should forget his reason--that is the one point concerning him to which I am going to call your attention--he went up to the Temple to pray, but he did not pray. He never prayed a word, but he did something else. If it had been written, "Two men went up into the Temple to boast," I would give the Pharisee the palm, for he certainly did that magnificently! But as it is said, "Two men went up into the Temple to pray," then it is certain that this Pharisee quite forgot why he had come, for he never prayed at all!
 

@@ -12,7 +12,7 @@ But if another person comes, who is called a pessimist, one who always makes the
 
 I shall try briefly and earnestly, first, to describe a seeking soul. Next, to assure him that God is good to him. And then further to cheer him on in his seeking.
 
-First, I am to try to DESCRIBE A SEEKING SOUL.
+First, I am to try to DESCRIBE a SEEKING SOUL.
 
 Everybody does not seek the Lord. There are many who say to God, by their actions if not by their words, "Depart from us; we desire not the knowledge of Your ways." The man who seeks the Lord is the man who feels that he needs Him. He is under a sense of need--a need which he could hardly describe, but which, nevertheless, weighs very heavily upon him. He needs something very great, but he hardly knows what it is. He feels that he has a void--an emptiness within that needs filling. There is a something that he believes would content him if he could get it, but he has not got it yet. He feels that he is not right with God. He feels like one who is far off from God. He feels guilty and he needs pardon. He feels sinful and he needs renewing. He feels everything that he ought not to be and he wants to be changed, to be made a new man. That is the one who seeks the Lord--a man does not seek after that which he does not want--but a conscious and urgent need drives the troubled soul to seek after God.
 

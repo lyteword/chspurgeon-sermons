@@ -30,7 +30,7 @@ It is a somewhat singular thing that in this chapter God does not say anything a
 
 Here, then, is our text--"Yes, I swore unto you, and entered into a Covenant with you, says the Lord God, and you became Mine." My remarks upon it will be, first, that it was a Covenant freely made. Secondly, it was a Covenant entirely of love. Thirdly, it was a most sure Covenant and, in closing, I will try to show you that this Covenant involves very gracious consequences.
 
-In the first place, IT WAS A COVENANT FREELY MADE.
+In the first place, IT WAS a COVENANT FREELY MADE.
 
 The context tells us that this child, with whom God entered into Covenant, was one who could not have had any claim upon Him. It was a Covenant which He made at His own suggestion, out of the greatness of His own love, for the nation of Israel, of which He speaks, had nothing in its pedigree to suggest it. The Lord says, "Your birth and your nativity is of the land of Canaan; your father was an Amorite, and your mother an Hittite." Yet Jehovah entered into Covenant with that people. And now, if you look back upon your pedigree--
 
@@ -53,7 +53,7 @@ It was also a Covenant freely made because there was nothing in our beauty to wa
 
 That is the first point. It was a Covenant most freely made.
 
-But we cannot linger long on any one part of our glorious subject, so we notice, in the next place, that IT WAS A COVENANT ENTIRELY OF LOVE.
+But we cannot linger long on any one part of our glorious subject, so we notice, in the next place, that IT WAS a COVENANT ENTIRELY OF LOVE.
 
 Taking our text in its context, we learn that this Covenant was a marriage Covenant. It is a very wonderful thing that God should enter into a marriage Covenant with His people, but He has done so. The Lord Jesus Christ has taken upon Himself our Nature and has become bone of our bone and flesh of our flesh, so that, when Paul is speaking of marriage, he says, "For this cause shall a man leave his father and mother, and shall be joined unto his wife, and they two shall be one flesh." And then he adds, "This is a great mystery: but I speak concerning Christ and the Church," which means that Christ has joined Himself to His people and become one in Nature with His chosen henceforth and forever! The Lord Jesus Christ has taken His people to be henceforth as joined unto Him as the wife is joined to her husband! They become one and so does Christ make His people one with Himself. This is a very easy thing to say, but it is an almost impossible thing to compass and understand! Can it really be so, my Soul, that you are wedded to the Son of God? Is it really so that He says, "Yes, I swore unto you, and entered into a Covenant with you," and that Covenant is a Covenant of marriage by which He has joined with Him all His people unto His own heart, world without end? Catch that thought if you can, and enjoy all the comfort of it--but give God the glory for such wonderful condescension--
 
@@ -106,7 +106,7 @@ And, dear Friends, I would not have you forget that it must be a Covenant all of
 
 of what use would they be to Him? No, if the Lord enters into Covenant with us, it cannot be for any gain to Himself! It must be only out of a desire to benefit us. Therefore, let us bow in reverent adoration of the unselfish, self-created love of God to us which we have known since that dear hour which brought us to His feet and He entered into Covenant with us and we became His own! Surely I have said enough upon this topic to suggest many a grateful thought within the minds of all God's people.
 
-But now I want to carry you with me to another point. That is, thirdly, IT WAS A MOST SURE COVENANT--"I swore unto you, and entered into a Covenant with you."
+But now I want to carry you with me to another point. That is, thirdly, IT WAS a MOST SURE COVENANT--"I swore unto you, and entered into a Covenant with you."
 
 The Covenant which God makes with Believers is intended to remain forever. It is not something which may be broken in a few hours, like a child's toys--it is an everlasting Covenant. Read that sixtieth verse--"Nevertheless I will remember My Covenant with you in the days of your youth, and I will establish unto you an everlasting Covenant." How I love to get among the everlasting things! You know, in Canada, they build palaces of ice in the winter time and very beautiful things they are. But then, when spring comes, where are those palaces? And in summer, the very foundation upon which they were built has melted back into the St. Lawrence. God does not make with His believing people Covenants like those ice palaces--His Covenant stands secure, though earth's old columns bow. If God has promised to save you--as He has done if you believe in Jesus--He will save you in the teeth of death and Hell! Rest you sure of this, and say with David,
 

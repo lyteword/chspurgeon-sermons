@@ -38,7 +38,7 @@ There comes to be a prayer to God in giving alms, or in preaching the Gospel, or
 
 I think that I have said enough upon that first point--the universal mark of godliness is prayer.
 
-Secondly, there is, in the text, A POTENT MOTIVE FOR PRAYING--"For this cause shall everyone that is godly pray unto You in a time when You may be found."
+Secondly, there is, in the text, a POTENT MOTIVE FOR PRAYING--"For this cause shall everyone that is godly pray unto You in a time when You may be found."
 
 The motive seems to be, first, because God heard such a great sinner as David was. Possibly you know that this passage is very difficult to interpret. It appears to be simple enough, yet there are a great many interpretations of it. In the Revised Version you will find the marginal reading, "In the time of finding out sin." Let me read the context--"I acknowledged my sin unto You, and my iniquity have I not hid: I said, I will confess my transgressions unto the Lord; and You forgave the iniquity of my sin. For this let everyone that is godly pray unto You in the time of finding out sin." It runs all right and the context seems to warrant it. I am not sure that it is the correct translation, but the sense harmonizes with it, so let us learn from it this lesson, that God has heard the prayer of a great sinner!
 

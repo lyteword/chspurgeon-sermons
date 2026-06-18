@@ -85,7 +85,7 @@ It may be, dear Friends, that some of us will soon die--let us have no questions
 
 If we take our own way and get into difficulties, then we may say, "How foolish we were to make this choice!" But if, instead, we yield ourselves up to the supreme Director, to be led wherever He pleases, and follow Him as the sheep follow the shepherd, it is amazing what a sweet contentment our spirit will feel! The Lord bring us all to enjoy that rest and peace!
 
-Lastly, THIS WILL BE A LESSON IN OBEDIENCE.
+Lastly, THIS WILL BE a LESSON IN OBEDIENCE.
 
 Whatever service the King requires of you will please you. He may put you in a pulpit, or He may put you in a kitchen. He may put you in a place of honor, or He may put you in a place of dishonor. It is yours not to reason why, it is yours to do the work appointed! It has been well said that if there were two angels in Heaven and the great King had said to them, "I have two errands to be done upon the earth--one of you must go and announce the birth of Christ to the Virgin Mary. The other must go and stand and sweep a street-crossing." The angels would not have a preference between the two services, it would be enough for them to do their Lord's will! May we come to that point, that we may not be picking and choosing, but may be pleased with whatever the King gives us to do, and whatever our hand finds to do, may we do it with all our might!
 
