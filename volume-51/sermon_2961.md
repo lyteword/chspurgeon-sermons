@@ -27,7 +27,7 @@ And as good works cannot do this, neither can any ceremonial observances. You kn
 > The Sovereign will of God alone   
 > Creates us heirs of Grace--   
 > Born in the image of His Son,   
-> A new peculiar race.   
+> a new peculiar race.   
 
 And, without the Holy Spirit to carry out that Sovereign will of God by making us to be born into the image of His Son, we are not His heirs, for thus it stands in our text, "If children, then heirs," which implies that if we are not children, we are not heirs!
 

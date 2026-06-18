@@ -62,7 +62,7 @@ Worse still, these people had even turned the Grace of God into licentiousness, 
 
 Give me your hand and come back with melting heart and streaming eyes--and seek your Heavenly Father's face, again, for the great bell still rings out from the hospice of mercy and its message to you is this, "Though you have lost your way in the blinding snows of despondency and doubt, mercy is still proclaimed to you; therefore, Return, return, return." Can you not hear that great bell swinging in the tower of God's love and compassion? Turn your head that way and ask the Lord to lead you where that bell' s message summons you--"Return, return, return."
 
-Now, in the second place, we will change the run of our thought a little by noting that THIS VOICE MUST AWAKEN MANY MEMORIES IN THE BACKSLIDER'S MIND. He has long been going away from God, but even while he has been sitting in this place, he has been obliged to think of former and happier times in his history. And now
+Now, in the second place, we will change the run of our thought a little by noting that THIS VOICE MUST AWAKEN MANY MEMORIES IN THE BACKSLIDER's MIND. He has long been going away from God, but even while he has been sitting in this place, he has been obliged to think of former and happier times in his history. And now
 
 that word, "Return," causes him to recollect the time when he first came to the Lord. Ah, my Brothers and Sisters, with what a broken heart, and with what terrors and alarms, and with what weeping eyes you loved up to Jesus on the accursed tree! And, as you looked to Him, you found, as you thought, and as I hope you really did, peace, pardon and everlasting life! Where have you been, my Brother, my Sister, since that memorable day? Where have you been?
 

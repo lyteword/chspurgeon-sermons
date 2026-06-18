@@ -26,7 +26,7 @@ And, lastly, it was with Noah that the Lord's Covenant was made, even as the Cov
 
 I have just hurriedly mentioned these various points in which Noah was a type of Christ. This is a subject which is worthy of being thought out another time--and it deserves your earnest consideration and constant remembrance.
 
-But in the second place, I want to deal more fully with the chief point of the text. THERE IS A MAIN SYMBOL HERE--"This is as the waters of Noah unto Me; (for this reason, that) as I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you."
+But in the second place, I want to deal more fully with the chief point of the text. THERE IS a MAIN SYMBOL HERE--"This is as the waters of Noah unto Me; (for this reason, that) as I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be angry with you, nor rebuke you."
 
 The text turns on the two hinges of, "as," and, "so"--two precious diamond hinges upon which it hangs! And these mean, I think, first, "as surely as," and then, "in the same manner as."
 
@@ -92,7 +92,7 @@ in your lot with Christ and with His people, too! I can assure you that if you d
 
 EXPOSITION BY C. H. SPURGEON: GENESIS8:20-22; 9:8-17; ISAIAH 54:1-10.
 
-Genesis 8:20, 21. And Noah built an altar unto the LORD and took of every clean beast, and of every clean fowl, and offered burnt offering on the altar And the LORD smelleda sweet savor--A savor of rest.
+Genesis 8:20, 21. And Noah built an altar unto the LORD and took of every clean beast, and of every clean fowl, and offered burnt offering on the altar And the LORD smelleda sweet savor--a savor of rest.
 
 21, 22. And the LORD said in His heart, I will not again curse the ground anymore for man's sake; for the imagination of man's heart is evil from his youth; neither will I again smite anymore everything living, as I have done. While the earth remains, seedtime and harvest, and cold and heat, and summer and winter, and day and night shall not cease. So that you all live under a Covenant--a gracious Covenant and, by virtue of it, the day succeeds the night, the summer follows the winter and the harvest in due course rewards the labor of the seedtime. All this ought to make us long to be under the yet fuller and higher Covenant of Grace, by which spiritual blessings would be secured to us--an eternal day to follow this earthly night and a glorious harvest to follow this time of seed sowing!
 

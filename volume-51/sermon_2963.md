@@ -14,7 +14,7 @@ This evening I propose to speak of our Savior's great work and of the way in whi
 
 From our text it is very clear that THE WORK WHICH JESUS CHRIST HAS UNDERTAKEN IS THE
 
-FATHER'S GOOD PLEASURE. It is the work of bringing His elect out of darkness into light, from nature to Grace and from Grace to Glory. Why is this called "the Father's good pleasure"?
+FATHER's GOOD PLEASURE. It is the work of bringing His elect out of darkness into light, from nature to Grace and from Grace to Glory. Why is this called "the Father's good pleasure"?
 
 We answer, for many reasons. First of all, because God's good pleasure is the source of all saving work For many centuries and ages, the source of the Nile has been a theme of wonder. Many travelers have spent their lives and lost them in endeavoring to track that mysterious stream to its first fount--at last the deed has been accomplished to the honor of our country. But the stream of Divine Grace, from where does it spring? In what mountain does it take its rise? Arminian theology, like all the ancient travelers, has failed to make the discovery. But the Gospel, as it is revealed in Scripture, plainly tells us that everything in salvation is according to the good pleasure of the Divine will. If you ask some good Brother who is rather muddled in his theology, "What is the cause why a man is saved?" He will say, perhaps, "Well, he
 

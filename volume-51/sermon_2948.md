@@ -8,7 +8,7 @@ And it is noteworthy that in this one, which is the fullest we have, there is no
 
 However, in this instance, the Holy Spirit was pleased to direct the pen of Luke to record that the witnesses laid down their clothes at the feet of a young man named Saul. According to the Jewish Law, the witnesses were bound to be the first throwers of the stones. They were, in fact, the leading executioners, for they gave evidence against the accused and on their witness, he was condemned to death. They had to take the responsibility of his death and to throw the first stones. In order to do this, they took off their long flowing robes and, casting them down, they left them in the charge of one who would appear to have been much delighted with the death of Stephen, as he had probably given his vote against him in the Sanhedrin and was looking on to see that the dreadful murder was fully accomplished. Now, why is it recorded that these witnesses laid down their clothes at the feet of the young man whose name was Saul? It was not to gratify our curiosity, but it was doubtless for some good reason--so let us try to find out why it is recorded and learn some lessons from it--God helping us.
 
-And, first, does not the Holy Spirit here suggest to us A VERY NOTEWORTHY CONTRAST?
+And, first, does not the Holy Spirit here suggest to us a VERY NOTEWORTHY CONTRAST?
 
 Here are two men--Stephen and Saul--both in Heaven now. I wonder how they felt when they first met there? What joy they must both have had--Stephen to see Saul and Saul to see Stephen! I suppose it is incompatible with the
 
@@ -34,7 +34,7 @@ The contrast mentioned in our text is a very painful one and though we see it il
 
 There are many persons who are keepers of the clothes of open sinners. For instance, I believe that very often a merely moral man may exert a very detrimental influence upon sinners because they will say, "Look at So-and-So! He is not a Christian, yet he is a man of good repute," and so they are led to believe that they may stay where he stays--out of Christ! O dear Friends, may there be nothing about your walk and conversation which can be used to oppose the Gospel of Jesus Christ! But there will be unless you are wholly on His side, for He, Himself, said, "He that is not with Me is against Me; and he that gathers not with Me scatters abroad." If you are not on the side of Christ you are on the side of His enemies, for this is a fight which admits of no neutrality. And if you cannot feel that you would, like Stephen, defend the cause of Christ, then I fear you only lack the opportunity and the circumstances, if not to stone Stephen, yet, at least, to let those who do the dreadful deed lay their clothes at your feet! The contrast recorded in our text is a very vivid one. I wish I could depict the equally vivid one between unconverted persons and Christians, for there is a contrast between them, a contrast which will come to this one day--there will be a great gulf fixed between them, across which there will be no passage. At the Last Great Day, the righteous shall be upon the right hand of the Judge and the wicked on His left hand and Christ, Himself, shall stand between them, so that the division shall last as long as Christ Himself shall live!
 
-Now, secondly, our text affords us A REMARKABLE INTRODUCTION OF A PERSON TO TRUE
+Now, secondly, our text affords us a REMARKABLE INTRODUCTION OF a PERSON TO TRUE
 
 RELIGION.
 
@@ -66,7 +66,7 @@ And, my dear Friends, at this very time, we need not be asking, "What shall we d
 
 So you see, in the case of Stephen and Saul, we have a clear instance of the certainty of true Apostolic succession.
 
-Now, next, and briefly, our text seems to me to be A GRACIOUS MEMORIAL OF REPENTED SIN.
+Now, next, and briefly, our text seems to me to be a GRACIOUS MEMORIAL OF REPENTED SIN.
 
 Saul became Paul and there is a great deal of good recorded of him under the name of Paul. But the Holy Spirit has caused this fact to be remembered, "The witnesses laid down their clothes at a young man's feet, whose name was Saul." Then does God write down the sins of His people before they are converted? Yes, He does, and in this case He writes it down in the Book of books, so that, wherever the Bible goes, there goes the information that Saul of Tarsus was once a persecutor! When we read of Rahab, we are told that she was "the harlot." Why is this memorial kept of Saul's sins before conversion? It was meant to keep Paul humble--and it always did that. You notice how very sorrowfully he always speaks about this matter. He say that he was not meet to be called an Apostle because he persecuted the Church of God. Once, in speaking to the Lord, he said, "And when the blood of Your martyr Stephen was shed, I, also, was standing by and consenting unto his death, and kept the raiment of them that slew him." He never forgot that and it always made him walk humbly before God. He wrote to Timothy, "I was a blasphemer and a persecutor, and injurious; but I obtained mercy."
 

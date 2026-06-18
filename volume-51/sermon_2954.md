@@ -12,7 +12,7 @@ My text, however, cuts the ground from under your feet, if you seek to act thus,
 
 done. But God does, in process of time, mark them all--not on the back, but on the heart! He that believes on the Son has everlasting life and his faith proves that he was chosen of God to that life! But he that believes not on the Son, if he persists in that unbelief, will assuredly perish, for there shall be no deviation from this Divine declaration, "He that believes and is baptized shall be saved; but he that believes not shall be damned." That is the matter with which we have to deal. May God help us, like prudent men, to deal with it earnestly!
 
-Leaving that knotty point altogether, I notice in our gloriously free and open text, "Him that comes to Me I will in no wise cast out," that there is A NECESSARY ACT and that is, that we come to Christ.
+Leaving that knotty point altogether, I notice in our gloriously free and open text, "Him that comes to Me I will in no wise cast out," that there is a NECESSARY ACT and that is, that we come to Christ.
 
 Before we go any further, let me ask, "How many of us have come to Christ?" I believe that by far the larger proportion of those now present have done so and I am grateful that I am able to believe that. If any of you who have thought of coming to the Lord's Table have never come to Christ, I implore you not to come to the Communion until you are truly converted. None have any right to the sacred emblems but those who have already enjoyed true communion with Christ by believing in Him! If you have not come to Christ, you must not act as if you had done so, for that would not benefit you and it would insult the Lord and bring great guilt upon your own conscience. No, Brothers and Sisters, we must came to Jesus Christ--that is our one business if we would be saved--to come to Christ is not only the main point in it, but it is the top, bottom, middle and whole of it!
 
@@ -28,7 +28,7 @@ When we come to a person in the full sense of the word, come, we also stay with 
 
 Now, dear Friends, I cannot put this question personally to everyone of you, but you can, each one, put it to yourselves, "Have you come to Jesus Christ?" That is to say, is He your only confidence, or have you any other hope? Are you trusting in Jesus Christ alone? If so, you have come to Him and the promise in the text is yours--"Him that comes to Me I will in no wise cast out."
 
-This brings us to the next point which is A NEEDLESS FEAR BANISHED.
+This brings us to the next point which is a NEEDLESS FEAR BANISHED.
 
 There are some persons who say that they would gladly come to Christ but they fear that if they did come to Him, He would reject them. Ask them why and one of them says, "Iam too old to come to Christ." Will you kindly read the text, my venerable Friend? "Him that comes to Me I will in no wise cast out." Now, if Christ cast out anyone who came to Him because he was too old, the text would not be true! There is nothing written between the lines--you may look as long as you like, but you will not find there anything like this, "Him that comes to Me up to 75 years of age, I will in no wise cast out." Christ says nothing of the kind! If you were a 100 years old--if you were two hundred--it would make no difference to Him! He would still say, "Him that comes to Me I will in no wise cast out."
 
@@ -78,7 +78,7 @@ You are to trust Jesus for a new heart, for repentance, for a tender conscience-
 
 So, any "him" in all the world and any "her," also, if they do but come to Christ shall not be cast out!
 
-We have seen, in the text, first, a necessary act. And next, a needless fear banished. Now we are to see A MOST REASONABLE CONFIDENCE SUGGESTED.
+We have seen, in the text, first, a necessary act. And next, a needless fear banished. Now we are to see a MOST REASONABLE CONFIDENCE SUGGESTED.
 
 I hope that there are many here who desire to be saved. If so, let them remember what the Apostle Paul wrote to the Corinthians, "Behold, now is the accepted time; behold, now is the day of salvation." I trust that you all understand that the whole process of salvation, so far as you are concerned, is for you to give up every reliance except reliance upon the Lord Jesus Christ and His finished work. It has often been said that there are but two steps to Heaven--and that those two are but one--out of self and into Christ. If you are, at this moment, holding on to any other confidence, I pray you to let go of it and drop into the arms of Jesus! And know--for God has said it--that the instant you believe in Jesus, you are saved! At that instant there is conferred upon you a share in the Divine Life which will never die out. At the same moment there is taken from you the whole mass of your sin so that it cannot condemn you and will never return upon you. There is also imputed to you a perfect righteousness which shall never be taken from you--and in this spotless robe you may boldly stand even at the last Great Judgment Day!
 

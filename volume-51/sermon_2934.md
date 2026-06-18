@@ -22,7 +22,7 @@ I may be addressing some Christians, especially some young converts who feel it 
 
 But I choose to dwell rather upon two other thoughts. The first part of my text seems to me to teach wonders of Grace. And the next part of it seems to me to teach wonders of sin.
 
-Here, surely, is A WONDER OF GRACE--"There are last that shall be first."
+Here, surely, is a WONDER OF GRACE--"There are last that shall be first."
 
 Here is Divine Sovereignty--choosing the last to make them first. Here is Sovereign Grace--forgiving the greatest sin to make the brightest saint. Here is Almighty Power changing the most degraded, turning the current of the most strong-minded sinner and making his soul "willing in the day of God's power."
 
@@ -132,4 +132,4 @@ I cried unto You, O LORD: I said, You are my refuge and my portion in the land o
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
