@@ -103,7 +103,7 @@ It is glory to us to make Him glorious among the sons of men. For us to live is 
 
 God is not displeased with those who, by faith, live to please Him and are content to take their reward from His hand. He must be pleased with the work of His own Grace. The desire to come to God, the way to come to God, the power to come to God, the actual coming to God--these are all gifts of Sovereign Grace. Coming to God, however feebly we come--and seeking Him, however much else we miss, must be well-pleasing in His sight. For it is the result of His own purpose and Grace which He gave us in Christ Jesus before the world began. But all this hangs upon faith. Without faith there is no coming to God who is and no seeking of God who is a Rewarder. And therefore without faith it is impossible to please God.
 
-WE WILL NOW GATHER A FEW LESSONS FROM WHAT THE APOSTLE HAS TAUGHT US. Help us, O
+WE WILL NOW GATHER a FEW LESSONS FROM WHAT THE APOSTLE HAS TAUGHT US. Help us, O
 
 gracious Spirit!
 

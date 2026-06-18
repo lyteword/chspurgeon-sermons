@@ -32,7 +32,7 @@ It is good for a man that he should bear the yoke of labor, trial and difficulty
 
 It is not, however, my business to preach about these matters at any length. I am not a moral lecturer, but a minister of the Gospel. I have fulfilled a duty when I have given the first meaning to the text and now I shall use it for nobler ends.
 
-First of all, IT IS GOOD TO BE A CHRISTIAN WHILE YOU ARE YOUNG. It is good for a man to bear Christ's yoke in his youth. I shall not ask you to pardon me if I speak here as one who has tried and proved it. Surely I may do so without egotism, for it is not my own honor, but God's, that I shall speak of! What the Lord has worked in me--of that I will speak.
+First of all, IT IS GOOD TO BE a CHRISTIAN WHILE YOU ARE YOUNG. It is good for a man to bear Christ's yoke in his youth. I shall not ask you to pardon me if I speak here as one who has tried and proved it. Surely I may do so without egotism, for it is not my own honor, but God's, that I shall speak of! What the Lord has worked in me--of that I will speak.
 
 At 15 years of age I was brought to know the Lord and to confess Him and I can, therefore, speak as one who bore the yoke in his youth. And, young people, if I have never to address you again, I should like to say to you it has been good for me. Ah, how good, I cannot tell you, but so good that I earnestly wish that every one of you would bear my Master's yoke in his youth! I could not wish you a greater blessing! For, see, first, the man whose heart is conquered by Divine Grace early is made happy soon. That is a blessed prayer in the Psalm, "O satisfy us early with Your mercy, that we may rejoice and be glad all our days."
 

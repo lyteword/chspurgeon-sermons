@@ -38,7 +38,7 @@ Some of you here, tonight, are in this, exceedingly sinful. Oh, How I have plead
 
 But why must it come? Why will you die? Why are you set on sin? Why do you love mischief? I see often in the gaslight of my study poor gnats come flying in if the window is but ajar--and how they dash against the flame--and down they fall, but have scarcely recovered strength before up they fly again unto their destruction! Are you such? Are you mere insects, without wit, without knowledge? Oh, you are not, or else were you excusable! Come to my Savior, poor Souls! He is still willing to receive you! A prayer will do it. Breathe the prayer! A broken heart He will not despise. A look at Him will do it. A faint glance at Jesus pleading for you will do it! Holy Spirit, make them give that glance! Oh, by Your Irresistible Power, compel them to look and live! Oh, it shall be! God be thanked, it shall be! You shall look tonight and God shall have the Glory! And though you are "exceedingly sinful," yet shall you, through the precious blood, be fully forgiven--and I hope exceedingly grateful for the great forgiveness which Jesus brings! The Lord bless you, for His name's sake. Amen.
 
-[The original title of this sermon is "SIN'S TRUE QUALITY."]
+[The original title of this sermon is "SIN's TRUE QUALITY."]
 
 EXPOSITION BY C. H. SPURGEON: PSALM 51; ROMANS 7:7-25.
 
@@ -51,7 +51,7 @@ the harp strings of penitence! We ought always to be able to play on those strin
 > Lord, let me weep for nothing but sin,   
 > And after none but Thee--   
 > And then I would--oh that I might!)--   
-> A constant weeper be,   
+> a constant weeper be,   
 
 for these bitter sweets--these sweet bitters--are almost the choicest of our sorrow joys or joyful sorrows that we have this side of Heaven! Thus David sings.
 

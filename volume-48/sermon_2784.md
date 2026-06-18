@@ -8,7 +8,7 @@ Remember that when the Israelites came up out of Egypt and were marching through
 
 Now let us take the words of our text by themselves and examine them under the gracious guidance of the Holy Spirit. They are, I think, instructive to us in five ways."
 
-First, they furnish us with A POWERFUL PLEA IN PRAYER--"Not unto us, O Jehovah, not unto us, but unto
+First, they furnish us with a POWERFUL PLEA IN PRAYER--"Not unto us, O Jehovah, not unto us, but unto
 
 Your name give glory, for Your mercy, and for Your truth's sake."
 
@@ -46,7 +46,7 @@ But oftentimes we cherish another kind of spirit. Even the sweet singer among yo
 
 the Gibeonites of old--and if He accepts what we do, it will be all of His Grace. But for us to set up on our own account, to live to ourselves and to want honor and glory for ourselves--this will never do! We say, of some people, that they are "poor and proud" and, truly, that is what we are when we begin to boast! Lord, take away our pride--our poverty will not so much matter then!
 
-I leave that point and come, thirdly, to use the Psalmist's words in yet another sense. I think that the spirit of my text is A SAFE GUIDE IN THEOLOGY.
+I leave that point and come, thirdly, to use the Psalmist's words in yet another sense. I think that the spirit of my text is a SAFE GUIDE IN THEOLOGY.
 
 When I am going to read the Scriptures, to know what I am to believe, to learn what is to be my creed--even before I open my Bible, it is a good thing to say--"Not unto us, O Lord, not unto us, but unto Your name give glory, for Your mercy, and for Your truth's sake." This is, to my mind, a test of what is true and what is false. If you meet with a system of theology which magnifies man, flee from it as far as you can! If the minister, whom you usually hear, tries to make man out to be a very fine fellow and says a great many things in his praise, you should let him have an empty place where you have been accustomed to sit. This shall be an infallible test to you concerning anyone's ministry. If it is man-praising and honors man, it is not of God! The Negro said of a certain preacher in America, "He do make God so great." I would that it might be said of all of us that our preaching made God great. That plan of salvation that makes man to be somebody, is a wrong one, depend upon it, for he is a nobody and nothing. That kind of preaching which leaves a great deal for man to do and tells him he can do it--well, Brothers and Sisters--let those people who are so very good, strong and great, go and listen to it! But as for you and me--at any rate, for the most of us--we know that, by nature, we are dead in trespasses and sins, that our strength is perfect weakness and, therefore, the kind of preaching that exalts man does not suit our experience. We do not ask for it, nor do we want it. It will poison those who receive it, for it comes not from
 
@@ -56,7 +56,7 @@ This is why I believe in the Doctrines of Grace. I believe in Divine Election be
 
 There are some who seem to think that the sinner takes certain steps towards God before God comes to him, but it is not so. The sinner is dead and life must come to him from God before he can stir from the grave, or even have a wishto stir from it. And there are some who teach that after man is saved, he still needs to keep himself and confirm himself in Grace--in fact that his salvation depends upon himself. But it is not so, for He who has called us and saved us, has given us gifts which He will never take back and, having once loved us, He will love us to the end. We are firmly persuaded that He who has begun a good work in us will perform it until the day of Jesus Christ. From top to bottom, salvation is all of the Grace of God! From its first letter, Alpha, to its last letter, Omega, it is all Grace, Grace, Grace! There is no room for human merit and no room for confidence in self whatever! There is room for good works, yet no room for glorifying in them, "for we are His workmanship, created in Christ Jesus unto good works, which God has before ordained that we should walk in them." You know that jewelers have certain tests by which, if you take them a ring or a coin, they can tell you at once whether it is gold or silver. Here is a test for you to apply and by it you may tell whether a thing is true or not. Does it glorify God? Then, accept it. If it does not, if it glorifies man--puts human will, human ability, human merit into the place of the mercy and the Grace of God--away with it, for it is not food fit for your souls to feed upon! I wish that all Christians were more concerned for the Glory of God than they are. Surely, then, they would become sounder in doctrine than many are nowadays.
 
-The fourth way of using our text is this. It seems to me to be A PRACTICAL DIRECTION IN LIFE.
+The fourth way of using our text is this. It seems to me to be a PRACTICAL DIRECTION IN LIFE.
 
 You want to know, young man, how to direct your steps aright, and how to cleanse your way. This text will help you, dear Brother, in the selection of your sphere of service. You will always be safe in doing that which is not for your
 
@@ -114,7 +114,7 @@ The LORD has been mindful of us: He will bless, He will bless the house of Israe
 
 He will bless them that fear the LORD, both small and great Now, little ones, look out for the blessing that is meant for you--"He will bless them that fear the Lord, both small and great." Those who have but little faith, little joy, little Divine Grace, little growth, He will still bless!
 
-14-16. The LORD shall increase you more and more, you and your children. You are blessed of the LORD which made Heaven and earth. The Heaven, even the heavens, are the LORD'S: but the earth has He given to the children of men. This may in part account for the fact that He is not known, and not honored among men. He is, Himself, in Heaven and, for a while, He has left men to follow their own devices. Hence it is that they have set up false gods. But, whatever others may do, or not do, let us praise the name of the Lord!
+14-16. The LORD shall increase you more and more, you and your children. You are blessed of the LORD which made Heaven and earth. The Heaven, even the heavens, are the LORD's: but the earth has He given to the children of men. This may in part account for the fact that He is not known, and not honored among men. He is, Himself, in Heaven and, for a while, He has left men to follow their own devices. Hence it is that they have set up false gods. But, whatever others may do, or not do, let us praise the name of the Lord!
 
 The dead praise not the LORD. No song comes up from that dark morgue, no praise ascends to God from those that are asleep in the grave. The living among them praise Him in Heaven, but "the dead praise not the Lord."
 

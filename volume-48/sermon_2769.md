@@ -10,7 +10,7 @@ That is the first lesson for us to learn from our Lord's experience in Gethseman
 
 In our text, there are two things to note. First, our Lord's weakness. And, secondly, our Lord's strengthening.
 
-First, then, let us meditate for a little while upon OUR LORD'S WEAKNESS.
+First, then, let us meditate for a little while upon OUR LORD's WEAKNESS.
 
 That He was exceedingly weak is clear from the fact that an angel came from Heaven to strengthen Him, for the holy angels never do anything that is superfluous. They are the servants of an eminently practical God who never does that
 
@@ -34,7 +34,7 @@ Contact with sin and the bearing of sin's penalty were reason enough to produce 
 
 Probably, however, it was the sense of utter desertion that was preying upon His mind and so produced that extremity of weakness. All His disciples had failed Him and presently would forsake Him. Judas had lifted up his heel against Him and there was not one of all His professed followers who would faithfully cleave to Him. Kings, princes, scribes and rulers were all united against Him--and of the people, there were none with Him. Worst of all, by the necessity of His expiatory Sacrifice and His Substitution for His people, His Father, Himself, withdrew the Light of His Countenance from Him and, even in the garden, He was beginning to feel that agony of soul which, on the Cross, wrung from Him that doleful cry, "My God, My God, why have You forsaken Me?" And that sense of utter loneliness and desertion, added to all that He had endured, made Him so exceedingly weak that it was necessary that He should be specially strengthened for the ordeal through which He had still to pass.
 
-Now, in the second place, let us meditate for a little while upon OUR LORD'S STRENGTHENING. "There appeared an angel unto Him from Heaven, strengthening Him."
+Now, in the second place, let us meditate for a little while upon OUR LORD's STRENGTHENING. "There appeared an angel unto Him from Heaven, strengthening Him."
 
 It is night and there He kneels, under the olives, offering up, as Paul says, "prayers and supplications with strong crying and tears unto Him that was able to save Him from death." While wrestling there, He is brought into such a state of agony that He sweats great drops of blood and, suddenly, there flashes before Him, like a meteor from the midnight sky, a bright spirit that had come straight from the Throne of God to minister to Him in His hour of need.
 

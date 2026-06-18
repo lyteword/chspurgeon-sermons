@@ -12,7 +12,7 @@ I am always very anxious about those who have the beginnings of Grace in them. I
 
 In trying, therefore, to avoid two evils, I shall begin by speaking about a hope in God's mercy which is false--and then I shall say a little about a sound hope in God' s mercy. To begin, then, at the beginning--
 
-THERE IS A FALSE HOPE IN GOD'S MERCY AGAINST WHICH WE EARNESTLY WARN YOU.
+THERE IS a FALSE HOPE IN GOD's MERCY AGAINST WHICH WE EARNESTLY WARN YOU.
 
 "I do not believe," says a man, "that God will ever cast me into Hell, for God Almighty is very merciful." "What will become of you when you die?" said one man to another. "I do not know," was the answer, "and I do not think much about it because I know that God is a very good God--and I do not think that He will cast the souls of men into Hell, as bigots say, and cause them to be forever banished from His Presence." Now, Friend, if this is your hope, I beseech you to be rid of it, for it is a deadly viper and though you nurse and cherish it in your bosom, it will sting you to your destruction, for do you not know that the God of the Bible is a God of Justice, as well as a God of Mercy? Though He is infinitely good, yet He Himself has said, "I will by no means spare the guilty."
 
@@ -38,7 +38,7 @@ The mercy of God makes a man love Christ and makes him seek to be like Christ. Y
 
 I wish I might have torn away, from some now present, their false dependences, but I am afraid they are too dear to them for my hands to do it! May God's Holy Spirit deliver men from all false confidences in God's mercy! But now a much more pleasant part of my work comes before me, namely--
 
-TO DESCRIBE A SOUND HOPE IN THE MERCY OF GOD.
+TO DESCRIBE a SOUND HOPE IN THE MERCY OF GOD.
 
 I shall say of it, first, that a soundly hopeful soul feels its need of mercy. It does not talk about sin, but it feels it. It does not talk about mercy, but it groans after it. Beware of superficial religion! I think if I might only say two things before I die, one out of the two would be--beware of surface godliness. Take care of the paint, the tinsel, the varnish, the oil! There must be in us a hungering and a thirsting after righteousness! There must be in us the broken heart and the contrite spirit. I like revivals--far be it from me to ever say a word against them--but I have seen scores of men jump into religion just as men jump into a bath--and then jump out, again, just as quickly because they have not felt their deep need of Christ.
 
@@ -66,7 +66,7 @@ Have hope, I say, once more, because of what Christ endured upon the Cross. See 
 
 Yet must we still pass on and, only for a moment, linger upon--
 
-THE COMFORT WHICH THE TEXT AFFORDS TO THOSE WHO HAVE A HOPE IN GOD'S MERCY.
+THE COMFORT WHICH THE TEXT AFFORDS TO THOSE WHO HAVE a HOPE IN GOD's MERCY.
 
 It says that the eye of the Lord is upon them. There is a blessing for you. Nobody else's eye is upon you. You have got up to London, away from parents and friends, and nobody looks after you now. You have come into this big Tabernacle and I am sorry to find that there are still some of our members who do not look after strangers--do not look after souls as they ought to do--and you have been coming here and nobody has spoken to you. Now, let me read the text, and I need not say any more, " The eye of the Lord is upon those who fear Him, upon those who hope in His mercy." God sees you and you do not need anybody else! Be content that God knows all about it. You are up in the top gallery there, somewhere behind where my eye cannot reach you--and hardly my voice--but "the eye of the Lord is upon those who fear Him, upon those who hope in His mercy." And mark that eye, as well as being an eye of observation, is also an eye of pity! God has compassion on you! He stands side by side with you--that bleeding Son of God--and in your groans He groans, and in your griefs He takes a share. He has compassion on you--yes, and He will help you--and even now He loves you. The eye with which He looks upon you is a Father's eye and when a father sees his child broken-hearted, he says to himself, "I can stand anything but this. My child's tears overcome me, overmaster me. I cannot see him sick and sad and sobbing, without pitying him."
 

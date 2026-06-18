@@ -6,7 +6,7 @@ THIS is a marvelously vivid Gospel incident. Every detail is plainly and forcefu
 
 We will consider the life of this famous penitent, as the Holy Spirit shall help us, under three heads, and notice, first, her former character Then, her deed of love which showed her new character And, thirdly, our Lord's treatment ofher. Let us very briefly look at--
 
-THE WOMAN'S CHARACTER, to begin with, in order that we may see the horrible pit out of which she was
+THE WOMAN's CHARACTER, to begin with, in order that we may see the horrible pit out of which she was
 
 taken.
 
@@ -94,7 +94,7 @@ And what she did was so real, so practical, s o free from the mere froth of prof
 
 See, dear Friends, what Divine Grace made of "the woman that was a sinner." Perhaps you thought her worse than yourselves in her carnal state--what do you think of her as a penitent? What do you think of yourselves if you stand side by side with her? Do you not blush for very shame and ask for forgiveness of your Lord for the slenderness of your affection? Lastly, let us see--
 
-THE SAVIOR'S BEHAVIOR TO HER.
+THE SAVIOR's BEHAVIOR TO HER.
 
 What did He do? First, He silently accepted her service. He did not move His feet away, did not rebuke her, or bid her to leave. He knew that reflections were being cast upon His Character by His allowing her to touch Him, yet He did
 

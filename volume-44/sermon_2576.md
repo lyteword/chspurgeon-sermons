@@ -38,7 +38,7 @@ But, most of all, we want to see the Church prosper for Christ's sake. He is eve
 
 For your Master's sake--for your Lord's sake--for His blood and agonies' sake, I beseech you, pray always for Zion, "pray for the peace of Jerusalem." "They shall prosper that love her."
 
-We notice, next, THE ONLY MEANS OF REVIVAL IN GOD'S CHURCH.
+We notice, next, THE ONLY MEANS OF REVIVAL IN GOD's CHURCH.
 
 What is it? We may hear of some great evangelist going through the land--surely he will revive the churches! We will hold a convocation of the clergy and theyshall devise means of reviving the churches! Not so, thinks the Psalmist-- he says, "You shall arise," as if God had nothing to do but to arise and then His Church would arise, too! For, when God arises, Zion begins to prosper! How easy are the methods by which God accomplishes His great works! No doubt, if we had had to devise means for lighting up this earth, when the darkness of the evening first came upon it, we would have recommended some fifty thousand great lights hung about in various parts of the world. But look at God's wondrous means of lighting the globe--the sun rises, the light shines and all is done! So is it with God's plan of reviving His Church. We devise this plan and the other, but God only arises and has mercy upon Zion--and "the time to favor her, yes, the set time is come."
 
@@ -48,7 +48,7 @@ We think we have our God among us, but I fear we have not so much of His Presenc
 
 Go into many Prayer Meetings in London--I hope it is not so generally throughout the country--the minister is obliged to say that he has not enough people present to ring the changes and he, himself, has to pray twice to fill up the time. By all his preaching he cannot get the people to pray! Shame upon such a church! This state of things proves that God is not in our midst as He was formerly. When God shall arise, His Church shall arise in earnest, fervent prayer, for the time to favor Zion, yes, the set time will then have come!
 
-Now, Beloved, let us consider the fourth point--THE SIGNS THAT GOD'S CHURCH IS BEING BLESSED. "For Your servants take pleasure in her stones, and favor the dust thereof."
+Now, Beloved, let us consider the fourth point--THE SIGNS THAT GOD's CHURCH IS BEING BLESSED. "For Your servants take pleasure in her stones, and favor the dust thereof."
 
 What are the "stones" of Zion? The Church of God is built of living stones--that is, the children of God. And it is a good sign when God's servants take pleasure in one another and "favor the dust"--that is, not the ministers, nor the deacons, but the poor members. In these degenerate times, we do not take so much pleasure in each other as we ought. There is little Christian sociability, but it is a happy sign when the members meet in a cordial spirit and begin to talk of what the Savior did and suffered here below, and of Jesus' charming name which has a sweeter sound than the most melodious music! It is profitable, indeed, when Christians begin to speak often, one to another, and God Himself turns eavesdropper to His children. He listens and hears, and a Book of Remembrance is written--the Lord, Himself, becomes a reporter and records the conversation of them that fear Him and that think upon His name! We shall be sure the church is prospering when all the members love each other and the poorer ones are not overlooked!
 

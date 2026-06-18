@@ -21,7 +21,7 @@ We cannot form an idea of what God is but we should be very careful that we do n
 
 But now, to the text at once and we will handle it, as God shall help us, in three ways. First, we shall say a little as to the general principle of the text. Secondly, taking the words of the passage, we shall dwell upon God's estimate of a day. And then, in the third place, still keeping to the words of the sentence, we shall enlarge upon God's estimate of a thousand years.
 
-First of all, then, we shall take the statement before us AS A GENERAL PRINCIPLE, "that one day is with the Lord as a thousand years and a thousand years as one day."
+First of all, then, we shall take the statement before us AS a GENERAL PRINCIPLE, "that one day is with the Lord as a thousand years and a thousand years as one day."
 
 In opening up this general principle, we remark that all time is equally present with God. When we know that an event is to transpire today, it appears very near to us. But when we know that it will not occur until a thousand years have elapsed, we think nothing of it. We feel that we shall have gone to our graves long before that era, and therefore the event does not strike us as having any connection with ourselves. Now, it is not so with God. All things are equally near and present to His view. The distance of a thousand years, before the occurrence of an event, is no more to Him than would be the interval of a day.
 
@@ -77,7 +77,7 @@ Not so, however, with God. Time is not His master. If He shall say to the sun, "
 
 Oh, Brethren, we understand Him not. But let us adore Him. We cannot comprehend Him, but let us admire Him. I say again, this is wonderful that He is Time's Master and bids him move slowly or rapidly and Time is obedient to the behests of the Eternal God. One day is with the Lord as a thousand years and a thousand years as one day.
 
-Only a few words upon the second head--GOD'S ESTIMATE OF A DAY. He can make a day as useful, and to Him it shall be as long as a thousand years.
+Only a few words upon the second head--GOD's ESTIMATE OF a DAY. He can make a day as useful, and to Him it shall be as long as a thousand years.
 
 Brethren, I think this is one of the most brilliant of the Church's hopes. We have been saying, "How many converts have been made by the Missionary Society during fifty or sixty years?" And we have said, "Well, at this rate, how long will it be before the world is converted?" Ah, "At this rate." But how do you know God's rate? God can do as much in a day as has been done in a thousand years that are past, if so He wills it. To the snail a furlong is a very long distance, but to a stag or a hound, how little it is. And then to a steam engine it is nothing. And then to a ray of light it becomes nothing at all. And then there may be something that travels as much more swiftly than light as light does more swiftly than the snail and then where would distance be? It is annihilated. It is gone.
 
@@ -97,7 +97,7 @@ You needed not a thousand years to break the power of Jabin, king of Hazor--You 
 
 Glory be unto You, Jehovah! When You rise up in the greatness of Your might You shall slay kings and overthrow mighty kings. The two-leaved gates of brass shall open and the bars of iron shall be cut in pieces. You shall in one day cause the nations of the earth to say, "The Lord, He is God, the Lord, He is God, the Lord, He is God alone."
 
-But we now turn to notice GOD'S ESTIMATE OF A THOUSAND YEARS. A day is to Him as a thousand years and a thousand years as one day. The complaint which is brought by mournful unbelieving Zion is, "He is long in coming! His widowed spouse waits for Him but the Bridegroom tarries." Oh, the long and dreary winter, oh, the dark and dreary winter, when will summer come? When shall the rain be over and passed and the voice of the turtle be heard in our land? We have tarried 1860 years and more and yet no coming of the Son of Man. The dweller in the isle brings no tribute, the inhabitant of the wilderness bows not to lick the dust.
+But we now turn to notice GOD's ESTIMATE OF a THOUSAND YEARS. A day is to Him as a thousand years and a thousand years as one day. The complaint which is brought by mournful unbelieving Zion is, "He is long in coming! His widowed spouse waits for Him but the Bridegroom tarries." Oh, the long and dreary winter, oh, the dark and dreary winter, when will summer come? When shall the rain be over and passed and the voice of the turtle be heard in our land? We have tarried 1860 years and more and yet no coming of the Son of Man. The dweller in the isle brings no tribute, the inhabitant of the wilderness bows not to lick the dust.
 
 Christ reigns not yet in Jerusalem, nor do His ancients behold His face wearing the crown of His Father David. "How long, how long?" the saints under the altar cry, "How long?" And the saints at the altar here today take up the same wailing notes, "How long? How long? How long?" But He answers, "I am not long. What if I have waited and the time is long to you? Yet it is not long to Me." God bids you think for a moment, that if you really measure aright, it is no lengthened period of time that He has made the vision to tarry. For see you first, my Brethren, the time that has elapsed since Christ's crucifixion is not long compared with eternity.
 

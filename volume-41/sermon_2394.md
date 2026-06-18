@@ -48,7 +48,7 @@ I do not see how God ever could have shown His love to the same extent as it is 
 
 I have spoken to you, therefore, of two things that enhance God's love--love to the loveless, and love to the sinful. I wish that some poor soul could creep in through the door of God's Mercy to which I have pointed and get a part and lot in these precious matters!
 
-But now, thirdly, one of the things that make God's love seem very wonderful is that it is LOVE PROVIDING A
+But now, thirdly, one of the things that make God's love seem very wonderful is that it is LOVE PROVIDING a
 
 PROPITIATION.
 

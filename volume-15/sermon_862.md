@@ -80,7 +80,7 @@ Depend upon it, that is a great prayer to offer, "Lead us not into temptation." 
 
 Perhaps, Brethren, some of you are passing, just now, through a severe ordeal. You have been tried, exercised, tempted, and much tossed about, and you think you are losing a great deal. So you are, but what a blessed loss if you are only losing your chaff! When the goldsmith puts the lump of gold into the firing pot, he may perhaps think, "Now, the precious metal is dissolving and getting smaller and smaller in quantity." But, oh, what beautiful losing it is, when the loss is nothing but the withdrawal of the dross and the pure gold shines and sparkles with a yet brighter luster because of that loss which it has endured! May your loss and mine be only the loss of our chaff!
 
-And now, very briefly, THIS TEXT MAY HAVE A VERY STRONG BEARING UPON THE CHRISTIAN
+And now, very briefly, THIS TEXT MAY HAVE a VERY STRONG BEARING UPON THE CHRISTIAN
 
 CHURCH. "What is the chaff to the wheat? says the Lord." What a vision is that which salutes the eyes of the seer as he now looks upon the visible Church of God! It is a great threshing floor! Was there ever such a one before? On it are piled heaps and heaps upon heaps! Men rejoice and are glad and they say, "This is the threshing floor of Zion, and these are the sheaves from Israel's garners." Be it so.
 

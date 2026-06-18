@@ -83,5 +83,5 @@ But another minute; there is a lesson here to the sinner. Poor, trembling, guilt
 > Or wash away the stain.    
 > But Christ, the heavenly Lamb,    
 > Takes all our sins away;    
-> A sacrifice of nobler name    
+> a sacrifice of nobler name    
 > And richer blood than they.    

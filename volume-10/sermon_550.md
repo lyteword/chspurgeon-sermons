@@ -1,4 +1,4 @@
-# Sermon 550 | The Ship on Fire--A Voice of Warning
+# Sermon 550 | The Ship on Fire--a Voice of Warning
 
 "Escape for thy life."--Genesis 19:17.
 
@@ -76,7 +76,7 @@ Then how grateful ought you and I to be that the ship is come to the rescue. Jes
 
 Better still: how grateful we ought to be that we have got on board that ship. Oh! joy! joy! joy! that blessed step which set me upon Christ! that blessed act which made me one with him. My soul would repeat now that grace-wrought deed of faith.
 
-> A wounded, weak, and helpless worm,   
+> a wounded, weak, and helpless worm,   
 > On Christ's kind arms I fall;   
 > Be thou my strength and confidence,   
 > My Jesus and my all.   

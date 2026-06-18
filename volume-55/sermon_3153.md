@@ -6,7 +6,7 @@ FROM the midnight whisper of the Lord to Paul we may draw forth sweet encouragem
 
 Paul had been in a great tumult and had been roughly rescued from the wrath of the people by the chief captain who saw that otherwise he would be pulled in pieces. Paul was like the rest of us, made of flesh and blood and, therefore, liable to be cast down. He had kept himself calm at first, but still, the strong excitement of the day had no doubt operated upon his mind and when he was lying in prison all alone, thinking upon the perils that surrounded him, he needed good cheer--and he received it. The bravest man may find his spirit sinking after the battle and so perhaps it was with the Apostle.
 
-In this passage, we note the good cheer that came to Paul in the dungeon. This consisted, first, in HIS MASTER'S PRESENCE--"the Lord stood by him."
+In this passage, we note the good cheer that came to Paul in the dungeon. This consisted, first, in HIS MASTER's PRESENCE--"the Lord stood by him."
 
 If all else forsook him, Jesus was company enough! If all others despised him, the smile of Jesus was patronage enough! If the good cause seemed in danger--in the Presence of his Master victory was sure! The Lord, who had stood for him at the Cross, now stood by him in the prison. The Lord, who had called to him out of Heaven, who had washed him in His blood, who had commissioned him to be His servant, who had often sustained him in labors and trials, now visited him in his solitary cell! It was a dungeon, but the Lord was there! It was dark, but the Glory of the Lord lit it up with Heaven's own splendor! Better to be in a jail with the Lord than to be in Heaven without Him! The harps above could make no heavenly place without Jesus--and Jesus being there, the clanking fetters and the cold floor of the stony cell could not suggest a sorrow.
 
@@ -15,7 +15,7 @@ If all else forsook him, Jesus was company enough! If all others despised him, t
 > God is near you, therefore cheer up, Sad soul!   
 > He'll defend you when around you Billows roll.   
 
-The next comfort for Paul was the reflection that THE LORD'S STANDING BY HIM PROVED THAT HE KNEW WHERE HE WAS AND WAS AWARE OF HIS CONDITION.
+The next comfort for Paul was the reflection that THE LORD's STANDING BY HIM PROVED THAT HE KNEW WHERE HE WAS AND WAS AWARE OF HIS CONDITION.
 
 The Lord had not lost sight of Paul because he was shut up in the common jail. One is reminded of the Quaker who came to see John Bunyan in prison and said to him, "Friend, the Lord sent me to you and I have been seeking you in half the prisons in England." "No, verily," said John, "that cannot be! For if the Lord had sent you to me, you would have come here at once, for He knows I have been here for years!" God has not a single jewel laid by and forgotten. "You see Me" is a great consolation to one who delights himself in the Lord. Many and diverse are the prisons of affliction in which the Lord's servants are shut up. One may be lying in the prison of pain, chained by the leg or by the hand, through accident or disease. Or perhaps he is shut up in the narrow cell of poverty, or in the dark room of bereavement, or in the dungeon of mental depression--but the Lord knows in what ward His servant is shut up and He will not leave him to pine away forgotten, "as a dead man out of mind."
 
@@ -114,7 +114,7 @@ Saul, Saul, why do you persecute Me? [See Sermon #202, Volume 4--THE CONVERSION 
 
 15-18. And I said. Who are You, Lord? And He said, I am Jesus whom you persecute. But rise, and stand upon your feet: for I have appeared unto you for this purpose, to make you a minister and a witness both of these things which you have seen, and of the things which I will yet reveal to you. I will deliver you from the people, and from the Gentiles, unto whom now I send you, to open their eyes, and to turn them from darkness to light, and from the power of Satan unto God, that they may receive forgiveness ofsins, and inheritance among them which are sanctified by faith that is in Me. [See
 
-Sermon #1774, Volume 30--GOD'S WORK UPON MINISTER AND CONVERT.] Part
+Sermon #1774, Volume 30--GOD's WORK UPON MINISTER AND CONVERT.] Part
 
 of this address was spoken to Paul by Ananias when he came to open his eyes, hence some have thought that Paul here mixed up what was said to him by Christ and what was said by Ananias, yet all the while recognizing it as being virtually all one message from Christ--but I do not think so. I believe that Paul would have us understand that the Lord Jesus Christ actually said to him, on the road to Damascus, all that we have recorded here--and that when Ananias came to him, he, without having heard what the Lord had said to Paul, said the same thing to him--and this would be a kind of sign and token to the Apostle that what was said to him was really a message from God. How often this happens under every true Gospel ministry! The very thing that you were talking about while on your way to the service will be spoken to
 
@@ -128,7 +128,7 @@ you by God's servant in the House of Prayer. That which you were reading before 
 
 27, 28. Believe you the Prophet? I know that you believe. Then Agrippa said unto Paul, "You almost persuade me
 
-to become a Christian.''" [See Sermon #871, Volume 15--TO THOSE WHO ARE "ALMOST PERSUADED."] A great deal of effort has been put forth to prove that Agrippa did not say anything of the kind, but that he was only laughing at Paul when he ironically said, "Are you going to make me a Christian so easily as this?" If so, the reply of Paul was singularly inappropriate, but taking Agrippa's words to be as they appear here, "You almost persuade me to become a Christian," Paul's answer can be well understood.
+to become a Christian.''" [See Sermon #871, Volume 15--TO THOSE WHO ARE "ALMOST PERSUADED."] a great deal of effort has been put forth to prove that Agrippa did not say anything of the kind, but that he was only laughing at Paul when he ironically said, "Are you going to make me a Christian so easily as this?" If so, the reply of Paul was singularly inappropriate, but taking Agrippa's words to be as they appear here, "You almost persuade me to become a Christian," Paul's answer can be well understood.
 
 And Paul said, I would to God that not only you, but also all that hear me this day, were both almost, and altogether such as I am, except these bonds. And in so speaking he skillfully hinted how unfairly he was chained before his judges--and yet how he wished ill to none, but only wished good to all!
 
@@ -158,7 +158,7 @@ In this was manifested the love of God toward us, because that God sent His only
 
 11. Herein is love, not that we loved God, but that He loved us, and sent His Son to be the propitiation for our
 
-sins. Beloved, if God so loved us, we ought also to love one another. [See Sermons #1707, Volume 29--"HEREIN IS LOVE"; #2447, Volume 42--(same title) and #2394, Volume 41--LOVE'S CLIMAX.] As God "so loved
+sins. Beloved, if God so loved us, we ought also to love one another. [See Sermons #1707, Volume 29--"HEREIN IS LOVE"; #2447, Volume 42--(same title) and #2394, Volume 41--LOVE's CLIMAX.] As God "so loved
 
 us" when there was nothing lovable about us, and so loved us as to give His only-begotten Son to save us, "we ought also to love one another."
 
@@ -168,7 +168,7 @@ us" when there was nothing lovable about us, and so loved us as to give His only
 
 17, 18. Wherein is our love madeperfect, that we may have boldness in the Day of Judgment: because as He is, so are we in this world. There is no fear in love; but perfect love casts out fear: because fear has torment. He that fears is not made perfect in love. Questioning, mistrust, unbelief, doubt--all these die when we come truly and heartily to love our Lord! And in proportion as our love to Him burns like a flame of fire, it burns up all this wood, hay and stubble of trembling, slavish fear.
 
-We love Him because He first loved uS. [See Sermons #229, Volume 5--LOVE; #1008, Volume 17--LOVE'S LOGIC and #2730, Volume 47-- THE SECRET OF LOVE TO GOD.] We Would never have loved Him unless He had "first loved us." His love to us begat our love to Him!
+We love Him because He first loved uS. [See Sermons #229, Volume 5--LOVE; #1008, Volume 17--LOVE's LOGIC and #2730, Volume 47-- THE SECRET OF LOVE TO GOD.] We Would never have loved Him unless He had "first loved us." His love to us begat our love to Him!
 
 If man says, Ilove God, and hates his brother, he is a liar John is very emphatic in his condemnation of such a man as that! Some of the most tender-hearted men in the world are the most blunt in their mode of speaking. And some of the most fawning flatterers are the most cruel in their hearts. We love John all the better because he writes so plainly, "If a man says I love God, and hates his brother, he is a liar."
 

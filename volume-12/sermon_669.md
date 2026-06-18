@@ -41,7 +41,7 @@ Do you say now, as before the Searcher of all hearts--"I desire in everything to
 
 Take His easy yoke. Bow before His Throne of love. Touch the silver scepter of His Divine Grace. "He is your Lord, and worship Him." Crown Him in the palace of your soul and set Him on the throne of your affections, for He is the King of angels and should be the King of men--
 
-"My King supreme, to You I bow, A willing subject at Your feet. All other Lords I disavow, And to Your government submit. My Savior King this heart would love, And imitate the blest above."
+"My King supreme, to You I bow, a willing subject at Your feet. All other Lords I disavow, And to Your government submit. My Savior King this heart would love, And imitate the blest above."
 
 Can we, dear Friends, thus accept Christ tonight, as Prophet, Priest, and King? If not, it is idle to talk about receiving Jesus Christ--we do not know Him--and are not known of Him! Our Lord is not to be divided and parceled out. You must have Him altogether or not at all. You must admit Him in all His offices, or He will not come under your roof.
 

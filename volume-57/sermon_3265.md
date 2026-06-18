@@ -65,7 +65,7 @@ Moreover, dear Brothers and Sisters, the trial is greatly for our good and great
 
 Thus I have brought out two ideas of the text. The Christian lives by faith and he expects that faith to be tried.
 
-But now the next point is the main point of the text--that A TRUE FAITH, PUT ON TRIAL, WILL CERTAINLY BEAR IT. "Though He slays me." It is an extreme expression. "Though He does His worst. Though He gives the last and uttermost stroke that can be taken, yet will I believe Him. Though He slays me."
+But now the next point is the main point of the text--that a TRUE FAITH, PUT ON TRIAL, WILL CERTAINLY BEAR IT. "Though He slays me." It is an extreme expression. "Though He does His worst. Though He gives the last and uttermost stroke that can be taken, yet will I believe Him. Though He slays me."
 
 Faith will be justified to the uttermost. It is very easy to believe the creature too much. It is a common fault. It is impossible to trust the Creator too much! To trust Him too little is one of the most usual of sins. Faith in the creature is hardly ever warranted. Faith in the Creator can be warranted, push it as far as ever you like. You know that there is a point where faith in the creature must stop. Our dearest friends can go with us only to the Jordan's brink and then they can help us no longer. But though we go through the Valley of the Shadow of Death, God is with us and we need fear no evil. Though it actually comes to the slaying and to the death, still we may trust in Him--for He cannot--He will not fail us!
 

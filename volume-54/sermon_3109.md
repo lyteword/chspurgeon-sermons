@@ -20,7 +20,7 @@ Others imagine that God can be imposed upon by a formal compliment when they are
 
 for you! [See Sermon #1250, Volume 21--THE PRIEST DISPENSED WITH]
 
-Now, secondly, I want to remind you that GOD'S MORAL LAWS, AS WELL AS GOD, HIMSELF, ARE NOT TO BE TRIFLED WITH "Whatever a man sows, that shall he also reap."
+Now, secondly, I want to remind you that GOD's MORAL LAWS, AS WELL AS GOD, HIMSELF, ARE NOT TO BE TRIFLED WITH "Whatever a man sows, that shall he also reap."
 
 First, it is so in nature. If it were possible for God notto observe what man does, yet what man does is, of itself, full of a power which will be to him what the harvest is to the soil. And just what he sows, he will be sure to reap one of these days, or in eternity if not in time. If a man were to sow his field with garlic and expect to reap barley, he would be bitterly disappointed. If he were to sow tares, he might pray as long as he pleased for a crop of wheat, but he would not get it. God never so changes His Laws as to make tares come up wheat and He never will! The sowing always is, and always will be, the father of the reaping.
 
@@ -124,4 +124,4 @@ Think not that I am come to send peace on earth: I came not to send peace, but a
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

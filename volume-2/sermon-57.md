@@ -81,7 +81,7 @@ Sweet Lord Jesus! thou whose goings forth were of old, even from everlasting, th
 
 > Oh! let thy grace my heart subdue;    
 > I would be led in triumph too;    
-> A willing captive to my Lord,    
+> a willing captive to my Lord,    
 > To sing the honours of thy word.    
 
 Poor sinner! Christ has not left going forth yet. And when he goes forth, recollect, he goes to Bethlehem. Have you a Bethlehem in your heart? Are you little? will go forth to you yet. Go home and seek him by earnest prayer. If you have been made to weep on account of sin, and think yourself too little to be noticed, go home, little one! Jesus comes to little ones; his goings forth were of old, and he is going forth now. He will come to your poor old house; he will come to your poor wretched heart; he will come, though you are in poverty, and clothed in rags, though you are destitute, tormented, and afflicted; he will come, for his goings forth have been of old from everlasting. Trust him, trust him, trust him; and he will go forth to abide in your heart for ever.

@@ -13,7 +13,7 @@ You must have noticed how often accidents happen to people when they are engaged
 > Often the clouds of deepest woe   
 > So sweet a message bear.   
 > Dark though they seem, 'twere hard to find   
-> A frown of anger there.   
+> a frown of anger there.   
 > It needs our hearts be weaned from earth,   
 > It needs that we be driven,   
 > By loss of every earthly stay,   
@@ -113,7 +113,7 @@ And the LORD sent fiery serpents among the people, and they bit the people; and 
 
 8, 9. And the LORD said unto Moses, Make you a fiery serpent, and set it upon a pole: and it shall come to pass, that everyone that is bitten, when he looks upon it, shall live. And Moses made a serpent of brass and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived. [See Sermons #285, Volume 5--
 
-MAN'S RUIN AND GOD'S REMEDY and #1500, Volume 25--NUMBER 1500--OR, "LIFTING UP THE BRONZE SERPENT."]
+MAN's RUIN AND GOD's REMEDY and #1500, Volume 25--NUMBER 1500--OR, "LIFTING UP THE BRONZE SERPENT."]
 
 John 3:1-3. There was a man of the Pharisees named Nicodemus, a ruler of the Jews: the same came to Jesus by night, and said unto Him, Rabbi, we know that You are a teacher come from God: for no man can do these miracles that You do, except God is with him. Jesus answered and said unto him, Verily, verily I say unto you, Except a man is born-
 

@@ -38,7 +38,7 @@ Do you remember it, dear Brothers and Sisters? I want you to let your souls fly 
 
 They were even pressed to go away! O, do you remember how free you felt? You could sing with John Kent--
 
-"Now freed from sin, I walk at large, The Savior's blood's my full discharge, At His dear feet my soul I lay, A sinner saved, and homage pay." You remember how you rejoiced in the liberty in which Christ had made you free? You wanted to tell other people about it. You could not hold your tongue. You could have sung as we have been singing tonight--
+"Now freed from sin, I walk at large, The Savior's blood's my full discharge, At His dear feet my soul I lay, a sinner saved, and homage pay." You remember how you rejoiced in the liberty in which Christ had made you free? You wanted to tell other people about it. You could not hold your tongue. You could have sung as we have been singing tonight--
 
 "Now, oh joy, my sins are pardoned, Now I can, and do believe."
 
@@ -106,7 +106,7 @@ And let me just add, here, that it is a night to be much observed among saints i
 
 As Cowper sings--
 
-"Hearts may be found that harbor, at this hour, The love of Christ in all its quickening power And lips unstained by folly or by strife, Whose wisdom, drawn from the deep well of life Tastes of its healthful origin, and flows A Jordan for the ablution of our woes. O days of Heaven, and nights of equal praise, Serene and peaceful as those heavenly days When souls drawn upward in communion sweet, Enjoy the stillness of some close retreat; Discourse, as if released and safe at home, Of dangers past and wonders yet to come, And spread the sacred treasures of the breast Upon the lap of covenanted rest."
+"Hearts may be found that harbor, at this hour, The love of Christ in all its quickening power And lips unstained by folly or by strife, Whose wisdom, drawn from the deep well of life Tastes of its healthful origin, and flows a Jordan for the ablution of our woes. O days of Heaven, and nights of equal praise, Serene and peaceful as those heavenly days When souls drawn upward in communion sweet, Enjoy the stillness of some close retreat; Discourse, as if released and safe at home, Of dangers past and wonders yet to come, And spread the sacred treasures of the breast Upon the lap of covenanted rest."
 
 Amen.
 

@@ -11,7 +11,7 @@ Let there be no mistake about the objective and purpose of Christ's Sacrifice! J
 > 'Twaas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above,   
-> A suffering Man became.   
+> a suffering Man became.   
 > 'Twaas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
@@ -55,7 +55,7 @@ But what else? Well, our glorified Redeemer spends much of His time in intercess
 
 This, then, is just a brief summary of what the life of Christ has to do with us.
 
-Now, secondly, WHY DOES THE APOSTLE PUT A, "MUCH MORE," IN HERE? "Much more, being reconciled, we shall be saved by His life."
+Now, secondly, WHY DOES THE APOSTLE PUT a, "MUCH MORE," IN HERE? "Much more, being reconciled, we shall be saved by His life."
 
 I think it is because we are so apt to put a, "much less," to it It is not often that we preach and talk as we ought about this living Savior of ours. Brothers and Sisters, the great Testator is dead. That makes His last will and testament valid. Listen once more--He who made the will is alive, again, so He is His own Executor to carry out His own will! Is not that a blessing for you and for me? He made the will valid by His death, but, by rising again, He has come to see that every jot and tittle of it shall be carried out! We have not to depend upon somebody else executing our dying Savior's will. He has risen from the dead, clothed with all power and might, to accomplish that upon which He has set His heart!
 
@@ -65,7 +65,7 @@ Look at this expression again. When our Lord died, He was in the servant's place
 
 > The head that once was crowed with thorns,   
 > Is crowned with glory now!   
-> A royal diadem adorns   
+> a royal diadem adorns   
 > The mighty Victor's brow!   
 > The highest place that Heaven affords Is His, is His by right, The King of kings and Lord of lords, And Heaven's eternal light   
 

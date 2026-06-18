@@ -26,7 +26,7 @@ The guilt of our sin is taken away by the redemption of Christ. Whatever sin you
 > Now freed from sin I walk at large,   
 > My Saviour's blood's my full discharge;   
 > At his dear feet my soul I lay,   
-> A sinner saved, and homage pay.   
+> a sinner saved, and homage pay.   
 
 Every sin, every particle of guilt, every atom of transgression, is by the redemption of Christ, effectually taken away from all the Lord's believing family.
 

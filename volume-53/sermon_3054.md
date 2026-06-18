@@ -70,7 +70,7 @@ That is a nice little house of yours. Well, be thankful for it, but yet you can 
 
 Now let me ask, in conclusion, Howmany such blessed men and women are there here tonight?How long shall I give you to answer the question? I wish formal preaching were done away with and that we had a little more talking to one another. I wish to lay the formalities of the pulpit aside and talk to you as if you were in your own houses. That, I believe, is the true kind of preaching. Let me inquire, then, how many of you, my Friends, can claim the title of "blessed" because you are justified? Well, I think I can see one Brother who puts his hands together, and says--
 
-"'A debtor to mercy alone, Of covenant mercy I sing.'
+"'a debtor to mercy alone, Of covenant mercy I sing.'
 
 "I know I am forgiven." My Brother, I rejoice to hear you speak thus confidently. But I come to another and I ask-- What about you, my Friend? "Ah, Sir! I cannot say as much as that Brother did, but I hope I am justified." What ground have you for your hope? You know that we cannot properly hope unless we have some grounds for our hope--what are your grounds? Do you believe on the Lord Jesus Christ? "Yes," you say, "I do believe on Him." Why, then, do you say, "I hopeI am justified"? Dear Brother or Sister, you know, if you really believe on Christ! You have no need to talk about hope where you may be certain! And it is always better to use words of confidence when you can. Keep your head as high as you may, for you will find troubles enough to drag it down. The next one replies--
 

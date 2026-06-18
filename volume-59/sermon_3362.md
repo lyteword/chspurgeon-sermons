@@ -66,7 +66,7 @@ Beloved, whatever may be the doubt that comes to you tonight, I beseech you reme
 
 But we cannot tarry upon that. A fourth fear, which is frequent enough to cause Christians much distress, is--
 
-A FEAR THAT WE SHALL NOT HOLD ON AND HOLD OUT TO THE END.
+a FEAR THAT WE SHALL NOT HOLD ON AND HOLD OUT TO THE END.
 
 Many thousands of God's saints are quite unnecessarily troubled with this. Remember that where God begins to work, He does not ask usto finish. He always completes His own work. If you have begun the work of salvation, you will have to carry it on, but if God has begun the good work in you, He will carry it on and bring it to its perfection of completeness in "the day of Christ." Yet there are thousands who say, "Should I be tempted, I might fall! Working as I do with so many others, none of whom fear God, but who sneer and ridicule at Divine things, I might, perhaps, turn aside and prove like one of them." It is very proper that you should have that fear, very proper that you should be distressed at it--
 

@@ -2,13 +2,13 @@
 
 "And the LORRD said unto Noah, Come you and all your house into the ark, for you have I seen righteous before Me in this generation." Genesis 7:1.
 
-[Another Sermon by Mr. Spurgeon, upon verses 1 and 7, is #1336 in, Volume 23--A FAMILY SERMON.]
+[Another Sermon by Mr. Spurgeon, upon verses 1 and 7, is #1336 in, Volume 23--a FAMILY SERMON.]
 
 GOD keeps His eyes upon the sons of men and He searches among them for certain individuals upon whom He delights to fix His gaze. These are not the kings and princes. These are not the men of talent or of fashion. These are not the men who are regarded by their fellows as famous. When God speaks of having seen Noah, He speaks of having seen one of the kind of men for whom He was looking, namely, a righteous man. There is not a righteous man upon the earth whom God does not see. He may be in a very obscure position, his circumstances may be those of poverty, he may be anything but famous. But as long as he is righteous, God delights to look upon him. He looks upon him so as to take care of him so that if destruction is to come upon the face of the earth, an ark is to be prepared for the preservation of righteous Noah and his family. "The eyes of the Lord are upon the righteous, and His ears are open unto their cry." Whoever else He does notsee, He is sure to see the righteous! But "the face of the Lord is against them that do evil, to cut off the remembrance of them from the earth."
 
 Now, what God delights to look upon, we should delight to look upon, so we will fix our mind's eye upon the righteous man mentioned in our text and notice, first, the eminence of Noah's character. Secondly, try to find out wherein that eminence consisted. And, thirdly, consider the gracious reward given to him because of that eminence.
 
-So, first, we are to notice THE EMINENCE OF NOAH'S CHARACTER. He was a righteous man in the sight of the Lord. The Lord said unto Noah..."you have I seen righteous before Me in this generation."
+So, first, we are to notice THE EMINENCE OF NOAH's CHARACTER. He was a righteous man in the sight of the Lord. The Lord said unto Noah..."you have I seen righteous before Me in this generation."
 
 Noah was a gracious man, one to whom the Lord had shown great favor for He had put Divine Grace in his heart and had given him faith, for it was by faith that Noah "prepared an ark to the saving of his house, by which he condemned the world and became heir of the righteousness which is by faith." The Grace of God was within him and became the source and wellspring from which flowed the righteousness for which he was so remarkable. Divine Grace is the root of every righteous character, so let Grace have the honor and glory of it!
 
@@ -38,7 +38,7 @@ and #3152, Volume 55--THE LOWER COURTS.] Can we, all of us, pass this
 
 test? Happy and blessed are we if we can! But even then, we must remind ourselves and one another that there is a still sterner test which Noah was able to pass, for he was righteous before the Lord.
 
-This brings us to the second part of our subject, in which we are to try to find out WHEREIN THE EMINENCE OF NOAH'S CHARACTER CONSISTED. He was distinguished for his righteousness before God, for the Lord expressly said to him, "You have I seen righteous before Me in this generation."
+This brings us to the second part of our subject, in which we are to try to find out WHEREIN THE EMINENCE OF NOAH's CHARACTER CONSISTED. He was distinguished for his righteousness before God, for the Lord expressly said to him, "You have I seen righteous before Me in this generation."
 
 So the eminence of Noah's character consisted in this--his righteousness must have answered to the Divine standard. God would not have called Noah righteous if he had not been righteous--and we cannot suppose that God's standard is anything short of perfection. Then did Noah live a perfect life? No, speaking popularly, and as the Scripture often speaks, we may say that Noah's character was a righteous one. There must have been flaws in it and, certainly, after this time, there was one great sad flaw of which it is not now necessary to speak more particularly--still, God regarded him as righteous--and that must settle the question as far as we are concerned.
 

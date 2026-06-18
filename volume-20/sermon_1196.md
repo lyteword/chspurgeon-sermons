@@ -68,7 +68,7 @@ It is a grand thing when this schoolmaster makes a man stick to Divine Grace and
 
 Now, if a man has been once pummeled by the Law. If he has felt his sin and misery--and the impossibility of obtaining any relief by the way of human merit. When he comes to see that Christ has kept the Law for him. When he comes to know that he is saved, and saved perfectly by an act offaith in Jesus Christ--when he realizes all this--it is then that he lives under new conditions and is not under the Law but under Divine Grace! He is the man to know the sweets of liberty because before the iron had entered into his soul! He is the man to kiss the Emancipator's feet, for was he not heavily ironed in the days of his former estate? This, then, is the design of the Law--to make us sick of self and fond of Christ--to condemn us that we may accept Free Grace. To empty us that God may fill us, to strip us that God may clothe us--in a word--to kill us that Christ may make us alive!
 
-Now to our last point--TERMINATION OF THE LAW'S OFFICE. When does it terminate? The text says,
+Now to our last point--TERMINATION OF THE LAW's OFFICE. When does it terminate? The text says,
 
 "But after faith has come, we are no longer under a schoolmaster." We come to believe in Jesus and then the pedagogue troubles us no more. No, there is a great change in the pedagogue's behavior. When the young Roman, or we will say a young Hebrew, who had come under the Greek law, was under thirteen and a-half years old, this pedagogue was always beating, cuffing and buffeting him for his faults. But when he was a day over the time, then, according to the Law, he was free from the tutelage of the pedagogue.
 

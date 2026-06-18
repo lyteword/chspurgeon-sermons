@@ -69,7 +69,7 @@ I cannot enlarge further upon the promise and need not do so because it opens up
 
 Now the third thing to be noticed concerning this promise is--
 
-THE REMARKABLE EFFECTS THAT SUCH A PROMISE SHOULD PRODUCE.
+THE REMARKABLE EFFECTS THAT SUCH a PROMISE SHOULD PRODUCE.
 
 Surely the first blessed fruit of such a glorious promise should be perfect contentment. It is said to be hard to be content. I have the pleasure of knowing some Brothers and Sisters who I am sure are perfectly content. They even say so and I think without the slightest mental reservation that they have not an unfulfilled wish or desire so far as this world goes. They have all that heart could wish. And yet these are not the richest people in the world and they are not persons who are much to be envied for their mere external circumstances--yet they are perfectly content. The fact is that the Grace of God makes the people of God to sing sweetly where other people would murmur! They are satisfied where others would find easy ground for discontent. But how easy it is--how easy it must be for a man to be content when he knows that God has promised to be with him in all circumstances and at all times! Surely if anything could be a kind of conservatory--a hot-house in which to grow the delicate plant of contentment to perfection--it must be this full belief that high or low, rich or poor, well or sick, God has said, "I will never leave, nor forsake you." Surely it was this that made Bunyan's Pilgrim sing in the Valley of Humiliation--
 

@@ -108,7 +108,7 @@ And He said, Let Me go, for the day breaks. And he said, I will not let You go, 
 
 And He said unto him, What is your name? And he said, Jacob. That is, a Supplanter, as poor Esau well knew.
 
-And He said, Your name shall be called no more Jacob, but Israel That is, A Prince of God.
+And He said, Your name shall be called no more Jacob, but Israel That is, a Prince of God.
 
 For as a prince have you power with God and with men and have prevailed. Jacob was the prince with the disjointed limb--and that is exactly what a Christian is. He wins, he conquers when his weakness becomes supreme and he is conscious of it!
 
@@ -116,6 +116,6 @@ And Jacob askedHim, andsaid, Tellme, Ipray You, Your name. AndHe said, Why is it
 
 And Jacob called the name of the place Peniel: for I have seen God face to face, and my life is preserved. How he must have trembled to think that he had the daring--perhaps his fears made him call it presumption--to actually wrestle with God, Himself, for he was now conscious that it was no mere angel, but, "the Angel of the Covenant," the Lord, Himself, with whom he had wrestled!
 
-And as he passed over Peniel the sun rose upon him, and he limped upon his thigh. The memorial of his weakness was to be with him as long as he lived. People would ask, "How came the halting gait of that princely man?" And the answer would be, "It was by his weakness that he won his princedom--he became Israel, A Prince of God, when his thigh was put out ofjoint." How pleased would you and I be to go limping all our days with such weakness as Jacob had, if we might also have the blessing that he thus won!
+And as he passed over Peniel the sun rose upon him, and he limped upon his thigh. The memorial of his weakness was to be with him as long as he lived. People would ask, "How came the halting gait of that princely man?" And the answer would be, "It was by his weakness that he won his princedom--he became Israel, a Prince of God, when his thigh was put out ofjoint." How pleased would you and I be to go limping all our days with such weakness as Jacob had, if we might also have the blessing that he thus won!
 
 Therefore the children ofIsrael eat not ofthe sinew which shrank, which is upon the hollow ofthe thigh, unto this day: because He touched the hollo w of Jacob's thigh in the sinew that shrank.

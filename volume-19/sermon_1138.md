@@ -113,7 +113,7 @@ Illumination has been granted you. Comfort, also, in a season of depression, or 
 
 I believe there is nothing more stilted or untruthful, as a general rule, than a religious diary--it easily degenerates into self-deceit. Still, most days, it not all our days, reveal singular instances of Providence if we will but watch for them. Master Flavel used to say, "He that notices Providences shall never be without a Providence to notice." I believe we let our days glide by us unobservant of the wondrous things that are in them and so miss many enjoyments. As in Nature the uneducated person sees but little beauty in the wild flowers--
 
-"The primrose by the river's brim, A yellow primrose is to him, And it is nothing more,"
+"The primrose by the river's brim, a yellow primrose is to him, And it is nothing more,"
 
 so we, for lack of thought, let great mercies go by us. They are trivial to us, and nothing more. Oh, let us change our ways and think more of what God has done, and then we shall utter a song concerning His faithfulness every night!
 
@@ -129,7 +129,7 @@ If there is any one topic that you Christians ought to speak about thankfully, b
 
 therefore, to that you should bring the strength of your testimony, that tried saints may know that He does not forsake His people.
 
-And now, to close, I desire in the name of God's people here present, TO SHOW FORTH GOD'S FAITHFULNESS THIS VERY NIGHT. My Brothers and Sisters, as a Church, let us declare how faithful God has been to us! Our
+And now, to close, I desire in the name of God's people here present, TO SHOW FORTH GOD's FAITHFULNESS THIS VERY NIGHT. My Brothers and Sisters, as a Church, let us declare how faithful God has been to us! Our
 
 history as a Church has been very wonderful. When we were few and feeble, and brought low, God appeared for us. Then we began to prosper and we began, also, to pray. And what prayers they were! Surely the more we prayed the more God blessed us. We have now had almost 20 years of uninterrupted blessing. We have had no fits and starts. We have not sponsored revivals and retreats--but onward has been our course, in the name of God, a steady, continued progress-- like the growth of a cedar upon Lebanon.
 

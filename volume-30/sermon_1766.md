@@ -12,7 +12,7 @@ Here is the subject of this morning's discourse. Certain of God's people are in 
 
 If under reproach, their heart ferments towards revenge. They would sooner rush under the guidance of Satan into some questionable policy than, in childlike simplicity, trust in the Lord and do good. It must not be so with you, my Brothers and Sisters--you must learn a better way. I hope that the sermon of this morning may go some way, by God's Spirit, towards instructing you in the holy art of waiting for the Lord. "Those that wait upon the Lord, they shall inherit the earth." The text divides itself into two parts--first, it introduces us to a waiting God. And secondly, it speaks of a waiting people.
 
-First, we have here A WAITING GOD. I shall not confine our illustration of this waiting on the part of God to the case of the men of Judah described in the text, but I shall come home to your own experience and speak of how the
+First, we have here a WAITING GOD. I shall not confine our illustration of this waiting on the part of God to the case of the men of Judah described in the text, but I shall come home to your own experience and speak of how the
 
 Lord has waited that He might be gracious to you. Let us behold His long-suffering towards ourselves. In so doing we shall not be leaving the Scripture, for the text as truly describes our own experience as that of the men of Isaiah's day.
 
@@ -80,7 +80,7 @@ Him.
 
 Meanwhile, one of the chief and most evident tokens of their change is their casting away of the sin they formerly loved. "You shall defile, also, the covering of your graven images of silver and the ornament of your molten images of gold: you shall cast them away as a menstrual cloth. You shall say unto it, Get you hence." See what free Grace can do? It is no enemy of holiness, but the direct cause of it! The love of God reigning in the heart makes a man hate his sin! God never forgives sin without making us forsake sin. When He casts our sins into the depths of the sea, He causes us to do the same. When the Lord says to our sin, "Be gone from My memory," we say to it, "Be gone from my heart." Repentance, faith, holiness and zeal all follow upon the effectual working of Divine Grace. Oh, that all of you were under its power! Forever blessed be the Lord who waits to be gracious! And then, being gracious unto us, makes us gracious and causes us to bring forth the fruits of righteousness to His honor and praise.
 
-Now learn the lesson of the whole subject. Under our second head we have A WAITING PEOPLE--"Blessed are all they that wait for Him." God's waiting people wait only upon God. They are not trusting to the arm of flesh, nor looking to the changeable creature. They do not rely upon themselves, nor depend upon their own experiences, or their mental acquirements. Here is their song--
+Now learn the lesson of the whole subject. Under our second head we have a WAITING PEOPLE--"Blessed are all they that wait for Him." God's waiting people wait only upon God. They are not trusting to the arm of flesh, nor looking to the changeable creature. They do not rely upon themselves, nor depend upon their own experiences, or their mental acquirements. Here is their song--
 
 "My spirit looks to God alone My rock and refuge is His throne! In all my fears, in all my straits, My soul on His salvation waits."
 

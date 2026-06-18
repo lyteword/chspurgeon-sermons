@@ -64,7 +64,7 @@ Next, as we are in Glory by contrast, so we are in Glory by anticipation. What w
 > Celestial fruits on earthly ground   
 > From faith and hope may grow.   
 > The hill of Sion yields   
-> A thousand sacred sweets   
+> a thousand sacred sweets   
 > Before we reach the heavenly fields,   
 > Or walk the golden streets!   
 > Then let our songs abound,   

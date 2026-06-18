@@ -10,7 +10,7 @@ Surely we make too little of our Redeemer's death. I fear that even we, who prea
 
 The verses on which we are to meditate speak of two things--first, Christ's view of His death and, s econdly, Christ's view of the necessity and the results of that death.
 
-First, we are to consider CHRIST'S VIEW OF HIS DEATH. He says, "The hour is come that the Son of Man should be glorified."
+First, we are to consider CHRIST's VIEW OF HIS DEATH. He says, "The hour is come that the Son of Man should be glorified."
 
 Now, I freely grant that this passage may refer to Christ's glorification in His Resurrection, in His Ascension and in all His triumph beyond the skies, but, from its connection with the allusion to the grain of wheat, which is cast into the
 
@@ -56,7 +56,7 @@ It strikes me that our Lord also meant, by making this statement in connection w
 
 I have spoken at this length upon what our Lord said concerning His death as the means of glorifying Him, for I am anxious that we should not think lightly of that of which He thought so highly!
 
-The few minutes that remain must be devoted to the second part of the text which concerns THE NECESSITY AND RESULTS OF CHRIST'S DEATH.
+The few minutes that remain must be devoted to the second part of the text which concerns THE NECESSITY AND RESULTS OF CHRIST's DEATH.
 
 Our Lord seems to say that it was absolutely necessary that He should die--that even His perfect life would have been of no use to us if He had not died. He says, "Except a corn of wheat falls into the ground and dies, it abides alone." So you see, Brothers and Sisters, that if Christ, after having come to this earth as He did, had not died, He would, as far as mankind is concerned, have had to abide in Heaven alone. As God, the word, "alone," would have had no reference, for the holy angels, as well as His Father and the ever-blessed Spirit would always have been near Him. But if our Lord could have come here and then have gone back to Heaven without dying, it would not have been possible for any other man to ever have gone to Heaven--and Christ would have been the only Man in the whole of that land of joy! It is dreadful even to think of such a thing as that! If that could have happened, where must all the saints of God and all mankind have gone? There is but one other region--the land of darkness and of death, the land of pain, of horror and of unutterable woe. And we must all have gone there if Christ had not died upon the Cross--not only the thief on the left hand of Christ, but the thief on His right hand, too--not only Judas, but Peter, John and all the Apostles--not only Demas, but Paul, Silas and all the early Christians--not only Ahithophel, but David, also--not only the unrighteous, but the righteous, too--all! All! ALL, having sinned, would have been condemned to eternal wrath if Jesus had not died! Ah, but it was not possible for the Son of Man, who was also the Son of God, to be alone in Heaven! He could not be content to be there alone. He left His Father's side in Glory, in order that He might become the Son of Man! And then, after He had once taken our human Nature into union with His Divine Nature, He could not go back to Heaven to live there in solitude, without another man to bear Him company! We cannot conceive of the First-Born without a brotherhood, the Head without a body, the Savior with no saved ones to sing His praises, the Shepherd without sheep, the King without subjects! No, this could not be and, therefore, it was absolutely necessary that Christ should die!
 

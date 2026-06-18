@@ -62,13 +62,13 @@ Our God deserves exclusive glory. Covenant theology glorifies God alone. There a
 
 He also has endless glory. To whom be glory for ever and ever.' Have you glorified God a little, dear brethren, because of his covenant mercy? Go on glorifying him. Did you serve him well when you were young? Ah, not so well as you wish you had: then serve him better now in these riper days. Throw yourself into the glorifying of God. The task of saving yourself is not yours, Jesus has done it all. You may sing,
 
-A charge to keep I have,
+a charge to keep I have,
 
-A God to glorify;'
+a God to glorify;'
 
 But you will not need to add'
 
-A never-dying soul to save,
+a never-dying soul to save,
 
 And fit it for the sky,'
 

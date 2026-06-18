@@ -11,7 +11,7 @@ Personally, I am glad of this comfort. I would gladly be at peace with all men: 
 
 Now to proceed at once to our text, seeing that the occasion of it is a sufficient preface. Let us notice, first, where God's people may be, and yet be God's people. They may be by God's own hand "scattered among the countries, and cast far off among the heathen." And, secondly, what God will be to them when they are is such circumstances. "Yet will I be to them as a little sanctuary in the countries where they shall come." May the Holy Spirit, who spake by Ezekiel, speak through these words to our hearts!
 
-First, then, WHERE GOD'S PEOPLE MAY BE.
+First, then, WHERE GOD's PEOPLE MAY BE.
 
 If you ask where they may be, the answer to the question is, first, they may be under chastisment.
 

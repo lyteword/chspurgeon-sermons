@@ -72,7 +72,7 @@ The LORD has chastened me sorely: but He has not given me over unto death. Many 
 
 I will praise You: for You have heard me, and have become my salvation. Future, past, present--all full of blessing!
 
-22-24. The stone which the builders refusedis become the headstone ofthe corner. This is the LORD'S doing; it is marvelous in our eyes. This is the day which the LORD has made: we will rejoice and be glad in it. Though this is applicable to the Sabbath, yet it is also applicable to any day and to every day which God especially makes glorious by delivering many.
+22-24. The stone which the builders refusedis become the headstone ofthe corner. This is the LORD's doing; it is marvelous in our eyes. This is the day which the LORD has made: we will rejoice and be glad in it. Though this is applicable to the Sabbath, yet it is also applicable to any day and to every day which God especially makes glorious by delivering many.
 
 25-27. Save now, I beseech You, O LORD: O LORD, I beseech You, send now prosperity. Blessed is he who comes in the name of the LORD: we have blessed you out of the house of the LORD. God is the LORD, who has showed us light: bind the sacrifice with cords, even unto the horns of the altar.It is the king returning from victory and recovered from sickness. He brings his sacrifice with thanksgiving, as every child of God should, and there it is, ready bound to the altar horns.
 

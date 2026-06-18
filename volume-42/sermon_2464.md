@@ -6,7 +6,7 @@ YOU must all have noticed that David lived in very evil times. When he wrote thi
 
 My subject on this occasion leads me to speak to those who are in personal trouble and to say something concerning God's gracious dealings towards them. The text seems to me to tell us three things. First, that God's people may be in a very sad case. Secondly, that God's people have a Friend at hand, a Friend who can hear even their sighs. And, thirdly, that this Friend will do them a good turn when once He arises and takes their cause in hand. And He is certain to do it, for the text is virtually a promise--"For the oppression of the poor, for the sighing of the needy, now will I arise, says the Lord; I will set him in safety from him that puffs at him."
 
-First, then, GOD'S PEOPLE--His own people--His elect people--His redeemed people--His well-beloved people--MAY BE IN A VERY SAD CASE.
+First, then, GOD's PEOPLE--His own people--His elect people--His redeemed people--His well-beloved people--MAY BE IN a VERY SAD CASE.
 
 Certainly, to begin with, they may be poor and, in addition to that, they may be needy, for I take it that the words, "poor," and, "needy," have not quite the same meaning. A man may be very poor and that condition is bad enough, yet his needs may not be many. When he puts on his hat, he covers his whole family, and when he takes a crust into his mouth, he feeds his whole family. But, alas, there are many who cannot say that, for, in addition to being poor, they are very needy. They have a number of mouths to feed and a number of backs to clothe--they have more needs than one person would have if he were by himself. A man may have many who are so attached to him by the ties of nature that their needs become his needs and, therefore, in addition to being poor, he is needy as well.
 
@@ -30,7 +30,7 @@ Have not some of those who have fought their way to the front, some who have bee
 
 Thus have I described the sad case in which a true child of God may be found.
 
-It is more pleasant to turn to the second head and say that GOD'S PEOPLE HAVE A FRIEND AT HAND.
+It is more pleasant to turn to the second head and say that GOD's PEOPLE HAVE a FRIEND AT HAND.
 
 There is a Sister who may be in the congregation right now. If so, she will be pleased to hear that she gave me my text for this discourse. As many of you know, my dear wife very kindly selects for me the texts that make up the daily portions in our little penny Book Almanac--and she put down this passage among the others, "For the sighing of the needy, now will I arise, says the Lord." And the dear child of God to whom I refer wrote a letter to say how remarkably God had blessed this text to her comfort. She was in sorrow and trouble and somewhat given to sighing--and she thought that, perhaps, God was grieved with her for sighing--but this text greatly cheered her. She gives a little picture of what she thinks the texts means. I will tell you what she writes, for it will be the best part of my sermon by a long way.
 
@@ -48,9 +48,9 @@ If you need a picture of it, remember Israel in Egypt. "And it came to pass in p
 
 The same God lives forever and ever, and lives for you as He lived for Jacob's seed in the land of Mizraim! And you in your sorrow can still touch the heart of God as their sighing, because of their taskmasters, touched His heart in the days of old! And He will deliver you as He delivered them. Only sigh and cry to Him and He will come to you. He will come riding on a cherub, yes, riding upon the wings of the wind! And He will deliver you and you shall glorify Him, for what He has done, before, He will delight to do again, "for His mercy endures forever." Hallelujah! Therefore, let His people, even in their sighing, learn to rejoice in Him!
 
-Now I must close by dwelling for only a few minutes upon the third point which is, WHEN GOD'S PEOPLE
+Now I must close by dwelling for only a few minutes upon the third point which is, WHEN GOD's PEOPLE
 
-FETCH THEIR FRIEND BY THEIR SIGHS, HE WILL DO THEM A GOOD TURN. What does He say?" I will set him in safety from him that puffs at him."
+FETCH THEIR FRIEND BY THEIR SIGHS, HE WILL DO THEM a GOOD TURN. What does He say?" I will set him in safety from him that puffs at him."
 
 You know what God did for David. There was Saul, hunting him everywhere, and I do not doubt that David was strongly tempted, sometimes, to seek safety for himself. He did some few things that looked as if he meant to preserve himself from the hand of his adversary. But once, when he caught Saul in a cave, entirely in his hands, he only cut off the edge of the skirt of the king's robe and let him go. It was a grand proof of the power of faith to abstain from touching the man who thirsted for his blood! That was another night of triumph for David when he went out with Abishai and they stole through all the ranks of the sleeping soldiers, threading their silent way till they came where Saul lay asleep in the trench, with his spear stuck in the ground at his bolster. And Abishai said to David, "God has delivered your enemy into your hands this day: now, therefore, let me strike him, I pray you, with the spear even to the earth at once, and I will not strike him the second time."
 

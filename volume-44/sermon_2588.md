@@ -70,7 +70,7 @@ And when you lift up your eyes, in the day of judgment, and find yourself about 
 
 EXPOSITION BY C. H. SPURGEON: PSALM51
 
-A Psalm of David, after Nathan had rebuked him and he had been convinced of his great guilt in having sinned with Bathsheba. The music to which this Psalm can be sung must be composed of sighs, groans, sobs and cries. I believe that many of us here present have prayed this prayer of David many times--and he who has never prayed it has need to begin to do so at once! That is an old proverb, but a true one--"There is no road to Heaven except by Weeping Cross." He that has never repented will have to repent if he is ever to enter into life eternal. Hear, then, the prayer of David.
+a Psalm of David, after Nathan had rebuked him and he had been convinced of his great guilt in having sinned with Bathsheba. The music to which this Psalm can be sung must be composed of sighs, groans, sobs and cries. I believe that many of us here present have prayed this prayer of David many times--and he who has never prayed it has need to begin to do so at once! That is an old proverb, but a true one--"There is no road to Heaven except by Weeping Cross." He that has never repented will have to repent if he is ever to enter into life eternal. Hear, then, the prayer of David.
 
 Verse 1. Have mercy upon me, O God. ' 'Nothing but mercy will meet my case. Your justice frowns upon me. Your anger frightens me. 'Have mercy upon me'--great mercy, unmeasured mercy, undeserved mercy--'Have mercy upon me, O God.'"
 

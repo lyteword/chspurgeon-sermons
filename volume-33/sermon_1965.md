@@ -13,7 +13,7 @@ This morning my desire shall be to comfort any of God's people who are in a stat
 
 The text puts me upon two tracks. First, let us consider the Lords thoughts towards His people. "I know the thoughts that I think toward you, says the Lord, thoughts of peace, and not of evil, to give you an expected end." Secondly, let us consider the Believer's proper attitude towards his Lord. What should we think of our gracious God who thus unveils His heart to us?
 
-First, then, dear Friends, CONSIDER THE LORD'S THOUGHTS TOWARDS HIS PEOPLE.
+First, then, dear Friends, CONSIDER THE LORD's THOUGHTS TOWARDS HIS PEOPLE.
 
 It is noteworthy, first of all, that He does think of them and towards them. Observe that this Scripture says not, "I know the thoughts that I have thought toward you." That would be a happy remembrance, for the thoughts of God concerning His people are more ancient than the everlasting hills! There never was a time when God did not think upon His people for good. He says, "I have loved you with an everlasting love, therefore with lovingkindness have I drawn you." But the point here brought forward is that He still thinks of them. It would be possible for you to have thought out a
 
@@ -70,7 +70,7 @@ I may also be addressing some child of God in very deep trouble. Everything goes
 
 So far have I tried to justify the ways of God to men. May His own Spirit make you feel that the thoughts of the Lord are peace!
 
-In the second part of my discourse I would ask you to CONSIDER THE PROPER ATTITUDE OF GOD'S PEOPLE TOWARDS THEIR LORD. You will all agree with me when I say that our attitude should be that of submission. If God, in all that He does towards us, is acting with an objective and that objective a loving one, then let Him do what seems good to Him. Therefore let us have no quarrel with the God of Providence, but let us say, "Your will be done." Who would not yield to that which works his health, his wealth, his boundless happiness? "My son, despise not you the chastening of the Lord, nor faint when you are rebuked by Him: for whom the Lord loves, He chastens, and scourges every son whom He receives."
+In the second part of my discourse I would ask you to CONSIDER THE PROPER ATTITUDE OF GOD's PEOPLE TOWARDS THEIR LORD. You will all agree with me when I say that our attitude should be that of submission. If God, in all that He does towards us, is acting with an objective and that objective a loving one, then let Him do what seems good to Him. Therefore let us have no quarrel with the God of Providence, but let us say, "Your will be done." Who would not yield to that which works his health, his wealth, his boundless happiness? "My son, despise not you the chastening of the Lord, nor faint when you are rebuked by Him: for whom the Lord loves, He chastens, and scourges every son whom He receives."
 
 Next, let our position be one of great hopefulness, seeing the end of God, in all He does, is to give us "a future and a hope." We are not driven into growing darkness, but led into increasing light. There is always something to be hoped for
 

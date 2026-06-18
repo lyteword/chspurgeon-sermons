@@ -51,7 +51,7 @@ Brothers and Sisters in Christ, you will indeed have fellowship with the Father 
 > I want to live as one who knows Your fellowship of love. As one whose eyes can pierce beyond The pearl-built gates above. As one who daily speaks to You, And hears Your voice Divine, With depths of tenderness declare,   
 > 'BBeloved, you are Mine!'   
 
-Now, in the second place, I have to briefly answer the second question--HOW MAY FELLOWSHIP WITH THE FATHER AND WITH THE SON BE ENJOYED IN THE CELEBRATION OF THE LORD'S SUPPER?
+Now, in the second place, I have to briefly answer the second question--HOW MAY FELLOWSHIP WITH THE FATHER AND WITH THE SON BE ENJOYED IN THE CELEBRATION OF THE LORD's SUPPER?
 
 As you all know, the Lord's Supper is the memorial feast in which we are to show, or proclaim, the Lord's death "till He comes." Come He will and our hearts cry to Him, "Even so, come quickly, good Master!" This Supper sets forth His death and the way in which we derive benefit from it, namely, by receiving Him spiritually into our souls even as we take the bread and wine literally into our bodies and assimilate them so that they become part of ourselves. Well, then, how can we have fellowship with God in showing forth the death of Christ by means of this memorial supper?
 

@@ -20,7 +20,7 @@ But you are sitting tonight in somewhat the same position as that blind man was,
 
 Why you would make angels sing fresh hallelujahs in Heaven, while on earth God would be glorified and yourselves and your friends would be blessed by so lively an exercise of faith and so wonderful a participation of Divine Grace!
 
-Now, looking steadfastly that this may be the case, I wish to speak very pointedly to you about two or three things. First, when Jesus passed by the blind man it was to that man A DAY OF HOPE. He had given up all thought of ever being able to see, so long had his eyes been closed to the light. When Jesus passed by the case was different. He could perform any miracle--there was no limit to His healing power--why shouldn't He open a blind man's eyes? And you, my anxious Friend, you have felt that you could not be saved. Of course, if it depended upon yourself you could not by any duties you discharged, or any services you performed acquire merit enough to enter Heaven--or even to procure the forgiveness of your sins on earth.
+Now, looking steadfastly that this may be the case, I wish to speak very pointedly to you about two or three things. First, when Jesus passed by the blind man it was to that man a DAY OF HOPE. He had given up all thought of ever being able to see, so long had his eyes been closed to the light. When Jesus passed by the case was different. He could perform any miracle--there was no limit to His healing power--why shouldn't He open a blind man's eyes? And you, my anxious Friend, you have felt that you could not be saved. Of course, if it depended upon yourself you could not by any duties you discharged, or any services you performed acquire merit enough to enter Heaven--or even to procure the forgiveness of your sins on earth.
 
 But, if Jesus Christ has come into the world to save that which was lost, it is a totally different matter! He can certainly pardon the greatest offenders and He can deliver from going down into the Pit the most undeserving of rebels. It was an hour of hope to that blind man and if Jesus passes by now, this is an hour of hope to you! But, does He pass by? I answer--Yes! There are different respects in which this may be interpreted of our Lord's conduct. In a certain sense He has been passing by some of you ever since you began to discern right from wrong. You have, some of you, been nurtured and bred up under the hearing of the Gospel and you cannot remember the time when you did not know something, at any rate, of the facts and Truths of God that pertain to Christianity.
 
@@ -103,7 +103,7 @@ And there, as you lie, tormented to the quick, you will have this to be your mis
 He lost his soul, but he did not gain the world. He gained only a little frivolous pleasure, even that poor pittance he spent in an hour and then he was forever cast away! May it not be so with you--not with one of you, old or young! But may the Lord have mercy upon the whole assembly, for His dear name's sake. Amen.--
 
 > There is a time, we know not when,   
-> A point we know not where,   
+> a point we know not where,   
 > That marks the destiny of men,   
 > To glory or despair.   
 > There is a line, by us unseen,   

@@ -21,7 +21,7 @@ Why not? Instead of being fished up as castaways, stranded upon the shores of me
 
 I have many things to say to you this morning and, therefore, I must speak upon each one with great brevity. I am half afraid that I may be driven to a brevity which will render me a little obscure. I ask you, first, to notice the title to be wondered at--"Friend of God." When we have meditated and marveled, I shall then speak to you under a second head-- the title vindicated--it was a fit and proper title for Abraham and we can see it to be so. Thirdly, I shall speak of the title sought after. May we all win it and wear it! After all this, I shall conclude with a few words upon the title used for practical purposes. May the Holy Spirit help me graciously at this hour!
 
-First, may we be Divinely instructed while we look at the name, "Friend of God," and regard it as A TITLE TO BE WONDERED AT.
+First, may we be Divinely instructed while we look at the name, "Friend of God," and regard it as a TITLE TO BE WONDERED AT.
 
 Admire and adore the condescending God who thus speaks of a man like ourselves and calls him His friend! The heavens are not pure in His heart and He charged His angels with folly--and yet He takes a man and sets him apart to be His friend! What is man, O Lord, that You are mindful of him? Or the Son of Man, that You visit him? Who among our sinful race can be worthy of the friendship of Jehovah? Only His Grace can make it possible for any man to walk with God in high companionship.
 

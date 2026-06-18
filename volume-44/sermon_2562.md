@@ -38,7 +38,7 @@ The answer to the second question is, "Because I would have You get all the hono
 
 The answer to the third question is essentially the same as the answer to the first. To have heard Christ's prayers at that time would have been inappropriate. This turning away of the Divine Father from hearing His Son's prayer is just in keeping with His condition as the sinner's Surety. His prayer must not be heard! As the sinner's Surety, He could say, "Now that I am here, dying in the sinner's place, You seal Your ears against My prayer." God did not hear His Son because He knew His Son was dying to bring us near to God. And the Son, therefore, cried, "My God, My God, why have You forsaken Me?"
 
-In conclusion I shall offer you A WORD OF EARNEST EXPOSTULATION AND OF AFFECTIONATE
+In conclusion I shall offer you a WORD OF EARNEST EXPOSTULATION AND OF AFFECTIONATE
 
 WARNING.
 

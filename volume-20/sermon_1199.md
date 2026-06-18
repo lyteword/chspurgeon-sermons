@@ -86,7 +86,7 @@ Nothing causes a man more torture than to be dragged here and there with contend
 
 "'Tis to God, and God alone, That His griefs are fully known."
 
-Our third question shall be, WHAT WAS OUR LORD'S SOLACE IN ALL THIS? He sought help in human
+Our third question shall be, WHAT WAS OUR LORD's SOLACE IN ALL THIS? He sought help in human
 
 companionship and it was very natural that He should do so. God has created in our human nature a craving for sympathy. We do not err when we expect our Brethren to watch with us in our hour of trial. But our Lord did not find that men were able to assist Him--however willing their spirit might be, their flesh was weak. What, then, did He do? He resorted to prayer and especially prayer to God under the Character of Father. I have learned by experience that we never know the sweetness of the Fatherhood of God so much as when we are in very bitter anguish. I can understand why the Savior said, "Abba, Father"--it was anguish that brought Him down as a chastened child to appeal plaintively to a Father's love.
 

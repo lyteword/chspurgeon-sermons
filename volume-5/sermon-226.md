@@ -21,7 +21,7 @@ Their faith is firm and strong; they have much love to the Redeemer; they are en
 
 Entering into particulars for a moment, very briefly, I must just observe, that there are many aspects under which we may regard the heavenly state, and in each of these we shall have to say, that Christ hath kept the good wine until then. Here on earth the believer enters into rest by faith; the Christian enjoys rest even in the wilderness; the promise is fulfilled. "They shall dwell safely in the wilderness, and sleep in the woods." God giveth to his beloved sleep; there is a peace that passeth all understanding, which we may enjoy even in this land of turmoil, strife, and alarms,&mdash;a peace which the worldling knoweth not of, nor can he guess it.
 
-> A holy calm within the heart,    
+> a holy calm within the heart,    
 > The pledge of glorious rest.    
 > Which for the church of God remains,    
 > The end of cares, the end of pains.    

@@ -6,7 +6,7 @@ THAT is a striking name for a man, "he that had been possessed with the devil." 
 
 There are some people who could tell a story very similar to this man's--a story of slavery to Satan and deliverance by the power of Christ! If you can tell such a story, do not keep it to yourself! If Jesus has done great things for you, be always ready to speak of it, till all men shall know what Christ can do. I think that great sinners who have been saved are especially called upon to publish the good news, the Gospel of the Grace of God. If you have been valiant against the Truth of God, be valiant for the Truth of God. If you were not lukewarm when you served Satan, be not lukewarm, now that you have come to serve Christ! There are some of us here who might bear the name of "the man who was born blind," or, "the leper that was healed," or, "the woman that was a sinner." And I hope that we shall all be willing to take any name or any title that will glorify Christ. I do not find that this man ever persecuted Mark for libel because he wrote of him as, "he that had been possessed with the devil." Oh, no! He acknowledge that he was once possessed with the devil--and he glorified God that he had been delivered by the Lord Jesus!
 
-I am going to make a few observations upon the passage I have chosen for a text--and the first observation is this, SEE HOW MEN'S DESIRES DIFFERED. We find in the seventeenth verse that, "they began to pray Him to depart out of their coasts." In the eighteenth verse, "he that had been possessed with the devil prayed Him that he might be with Him." The people wanted Christ to go away from them--the man whom He had cured wanted to go wherever He might go! To which class do you belong, my dear Friend?
+I am going to make a few observations upon the passage I have chosen for a text--and the first observation is this, SEE HOW MEN's DESIRES DIFFERED. We find in the seventeenth verse that, "they began to pray Him to depart out of their coasts." In the eighteenth verse, "he that had been possessed with the devil prayed Him that he might be with Him." The people wanted Christ to go away from them--the man whom He had cured wanted to go wherever He might go! To which class do you belong, my dear Friend?
 
 I hope you do not belong to the first class, the class of the many who pray Jesus to depart from them. Why did they want Him to go?
 
@@ -32,7 +32,7 @@ Did you ever hear the story of the devil running away with a young man who was a
 
 swer to that. If you go on the devil's premises and he takes you, I cannot say anything against it. Go nowhere where you cannot take Christ with you! Be like this man who longs to go wherever Christ goes.
 
-Now, secondly, SEE HOW CHRIST'S DEALINGS DIFFER and how extraordinary they are. Here is an evil prayer--"Depart out of our coasts." He grants it. Here is a pious prayer--"Lord, let me be with You." "However Jesus suffered him not." Is that His way, to grant the prayer of His enemies, and refuse the petition of His friends? Yes, it is sometimes.
+Now, secondly, SEE HOW CHRIST's DEALINGS DIFFER and how extraordinary they are. Here is an evil prayer--"Depart out of our coasts." He grants it. Here is a pious prayer--"Lord, let me be with You." "However Jesus suffered him not." Is that His way, to grant the prayer of His enemies, and refuse the petition of His friends? Yes, it is sometimes.
 
 In the first case, when they prayed Him to depart, He went. Oh, dear Friends, if Christ ever comes near you and you get a little touched in your conscience and feel a throb of something like spiritual life, do not pray Him to go away, for if He goes--if He should leave you to yourself and never return--your doom is sealed! Your only hope lies in His Presence, but if you pray against your one Hope, you are a suicide--you are guilty of murdering your own soul!
 
@@ -52,7 +52,7 @@ You see, then, how Christ's dealings differ with different men. Have I not known
 > The difficulty will not me offend;   
 > For I perceive the way of life lies here.   
 
-My third point is this--SEE HOW GOOD A THING IT IS TO BE WITH JESUS. This man entreated of the Lord that he might be with Him.
+My third point is this--SEE HOW GOOD a THING IT IS TO BE WITH JESUS. This man entreated of the Lord that he might be with Him.
 
 If you have recently been saved, I expect you have a longing in your heart to always be with Christ. I will tell you what shape that longing is likely to take. You were so happy, so joyful, and it was such a blessed meeting, that you said to yourself, "I am sorry it is over; I should like this meeting to have been kept on all night, and the next day, and never to end." Yes, you were of the mind of Peter when he wanted to build the three tabernacles on the holy mountain and to stay there the rest of his days! But you cannot do it--it is no use wishing for it. You must go home to that drinking husband or that scolding wife--to that ungodly father or that unkind mother. You cannot always stay in that meeting!
 
@@ -84,7 +84,7 @@ His remaining, also, was better for his family, and do you not think that, often
 
 So, you see, dear Friends, there is even something better than being with Christ--working for Christ.
 
-But lastly, CONSIDER THAT THERE IS YET A CASE WHICH IS BEST OF ALL. We must always have three
+But lastly, CONSIDER THAT THERE IS YET a CASE WHICH IS BEST OF ALL. We must always have three
 
 degrees of comparison. What is the best state of all? To be with Christ is good. To be sent by Christ on a holy errand is better. But here is something that is best of all, namely, to work for Him and to be with Him at the same time! I want
 

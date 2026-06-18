@@ -10,7 +10,7 @@ I bring this incident, therefore, before your notice for the purpose of showing 
 
 My first division will be this, all things have a black look for ungodly men. And the second will, naturally, be that all things have a smile for seekers after Christ.
 
-First, I have a stern duty to perform in reminding everyone who is not reconciled to God by Jesus Christ and who, therefore, is still living in sin, that ALL THINGS HAVE A BLACK LOOK FOR HIM.
+First, I have a stern duty to perform in reminding everyone who is not reconciled to God by Jesus Christ and who, therefore, is still living in sin, that ALL THINGS HAVE a BLACK LOOK FOR HIM.
 
 Whether you know it or not, you who are enemies to God are out of gear with the entire universe. If God did not hold His creatures in with a strong leash, they would turn upon you and tear you in pieces. The very earth groans under the burden of having to bear you up and the bread you eat is unwilling to feed an enemy of God. The wind, air, sun, moon, stars would, if they could, decline to be of service to you as long as you remain at enmity against Him whom they so gladly serve. The Believer in God is informed that he shall be in league with the stones of the field and that the beasts of the field shall be at peace with him. All things work together for good unto him--but to you who are a rebel against your God, nothing is working for good! The great wheels of Divine Providence are continually revolving and the day is coming in which they will grind you to powder! Whatever little discomfort or inconvenience you may have suffered in the
 

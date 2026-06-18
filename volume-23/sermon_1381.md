@@ -20,7 +20,7 @@ Beautifully does our text set forth not only the great power exerted by our Lord
 
 Jesus evidently thinks not lightly of the little ones, nor of the service which they require. His shoulders may suffice for lost sheep, but His bosom is reserved for the lambs--they need and shall have our Lord's best! With Divine sweetness and tenderness the Redeemer carries the lambs in His fond embrace and lends both His heart and His arm to cherish and protect them. We have before us in the text a lovely outline portrait of the Good Shepherd. Let us look at the picture and notice its main beauties. And when we have sufficiently done so, let us see therein an example for the Church and a model for the teacher of the young.
 
-We have to examine A PORTRAIT OF THE GOOD SHEPHERD. Let as study it with care. "He shall gather the
+We have to examine a PORTRAIT OF THE GOOD SHEPHERD. Let as study it with care. "He shall gather the
 
 lambs with His arm, and carry them in His bosom." What do I see in this picture? First, I see the Lord of angels condescending to personal labor. Jesus Christ, Himself, gathers with His own arm and carries in His own bosom the lambs of His flock! He does not commit this work to an angel, nor does He even leave it to His ministers, but He, Himself, by His Spirit, undertakes it. He cared for the lambs while He was here below. He suffered the little children to come to Him and He took them in His arms and blessed them.
 

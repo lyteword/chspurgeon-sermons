@@ -35,7 +35,7 @@ We read that he is the Lion of the tribe of Judah, by which is signified the dig
 
 He has the lion's heart and the lion's strength. And He comes forth conquering and to conquer. This it is that makes it the more wonderful that He should become a lamb--
 
-"A lowly man before His foes, A weary man and full of woes."
+"A lowly man before His foes, a weary man and full of woes."
 
 It is wonderful that He should yield Himself up to the indignities of the Cross, to be mocked with a crown of thorns by the soldiers and to be spit upon by subjects. O wonder, wonder, wonder, that the Lion of Judah, the offshoot of David's royal house, should become as a lamb led forth to the slaughter!
 
@@ -148,7 +148,7 @@ The Lord is adored by the Church in all forms of worship. They worship Him in pr
 
 No, it is not merely the Church and angels, but all creation, east, west, north, south, highest, lowest--all adore Him. All life, all space, all time, immensity, eternity--all these become one mouth for song and all the song is, "Worthy is the Lamb."
 
-Now, then, dear Friends, if this is so, shall we ever allow anybody in our presence to lower the dignity of Christ, our Sacrifice? ["No."] A friend says, emphatically, No. And we must say, No. As with a voice of thunder, we say--No--to all attempts to lower the supreme glories of the Lamb. We cannot have it--our loyalty to Him will not permit it. Besides, no man will willingly lose his all. Take the Lamb away and you take all away. "Who steals my purse, steals trash"--who steals my Christ, steals myself and more than myself--my hopes that are to be my future joys.
+Now, then, dear Friends, if this is so, shall we ever allow anybody in our presence to lower the dignity of Christ, our Sacrifice? ["No."] a friend says, emphatically, No. And we must say, No. As with a voice of thunder, we say--No--to all attempts to lower the supreme glories of the Lamb. We cannot have it--our loyalty to Him will not permit it. Besides, no man will willingly lose his all. Take the Lamb away and you take all away. "Who steals my purse, steals trash"--who steals my Christ, steals myself and more than myself--my hopes that are to be my future joys.
 
 Life is gone when His death is rejected, His blood despised. Our souls burn with indignation when this vital Truth of God is assailed--
 

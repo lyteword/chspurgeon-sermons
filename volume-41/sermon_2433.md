@@ -51,7 +51,7 @@ I remember one case, that of Mr. Timothy Rogers, who was 28 years in despair and
 
 Perhaps you say, "/feel the wrath of God so heavily." What if you do? Go and plead the mercy of God in Christ and, as Christ, in the place of sinners, bore His Father's wrath, go and rest in that great vicarious Sacrifice! "But I have nobody to speak to," says another. Never mind if you have not--that is all the more reason why you should pray to God and plead with God who will not leave you. "But / am distracted," says another. Yes, and you will be distracted, and I should not wonder if you went out of your mind unless you go to God as you are, and implore Him to look at your distractions and to lay His gentle hand upon you and restore you to yourself--and then to restore you to Himself. I wish I knew how to plead with each one of you personally. I feel that I want to go down these stairs, and round these galleries, and to pick out men and women who are being tempted not to pray, again, and to give each of them a brotherly grip of the hand and to say, "Do not cease to plead for your life! Do not cease to look to Jesus on the Cross! Hope in Him! It is Satan's desire to ruin you by leading you to despair! Take heart of hope and believe that Mercy's gate is still open to you! Come, and welcome, and you shall in no wise be cast out."
 
-Now I finish with A FEW REASONS WHY YOU SHOULD KEEP ON PRAYING and why you should add to your prayer a simple confidence in our Lord and Savior Jesus Christ.
+Now I finish with a FEW REASONS WHY YOU SHOULD KEEP ON PRAYING and why you should add to your prayer a simple confidence in our Lord and Savior Jesus Christ.
 
 This is the first reason. Suppose, dear Friend--and I do not like even to suppose such a thing--but, for the sake of argument, suppose that what your despair says is true--that you will perish? Then you cannot lose anything by prayer, can you? Remember what we sang a few minutes ago--
 
@@ -93,7 +93,7 @@ For my soul is full of troubles. "Full of troubles, brimming over with grief, an
 
 / am as a man that has no strength. Here is one, in the time of manhood, when he should be strongest, who yet says, "I am as a man that has no strength." This subject may not interest some of you, just now, but it is here, so we must mention it. And it may be needed even by you, one of these days. Bright eyes are not always bright and the earthly joy that leaps and dances does not abide forever! The day may come when you will turn to this Psalm with the two eights in it and find comfort in it because it describes your case, also.
 
-Free among the dead--A freeman of the sepulcher, at home at death's dark door. "Free among the dead,"
+Free among the dead--a freeman of the sepulcher, at home at death's dark door. "Free among the dead,"
 
 Like the slain that lie in the grave whom You remember no more: and they are cut off from Your hand. This is, perhaps, the most awful depth of the whole Psalm. The writer bemoaned that he was not remembered, even, by God, any more, and that he was cut off from God's hand. At least, so he thought.
 

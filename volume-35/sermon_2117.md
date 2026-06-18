@@ -9,7 +9,7 @@ In that capacity we shall think of Him during this discourse. It is the voice of
 
 At this time we shall not keep strictly to the text but shall introduce other truths related to it. The run of our discourse will be somewhat as follows--First, consider the Father's love to Jesus because of His death and resurrection. Secondly, consider the Father's complacency in us on that account. Then, thirdly, consider our love to Jesus on this account. And, fourthly, consider our consequent fellowship with the Father.
 
-First, CONSIDER THE FATHER'S LOVE TO CHRIST JESUS BECAUSE OF HIS DEATH AND RESURRECTION. This love was exceedingly sweet to Jesus. Persecuted by men and sometimes depressed in His own spirit, He comforts Himself with this, "Therefore does My Father love Me, because I lay down My life, that I might take it again." To be well-pleasing to the Father was everything with our Lord Jesus Christ. In heaviest toll, in dark slander, in deepest perplexity, if His Father only said, "This is My beloved Son, in whom I am well-pleased," Jesus was refreshed with meat which others knew not of.
+First, CONSIDER THE FATHER's LOVE TO CHRIST JESUS BECAUSE OF HIS DEATH AND RESURRECTION. This love was exceedingly sweet to Jesus. Persecuted by men and sometimes depressed in His own spirit, He comforts Himself with this, "Therefore does My Father love Me, because I lay down My life, that I might take it again." To be well-pleasing to the Father was everything with our Lord Jesus Christ. In heaviest toll, in dark slander, in deepest perplexity, if His Father only said, "This is My beloved Son, in whom I am well-pleased," Jesus was refreshed with meat which others knew not of.
 
 Beloved, let us be like our Lord Jesus in this--let the love of the Father to us be our comfort, our joy, our strength, our hope, our Heaven. What more can men or angels have than the love of God? Let that love be shed abroad in my heart by the Holy Spirit and even the celestial city cannot afford me a more pure and substantial delight. O my God, Your love is precious beyond all estimate! "Whom have I in Heaven but You? And there is none upon earth that I desire beside
 
@@ -73,7 +73,7 @@ The Lord of Hosts, the Lord mighty in battle, has laid down His life and taken i
 
 But His greatest glory is that the Father loves Him. Sweet are the songs of the saved on earth and blessed are the anthems of the redeemed in Heaven. But to Jesus, the best reward which is possible lies in this word--"Therefore does My Father love Me." Before me, in this Divine love, I see a great deep, which I may not attempt to explore--I have but brushed the surface as with a swallow's wing.
 
-Secondly, CONSIDER THE FATHER'S COMPLACENCY IN US ON ACCOUNT OF HIS DELIGHT IN HIS
+Secondly, CONSIDER THE FATHER's COMPLACENCY IN US ON ACCOUNT OF HIS DELIGHT IN HIS
 
 SON. Beloved, the Father loves His Son so much that His love overflows its banks and covers all of us whom the Lord Jesus has taken to be His own. The Father's love is like a great beacon kindled in honor of the Well-Beloved but shedding its radiance far and wide to enlighten those who sit in darkness and in the valley of the shadow of death. Let us contemplate this fact so fraught with blessing to all Believers.
 
@@ -143,7 +143,7 @@ And brought us release, And now the old bondage Forever must cease. Who trust in
 
 Blessed, forever blessed, be Your dear name, O Jesus! There is none like it in Heaven, nor in the Heaven of heavens. How shall we praise Him? Our tears of gratitude come to our rescue. If we cannot speak His praises, we will weep them.
 
-I shall conclude by saying, CONSIDER WHAT A FELLOWSHIP IS OPENED UP BETWEEN THE SAVED
+I shall conclude by saying, CONSIDER WHAT a FELLOWSHIP IS OPENED UP BETWEEN THE SAVED
 
 ONES AND THE FATHER. The Father loves the Son and we love Him, also, after our measure. Brethren, we are agreed with the great God with whom once we were at enmity. Since we have seen our Lord lay down His life for us, we love Him. How can we do otherwise? For the same reason the Father loves Him--the very strongest love is confirmed when a common object of affection becomes a rivet between the two parties. Two hearts may be one in married love, but their union is intensified when a baby's cry is heard in the house. Seldom are they parted by divorce who have blended their love in watching over a company of little children.
 

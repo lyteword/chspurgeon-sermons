@@ -150,7 +150,7 @@ Weary and travel-worn, Ilong for rest.
 
 Speak but the word, dear Master, and I fly,
 
-A dove let loose to nestle on Your breast.'
+a dove let loose to nestle on Your breast.'
 
 'Not yet, My child; a little longer wait,
 

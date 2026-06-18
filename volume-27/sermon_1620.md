@@ -60,7 +60,7 @@ the old, old Gospel yet again, harping forever on that one Divine string which h
 
 Thus have I spoken upon the first head and pretty well exhausted my time--therefore only a minute or two upon
 
-the second--THE SUFFERINGS OF JESUS HAVE HAD A DEEP INTEREST IN THEM FOR MANY. Oh that I
+the second--THE SUFFERINGS OF JESUS HAVE HAD a DEEP INTEREST IN THEM FOR MANY. Oh that I
 
 could set Him forth before you! There He is! Look upon Him! He is before my eyes. I see those languid eyes closing in death, I see that glorious head bowing upon His bosom. I see and I adore! I note with grief the gashes made by the nails in His dear hands and feet from which flows the ruddy stream which scatters roses among the lilies of His pure and spotless flesh! I look into His heart and see it breaking--the soldier has opened a door through which your soul may gaze! My Savior's death is to me all things--I could live and die contemplating it.
 

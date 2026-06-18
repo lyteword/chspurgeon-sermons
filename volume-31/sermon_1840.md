@@ -94,7 +94,7 @@ Moreover, we come under the rod of rulership, for a rod, in the old time, was th
 
 "I will bring you under the rod."
 
-Now, have I been describing the experience of any person here? I feel sure I have! Thousands who will read these words will leap for joy as they exclaim, "This is precisely where I am! I said, 'Surely He is going to destroy me,' but if this is the way in which the Lord brings me under the bond of the Covenant, I will forever bless His name!" May the Holy Spirit apply these, my words, to all the prisoners of hope!
+Now, have I been describing the experience of any person here? I feel sure I have! Thousands who will read these words will leap for joy as they exclaim, "This is precisely where I am! I said, 'surely He is going to destroy me,' but if this is the way in which the Lord brings me under the bond of the Covenant, I will forever bless His name!" May the Holy Spirit apply these, my words, to all the prisoners of hope!
 
 But time fails me, so I must close by noticing THE ULTIMATE DESIGN OF ALL THIS. This bringing them under the bond of the Covenant has a grand intent in it.
 

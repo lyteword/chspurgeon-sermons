@@ -110,7 +110,7 @@ To each fruitful bough He says, "From Me is your fruit found." When your garment
 
 Our fourth point drops into its place very naturally, for we have already seen that THE WHOLE OF IT COMES
 
-TO A MOST APPROPRIATE CONCLUSION OF PRAISE--"To whom be glory forever and ever. Amen." To glorify
+TO a MOST APPROPRIATE CONCLUSION OF PRAISE--"To whom be glory forever and ever. Amen." To glorify
 
 God is the objective of it all. We too much forget this. Praise is the flower for which the stalk of prayer exists. Praise to God is the essence of all the flowers of holiness, the motto of all the roses in the garden of the Church. God's Glory is the harvest for which all the plowing and sowing of ministry and evangelizing must be done. Glory to God in the highest and glory to His only begotten Son forever and ever--this is the pure gold for which we dig the mines of godly service.
 

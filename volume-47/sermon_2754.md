@@ -44,7 +44,7 @@ I will give you one more picture and then I think I shall have described this wi
 
 My Hearer, are you in such a position? Then, remember that the Son of Man has come to seek and to save that which was lost and that you are one of those whom He came to save, for you are manifestly lost. He will never be disappointed with the result of His work! Those whom He come to save, He will save and if you trust Him, He will save you! You shall be brought in among His redeemed people here on earth and you shall see His face and rejoice in His great salvation in the day when He Shall come in the Glory of His Father with all His holy angels with Him!
 
-Now, note the next division of the passage--GOD'S MATCHLESS CONSOLATIONS.
+Now, note the next division of the passage--GOD's MATCHLESS CONSOLATIONS.
 
 Does He bring her into the wilderness that she may be the prey of the vultures, or that the jackals may devour her? Oh, no! He brings her there that He may "speak comfortably to her." You see how the two things go together. There is a precious golden band in the text--a band which neither death nor Hell can ever shatter, which, like a sacred rivet or heavenly link, joins the two sentences together. "I will bring her into the wilderness"--that is true, we know--"and I will speak comfortably to her." That is also true. The two are linked together and cannot be separated. Those who are brought into such a wilderness as I have described, shall hear the comforting words of Jehovah spoken to their hearts!
 

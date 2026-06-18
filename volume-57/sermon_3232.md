@@ -108,7 +108,7 @@ Commit your way unto the LORD; trust also in Him and He shall bring it to pass. 
 
 And He shall bring forth your righteousness as the light, and your judgment as the noonday. You cannot make the light and the noonday--that is a work that is far beyond your power--but your God can give you both light and noonday. He can clear your character from any slander that may have fouled it and He can crown you with honor and glory in place of the contempt that is now cast upon you.
 
-Rest in the LORD--[See Sermon #2393, Volume 40--A COMFORTING MESSAGE FOR THE CLOSING YEAR.] That is the sweetest word of all--"Rest." Go no further! Fret no more. Bear your burdens no longer. Make this day a Sabbath to your soul--"Rest in the Lord"--
+Rest in the LORD--[See Sermon #2393, Volume 40--a COMFORTING MESSAGE FOR THE CLOSING YEAR.] That is the sweetest word of all--"Rest." Go no further! Fret no more. Bear your burdens no longer. Make this day a Sabbath to your soul--"Rest in the Lord"--
 
 And wait patiently for Him! Do not be in a hurry. The Lord has Infinite leisure, so partake of it as far as you can--"Rest in the Lord, and wait patiently for Him."
 

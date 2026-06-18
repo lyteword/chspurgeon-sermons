@@ -48,7 +48,7 @@ It is a sad, sad text I have to preach upon. I would to God it would go into you
 
 Now, we shall need a little time to take the second part of our subject--"Upon Himself shall His crown flourish." We are here very clearly taught that--
 
-THE SAVIOR WILL WEAR A CROWN, THAT THE CROWN WILL FLOURISH, THAT IT WILL FLOURISH UPON HIM!
+THE SAVIOR WILL WEAR a CROWN, THAT THE CROWN WILL FLOURISH, THAT IT WILL FLOURISH UPON HIM!
 
 Brothers and Sisters, I need not detain you long by mentioning to you the crowns which Jesus wears. He has the royal crown of the kingdoms of Heaven, earth and Hell, for "the government is upon His shoulder, and His name shall be called Wonderful, The Counselor, The Mighty God, The Everlasting Father, The Prince of Peace."
 
@@ -84,7 +84,7 @@ I have thus tried to preach both to saint and sinner. Oh, that He would bring th
 
 "His enemies will I clothe with shame." See what your livery is to be forever and ever? See what your everlasting garment is to be? God grant that you may, instead of being clothed with shame, breathe the prayer, "Lord, clothe me
 
-with Your righteousness. Wash me in Your precious blood. Make me Your friend and allow me no longer to be among those of whom it is written, 'Shame shall be the promotion of fools.'" God bless you for Jesus' sake, Amen.
+with Your righteousness. Wash me in Your precious blood. Make me Your friend and allow me no longer to be among those of whom it is written, 'shame shall be the promotion of fools.'" God bless you for Jesus' sake, Amen.
 
 EXPOSITION BY C. H. SPURGEON: PSALM95.
 

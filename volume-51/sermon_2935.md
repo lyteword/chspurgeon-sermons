@@ -59,9 +59,9 @@ Moreover, our Lord Jesus felt an intense delight in glorifying His Father. It wa
 
 Will you not also rejoice in His finished work? You have not to put a single stitch to the robe of righteousness which He has worked--it is woven from the top throughout and absolutely perfect in every respect. You have not to contribute even a quarter of a penny to the ransom price for your redemption, for it is paid to the uttermost farthing. The great redemptive work is finished forever and Christ has done it all! He is Alpha and He is Omega. He is the Author and He is also the Finisher of our faith! Sit down, my Brothers and Sisters in Christ, and just feed on this precious Truth of God! Surely this is the "feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well refined," of which the Prophet Isaiah long ago wrote. I see You, Lord Jesus, with Your foot upon the dragon's neck! I see You with death and Hell beneath Your feet! I see the Glory that adorns Your triumphant brow as You wait till the whole earth shall acknowledge You as King, for You have once and for all said, "It is finished," and finished it certainly is! And shall not my poor heart rejoice because You have finished it, and finished it for me?
 
-My last observation is that WHEN CHRIST COMMUNICATES HIS JOY TO HIS PEOPLE, IT IS A JOY
+My last observation is that WHEN CHRIST COMMUNICATES HIS JOY TO HIS PEOPLE, IT IS a JOY
 
-WHICH REMAINS AND A JOY WHICH IS FULL.
+WHICH REMAINS AND a JOY WHICH IS FULL.
 
 No other joy remains. There is a great deal of very proper joy in many families when children are born, yet how many little coffins are followed by weeping mothers? There is joy when God fills the barn, and very properly so, for a bountiful harvest should make men glad. But the winter soon comes, with its cold and dark and dreary weather. But,
 

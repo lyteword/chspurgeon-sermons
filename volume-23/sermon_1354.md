@@ -8,7 +8,7 @@ But Pentecost has now passed and the Spirit of God abides with us to accompany t
 
 There are two things clearly in the text and these have a close relation to one another. A plain invitation--"Come," and then a forcible argument--"for all things are ready." The argument is fetched from the Divine preparations, gathered from among the dainty provisions of the royal feast. "My oxen and My fatlings are killed, come to the supper." The readiness of everything on God's part is the argument why men should come and partake of His Grace--and that is the point upon which we will dwell at this time--the readiness of the feast of mercy is the reason why men should come to it at once.
 
-We will begin our meditation by laying down the first statement which shall make our first division of discourse, namely that IT IS GOD'S HABIT TO HAVE ALL THINGS READY, whether for His guests or His creatures. You never discover Him to be behind in anything. When the guests come, there is not a scramble to get the table arranged and the food prepared, but the Lord has great forethought and every little point of detail is well arranged. "All things are ready." It was so in creation.
+We will begin our meditation by laying down the first statement which shall make our first division of discourse, namely that IT IS GOD's HABIT TO HAVE ALL THINGS READY, whether for His guests or His creatures. You never discover Him to be behind in anything. When the guests come, there is not a scramble to get the table arranged and the food prepared, but the Lord has great forethought and every little point of detail is well arranged. "All things are ready." It was so in creation.
 
 He did not create a single blade of grass upon the face of the earth until the soil and the atmosphere had been prepared for it and until the kindly sun had learned to look down upon the earth. Imagine vegetation without a sun, or without the alternation of day and night! But the air was full of light, the firmament upheld the clouds and the dry land had appeared from out of the sea--and then all things were ready for herbs and plants and trees. Nor did God prepare one single creature that has life, nor fowl that flies in the midst of Heaven, nor fish that swim the seas, nor beast that moves on the dry land until He had prepared its habitat and made ready its appointed food.
 
@@ -66,7 +66,7 @@ Oh, it will be a joyous moment when we shall hear the summons, "All things are r
 
 I feel tempted to linger here, but I must tear myself away from this point to pass on to the next.
 
-THE PERFECT READINESS OF THE FEAST OF DIVINE MERCY IS EVIDENTLY INTENDED TO BE A STRONG ARGUMENT WITH SINNERS WHY THEY SHOULD COME AT ONCE. To the sinner, then, do I address
+THE PERFECT READINESS OF THE FEAST OF DIVINE MERCY IS EVIDENTLY INTENDED TO BE a STRONG ARGUMENT WITH SINNERS WHY THEY SHOULD COME AT ONCE. To the sinner, then, do I address
 
 myself. Soul, do you desire eternal life? Is there within your spirit a hungering and a thirsting after such things as may satisfy Your spirit and make you live forever? Then hearken while the Master's servant gives you the invitation. "Come, for all things are ready"--all, not some--but all! There is nothing that you can need between here and Heaven but what is provided in Jesus Christ--in His Person and in His work.
 
@@ -86,7 +86,7 @@ Notice that all things were ready for those who were bid. They did not come, but
 
 But we believe it to be our duty and our privilege to invite the whole mass of mankind! And even those who will not come--if we knew they would not come we should not, therefore, exempt them from the bidding--for the servant was sent to bid them to the wedding who, nevertheless, "all with one consent began to make excuse." They were invited and earnestly invited, and all things were ready, though they came not. O my dear Hearers, if you do not come to Christ you will perish! But you will never be able to say you were not invited and that there was nothing ready for you! No, there stands the feast all spread and you are sincerely and honestly bid to come. God grant that you may come and come at once!
 
-Now I am going to pass on to my fourth and last point, which may God bless to the comfort of some seeking soul. THIS TEXT DISPOSES OF A GREAT DEAL OF TALK ABOUT THE SINNER'S READINESS OR UNREADINESS,
+Now I am going to pass on to my fourth and last point, which may God bless to the comfort of some seeking soul. THIS TEXT DISPOSES OF a GREAT DEAL OF TALK ABOUT THE SINNER's READINESS OR UNREADINESS,
 
 because, if the reason why a sinner is to come is because all things are ready, then it is idle for him to say, "But I am not ready." It is clear that all the readiness required on man's part is a willingness to come and receive the blessing which God had provided. There is nothing else necessary. If men are willing to come, they may come. They will come when the Lord has been pleased to touch their wills so that man has a desire towards Christ. Where the heart really hungers and thirsts after righteousness, that is all the readiness which is needed.
 

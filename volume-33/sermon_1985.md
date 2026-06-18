@@ -11,7 +11,7 @@ Note that the Lord not only makes an enquiry of these people, but He takes note 
 
 To come at once to the text without further preface, I shall notice, first, what is this condition in which some of God's people are found? They walk in darkness and have no light. Secondly, what is there to trust to when a man is in such a condition? All is dark and there is no light--and he is then bid to trust. What is there to trust to? Thirdly, why should we thus trust? What is the warrant for trusting at such a time? And fourthly, what will come of such a trust? If a man really exhibits confidence in God when he has no light, what will be the end of his confidence?
 
-First, then, WHAT IS THIS CONDITION INTO WHICH A CHILD OF GOD MAY COME? The person described is one that fears the Lord and obeys the voice of His servant, yet "walks in darkness, and has no light."
+First, then, WHAT IS THIS CONDITION INTO WHICH a CHILD OF GOD MAY COME? The person described is one that fears the Lord and obeys the voice of His servant, yet "walks in darkness, and has no light."
 
 To many who know nothing of Christian experience, this condition might seem to be a surprising one. Shall the child of light walk in darkness? The normal condition of a child of God is to walk in the light, as God is in the light, and to have fellowship with Him. How comes he, then, to have no light? He that believes in the Lord Jesus Christ has passed from darkness to light and he shall never come into condemnation--how, then, does he come into darkness? In the darkness of sin and ignorance we no longer walk, but with the darkness of trouble and perplexity we are sometimes surrounded.
 
@@ -51,7 +51,7 @@ Yet you notice in the text that this does not absolve us from daily duty. The te
 
 But enough of this. I have given you a picture which some of you will recognize as a portrait of yourselves. Personally I have often passed through this dark valley--there is a bog on the right hand and a deep gulf on the left--and all along the murky way, the howling of the dogs of Hell and the hissing of evil spirits are never out of one's ears! And, worst of all, the whispers of the fiend make you think his vile suggestions to be your own thoughts. The sword in the hand becomes useless, for in the dark you do not know where to strike. No weapon remains except that of All-Prayer. To walk on all through the night and not to see a step before you is anxious work--and yet thousands of God's pilgrims who are now yonder among the shining ones, praising and blessing His holy name--have traversed this dreadful road. Lord, help us when we, also, penetrate its blackness!
 
-But now, secondly, I am going to turn to a practical part of this matter--WHAT IS THERE TO TRUST TO WHEN YOU ARE IN SUCH A CONDITION AS THAT? What is there to trust to? Well, says the text, "Let him trust in the name of the Lord," or, as it should be read, "in the name of Jehovah."
+But now, secondly, I am going to turn to a practical part of this matter--WHAT IS THERE TO TRUST TO WHEN YOU ARE IN SUCH a CONDITION AS THAT? What is there to trust to? Well, says the text, "Let him trust in the name of the Lord," or, as it should be read, "in the name of Jehovah."
 
 What is there to trust in the name of Jehovah? It is, "I Am," and signifies His existence! This is a fine foundation for trust! Your friend is dead, but Jehovah is still living as the "I AM." Those who could have succored you have forsaken you, but He says, "I am with you." Trust in Him, for He Is and always will be. He says to you, "Be still and know that I
 

@@ -4,7 +4,7 @@
 
 THIS was the Word of Jehovah to His ancient people. He remembered the faithfulness and earnestness of Israel when the nation was first born and came out of Egypt under Moses--and went after God into "the waste howling wilderness." Alas, in later years, they would not obey, or trust, or rejoice in God! He therefore tells the Prophet Jeremiah to say to them that He remembers their better days--they seemed to have forgotten, "but," says the Lord--"I have not forgotten. 'I remember you, the kindness of your youth, the love of your espousals.'"
 
-Using the text practically for our own profit, I make this first observation, that GOD REMEMBERS WITH GRACE THE BEST THINGS OF HIS PEOPLE'S EARLY DAYS.
+Using the text practically for our own profit, I make this first observation, that GOD REMEMBERS WITH GRACE THE BEST THINGS OF HIS PEOPLE's EARLY DAYS.
 
 Some of us were converted to God when we were very young and we look back with pleasure upon our early days. But, whether we look back upon them with pleasure or not, God does, and He says, "I remember you, the kindness of your youth, the love of your espousals." Why does God remember and prize so highly the early piety of His people, their first faith, their first love, their first zeal?
 
@@ -40,7 +40,7 @@ Perhaps I speak to some of you who, when you became Christians, had to give up y
 
 Now, whatever you may have suffered in the days gone by, the Lord says, "I remember you, the kindness of your youth, the love of your espousals, when you went after Me in the wilderness, in a land that was not sown." God has a very lively recollection of the simple trust of His people when they began their Christian career, of their child-like confidence in Him, of their intensely earnest prayers, of their delight in His worship and of their readiness for His service! It is a thousand pities that this bright experience should ever fade, but whether it fades or not, God says, "I remember it."
 
-So now, secondly, I want to show you that GOD REMEMBERS, WITH A GRACIOUS PURPOSE, THE BEST
+So now, secondly, I want to show you that GOD REMEMBERS, WITH a GRACIOUS PURPOSE, THE BEST
 
 THINGS OF OUR EARLY DAYS.
 

@@ -47,7 +47,7 @@ The King tells us the real reason why they would not come--they were not worthy.
 
 The most mournful spectacle in the world is a heart which refuses the mercy of God. Objection is sometimes made to the doctrine of total depravity. I do not know what adjective can be too strong to describe human depravity when I perceive that it refuses God under His loveliest aspect--God in the greatness of His love, God sparing not His own Son. If men turn away from God in anger I can understand it. If men turn aside from God in justice I can understand it. But when they so hate God that they will not even have His salvation--when they refuse pardon through the precious blood of Christ, when they will sooner be damned than reconciled to God--this shows that their heart is desperately wicked. The Cross rejected is the clearest proof of the heart depraved. There I leave this mournful subject and go a step further. Certainly it did seem as if the wedding would not be furnished with guests.
 
-Secondly, IT WAS A MOURNFUL PROSPECT. Imagine that there had been no guests at the wedding feast--
+Secondly, IT WAS a MOURNFUL PROSPECT. Imagine that there had been no guests at the wedding feast--
 
 what then?
 
@@ -91,7 +91,7 @@ Beloved, all the hope of our ministry lies in the Spirit of God operating upon t
 
 And next, let us be assured that the Spirit of God is with us and let us then go forth with all boldness. To the street corner, the cottage, the lodging house, the wayside--let us go forth and publish abroad the invitation of the great King--"My oxen and My fatlings are killed and all things are ready: come unto the marriage." Thus you have seen the outward means by which the Holy Spirit brings men to Jesus and the wedding is furnished with guests.
 
-I close by noticing, in the fourth place, that IN THE END THE FEAST WAS A GLORIOUS SUCCESS. "The
+I close by noticing, in the fourth place, that IN THE END THE FEAST WAS a GLORIOUS SUCCESS. "The
 
 wedding was furnished with guests." Guests are a part of the furniture of a wedding feast. You may pile on your gold and silver plates, hang up your banners, load your tables and sound your music--but if you have no guests, the feast is a failure. It is our solemn conviction that the Lord our God has never failed yet and that He never will fail. We believe that the Lord's eternal purpose will stand and that He will do all His pleasure. We believe in no blind fate, but we trust in a predestination which is full of eyes and which accomplishes its purpose to the least jot and tittle.
 

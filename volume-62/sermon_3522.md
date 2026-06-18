@@ -6,7 +6,7 @@ MANY of the Rabbis, and I think with good reason, refer this to the Messiah. We 
 
 So then, as a subject for our present meditation, we take the fact that Jesus Christ will be as a sanctuary. He will be as a sanctuary in three respects, upon each of which we shall speak with all possible simplicity. First, Jesus will be as a sanctuary--
 
-IN WHICH WE, AS POOR GUILTY SINNERS, SHALL FIND A SHELTER.
+IN WHICH WE, AS POOR GUILTY SINNERS, SHALL FIND a SHELTER.
 
 A sanctuary was a place where a criminal who dared not appear before the tribunals of his country found a shelter. Such sanctuaries once abounded in England. Certain shrines which were considered sacred had this privilege or this curse--I do not know which it was--accorded to them--that whenever a criminal had fled to them, he was beyond the arm of justice. There was such a sanctuary in Westminster and another not far from this Tabernacle, but they were ultimately abolished. Among the Jews the privilege of the sanctuary was kept in proper check, yet it was not forbidden. Certain cities were set apart to which man-slayers, who had accidentally slain anyone, might flee for security. We find also that among the Jews, some hoped to find shelter in the precincts of the Temple. Joab went to the altar and laid hold upon the horns, and thought himself secure, though when Solomon sent and bade him come outside, he said, "No, but I will die here," so that the altar in those days was nota sanctuary. It was not until later times that it was unjustifiable to kill men when they had entered into holy places, and hence holy places and sanctuaries became places of refuge.
 
@@ -52,7 +52,7 @@ This He gives you,
 
 'Tis His Spirit's rising beam." Right joyful should I be if, by the Holy Spirit's power, I might persuade some of you to flee to Jesus and depend alone upon Him. This would be the happiest day of your lives, the beginning of a new life! Well do I recollect when I looked to my Lord and Master and found salvation in Him. Never can I forget the happy day when Jesus took my sins away. Most affectionately and earnestly do I entreat you to look to Him--and so shall your eyes be enlightened. Depend on a Crucified Savior and you shall find peace and comfort to your souls. Secondly, Jesus Christ is a Sanctuary in the sense of--
 
-A PLACE OF WORSHIP.
+a PLACE OF WORSHIP.
 
 We often hear people talk, nowadays, of exclusively holy places. They will sometimes call some edifice, be it a parish church or a private chapel, a sanctuary. I take it that this is a mistaken use of the word if used exclusively. No one place is a bit more sacred than another! Those who would draw near to the Lord should remember that--
 
@@ -76,7 +76,7 @@ I am very, very anxious that every Believer here should draw a ring, as it were,
 
 heart, and soul, and strength, near to the Throne of God, worshipping the Most High! Our third point is that Jesus is a Sanctuary in the sense of--
 
-A DWELLING PLACE.
+a DWELLING PLACE.
 
 This is an unusual sense, perhaps, but it is a Scriptural one. "He that dwells in the secret place of the Most High shall abide under the shadow of the Almighty. In the secret of His tabernacle shall He hide me. He shall set me up upon the rock." The priest under the old Law only went into the Holy of Holies once a year, but every priest unto God--and you are all such who have believed--every priest unto God goes in and never goes out again--at least, he never needs to go out! He may abide always in the Holy Place--a place where in the morning he sings his waking song--and a place wherein at night he sups with Christ.
 

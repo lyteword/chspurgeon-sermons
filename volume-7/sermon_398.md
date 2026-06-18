@@ -7,7 +7,7 @@ PETER HAD earnestly exhorted the scattered saints to love each other "with a pur
 
 In the text there are three points which, I think, will well repay our very serious attention. The apostle evidently speaks of two lives, the one, the life which is natural, born, matured, and perfected only by the flesh; the other, the life which is spiritual, born of the spirit, in antagonism with the flesh, surviving it and triumphantly rising to celestial glory. Now, in speaking of these two lives, the apostle brings out, first of all, a comparison and a contrast between the two births, for each life hath its own birth. Then he brings out a contrast between the manifest existence of the two lives; and then lastly, between the glory of the two lives, for each life hath its glory, but the glory of the spiritual life far excelleth the glory of the natural.
 
-First, then, the apostle Peter draws A COMPARISON AND CONTRAST BETWEEN THE TWO BIRTHS WHICH ARE THE DOORWAYS OF THE TWO LIVES.
+First, then, the apostle Peter draws a COMPARISON AND CONTRAST BETWEEN THE TWO BIRTHS WHICH ARE THE DOORWAYS OF THE TWO LIVES.
 
 First, we have said that every life is prefaced by rib birth. It is so naturally--we are born; it is so spiritually--we are born again. Except a man be born he cannot enter into the kingdom of nature; except a man be born again he cannot enter into the kingdom of heaven. Birth is the lowly gateway by which we enter into life, and the lofty portal by which we are admitted into the kingdom of heaven.
 

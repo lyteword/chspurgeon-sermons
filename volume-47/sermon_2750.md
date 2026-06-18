@@ -51,7 +51,7 @@ Thus may past experiences be doors of hope--but do not depend upon them, for Chr
 
 So far the matter has been simple enough, but now, in the third place, the Valley of Achor, you will all recollect as a matter of history, was the place where Achan was stoned. All the spoils of Jericho were dedicated to the Lord, but Achan had taken a goodly Babylonian garment and a wedge of gold, and had hidden them in his tent. He was discovered, by God's Providence, and was brought out and stoned to death and burned in the Valley of Achor and, therefore, it is called by that name to this day.
 
-Now, do you not see how this may be turned to spiritual account? THE PLACE WHERE THE CHRISTIAN MORTIFIES HIS SIN SHALL BECOME TO HIM A VALLEY OF HOPE. You and I have our Achans in the camp. I have
+Now, do you not see how this may be turned to spiritual account? THE PLACE WHERE THE CHRISTIAN MORTIFIES HIS SIN SHALL BECOME TO HIM a VALLEY OF HOPE. You and I have our Achans in the camp. I have
 
 already had to stone a host of them and I lament that the evil family is not yet cut in pieces, but there still remain some of the sons of Achan. Would to God I could burn them all! There was a time, my Brother, my Sister, when your Achan was so strong that you would not give heed to that Gospel which lays the sinner low and gives all the glory to God. But you were compelled to bring it out and you did--you cast it out, you stoned it, you burned it with fire--and now you are to be numbered among the humble in Zion. But this day you are still distressed and you say, "How is it I am still afflicted? I have been trying to do good. I can do but little for my Master. Truly, there must still be some accursed thing in my camp."
 

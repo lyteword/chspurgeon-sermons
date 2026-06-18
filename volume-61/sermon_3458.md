@@ -24,7 +24,7 @@ Once more. By very nature, man is so obnoxious to the wrath of God that it is im
 
 Now what a very solemn Truth of God this is! Do not think that it is mystatement. It is really the teaching of God's Word, that the unregenerate man is an unclean man and cannot be acceptable to God. "He that believes not is condemned already, because he has not believed on the Son of God." The unrenewed man is corrupt! He is dead in trespasses and sins! Now this is meant for some of you. It is meant for some of you who are very excellent and amiable people, and very moral. It is meant not for the vilest of the vile, alone, but for all classes and conditions of men--for the professedly religious people, too. Unless your hearts are right before the Lord and you have believed in Jesus, you cannot, you never can, strive as you will, be received before the Most High any more than the donkey could be acceptable upon the altar of God! But now we advance to the second Truth of God which is in the text, namely, that--
 
-THE SERVICE OF MAN, WHICH GOD CANNOT ACCEPT, IS, NEVERTHELESS, GOD'S DUE.
+THE SERVICE OF MAN, WHICH GOD CANNOT ACCEPT, IS, NEVERTHELESS, GOD's DUE.
 
 God could not receive the donkey because it was unclean, but still it belonged to God for all that. God's claim extended over all the first-born, clean or unclean, and that claim must be maintained. Sinner, you cannot serve God--you are too sinful! Your heart too evil--your service too impure! But still, God's claim upon you for a perfectly holy life has not ceased. It has not lost its power, nor bated one jot or tittle of its just and righteous force. It has been laid down by some theologians as being almost a self-evident Truth that God will require no more of a man than he can do--but this, by every thoughtful mind--will be soon discovered to be a self-evident lie instead of being true--for God's Law is not
 
@@ -34,7 +34,7 @@ Take another instance. There are some men who have become such thieves that we s
 
 But I must pass on. The third thing in the text is this, that the difficulty in hand was met in this way--the donkey must be God's, yet it cannot be, for it is too impure for Him to receive! What then?
 
-IT MUST BE REDEEMED BY A SUBSTITUTE.
+IT MUST BE REDEEMED BY a SUBSTITUTE.
 
 "Every first-born of a donkey you shall redeem with a lamb." Oh, the glorious Gospel comes out here in much of its effulgence in connection with the redemption of men! The Jew would, perhaps, deliberate awhile. "Well," he might say, "I fancy I should like to have this donkey grown up, for I need it as a beast of burden. But here is a lamb that must be killed in its place, and he is the more valuable of the two." I fancy I can hear a consultation held in the family as to what should be done. It may be that in some cases the lamb would be the less precious of the two. However what may be, it is agreed at the last that the lamb shall die and that the donkey shall live.
 

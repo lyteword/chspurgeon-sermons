@@ -78,7 +78,7 @@ Ah, dear Friends, if we were to go into some people's houses where God is not kn
 
 Christian, speaking well of God's name and not ashamed in any company to avow that you are a soldier of the Cross, a follower of the Lamb! God give you more and more of this spirit in all your households! The whole Church shall be blessed when every family is thus made happy in the Lord and in His great salvation.
 
-I close by briefly noticing that this joy of holy households IS A JOY CONCERNING WHAT THE LORD HAS
+I close by briefly noticing that this joy of holy households IS a JOY CONCERNING WHAT THE LORD HAS
 
 DONE.
 

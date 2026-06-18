@@ -6,7 +6,7 @@ IT has frequently happened that good men in times of great trial have asked God 
 
 Now we will not linger over any preliminary reflections. Our text is rather long, and our time this evening is very short. Let us draw your attention, in the first place, to the fact that--
 
-GOD'S GLORY EVIDENTLY LIES IN HIS GOODNESS.
+GOD's GLORY EVIDENTLY LIES IN HIS GOODNESS.
 
 You observe that when Moses said, "I beseech You, show me Your Glory," the answer given him was this, "I will make all My goodness pass before you." So then, Beloved, if we could actually see the Glory of the Lord, then the Infinite graciousness of His thoughts, His words and His deeds, all concentrated in one noontide effulgence and all beaming forth with ineffable brightness, would break on our vision! But, of course, it is not a Glory to be seen with mortal eyes, for God is a Spirit and, therefore, He is not to be discerned by our weak senses, or to be understood by our gross materialism. Still, I put it thus--could God be beheld by the mind of man and His perfections unfolded to our creature apprehensions, we would perceive that the chief splendor of His Majesty lay in His Infinite Benevolence! God is Love. This is the prominent point of the Divine Character. Though all excellent qualities beyond measure or degree, surpassing thought or reckoning, could be found in Him, yet, like the blended hues of many colors in the rainbow, the whole might be summed up in such words as these, "Your goodness."
 

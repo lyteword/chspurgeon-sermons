@@ -84,7 +84,7 @@ As Nicodemus gave so freely to the dead Christ, how generously ought you and I t
 
 Thus, you see, that all that is needed for Christ's burial is there already! So I leave that part of our subject and go on to the next.
 
-Another requisite is A PLACE WHEREIN TO BURY THE BODY. We have the body, Pilate has given us that. We have the spices and the fine linen and we have the two men ready to bury the body. Now we need a tomb.
+Another requisite is a PLACE WHEREIN TO BURY THE BODY. We have the body, Pilate has given us that. We have the spices and the fine linen and we have the two men ready to bury the body. Now we need a tomb.
 
 It would be very convenient and also very important, if we could get a sepulcher near at hand because, you see, if the body of Christ had to be carried a long way to be buried, the Jews would say, "Ah, they switched it on the road! They took it a mile or two out of the city and the Christ who rose from the dead is not the Christ that was buried." But here, just at the bottom of this rocky hill which is called Golgotha, there is a garden, and in that garden there is a tomb. Hark the Providence of God in this matter, for that tomb belongs to Joseph, and there the Savior's body is lovingly laid! He did not and He could not lack a tomb when it was required! When the time came for Him to be buried, the sepulcher was there already prepared, hewn out of the rock!
 

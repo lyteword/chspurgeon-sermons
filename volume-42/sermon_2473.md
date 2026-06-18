@@ -62,7 +62,7 @@ This passage needs no words of mine to explain it. Notice how the Apostle begins
 
 I wish I knew how to do or say anything by which I could make you realize this scene that John saw in his vision. The Lord Jesus Christ went up to Heaven from the top of Olivet in His own proper body--and He shall so come in like manner as He was taken up into Heaven--but He shall come, not the lowly Man of Sorrows, but as Judge of All, seated upon a great white throne! And John says, "I saw it." As we sang, a few minutes ago--
 
-"The Lord shall come! But not the same As once in lowliness He came-- A silent lamb before His foes, A weary Man, and full of woes. The Lord shall come! A dreadful form, With rainbow wreath and robes of storm. On cherub wings, and wings of wind, Appointed Judge of all mankind."
+"The Lord shall come! But not the same As once in lowliness He came-- a silent lamb before His foes, a weary Man, and full of woes. The Lord shall come! A dreadful form, With rainbow wreath and robes of storm. On cherub wings, and wings of wind, Appointed Judge of all mankind."
 
 I wish, dear Friends, that even in your dreams you might see this sight, for, though I have no trust in dreams by themselves, yet any realization of this great Truth of God will be better than the mere hearing of it.
 

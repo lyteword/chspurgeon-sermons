@@ -14,7 +14,7 @@ That the continual prayers and efforts of Samuel were crowned with success shoul
 
 I hope to be able to make this plain by showing you, first, that these people were in a very hopeful condition. That, secondly, they were called upon to take very decided steps. And, thirdly, that they were helped to do so by faith. True, it was faith in Samuel--and you get much more help if you have faith in a greater than Samuel who is still here among us, even our Lord and Savior, Jesus Christ!
 
-First, then, THESE PEOPLE WERE IN A VERY HOPEFUL CONDITION. "All the house of Israel lamented after the Lord." What does it mean?
+First, then, THESE PEOPLE WERE IN a VERY HOPEFUL CONDITION. "All the house of Israel lamented after the Lord." What does it mean?
 
 It means, first, that they were greatly oppressed. Their goods were taken from them. They were beaten. They saw their children slain. They were the slaves of the Philistines and, therefore, they began to say, "Why should we not return to our God? When we were true to Jehovah, there were no Philistines to trouble us. They were put to rout when we served God. It was better with us then, than now. Samson, when the Spirit of the Lord came mightily upon him, slew a thousand of them with the jawbone of an ass. Oh, for a day of Samson back again! Oh, for a day of God back again!" Their oppressions made them think of God.
 

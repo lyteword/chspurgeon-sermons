@@ -2,7 +2,7 @@
 
 "Now our Lord Jesus Christ Himself, and God, even our Father, who has loved us, and has given us everlasting consolation and good hope through Grace, comfort your hearts, and establish you in every good word and work." 2 Thessalonians 2:16,17.
 
-[Other Sermons by Mr. Spurgeon, upon the same text, are Sermons, #1542, Volume 26--FREE GRACE A MOTIVE FOR FREE GIVING;
+[Other Sermons by Mr. Spurgeon, upon the same text, are Sermons, #1542, Volume 26--FREE GRACE a MOTIVE FOR FREE GIVING;
 
 #2363, Volume 40--COMFORT AND CONSTANCY and #2991, Volume 52--WHAT WE HAVE, AND ARE TO HAVE.]
 
@@ -12,7 +12,7 @@ The blessing invoked in the text is very comprehensive, but although there is mu
 
 With as much brevity as possible, I shall first speak on that part of the text which contains two positive facts. And then upon that part of it which expresses two holy desires.
 
-The sixteenth verse contains A VERY CLEAR STATEMENT OF THE TWO POSITIVE FACTS.
+The sixteenth verse contains a VERY CLEAR STATEMENT OF THE TWO POSITIVE FACTS.
 
 Paul, writing concerning believers in Christ at Thessalonica and everywhere else, says, "Now our Lord Jesus Christ Himself, and God, even our Father, who has loved us and has given us everlasting consolation and good hope through Grace." From this we gather that every true Believer--everyone who rests upon Christ and is saved through the effectual working of the Holy Spirit--is, at the present moment, first of all, the object of the love of God--"who has loved us." So, my Friends, Paul does not speak of God as though we were strangers to Him and He is a stranger to us, but he says, "who has loved us." Concerning this matter, he does not speak as one who was in doubt--with mingled hope and fear-- but he says positively, "Our Lord Jesus Christ, Himself, and God, even our Father, who has l oved us." He is quite sure of it! He is certain that these people to whom he is writing, and all believers in Jesus, are the objects of Divine Love!
 

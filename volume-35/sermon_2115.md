@@ -9,7 +9,7 @@ In the last verse we have the word "therefore," which shows that the speakers ha
 
 I trust it will not be needful to urge us to conversion by sufferings as terrible. "Be you not as the horse, or as the mule, which have no understanding." Come willingly, since the argument for coming is clear and cogent. I should like you to go this morning mentally through the process by which the Israelites passed practically when they came to the gracious conclusion, "Therefore we will wait upon You." Let us begin at once with the argument, praying God to send it home to every heart by His good Spirit, that we may reach the desired conclusion.
 
-First, consider that MAN IS A VERY DEPENDENT CREATURE. He is, in some respects, the most dependent creature that God has made. For the range of his wants is very wide, and at a thousand points he is dependent upon something outside of himself. All creation exists by the will of the Lord. And if His will should cease to send forth conserving power to maintain the created things in existence, they would all cease to be. This great world--the sun, the moon, the stars--would all dissolve. And, as a
+First, consider that MAN IS a VERY DEPENDENT CREATURE. He is, in some respects, the most dependent creature that God has made. For the range of his wants is very wide, and at a thousand points he is dependent upon something outside of himself. All creation exists by the will of the Lord. And if His will should cease to send forth conserving power to maintain the created things in existence, they would all cease to be. This great world--the sun, the moon, the stars--would all dissolve. And, as a
 
 moment's foam dissolves into the wave that bears it, they would be lost forever.
 
@@ -106,7 +106,7 @@ But when we are in despair, then all nature echoes our misery. "The ground is di
 
 If you have drawn down the blinds of your heart and your soul sits in the dark, then the heavens are darkened, too. Or if not, the very brightness of nature seems another form of blackness to you--and her joys mock your griefs and cast salt into your wounds. When men are cast down and their face is covered, then nature covers her face, too, and all the universe is sad. Alas, for the day when the hand of the Lord is sore on the soul! Then our moisture is turned into the drought of summer.
 
-I have brought you so far in the argument. Now I must rush on to the conclusion. Man is a very dependent creature. He may be reduced to dire distress. And thirdly, MAN'S ONLY SURE RESORT IS HIS GOD. "God is a refuge for
+I have brought you so far in the argument. Now I must rush on to the conclusion. Man is a very dependent creature. He may be reduced to dire distress. And thirdly, MAN's ONLY SURE RESORT IS HIS GOD. "God is a refuge for
 
 us."
 

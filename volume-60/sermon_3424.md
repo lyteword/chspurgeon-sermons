@@ -30,7 +30,7 @@ When our Lord says, "My flesh is meat indeed," He clearly distinguishes it from 
 
 I hope I have made this clear. It is thinking upon Jesus, trusting in Jesus that is the eating Jesus, Himself, being the food. Those who trust in Him and rest in Him have got the best of soul meat. They have got meat indeed!
 
-CHRIST'S BLOOD IS DRINK INDEED.
+CHRIST's BLOOD IS DRINK INDEED.
 
 Like drink to the body, the blood of Jesus, that is to say, the merits of His atoning Sacrifice sustains. The body is not to be built up without some liquid--the system needs it. The soul is not to be sustained without considering and resting on the substitutionary suffering of Jesus. That Jesus died in my place and suffered for my sin is to stimulate my hope, my comfort, my joy--in a word, my whole soul--just as drink invigorates the physical system.
 

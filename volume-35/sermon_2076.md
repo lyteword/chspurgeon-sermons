@@ -91,7 +91,7 @@ Meanwhile, it was by their faith that their teaching was made so clear and forci
 
 When holy constancy is to the front under reproach and ridicule, the Gospel is sounded as with a bugle note and men are compelled to hear it. Brothers and Sisters, you possess this confidence. Have it more and more! May we have among us remarkable conversions, unquestionable character, earnest effort and intense faith. And these will be to us all the trumpet that we need. We need not blow our own trumpets nor borrow the whistles of politics or amusement. But the Word of the Lord will by these sound forth all around us. I cannot keep you long upon these points--my aim is not to fill up the time but to fill you with an eager desire to sound out the Truth of God.
 
-Oh that the Holy Spirit would put fire into my sermon--that its live coals may touch your hearts while I say that THERE IS NEED, AT THE PRESENT TIME, FOR A TRUMPET BLAST OF THIS KIND.
+Oh that the Holy Spirit would put fire into my sermon--that its live coals may touch your hearts while I say that THERE IS NEED, AT THE PRESENT TIME, FOR a TRUMPET BLAST OF THIS KIND.
 
 Brethren, the Word of the Lord ought to be sounded out because it is the Word of God. If it is the word of man let him spread it as he can. We are not concerned to help him. The word of man comes from a dying source and it will return to it. But the Word of the Lord endures forever--
 

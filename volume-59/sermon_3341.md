@@ -12,7 +12,7 @@ Let us now come to the consideration of this second of the three great blessings
 
 that--
 
-OUR LOVING LORD BRINGS HIS MOURNERS TO SIT AT A FEAST.
+OUR LOVING LORD BRINGS HIS MOURNERS TO SIT AT a FEAST.
 
 This is clearly intended, for oil was largely used by Orientals upon festive occasions. The oil which makes man's face to shine was associated with the bread which strengthens man's heart, and the wine which makes glad the heart of man,
 
@@ -28,7 +28,7 @@ but this we know--the Lord rests in His love. He smells a sweet savor in the Per
 
 We cannot linger, but must pass to the next observation, which is this--
 
-BEING AT A FEAST, IT IS BECOMING THAT WE SHOULD HAVE PRESENT JOY.
+BEING AT a FEAST, IT IS BECOMING THAT WE SHOULD HAVE PRESENT JOY.
 
 Hence the text speaks of "the oil of joy for mourning"--the mourning was present enough, the joy should be equally so. At feasts, the perfume poured upon the heads of the guests was a seemly and appropriate thing. It suited the feast, it made the guests feel at home and it gave refreshment all around as the delicious perfume sweetened the air. Come, Beloved, we have at this moment reason for joy--let us use it! Let every child of God feel that he has the oil of joy in the fact that he possesses present blessings. Our best things lie on the other side of the Jordan--we are looking for our full bliss at the coming of our Lord, but we have much in the present. The oil of joy is on our faces now, our locks are even now bedewed with the sacred anointing--and it will be well for us to turn our thoughts towards that Truth of God!
 
@@ -62,7 +62,7 @@ The Spirit also, very graciously, sanctifies us, and this is joy. It is a part o
 
 Moreover, the Holy Spirit graciously quickens His people and what a wonderful effect quickening has upon our joy! Whenever we are slothful in the things of God, we miss the delights of healthy spiritual life and, before long we mourn. But when the Holy Spirit comes and makes us feel lively and energetic and sensitive, then we begin, also, to rejoice in the Lord and the power of His might within us works in us a leaping of holy joy! Those who not only have life, but have it more abundantly, are a highly favored people and know how to exult in the Lord! Beloved, long for no joy but that which the Holy Spirit gives you! Thank God for the comforts of this life, but do not let them become your idols, as they will be if they become your exceeding joy. Draw from the upper fountains, fill your pitcher at the eternal springs--ask neither for the cinnamon nor camphor of this world's gardens, but let your chief spices be the fruit of the Spirit which are joy and peace through believing! We may now, in the fourth place, remark that--
 
-THE JOY WHICH THE HOLY SPIRIT GIVES US IS A GREAT PRESENT GIFT.
+THE JOY WHICH THE HOLY SPIRIT GIVES US IS a GREAT PRESENT GIFT.
 
 I once heard a person say, very wickedly, indeed, as I thought and still think, that sin could do the Believer no harm. But he added, "Except that it destroys his comfort." I thought, "Well, that is a terrible 'exception,' indeed! That surely is quite enough to fill us with holy fear! If anything robs the Christian of his joy, surely the loss is great enough to set him upon his watch tower!" Yet I fear that many Christians do not consider this. They dream that it can be well with their souls when the joy of the Lord is gone, but, Brothers and Sisters, it is not so! The healthy condition of a child of God is a state of peaceful rest in the Lord. It is amazing how full Scripture is of comfort for mourners because the Lord's objective is that the mourner may be comforted. "Comfort you, comfort you, My people, says your God. Speak comfortably to Jerusalem." Our Lord desired that we might have His joy fulfilled in ourselves and He said, "Let not your hearts be troubled." "Rejoice in the Lord always," said the Apostle and, as if that were not enough, he added, "and again I say, rejoice."
 

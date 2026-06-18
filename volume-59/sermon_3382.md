@@ -46,7 +46,7 @@ The angels love Him, though for them He laid not down His life--and shall men, a
 
 Thus much upon a theme that defies our power to set forth fully. And now, in the second place, the text may be viewed as--
 
-A SOLEMN PURPOSE AND DECREE ON THE PART OF GOD.
+a SOLEMN PURPOSE AND DECREE ON THE PART OF GOD.
 
 Christ shall be made great to the ends of the earth. There are idol-gods that are worshipped by the largest proportion of our race, but the idols He shall utterly abolish! The false prophets have more followers on earth than Christ has. There are more Muslims than Christians of all kinds. But the crescent of Mohamed must wane. The Papacy has still a firm hold upon the minds of millions, but, like a millstone which is hurled into the flood to rise no more, so must the antiChrist of Rome be utterly cast away! Everything that stands in the place of Christ must be broken into a thousand shivers, for He must reign until He has put all His enemies under His feet! Brothers and Sisters, the very signs of the times, as well as the Word of God, lead us to the comfortable belief that there should be a wider enlightenment of the human mind. It may be, certainly it may be, that the Lord will speedily come, but it does not seem to me at all likely that He will. We are to live anticipating His coming, as servants who know they will have to give an account when He does come. That is the practical bearing of the Doctrine upon our life, but there are many prophecies yet to be fulfilled which seem to show that He is not coming just now. I believe that there will be a gradual enlightenment of the human race. I see but little of it at present, but, still, He must be great unto the ends of the earth! Hard hearts will melt before the preaching of
 
@@ -56,7 +56,7 @@ We would not be surprised if news should come, long before these heads of ours s
 
 I want, now, in the third place, to ask Christians here--
 
-WHETHER, AS THIS IS GOD'S DECREE, IT HAS NOT OFTEN ALSO BEEN THE EXPRESSION OF OUR
+WHETHER, AS THIS IS GOD's DECREE, IT HAS NOT OFTEN ALSO BEEN THE EXPRESSION OF OUR
 
 HEARTS?
 

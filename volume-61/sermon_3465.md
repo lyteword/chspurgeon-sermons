@@ -8,7 +8,7 @@ With that by way of preface, we shall now come to the text at once, taking the w
 
 The Father says of the Son that, "He shall see of the travail of His soul and shall be satisfied." The first point of consideration, very briefly, is--
 
-OUR LORD'S PAINS AND SUFFERINGS, BY WHICH HE MADE AN ATONEMENT FOR OUR SINS.
+OUR LORD's PAINS AND SUFFERINGS, BY WHICH HE MADE AN ATONEMENT FOR OUR SINS.
 
 These are described in the text as "the travail of His soul." You know the meaning of the word, "travail." I will not explain it--I will the rather do with it as the painter who drew the picture of Agamemnon and the sacrifice of his daughter, Iphigenia. He painted Agamemnon, but he threw a veil over his face, for he felt he could not express the grief that was in the father's face and, therefore, the face was delicately concealed. Let us do the same. It may suffice for us to say that whenever in Holy Scripture a forcible word is needed to express fear, overwhelming pain, distraction and confusion, the word, "travail," is used. For instance, when the kings looked upon Mount Zion and saw how safe it was from their attacks, "fear took hold upon them, there, and pain as of a woman in travail." And in the description which is given by the Prophet of the men of Babylon when their city was overthrown--he represents them as being "full of pain as if they were in travail." It is an unutterable amount of inward grief and trouble and a swelling of the inner man until it seems as if the whole fabric of nature, being delicately convulsed, would be utterly broken up to its ruin.
 

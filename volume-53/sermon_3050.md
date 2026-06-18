@@ -4,7 +4,7 @@
 
 GOD came down from Heaven but once to be united with human flesh. On what errand did He come and who were the objectives of it? What messenger was sent on that errand? What method was pursued by Him? With what success was it attended?Our text gives us the information--"The Son of Man is come to seek and to save that which was lost." Let us speak briefly upon these four points.
 
-First, AS TO THE OBJECTIVE OF CHRIST'S ERRAND--"The Son of Man is come to seek and to save that which was lost."
+First, AS TO THE OBJECTIVE OF CHRIST's ERRAND--"The Son of Man is come to seek and to save that which was lost."
 
 That word, "lost," is constantly applied by desponding and despairing persons to themselves. Such people say, "We are lost--we feel that we are lost, wholly lost. There is no hope for us." Herein they betray both their ignorance and their unbelief--their ignorance, for to be lost is nothing so peculiar that they should claim to be heritors of a strange doom since the whole human race is lost! And their unbelief since Christ came especially to seek and to save the lost. Therefore, their being lost is not a ground for despair, but may be construed into a ground of hope! Let us think over that word, "lost," and see in what sense those are lost whom Christ came to save.
 
@@ -30,7 +30,7 @@ Perhaps of all lost souls, the most miserably lost are those whoperish under the
 
 Such are the woe-begone objects of this mission of mercy! Now let us turn to the Messenger of mercy--the Savior of the lost!
 
-If the lost are to be saved, someone of extraordinary character must come to do it. No, IF THEY ARE TO BE SOUGHT AND FOUND, THERE MUST BE A SPECIAL MESSENGER.
+If the lost are to be saved, someone of extraordinary character must come to do it. No, IF THEY ARE TO BE SOUGHT AND FOUND, THERE MUST BE a SPECIAL MESSENGER.
 
 Ordinary men, if they go to seek the lost ones, soon grow weary in the search. Perhaps they have to seek them where pride does not like to go, or to follow them when their perseverance fails and their patience cannot endure. It needs a special One to seek the lost. But when the sinner is found, who can save the found one? No human arm is long enough, no human merits strong enough, no human plea prevalent enough--it is delightful, therefore, to read that "the Son of Man is come to seek and to save that which was lost."
 
@@ -68,7 +68,7 @@ And he made haste, and came down, and received Him joyfully. Solomon said, "Wher
 
 so full of their idle dreams of a temporal sovereignty, they would have perceived that in the calling of Zacchaeus, Christ had manifested His Kingship in the realm of mercy and had there exercised the Sovereignty of His Grace. In order that they might be able the better to understand the meaning of His spiritual Kingdom and not have their eyes so dazzled by the illusions which had so long deceived the Jews, our Lord pointed out to them, in the parable of the pounds, the practical way of preparing for His Second Coming.
 
-12-15. He said therefore, A certain nobleman went into a far country to receive for himself a kingdom, and to return. And he called his ten servants, and delivered them ten pounds, and said unto them, Occupy till I come. But his citizens hated him, and sent a message after him, saying, We will not have this man to reign over us. And it came to pass that when he was returned, having received the kingdom, then he commanded these servants to be called unto him, to whom he had given the money, that he might know how much every man had gained by trading. It would have been well if our translators, instead of using that ugly Latin word, "occupy," had kept to the expression, "trade with it," for here we get the same words again--"that he might know how much every man had gained by trading."
+12-15. He said therefore, a certain nobleman went into a far country to receive for himself a kingdom, and to return. And he called his ten servants, and delivered them ten pounds, and said unto them, Occupy till I come. But his citizens hated him, and sent a message after him, saying, We will not have this man to reign over us. And it came to pass that when he was returned, having received the kingdom, then he commanded these servants to be called unto him, to whom he had given the money, that he might know how much every man had gained by trading. It would have been well if our translators, instead of using that ugly Latin word, "occupy," had kept to the expression, "trade with it," for here we get the same words again--"that he might know how much every man had gained by trading."
 
 Then came the first, saying, Lord, your pound has gained ten pounds. The genuine servant, with due humility, puts himself in the background. It is not he who has "gained ten pounds"--it is his lord's pound that has done it. He is pleased to bring the ten pounds, yet he claims no credit for himself, but says, "Lord, yourpound has gained ten pounds."
 

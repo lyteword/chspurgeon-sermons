@@ -31,7 +31,7 @@ the hill if they could. When He passed through the street, He became the song of
 Moreover, dear Friends, you will find that a broad wall of separation is abundantly good for yourselves. I do not think any Christian in the world will tell you that when he has given way to the world's customs, he has ever been profited thereby. If you can go and find an evening's amusement in a suspicious place and feel profited by it, I am sure you are not a Christian, for, if you were really a Christian, it would pain your conscience and unfit you for more devout exercises of the heart! Ask a fish to spend an hour on dry land and I think, did it comply, the fish would find that it was not much to its benefit, for it would be out of its element--and it will be so with you in communion with sinners. When you are compelled to associate with worldly people in the ordinary course of business, you find much that grates upon the ear, that troubles the heart and annoys the soul. You will be often like righteous Lot, vexed with the conversation of the wicked--and you will say with David--
 
 > Woe's me that I in Mesech am   
-> A sojourner so long!   
+> a sojourner so long!   
 > That I in tabernacles dwell   
 > To Kedar that belong.   
 
@@ -95,7 +95,7 @@ Verses 1-8. In You, O LORD, do I put my trust: let me never be put to confusion.
 
 7-11. I am at a wonder unto many, but You are my strong refuge. Let my mouth be filled with Your praise and with Your honor all the day. Cast me not off in the time of old age; forsake me not when my strength fails. For my enemies speak against me, and they that lay wait for my soul They take counsel together, saying, God has forsaken him: persecute and take him; for there is none to deliver him. Surely that ought to have been the reason for letting him alone! With right-minded persons it would have been so, but the devil and his children are arrant cowards and their argument is, "Persecute and take him: for there is none to deliver him." You might as well expect tenderness in a wolf as anything like bravery and chivalry in a persecutor!
 
-12-14. O God be not far from me: O my God, make haste for my help. Let them be confounded and consumed that are adversaries to my soul; let them be covered with reproach and dishonor that seek my hurt But I will hope continually, and will yet praise You more andmore. [See Sermons #2318, Volume 39--GOD'S PUPIL, GOD'S PREACHER--AN AUTOBIOGRAPHY and #3271, Volume 57--GOD, THE CHILDREN'S TEACHER.] How was he going to do it?
+12-14. O God be not far from me: O my God, make haste for my help. Let them be confounded and consumed that are adversaries to my soul; let them be covered with reproach and dishonor that seek my hurt But I will hope continually, and will yet praise You more andmore. [See Sermons #2318, Volume 39--GOD's PUPIL, GOD's PREACHER--AN AUTOBIOGRAPHY and #3271, Volume 57--GOD, THE CHILDREN's TEACHER.] How was he going to do it?
 
 Already his mouth was filled with God's praise, so, surely he would fill his whole life with it, and his actions which would speak more loudly than his words, would bear daily testimony to the goodness of God.
 
@@ -105,7 +105,7 @@ Already his mouth was filled with God's praise, so, surely he would fill his who
 
 17, And until this time have I declared Your wondrous works. "You made me a preacher, and I have stuck to my word. Until this time have I declared Your wondrous works.'"
 
-18-20. Now also when I am old and gray-headed, O God, forsake me not until I have showed Your strength unto this generation and Your power to everyone that is to come. Your righteousness, also, O God, is very high, who has done great things: O God, who is like unto You? You, who have showed me great and sore troubles, shall quicken me again. "You shall not merely deliver me from my great and sore troubles, but You shall give me more life, You 'Shall quicken me again.'" Divine quickening is the best remedy for a troubled heart.
+18-20. Now also when I am old and gray-headed, O God, forsake me not until I have showed Your strength unto this generation and Your power to everyone that is to come. Your righteousness, also, O God, is very high, who has done great things: O God, who is like unto You? You, who have showed me great and sore troubles, shall quicken me again. "You shall not merely deliver me from my great and sore troubles, but You shall give me more life, You 'shall quicken me again.'" Divine quickening is the best remedy for a troubled heart.
 
 And shall bring me up again from the depths ofthe earth. "Though I seem to be like a man buried in the depth of the earth, You will bring me up again."
 

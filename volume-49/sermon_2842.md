@@ -58,7 +58,7 @@ When did this man go forth to sow? Our farming friends begin to sow very soon af
 
 Thus I have told you what the man did--"A sower went forth to sow."
 
-I must answer briefly the last of the three questions I mentioned, WHAT WAS THIS SOWER'S OBJECTIVE?
+I must answer briefly the last of the three questions I mentioned, WHAT WAS THIS SOWER's OBJECTIVE?
 
 On this occasion, he did not go forth to keep the seed to himself He went forth to throw it to the wind--he threw it away from himself, scattered it far and wide. He did not go out to defend it, but he threw it about, and left it to take its chance. He did not go, at this time, to examine it--to see whether it was good seed, or not. No doubt he had done that before, but he just scattered it. He did not go out to winnow it, and blow away the chaff, or pick out any darner that might be in it. That was all done at home. Now he has nothing to do but to sow it--to sow it--TO SOW IT. And he sows it with all his might. He did not even come to push others out of the field who might be sowing bad seed, but he took occasion, at this particular time, to go forth to sow and to do nothing else--
 

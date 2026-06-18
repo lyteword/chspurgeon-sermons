@@ -41,7 +41,7 @@ Here is a huge world that "lies in the Wicked One" and we need all our time to t
 
 So far concerning the proclamation.
 
-But now, secondly, in our text we find A PRECEPT. It is a very simple one and as short as it is clear. It is given in the proclamation--"Return, you backsliding Israel." Return--be as you were. Come back--repent and do your first works. O Wanderer, return to your God! You have forgotten Him. You have transgressed against Him and you have
+But now, secondly, in our text we find a PRECEPT. It is a very simple one and as short as it is clear. It is given in the proclamation--"Return, you backsliding Israel." Return--be as you were. Come back--repent and do your first works. O Wanderer, return to your God! You have forgotten Him. You have transgressed against Him and you have
 
 grieved Him exceedingly. For these months you have not sought Him, nor called upon Him. You have not trusted Him nor confided in Him. You have not loved Him, nor sought His honor. Return! You can never be right if you stay where you are! All ills attend the man who forsakes His God. Come back--back to the old place of humiliation in His Presence, of confession, of childlike faith, of holy consecration--come back to the happy place which was yours when you were in your best estate! Yes, further back than that--back nearer to God than ever you were before! Return unto your God!
 

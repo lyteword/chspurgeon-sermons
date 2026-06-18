@@ -8,7 +8,7 @@ The subject on which I am about to speak will be very much of the same character
 
 I am not going to try so much to preach a sermon as to talk out freely from my heart some of those delightful experiences which belong to the children of God. I want this service to be a time not of carving meat, but of eating it--not of spreading tables, but of sitting at them and feasting to the full on the bounteous provisions that our Lord has prepared for us.
 
-First, before we actually come to our text, we may notice THREE PRELIMINARY STEPS IN THE SPOUSE'S PROGRESS.
+First, before we actually come to our text, we may notice THREE PRELIMINARY STEPS IN THE SPOUSE's PROGRESS.
 
 The first one is implied in the words, "I love Him." She refers to her Beloved under the title of, "Him whom my soul loves." Can you, dear Friend, give the Lord Jesus that title? If He were to come here just now as He came to the Lake of Galilee and pass along these crowded ranks and say to each one of us, "Do you love Me?" what would be your answer? I am glad that I speak to many whose answer would be, "Lord, You know all things; You know that I love You." I can at this moment think of many reasons why I should love the Christ of Calvary, but I cannot think of one reason why I should notlove Him. If I turn to what I read about Him in this blessed Book, it all makes me love Him. If I recall what I have experienced of His Grace in my heart, it all makes me love Him. When I think of what He is, what He did and what He is doing, and what He will yet do--it all makes me love Him! I am inclined to say to my heart, "Never beat again if you do not beat true to Him." It were better for me that I had never been born than that I should not love One who is, in Himself, so inconceivably lovely--Who is, indeed, perfection's self!
 
@@ -98,7 +98,7 @@ But if, alas, you feel that you cannot speak for Christ, then, Beloved, bring Hi
 
 Now may we find all this to be especially true as we gather around the Table! The Lord be with you all, for His dear name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: SOLOMON'S SONG 2; 3:1-5.
+EXPOSITION BY C. H. SPURGEON: SOLOMON's SONG 2; 3:1-5.
 
 Here we have a dialogue of love between the Lord Jesus and His people.
 

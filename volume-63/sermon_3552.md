@@ -40,7 +40,7 @@ We find how great our weakness is." Like Samson, when his hair was lost, we thin
 
 Make feeble fight and lose our eyes." When houses have been long left without tenants and look deserted, they get up a rumor that they are haunted. And I am sure that when a heart has been left by Christ and there have been no comfortable enjoyments of His Presence, our souls do get haunted with strange, mysterious doubts and fears, vexations and forebodings which you cannot grapple with--horrors that do not take any shape, troubles that ought not to be distressing, alarms that are made up of shadows--dangers that have not any real existence! Oh, that Christ were there! As phantoms would all vanish in the sunlight, so would all these dreary doubts and dismal dilemmas be chased away if Christ returned! Oh, that our poor empty house could once more have its gates flung wide open and that the King would come to dwell in His own palace and make it all bright and lustrous with His Presence! Master, see how sick we are without You! Come, blessed Physician! Jesus, see what wretched beings we are if You withdraw! Come, our Beloved, come to us! Let the sad effects of Your departure quicken Your footsteps and bring You over the mountains of division to the longing spirits of Your fainting children! Passing on, let us enquire--
 
-WHAT COMFORT IS THERE FOR A SOUL WHEN THE BELOVED HAS WITHDRAWN HIMSELF AND
+WHAT COMFORT IS THERE FOR a SOUL WHEN THE BELOVED HAS WITHDRAWN HIMSELF AND
 
 IS GONE?
 
@@ -54,7 +54,7 @@ It is some comfort also, that though He is gone, He is not gone out of earshot. 
 
 And there is this to be said, that He is not so far gone but that at any moment He can return, and His return can at once make our souls like the chariots of Aminnadib! He can rise upon our darkness and that in the next instant if so it pleased Him. He is gone, but He is not altogether gone. He has not taken His love from us, nor shall His loving kindness utterly fail. Still on His hands He bears the marks of His passion for our salvation. Still on His breastplate glitter the jewels that bear our names. He cannot forget us, though He hides Himself! He may be asleep, but it is in the same vessel with us--and near the helm. He may appear to have utterly deserted us, but, "can a woman forget her sucking child that she should not have compassion on the son of her womb?" Yes, they may forget, but Christ shall never forget His saints! But now, lastly--
 
-WHAT IS OUR DUTY IN SUCH A PLIGHT?
+WHAT IS OUR DUTY IN SUCH a PLIGHT?
 
 If he is gone, what then? I answer--our duty is to repent of that which has driven Him away. We must institute a search at once! Bunyan describes the citizens of Mansoul as searching for the cause why Immanuel had withdrawn Himself, and they took Master Carnal-Security and burned his house, and hanged him on a gallows on the site where the house stood, for it was through feasting with him that the Prince was angered, and His subjects lost His Presence. Search yourselves if you are not as happy as you were--if you are not living as near Heaven-Gate as you were, search yourselves.
 

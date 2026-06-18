@@ -94,7 +94,7 @@ Oh, you that have not this bright hope, how is it that you can live? You are goi
 
 But as for you who have a hope, I beseech you hold it fast, live on it, rejoice in it&mdash;
 
-> A hope so much divine,    
+> a hope so much divine,    
 > May trials well endure,    
 > May purge your soul from sense and sin,    
 > As Christ the Lord is pure.    

@@ -12,7 +12,7 @@ prayer. Rest not content with past answers, but go again and double your request
 
 Now, my Friends, since we have spoken a little upon the prayer itself, we shall have to see how it was received at the Throne. It was answered, first, by a gracious manifestation. Secondly, by a gracious concealment. And, thirdly, by a gracious shielding.
 
-First of all, this prayer which Moses offered was heard by God and He gave him A GRACIOUS MANIFESTATION--"And He said, I will make all My goodness pass before you, and I will proclaim the name of the Lord before you; and will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy."
+First of all, this prayer which Moses offered was heard by God and He gave him a GRACIOUS MANIFESTATION--"And He said, I will make all My goodness pass before you, and I will proclaim the name of the Lord before you; and will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy."
 
 I think that when Moses put up this prayer to God, he was very much like Peter, when, on the mountaintop, he knew not what he said. I do think that Moses himself hardly understood the petition that he offered to God. With all the clearness of his ideas, however pure his conception of the Divinity might be, I think that even Moses himself had not adequate views of the Godhead. He did not then know as much of God as he has now learned where he stands before the Throne of the Most High. I believe that Moses knew that "God is a Spirit." I think he must have been sensible that the mind of man can never conceive an adequate idea of the incomprehensible Jehovah. He must have learned that the God of Mount Sinai, the King whose feet glowed like a furnace and made the mountain smoke, could never be grasped by the sense of a mortal. Yet it is likely, with all this knowledge, that the great Lawgiver had a vague and indistinct idea that it might be possible for Divinity to be seen. My Friends, it is hard for creatures encumbered with flesh and blood to gain a just conception of a spirit. We are so linked with the material that the spiritual is above our reach. Surely, then, if a mere spirit is above our comprehension, much more, "the Father of spirits, the Eternal, Immortal, Invisible."
 
@@ -48,7 +48,7 @@ That is the high and awful Doctrine of DIVINE SOVEREIGNTY.
 
 Put the two together, goodness and Sovereignty, and you see God's Glory! If you take Sovereignty alone, you will not understand God. Some people only have an idea of God's Sovereignty and not of His goodness--such are usually gloomy, harsh and ill humored. You must put the two together--that God is good and that God is a Sovereign. You must speak of Sovereign Grace. God is not gracious alone, He is sovereignly gracious! He is not Sovereign alone, but He is graciously Sovereign. That is the true idea of God. When Moses said, "I beseech You, show me Your Glory." God made him see that He was glorious and that His Glory was His Sovereign goodness. Surely, Beloved, we cannot be wrong in loving the Doctrine of free, unmerited, distinguishing Grace when we see it thus mentioned as the brightest jewel in the crown of our Covenant God! Do not be afraid of Election and Sovereignty. The time has come when our ministers must tell us more about them or, if not, our souls will be so lean and starved that we shall mutiny for the Bread of Life! Oh, may God send us more thorough Gospel men who will preach Sovereign Grace as the Glory of the Gospel!
 
-The second point is, there was A GRACIOUS CONCEALMENT.
+The second point is, there was a GRACIOUS CONCEALMENT.
 
 Read the next verse. "He said, You cannot see My face; for there shall no man see Me, and live." There was a gracious concealment and there was as much Grace in that concealment as there was in the manifestation. Mark you, Beloved, when God does not tell us anything, there is as much Grace in His withholding it as there is in any of His Revelations. Did you ever hear or read the sentiment that there is as much to be learned from what is not in the Bible as from what there is in the Bible? Some people read the Scriptures and they say, "We wish we knew such-and-such." Now you ought
 
@@ -107,13 +107,13 @@ But without faith it is impossible to please Him: for he that comes to God must 
 
 By faith Noah, being warned of God of things not seen as yet, moved with fear, prepared an ark to the saving of
 
-his house. [See Sermon #2147, Volume 36--NOAH'S FAITH, FEAR, OBEDIENCE AND SALVATION] By which he condemned the world, and became heir of the righteousness which is by faith. There is an unholy fear which is cast out by perfect love, but there is a holy fear, a filial fear, which dwells most happily with faith. So was it with Noah, who, "by faith...moved with fear, prepared an ark to the saving of his house."
+his house. [See Sermon #2147, Volume 36--NOAH's FAITH, FEAR, OBEDIENCE AND SALVATION] By which he condemned the world, and became heir of the righteousness which is by faith. There is an unholy fear which is cast out by perfect love, but there is a holy fear, a filial fear, which dwells most happily with faith. So was it with Noah, who, "by faith...moved with fear, prepared an ark to the saving of his house."
 
 By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed: and he went out, not knowing where he went Though Abraham did not know where he was going, God knew, and that was quite sufficient for the Patriarch. As a little child is willing to be led by his parent, so Abraham was willing to be led by God, even though that meant leaving his own country and his own people and going to the distant land which God intended to give him.
 
 10. By faith he sojournedin the land ofpromise, as in a strange country, dwelling in tabernacles with Isaac and Jacob, the heirs with him of the same promise: for he looked for a city which has foundations, whose Builder and Maker
 
-is God. [See Sermon #2292, Volume 39--ABRAHAM, A PATTERN TO BELIEVERS.]
+is God. [See Sermon #2292, Volume 39--ABRAHAM, a PATTERN TO BELIEVERS.]
 
 He was only a sojourner in the land of promise, he knew that even the promised land was only a tenting-ground for him and his descendants, but he also knew that he was on his way to a Divinely planned and Divinely built city--not like the temporary cities of earth, which shall all perish and pass away, but a city with everlasting foundations, a city that will last as long as God, Himself, exists.
 

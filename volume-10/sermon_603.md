@@ -113,7 +113,7 @@ Every anatomist knows that hundreds of times in an hour, through the internal ec
 
 While we are in this danger, we are passing on to our doom--
 
-"We nightly pitch our moving tent A day's march nearer home." But where is that home to be with you unconverted ones?
+"We nightly pitch our moving tent a day's march nearer home." But where is that home to be with you unconverted ones?
 
 When the express trains first began to run to Scotland there was seen at the station, one evening, a gentleman tall and thin, whose cheek had the consumptive mark upon it. The porters asked him several questions about his luggage, of which there was a good deal. And when he had been asked several times by different persons, another came up and said, "Where are you going, Sir?" Being of short temper and in great haste, he said, "To Hell!" A servant of Christ passed by that moment and heard the answer. He sought to get in the same carriage and did so, but at the other end of it.
 

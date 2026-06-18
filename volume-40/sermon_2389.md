@@ -10,7 +10,7 @@ The Psalmist had been, to some extent, finding fault with the Providence of God.
 
 First, dear Friends, I will speak concerning the conviction which led the Psalmist to take a guide. Secondly, I will say a little upon the confidence which led him to take God for his Guide. Thirdly, I will talk to you about the delightful commerce between the Psalmist and his God which began when God had become his Guide, and continued throughout his life. And then, the fourth point, which shall be our finis, shall be, the sure result of this guidance. "You shall afterward receive me to Glory."
 
-First, then, concerning THE CONVICTION WHICH LED THE PSALMIST TO TAKE A GUIDE. Happily for him, that conviction came very early. If I am to have a guide on my journey, I should like to have one at the beginning, for it is the starting that has so much to do with all the rest of the way. If I start due south when I ought to have gone north, I shall have to retrace many a weary step! Dear young Friends, if you can have God to be your Guide, now, in the morning of life, how happy you will be! It will influence for good the whole of your future existence, depend upon it! As
+First, then, concerning THE CONVICTION WHICH LED THE PSALMIST TO TAKE a GUIDE. Happily for him, that conviction came very early. If I am to have a guide on my journey, I should like to have one at the beginning, for it is the starting that has so much to do with all the rest of the way. If I start due south when I ought to have gone north, I shall have to retrace many a weary step! Dear young Friends, if you can have God to be your Guide, now, in the morning of life, how happy you will be! It will influence for good the whole of your future existence, depend upon it! As
 
 the river is colored by the glacier from which it flows and never, even when larger and deeper, quite loses the whiteness of its mountain source, so, if you begin with God at the fountainhead and spring of life, there will be a peculiar charm around your pathway as long as you live! Permit me to say that I have found it so myself. I can say to my Lord and do often say it, "O God, You have taught me from my youth, and until now have I declared Your wondrous works! Now, when I am old and gray-headed, O God, forsake me not." There is a sweet plea when years multiply upon you, if you can say to the Lord--
 
@@ -90,7 +90,7 @@ Lord, You shall guide me with Your counsel, and afterward receive me to Glory! F
 
 EXPOSITION BY C. H. SPURGEON: Psalm 39.
 
-To the chief Musician, even to Jeduthun, A Psalm of David.
+To the chief Musician, even to Jeduthun, a Psalm of David.
 
 Jeduthun was one of those who led the sacred song in the House of God in David's day and, long afterwards, we find the son of Jeduthun still engaged in this holy service! What a blessing it is to be succeeded in the work of God by your children from generation to generation! May that be your privilege, my dear Brothers and Sisters! May your families never lack a man to stand before the Lord God of Israel to sing His praises! This is called, "A Psalm of David." His life was a very checkered one. Sometimes he was very joyous and then he wrote bright and happy Psalms. But he was a man of strong passions and deep feelings, so at times he was very sad. And then he touched the mournful string. This is a very sorrowful Psalm, but it is full of teaching. How grateful we ought to be that such a man as David ever lived and that he had such wonderful experiences! It may be said of him that he was--
 

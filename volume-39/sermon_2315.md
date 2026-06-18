@@ -12,7 +12,7 @@ The Apostle, I say, was conscious of imperfection, but he was also conscious tha
 
 Notice that there are two forces here mentioned which are at work in every gracious man. There is Christ's power by which He apprehends us and then there is the new power, the new life of God-given faith, by which we, in our turn, seek to apprehend that for which Christ has apprehended us. Christ has apprehended us for a purpose--we wish to realize that purpose even to the fullest. That is the intent of the Apostle's words. Let us consider them in detail.
 
-First, let us think of PAUL'S APPREHENSION BY CHRIST JESUS.
+First, let us think of PAUL's APPREHENSION BY CHRIST JESUS.
 
 We do not often use the word, "apprehended," now, in the sense in which it is here used. The only instance that I remember is when we speak of a policeman apprehending a person, that is, laying hold upon him, seizing him. At his conversion, Paul had been apprehended by his Lord. Take the word, "apprehend," in the sense of arresting him, and it stands true of Saul of Tarsus. I need not repeat the story--you all know how that desperate rebel was going down to Damascus to persecute the saints of God. Nothing was further from his mind than the thought of becoming a Christian, but while he was riding the high horse and Damascus lay below him, just like a sheep within reach of a wolf, the Lord Jesus Christ stepped in and laid His hand on his shoulder--
 
@@ -34,7 +34,7 @@ I want your hearts to talk over this first part of the sermon. Never mind my fal
 
 Ah, dear Souls, you who have never been apprehended of Him, I hope that you will be, tonight! I pray God that you may run away from your old master, the devil, and not give him even five minutes' notice, but just start off directly! And while you are a runaway slave, may my Divine Master come and lay His hand upon you and say, "You are Mine. You never did really belong to your old master and even though you promised and swore that you would be his, thus says the Lord, 'Your Covenant with death shall be disannulled, and your agreement with Hell shall not stand.' I have redeemed you, I have called you by your name, you are Mine, and now I only take what I bought on the tree. I take by power, by might, by main force, by Grace, what I purchased with the blood of My hands and feet and heart. I will have you, for you are Mine." Lord, will You thus arrest some sinner, tonight, to the praise of the glory of Your Grace?
 
-Now let us notice PAUL'S DESIRE TO APPREHEND THAT FOR WHICH THE LORD HAD APPREHENDED HIM.
+Now let us notice PAUL's DESIRE TO APPREHEND THAT FOR WHICH THE LORD HAD APPREHENDED HIM.
 
 Well, why did Christ apprehend Paul? First, it was to convert him completely--to make a new man of him, to turn him from all his old ways and pursuits--and put him on quite a different road. Now, Brothers and Sisters, that is why the Lord apprehended us--to make us new creatures in Christ Jesus! Let us pray God to carry out that design to the fullest, to make us altogether new creatures. Do not let us be satisfied while there are any remains of the old nature--let us cry to the Lord to drive the Canaanites out--and though they have chariots of iron, let us, by Divine Grace, drive them all out! Pray, "Lord Jesus, You have come to turn me from every sin--turn me and I shall be turned! You have provided medicine for every disease--Lord, heal me and I shall be healed!"
 

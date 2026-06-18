@@ -8,7 +8,7 @@ The problem is a very difficult one. The contrast between the supply and the dem
 
 We will now look at these biscuits and sardines, which seem to be truly an insufficient stock-in-trade to begin with--a very small capital, indeed, on which to conduct the business of feeding 5,000 persons. I shall say of these loaves and fishes, first, that they had a previous history before being mentioned in our text. Secondly, when we get to our text, we shall find these little things in a very grand position--"Jesus took the loaves" and, therefore, thirdly, they will have an after-history which is well worthy of being noted. When things get into Christ's hands, they are in the very focus of miracles!
 
-We will begin by saying that THESE LOAVES AND FISHES HAD A PREVIOUS HISTORY. Andrew said to Jesus, "There is a lad here, which has five barley loaves, and two small fishes."
+We will begin by saying that THESE LOAVES AND FISHES HAD a PREVIOUS HISTORY. Andrew said to Jesus, "There is a lad here, which has five barley loaves, and two small fishes."
 
 Notice, first, then, the Providence of God in bringing the lad there. We do not know his name. We are not told anything concerning his parentage. Was he a little peddler who thought that he could make some money by selling a few loaves and fishes and had he nearly sold out? Or was he a boy that the Apostles had employed to carry this slender provision for the use of Jesus and His friends? We do not know much about him, but he was the right boy in the right place that day! Be his name what it might, it did not matter--he had the barley loaves and fishes upon which the people were to be fed! Christ never is in need but He has somebody at hand to supply that need. Have faith in the Providence of God! What made the boy bring the loaves and fishes, I do not know. Boys often do unaccountable things, but bring the loaves and fishes he did. And God, who understands the ideas and motives of lads and takes account, even, of barley loaves and fishes, had appointed that boy to be there!
 
@@ -36,7 +36,7 @@ Let such a one remember the barley loaves and the fishes. If that lad had really
 
 This, then, is the history of these loaves. They were sent there, through God's Providence, by a lad who was sought out and brought into notice. His stock-in-trade was despised, but he was willing to give it, whether it was despised or not. He would yield it to his Lord. Now, do you see what I am driving at? I want to get a hold of some of the lads and some young men and young women--I will not trouble about your age, you shall be lads if you are under seventy! I want to get hold of you who think that you have very little ability, and say to you, "Come, and bring it to Jesus." We need you! Times are hard. The people are famishing. Though nobody seems to need you, yet make bold to come out and who knows but that, like Queen Esther, you may have come to the Kingdom of God for such a time as this? God may have brought you where you are to make use of you for the converting of thousands! But you must first be converted yourself! Christ will not use you unless you are, first, His own. You must yield yourself up to Him and be saved by His precious blood and then, after that, come and yield up to Him all the little talent that you may have, and pray Him to make as much use of you as He did of the lad with the five barley cakes.
 
-But now I want to show you that THESE BARLEY CAKES GOT INTO A GRAND POSITION. The text says,
+But now I want to show you that THESE BARLEY CAKES GOT INTO a GRAND POSITION. The text says,
 
 "Jesus took the loaves." He took them into His own hands! From the trembling hands of the boy, or from his little basket, they were transferred to the blessed hands which one day would bear the nail-prints! This may teach us several lessons.
 
@@ -77,7 +77,7 @@ Thus have I tried to stir up God's people to believe in the Lord and consecrate 
 
 cursed at His coming! I pray you, do not rest easy while that may be your portion! You are the people that we want to feed, you are the people whom we want to bless! Oh, that God, in His mercy, would but bless you! We do not ask to have the honor of it. We would be willing to have it quite unknown who it was that brought you to the Savior, so long as you did but come to Him. May the Lord in mercy bring you!
 
-But now, thirdly, and to conclude, THESE LOAVES AND FISHES HAD A LATER HISTORY. They got into
+But now, thirdly, and to conclude, THESE LOAVES AND FISHES HAD a LATER HISTORY. They got into
 
 Christ's hands. What was the result?
 

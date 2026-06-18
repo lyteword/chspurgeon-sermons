@@ -102,7 +102,7 @@ my Brethren, words fail me to set before you the ways in which you may show your
 
 1 might put a square man into a round hole if I had the placing of you, but love always puts the man into the right position. It tells him what suits his qualifications and it puts him to his work. And what is more, it keeps him to it! I shall measure your love to Jesus and measure my own, not by the way in which we can talk, or the way in which we can criticize other workers, but by the way in which we shall henceforth labor for the Lord!
 
-The last point is this, that LOVE IN A CHURCH BRINGS FORTH ALL ITS STORES FOR THE BELOVED.
+The last point is this, that LOVE IN a CHURCH BRINGS FORTH ALL ITS STORES FOR THE BELOVED.
 
 The Church of God has, in herself, through the rich love of her Husband, all manner of pleasant fruits. This Church is a large one, but the same Truth of God will hold good of the smallest Church. The Lord never leaves His Church without a suitable measure of gifts and Divine Grace. If our spiritual nostrils and eyes could act this morning, we should discern all
 

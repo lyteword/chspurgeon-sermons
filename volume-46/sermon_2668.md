@@ -84,7 +84,7 @@ I think I once saw the pen with which Milton was said to have written part of Pa
 
 8, 9. The neighbors therefore, and they which before had seen him that he was blind, said, is not this he that sat and begged? Some said, This is he: others said, He is like him. But he said, I am he. With that downright simplicity and shrewdness which marked his whole character, the man said, "I am he." He did not go beating about the bush at all, but he straightway acknowledged that he was the man of whom they were speaking.
 
-10, 11. Therefore said they unto him, How were your eyes opened? He answered and said, A Man that is called Jesus made clay and anointed my eyes, and said unto me, Go to the pool of Siloam, and wash; and I went and washed, and I
+10, 11. Therefore said they unto him, How were your eyes opened? He answered and said, a Man that is called Jesus made clay and anointed my eyes, and said unto me, Go to the pool of Siloam, and wash; and I went and washed, and I
 
 received sight. I admire the brevity of his statement, the boldness of it and the simple naivete of it. The way in which he told the story did not embellish it in the least degree. In fact, it could not have been embellished without spoiling it. And when you, dear Friends, are giving an account of your own conversion, describing the way in which salvation became yours, tell it as simply and plainly as you can. It will never be so well adorned as when it appears in its own naked simplicity and beauty. I commend this man's example to all of you who have to give your testimony before you are admitted as members of the Church. When speaking of your conversion, put the narrative in as plain and simple a form as this man adopted.
 

@@ -52,7 +52,7 @@ I notice, too, that such people demand this and that of God, beyond what He has 
 
 I might, with profit, dwell on that point, but time flies too rapidly for me to say more upon it.
 
-Notice, in the third place, that FAITH IS NOT A THING TO BE DESPISED.
+Notice, in the third place, that FAITH IS NOT a THING TO BE DESPISED.
 
 Have you never heard people say, "Oh, they preach up faith, you know"? "Well, what is faith?" "Well, it is just believing so-and-so." Listen, Sirs, and then speak like that no more! Faith is a most wonderful thing, for it is a fair index of the heart. If you will not believe in God, I see that in your heart you hate God. But if you will believe Him, you love Him. We trust a man whom we love. I think that there is little trust in men towards whom we have no esteem and affection. If you believe God, your heart is right with Him. If you will not believe Him, do what you may, you are out of order with your God, I am sure of that. We know that a child who does not believe his father's word is not a loving and obedient
 

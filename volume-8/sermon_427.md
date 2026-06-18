@@ -15,7 +15,7 @@ I might divide my text, this morning, as good old Adams does. He says there are 
 
 We will take the text in the same natural divisions with other headings and notice, first, that we have here a Divine injunction, with a special direction. And secondly, a grateful doxology, with a suggestive conclusion.
 
-To begin, then, at the beginning, we have here first of all, A DIVINE INJUNCTION WITH A SPECIAL DIREC-TION--"Grow in grace and in the knowledge of our Lord and Savior Jesus Christ."
+To begin, then, at the beginning, we have here first of all, a DIVINE INJUNCTION WITH a SPECIAL DIREC-TION--"Grow in grace and in the knowledge of our Lord and Savior Jesus Christ."
 
 "Grow in grace." What is this? It must be, in the outset, implied that we have been quickened by Divine Grace, otherwise this text cannot apply to us at all. Dead things cannot grow. Only those who are alive unto God by the resurrection of Jesus Christ from the dead have in them any power or capability of growth. The great Quickener must first implant the seeds of life, then afterwards those seeds can germinate and grow. To you, therefore, who are dead in trespasses and sins, this text has no application. You cannot grow in Divine Grace, because as yet you are under the curse of the Law and the wrath of God abides on you. Tremble, repent, believe--and may God have mercy on you!
 
@@ -83,7 +83,7 @@ All hail, Jesus! We salute You as Lord. Teach us to feel Your Kingship over us a
 
 I have thus, Brothers and Sisters, sought to expound the point of theology. I lift up my heart in prayer for you all that you may grow in Divine Grace and in the knowledge of our Lord and Savior Jesus Christ.
 
-In the second place, we have A GRATEFUL THANKSGIVING WITH A MOST SUGGESTIVE TERMINA-
+In the second place, we have a GRATEFUL THANKSGIVING WITH a MOST SUGGESTIVE TERMINA-
 
 TION--"To Him be glory both now and forever. Amen."
 

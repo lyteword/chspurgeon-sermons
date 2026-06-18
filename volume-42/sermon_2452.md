@@ -128,7 +128,7 @@ And give you a pleasant land, a goodly heritage of the host of nations? And I sa
 
 Surely as a wife treacherously departs from her husband, so have you dealt treacherously with Me, O house of Israel, says the LORD. But listen--
 
-A voice was heard upon the high places. The places where they had built the altars to the false gods--"A voice was heard upon the high places"--
+a voice was heard upon the high places. The places where they had built the altars to the false gods--"A voice was heard upon the high places"--
 
 Weeping and supplications of the children of Israel: for they have perverted their way, and they have forgotten the LORD their God. How pleasant to the ears of God is the weeping of His backsliding people! The happy God does not wish men to be sorrowful, but He is glad that they should be sorrowful for sin. Now that they have begun to bemoan their wanderings and their wickedness, they will come back to their God, so He says to them--
 

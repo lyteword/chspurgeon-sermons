@@ -8,7 +8,7 @@ In order to keep in our mind's eye what, alas, we so easily forget--the death of
 
 The great meaning of "The Lord's Supper," as we call it, is that we show the Lord's death till He comes. We show it to ourselves and we show it, or represent it, to others--to unbelievers who may chance to look on. The former of these is, perhaps, the more important. In coming to eat of the bread and drink of the wine at this Supper--
 
-WE SHOW THE LORD'S DEATH TO OURSELVES.
+WE SHOW THE LORD's DEATH TO OURSELVES.
 
 Not, indeed, that this is the exclusive manner of exhibiting the passion which our dear Savior endured, or the decease which He accomplished, for there are, it must be admitted, other methods of showing the Lord's death. One is by this Book, this Inspired Volume which contains the record of His Crucifixion--which explains it--which enforces upon men the duty of putting their trust in the merit of Him who died. Wherever this Bible is opened there is a showing of Christ's death! Why, the whole Book is full of it! There is a crimson line of atoning Sacrifice running from Genesis to Revelation--
 
@@ -48,7 +48,7 @@ His messages of love to bear." Thus, you see, in the bread and the wine, in the 
 
 Observe now that--
 
-WE ARE TO SHOW CHRIST'S DEATH TO OTHERS.
+WE ARE TO SHOW CHRIST's DEATH TO OTHERS.
 
 As often as we eat this bread and drink of this cup, we do this. We show to others the fact that Jesus died. I think historians have taken it as one of the best proofs of a fact when some rite has been instituted to commemorate it. A pillar with an inscription is not always a certain index to truth. Our own Monument, for instance, had a record on it that London was burned down by the Catholics--who had no more to do with it, certainly, than the Muslims did! The inscription in that case was not a record of fact! Yes, and a pillar might be erected to record an event which never occurred at all. But, as a general rule, large bodies of men will not agree together to continually celebrate events which never occurred. Nobody doubts, I suppose, the siege of Londonderry, when the prentice boys meet every year to make a noise and disturbance. They at least bring before the historian's mind the certainty that such an event did occur, for it is still thus recorded. Now, our Lord gave us this simple method of breaking bread and drinking wine to be our way of setting up our pillar--our mode of keeping up a great historical fact--that there was a Man who lived in Judea, who professed to be the Son of God, who was the King of the Jews, who lived a humble life and died a marvelous death! There is no fact in history so well attested as this! So that those who have given up the Inspiration of Scripture have seldom touched either the life or the death of Jesus, but have conceded both to be facts. And now this very night, perhaps, in fifty thousand places, at this moment, this commemorative act of eating bread and drinking wine is about to be performed in this one country of England. Now that is something by way of record, and by this act we help to perpetuate to all generations the fact that Jesus died!
 

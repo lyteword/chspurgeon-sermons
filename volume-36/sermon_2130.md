@@ -13,7 +13,7 @@ But when sin puts on another dress and comes to us speaking a language which is 
 
 Let us come at once to the center of our subject. Our first head is, sin has a singular power to deceive. Secondly, its deceivableness has hardening influence upon the soul--we may grow "hardened through the deceitfulness of sin." And, therefore, thirdly, there is great need that this be fought against. We must strive against our cunning enemy and resist him in many ways, one of which is mentioned in the text--"Exhort one another daily, while it is called Today." May the Holy Spirit put power into our meditation at this hour!
 
-First, then, SIN HAS A SINGULAR POWER TO DECEIVE. We have only to look back to the beginning of our race to be sure of this. Eve, in the Garden, was pure, intelligent and filled with good dispositions. Her faculties were well balanced for no original sin or natural depravity had put her mind out of order. Yet that lovely woman, without a taint upon her heart or will--perfect as she came from her Maker's hand--was overcome by Satan who embodied in himself the deceitfulness of sin.
+First, then, SIN HAS a SINGULAR POWER TO DECEIVE. We have only to look back to the beginning of our race to be sure of this. Eve, in the Garden, was pure, intelligent and filled with good dispositions. Her faculties were well balanced for no original sin or natural depravity had put her mind out of order. Yet that lovely woman, without a taint upon her heart or will--perfect as she came from her Maker's hand--was overcome by Satan who embodied in himself the deceitfulness of sin.
 
 The serpent played his part right cunningly with the woman and soon withdrew her from her loyal obedience to the Lord God. She began to question, to parley, to argue with rebellious suggestions and after a while she put forth her hand and took of the fruit which had been forbidden. And she also gave it to her husband with her and he did eat of it. If man in his perfection was so readily deceived by sin, what do you think of yourself, fallen and inclined to evil as you are? Will
 
@@ -83,7 +83,7 @@ In these more serious days, what does sin say?--"You have provoked the Spirit of
 
 Thus will sin, by any means, by all means, endeavor to keep men under its tyranny so as to work their ruin. Let no man in this place think that he cannot be deceived--he is already deluded by his pride. Let no woman dream that she has come to such a state of perfection that she cannot be deluded by sin--she is even now in imminent peril. We have a cunning enemy and we have no wit of our own wherewith to match the subtlety of the old serpent and the deceitfulness of sin. Unless we call in the help of Him who is "the Wisdom of God," we shall be led as an ox to the slaughter and perish in our folly.
 
-I want you, in the second place, to notice very carefully that THIS DECEITFULNESS HAS A HARDENING
+I want you, in the second place, to notice very carefully that THIS DECEITFULNESS HAS a HARDENING
 
 POWER OVER THE HEART--"Lest any of you be hardened through the deceitfulness of sin." How does that come about? Partly through our familiarity with sin. We may look at hateful sin till we love it. It has the eyes of a basilisk and its gaze is fascinating. At first you are shocked by sin--but if you see it every day it will cease to distress you. Persons who have never heard profane language are greatly grieved as they go down the streets of London--and yet even good people who live in certain localities come to hear it without horror.
 

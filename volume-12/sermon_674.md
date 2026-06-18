@@ -129,7 +129,7 @@ The Church of England has become thoroughly putrid with Puseyism. Infidelity has
 
 It is a good thing for Zion when her enemies begin to curse and to lift up themselves against God, for then He will take up His own quarrel. Let them throw down the gauntlet and God will take it up! And we know when He does come forth from His resting place, the victory is sure! It is for us, however, to cry unto Him and spare not till He proves His cause to be His own by the potency which He puts into it. Let us, then, discard our despondencies and be of good courage, for strong is His hand and high is His right hand--
 
-"Lord, when iniquities abound, And blasphemies grow bold. When faith is hardly to be found, And love is waxing cold, Is not Your chariot hastening on? Have You not given this sign? May we not trust and live upon A promise so Divine?"
+"Lord, when iniquities abound, And blasphemies grow bold. When faith is hardly to be found, And love is waxing cold, Is not Your chariot hastening on? Have You not given this sign? May we not trust and live upon a promise so Divine?"
 
 Beloved, I am encouraged to expect the visitation of Divine Grace among us for these reasons: It must be for God's glory to save souls--there cannot be two opinions about it. Will He not therefore do it? Secondly, It must be due to
 

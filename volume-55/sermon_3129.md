@@ -80,7 +80,7 @@ And I, John, saw the holy city, New Jerusalem, coming down from God out of Heave
 
 And He that sat upon the Throne said, Behold, Imake all things new. [See Sermon #1816, Volume 31--sermon for a new
 
-YEAR'S DAY] And He said unto me, Write: for these words are
+YEAR's DAY] And He said unto me, Write: for these words are
 
 true and faithfu. Once, the Lord might have said, "Behold, I make all things," but now He says, "Behold, I make all things new." Glory be unto the great Creator! Did not the morning stars sing together for joy when He made the world? But equal if not greater Glory must be ascribed to the great Regenerator, the New Creator! Shall we not all sing together to His praise? Yes, that we shall if we are numbered among the "all things" that He makes new!
 
@@ -130,4 +130,4 @@ the glorified Church, herself, because of this Light, sheds such a bright light 
 
 Book of Life.
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

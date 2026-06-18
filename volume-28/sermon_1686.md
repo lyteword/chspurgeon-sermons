@@ -51,7 +51,7 @@ and we can also add that we need not go abroad for wonders, for we have a perfec
 
 > Still has my life new wonders seen   
 > Of loving kindness rare!   
-> A monument of Grace I stand,   
+> a monument of Grace I stand,   
 > Your goodness to declare.   
 
 Let us think for a minute or two of the parallel between us and these disciples as to wonderment. Consider, first, that the instantaneous and profound calm was contrary to Nature. The Galilean Lake lies in a deep hollow, much below the level of the ocean, and in the sides of the cliffs and hills which shut it in, there are valleys and openings which act as funnels, down which, blasts of cold air from the mountains often rush upon a sudden. When the time of storm is really on, the Lake of Galilee is not tossed about like an ordinary open sea, but is rent, torn, heaved up and almost hurled out of its bed by down-driving hurricanes and twisting whirlwinds! No sailor knows which way the wind will blow except that it blows all ways at once and particularly downwards--as if, with a direct downdraft from Heaven, it blows vessels into the water--and soon, changing its course, lifts them into the air!
@@ -94,7 +94,7 @@ These men marveled--expect to keep on marveling till you get to Heaven--and to k
 
 "Shall sing with wonder and surprise His loving kindness in the skies." I have been somewhat long on this first head. I will therefore give you a little, and only a little, upon the second.
 
-Let us now see how the disciples were AWE-STRICKEN AT OUR LORD'S PRESENCE. Mark says that "the men feared greatly." They feared greatly because they found themselves in the Presence of One who had stilled the winds and the waves! Brothers and Sisters, it is well to cultivate that holy familiarity which comes from nearness to Jesus and yet we ought always to be humbled by a sense of that nearness. Permit me to remind the boldest Believer that our loving Lord is still God over all! He is to be honored and reverenced, worshipped and adored by all who draw near to Him. However much He is our Brother, He says, "You call me Master and Lord, and you do well, for so I am."
+Let us now see how the disciples were AWE-STRICKEN AT OUR LORD's PRESENCE. Mark says that "the men feared greatly." They feared greatly because they found themselves in the Presence of One who had stilled the winds and the waves! Brothers and Sisters, it is well to cultivate that holy familiarity which comes from nearness to Jesus and yet we ought always to be humbled by a sense of that nearness. Permit me to remind the boldest Believer that our loving Lord is still God over all! He is to be honored and reverenced, worshipped and adored by all who draw near to Him. However much He is our Brother, He says, "You call me Master and Lord, and you do well, for so I am."
 
 He is all the greater because of His condescension to us and we are bound to recognize this. Whenever Jesus is near, the feeling of holy awe and solemn dread will steal over true disciples. I am afraid of that way of being so familiar with Christ as to talk of Him as, "dear Jesus" and, "dear Lord," as if He were some Jack or Harry that we might pat on the back whenever we liked. No, no. This will never do! It is not such language as men would use to their prince--let them not, thus, address the King of kings! However favored we may be, we are but dust and ashes--and our spirit must be chastened with reverence.
 

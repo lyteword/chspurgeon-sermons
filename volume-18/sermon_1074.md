@@ -56,7 +56,7 @@ His blood as my Atonement into the Holy Place, how can I help having peace? And 
 
 "The Gospel bears my spirit up
 
-A faithful and unchanging God
+a faithful and unchanging God
 
 Lays the foundation for my hope,
 
@@ -102,7 +102,7 @@ Once more, in the sixteenth chapter and fourteenth verse, we are told that the P
 
 Therefore the Holy Spirit, in His infinite wisdom, lifts Jesus up before us, makes Him great in our esteem, glorifies Him in our hearts and straightway our souls are full of consolation! How could it be otherwise? I am sorry that my subject is much too long for my time this morning, and therefore I must pass away from this first head to glance at the second point which I had hoped to have dwelt upon at length.
 
-We shall now, secondly, REMARK UPON THE NATURE OF THE HOLY SPIRIT'S COMFORT, and will speak very briefly. It is evident from the passages we have read to you this morning that the Spirit of God never dissociates His comfort from His Character. John 14:15--"If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter." The Spirit of God never comforts a man in his sin! Disobedient Christians must not expect consolation. The Holy Spirit sanctifies and then consoles. Search and look, you who hang your heads like bulrushes! See what it is that makes you sorrow--obey, and you shall be comforted!
+We shall now, secondly, REMARK UPON THE NATURE OF THE HOLY SPIRIT's COMFORT, and will speak very briefly. It is evident from the passages we have read to you this morning that the Spirit of God never dissociates His comfort from His Character. John 14:15--"If you love Me, keep My commandments. And I will pray the Father, and He shall give you another Comforter." The Spirit of God never comforts a man in his sin! Disobedient Christians must not expect consolation. The Holy Spirit sanctifies and then consoles. Search and look, you who hang your heads like bulrushes! See what it is that makes you sorrow--obey, and you shall be comforted!
 
 Next, the Spirit of God does not aim at working mere comfort by itself and alone, but He produces peace in the heart as the result of other divinely useful processes. He does not comfort us as a fond mother may please her wayward child by yielding to its foolish wishes. The mother does not teach the child anything, nor does she cleanse its body or purify its heart in order to comfort it--perhaps she even neglects these to please the little one. But the Holy Spirit never acts so unwisely. He blesses by purity and then by peace. When a man is feeling pain he is very desirous that the surgeon should administer some drug which will stop the unpleasant sensation immediately--yet the surgeon refuses to do anything of the kind but endeavors to remove the cause of the evil--which lies far deeper than the pain. Is not the doctor right?
 

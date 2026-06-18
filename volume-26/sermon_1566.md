@@ -37,7 +37,7 @@ Sometimes the aversion which people display and the contempt which they profess 
 And as for Christian people who are so very modest that they get out of the way of everything that is to be done for Christ, I do not know how they will answer for it to their superior Officer at the last. Come, dear Brother, you sang the other day--
 
 > Am I a soldier of the Cross,   
-> A follower of the Lamb   
+> a follower of the Lamb   
 > And shall I fear to own His cause,   
 > Or blush to speak His name?   
 

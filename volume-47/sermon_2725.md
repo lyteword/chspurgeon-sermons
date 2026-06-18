@@ -6,7 +6,7 @@ WHEN we read the Scriptures in our youth, we are often astonished at the peculia
 
 I may be, at this time, addressing some of the Lord's children who have prayed Elijah's prayer. I know one who, in the bitterness of his soul, has often prayed it and, if God the Comforter shall guide me, I may be able to say something that shall help such an one in this, his time of trial. If I should be permitted to come as God's angel to smite some sleeper on the side and wake him up to eat of spiritual meat which shall cause him to forget his sorrow, it shall be well. I will, first, speak about Elijah's weakness. And then, in the second place, about God's tenderness to him.
 
-First, I am going to speak about ELIJAH'S WEAKNESS.
+First, I am going to speak about ELIJAH's WEAKNESS.
 
 Only a few days before, he had stood on Mount Carmel as the mighty Prophet of God and had brought down from Heaven first fire and then water--he seemed to have the very keys of the skies and to be girt almost with Omnipotence to do whatever he would when he lifted up his voice in prayer! Yet, soon after, he was fleeing from the face of Jezebel, lest she should take him and put him to death! And here we find him, after a long flight in the wilderness, sitting down under a juniper bush, seeking to find a scanty shelter there--and entreating that he may die. Why?
 
@@ -72,7 +72,7 @@ Elijah also said, "O Lord, take away my life; for I am no better than my fathers
 
 Come, then, my dear Brother or Sister, if you are sitting under your juniper tree and saying, "Let me die, for it is enough." Correct your foolish request--examine the reason that suggests it and you will find it too weak to justify such a desire! And so may God help you to abandon it at once!
 
-Now, in the second place, it is a very pleasing task to speak for a few minutes upon GOD'S TENDERNESS TO ELIJAH IN THIS TIME OF WEAKNESS.
+Now, in the second place, it is a very pleasing task to speak for a few minutes upon GOD's TENDERNESS TO ELIJAH IN THIS TIME OF WEAKNESS.
 
 It is always well for ministers, and all who have the care of souls, to watch how God deals with those who are in trouble, just as a young surgeon, when he walks the hospital, is eager to see how a master in the healing art treats his patients. The first thing that God did with Elijah was a very simple thing, he let him sleep. There is the poor Prophet down in the dumps--he wants to die but the Lord lets him sleep, instead--and he slept soundly, too, for he needed an angel to wake him! And soon he fell asleep again and a second time he had to be awakened. Rest was the one thing that he most needed, so, by--
 

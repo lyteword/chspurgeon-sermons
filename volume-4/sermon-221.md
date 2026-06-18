@@ -33,7 +33,7 @@ If I were an orphan now, and needed a helper, I would seek one who had been an o
 > Foot-prints on the sands of time.    
 > Foot-prints that, perhaps, another,    
 > Sailing o'er life's solemn main,    
-> A forlorn and shipwrecked brother,    
+> a forlorn and shipwrecked brother,    
 > Seeing, may take heart again.    
 
 Go, and when thou hast found any good, strive to perpetuate it by communicating it to others. When thy foot is on the rock, show others how to put their feet there. When thou art glad, tell others how thou wast made glad, and the same cordial which cheered thee may cheer them likewise. "Comfort ye, comfort ye my people."
@@ -67,7 +67,7 @@ If that does not suffice, tell him of his present mercies; tell him that he has 
 
 But if this is not enough, tell him of the future; whisper to him that there is a heaven with pearly gates and golden streets; tell him that
 
-> A few more rolling suns at most,    
+> a few more rolling suns at most,    
 > Will land him on fair Canaan's coast.    
 
 and therefore he may well bear his sorrows. Tell him that Christ is coming, and that his sign is in the heavens, his advent is near, he will soon appear to judge the earth with equity, and his people in righteousness. And if that suffice not, tell him all about that God who lived and died. Take him to Calvary; picture to him the bleeding hands, and side, and feet; tell him of the thorn-crowned King of grief; tell him of the mighty Monarch of woe and blood, who wore the scarlet of mockery which was yet the purple of the empire of grief; tell him that he himself bore our sins in his own body on the tree. And if I have not said enough, go to thy Bible, read its pages, bend thy knee and ask for guidance, and then tell him some great and precious promise, that so thou mayest accomplish thy mission, and comfort one of God's people.
@@ -75,7 +75,7 @@ and therefore he may well bear his sorrows. Tell him that Christ is coming, and 
 I have but a few words to say to some, who I grieve to think want no comfort. They want something else before they can be comforted. Some of my hearers are not God's people; they have never believed in Christ, nor fled to him for refuge. Now I will tell you briefly and plainly the way of salvation. Sinner! know that thou art in God's sight guilty, that God is just and that he will punish thee, for thy sins. Hark thee, then: there is only one way by which thou canst escape, and it is this: Christ must be thy substitute. Either thou must die, or Christ must die for thee. Thy only refuge is faith in Jesus Christ, whereby thou shalt be assured that Christ did really and actually shed his blood for thee. And if you are able to believe that Christ died for you, I know it will cause you to hate sin, to seek for Christ, and to love and serve him world without end. May God bless us all, forgive us our sins, and accept our souls for Jesus's sake!
 
 
-## A Pastoral Letter
+## a Pastoral Letter
 
 This letter was written to accompany the publication of sermon 221 in the New Park Street Pulpit series&mdash;"Comfort Proclaimed."
 

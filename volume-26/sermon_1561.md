@@ -72,7 +72,7 @@ We reach the point of the paradox--here is WATCHFULNESS CLAIMED by one who confe
 
 I'm in my own and others' eyes
 
-A labyrinth of mysteries." We are asleep and awake at the same time. As Erskine rhymes it--
+a labyrinth of mysteries." We are asleep and awake at the same time. As Erskine rhymes it--
 
 > Both sleeping flesh I have, that rests   
 > In sloth unto my shame,   
@@ -117,7 +117,7 @@ The spouse has dove's eyes and she sees from afar. She makes short work of it an
 
 Yet I am here! I'm stifled in the clay,
 
-Shut up from You and the fresh feast of day. I know Your hand's not short, but I'm unfit, A foul, unclean thing to take hold of it! I am all dirt! Nor can I hope to please
+Shut up from You and the fresh feast of day. I know Your hand's not short, but I'm unfit, a foul, unclean thing to take hold of it! I am all dirt! Nor can I hope to please
 
 Unless in mercy You love a disease. Diseases may be cured, but who'll reprieve Him that is dead? Tell me, my God, I live.
 

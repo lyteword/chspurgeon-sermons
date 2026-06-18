@@ -9,7 +9,7 @@ You will remember, my dear friends, that the Holy Spirit, during the present dis
 
 I shall try this morning, first, to show how Christ in his varied positions is the consolation of the children of God in their varied trials; then we shall pass on, secondly, to observe that Christ in his unchanging nature is a consolation to the children of God in their continual sorrows; and lastly, I shall close by dwelling awhile upon the question as to whether Christ is a consolation to us--putting it personally, "Is Christ a present and available consolation for me."
 
-First, CHRIST IN HIS VARIED POSITIONS IS A CONSOLATION FOR THE DIVERS ILLS OF THE CHILDREN OF GOD.
+First, CHRIST IN HIS VARIED POSITIONS IS a CONSOLATION FOR THE DIVERS ILLS OF THE CHILDREN OF GOD.
 
 Our Master's history is a long and eventful one; but every step of it may yield abundant comfort to the children of God. If we track him from the highest throne of glory to the cross of deepest woe, and then through the grave up again the shining steeps of heaven, and onward through his meditorial kingdom, on to the day when he shall deliver up the throne to God even our Father, throughout every part of that wondrous pathway there may be found the flowers of consolation growing plenteously, and the children of God have but to stoop and gather them. "All his paths drop fatness, all his garments which he wears in his different offices, smell of myrrh, and aloes and cassia, out of the ivory palaces, whereby he makes his people glad."
 

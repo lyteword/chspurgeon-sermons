@@ -52,7 +52,7 @@ Once more, in all that He is, Christ is the choicest of the choice. You notice t
 
 Suppose you had a dear son, or husband, or friend, far away, and that I was a painter who could carry pictures in my mind's eye, and then draw them to the very life. If I stood here, trying to paint your well-beloved friend, laying on my colors with all the skill I possessed and doing my best to reproduce his features, suppose, while I was at work, that the door at the back was opened and he came in? I would cry out, "Oh, stop, stop, stop! Let me put away my canvas, let me pack up my brushes and my paints. Here is the loved one, himself--look at him! Look at him, not at my portrait of him!" And you would rise from your seat and say, "It is he! It is he! You may talk as long as you like, dear Sir, when he is away, but when he is, himself, here, your talk seems but mere chatter." Well, I shall be quite content that you should think so, I shall be even glad if you do, provided that the reason shall be that you can say, "We have seen the Lord. He has manifested Himself to us as He does not to the world." "I am the rose of Sharon, and the lily of the valleys." The best of the best, the fairest of the fair, the sweetest of the sweet is Jesus Christ to you and to me if we are, indeed, His people. I cannot say more about the exceeding delightfulness of my Lord. I wish I could.
 
-I must pass on, next, to notice THE SWEET VARIETY OF CHRIST'S DELIGHTFULNESS.
+I must pass on, next, to notice THE SWEET VARIETY OF CHRIST's DELIGHTFULNESS.
 
 He is not only full ofjoy, pleasure and delight to our hearts, but He is full of all sorts ofjoy, and all sorts of pleasure, and all sorts of delights to us--
 
@@ -94,7 +94,7 @@ We can become tired of most things. I suppose that we can become tired of everyt
 
 Christ does not say, "I was a rose and I was a lily," but, "I am the rose, and I am the lily." He is now all that He ever was! And He will be--in life, in death and throughout all eternity to the soul that knows Him--an infinite variety of everything that is delightful!
 
-I must now, very briefly, take up the last head of my discourse which is THE EXCEEDING FREENESS OF OUR LORD'S DELIGHTFULNESS.
+I must now, very briefly, take up the last head of my discourse which is THE EXCEEDING FREENESS OF OUR LORD's DELIGHTFULNESS.
 
 It is not very pleasant or satisfying for hungry people to stand in the street and hear someone praising a good meal of which they cannot even get a taste. I have often noticed boys standing outside a shop window in which there have been all sorts of dainties--they have flattened their noses against the window--but they have not been able to get anything to eat.
 

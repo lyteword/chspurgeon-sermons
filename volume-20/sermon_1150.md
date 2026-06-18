@@ -64,7 +64,7 @@ I pray that every member of this Church may be a man of inward stamina--not one 
 
 In a second sense we have life more abundantly by the enlargement of the sphere of our life. To some forms of human life the range is very narrow. Wordsworth's farmer had no great abundance of life, for--
 
-"The primrose by the river's brim A yellow primrose was to him, And nothing more."
+"The primrose by the river's brim a yellow primrose was to him, And nothing more."
 
 To plow and sow, and reap and mow, were his philosophy. The seasons preached no sacred homilies to him. The birds sang, but he would have been as much pleased if they had been silent. The hills were a weariness to climb and the view from their summit he thought nothing of. His soul was inside his smock frock and his corduroys, and never wished to go beyond them.
 

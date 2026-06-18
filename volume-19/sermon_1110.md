@@ -46,7 +46,7 @@ I remember when my soul was like the rock in Horeb, for it gushed with living st
 
 Was it not so with you when the eyes of Jesus darted love into your heart? How irresistible were His blissful arrows! How deadly to your sins! How mortal to your pride! You were soon vanquished! Well does John Newton describe our case in his hymn--
 
-"Lord, You have won, at length I yield. My heart, by mighty trace compelled, Surrenders all to You. Against Your terrors long I strove But who can stand against Your love? Love conquered even me! If You had bid Your thunders roll, And lightning flash, to blast my soul, I still had stubborn been. But mercy has my heart subdued, A bleeding Savior I have viewed, And now I hate my sin.'
+"Lord, You have won, at length I yield. My heart, by mighty trace compelled, Surrenders all to You. Against Your terrors long I strove But who can stand against Your love? Love conquered even me! If You had bid Your thunders roll, And lightning flash, to blast my soul, I still had stubborn been. But mercy has my heart subdued, a bleeding Savior I have viewed, And now I hate my sin.'
 
 Truly we were loved into repentance! There were other agents used, of course. The Law thundered and conscience smote us, but still the master weapon in all the armory of God against our unregenerate hearts was love. We admit that it is more than a match for us--we confess that we are conquered by its might! The Lord has loved our souls out of the pit of corruption into that state of salvation in which we are now found!
 

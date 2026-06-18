@@ -58,7 +58,7 @@ Think, dear Friends, if God does not get witnesses among those who have had thei
 
 I have thus tried to set before you the works of the Lord which are to be declared, the reasons why we should declare them and the persons who should be engaged in this blessed business of declaring the works of the Lord.
 
-Now, in the fourth place, I want, with all my heart, to stir up your hearts and my own, also, to THE DUTY OF DECLARING GOD'S WORKS.
+Now, in the fourth place, I want, with all my heart, to stir up your hearts and my own, also, to THE DUTY OF DECLARING GOD's WORKS.
 
 Dear Brothers and Sisters, as many of you as know the Lord, I pray you to declare His works and to be encouraged to do so because, first, it is a very simple duty. I wish that some preachers whom I know would think that it is so. When I have heard most elaborate discourses, or have known Brothers labor at their sermons day after day, I have wondered what their idea of true preaching could be! A minister said to me, some time ago, "I am disappointed with my people, for when I study very hard and prepare a sermon that takes me a whole fortnight to complete, they never seem to appreciate it. But the other day," he said, "I had been so busy that I just went into the pulpit and talked upon a very simple theme concerning Jesus and His love--just such a sermon as I would deliver if I were suddenly called up from my bed and bid to preach in my shirt sleeves--and my people greatly enjoyed that simple kind of talk!" "Well then," I replied, "if I were in your place, I would give them another discourse of the same sort! I should preach some more of those shirt-sleeve sermons, if they feed on them, and enjoy them."
 

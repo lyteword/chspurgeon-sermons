@@ -72,6 +72,6 @@ If once we have prevailed with God, and believing in God we have had some delive
 > Now, freed from sin, I walk at large,   
 > The Saviour's blood's my full discharge;   
 > At His dear feet my soul I lay,   
-> A sinner saved, and homage pay.   
+> a sinner saved, and homage pay.   
 
 If this be the result of your affliction, Christ may well say, "I am glad for your sakes that I was not there to stop the trouble, to the intent that ye may believe." May God bring you to faith for Jesus' sake. Amen.

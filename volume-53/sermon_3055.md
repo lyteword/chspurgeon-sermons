@@ -8,7 +8,7 @@ So it is not my intention to bid any of you to cease to look to your own affairs
 
 The connection in which this text stands must be noticed. Timothy was exhorted by Paul to "lay hands suddenly on no man." There were certain upstarts who wrongly thought that they could preach--and there were others who thought that they could rule in the churches. These persons probably gained a few or many partisans to support their claims. There were some of their relatives in the church who thought a great deal of their sons, or brothers, or uncles, or cousins, or there were friends who heard some man speak on a certain occasion with considerable fluency and, being unwise, they judged him to be man of master-mind and would have put him into the front rank of the army at once if the power to do so had rested with them! Paul tells Timothy, whom he had sent to exercise a general oversight over the officers and members of the church, not to be in a hurry to lay his hands upon these men, so as to endorse their claim, but to let them wait awhile until they were tried and tested--because if he allowed them to take office in the church and they committed faults or follies, he would be responsible for them and everybody would say, "We wonder that Timothy should have sent out such men as these." So he was bid to be cautious lest he should become, in any way, "a partaker of other men's sins." None of us are exactly in Timothy's position so we are not likely to fall into the fault against which Paul warned him-- at least not in precisely the same form. Yet the text has a message to us and we may say to one another, "Be not partakers of other men's sins."
 
-I shall first try to show you HOW WE CAN BE PARTAKERS OF OTHER MEN'S SINS and, in doing that, I am afraid that the various ways in which we can do this will seem to be very many. And that if I am not very careful, you will think that my sermon is like Ezekiel's valley of vision in which the bones were "very many" and "very dry." I will not be more wordy than I can help, but at the same time I must deal with the subject somewhat in detail.
+I shall first try to show you HOW WE CAN BE PARTAKERS OF OTHER MEN's SINS and, in doing that, I am afraid that the various ways in which we can do this will seem to be very many. And that if I am not very careful, you will think that my sermon is like Ezekiel's valley of vision in which the bones were "very many" and "very dry." I will not be more wordy than I can help, but at the same time I must deal with the subject somewhat in detail.
 
 As to how we can become accomplices in other people's sins--the preacher must first say to himself that he will be such a man if he is not true to his trust If he shall teach false Doctrine, or if, teaching the true Doctrines, he shall teach them erroneously--if he shall keep back unpalatable Truths of God--if he shall allow sin to pass without reproof--if he shall see a great deficiency of spiritual life and service and not point it out--if, in brief, he shall be an unfaithful servant of Christ and his hearers shall thereby be kept in a low state of Divine Grace, inconsistent with their profession--and the unconverted shall be hindered from coming to Christ, he will become a partaker in other men's sins. Indeed, I know of no man who is more likely to fall into the fault indicated in the text than a minister of the Gospel is! Oh, what Grace we need and what help from on high lest if we fail in faithfulness to God and our hearers, the doom of souls should be laid at our door and we should be partakers of other men's sins! Brothers and Sisters, pray for us that this may not be our unhappy lot--
 
@@ -35,7 +35,7 @@ parents' door! How sad it is that in many cases the influence of the mother and 
 > Our offspring, with an anxious heart,   
 > We now commend to Thee.   
 > Our children are our greatest care,   
-> A charge which You have given--   
+> a charge which You have given--   
 > In all Your Graces let them share,   
 > And all the joys of Heaven.   
 > If a centurion could succeed,   
@@ -64,7 +64,7 @@ But supposing you have joined a church whose doctrines are Scriptural, you may b
 
 Further, we may be "partakers of other men's sins" by not rebuking them for sinning if it is our duty to do so, or by not doing all we can towards their conversion. For instance, by living in a certain neighborhood and never trying to bring the Gospel to the people in that neighborhood, or by not maintaining our consistent Christian walk as the separated people of God. In brief, let each one sing, from the heart, the rest of that hymn from which I began to quote just now--
 
-"I need a principle within Of jealous godly fear. A sensibility of sin, A pain to feel it near!
+"I need a principle within Of jealous godly fear. A sensibility of sin, a pain to feel it near!
 
 1 need the first approach to feel Of pride, or fond desire
 
@@ -94,11 +94,11 @@ My well-instructed soul
 
 And drive me to the blood again,
 
-Which makes the wounded whole!" II. I must not say more upon this part of the subject lest I should weary you. So I pass on to ask, in the second place, WHY SHOULD WE SEEK TO AVOID BEING PARTAKERS OF OTHER MEN'S SINS?
+Which makes the wounded whole!" II. I must not say more upon this part of the subject lest I should weary you. So I pass on to ask, in the second place, WHY SHOULD WE SEEK TO AVOID BEING PARTAKERS OF OTHER MEN's SINS?
 
 This will be a sufficient answer--Because we have more than enough sins of our own and cannot also carry other people's. And also because if we are partakers in their sins, we shall also partake in their plagues. And because we do other men an injury by being accomplices with them--we steel and harden them in their sins. The weightiest reason of all is this--we should not be "partakers of other men's sins" because, by so doing, we should grieve our holy and gracious God--and no true lover of Christ ought ever to do that! Remember what Paul wrote to the saints at Ephesus, "Grieve not the Holy Spirit of God, whereby you are sealed unto the day of redemption."
 
-My next question is--HOW CAN WE AVOID BEING PARTAKERS IN OTHER MEN'S SINS?
+My next question is--HOW CAN WE AVOID BEING PARTAKERS IN OTHER MEN's SINS?
 
 And I reply--Only by the help of God's Spirit! First, be very jealous about other men's sins. I wish all parents acted as wisely as Job did concerning his children. They went to one another's houses and feasted, so Job "rose up early in the morning and offered burnt offerings according to the number of them all: for Job said, It may be that my sons have sinned and cursed God in their hearts." O parents, do likewise, for that is the way to keep yourselves from participation in your children's sins!
 

@@ -3,7 +3,7 @@
 > "Standstill and see the salvation of the Lord."  
 > Exodus 14:13.  
 
-GOD'S great design in all His works is the manifestation of His Glory. Any aim less than this were unworthy of Himself. He cannot act for the good of His creatures as an ultimate aim, for that were for God to be impelled by a motive less great than His own Nature. Since there can be nothing greater than the Infinite and there can be but one Infinite--if the infinite God is moved by an infinite motive which is the only one worthy of Him, that motive must be found in His own Glory. It is, then, the Lord's will to manifest His Glory to the sons of men. But how shall the Glory of God be manifested to such fallen creatures as we are?
+GOD's great design in all His works is the manifestation of His Glory. Any aim less than this were unworthy of Himself. He cannot act for the good of His creatures as an ultimate aim, for that were for God to be impelled by a motive less great than His own Nature. Since there can be nothing greater than the Infinite and there can be but one Infinite--if the infinite God is moved by an infinite motive which is the only one worthy of Him, that motive must be found in His own Glory. It is, then, the Lord's will to manifest His Glory to the sons of men. But how shall the Glory of God be manifested to such fallen creatures as we are?
 
 Man's eyes are not single, he has ever a side glance towards his own honor and so is not qualified to behold the Glory of his God. Vanity has covered our eyes with scales more dense than those which fell from the eyes of Saul of Tarsus. We are always prone to put a high estimate upon what we are, or may be, or can feel, or do. It is clear, then, that self must stand out of the way that there may be room for God to be exalted. And this is the reason, the true secret, why God brings His people, oftentimes, into straits and difficulties, that, being brought to their wits' end and made conscious of their own folly and weakness, they may be fitted to behold the majesty of God when He comes forth to work their deliverance.
 
@@ -15,7 +15,7 @@ Praise your God, O sons of sorrow that you have not been left to the darkness an
 
 Our text exhibits the posture in which a man should be found while exercised with trial. Methinks, also, it shows the position in which a sinner should be found when he is under trouble on account of sin. We will employ it in both ways.
 
-Take our text first as A PICTURE OF THE BELIEVER WHEN HE IS REDUCED TO GREAT STRAITS. Then God's command to him is, "Stand still and see the salvation of the Lord." In this brief sentence there are two things very conspicuous--first, what is to be done, "Stand still." And secondly, what is to be seen, "See the salvation of the Lord."
+Take our text first as a PICTURE OF THE BELIEVER WHEN HE IS REDUCED TO GREAT STRAITS. Then God's command to him is, "Stand still and see the salvation of the Lord." In this brief sentence there are two things very conspicuous--first, what is to be done, "Stand still." And secondly, what is to be seen, "See the salvation of the Lord."
 
 What is to be done? The man is brought, we will suppose, into very extraordinary difficulties. He cannot retreat-- that is sure destruction. He cannot go forward--that appears to be an impossibility. On the right hand he is shut up by Providential hindrances--on the left an adversary prevents him. Here, then, is the counterpart of Israel's position-- Egyptians behind, the Red Sea in front, the craggy steeps of Pi Hahiroth on the right and the fortresses of Migdol and Baal Zephon frowning on the left. What is the Believer to do? The Master's word is the same to him as to Israel, "Stand still."
 
@@ -77,7 +77,7 @@ I have had this text burnt into my own consciousness. I desire to be found in th
 
 Depend upon it, Beloved, if, by God's Grace, we can get and keep in that frame of mind, it will not be long before God shall say to us, as distinctly as ever Moses said to the people, "Go forward." And we shall go forward to our joy rejoicing, praising and magnifying His dear name!
 
-I intend to take the text in reference to THE SINNER BROUGHT INTO THE SAME CONDITION IN A
+I intend to take the text in reference to THE SINNER BROUGHT INTO THE SAME CONDITION IN a
 
 MORAL SENSE. I will trust that I have in this House of Prayer this morning some who have been led by God's Spirit out of the Egypt of their sins, where they did eat the leeks and garlic and onions of their own sinful pleasures, but where they were made to smart as bond slaves under the Law. You have begun to feel some Divine awakenings. The Spirit of God has somewhat delivered you from the corruption of your former estate, but you are, as yet, under conviction.
 

@@ -72,7 +72,7 @@ There was a young man here, one Thursday night, when I closed with some such wor
 
 EXPOSITION BY C. H. SPURGEON: PSALM46.
 
-To the ChiefMusician for the sons of Korah, A Song upon Alamoth.
+To the ChiefMusician for the sons of Korah, a Song upon Alamoth.
 
 This Psalm is often called "Martin Luther's Psalm." Whenever there was any great trouble, Luther used to say, "Let us sing the forty-sixth Psalm together and then let the devil do his worst." This is the Psalm, too, from which Mr. John Wesley preached in Hyde Park at the time of a great earthquake. While the earth was shaking and there was a great storm, Mr. Wesley preached from the second verse--"Therefore we will not fear, though the earth be removed, and though the mountains be carried into the midst of the sea."
 

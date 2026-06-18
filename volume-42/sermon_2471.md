@@ -48,7 +48,7 @@ Beside that, there have been times when we have been in the House of Prayer, or 
 
 Oh, what a blessing it is to live with a present God! If anyone says to me that there is no God, he might as well tell me that there is no air! I cannot see it, but I know that I am living in it, and that I could not live without it, so, "in Him we live, and move, and have our being." The Lord is Life, Light, Love, Liberty and All in All to some of us. "Is not the Lord your God with you?" is no question to us, for we know that He is with us and we glorify His holy name that it is so!
 
-Now, secondly, we must devote a few minutes to those poor weary souls to whom this is A QUESTION--"Is not the Lord your God with you?"
+Now, secondly, we must devote a few minutes to those poor weary souls to whom this is a QUESTION--"Is not the Lord your God with you?"
 
 "Oh," says one, "I have no joy! I have very little rest! I nave nothing but trouble--deep calls to deep at the noise of his waterspouts and I am so weak, so feeble, so faint, I cannot imagine that the Lord is with me! I see no signs of His Presence, neither do I perceive even a star of hope amid the dense darkness of the night." Listen, dear Friend, have you taken Him to be your God? Are you trusting Him? Are you determined to rely on nothing but the finished work of Christ? Then He is with you though you do not perceive His Holy Spirit--in the deepest darkness He is with you!
 

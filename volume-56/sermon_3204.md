@@ -120,9 +120,9 @@ For we know not what we should pray for as we ought: but the Spirit itself makes
 
 And He that searches the hearts knows what is the mind of the Spirit, because He makes intercession for the
 
-saints according to the will of God. [See Sermon #1532, Volume 26--THE HOLY SPIRIT'S INTERCESSION.] It cannot be supposed that the Father does not know what is the mind of the Spirit, since they are one God, and, moreover, inasmuch as the Spirit of God never intercedes for anything which is not according to God's will, we are sure that our heavenly Father will grant every Spirit-indited prayer!
+saints according to the will of God. [See Sermon #1532, Volume 26--THE HOLY SPIRIT's INTERCESSION.] It cannot be supposed that the Father does not know what is the mind of the Spirit, since they are one God, and, moreover, inasmuch as the Spirit of God never intercedes for anything which is not according to God's will, we are sure that our heavenly Father will grant every Spirit-indited prayer!
 
-And we know that all things work together for good to them that love God, to them who are the called according to His purpose." [See Sermon #159, Volume 3--THE TRUE CHRISTIAN'S BLESSEDNESS.] Almost everything in this world looks to us to be in confusion, but to God's eyes, all is in order. One wave dashes this way and another that, but they are all working together, and they are all working with one great purpose, too. Say not, Christian, "All these things are against me." Ah, poor Soul! This is the verdict of your unbelief, but you will know better than that one of these days! All things are working for you, and not one of them is working against you--therefore, be not dismayed. They are all working together for good to those who love God, to those who are the called according to His purpose.
+And we know that all things work together for good to them that love God, to them who are the called according to His purpose." [See Sermon #159, Volume 3--THE TRUE CHRISTIAN's BLESSEDNESS.] Almost everything in this world looks to us to be in confusion, but to God's eyes, all is in order. One wave dashes this way and another that, but they are all working together, and they are all working with one great purpose, too. Say not, Christian, "All these things are against me." Ah, poor Soul! This is the verdict of your unbelief, but you will know better than that one of these days! All things are working for you, and not one of them is working against you--therefore, be not dismayed. They are all working together for good to those who love God, to those who are the called according to His purpose.
 
 For whom He did foreknow, He also did predestinate to be conformed to the image of His Son, that He might be
 
@@ -155,7 +155,7 @@ Paul--
 
 It is God that justifies. He is both Just and the Justifier of all who believe in Jesus, and they are "God's elect."
 
-Who is He that condemns [See Sermons #256, Volume 5--THE BELIEVER'S CHALLENGE and #2240, Volume 38--A CHALLENGE AND A
+Who is He that condemns [See Sermons #256, Volume 5--THE BELIEVER's CHALLENGE and #2240, Volume 38--a CHALLENGE AND a
 
 SHIELD.] "Why," says one, "Christ, the great Judge, will condemn." No, that He will not, for--
 
@@ -169,4 +169,4 @@ It is written, For Your sake we are killed all day long; we are accounted as she
 
 neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height nor
 
-depth, nor any other creature shall be able to separate us from the love of God, which is in Christ Jesus our Lord [See Sermon #2492, Volume 45--PAUL'S PERSUASION.]
+depth, nor any other creature shall be able to separate us from the love of God, which is in Christ Jesus our Lord [See Sermon #2492, Volume 45--PAUL's PERSUASION.]

@@ -1,4 +1,4 @@
-# Sermon 1248 | The Choice Of A Leader
+# Sermon 1248 | The Choice Of a Leader
 
 "And he spoke a parable unto them, Can the blind lead the blind? Shall they not both fall into the ditch? The disciple is not above his master: but everyone that is perfect shall be as his master." Luke 6:39, 40.
 
@@ -110,7 +110,7 @@ It is a beautiful subject! I wish I had the power to work it out, the way in whi
 
 Now, lastly, we will dwell for two or three minutes upon this encouraging fact, that WE MAY PUT ALL THIS TO THE TEST this morning if we will. Brothers and Sisters, if you are not disciples of Jesus Christ, remember, He will receive you! He will receive you though you have been to other masters and learned a great deal under them, all of which you will have to unlearn. It is a very easy thing to take a man and teach him if his mind is clear and clean. But you have learned a great deal that you will have to forget.
 
-O you of 40, 50, or 60, what a world of mischief there is in you that will have to come out! Well, my Master will take you for pupils, though you have been with other masters all this while. And, though you do not know even the rudiments of what He is going to teach, He will take you. My Lord Jesus keeps an A B C school--He begins with the infants. What a mercy it is that He takes such poor, stupid heads as ours, who know nothing except what we ought not to know! And I will add, if you have but very little capacity, or none at all, it does not matter--
+O you of 40, 50, or 60, what a world of mischief there is in you that will have to come out! Well, my Master will take you for pupils, though you have been with other masters all this while. And, though you do not know even the rudiments of what He is going to teach, He will take you. My Lord Jesus keeps an a B C school--He begins with the infants. What a mercy it is that He takes such poor, stupid heads as ours, who know nothing except what we ought not to know! And I will add, if you have but very little capacity, or none at all, it does not matter--
 
 "He takes the fool, and makes him know The wonders of His dying love."
 

@@ -143,4 +143,4 @@ God having provided some better thing for us, that they without us should not be
 
 --Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

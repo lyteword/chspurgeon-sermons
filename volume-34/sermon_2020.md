@@ -143,7 +143,7 @@ Attempt great things for God. Attempt something which as yet you cannot do. Any 
 
 Let the text be a reason for adoration. O You to whom nothing is hard, we adore You! We worship You with all our hearts and this day we believingly link our weakness with Your omnipotence. We trust You for life, for death, for eternity. Dear Savior, we trust You now with all our sins and sorrows. Nothing is too hard for You, therefore save Your poor servants according to the riches of Your grace--
 
-> A guilty, weak and helpless worm,   
+> a guilty, weak and helpless worm,   
 > On Your kind arms I fall;   
 > Be You my strength and righteousness,   
 > My Jesus and my All.

@@ -71,7 +71,7 @@ The clouds, also, denote the terror of His coming to the ungodly. His saints sha
 
 I am in happy circumstances, tonight, because my subject requires no effort of imagination from me. To indulge fancy on such a theme would be a wretched profanation of so sublime a subject which, in its own simplicity, should come home to all hearts. Think clearly for a moment, till the meaning becomes real to you. Jesus Christ is coming, coming in unknown splendor! When He comes, He will be enthroned far above the attacks of His enemies, the persecutions of the godless and the sneers of skeptics. He is coming in the clouds of Heaven and we shall be among the witnesses of His appearing! Let us dwell upon this Truth of God!
 
-Our second observation is this--OUR LORD'S COMING WILL BE SEEN BY ALL. "Behold, He comes with
+Our second observation is this--OUR LORD's COMING WILL BE SEEN BY ALL. "Behold, He comes with
 
 clouds, and every eye shall see Him, and they also which pierced Him."
 

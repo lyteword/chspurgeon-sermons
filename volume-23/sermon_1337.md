@@ -2,7 +2,7 @@
 
 "Behold, for peace I had great bitterness: but You have, in love to my soul, delivered it from the pit of corruption: for You have cast all my sins behind Your back" Isaiah 38:17.
 
-HEZEKIAH'S recovery is a notable encouragement to prayer. If ever there was a case in the world where it seemed impossible that prayer could be of any use, it was that of Hezekiah. It was perceivable by everybody around him that he was sick unto death. Why, then, think of prayer? The case was fatal. Would it not expose prayer to derision if such a matter were taken before the Mercy Seat? Moreover, God's own Word, spoken by His servant the Prophet, had been given--"Set your house in order, for you shall die, and not live." What could be the use of prayer after that? Might it not be regarded as an impertinent interference with the known will of the Lord?
+HEZEKIAH's recovery is a notable encouragement to prayer. If ever there was a case in the world where it seemed impossible that prayer could be of any use, it was that of Hezekiah. It was perceivable by everybody around him that he was sick unto death. Why, then, think of prayer? The case was fatal. Would it not expose prayer to derision if such a matter were taken before the Mercy Seat? Moreover, God's own Word, spoken by His servant the Prophet, had been given--"Set your house in order, for you shall die, and not live." What could be the use of prayer after that? Might it not be regarded as an impertinent interference with the known will of the Lord?
 
 Yet, Brothers and Sisters, the proverb says that hunger breaks through stone walls--and so the desire to live, on the king's part--drove him to pray! Through all arguments and reasonings did Hezekiah's prayer break its way to the Throne of God. He turned his face to the wall in more than one sense on that occasion, for it seemed as if a wall stood in the front of him and shut out all hope of life. Yet he turned his face to it and prayed his way through it! Mark well his success. Fifteen years longer did he live in answer to his entreaties!
 
@@ -133,7 +133,7 @@ We spoke of bitter draughts under our first head, and truly these have their vir
 > And lightnings flash, to blast my soul,   
 > I still had stubborn been.   
 > But mercy has my heart subdued,   
-> A bleeding Savior I have viewed,   
+> a bleeding Savior I have viewed,   
 > And now I hate my sin.   
 
 We must briefly notice the modus operandi of this love. "You have embraced my soul out of the pit of corruption." Yonder is the child in the pit and the father, wishing to save it, goes down into the pit and embraces his beloved one and so brings him up to life and safety. After this manner did Jesus save us! He embraced us by taking our nature and so becoming one with us. It is by embraces that He regenerates converts and sanctifies us, for He comes into union with us by the indwelling of the Holy Spirit! All our lives He communes with us and embraces us with arms of mighty love and so lifts us up from the pit of corruption.

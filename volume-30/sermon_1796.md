@@ -24,7 +24,7 @@ We have not yet all been brought within the bonds of the Covenant. We have not y
 
 I shall want you carefully to notice three things. The first is, that God has a people whom He calls His saints--of these we read in the text. Secondly, these are placed in the first rank, for while it is said, "All Your works shall praise You, O Lord," the saints occupy a special position and are spoken of by themselves. They are put before all others--"and Your saints shall bless You." Thirdly, these people render a special homage. While they join in the praise which comes up from all God's works, they stand in an inner circle and fulfill a peculiar ministry and, therefore, we read, "Your saints shall bless You."
 
-Come, then, to our work. May the Holy Spirit help us! First, GOD HAS A PEOPLE WHOM HE CALLS HIS
+Come, then, to our work. May the Holy Spirit help us! First, GOD HAS a PEOPLE WHOM HE CALLS HIS
 
 SAINTS. Who are they? Are they all dead? It is supposed so, for the usage of the Popery around us is to call men saints who have been long in their graves, while living men are not regarded in that light. I notice, even among those who call themselves Protestants, a great many relics of the old harlot of the seven hills, and among the rest, this nonsense of dead saintship! Somebody wrote me the other day about his, "sainted mother." What did he mean? Had the Pope canonized her? Or did she become a saint by dying? Does death, which came in through sin, bring sainthood with it?
 
@@ -96,7 +96,7 @@ degree of affinity to Himself and has illustrated this by varied degrees of rela
 
 The nearness of our kin to Deity ought to overwhelm us with humble gratitude and intense delight. God has done infinitely more for us than for all His creatures besides. Rise as you may in creatureship, even till you reach the cherubim and the seraphim--even above these stands the Son of God--the Son of Man--and we are one with Him! Oh, the exceeding riches of the Grace and the Glory of God in His saints!
 
-So I finish by noticing, dear Friends, that as God has a people called saints, and as He has put them in the front rank, THEY RENDER A SPECIAL HOMAGE to Him. This homage is true praise and yet it has a certain difference of principle in it, so that it is instructive to say, "All Your works shall praise You, O Lord," but, "Your saints shall bless
+So I finish by noticing, dear Friends, that as God has a people called saints, and as He has put them in the front rank, THEY RENDER a SPECIAL HOMAGE to Him. This homage is true praise and yet it has a certain difference of principle in it, so that it is instructive to say, "All Your works shall praise You, O Lord," but, "Your saints shall bless
 
 You."
 

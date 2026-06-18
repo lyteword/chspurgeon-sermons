@@ -1,4 +1,4 @@
-# Sermon 1591 | Honey From A Lion
+# Sermon 1591 | Honey From a Lion
 
 "But the free gift is not like the offense For if through the offense of one, many are dead, much more the Grace of God, and the gift by Grace, which is by one Man, Jesus Christ, has abounded unto many." Romans 5:15.
 

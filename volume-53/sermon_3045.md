@@ -1,4 +1,4 @@
-# Sermon 3045 | Believers A Blessing
+# Sermon 3045 | Believers a Blessing
 
 "You shall be a blessing," Zechariah 8:13.
 
@@ -7,7 +7,7 @@ SO terribly had God punished idolatrous Israel and Judah that their names were a
 Leaving that primary meaning of the passage, I am going to apply the promise of the text to the spiritual'Israel. In His inscrutable wisdom, God allowed His ancient people, the nation of Israel, to become a curse among the other nations of the earth. Their idolatry was not only high treason against God, but it also gave the very heathen reason to blaspheme His holy name. The Lord said, by the mouth of the Prophet Jeremiah, "Has a nation changed their gods which are yet no gods? But My people have changed their glory for that which does not profit. Be astonished, O you heavens at this and be horribly afraid, be you very desolate, says the Lord. For My people have committed two evils: they have forsaken Me, the fountain of living waters and hewed them out cisterns, broken cisterns, that can hold no water." Israel turned aside from Jehovah to worship Baal, Ashtaroth and other false gods without number--and so, by evil example, Israel led other people into idolatry, dishonored the name of the Most High and became a curse among the nations. Yet Israel was the guardian of the Oracles of God and the time will yet come when God shall again visit His ancient people--and the branches that have been broken off, because of unbelief, shall be grafted again into their own olive tree--and their "fullness" shall be "the riches of the Gentiles," as Paul so plainly shows in the parable of the olive trees in Romans 11:1136. Indeed, at this very hour a Jew is the riches of Jews and Gentiles alike, for our Lord sprang out of Judah and, therefore, do we "take hold of the skirt of Him that is a Jew, saying, We will go with You." And He is to us, "more precious than fine gold; even a man than the golden wedge of Ophir." The Son of Mary, who is also the Son of God, is our blessed Lord and Savior, and in Him is that ancient promise fulfilled which was made to Jacob at Bethel, "In you and in your seed shall all the families of the earth be blessed." We cannot sing too often that grand Coronation Anthem of the Christian Church--
 
 > All hail the power of Jesus' name! Let angels prostrate fall. Bring forth the royal (diadem, And crown Him Lord of all!   
-> Crown Him, you martyrs of our God, Who from His altar call. Extol the stem of Jesse's rod, And crown Him Lord of all! You chosen seed of Israel's race, A remnant weak and small, Hail Him who saves you by His Grace, And crown Him Lord of all!   
+> Crown Him, you martyrs of our God, Who from His altar call. Extol the stem of Jesse's rod, And crown Him Lord of all! You chosen seed of Israel's race, a remnant weak and small, Hail Him who saves you by His Grace, And crown Him Lord of all!   
 
 Yet let us not omit to sing also --
 
@@ -61,7 +61,7 @@ Snatch them in pity from sin and the grave." In such a city as this, with hundre
 > 'Tis not for man to trifle!   
 > Life is brief,   
 > And sin is here.   
-> Our age is but the falling of a leaf, A dropping tear.   
+> Our age is but the falling of a leaf, a dropping tear.   
 > We have no time to sport away the hours, All must be earnest in a world like ours. Not many lives but only one have we, One, only one--   
 > How sacred should that one life always be, That narrow span!   
 > Day after day filled up with blessed toil, Hour after hour still bringing in new spoil.   

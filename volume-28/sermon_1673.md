@@ -99,7 +99,7 @@ This is the joy of Christ's heart forever! He welcomes our return to God! He is 
 
 Let me try, and may the Spirit of God help me, TO AWAKEN YOUR INTEREST IN THE SWEET RESULTS
 
-OF JESUS CHRIST'S HAVING APPROACHED GOD FOR US. The first result is found in the chapter. Read that twenty-second
+OF JESUS CHRIST's HAVING APPROACHED GOD FOR US. The first result is found in the chapter. Read that twenty-second
 
 verse. Read it with your own eyes and wonder that it should be put there. "Who is this that engaged His heart to approach unto Me? says the Lord. And you shall be My people, and I will be your God." That is, because our royal High Priest approached unto God for us, therefore we who were called outcasts; we whose wound was incurable and grievous; we that were utterly ruined and undone--we, believing in this Jesus--shall, in Him, become the people of God!
 

@@ -16,7 +16,7 @@ Divine Nature." In his first Epistle, he writes concerning "being born-again, no
 
 My subject is the imperative necessity of regeneration and I want to show you, first, that the new birth is a great necessity. And, secondly, to ask, have we all experienced it?
 
-First, then, I want to show you that THE NEW BIRTH IS A GREAT NECESSITY.
+First, then, I want to show you that THE NEW BIRTH IS a GREAT NECESSITY.
 
 That it is a necessity is quite certain, because it is Jesus Himself who says,' 'You must be born-again," and Jesus cannot err. Unless we are prepared to reject Him altogether, we must believe Him to be the Infallible Teacher sent from God. Yet He says, "You must be born-again," and you may depend upon it that you must if you are ever to be saved. He was of a gentle, loving spirit. He never bound heavy burdens upon men's shoulders which they were not able to bear. He was so gentle that the little children gathered around His knees and He took them up in His arms and blessed them. I am sure that if He could have said, "You can enter the Kingdom of Heaven without experiencing the new birth," He would have said so. He said, "Strait is the gate, and narrow is the way which leads unto life," because He must speak the Truth of God. In other places, how blessedly has He set the gate of mercy wide open, saying, "If any man thirsts, let him come unto Me and drink." And His last Gospel invitation is, "Whoever will, let him take the water of life freely." The words of our text become all the more solemn because they drop from the lips of Him who would not exclude a single soul from everlasting happiness unless the Truth of God required Him to do so. It is the kinder, gentle, loving Christ who says, "You must be born-again," and so shuts and bars the gate of Heaven against the admission of the unregenerate!
 
@@ -37,7 +37,7 @@ This necessity is evident if we consult the authority of Scripture. Consider its
 > The Sovereign Will of God alone   
 > Creates us heirs of Grace--   
 > Born in the image of His Son,   
-> A new peculiar race.   
+> a new peculiar race.   
 
 Remember also what even the Gospel requires of men. Men can hear the Gospel, for they have ears, but they cannot understand it until the Spirit of God opens their minds and hearts to receive it. Unto this day it happens unto men as unto the generation in Christ's day that though they have ears, they hear not, and though we speak unto them, they do not perceive, for how shall the fleshly man receive spiritual things? The unregenerate heart can no more understand the Gospel than a horse can understand astronomy--it is altogether beyond the comprehension of the carnal man! When we use a simple metaphor, he takes it as literally, as Nicodemus did when the Lord said to him, "Except a man is born-again, he cannot see the Kingdom of God," and he foolishly asked, "Can he enter a second time into his mother's womb and be born?" When Christ talked to the woman at the well of Sychar about the living water, she said at once, "Sir, give me this water, that I thirst not, neither come here to draw." And, today, when Christ says concerning the bread at the communion, "Take, eat, this is My body," the carnally-minded say that the bread is turned into flesh, not having the spiritual discernment to be able to comprehend even the simplest metaphors which the Lord Jesus Christ is pleased to use! Spiritual things must be spirituallydiscerned and, therefore, the carnal mind cannot discern them!
 

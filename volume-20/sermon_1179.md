@@ -104,7 +104,7 @@ No, Brothers and Sisters, if a man has been helped of God to live for 40 years, 
 
 The servant of God must not be the servant of men. The only man whom God will bless is he who fears no man's face and resolves that whether he offends or pleases, he will clear his soul from the blood of all men--
 
-"Fearless myself a dying man, Of dying man's esteem, I preach as though I might never preach again-- A dying man to dying men."
+"Fearless myself a dying man, Of dying man's esteem, I preach as though I might never preach again-- a dying man to dying men."
 
 Have the Israelites lived for forty years on manna, and shall they bow before the Edomites, and like paupers cry, "Please give us bread"? No, the favored feasters at Heaven's table can afford to say, "We will pay you, we will owe you nothing." God give you independence of spirit, my Brethren! Many have forgotten what it means--they will do anything for the sake of custom, or credit, or to get into society--and if they grow rich they can no longer attend a Non-conformist place of worship! For the sake of being patted on the back by nobodies they give up their fathers' religion and renounce their principles, if, indeed, they ever had any!
 

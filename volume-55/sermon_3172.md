@@ -20,7 +20,7 @@ as that, the Sun of Righteousness will arise with healing in His wings and the t
 
 But I do not intend to dwell tonight upon any of these three probable fulfillments of the prophecy. I want rather to talk about matters which more nearly concern us just now and to put a few practical soul-matters before this entire congregation, hoping that God may press them home upon some--so that they may find healing beneath the wings of Christ tonight!
 
-The text speaks, you will observe, of a certain class of persons--THOSE WHO FEAR GOD'S NAME.
+The text speaks, you will observe, of a certain class of persons--THOSE WHO FEAR GOD's NAME.
 
 The great multitude of people in the world do notfear the name of God. They do not care whether there is a God or not. If there were no God, their conduct would not be very different from what it is now. God is not in all their thoughts--they live as if they were their own creators and sustainers--and practically join in the language of Pharaoh, "Who is Jehovah that I should obey His voice?" Now, for such people, the Bible contains no blessing--why should it when they reject both it and the God who wrote it?
 
@@ -46,7 +46,7 @@ Christ, then, is the Sun of Righteousness. Now, Sinner. Now, Trembler. If you fe
 
 But the figure employed in the text is a double one. It is said that sometimes in the East, after a long time of calm, the very air gets putrid and the glowing sand reflects the burning heat till, presently, a refreshing land breeze comes up with the sunrise. So Christ is here pictured as a sun--His beams being like the wings of some gigantic golden eagle--and those wings, like refreshing winds, bringing health to the poor sickly inhabitants of earth who are ready to die. Certainly when Christ comes in all His splendor of Light, for He is "the Light of the world," He comes also with health to sick souls! Do not believe, Soul, that your sickness is incurable, though Satan may tell you a thousand times that it is! If Christ comes to deal with you, Man, though your disease should be the deadly cancer of blasphemy, He can cure it! Though you should have the fever of drunkenness within your soul, Christ can heal you of that fiery malady! I ventured to say this
 
-morning that there is now no hospital for incurable souls [See Sermon #720, Volume 12--THE GOSPEL'S HEALING POWER.] because Christ can cure all manner of spiritual diseases!
+morning that there is now no hospital for incurable souls [See Sermon #720, Volume 12--THE GOSPEL's HEALING POWER.] because Christ can cure all manner of spiritual diseases!
 
 You perceive that the text does not say that they who fear the name of the Lord shall be cured of their spiritual maladies by what they do themselves. No, but that Christ, the Sun of Righteousness, shall arise upon them and in His light they shall obtain the health they lack! Get Jesus, poor Soul, and you need not trouble yourself about much else. There is everything that a sinner requires in the Person of the appointed Savior. Arise, O You blessed Jesus Christ, like the sun upon the darkness, that some who are in this place may now leave their sins and rejoice in Your power to save!
 
@@ -114,7 +114,7 @@ Verses 25-28. And, behold, a certain lawyer stood up and tempted Him, saying, Ma
 
 But he, willing to justify himself, said unto Jesus, And who is my neighbor? The Savior then related this incident which I have no doubt was really a fact.
 
-And Jesus answering said, A certain man went down from Jerusalem to Jericho, and fell among thieves which stripped him of his raiment, and wounded him, and departed, leaving him half deat. It was a very dangerous road, a very lonely part--and robberies were very frequent there.
+And Jesus answering said, a certain man went down from Jerusalem to Jericho, and fell among thieves which stripped him of his raiment, and wounded him, and departed, leaving him half deat. It was a very dangerous road, a very lonely part--and robberies were very frequent there.
 
 And by chance there came down a certain priest that way: and when he saw him, he passed by on the other side. He did not like the look of wounds and blood. It is a very convenient thing not to recollect the miseries of your fellow men. Do not think about their poverty--it might spoil your digestion! Do not think about their drunkenness--you might have to become a teetotaler! Do not think about their sin--you might have to go and preach in the street to them! You can live so easily and pleasantly, and even be a priest and be called, "His Reverence," if you are very careful which side of the road you take. "He passed by on the other side."
 

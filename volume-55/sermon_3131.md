@@ -67,7 +67,7 @@ Trust in the LORD, and do good. These are two good things to go together--faith 
 
 So shall you dwell in the land Not merely on earth, but in the land of promise, the land which God has promised to His people. We dwell there by faith even now. Everywhere we find our God and wherever we find Him, it is Emmanuel's land to us.
 
-So and verily you shall be fed. "Verily, verily," is Christ's most solemn affirmation. [See Sermon #3053, Volume 53--jesus CHRIST'S IDIOM] David here says, "verily," because the statement
+So and verily you shall be fed. "Verily, verily," is Christ's most solemn affirmation. [See Sermon #3053, Volume 53--jesus CHRIST's IDIOM] David here says, "verily," because the statement
 
 he makes is absolutely true--"Trust in the Lord, and do good; so shall you dwell in the land, and verily you shall be fed."
 

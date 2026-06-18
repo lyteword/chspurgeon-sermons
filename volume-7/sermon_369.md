@@ -20,7 +20,7 @@ They continued both to teach and preach Jesus Christ. To preach Jesus Christ ari
 
 To preach Christ, however, we must also preach his true humanity. We must never make him to be less manlike because he was perfectly divine. I love that hymn of Hart which begins--
 
-> A man there was--a real man,   
+> a man there was--a real man,   
 > Who once on Calvary died.   
 
 "Real man!" I think we do not often realize that manhood of Christ; we do not see that he was bone of our bone, and flesh of our flesh; feeling, thinking, acting, suffering, doing, just like ourselves--one of our fellows, and only above us because he is "exalted with the oil of gladness above his fellows." We must have a human Christ, and we must have one of real flesh and blood too; not of shadows or filmy fancies. We must have one to whom we can talk, one with whom we can walk, one

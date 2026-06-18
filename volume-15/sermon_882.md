@@ -14,7 +14,7 @@ In the text the Apostle says that the old nature is in every Believer crucified 
 
 That shall make our first point, the old nature crucified. The second point shall be that if ever the old nature is put to death at all, it must be with Christ--we are crucified with Him. The old man is crucified with Him. And then, in the third place, we shall have some practical and solemn applications to make.
 
-Now, first, THE OLD MAN IS TO DIE, BUT IT IS TO DIE IN THE LIKENESS OF CHRIST'S DEATH BY CRUCIFIXION.
+Now, first, THE OLD MAN IS TO DIE, BUT IT IS TO DIE IN THE LIKENESS OF CHRIST's DEATH BY CRUCIFIXION.
 
 What kind of death was that? First, our Lord died a true and real death. There were certain heretics who disturbed the early Christian Church who said that our Lord did not really and actually die. But we know that He died, for His heart was pierced by the spear and the flowing of the blood and water proved that He was, in very deed, most truly dead.
 

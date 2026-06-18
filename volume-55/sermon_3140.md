@@ -74,7 +74,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM89.1-38.
 
 Verses 1, 2. I will sing of the mercies of the LORD forever: with my mouth will I make known Your faithfulness to all generations. For I have said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens.
 
-[See Sermon #1565, Volume 26--MASCHIL OF ETHAN, A MAJESTIC SONG.] So far,
+[See Sermon #1565, Volume 26--MASCHIL OF ETHAN, a MAJESTIC SONG.] So far,
 
 the gracious man declares the resolution of his heart to praise his God forever and gives the reason for that resolve. Now he quotes the Lord's Covenant with David.
 

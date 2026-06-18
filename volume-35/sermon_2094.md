@@ -17,7 +17,7 @@ Not so the wise king engaged in the service of God. He paid great attention to u
 
 I want, dear Friends, to urge that all our work for God should be done thoroughly and especially that part of it which lies lowest and is least observed of men. I shall first say this is God's method--He builds all His works with good foundations. Secondly, this should be our method in all work for God. And, thirdly, this is a wise method. Briefly upon each, as the Holy Spirit shall help me.
 
-First, THIS IS GOD'S METHOD. Wherever you turn your eyes upon the work of God, it is perfect. It will bear the keenest inspection. You may look at it from a distance with a telescope, or you may search it with a microscope. But you shall find no imperfection. The Lord's work is perfect, not merely on the surface but to its center. If you cut deep, or if you pull it to pieces, dividing atom from atom, you shall see the wisdom of God in the minutest particle.
+First, THIS IS GOD's METHOD. Wherever you turn your eyes upon the work of God, it is perfect. It will bear the keenest inspection. You may look at it from a distance with a telescope, or you may search it with a microscope. But you shall find no imperfection. The Lord's work is perfect, not merely on the surface but to its center. If you cut deep, or if you pull it to pieces, dividing atom from atom, you shall see the wisdom of God in the minutest particle.
 
 Observe the work of creation. God took care that even in the material universe there should be a grand foundation for His noble edifice. We have the story of the fitting up of the world, during the seven days, for the habitation of man. But we have not the history of the creation of the earth before that time. To prepare for the seven days' rapid furnishing of the earth for man, millions of years may have elapsed. The foundation was laid with great care. No limit can be set to the period preceding the making of man, if you only follow the Word of God in Genesis.
 
@@ -109,7 +109,7 @@ I believe that if preachers and teachers work into their lessons the life of the
 
 Brothers and Sisters, we must put "good stones, costly stones and hewed stones" into the unseen part of our edifice, that, as a whole, our work may be meet for the thrice-holy Lord.
 
-My time fails me. But under my third head I must carefully, though briefly, set forth the reasons why this should be done. IT IS A WISE METHOD.
+My time fails me. But under my third head I must carefully, though briefly, set forth the reasons why this should be done. IT IS a WISE METHOD.
 
 First, because it is suitable for God. You build your temple for God and not for men--you should, therefore, make that part of the building good which will be seen by Him. And as He sees it all, it must be all of the best. The Lord sees the foundation just as much as He does the topstone--all things are naked and open to the eyes of Him with whom we have to do. Even heathens recognized this. A Grecian sculptor had to prepare an image of a god for one of the temples. He was working away with all his might at the back of the head and at the hinder garments of the figure.
 

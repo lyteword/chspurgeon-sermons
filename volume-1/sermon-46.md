@@ -41,8 +41,8 @@ One thought more in contrasting the position of the Israelites with ourselves&md
 
 > I fly like a bird of the air,    
 > In search of a home and a rest;    
-> A balm for the sickness of care,    
-> A bliss for a bosom unblest.    
+> a balm for the sickness of care,    
+> a bliss for a bosom unblest.    
 
 Read the lives of any men who have had no gospel justification, or have had no knowledge of God, and you will find that they were like the poor bird that had its nest pulled down, and knew not where to rest, flying about, wandering, and seeking a habitation. Some of you have tried to find rest out of God. You have sought to find it in your wealth; but you have pricked your head when you have laid it on that pillow. You have sought it in a friend, but that friend's arm has been a broken reed, where you hoped it would be a wall of strength. You will never find rest except in God; there is no refuge but in him. Oh! what rest and composure are there in him! It is more than sleep, more than calm, more than quiet; deeper than the dead stillness of the noiseless sea in its utmost depths, where it is undisturbed by the slightest ripple, and winds can never intrude. There is a holy calm and sweet repose which the Christian only knows, something like the slumbering stars up there in beds of azure; or like the seraphic rest which we may suppose beatified spirits have when they before the throne continually bow; there is a rest so deep and calm, so still and quiet, so profound, that we find no words to describe it. You have tried it, and can rejoice in it. You know that the Lord has been your dwelling-place&mdash;your sweet, calm, constant home, where you can enjoy peace in all generations. But I have dwelt too long upon this part of the subject, and I will speak of it in a different way.
 

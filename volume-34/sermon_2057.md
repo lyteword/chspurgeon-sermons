@@ -135,7 +135,7 @@ I think that the Lord does this also to encourage you in all future troubles--He
 
 When the Lord has brought you down to the bare rock, then you can go no lower and there is a chance to build a house which will stand against flood and wind. Be reliant upon Him who can work by means but can equally well work without means whenever it seems good in His sight! In such confidence you will find security against all ill weathers. The Lord changes not, and therefore you shall not be consumed.
 
-My time is done, or else I was going to say, thirdly, THERE IS A GOSPEL IN THIS TEXT for those here present. I can only hint at this in a few words.
+My time is done, or else I was going to say, thirdly, THERE IS a GOSPEL IN THIS TEXT for those here present. I can only hint at this in a few words.
 
 The first Gospel is that salvation is possible in every case. Notice, "I will save them." What can stand against a Divine "I will"? With God nothing is impossible. If there is nothing to help Him, what does it matter? He does not need help. He expressly abjures the aid of a creature when He says, "I will not save them by bow, nor by sword, nor by battle, by horses, nor by horsemen." My dear Hearer, whoever you may be, there is hope in your case--if God saves, then you can be saved. If you had to save yourself, you would not be saved. But as there is nothing wanted of you--God works salvation with His own right hand--your case is hopeful. How clear is this! And how bright with comfort!
 

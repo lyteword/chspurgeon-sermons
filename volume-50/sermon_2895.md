@@ -38,7 +38,7 @@ Then see the soldiers as they spit in His face and mock Him while they thrust a 
 
 As you think of all this, love the Lord, you who are His saints, you who have been washed in His blood, love Him! You who are wearing the spotless robe of His righteousness--love Him! You who call Him, "Husband," love Him--you who are married to Him--united in bonds that can never be severed!
 
-If this is true of you, let us pass on to the next point--that of KEEPING CHRIST'S WORDS. "If any man loves Me, says Christ, "he will keep My words. "Let us see how far we have kept His words.
+If this is true of you, let us pass on to the next point--that of KEEPING CHRIST's WORDS. "If any man loves Me, says Christ, "he will keep My words. "Let us see how far we have kept His words.
 
 I trust that, first, we keep His words by treasuring them and prizing them. Brothers and Sisters, I hope that we venerate every word that Christ has ever uttered. I trust that we desire to treasure up every syllable that He has ever spoken. There is not a word of His, recorded in the Gospels, or in any other of the Inspired pages of Revelation, by which we do not set more store than for much fine gold.
 
@@ -52,7 +52,7 @@ Then, when you know the meaning of them, do you seek to keep them in your hearts
 
 Beloved, if your heart is right with God, you will want to know all His words and to put them into practice! What care I about the words of any earthly church? They are only the words of men! But search and find the words of Christ-- and wherever they lead you, even though you are the only one who has ever been led in that way--follow wherever He leads. You cannot take the next step mentioned in my text unless you can deliberately say, "Yes, Lord, 'Your words were found and I did eat them; and Your word was unto me the joy and rejoicing of my heart, for I am called by Your name, O Lord God of Hosts,' and I long to walk in all Your statutes and ordinances, blamelessly, even to the end of my days." You may err, you may make mistakes--you may even sin--but the intent of your heart must be that having loved the Lord, you will keep His words in those various senses that I have mentioned.
 
-If you have been enabled to pass through these two gates, you may now come to the next one which tells us of A HIGH PRIVILEGE AND GREAT JOY--"He will keep My words; and My Father will love him."
+If you have been enabled to pass through these two gates, you may now come to the next one which tells us of a HIGH PRIVILEGE AND GREAT JOY--"He will keep My words; and My Father will love him."
 
 What wonderful words these are--"My Father will love him"! It is quite certain that He will do so, for when a man loves Jesus, he is in sympathy with the Eternal Father, Himself. You know, my Brothers and Sisters, that the Father's
 

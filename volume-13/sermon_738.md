@@ -104,7 +104,7 @@ Let the Church grieve the Spirit, and she shall fail to bless the age in which s
 
 aries shall cease to go forth. There shall be no marriage feasts of communion in her house. Darkness and death shall reign where all was joy and life. Brothers and Sisters, Beloved in the Lord, may the Lord prevent us from grieving His Spirit as a Church, but may we be earnest, zealous, truthful, united, and holy so that we may retain among us this heavenly Guest who will leave us if we grieve Him.
 
-Lastly, there is one PERSONAL ARGUMENT which is used in the text to forbid our grieving the Spirit-- "Whereby you are sealed unto the day of redemption." What does this mean? There are many meanings assigned by different commentators. We shall be content with the following--A seal is set upon a thing to attest its authenticity and authority. By what can I know that I am truly what I profess to be-- a Christian by profession? How do I know whether I am really a Christian or not? God sets a seal on every genuine Believer--what is it? It is the possession of the Holy
+Lastly, there is one PERSONAL ARGUMENT which is used in the text to forbid our grieving the Spirit-- "Whereby you are sealed unto the day of redemption." What does this mean? There are many meanings assigned by different commentators. We shall be content with the following--a seal is set upon a thing to attest its authenticity and authority. By what can I know that I am truly what I profess to be-- a Christian by profession? How do I know whether I am really a Christian or not? God sets a seal on every genuine Believer--what is it? It is the possession of the Holy
 
 Spirit of God!
 

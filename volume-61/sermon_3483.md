@@ -6,7 +6,7 @@ WE shall do well to notice how much in this Chapter is ascribed to the Holy Spir
 
 Now it is to this leading of the Spirit rather than to the Sonship, and all the blessed things that come out of that, that I shall direct your attention at this time. And we shall notice first--
 
-WHAT IS INTENDED BY A MAN'S BEING LED BY THE SPIRIT.
+WHAT IS INTENDED BY a MAN's BEING LED BY THE SPIRIT.
 
 Every man is led by some spirit. There is an evil spirit in the world, and it leads the mass of mankind. He who says, "I am free and led by none," is led by the spirit of pride and self-conceit. Under some form or another, the human mind subjects itself to some spiritual sway--and here we are told that those who are the sons of God are distinguished by this-- that the leadership under which they move is that of the Holy Spirit! I take this to mean, first, that the Holy Spirit becomes the governing principle of our life. Years ago we were led by the Spirit from the wilderness of our natural state. We had been called under the preaching of the Word, but vain were those calls. The Holy Spirit came and then the call of the preacher became an effectual call to our own souls. The first active Grace we ever exercised was by the leading of the Holy Spirit! We were then, for the first time, recognized as the children of God, because then, also, for the first time, we yielded ourselves up to the leadership of the Holy Spirit. And mark, from that day to this, every act of ours that has been heavenward, every thought of ours that has been towards God and His Christ, has been under the leadership of that same Spirit! He who gave us at first to live, has kept us alive! He who guided our tottering footsteps to the foot of the Cross
 

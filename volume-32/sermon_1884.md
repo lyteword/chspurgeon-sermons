@@ -2,12 +2,12 @@
 
 "Now set your heart and your soul to seek the Lord your God." 1 Chronicles 22:19.
 
-THE PASTOR'S RETURN. THREE SPECIALLY- SELECTED SERMONS TO HIS CHURCH, CONGREGATION, READERS AND FRIENDS, CONSISTING OF
+THE PASTOR's RETURN. THREE SPECIALLY- SELECTED SERMONS TO HIS CHURCH, CONGREGATION, READERS AND FRIENDS, CONSISTING OF
 
 
 THIS exhortation may be most fitly directed to those who are already saved. It was first given to the elders of Israel and we would gladly hope that they were already good men and true, but, secondly, the language might be very fitly addressed to the unconverted. There may be a little straining in this latter case, for we can hardly call the Lord, their God as yet, but still we shall venture to say to the unconverted who have come up with God's people, "Set your heart and your soul to seek the Lord your God."
 
-Let us take it, first, in ITS REFERENCE TO GOD'S OWN PEOPLE. You have already found the Lord. There is a sense in which you have not to seek Him, for you already know Him, but, in another sense, you are still to seek Him, for seeking the Lord is a description of the whole of the Believer's life. After he has found God as his salvation, he has to seek him as his Friend, as his Sanctifier, as his Example. Until they come to that glorious perfection which belongs to the better world, Christian men have something, still, to seek.
+Let us take it, first, in ITS REFERENCE TO GOD's OWN PEOPLE. You have already found the Lord. There is a sense in which you have not to seek Him, for you already know Him, but, in another sense, you are still to seek Him, for seeking the Lord is a description of the whole of the Believer's life. After he has found God as his salvation, he has to seek him as his Friend, as his Sanctifier, as his Example. Until they come to that glorious perfection which belongs to the better world, Christian men have something, still, to seek.
 
 Our first enquiry is, "What are they to seek?" Beloved Friends, I say to you, as David said to the princes of Israel, "Seek the Lord your God." Do it by endeavoring to obey Him in everything. Let it be our study to test everything that we do by God's Holy Word. Let us not willfully sin, either in commission or in omission. Let us be very particular to seek out the will of the Lord so as to fulfill not only commands which are plain, but those about which there is a question. In the service of God nothing is little and, loyalty to the great Royalty of God comes out in tenderness of conscience concerning little things. He that carelessly offends in trifles, shall fall by little and little. The greatest catastrophes in moral life come not usually all of a sudden, but by slow degrees. The dry rot enters into the timbers of the house of human character--and when it has silently worked its mischief--the house falls with a shock.
 

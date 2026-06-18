@@ -10,7 +10,7 @@ David attributes his Providential deliverance to the mercy of God by which he ha
 
 This is the passage we have to consider, "I kept myself from my iniquity." Here is, first, a personal danger--"my iniquity." And, secondly, here is a special guard--"I kept myself." And then, thirdly, here is a happy result. David could say, as he looked back upon his life, "I kept myself from my iniquity." There was no boasting in this declaration, but as his enemies accused him falsely, like an honest man, he defended himself, for he was truthfully able to say, "I kept myself from my iniquity."
 
-Well now, here is, first, A PERSONAL DANGER--"my iniquity."
+Well now, here is, first, a PERSONAL DANGER--"my iniquity."
 
 This is a dreadful possession to have in the house! A man had better have a cage of cobras than have an iniquity, yet we have, each of us, to deal at home with some special form of sin. It is said that there is a skeleton in every closet. I do not know whether that is true, but I do know that there is something very much allied to a skeleton, that is, the body of this death with which we all have to deal--and it takes a special shape in each good man. There is some particular sin which he may call "my iniquity." Not only is there the general iniquity which affects the whole race, but each man has his own particular form of it--"All we like sheep have gone astray; we have turned, everyone, to his own way." There is a general sin, but there is a particularity in it, too--each man has his own way of sinning, so that he can speak of "my iniquity."
 
@@ -42,7 +42,7 @@ which you drift into without any effort, yes, which you drift into when you are 
 
 Let me tell you one thing more--that which you do not like to hear condemned, that which you do not like the preacher to mention, that which makes you wriggle in your seat and feel, "I wish he would not say that, he is coming too closely home"--that is your iniquity! And if you can not bear that you wife should speak to you about it, or that your brother or your sister should give you a friendly word of advice concerning it--that which you are most loath to hear, probably has to do with your iniquity! We may often judge ourselves by this test. It is that which you are most loath to hear that you have most need to hear. Instead of being angry with him who points it out to you, you should be willing to pay him for doing it! When you go to your doctor and ask him to examine you--if he says, "There is something a little amiss with the heart, or with the lungs," do you knock him down? Do you get angry with him for telling you the truth? No, you give him his guinea and even thank him for imparting bad news! And should we not thank those who rebuke us and tell us of our faults? When God does not send you a faithful friend, I pray Him to send you an honest enemy who will deal straightly with you--and let you know where you weakness is, that you may then cry to God--"Lord, keep me from my iniquity."
 
-Now, secondly, in our text there is A SPECIAL GUARD--"I kept myself from my iniquity."
+Now, secondly, in our text there is a SPECIAL GUARD--"I kept myself from my iniquity."
 
 Someone may perhaps say, "I have a special temptation, but I am going to set a guard against it." Let me ask you, first, who you are--are you a child of God? Have you passed from death unto life? If you say, "No," I am not referring to you in this part of my subject. You must be born again, you must go by faith to Jesus Christ and ask for cleansing in His precious blood and renewal by the Holy Spirit. I am now talking to the child of God--the man or woman who has spiritual life. I speak to you, my dear Brothers and Sisters, because you can, by God's Grace, keep yourself from your iniquity. How are you to do it?
 
@@ -54,7 +54,7 @@ I tell you that if you let any sin master you, you will be lost! If any sin shou
 
 The true path of safety is to pray and believe against all sin. We conquer sin by faith in Christ! This is the axe that will cut down the upas tree--and there is no other that will do it. Believe in Jesus Christ, the Savior, who died for you, and then believe in Him as living again and willing to help you in every conflict against sin. Go, having Christ Crucified with you, and ask Him to crucify your sin and nail it up to His Cross. So you shall be helped to overcome, but there must be care, prayer, watchfulness, trust and continual looking up to the Lord for Grace. Only so can you say, "I kept myself from my iniquity."
 
-Thirdly, I conclude with A HAPPY RESULT.
+Thirdly, I conclude with a HAPPY RESULT.
 
 David says, "I kept myself from my iniquity." He does not say that he could not sin, but that he would not, and he did not. When a wicked man gets old, he may say, "I do not sin like those young people." No, because you cannot--it has been well said that there is many an old man who, if you could put young eyes in him, would look the same way as he used to do! That is not what we want--it is not the failure to commit a sin because your passions have grown colder, or your strength has left you--it is a change of heart that is needed. "I kept myself from my iniquity." That is, "Though it would try to tempt me, and did so, and I might have yielded to it, yet by the Grace of God I would not yield."
 

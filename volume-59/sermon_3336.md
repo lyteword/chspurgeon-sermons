@@ -8,7 +8,7 @@ Notice with pleasure that in dealing with mourners, according to the text before
 
 In our present meditation I shall call attention, first, to the lamentable condition i n which many of the Lord's mourners are found--they sit in ashes, expressive of deep sorrow. Secondly, we shall observe the Divine interposition on their behalf, for the ashes are removed and, thirdly, we shall notice the sacred gift--"Beauty for ashes." Let us begin with--
 
-THE MOURNER'S CONDITION--He is covered with ashes as the emblem of his sad estate. Let us now, like Cinderella, sit down among the cinders for awhile in order that we may come forth from the ashes with something better than glass slippers, adorned with a beauty which shall befit the king's courts! The fairy fable which has often made our childhood smile shall now be actually realized in our own souls--yes, we shall see how far the Truth of God outshines romance! How much grander are the facts of God than the fictions of men!
+THE MOURNER's CONDITION--He is covered with ashes as the emblem of his sad estate. Let us now, like Cinderella, sit down among the cinders for awhile in order that we may come forth from the ashes with something better than glass slippers, adorned with a beauty which shall befit the king's courts! The fairy fable which has often made our childhood smile shall now be actually realized in our own souls--yes, we shall see how far the Truth of God outshines romance! How much grander are the facts of God than the fictions of men!
 
 It seems, from the text, that the righteous are sometimes covered with grief Orientals were always excessive in the use of symbols and, therefore, if they were in sorrow, they endeavored to make their outward appearance describe their inward misery. They took off all their soft garments and put on sackcloth--and this they rent and tore into rags! And then
 
@@ -52,7 +52,7 @@ Ashes, also, as you know, are the emblem of death. The Romans placed in sepulchr
 
 But enough of this dolorous ditty, let us now change the subject. We have shown you the Believer in the ashes, let us now rejoice that some better thing is in store for him! Secondly, there is--
 
-A DIVINE INTERPOSITION. The Lord Himself breaks in upon the mourner's misery and makes the most gracious arrangements for his consolation. When a man is in sore trouble, he naturally begins to look this way and that way
+a DIVINE INTERPOSITION. The Lord Himself breaks in upon the mourner's misery and makes the most gracious arrangements for his consolation. When a man is in sore trouble, he naturally begins to look this way and that way
 
 for deliverance and, thereby, much of the man's mind and heart are made manifest. You may readily judge whether you are a child of God or a hypocrite by seeing in what direction your soul turns in seasons of severe trial. The hypocrite flies to the world and finds a sort of comfort there, but the child of God runs to his Father and expects consolation only from the Lord's hand! True Grace abides with God and submits itself to His will. This is always good for us. Brothers and Sisters, if the Lord makes you sick, remain sick till the Lord restores you, for it is dangerous to call in any other physician to your soul but your Lord. If the Lord frowns, do not ask others to smile, for you can derive no joy from that source. If it is God's wrath that breaks you, let God's love mend you, or else remain broken--
 

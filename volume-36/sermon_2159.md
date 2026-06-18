@@ -24,7 +24,7 @@ Before I plunge into the sermon, let me speak a word to anxious men and women wh
 
 Get this one thought into your mind and I hope it will be a help to you in the hour of conflict between faith and feeling. First, let me try and show the time for the exercise of such a faith, or, when shall we rest on resurrection and creation? Secondly, let us look upon the basis of this faith. And then, thirdly, let us sum up the outcome of such a faith. If we really get such a faith, it will be fruitful in abundant blessing.
 
-THE TIME FOR SUCH A FAITH AS THIS. To believe God unstaggeringly in the teeth of appearances--when is the best time for this? This duty is not at its best when all goes well with us, for when we walk by sight we scarcely walk by faith! When the soul is full of joy there is wide space for gratitude, but narrower room for faith. "What a man sees, what does he yet hope for?" The light of fleeting day is not for perceptions which deal with eternity--faith's hour of prime is midnight. Even a horror of great darkness affords her a better opportunity for communion with the Covenant
+THE TIME FOR SUCH a FAITH AS THIS. To believe God unstaggeringly in the teeth of appearances--when is the best time for this? This duty is not at its best when all goes well with us, for when we walk by sight we scarcely walk by faith! When the soul is full of joy there is wide space for gratitude, but narrower room for faith. "What a man sees, what does he yet hope for?" The light of fleeting day is not for perceptions which deal with eternity--faith's hour of prime is midnight. Even a horror of great darkness affords her a better opportunity for communion with the Covenant
 
 God.
 

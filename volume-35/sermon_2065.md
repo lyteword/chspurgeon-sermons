@@ -52,7 +52,7 @@ And as He thus carries the weight, observe that the distance is removed. We read
 > How dreadful was the hour,   
 > When God our wanderings laid, And did at once His vengeance pour   
 > Upon our Shepherd's head! How glorious was the Grace,   
-> When Christ sustained the stroke! His life and blood the Shepherd pays, A ransom for the flock.   
+> When Christ sustained the stroke! His life and blood the Shepherd pays, a ransom for the flock.   
 
 By that redeeming process He brought us near to God. There is no weary journey back for shepherd or sheep. He grasps the sheep. He puts it on His shoulders and they are both back at the fold. But the particular point I want you to notice is when the Great Shepherd gets this burden on His back. We read, "When He has found it He lays it upon His shoulders"--with great anxiety? Look to see whether it is so. Nothing of the sort. But is it not, "He lays it on His shoulders with great weariness"? No. Look! Look! "He lays it on His shoulders rejoicing--rejoicing."
 

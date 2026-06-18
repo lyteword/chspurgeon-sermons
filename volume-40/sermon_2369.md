@@ -12,7 +12,7 @@ It is worthy of note that in the death of Christ, the shedding of blood was made
 
 In the verse before our text we read that the priest was to take of the blood of the bullock of the sin offering and sprinkle it seven times "before the Lord, before the veil of the sanctuary." The veil concealed the inner dwelling place of God and this veil was to be sprinkled seven times, that is, perfectly. There was to be a perfect presentation of the precious blood before the place where God was concealed. After that was done, the priest was to take some of the blood of the bullock and smear with it the four horns of the golden altar which stood just in front of the veil, and near the golden candlesticks. This altar was intended for the burning of sweet incense upon it and the priest was to smear with blood the four horns of it. What was meant by that act? Let me read the text again and then at once seek to explain it. "The priest shall put some of the blood upon the horns of the altar of sweet incense before the Lord."
 
-My first observation is this--THE ATONEMENT WAS PRESENTED WITH A VIEW TO THE LORD.
+My first observation is this--THE ATONEMENT WAS PRESENTED WITH a VIEW TO THE LORD.
 
 Have you not often heard it said that all the Atonement accomplished was something in relation to us? We think upon the death of Christ and it stirs our affections, but some teachers say that is the only result--it brings us to God, but it does not bring God to us! That is what they say, but when we turn to Holy Scripture we find that the blood shedding was with reference to God, Himself, as well as with reference to us, because in the text it is distinctly said, "The priest shall put some of the blood upon the horns of the altar of sweet incense before the Lord."
 
@@ -23,7 +23,7 @@ Next, the place of the blood is where the Lord sees it in reference to us. Under
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above,   
-> A suffering Man became!   
+> a suffering Man became!   
 > 'Twas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
@@ -105,7 +105,7 @@ And he shall take the two goats, and present them before the LORD at the door of
 
 And Aaron shall cast lots upon the two goats; one lot for the LORD, and the other lot for the scapegoat. One goat was to show how sin is put away in reference to God by sacrifice, and the other goat was to show how it is put away in reference to us, God's people, by being carried into oblivion.
 
-9-14. And Aaron shall bring the goat upon which the LORD'S lot fell and offer him for a sin offering. But the goat on which the lot fell to be the scapegoat, shall be presented alive before the LORD, to make an Atonement with Him, and to let him go for a scapegoat into the wilderness. And Aaron shall bring the bullock of the sin offering, which is for himself, and shall make an Atonement for himself, and for his house, and shall kill the bullock of the sin offering which is for himself: and he shall take a censer full of burning coals offire from off the altar before the LORD, and his hands full of sweet incense beaten small, and bring it within the veil: and he shall put the incense upon the fire before the LORD, that the cloud of the incense may cover the Mercy Seat that is upon the testimony, that he die not: and he shall take of the blood of the bullock,
+9-14. And Aaron shall bring the goat upon which the LORD's lot fell and offer him for a sin offering. But the goat on which the lot fell to be the scapegoat, shall be presented alive before the LORD, to make an Atonement with Him, and to let him go for a scapegoat into the wilderness. And Aaron shall bring the bullock of the sin offering, which is for himself, and shall make an Atonement for himself, and for his house, and shall kill the bullock of the sin offering which is for himself: and he shall take a censer full of burning coals offire from off the altar before the LORD, and his hands full of sweet incense beaten small, and bring it within the veil: and he shall put the incense upon the fire before the LORD, that the cloud of the incense may cover the Mercy Seat that is upon the testimony, that he die not: and he shall take of the blood of the bullock,
 
 and sprinkle it with his finger upon the Mercy Seat eastward; and before the Mercy Seat shall he sprinkle of the blood with his finger seven times. This was his first entrance within the veil, with holy incense to denote the acceptance which Christ has with God, though He is always well-beloved, dear and precious to His Father. This incense sent up a cloud that veiled the Glory of the Shekinah which shone between the two wings of the cherubim and so the High Priest was better able to bear the wondrous brilliance by which God revealed His Presence. When Aaron had thus filled the place with the sweetly-perfumed smoke, he took the blood of the bullock of the sin offering and carefully sprinkled it seven times on the Mercy Seat, and on the ground around the Mercy Seat. What a mercy it is for you and me that the spot where we meet with God is a place where the blood of the Great Sacrifice has been sprinkled, yes, and that the ground of our meeting with God, the place on which the Mercy Seat rests, also has the blood mark upon it!
 

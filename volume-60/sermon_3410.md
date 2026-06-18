@@ -10,7 +10,7 @@ Having thus introduced to you the Pharisees, the publicans and the sinners, let 
 
 First, then, it seems that when Christ preached, He was surrounded by a number of persons of very loose character, and others of the lowest calling who pressed to Him to hear Him.
 
-WHY DID CHRIST'S HEARERS COME?
+WHY DID CHRIST's HEARERS COME?
 
 They were genuine hearers--it was a bona fide audience. I mean by that, that they were not like the crowds who followed Christ up the mountain--who followed not to hear Him, but to eat of the loaves and the fishes. These publicans and sinners were not thinking of the loaves and fishes. They were none of those who, like the old people in some parishes,go to Church in order to get the loaf of bread on the Sunday morning. They were real, bona fide hearers, who really went to hear. They were a genuine, earnest, and honest audience--and they pressed around Him to listen to Him. Why did they do this?
 
@@ -62,7 +62,7 @@ Now, sometimes when I can look straight up to my Lord, I know that I am His chil
 
 EXPOSITION BY C. H. SPURGEON: LUKE 15:11-32.
 
-Verses 11-13. And He said, A certain man had two sons: And the younger of them said to his father, Father, give me theportion of goods that falls to me. And he divided unto them his living. And not many days after, the younger son gathered all together and took his journey into a far country, and there wasted his substance with riotous living. It was an act of ingratitude to leave his father at all--an act of extreme folly to turn his father's goods to ill-account.
+Verses 11-13. And He said, a certain man had two sons: And the younger of them said to his father, Father, give me theportion of goods that falls to me. And he divided unto them his living. And not many days after, the younger son gathered all together and took his journey into a far country, and there wasted his substance with riotous living. It was an act of ingratitude to leave his father at all--an act of extreme folly to turn his father's goods to ill-account.
 
 And when he had spent all, there arose a mighty famine in that land and he began to be in need.And the sinner's greatest all will be spent one day! The pleasures of sin are but for a season. The strongest sinew in an arm of flesh will one day crack. The flowers that grow in man's garden will one day fade--man may think he has an eternity of pleasure before him, but if he is looking to the flesh for it, it shall be but for an hour.
 

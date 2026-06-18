@@ -20,12 +20,12 @@ It is well for us to always be "looking for that blessed hope and the glorious a
 > How great we must be made.   
 > But when we see our Savior here,   
 > We shall be like our Head.   
-> A hope so much Divine   
+> a hope so much Divine   
 > May trials well endure,   
 > May purge our souls from sense and sin   
 > As Christ the Lord is pure.   
 
-First, I have to try to show you WHAT THE LORD'S SUPPER SETS FORTH. It sets forth "the Lord's death."
+First, I have to try to show you WHAT THE LORD's SUPPER SETS FORTH. It sets forth "the Lord's death."
 
 There is no ordinance to set forth His birth. The Roman Catholic Church invented a feast day and called it Christ-Mass and other churches have imitated the custom--but there is no ordinance, delivered unto us by the Lord Jesus, or His Apostles, to commemorate His Nativity! Nor do I find, in the Scriptures, any record of an ordinance to commemorate His circumcision, or His first preaching, or His riding in triumph into Jerusalem, or even any ordinance to commemorate His Ascension into Glory. We generally regard the keeping of the first day of the week as a commemoration of Christ's Resurrection and of His appearance to His disciples when He showed them His pierced hands, feet and side. But even that can scarcely be called an ordinance. So, of all that Christ did or suffered, there is no ordinance enjoined upon us but that which relates to His death. Now, why is this?
 
@@ -63,7 +63,7 @@ His death is, to us, the most delightful topic of meditation. We come not to the
 
 be less a duty than a privilege and far more a pleasure than merely a service. This Supper is, virtually, the outward and visible sign of ten thousand times ten thousand broken hearts that have been bound up, tearful eyes that have been made to flash with holy joy, aching consciences that have been eased and hearts that could sooner cease to beat than cease to love! So it is, indeed, a blessed and choice memorial of our Savior's death which can never be forgotten by His loved ones. III. Now I come to my last point, and that is, perhaps, the most practical--HOW YOU AND I ARE TO SHOW
 
-OUR REDEEMER'S DEATH IN THIS SUPPER.
+OUR REDEEMER's DEATH IN THIS SUPPER.
 
 Some people are very particular about the way in which the Lord's Supper is administered, but, as long as everything is done decently and in order, I think that should be enough for us. I was staying, once, with a gentleman--a Dissenter--who had become more than a little formal. He was telling me that he had done a great deal of good in his parish and, among other excellent things, he recounted one with an air of enthusiasm which made me laugh. He said, "When I came here, these people used to bring the wine for the sacrament in a black bottle and, as I am sure that I could not celebrate the Lord's Supper if the wine came from a black bottle, I have provided something better." I thought it would have been a great deal better if he had asked the people whether they had brought black hearts, for a black bottle does not signify much--but a heart that is not right in the sight of God is the thing that needs to be taken away. If you and I have our hearts right, we need not mind how simple the mode in which the ordinance is administered!
 

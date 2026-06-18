@@ -56,7 +56,7 @@ also say, "got it"?
 
 "Oh, but!" says someone, "I need evidence that it is so." Very well, you shall have evidence! You shall have the Witness of the Spirit who has renewed you. You shall have the witness of your changed life. You shall have the witness of your new character, but, first of all, is not Christ's Word sufficient for you? Is not Christ's written Word enough? Is not this Book, which you believe to have been Inspired by the Holy Spirit and which reveals the Word of the Lord, enough for you? It is enough for me! If all the men in the world were to come, one after another, after I had read something in the Bible--and they were all to say, in their different languages, "That is a lie," I would not believe it an atom the less! And suppose they were all to stand up and say, "It is true"? I would reply, "Of course it is! But I do not need your word to confirm what Christ has said." I am perfectly satisfied if He has said it. And there it stands--and all the powers of Hell cannot prevail to overthrow it! Here is the solid rock for a soul to rest upon! Christ says, at this moment, to everyone who believes in Him and trusts in His blood and righteousness, "Your faith has saved you; go in peace."
 
-So we come to the latter part of our text, which is A DISMISSION--"Go in peace." What did our Lord mean by saying this?
+So we come to the latter part of our text, which is a DISMISSION--"Go in peace." What did our Lord mean by saying this?
 
 I think He meant, first, "Leave this place of controversy and go in peace." Did you notice that it was when those who sat at the meal with Him began to say within themselves, "Who is this that also forgives sins?" that He said to the wom-
 

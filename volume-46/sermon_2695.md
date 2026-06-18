@@ -16,7 +16,7 @@ But, let me tell you, there is one point on which all Christians agree and that 
 
 Now, then, first, here is a subject for conversation-- ' 'They shall speak of the Glory of Your Kingdom, and talk of Your power." Secondly, we will try to find out some causes why Christians must speak concerning this blessed subject. And then, thirdly, I will very briefly refer to the effect of our talking more of Christ's Kingdom and power
 
-First, here is A SUBJECT FOR CONVERSATION. "They shall speak of the Glory of Your Kingdom, and talk of Your power." Here are two subjects, for God, when He puts Grace into the heart, does not lack a subject upon which we shall converse!
+First, here is a SUBJECT FOR CONVERSATION. "They shall speak of the Glory of Your Kingdom, and talk of Your power." Here are two subjects, for God, when He puts Grace into the heart, does not lack a subject upon which we shall converse!
 
 First, we are to converse concerning the Glory of Christ's Kingdom. The Glory of Christ's Kingdom should always be a subject of discourse to a Christian. He should always be speaking, not merely of Christ's priesthood or His prophesying, but also of His Kingdom which has lasted from all eternity--and especially of that glorious Kingdom of Grace in which we now live, and of that brighter kingdom of millennial Glory which soon shall come upon this world to conquer all other kingdoms and break them in pieces.
 
@@ -66,7 +66,7 @@ all."
 
 Then do not be ashamed to tell the story! Let the world hear that God provides for His people! Go, speak of your Father. Do as the child does, who, when he has a little cake given to him, will take it out and say, "Father gave me this." Do so with allyour mercies! Go and tell all the world that you have a good Father, a gracious Father, a heavenly Provider! And though He gives you a hand-basket portion and you only live from hand to mouth, yet tell how graciously He gives it--and that you would not change your blest estate for all the world calls good or great!
 
-I must be brief in speaking upon THE CAUSES WHICH WILL MAKE CHRISTIANS TALK OF THE GLORY OF CHRIST'S KINGDOM AND HIS POWER.
+I must be brief in speaking upon THE CAUSES WHICH WILL MAKE CHRISTIANS TALK OF THE GLORY OF CHRIST's KINGDOM AND HIS POWER.
 
 One cause is that it is the Kingdom of their own King. We do not expect French people to talk much about the victories of the English. And I suppose there is no Russian who would pay very many compliments to the prowess of our arms. But they will all talk about their own monarchs. Well, that is the reason why a Christian should speak of the Glory of his Master's Kingdom and tell of His power because it is the Kingdom of his own King. Jesus Christ may be or may not be another man's King, but, certainly He is mine! He is the Monarch to whom I yield absolute submission. I am no longer an alien and a stranger, but I am one of His subjects and I will talk concerning Him because He is my King.
 
@@ -78,7 +78,7 @@ But the best reason why the Christian should talk of his Master is this--if he h
 
 A Christian cannot help being discovered. None of you ever knew a secret Believer--a secret Christian. "Oh," you say, "I am sure I have known such a man." But look, he could not have been a secret Believer! If you knew him, he could not be wholly secret! The fact that you knew him proves that he could not have been a secret Christian. If a man says that nobody knows a thing and yet he knows it, he contradicts himself. You cannot, then, know a secret Believer, and you never will. There may be, indeed, some who are secret for a time, but they always have to come out, like Joseph of Ari-mathaea, when he went and begged for the body of Jesus. Ah, there are some of you sitting in your pews who fancy I shall never discover you, but I shall see you in the vestry, by-and-by! Some of you keep on coming Sunday after Sunday, and you say, "Well, I must go, by-and-by, and make a profession of faith." Yes, you will not be able to sit there long--if you have the Grace of God within you, you will be obliged to come out and put on the Lord Jesus Christ by being baptized in His name! Why not do so without further delay? If you love your Lord's name, come out at once, and acknowledge it!
 
-Lastly, WHAT WOULD BE THE EFFECT OF OUR TALKING MORE OF CHRIST'S KINGDOM AND
+Lastly, WHAT WOULD BE THE EFFECT OF OUR TALKING MORE OF CHRIST's KINGDOM AND
 
 POWER?
 
@@ -104,7 +104,7 @@ Verses 1, 2. By the rivers of Babylon, there we sat down, yes, we wept, when we 
 
 For there they that carried us away captive required of us a song; and they that wasted us required of us mirth, saying, Sing us one of the songs of Zion. As no cups except those that were taken out of God's holy House would do for Belshazzar when he wanted to make himself drunk, so no music would suit these heathen captors of Israel but the songs of God's House--"Sing us one of the songs of Zion." These poor people were crestfallen and utterly broken, yet their enemies cried," Make mirthful music for us, sing us one of your sacred songs." They only wanted to laugh at it, or, at the very best, to listen to it simply as a piece of music that they might criticize, so they said, "Sing us one of the songs of Zion." But the captives could not and would not sing for any such purpose. Zion's songs were not meant to be sung for mere amusement, nor were her chants intended to be made the theme of mockery and ridicule by the ungodly.
 
-4, 5. How shall we sing the LORD'Ssong in a strange land? IfI forget you, O Jerusalem, let my right hand forget her cunning. ' 'No," they said, "if we were to make mirth for the Babylonians, we would be doing serious damage to Zion, we should be traitors to Jerusalem." So the harpers said, "Sooner than we will play a tune to make mirth for you, let our right hands become paralyzed."
+4, 5. How shall we sing the LORD'ssong in a strange land? IfI forget you, O Jerusalem, let my right hand forget her cunning. ' 'No," they said, "if we were to make mirth for the Babylonians, we would be doing serious damage to Zion, we should be traitors to Jerusalem." So the harpers said, "Sooner than we will play a tune to make mirth for you, let our right hands become paralyzed."
 
 If I do not remember you, let my tongue cleave to the roof of my mouth. They said it, each one, for himself--they would sooner be dumb than sing these sacred songs for the amusement of the ungodly revelers who had gathered round them. Instead of a song, they offered a prayer which must have sounded terrible in the ears of those who mocked them. It was a fierce prayer--a prayer made under a very different dispensation from that under which we live--a prayer by a patriot who had seen his wife murdered and his children dashed to pieces--and he prayed thus--
 

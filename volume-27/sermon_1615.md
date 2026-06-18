@@ -58,7 +58,7 @@ But, then, it is not only where we came from, but it is where we are going that 
 
 That is the point about all God's people. We know where we are going and we can sing in the ways of God because we know where the road ends. Unconverted men and women, every step you take, you are a step nearer Hell. It is a very solemn thought, but I want you to remember it. Every hour that you unconverted people live, you are an hour nearer to the pit that burns with the wrath of God! Oh, I pray you, think of that! But the man who is a Believer is on a road which brings him, every step, nearer Heaven! I do not know a sweeter hymn than that which we sometimes sing--
 
-"And nightly pitch our moving tent A day's march nearer Home."
+"And nightly pitch our moving tent a day's march nearer Home."
 
 And what a Home it is! Oh, if our way Home lay through 7,000 Hells, yet the end would be worth it! If we had to pass through deaths as many as the hairs of our head, yet five minutes with Christ would make up for all our pain! I am sure that it is so! Let us, therefore, press forward singing, because we are getting nearer to the place where song shall be our element forever.
 

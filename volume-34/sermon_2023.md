@@ -10,7 +10,7 @@ This leads me to make the second remark, that as these things are written to bel
 
 This much is the porch of my sermon, let us now enter more fully into our subject, noticing, first, that John wrote with a special purpose; and then going on to assert, secondly, that this purpose we ought to follow up.
 
-First, JOHN WROTE WITH A SPECIAL PURPOSE. Men do not write well unless they have some end in writing. To sit down with paper and ink before you, and so much space to fill up, will ensure very poor writing. John knew what he was at. His intent and aim were clear to his own mind, and he tells us what they were.
+First, JOHN WROTE WITH a SPECIAL PURPOSE. Men do not write well unless they have some end in writing. To sit down with paper and ink before you, and so much space to fill up, will ensure very poor writing. John knew what he was at. His intent and aim were clear to his own mind, and he tells us what they were.
 
 According to the text the beloved apostle had one clear purpose which branched out into three.
 

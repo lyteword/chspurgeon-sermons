@@ -10,7 +10,7 @@ First, we will notice a choice pastorate which was enjoyed by some of God's peop
 
 brought, by-and-by, to the exact place where we must always be and, therefore, were made the objects of a blessed prayer, "Holy Father, keep through Your own name those whom You have given Me."
 
-First, here is A CHOICE PASTORATE. Our little children sing--
+First, here is a CHOICE PASTORATE. Our little children sing--
 
 "I think when I read that sweet story of old, When Jesus was here among men, How He called little children like lambs to his fold. I should like to have been with them!" And so forth. Might not you and I well wish that we had been numbered with the 12, or that we had been among the Marys? It was certainly a choice privilege to be one of the Apostles who were the intimates of Christ, the bodyguard of Jesus. These men saw Him in His privacy, understood His dark sayings and read His heart. That privilege cannot be ours. Let us think of them without envy and learn something from them.
 
@@ -34,7 +34,7 @@ He calls him "the son of perdition" and you may be sure that He did not give him
 
 See, then, in this choice pastorate of our Master, the great need there is of keeping. Let us pray for Him to keep us to the end.
 
-Secondly, and very briefly, let us speak of A TEMPORARY PRIVILEGE. The eleven were not to have Christ with them always. He was to ascend unto His Throne and then they were to fall back on another mode of living, common to all saints.
+Secondly, and very briefly, let us speak of a TEMPORARY PRIVILEGE. The eleven were not to have Christ with them always. He was to ascend unto His Throne and then they were to fall back on another mode of living, common to all saints.
 
 Now, why was Christ with them at all? It was because they were very weak. They needed fostering and nurturing. Look, Brothers and Sisters, you had great joys in your early days. You then enjoyed raptures and transports. It may be you have not had them lately, for you have traveled to Heaven at a steadier pace. My mother dandled me upon her knee when I was a babe, but she never thought of nursing me when I became a man. Certain spiritual joys are the privilege and
 
@@ -46,7 +46,7 @@ Please note that, choice as the privilege was of having Jesus, Himself, to be th
 
 Let this be a warning to such as are not profited under the Word when faithfully preached. Beware lest you perish under the Gospel and so perish with a vengeance! If, however, a choice ministry is about to be removed from any of you, let this thought minister a measure of comfort to you, that, after all, the essential thing is not to be taken from you, for even in the absence of the best outward ministry, the Spirit of God can bless you! But without that Spirit of God, even the ministry of Christ, Himself, in the days of His flesh, could not have been effectual to you!
 
-So now I come, in the last place, to show you where the Master left His disciples, where we all are, where we may well be content to be! We are all the objects of A BLESSED PRAYER. "Holy Father, keep through Your own name those whom You have given Me that they may be one, as We are." Beneath this Divine petition we all find shelter!
+So now I come, in the last place, to show you where the Master left His disciples, where we all are, where we may well be content to be! We are all the objects of a BLESSED PRAYER. "Holy Father, keep through Your own name those whom You have given Me that they may be one, as We are." Beneath this Divine petition we all find shelter!
 
 Notice how He begins--"Father." Oh, yes, it is the Father who keeps us! Children of God, who can be a better keeper for you than your Father? To whom can you cry with such certainty of being heard as to your Father in Heaven? Whose heart will so soon be moved? Whose ears will be so quick to hear? Whose feet will be so swift to save as your Father's? The Lord Jesus was tender to us when He selected that title of the great God and did not say, "Jehovah," or "Elo-him, keep Your people," but, "Father, keep them."
 

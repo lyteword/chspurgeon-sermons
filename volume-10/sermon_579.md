@@ -105,7 +105,7 @@ But how different the condition of the poor man who lived and died in undeserved
 
 Now I want your solemn and earnest attention while for a few minutes I plead for what is our reasonable service, namely, THAT IF THE LORD HAS PLEADED THE CAUSES OF OUR SOUL, WE SHOULD PLEAD HIS CAUSE
 
-WHILE WE HAVE ANY BREATH TO PRAY OR A TONGUE WITH WHICH TO BEAR WITNESS FOR HIM.
+WHILE WE HAVE ANY BREATH TO PRAY OR a TONGUE WITH WHICH TO BEAR WITNESS FOR HIM.
 
 Pleading the cause of Christ is the lifework of the Christian--it has to be done by some in the high places of the field. This age has given up all witness-bearing for Christ. We have grown so enamored of that gilded idol called charity that nowadays the Truth of God is fallen in the streets. It has come to be, by general consent, allowed by all men that religion is all very well in its way. That every man must keep his own religion and not meddle with other people's--that a lie may be a truth, or a truth may be a lie and that whether a doctrine is a truth or a lie does not matter a button--that, in fact, we are all of us to be agreed upon this one point--that God's Truth is not worthy our contending for.
 

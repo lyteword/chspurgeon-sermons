@@ -36,7 +36,7 @@ for I have daily proofs of it, and why should I doubt that
 
 for he says he is, and I must believe him." "Ah, well," said one, "sometimes I enjoy good frames and feelings, and feel very happy, and then I lose them, and sink in spirit." Jack answered, "I never get lower than I am, for I am down at the bottom
 
-'A poor sinner, and nothing at all.'
+'a poor sinner, and nothing at all.'
 
 I cannot get lower than that, can I? But I am also at the top,
 
@@ -74,7 +74,7 @@ Let us go a little further. What saith the gospel? Why, next, it forbids the que
 
 Another, despairing of deliverance by his doings, runs upon his feelings, and cries, "If I am to be saved, surely I shall need to experience joys like those which are felt by spirits before the throne. If I had a sense of sin as deep as that of lost souls in hell, I could hope that I should be saved." Thus the second man looks to excitements and feelings just as the first looked to works and self-denials. Now, the gospel forbids us to dream in this fashion. Talk not thus. Say not even in thy heart that by these doings or feelings thou canst be saved. Perhaps thou wouldst be ashamed to say it with thy lips; but do not say it at all; do not say that the way to heaven is hard, or mysterious, or in any degree apart from the simple act of believing. Do not suppose that anything is wanted as to doings or feelings in order to complete the righteousness which is wrought out by the Lord Jesus, and imputed by God to the believer.
 
-Ah, then the heart foolishly cries, "I must know a great deal; as much as if I had been to heaven and seen for myself, or as if I had dived into the depths and made discoveries there." No, you must not: the gospel is simple; salvation is as plain as a pikestaff; familiar an homespun; easy as the A B C of your childhood. Say not in thine heart that thou must be educated, trained, and made into a scholar. No, confess yourself a sinner; trust in the sinner's Savior, and you are saved.
+Ah, then the heart foolishly cries, "I must know a great deal; as much as if I had been to heaven and seen for myself, or as if I had dived into the depths and made discoveries there." No, you must not: the gospel is simple; salvation is as plain as a pikestaff; familiar an homespun; easy as the a B C of your childhood. Say not in thine heart that thou must be educated, trained, and made into a scholar. No, confess yourself a sinner; trust in the sinner's Savior, and you are saved.
 
 "Ah, well," says one, "I know I must undergo a singular experience-either I must be carried right away to heaven with delirious delight, or be plunged into the waves of hell in frightful despair." No, my dear friend, do not say that even in your thought. The righteousness of faith lies not in dreams and visions, delusions or depressions: it lies only in reliance upon the work of Jesus finished for you. Go not to the loom to weave a righteousness. The garment is woven already; put it on; Christ gives it to you. Dig not into the bowels of the earth to find the gold of salvation. Christ holds it out to you: take it freely, and be rich for ever. So one of the first works of the gospel is silencing the questions of our unbelief.
 

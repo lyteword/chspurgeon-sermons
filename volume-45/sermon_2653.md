@@ -74,7 +74,7 @@ In this way, we would aid the compactness of the body. That is the expression in
 
 Besides that, let every member offer his own services to the Church. Let each one be doing what he or she can. No one minister, no 20 ministers, no elders, if there were a hundred, no deacons, if there were a thousand, could ever fulfill all the ministries of the Church! God has given Apostles, Evangelists, pastors, teachers and so forth to bring the Bread of Life to us. That is the outward feeding of the flock, but, then, each living person must take the food into himself--the Church must edify itself. There must go on, within the Church, the proper processes of digestion and assimilation of the Truth of God, the reception of and yielding to the Spirit of God by which the Church is built up by itself, as well as by all the external influences which God has prepared for its strengthening and increase.
 
-Now I must close, for our time has gone, by only a few sentences concerning OUR COMPACT UNITY AS A
+Now I must close, for our time has gone, by only a few sentences concerning OUR COMPACT UNITY AS a
 
 CHURCH.
 

@@ -80,7 +80,7 @@ Whisper it in the ear of the sick. Shout it in the corner of the streets. Write 
 > Till like a sea of glory   
 > It spreads from pole to pole.   
 
-Let us now row in another direction for a moment or two. In the second place, "The mouth of the Lord has spoken it." THIS IS THE CLAIM OF GOD'S WORD UPON YOUR ATTENTION.
+Let us now row in another direction for a moment or two. In the second place, "The mouth of the Lord has spoken it." THIS IS THE CLAIM OF GOD's WORD UPON YOUR ATTENTION.
 
 Every Word which God has given us in this Book claims our attention because of the infinite majesty of Him that spoke it. I see before me a Parliament of kings and princes, sages and senators. I hear one after another of the gifted Chrysostoms pour forth eloquence like the "Golden-mouthed." They speak and they speak well. Suddenly, there is a solemn hush. What a stillness! Who is now to speak? They are silent because God the Lord is about to lift up His voice. Is it not right that they should be so? Does He not say, "Keep silence before Me, O islands"? What voice is like His voice? "The voice of the Lord is powerful.
 
@@ -104,7 +104,7 @@ No business has any importance in it compared with this--this is the master them
 
 Thus I have handled my text in two ways--it is warrant and motive for the preacher. It is a demand upon the attention of the hearer.
 
-And now, thirdly, THIS GIVES TO GOD'S WORD A VERY SPECIAL CHARACTER. When we open this sacred
+And now, thirdly, THIS GIVES TO GOD's WORD a VERY SPECIAL CHARACTER. When we open this sacred
 
 Book and say of that which is here recorded, "The mouth of the Lord has spoken it," then it gives to the teaching a special character.
 
@@ -132,7 +132,7 @@ Here let me add that there is something unique about God's Word because of the a
 
 If God's Word is brought forward in its native simplicity, no one can stand against it. The adversaries of God must fail before the Word as chaff perishes in the fire. Oh, for wisdom to keep closer and closer to that which the mouth of the Lord has spoken! I will say no more on this point, although the theme is a very large and tempting one--especially if I were to dwell upon the depth, the height, the adaptation, the insight and the self-proving power of that which, "The mouth of the Lord has spoken."
 
-Fourthly and very briefly, THIS MAKES GOD'S WORD A GROUND OF GREAT ALARM TO MANY. Shall I read you the whole verse? "But if you refuse and rebel, you shall be devoured with the sword: for the mouth of the Lord has spoken it." Every threat that God has spoken, because He has spoken it, has a tremendous dread about it. Whether God threatens a man or a nation, or the whole class of the ungodly, if they are wise they will feel a trembling take hold upon them, because, "The mouth of the Lord has spoken it."
+Fourthly and very briefly, THIS MAKES GOD's WORD a GROUND OF GREAT ALARM TO MANY. Shall I read you the whole verse? "But if you refuse and rebel, you shall be devoured with the sword: for the mouth of the Lord has spoken it." Every threat that God has spoken, because He has spoken it, has a tremendous dread about it. Whether God threatens a man or a nation, or the whole class of the ungodly, if they are wise they will feel a trembling take hold upon them, because, "The mouth of the Lord has spoken it."
 
 God has never yet spoken a threat that has fallen to the ground. When He told Pharaoh what He would do, He did it. The plagues came thick and heavy upon him. When the Lord at any time sent His Prophets to denounce judgments on the nations, He carried out those judgments. Ask travelers concerning Babylon and Nineveh and Edom and Moab and Bashan. And they will tell you of the heaps of ruins which prove how the Lord carried out His warnings to the letter. One of the most awful things recorded in history is the siege of Jerusalem. You have read it, I do not doubt, in Josephus, or elsewhere. It makes one's blood run cold to think of it. Yet it was all foretold by the Prophets and their prophecies were fulfilled to the bitter end.
 

@@ -8,7 +8,7 @@ Watch him before Felix, before Festus, before Agrippa--he is always ready--and w
 
 In talking at this time about Paul's readiness, I shall, first, dwell for a little while upon the state of Paul's mind, as indicated by his declaration, "I am ready." Secondly, I shall show that this state of mind arose from excellent principles. And, thirdly, I shall point out that this readiness produces admirable results wherever it is to be found.
 
-First, let us consider THE STATE OF PAUL'S MIND which enables him to say, "I am ready."
+First, let us consider THE STATE OF PAUL's MIND which enables him to say, "I am ready."
 
 I shall refer you to four passages where he expresses his readiness. The first is our text. Here we have Paul's readiness to work. "So, as much as in me is, I am ready to preach the Gospel to you that are at Rome, also." He had preached the Gospel throughout a great part of Asia. He had crossed over into Europe, he had proclaimed the Word through Greece--and if ever an opportunity should occur for him to get to the capital of the world, whatever might be the danger to which he would be exposed--he was prepared to go. He was ready to go anywhere for Jesus, anywhere to preach the Gospel, anywhere to win a soul, anywhere to comfort the people of God! "I am ready." There is no place to which Paul was not ready to go. He was ready to make a journey into Spain and if he did not come to this island of ours, which is a matter of question, undoubtedly he was ready to have gone to the utmost isles of the sea, and to lands and rivers unknown, to carry his Master's mighty Word! Are we as ready as Paul was to go anywhere for Jesus, or do we feel that we could only work for Christ at home? Dare we go to the United States, or to Australia, or into some heathen land? Oh, may God keep us always on tiptoe, ready to move if the cloud moves, and equally ready to stay where we are if the cloud moves not!
 
@@ -40,7 +40,7 @@ Now, once more, will you kindly turn to 2 Timothy 4:6, where you have a verse we
 
 Thus, you see, Paul was ready for service, ready for suffering, ready for unpleasant duty and ready to die. If I were to go round this Tabernacle and ask of everyone, "My Friend, are you ready in these four ways?" how many of you would be able to answer, "We are ready"? I am afraid many would have to shake their heads and say, "I do not know what to say. I am doing my best in some style, but I cannot say that I have the readiness which the Apostle claimed."
 
-Let me show you now that PAUL'S READINESS AROSE FROM EXCELLENT PRINCIPLES. That is our second point.
+Let me show you now that PAUL's READINESS AROSE FROM EXCELLENT PRINCIPLES. That is our second point.
 
 As for Paul's readiness to preach, I should trace that to his solemn conviction of the Truth of the Gospel. If a man only thinks it is true, he will not care whether he preaches it, or does not preach it. But if he knows it is true, then he must preach it! I do not think we need find much fault with people, nowadays, for being too positive and dogmatic about the Truth of God. The present current runs in quite another direction. A feeble faith which might almost be mistaken for
 

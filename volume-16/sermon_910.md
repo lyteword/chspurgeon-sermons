@@ -6,7 +6,7 @@ DEEP emotion prompts this question. But where are the depths of love and gratitu
 
 He was impressed, as if a voice, or something equivalent to a voice, had come to him to this effect--"O sinner, I did all this for you. What have you done for me?" Some such representation as that I would put before the eyes of every person in this assembly. I earnestly pray that the vision of the Christ of God, the mercy of God, the love of God, may appear to all your eyes. And may a Voice say in your conscience, both to saint and sinner, "I did all this for you. What have you done for Me?" It will be a humiliating night probably for us all, if such should be the case--but humiliation may prove salutary--yes, the very healthiest frame of mind in which we can be found.
 
-I shall first of all this evening, invite you to CAST UP A SUM IN ARITHMETIC. The text suggests this. "What shall I render unto the Lord for all His benefits toward me?" Come, let us reckon up! Though I know that the number will surpass all human numeration, let us try to reckon up His benefits toward any one of us. I wish each one of you, distinctly and severally, would now endeavor to think of the mercy of God towards yourself.
+I shall first of all this evening, invite you to CAST UP a SUM IN ARITHMETIC. The text suggests this. "What shall I render unto the Lord for all His benefits toward me?" Come, let us reckon up! Though I know that the number will surpass all human numeration, let us try to reckon up His benefits toward any one of us. I wish each one of you, distinctly and severally, would now endeavor to think of the mercy of God towards yourself.
 
 First, let us call over the roll of our temporal mercies. They are but secondary, but they are very valuable. There is a special Providence in the endowment of life to each individual creature. David did not disdain to trace back the hand of God to the hour of his nativity. And Paul adored the Grace of God that separated him from the time that his mother gave him birth. Our gratitude may, in like manner, revert to the days when we hung upon the breast. Or in the case of some, you may thank the goodness that supplied the lack of a mother's tender love.
 
@@ -62,7 +62,7 @@ found Him so. "The Lord is good unto them that wait for Him, to the soul that se
 
 You would not breathe half a word against His blessed name. Rather you would say, to borrow an expression which Rutherford constantly used, that you are, "drowned debtors to God's mercy." He meant that he was over head and ears in debt to God--he could not tell how deep his obligations were, so he just called himself, "a drowned debtor" to the loving kindness and the mercy of his God. Well, there is a sum for you. If you want to use your arithmetical faculties, sit down when you can get an hour's quiet, and try to identify all the precious thoughts of God towards you--all His benefits.
 
-Our second point shall be A CALCULATION OF THE GRATITUDE WHICH IS DUE TO GOD FOR ALL
+Our second point shall be a CALCULATION OF THE GRATITUDE WHICH IS DUE TO GOD FOR ALL
 
 THIS. I should like to make each man his own assessor tonight, to assess the income of mercy which he has received, and put down what should be the tribute of gratitude which he should return to the revenue of the great King. "What shall I render unto the Lord for all His benefits?"
 

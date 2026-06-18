@@ -9,7 +9,7 @@ God has, therefore, supplied our faith with encouragements larger than we have i
 
 God send it speedily! Oh, that it were so even now! May the house of Israel look on Him whom they have pierced and turn unto Him with all their hearts. At present we have to say and sing--
 
-"You chosen seed of Israel's race, A remnant weak and small; Hail Him who sa ves you by His Grace, And crown Him Lord of all."
+"You chosen seed of Israel's race, a remnant weak and small; Hail Him who sa ves you by His Grace, And crown Him Lord of all."
 
 It is a rule, in interpreting the Word of God, that the promises made to the natural Israel, so far as they are spiritual, belong to the spiritual Israel.
 

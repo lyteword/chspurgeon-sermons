@@ -4,7 +4,7 @@
 
 NO GOLD but pure gold can stand the fire. And if a man's religion has been a pretentious sham, it is very likely to tumble to pieces under the rough hand of death. There have been a few hypocrites who have been able to brazen it out, even in the last solemn article, but these must always be the few. David, at any rate, was never the man who would play the hypocrite in the last extremity of death. You can see how true, how deep, how thorough his faith in God must have been, for his dying bed was by no means an enviable one. His dying pillow was stuffed with sharp thorns. His was a life which, although it had much of Divine Grace about it, yet had much of sinful nature, too. He was dying as we might not wish to die in some respects, but his faith triumphed as we may well desire that our faith may triumph, whatever the outward circumstances of our life or death may be! We shall go at once, and without further preface, to consider our text and notice in turn the Psalmist-King's grave lament. And then, blessed compensation, his glorious comfort. First, then, we shill ponder, and may the Holy Spirit make it greatly to profit everyone of us--
 
-DAVID'S GRAVE LAMENT.
+DAVID's GRAVE LAMENT.
 
 His house, he declares, was "not so" with God. And the numbers and the power of that house did not grow as he could have wished. Brothers and Sisters, there are some troubles that a man outgrows. There are some childish trials connected with our early Christian life which we, without effort, outlive and which in due course pass away. We shall not have to feel--thank God!--ever again the special perils of our youth and of our early manhood. When we have passed into riper years, we leave these things behind us. But there are some troubles which accumulate as we grow. For instance, there is the peculiar trouble alluded to in the text. There are, no doubt, multitudes of cares and trials connected with a family of little children, but every parent knows that the trials connected with little children are as nothing compared with the sorrows of those who have grown-up children that cause them heartache and heartbreak.
 
@@ -40,7 +40,7 @@ I shall not stay to say anything about the latter part of the verse, namely, abo
 
 Having thus spoken of David's great lament, we now turn with joyful relief to speak of--
 
-DAVID'S GLORIOUS COMFORT.
+DAVID's GLORIOUS COMFORT.
 
 As I said before, we will only give you a few plain, practical thoughts, praying the Holy Spirit to make them of Divine Power. The glorious comfort which David found lay in the Covenant which God had made with him. With David it was a Covenant of royalty for himself and for his seed, but we believed he also had a further vision of the Covenant of Grace. At any rate, we of the Gospel dispensation must do so, for though we shall not have earthly thrones, yet under Christ's Covenant we are made kings and priests unto God!
 

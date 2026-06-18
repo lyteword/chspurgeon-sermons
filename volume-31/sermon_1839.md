@@ -20,7 +20,7 @@ Oh, my strong Brother, listen to one who knows by experience the heaviness of a 
 
 I want, this morning, as God shall help me, to lead you up to the pastures on the hilltops. I pray that I may help you to a higher and joyful experience in the things of God, while I shall speak, first, of a desired position towards God-- "Then shall you have your delight in the Almighty, and shall lift up your face unto God." And secondly, upon the question--when can this happy experience be realized? "Then," says the text and, therefore, there is such a time when we can have delight in the Almighty and lift up our face unto God.
 
-First, here IS A DESIRED POSITION TOWARDS GOD.
+First, here IS a DESIRED POSITION TOWARDS GOD.
 
 Many men forget God--He is no object of delight to them, for they ignore His existence and they would even think it a great relief if it could be proven that there were no God--no God to observe them, no God to record their misdeeds, no God to call them to judgment, no God to punish them for their iniquities. Let us pity the multitudes who claim to be happy without God, for it is the extreme of depravity when, blotting out God from his soul, a man obtains a wretched comfort as the consequence of his folly. To be without God is to be without rest in the present and without hope for the future.
 

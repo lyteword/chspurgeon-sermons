@@ -88,7 +88,7 @@ Verses 1, 2. There was a man of the Pharisees, named Nicodemus, a ruler of the J
 
 And said unto Him, Rabbi, we know that You are a Teacher come from God: for no man can do these miracles that You do except God is with him. It is always well to go as far as you can in your avowal of belief in Christ. Nicodemus confessed what he knew to be true and he drew from it the thoroughly accurate conclusion that Christ must be a Teacher come from God because of the miracles which He worked. Dear Hearer, if you do not yet fully know Christ, take heed that you do not trifle with the Truth of God which you do know. If God has taught you a little about Him, prize that little and you shall have more! As we have often said, "He that values moonlight shall yet have sunlight." Thank God if you know as much as Nicodemus knew--and ask Him to teach you more.
 
-3, 4. Jesus answered and said unto him, Verily, verily, I say unto you, Except a man is born-again, he cannot see the Kingdom of God. Nicodemus said unto Him, How can a man be born when he is old? Can he enter the second time into his mother's womb and be born?'Staggering at the symbol, he stumbled at the letter of Christ's saying and did not perceive its inward sense.
+3, 4. Jesus answered and said unto him, Verily, verily, I say unto you, Except a man is born-again, he cannot see the Kingdom of God. Nicodemus said unto Him, How can a man be born when he is old? Can he enter the second time into his mother's womb and be born?'staggering at the symbol, he stumbled at the letter of Christ's saying and did not perceive its inward sense.
 
 5, 6. Jesus answered, Verily, verily, Isay unto you, Except a man be born of water and of the Spirit, he cannot enter into the Kingdom of God. That which is born of the flesh is flesh. Flesh, and nothing more. And it never can be anything more than flesh. The first birth brings no one any further than that. The children of the most godly parents, so far as their sinful nature is concerned, are in precisely the same condition as the offspring of the most ungodly. If they are ever to be numbered among the children of God, they must be born-again, because "that which is born of the flesh is flesh."
 
@@ -106,7 +106,7 @@ comes, or where it goes.
 
 "Are you profound philosophers, students deeply learned in classic lore, or wise concerning many of the mysteries of nature--yet know you not these things? What will be the good of all your knowledge if you do not know how to gain admission into the Kingdom of Heaven? It would be better for a man to be ignorant of all other things, and to know this one thing, than to have all possible human learning, and yet to miss this knowledge which is the most essential of all!
 
-Verily, verily, I say unto you. [See Sermon #3053, Volume 53--JESUS CHRIST'S IDIOM.] Christ speaks with an authority that no mere human teacher can ever possess.
+Verily, verily, I say unto you. [See Sermon #3053, Volume 53--JESUS CHRIST's IDIOM.] Christ speaks with an authority that no mere human teacher can ever possess.
 
 We speak what We know, and testify what We have seen; and you receive not Our witness. In a certain sense, every true minister of Christ and every true child of God can say this, for we know that there is a spiritual Kingdom. We have seen it, we have entered into it and we can testify that there is another life which is as much superior to the ordinary life of men as the life of men is superior to that of the brutes that perish! And we know that we have that superior life. We have other eyes than these eyes that are visible, and other ears than the ears of our flesh. There is a higher and better life to be enjoyed even now, and he that believes in Christ has that life. "We speak what we know and testify what we have seen," and yet, though our testimony would be believed if we gave it concerning anything else, we are not believed when we witness concerning this higher and better life!
 
@@ -130,4 +130,4 @@ look at the Crucified Savior, be saved at once and forever!
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

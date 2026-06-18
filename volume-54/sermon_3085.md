@@ -36,7 +36,7 @@ Also Endeavor to know Christ, Beloved, by being taught of His Spirit. That learn
 
 "But gladly tell to sinners round What a dear Savior you have found!!
 
-THIS ENQUIRY ABOUT CHRIST SHOULD ALWAYS BE MET WITH A CLEAR AND DISTINCT ANSWER.
+THIS ENQUIRY ABOUT CHRIST SHOULD ALWAYS BE MET WITH a CLEAR AND DISTINCT ANSWER.
 
 If I had only one more sermon to preach before I died, I know what it would be about--it would be about my Lord Jesus Christ--and I think that when we get to the end of our ministry, one of our regrets will be that we did not preach more of Him. I am sure no minister will ever repent of having preached Him too much. You who are with Jesus, talk
 
@@ -48,7 +48,7 @@ And what shall I say to you who are moved by curiosity to ask this question, ' '
 
 Well, I hope some such curiosity as this may be in your mind. At any rate, I had it in my mind once and I believe there are many who now have it. I will tell you the occasions upon which this curiosity is often excited. A laboring man has been in the habit of working with another who was often intoxicated, an habitual swearer and, perhaps, even prone at times to blaspheme. On a sudden, he sees him a changed character, steady in all his conduct, affectionate, thoughtful of his wife and children, industrious and, lo and behold, he is religious! What a difference! Can it fail to cause enquiry? Or he calls in at the house of a neighbor and finds the neighbor very sick and ill. He is a working man with a large family and it would be a very serious thing for him to die and leave those little ones. But he sits up in the bed and he tells his friend that he has not any care at all about these matters--he has left them all with God. He says, "I used to fret and worry myself, but now, whether I live or die, I leave all with God. I am perfectly resigned to His will. Christ is with me here and I find it--
 
-"'Sweet to lie passive in His hands, And know no will but His.'"
+"'sweet to lie passive in His hands, And know no will but His.'"
 
 "Oh," says the man, "who is this that has made such a difference in my neighbor?" What can be the cause of this change? What can be the reason of this? He watches another. He persecutes him, jeers and laughs at him, casts all manner of threats and insinuations at him. He sees him bear it all very quietly. He knows that he cannot tempt him to do what is wrong, though he tries hard to do it. The path of integrity is trodden year after year and the worldly man, looking on, cannot make it out. He says, "Who is this?" He sees another, a very happy, lively, earnest, joyful Christian. "Well," thinks this man, "I have to go to the theater to get any fun. I must be in company and I must drink a certain quantity before I can get my spirits up. But here is a man cheerful and bright without any of these things! He is poor, but he is happy. He has got a corduroy jacket, but he has not got a corduroy heart--he's as happy as a king! His soul is merry within him--I can't make it out--'Who is this?'" These things stir men's curiosity and I hope, dear Friends, you will try to make people more and more curious by this plan. And how often a holy deathbed stirs that curiosity! As the expiring Believer shouts victory, or sinks to his rest with perfect joy, the worldling looks on and says, "Who is this? I can't comprehend it, I can't make it out."
 
@@ -62,7 +62,7 @@ And when I speak of ignorance of Christ, I do not mean ignorance of His name and
 
 And who are these that are thus redeemed from among men? They are those who believe in Jesus Christ! This definition is not more simple than conclusive to those to whom the work of the Spirit of God is intelligible. If you put your trust in Him, it is evident that Christ died for you in a way and manner in which He never died for Judas. He died for you so vicariously that the offenses you have committed were imputed to Him and not to you and, therefore, your sins are forgiven. If you trust Him, you cannot be punished for your sins, for Christ was punished for them! How can debts be demanded of you that were paid originally by your Savior? You are clear. The Master said, "If you seek Me, let these go
 
-their way." [See Sermons #2368, Volume 40--THE LIVING CARE OF THE DYING CHRIST and #2616, Volume 45--CHRIST'S CARE OF HIS DISCIPLES] And when they seized Jesus, they let His chosen people go. You
+their way." [See Sermons #2368, Volume 40--THE LIVING CARE OF THE DYING CHRIST and #2616, Volume 45--CHRIST's CARE OF HIS DISCIPLES] And when they seized Jesus, they let His chosen people go. You
 
 are clear--before God's bar you are clear. Nobody can lay anything to your charge if you trust in Jesus Christ, for He suffered in your place. Ignorance of that great fundamental Truth of the whole Gospel keeps thousands in darkness! It is the great ball and chain upon the leg of many spiritual prisoners! And if they did but know that and could spell, "substitution," without a mistake, they would very soon come into perfect joy and liberty!
 
@@ -78,7 +78,7 @@ Do you not care for angels? Then listen--do not sneer, for there are as wise men
 
 Oh, there is something so majestic in Christ's love that you cannot sneer at it! Uncurl that lip! He dies not for Himself in any sense! He bleeds for His friends--no, more, for His foes! His dying prayer is, [See Sermons #897, Volume 15--the
 
-FIRST CRY FROM THE CROSS; #2236, Volume 38--CHRIST'S PLEA FOR IGNORANT SINNERS and #3068, Volume 53--UNKNOWN DEPTHS AND HEIGHTS] "Father, forgive them, for they know not what they do." And
+FIRST CRY FROM THE CROSS; #2236, Volume 38--CHRIST's PLEA FOR IGNORANT SINNERS and #3068, Volume 53--UNKNOWN DEPTHS AND HEIGHTS] "Father, forgive them, for they know not what they do." And
 
 even when His friends forsook Him, His last thoughts were all for them. Though He was rich, yet for our sakes He became poor, that we, through His poverty, might be made rich! There is nothing to sneer at here! He casts aside His Glory, hangs His azure mantle on the sky, takes the rings from off His fingers to hang them up for stars and down He comes and is born a feeble Child! In His mother's lap He lies. He lives so poverty-stricken that He has nowhere to lay His head. And when the fox went to its burrow and the bird to its nest, He went to the lone mountain and His locks were wet with the dews of night. "Give Me a drink," He says, as He sits upon the well of Samaria. He is forsaken, despised and rejected of men. And when He dies, even God, Himself, leaves Him. Jesus cries, "Why have You forsaken Me?" And all this was because of His strong, all-conquering love for the sons of men! You cannot despise this Man! I would love the Savior even if He had not died for me. I could not help it! Such love as His must have my heart. Such disinterested giving up of all for the sake of those who hated Him must claim our heart's affections!
 
@@ -98,7 +98,7 @@ You have heard my voice: hide not your ear at my breathing, at my cry. Is not th
 
 Vocal sounds in prayer can be given forth by hypocrites. Our children have their dolls or their little animals that they press to make them squeak, but there is no life in them--so there may be a sound, yet no life. But I never heard of anything that really breathed and yet had not life. And when your soul breathes itself out before God in prayer, although it cannot utter any articulate sound by reason of the sorrow of your heart, there is spiritual life in you!
 
-You drew near in the day that I called upon You. [See Sermon #1812, Volume 30--A wonder explained by greater
+You drew near in the day that I called upon You. [See Sermon #1812, Volume 30--a wonder explained by greater
 
 WONDERS] Oh, sweet experience! Cannot you, Beloved, say that
 

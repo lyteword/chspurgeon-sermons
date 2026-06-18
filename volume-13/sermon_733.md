@@ -82,7 +82,7 @@ But look! He puts his hands upon those ponderous pillars! He prays, and then he 
 
 Dear Friends, members of this Church, I want your earnest attention while I try to show the bearing of this upon
 
-THIS CHURCH AND EVERY CHURCH IN A SIMILAR CONDITION. We have set our hearts upon a thorough revival of religion in our midst. Some of my Brethren associated with me in the Deaconship and Eldership have made this a matter of constant prayer to God--that we may see, this year, greater things than we have ever seen! And there are many in the membership of the same mind who have besieged the Throne of God with constant applications.
+THIS CHURCH AND EVERY CHURCH IN a SIMILAR CONDITION. We have set our hearts upon a thorough revival of religion in our midst. Some of my Brethren associated with me in the Deaconship and Eldership have made this a matter of constant prayer to God--that we may see, this year, greater things than we have ever seen! And there are many in the membership of the same mind who have besieged the Throne of God with constant applications.
 
 It will be, as a preparation for the work which God will work among us, a very blessed thing for us as a Church to feel how utterly powerless we are in this matter. God has blessed us these thirteen years! We have enjoyed continued prosperity. We have scarcely known what to do with the blessing God has given us! Truly in our case He has fulfilled the promise, "I will pour out My blessing upon you so that you shall not have room to receive it." But I fear that our temptation is to lean upon an arm offlesh--to suppose there is some power in the ministry, or in our organization, or in the zeal which has characterized us.
 
@@ -106,7 +106,7 @@ If you have prayed for the salvation of your child, or husband, or friend, and t
 
 To rest upon God when everything witnesses with God is nothing, but to believe God when everything gives Him the lie--that is faith! To believe that all shall go well when outward Providences blow softly is any fool's play, but to believe that it must and shall be well when storms and tempests are round about you, and you are blown farther and farther from the harbor of your desire--this is a work of Divine Grace! By this shall you know whether you are a child of God or not--by seeing whether you can exercise faith in the power ofprayer when all things forbid you to hope.
 
-I desire to spend the last five minutes in addressing THE SEEKER'S UNSTAGGERING FAITH. Surely among this throng there must be some of you who long to be saved! If so, it is likely that since you have begun to seek salvation,
+I desire to spend the last five minutes in addressing THE SEEKER's UNSTAGGERING FAITH. Surely among this throng there must be some of you who long to be saved! If so, it is likely that since you have begun to seek salvation,
 
 instead of being more happy, you are far more miserable. You imagined at one time that you could believe in Jesus whenever you liked--that you could become a Christian at your own will at any moment! And now you wake up to find that the will is present with you, but how to perform that which you desire, you find not!
 

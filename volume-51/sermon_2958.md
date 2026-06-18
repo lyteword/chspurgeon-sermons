@@ -17,7 +17,7 @@ O then, you saints, love God the Father! We sometimes meet with Christians who a
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above   
-> A suffering Man became.   
+> a suffering Man became.   
 > 'Twas not the death which He endured   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
@@ -53,7 +53,7 @@ For, surely, the spouse desires the return of her Husband! Does not the boy at s
 
 And if we really love the Lord, we shall feel that passionate longing to be with Him and, in the strength of it, if we must tarry here for a while, we shall feel that we can do anything for Him "till the day breaks and the shadows flee away."
 
-Having thus shown you that this exhortation is applicable to each Person of the Divine Trinity and that it may be understood in the most emphatic sense, now let me say, in the third place, that IT HAS A THOUSAND ARGUMENTS TO ENFORCE IT.
+Having thus shown you that this exhortation is applicable to each Person of the Divine Trinity and that it may be understood in the most emphatic sense, now let me say, in the third place, that IT HAS a THOUSAND ARGUMENTS TO ENFORCE IT.
 
 Brothers and Sisters, the short time we have for this service will not allow me to mention many of these reasons; but this is my comfort--that a soul that truly loves God does not need any reasons for loving Him. We have an old proverb which says that "love is blind." And certainly, love is never very argumentative. It overcomes a man so that he is completely carried away by it and he who really loves God, will feel that this supreme passion puts aside the necessity for cold reasoning. Hear could you, by logic, produce love even between two human beings? You may prove that you ought to love, but "ought to love" and love, itself, are two very different things! Where true love is, however, it finds a thousand arguments for its own increase.
 

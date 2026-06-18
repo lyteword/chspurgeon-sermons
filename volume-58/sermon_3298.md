@@ -2,7 +2,7 @@
 
 "And Jesus, when He was baptized, went up immediately out of the water: and, lo, the heavens were opened unto Him, and He saw the Spirit God descending like a dove, and lighting upon Him: and lo, a Voice from Heaven, saying, This is My Beloved Son, in whom I am well-pleased." Matthew 3:16,17.
 
-[Another Sermon by Mr. Spurgeon upon verse 17 is #2409, Volume 41--A GREAT SERMON BY THE GREATEST PREACHER.]
+[Another Sermon by Mr. Spurgeon upon verse 17 is #2409, Volume 41--a GREAT SERMON BY THE GREATEST PREACHER.]
 
 I WANT to teach two lessons tonight. The first will be a most necessary one for the unconverted. The second will be more suitable to believers in the Lord Jesus Christ.
 
@@ -120,7 +120,7 @@ God forbid. How shall we, that are dead to sin, live any longer therein?The two 
 
 3, 4. Know you not that so many of us as were baptized into Jesus Christ were baptized into His death? Therefore we are buried with Him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father,
 
-even so we also should walk in newness of life. [See Sermons #1627, Volume 27--BAPTISM--A BURIAL and #2197, Volume 37--CHRIST'S RESURRECTION AND OUR NEWNESS OF LIFE.] You remember, My Brothers and
+even so we also should walk in newness of life. [See Sermons #1627, Volume 27--BAPTISM--a BURIAL and #2197, Volume 37--CHRIST's RESURRECTION AND OUR NEWNESS OF LIFE.] You remember, My Brothers and
 
 Sisters in Christ, that hallowed hour when you went down into the liquid tomb, when, in the name of the Father, the Son and the Holy Spirit, you were immersed upon profession of your faith in Jesus Christ? By that solemn act you set forth your death to sin and when you were raised again out of the opening element, you thereby made a profession of your faith in Christ's Resurrection. And moreover, you did then and there, seeing that you had received the Grace of God in truth, profess to rise unto newness of life! How could you, then, go back to sin? That would be to make your Baptism a lie! Indeed, you are, all of you, unbaptized unless you have been baptized into Christ's death.
 

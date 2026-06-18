@@ -42,7 +42,7 @@ The text does not merely say that the price would be refused, but, "it would be 
 
 We cannot spare more time for this point, but it is one that you may think over for many a day--and your heart may be charmed with it till you love and bless your Savior with all your heart, mind, soul and strength!
 
-My second remark is that IN OUR CASE, NOTHING CAN EVER SERVE AS A SUBSTITUTE FOR LOVE.
+My second remark is that IN OUR CASE, NOTHING CAN EVER SERVE AS a SUBSTITUTE FOR LOVE.
 
 If Christ has loved us, or if we are desirous of realizing that He has done so, the one thing necessary and essential is that we have true love to Him. God's demand of each one who professes to be His child is, "My son, give Me your heart." There are many who would like to be thought to be His sons and, therefore, every morning they wickedly say, "Our Father which are in Heaven," though God is not their Father! If they were to say, "Our Father," to Him who is their father, they would pray to the devil, for God is no father of theirs! Alas, there are many who want to be thought to be God's children and they will come and bring to Him anything but love. Sad, sorrowful truth!
 
@@ -56,7 +56,7 @@ God, the Holy Spirit, who creates us anew in Christ Jesus! Men do not like that 
 
 Still the Truth holds good, whatever men think of it. If you give not to God your heart, you have given Him nothing! If you give not to God your soul, if you love Him not, if you serve Him, not because you love Him, if you come not to Him and surrender to Him your inner self, you may have been baptized--immersed or sprinkled--you may have come to the Communion Table, you may have bowed your knees till your knees have grown calloused, you may have prayed till you are hoarse and wept till the fountains of your eyes are dry. You may have given all your gold and lacerated every member of your body with mortifications and starved yourself to a skeleton--but you have truly done nothing towards obtaining love to Christ! The substance of your house is utterly despised if you offer it to the Lord in place of the love of your heart! Love He must have! This is His lawful demand! His people delight to render it and if you do not, then you are none of His!
 
-This takes us to a third Truth of God, which is that THE SAINTS' LOVE IS NOT PURCHASED BY CHRIST'S GIFTS.
+This takes us to a third Truth of God, which is that THE SAINTS' LOVE IS NOT PURCHASED BY CHRIST's GIFTS.
 
 The love of saints to their Lord is not given to Christ because of His gifts to them. I must explain what I mean, lest at the very outset I am mistaken or misunderstood. We love our Lord and we love Him all the more because of the many gifts He bestows upon us--but His gifts do not win our love. I will show you why. All that He has given me, today, He gave me many years ago. The Covenant of Grace was always mine. I heard the preacher talk about it. He told how Christ had died for me, that He had loved me and given Himself for me. Truly, He had done so--He had poured out His blood for my redemption. I would not believe it to be so, or, believing it, I did not think it was of any consequence. Then the preacher spread out the rare gifts of Christ before me and I saw that He had given these to such as believed in Him--but I did not think them worth examining and I turned away from them. I would never have loved Him if He had not given me much more than the substance of His house. I needed His blessed Spirit to show me the value of the substance of His house and, above all, to show me that for which this day I love my Savior best of all, namely, Himself--HIMSELF!
 
@@ -102,7 +102,7 @@ HYMNS FROM "OUR OWN HYMN BOOK"--792, 811, 808.
 
 EXPOSITION BY C. H. SPURGEON: LUKE20:9-16.
 
-Verse 9. Then He began to speak to the people this parable, A certain man planted a vineyard, and leased it to vinedressers, and went into a far country for a long time. It is a long time since Jesus left us and He has not yet returned. Many say that He is coming back very soon. Others say, "The Lord delays His coming."
+Verse 9. Then He began to speak to the people this parable, a certain man planted a vineyard, and leased it to vinedressers, and went into a far country for a long time. It is a long time since Jesus left us and He has not yet returned. Many say that He is coming back very soon. Others say, "The Lord delays His coming."
 
 10-11. And at the season he sent a servant to the vinedressers, that they should give him of the fruit of the vineyard, but the vinedressers beat him and sent him away empty. And again he sent another servant: and they beat him, also, and treated him shamefully, and sent him away empty. They grow bolder and more wicked, you see! First beating, and then adding shameful treatment to their former cruelty. Men do not come to ridicule religion and persecute its advocates all at once--this is an art which Satan teaches by degrees.
 

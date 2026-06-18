@@ -12,7 +12,7 @@ God.
 
 There are five things in which Paul seems to me to bring out clearly his union with Titus. I might call them, "five links in a golden chain." I shall only briefly speak of each of the five and try to apply them to ourselves.
 
-First, Paul says of himself and Titus, that THERE WAS A CLOSE RELATIONSHIP BETWEEN THEM-- "Titus, my own son."
+First, Paul says of himself and Titus, that THERE WAS a CLOSE RELATIONSHIP BETWEEN THEM-- "Titus, my own son."
 
 This was a very close relationship--not that Titus was Paul's son after the flesh, for there was no natural relationship between them at all. Probably, in the early part of their lives, they had been total strangers to one another. But now, Paul views Titus as his son. We know, Beloved, many of us, that the Grace of God creates relationships of a very near and tender kind, relationships which will endure through life, relationships which will outlast death and be, perhaps, even more strong and vivid in eternity than they are here! Up yonder, where they neither marry nor are given in marriage, I should think that the relationships which come of the flesh will, to a large degree, be merged in their celestial condition, but there, the sonship of Titus towards Paul is even stronger than it was when they were here below.
 
@@ -24,7 +24,7 @@ But, Beloved, many of you are joined together by spiritual ties in other relatio
 
 But Beloved, as many of you as believe in Jesus Christ are members of one family. You are related to one another in the highest possible way through the kinship of the spiritual life. Therefore let us now salute each other in the Lord. Standing or sitting in our places and without using any outward sign or symbol, let our hearts go out to one another in loving greeting. As one family we dwell in Christ, knit to one another by ties of sympathy, love and mutual delight, because knit to Christ Jesus the Lord! I want you to feel that blessed union. Let us make this service a sort of family gathering, as when the father stands up at the head of the table at Christmas time, or on New Year's Day, and says that he is glad to see all the family at home once more. I seem to stand among you, thus, not as the oldest in years, but still the chief official member of this Church--and I salute you all, and bid you rejoice together because of ties of love which time cannot loose and death, itself, cannot dissolve!
 
-Then the Apostle, wishing to show how real was the union between himself and Titus, next mentioned that THEY WERE BRETHREN BY A COMMON FAITH--"Titus, my true son after the common faith."
+Then the Apostle, wishing to show how real was the union between himself and Titus, next mentioned that THEY WERE BRETHREN BY a COMMON FAITH--"Titus, my true son after the common faith."
 
 Yes, Beloved, and our faith is also common. It is the same faith in two respects. First, because we believe the same truths and, secondly, because we believe them with "like precious faith." We who are rightly members of this Tabernacle Church have believed the same Truths of God--there is no dispute or discussion among us about the fundamentals of our faith. To us, there is one God--Father, Son and Holy Spirit. To us, there is one Mediator--Jesus Christ the Savior. We believe in the election of Grace by the Divine Father. We believe in the vicarious Sacrifice of the Eternal Son. We believe in the regenerating work of the Holy Spirit and in the need of it in the case of every living man, woman and child.
 
@@ -36,7 +36,7 @@ Then Paul says that he and Titus were one, "after the common faith," that is, th
 
 Beloved, I trust that I can say of myself and of you, also, that we have received faith as a gift from God. Here, then, is another sacred tie binding us together. You have that jewel of faith gleaming on your bosom and here are others who have the same precious gem--and by that very fact you are drawn to each other. Your faith and my faith, if they are both true faith, are, "the common faith." I may have very little faith and you may have the full assurance of understanding, but your faith and mine are of the same sort. Your faith may be but as a grain of mustard seed and your friend's faith may have grown into a tree, but it is the same faith--it clings to the same Christ and will produce the same eternal results in the salvation of the soul! Come, then, let us spiritually shake hands, again, over this second point. First, we are closely related to one another. Secondly, we possess a common faith, which is a wonderful bond of union between us.
 
-Carefully note the third link. It is this--WE HAVE A MUTUAL BENEDICTION, for Paul wishes for Titus,
+Carefully note the third link. It is this--WE HAVE a MUTUAL BENEDICTION, for Paul wishes for Titus,
 
 "Grace, mercy and peace." This is just what Titus would have wished for Paul if he had been sending him a benediction! And I wish to you, Beloved, "Grace, mercy and peace," and I think you are, in your hearts, wishing for me, also, "Grace, mercy, and peace." We all alike need these three choice favors!
 

@@ -98,7 +98,7 @@ This faith is said to have been widespread, for, "many believed on Him there." I
 
 And now I close with the fourth head, which is this--it has been pleasant to know the place, instructive to note
 
-the time and cheering to observe the fact--and now IT IS MOST IMPORTANT THAT WE SHOULD HAVE A SECOND EDITION OF IT. It is most important that many should believe on Christ here, in this very place, at this very hour!
+the time and cheering to observe the fact--and now IT IS MOST IMPORTANT THAT WE SHOULD HAVE a SECOND EDITION OF IT. It is most important that many should believe on Christ here, in this very place, at this very hour!
 
 For first, this morning many are here. From different motives and from different quarters of the globe you have come here at this time. We have so far realized the text that "many resorted unto Him." This is a good beginning--we ought to be very thankful to see it.
 
@@ -112,7 +112,7 @@ need any apologies for the Gospel--it is its own witness. "God was in Christ rec
 
 Let us now come to bayonet point. Friend, will you believe in Jesus Christ?--that is the point! You have heard about Him long enough--will you now believe on Him? Wagon loads of sermons have been lost upon you--will you now believe on Him? "I will think about it." I don't ask you to think about it, but to believe on Him. "I shall go home and try what I can do." Do not try to do anything--believe on Jesus, for the Gospel precept is--"Believe on the Lord Jesus Christ and you shall be saved." May the sweet Spirit of God come upon you mightily, now, and take you away from all things but the one thing necessary! Oh that you would cast your guilty souls on Jesus and find Him mighty to redeem! Here is a simple verse for you to say in your hearts--
 
-> A guilty, weak, and helpless worm,   
+> a guilty, weak, and helpless worm,   
 > On Christ's kind arms I fall;   
 > He is my strength and righteousness,   
 > My Jesus, and my All.   

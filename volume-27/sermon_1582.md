@@ -40,7 +40,7 @@ Do not, therefore, set too much store by your own feelings as evidences of Divin
 
 The Word of God is a more sure testimony to the soul than all the raptures a man can feel! I would sooner walk in the dark and hold hard to a promise of my God than trust in the light of the brightest day that ever dawned!. Precious as the fruit is, do not put the fruit where the root should be. Please remember that joy is not the root of Grace in the soul-- it is the fruit and must not be put out of its proper position. "The fruit of the Spirit is joy" and it is brought forth in Believers, but not alike in all. But to all Believers there is a measure of joy.
 
-Secondly, THIS JOY IS OF A SINGULAR CHARACTER. It is singular for this reason, that it often ripens under the most remarkable circumstances. As I have already said, the highest joy of Christians has often been experienced in
+Secondly, THIS JOY IS OF a SINGULAR CHARACTER. It is singular for this reason, that it often ripens under the most remarkable circumstances. As I have already said, the highest joy of Christians has often been experienced in
 
 their times of greatest distress. Tried Believers have been happy when smarting under pain, or wasting away with disease. Sick beds have been thrones to many saints--they have almost feared to come out of the furnace because the Presence of the Lord in the midst of the fire has made it none other than the gate of Heaven to their souls! Saints in poverty have been made exceedingly rich and when they have eaten a dry crust they have found a flavor in it which they never discovered in the dainties of their abundance.
 

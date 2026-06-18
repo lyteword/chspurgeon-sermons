@@ -22,7 +22,7 @@ And, Beloved, now that our Lord is risen from the dead, He still feels the power
 
 And what will be the joy of His heart when the "great multitude, which no man could number, of all nations, and kindred, and people, and tongues"--all redeemed by His blood--shall be gathered to Christ, to be the delight of His heart forever and ever! That will be a joy sufficient, even, for the immensity of His infinite heart as He sees in them the reward of His awful agonies, the rich return for the shedding of His precious blood! His benevolence--that great mainspring of all that He has done--will be gratified and satisfied as He looks on each one of His redeemed and sees the fruit of His travail in every individual child of His Grace, in each sinner reclaimed, in each saint preserved and perfected! I can well conceive of Him saying in that day, "Turn away your eyes from Me, for they have overcome Me." The joy that Christ will feel in His own sight of His people and in the glances of the multitudes that He has saved, must be a delight beyond anything we can even imagine!
 
-Now I must pass to a second point, which is this, that THE EYES OF CHRIST'S CHOSEN ONES STILL
+Now I must pass to a second point, which is this, that THE EYES OF CHRIST's CHOSEN ONES STILL
 
 OVERCOME HIM. This is a practical point upon which we may profitably spend some little time--the eyes of Christ's chosen ones still overcome Him.
 

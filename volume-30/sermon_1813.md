@@ -4,7 +4,7 @@
 
 WHAT a complex creature is man! Those who fancy that they can fully describe him, do not understand him. He is a riddle and a contradiction. As says Ralph Erskine--
 
-"I'm in my own and others' eyes A labyrinth of mysteries."
+"I'm in my own and others' eyes a labyrinth of mysteries."
 
 Here, for instance, is a confession from David. "So foolish was I, and ignorant: I was as a beast before You. Nevertheless I am continually with You: You have held me by my right hand" (Psa. 73:22, 23). Paul says, "O wretched man that I am! who shall deliver me from the body of this death? I thank God through Jesus Christ our Lord." (Rom. 7:24, 25). He is strengthened with all might by the Spirit of God in the inner man and yet he is weakness itself! In the text before us, Jonah appears to be in a despairing condition--"I am cast out of Your sight," but still he has hope, for he resolves, "Yet I will look again toward Your holy Temple." Everything seems lost and yet, as long as a man can look to God, nothing is lost! God cannot see him, so he thinks, yet he talks about looking towards God--this is amazing, is it not? It is as if he said, "I am cast out of Your sight and yet You are the Object of my sight."
 

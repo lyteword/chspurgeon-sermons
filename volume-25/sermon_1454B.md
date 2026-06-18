@@ -32,7 +32,7 @@ Poor sorrowing Heart, let me say to you, and say in God's name--If you love your
 
 Only be of good cheer and when you are praying, "Favor me with the favor which You bear to Your people," let your faith hear Him say, "I am your portion." Rejoice in the Lord your God! Lift up the hands that hang down and confirm the feeble knees. Is not my text a sweet prayer for you? Pray it in faith and be at peace.
 
-We will now look another way and say that our TEXT IS A SUITABLE PETITION FOR A POOR PENITENT BACKSLIDER. I know there are backsliders here, though, alas, I am not sure that they are penitent. Only the Lord can read their hearts. But if they are penitent, I can hardly conceive a more suitable petition for them than that which is before us. It is clear that this poor, pleading backslider feels that he has forgotten His God. Have you done that? You have been a Church member and you have gone sadly astray. Have you quite forgotten His Commandments? You thought you loved Him. You used to pray, at one time. You had some enjoyment in reading and in hearing the Word.
+We will now look another way and say that our TEXT IS a SUITABLE PETITION FOR a POOR PENITENT BACKSLIDER. I know there are backsliders here, though, alas, I am not sure that they are penitent. Only the Lord can read their hearts. But if they are penitent, I can hardly conceive a more suitable petition for them than that which is before us. It is clear that this poor, pleading backslider feels that he has forgotten His God. Have you done that? You have been a Church member and you have gone sadly astray. Have you quite forgotten His Commandments? You thought you loved Him. You used to pray, at one time. You had some enjoyment in reading and in hearing the Word.
 
 But now you find your pleasure somewhere else. You have left your first love and gone after many lovers. But, oh, if the Lord is gracious to you, you are lamenting your forgetfulness and though you have not remembered Him, the prayer leaps to your lips, "Lord, remember me!" Blessed be His name, He does not so easily forget us as we forget Him. If you are a truly penitent backslider, your feelings of repentance prove that God remembers you! It is He that sets you weeping and makes you sorrow for your sin! If you had been altogether forgotten of God, you would not have any desire to return to Him! But those inward pangs, those secret throes, those desires to be restored to the Lord--these prove that He remembers you with the favor which He has towards His people.
 
@@ -54,9 +54,9 @@ Ah, and I may here say, even if you have not backslidden, look again to Jesus! T
 
 And as I look I remember that the Lord has laid on Him the iniquity of all His people--and, looking--my sin departs from me because it was laid on Him! Looking, my heart yearns to love and then yearns to leap! Looking, I come back to where I stood before and now, once again, Christ is my All and I rejoice in Him! Have you gone through that process, Backslider? If you have done so while I have been speaking, let us praise God together!
 
-The last use I have to make of my text will, I hope, be beneficial to many here present. It is this--THIS IS A
+The last use I have to make of my text will, I hope, be beneficial to many here present. It is this--THIS IS a
 
-VERY SWEET PRAYER FOR A POOR SORROWING SEEKER. I beg all who desire conversion to remember this
+VERY SWEET PRAYER FOR a POOR SORROWING SEEKER. I beg all who desire conversion to remember this
 
 prayer. They had better jot it down and carry it home with them, or, better still, breathe it to Heaven at once. Consider it well. To begin with, it is a sinner's prayer. "Remember me, O Lord!" A sinner's prayer, I say, for the dying thief rejoiced to use the words. He could not have reached down for a prayer-book and said a collect, poor man, when he was dying--and there was no need he should. This is the best of prayers--"Lord, remember me when You come into Your Kingdom."
 

@@ -14,7 +14,7 @@ If that great work of Grace is really done at the beginning of the sermon, I sha
 
 Now, proceeding to examine the text a little in detail, my first observation upon it is this--the Holy Spirit is our Lord's Glorifier. "He shall glorify Me." Secondly, Christ's own things are His best Glory. "He shall glorify Me: for He shall take of Mine, and shall show it to you." And, thirdly, Christ's Glory is His Father's Glory. "All things that the Father has are Mine: therefore said I, that He shall take of Mine, and shall show it to you."
 
-To begin, then, THE HOLY SPIRIT IS OUR LORD'S GLORIFIER. I want you to keep this Truth of God in your mind and never to forget it--that which does not glorify Christ is not of the Holy Spirit, and that which is of the Holy Spirit invariably glorifies our Lord Jesus Christ!
+To begin, then, THE HOLY SPIRIT IS OUR LORD's GLORIFIER. I want you to keep this Truth of God in your mind and never to forget it--that which does not glorify Christ is not of the Holy Spirit, and that which is of the Holy Spirit invariably glorifies our Lord Jesus Christ!
 
 First, then, have an eye to this Truth in all comforts. If a comfort which you think you need and which appears to you to be very sweet, does not glorify Christ, look very suspiciously upon it. If, in conversing with an apparently religious man, he prates about truth which he says is comforting, but which does not honor Christ, do not have anything to do with it! It is a poisonous sweet--it may charm you for a moment, but it will ruin your soul forever if you partake of it. But blessed are those comforts which smell of Christ, those consolations in which there is a fragrance of myrrh, aloes and cassia, out of the King's palace--the comfort drawn from His Person, from His work, from His blood, from the Resurrection, from His Glory--the comfort directly fetched from that sacred spot where He trod the winepress alone! This is wine of which you may drink, forget your misery and be unhappy no more!
 
@@ -40,7 +40,7 @@ I will make only one more observation upon this first point. If the Holy Spirit 
 
 That is the first point--the Holy Spirit is our Lord's Glorifier. Keep that Truth of God before your mind's eye under all circumstances.
 
-Now, secondly, CHRIST'S OWN THINGS ARE HIS BEST GLORY. When the Holy Spirit wants to glorify Christ, what does He do? He does not go abroad for anything--He comes to Christ, Himself, for that which will be for Christ's own Glory--"He shall glorify Me: for He shall take of Mine, and shall show it to you." There can be no Glory added to Christ! It must be His own Glory which He has, already, which is made more apparent to the hearts of God's chosen by the Holy Spirit!
+Now, secondly, CHRIST's OWN THINGS ARE HIS BEST GLORY. When the Holy Spirit wants to glorify Christ, what does He do? He does not go abroad for anything--He comes to Christ, Himself, for that which will be for Christ's own Glory--"He shall glorify Me: for He shall take of Mine, and shall show it to you." There can be no Glory added to Christ! It must be His own Glory which He has, already, which is made more apparent to the hearts of God's chosen by the Holy Spirit!
 
 First of all, Christ needs no new inventions to glorify Him. "We have struck out a new line of things," says one. Have you? "We have discovered something very wonderful." I dare say you have, but Christ, the same yesterday, today and forever, needs none of your inventions, or discoveries, or additions to His Truth. A plain Christ is always the loveliest Christ. Dress Him up and you have deformed Him and defamed Him. Bring Him out just as He is--the Christ of God, nothing else but Christ, unless you bring in His Cross--for we preach Christ Crucified! Indeed, you cannot have the Christ without the Cross, but preach Christ Crucified and you have given Him all the Glory that He wants. The Holy Spirit does not reveal in these last times any fresh ordinances, or any novel doctrines, or any new evolutions--He simply brings to mind the things which Christ, Himself, spoke, He brings Christ's own things to us and, in that was, glorifies
 
@@ -84,7 +84,7 @@ And you, Christian people, cry to Him that you may not read your Bibles without 
 
 I am only going to speak a minute or two on the last point. It is a very deep one, much too deep for me. I am unable to take you into the depths of my text, I will not pretend to do so. I believe that there are meanings here which probably we shall never understand till we get to Heaven. "What you know not now, you shall know hereafter." But this
 
-is the point--CHRIST'S GLORY IS HIS FATHER'S GLORY--"All things that the Father has are Mine: therefore
+is the point--CHRIST's GLORY IS HIS FATHER's GLORY--"All things that the Father has are Mine: therefore
 
 said I, that He shall take of Mine, and shall show it to you."
 

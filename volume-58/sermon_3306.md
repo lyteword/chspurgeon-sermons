@@ -88,7 +88,7 @@ was that was done. And they come to Jesus, and saw him that was possessed with t
 
 18, 19. And when He was come into the boat, he that had been possessed with the devil prayed Him that he might be with Him. Howbeit Jesus allowed him not, but said to him, go home to your friends, and tell them how great things the
 
-Lord has done for you, and has had compassion on you [See Sermon #2262, Volume 38--CHRIST'S CURATE IN DECAPOLIS.] This is the third prayer in this chapter. Not like the two previous ones--the petition of many who were not Christ's followers. It was the earnest supplication of one who was so grateful for what Jesus had done for him that he longed to be always with Him. Yet it was not granted, because Jesus saw that the man could serve Him better by bearing testimony among those who knew him to the great things the Lord had done for him.
+Lord has done for you, and has had compassion on you [See Sermon #2262, Volume 38--CHRIST's CURATE IN DECAPOLIS.] This is the third prayer in this chapter. Not like the two previous ones--the petition of many who were not Christ's followers. It was the earnest supplication of one who was so grateful for what Jesus had done for him that he longed to be always with Him. Yet it was not granted, because Jesus saw that the man could serve Him better by bearing testimony among those who knew him to the great things the Lord had done for him.
 
 And he departed, and began to publish in Decapolis how great things Jesus had done for him: and all men did marvel. His testimony not only made men marvel, but it helped to prepare the people to welcome the Savior when He returned to that region.
 

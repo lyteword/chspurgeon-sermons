@@ -30,7 +30,7 @@ My dear Brethren, I hope most of us here present know what it is to have a part 
 
 We are much deceived if this is not the case. But if it, indeed, is so, we feel that the blessed fact is altogether due to Divine Grace, and it could never have been so if we had not first been washed. If we have not as yet participated in the blessings which come to us through Christ, we know, this morning, for the text tells us, that we must be washed before we can have a part with Him. Brethren, we desire to be sons as He is a Son. We wish to be heirs as He is an Heir. We pant to be accepted as He is accepted. We aspire to be, before long, glorified as He is glorified. This is a blessing worthy of the utmost intensity of desire, and it is a blessing which we must obtain or we shall sink miserably down to everlasting de-struction--since to be without Christ is to be without hope.
 
-After these few words upon what it is to have a part with Jesus, I come to notice, in the second place, THE ESSENTIAL QUALIFICATION FOR OBTAINING AND ENJOYING A PART WITH CHRIST. It is essential that He
+After these few words upon what it is to have a part with Jesus, I come to notice, in the second place, THE ESSENTIAL QUALIFICATION FOR OBTAINING AND ENJOYING a PART WITH CHRIST. It is essential that He
 
 should wash us. Observe then, that the qualification is not one of merit on our part, it is one of mercy on His part. If He had said, "Except you obtain a superior degree of holiness, you have no part in Me," we might have become dispirited, desponding, and even despairing.
 

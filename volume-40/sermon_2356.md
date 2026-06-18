@@ -18,7 +18,7 @@ to you through prayer, especially when prayer has taken the form of arguing with
 
 In the words before us, David pleads with God the Truth of His salvation--"Hear me in the Truth of your salvation," upon which I shall only make these two remarks--first, God's salvation is a great reality and, secondly, We have proved it to be so.
 
-First, GOD'S SALVATION IS A GREAT REALITY, a great Truth of God--"The Truth of your salvation." There is a substance in it. It is not a shadow, it is not a myth, it is not a mere type or figure of speech. It is a substantial thing, there is the Truth of God in it--"The Truth of your salvation."
+First, GOD's SALVATION IS a GREAT REALITY, a great Truth of God--"The Truth of your salvation." There is a substance in it. It is not a shadow, it is not a myth, it is not a mere type or figure of speech. It is a substantial thing, there is the Truth of God in it--"The Truth of your salvation."
 
 And, first, let us view it in reference to the Lord, Himself. To God, His salvation is, in the highest sense, full of Grace and His Truth.
 

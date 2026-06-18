@@ -50,7 +50,7 @@ As the robber looked, he believed. Is it not amazing--the very sight of the Mast
 
 Oh, that God in His mercy might convert everybody in this Tabernacle! Oh, that I could have a share in it by the preaching of His Word! But I will be equally happy if you get to Heaven anyway--yes, if the Lord should take you there without outward ministries, leading you to Jesus by some simple method such as He adopted with this thief! If you do but get there, He shall have the Glory for it, and His poor servant will be overjoyed! Oh, that you would now look to Jesus and live! Before your eyes He is set forth, evidently crucified among you. Look to Him and be saved, even at this hour!
 
-But now I want you to think with me a little upon THE SPECIALITY OF THIS MAN'S FAITH, for I think it was a very singular faith that this man exerted towards our Lord Jesus Christ.
+But now I want you to think with me a little upon THE SPECIALITY OF THIS MAN's FAITH, for I think it was a very singular faith that this man exerted towards our Lord Jesus Christ.
 
 I greatly question whether the equal and the parallel of the dying thief's faith will be readily found outside the Scriptures, or even in the Scriptures!
 
@@ -96,7 +96,7 @@ In addition to thus praying, you will see that he adores and worships Jesus, for
 
 Oh, that some penitent spirit here might be helped thus to believe, thus to confess, thus to defend his Master, thus to adore, thus to worship--and then the age of the convert would be a matter of the smallest imaginable consequence!
 
-Now, the last remark is this--There was something very special about the dying thief as to OUR LORD'S
+Now, the last remark is this--There was something very special about the dying thief as to OUR LORD's
 
 WORDS TO HIM ABOUT THE WORLD TO COME. He said to him, "Today shall you be with Me in Paradise." He
 

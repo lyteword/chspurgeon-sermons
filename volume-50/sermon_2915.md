@@ -12,7 +12,7 @@ Were you to visit the site of that ancient city of Judah as it is at present, yo
 
 So, Beloved, "let us now go to Bethlehem" as it was--let us, if possible, bring the wondrous story of that "Child born," that "Son given," down to our own times. Imagine the event to be occurring just now. I will try to paint the picture for you with vivid colors, that you may apprehend afresh the great Truth of God and be impressed, as you ought to be, with the facts concerning the birth of our Lord and Savior Jesus Christ.
 
-I propose now to make A VISIT TO BETHLEHEM and I need five companions to render the visit instructive. So I would have, first, an aged Jew. Next, an ancient Gentile. Then, a convicted sinner Next, a young Believer And, last of all, an advanced Christian. Their remarks can scarcely fail to please and profit us. Afterwards I should like to take a whole family to the manger, let them all look at the Divine Infant and hear what each one has to say about Him.
+I propose now to make a VISIT TO BETHLEHEM and I need five companions to render the visit instructive. So I would have, first, an aged Jew. Next, an ancient Gentile. Then, a convicted sinner Next, a young Believer And, last of all, an advanced Christian. Their remarks can scarcely fail to please and profit us. Afterwards I should like to take a whole family to the manger, let them all look at the Divine Infant and hear what each one has to say about Him.
 
 To begin, then, I WOULD GO TO BETHLEHEM WITH AN AGED JEW.
 
@@ -36,7 +36,7 @@ Next in order is THE AWAKENED SINNER.
 
 Come here, my Sister, I am glad to see you and I shall have much pleasure in your company to Bethlehem. Why do you start back? Do not be afraid! There is nothing to terrify you here. Come in! Come in! With trembling apprehension my Sister advances to the rough crib where the young Child lies. She looks as if she feared to rejoice and is beyond measure astonished at herself that she does not faint. She says to me, "And is this, Sir, really and truly the great Mystery of godliness? Do I, in that manger, behold 'God manifest in the flesh'? I expected to see something very different." Looking into her face, I clearly perceived that she could scarcely believe for joy. A humble, but not uninteresting visitor to the birthplace of my Lord is this trembling penitent. I wish I could have many like her out of this congregation tonight. You would see how Mystery is dissolved in mercy! No flaming sword turning every way obstructs your entrance. No ticket of admission is demanded by a surly menial at the door. No favor is shown to rank or title--you may go freely in to see the noblest Child of woman born in the humblest cot wherein infants ever nestled! Nor does a visible tiara of light encircle His brow. Too humble, I assure you, for the fancy of the poet to describe, or the pencil of the artist to sketch--like a poor man's child, he is wrapped in swaddling clothes and cradled in a manger. It needs faith to believe what the eyes of sense never could discern as you look upon "the Prince of Life" in such humble guise!
 
-My fourth companion is A YOUNG BELIEVER.
+My fourth companion is a YOUNG BELIEVER.
 
 Well, my Brother, you and I have often had sweet communion together concerning the things of the Kingdom. "Let us now go to Bethlehem and see this thing which is come to pass, which the Lord has made known unto us." I mark the sacred cheerfulness of my young friend's countenance as he approaches the Incarnate Mystery! Often have I heard him discussing curious doctrinal subtleties, but now, with calmness of spirit, he looks on the face of the Divine Child and says, "Truth is sprung out of the earth, for a woman has brought forth her Son and righteousness has looked down from Heaven, for God has, of a truth, revealed Himself in that Baby." He looks so wistfully at the young Child, as if a fresh spring of holy gratitude had been opened in his heart. "No vision, no imagination, no myth here," he says, "but a real partaker of our flesh and blood! He has not taken on Him the nature of angels, but the seed of Abraham. Heaven and earth have united to make us blessed. Might and weakness have joined hands here!"
 
@@ -56,7 +56,7 @@ Thus, Beloved, I have endeavored to carry out my purpose of going to Bethlehem w
 
 Give me your earnest attention a little longer while I try to change the line of meditation. It may please God that
 
-while I attempt to CONDUCT A WHOLE FAMILY TO BETHLEHEM, some hearts which have thus far resisted all my
+while I attempt to CONDUCT a WHOLE FAMILY TO BETHLEHEM, some hearts which have thus far resisted all my
 
 appeals may yet yield to the Lord Jesus Christ!
 
@@ -70,7 +70,7 @@ Once became a Child like me." "Good, my dear," says the father--"once became a c
 
 "'Almighty God became a Man,
 
-A Baby like others seen--
+a Baby like others seen--
 
 As small in size, and weak of frame,
 
@@ -90,7 +90,7 @@ In time alone He ran.
 
 Then grew a Boy. A Lad--at length
 
-A Youth--at last, a Man.'
+a Youth--at last, a Man.'
 
 "It is wrong to draw pictures of the little Jesus and then say that they are like Him. Wicked idolaters do that. But we ought to think of Jesus Christ as made in all things like unto His brethren. There was never a thing in which He was not like us, except that He had no sin. He used to eat, drink, sleep, wake, laugh, cry and hold onto His mother, just as other children do. So it is quite right for you, Willy, to say, 'once became a Child like me.'"
 
@@ -114,7 +114,7 @@ Once more the father seeks a fresh text and, looking at his wife, he says, "My D
 
 A pensive sadness stole over every countenance as that godly mother offered her reflections. Woman's tenderness seemed to be sanctified by Divine Grace in her heart and to give forth its richest fragrance. The father presently broke the stillness as he said, "Ah, my Love, you have spoken best of all! His heart was broken with reproach! That humble birth was but the prelude to a life still more humble and a death even more abased! Your feelings, my Love, are most precious evidence of your close relationship to Him--
 
-"'A faithful friend of grief partakes;
+"'a faithful friend of grief partakes;
 
 But union can be none
 
@@ -165,6 +165,6 @@ And suddenly there was with the angel a multitude of the heavenly host They had 
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
 
 END OF VOLUME 50

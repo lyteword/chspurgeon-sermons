@@ -26,7 +26,7 @@ Let us congratulate one another that our prayers, notwithstanding all the faults
 
 reply, "We wish you a blessing in God's name," so now let us congratulate each other upon God's mercy which we have received!
 
-And is not the joy of harvest particularly A JOY OF GRATITUDE?
+And is not the joy of harvest particularly a JOY OF GRATITUDE?
 
 I envy not the man who can see the Church increased and yet not feel a sacred, grateful joy. I know some little narrow souls, so compressed within their own selfishness, that to feed their own souls and cherish their own feelings seems to them the only aim and end of Gospel ministry. Whether souls, other than their own, are lost or saved, they care not. It has been the lot of some of us to be, at times, cast among a narrow-minded class of people who say, with a supine satisfaction, "There are very few that shall be saved." And the fewer the number in their fellowship, the more confident they grow of their own election! The appearance of a candidate for Baptism or church membership is the signal for all of them to put on their spectacles and look him through and through to see if he is not a hypocrite. I do not know that their churches are so particularly pure, but I do know that it is particularly difficult to get into them! I do not know that they are worth getting into, but I do know that they oughtto be worth it, considering the time it takes before one can possibly be received into their enclosure! You must be summered and wintered and tried this way and that before you can be received--and when you are received, the members are sure to rub their hands together and say, "Well, it's a serious thing to receive members." And they are about as glad as I suppose a poor man might be who had 19 children, when there is another coming to eat of the scanty loaf! They seem to think that the addition of so many new members would make the whole of the old members so much the poorer. For my part--and I think I can speak for all here--we greatly rejoice when new converts are welcomed into the Church--and the more there are brought into the Christian family, the more joyful we shall be! We will bless our God--without ceasing will we bless His name, that He does add to us, for this is His work! Jesus sees of the fruit of His passion. The Spirit sees the result of His operation. The Divine Father sees His own children returning to His own board and herein we do rejoice, yes, and we will rejoice with the joy of gratitude!
 
@@ -100,4 +100,4 @@ But he that received seed into the good ground is he that hears the Word and und
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

@@ -65,7 +65,7 @@ True faith works upon us by leading us to obedience. When we believe in Jesus, w
 
 > Faith must obey her Father's will,   
 > As well as trust His Grace.   
-> A pardoning God is jealous, still,   
+> a pardoning God is jealous, still,   
 > For His own holiness.   
 > When from the curse He sets us free,   
 > He makes our natures clean. Nor would He send His Son to be The minister of sin.   

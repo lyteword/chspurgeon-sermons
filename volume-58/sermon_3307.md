@@ -2,7 +2,7 @@
 
 "My beloved is mine, and I am His: He feeds among the lilies. Until the day breaks and the shadows flee away, turn, my Beloved, and be You like a roe or a young hart upon the mountains of Bether." Solomon's Song 2:16,17.
 
-[Other Sermons by Mr. Spurgeon upon the same verses are #1190, Volume 20--A SONG AMONG THE LILIES; #2442, Volume 41--"MY BELOVED IS MINE" and #2477, Volume 42--DARKNESS BEFORE THE DAWN.]
+[Other Sermons by Mr. Spurgeon upon the same verses are #1190, Volume 20--a SONG AMONG THE LILIES; #2442, Volume 41--"MY BELOVED IS MINE" and #2477, Volume 42--DARKNESS BEFORE THE DAWN.]
 
 IT may be that there are saints who are always at their best and are happy enough never to lose the light of their Father's Countenance. I am not sure that there are such persons, for those Believers with whom I have been most intimate have had varied experiences and those whom I have known who have boasted of their constant perfectness, have not been the most reliable of individuals. I hope there is a spiritual region attainable where there are no clouds to hide the Sun of our soul, but I cannot speak positively, for I have not traversed that happy land. Every year of my life has had a winter as well as a summer, and every day its night. I have hitherto seen bright days and heavy rains, and felt warm breezes and fierce winds. Speaking for the many of my Brothers and Sisters, I confess that though the substance is in us, as in the olive tree and the oak, yet we do lose our leaves and the sap within us does not flow with equal vigor at all seasons. We have our downs as well as our ups, our valleys as well as our hills! We are not always rejoicing--we are sometimes in heaviness through manifold trials. Alas, we are grieved to confess that our fellowship with the Well-Beloved is not always that of rapturous delight, but we have at times to seek Him and cry, "Oh, that I knew where I might find Him!" This appears to me to have been in a measure the condition of the spouse when she cried, "Until the day breaks and the shadows flee away, turn, my Beloved."
 
@@ -70,7 +70,7 @@ did say, "If you believe in God, you are believing in Me; and if you believe in 
 
 In My Father's house are many mansions: ifit were not so, I would have told you. "Wicked men will shut you out of My Father's house below: the Temple at Jerusalem, through being still used for Jewish worship after all its ritual and ceremonialism have been abolished, will cease to be My Father's house to you; but there is a building of God, a house not made with hands, eternal in the heavens, and there is room for all of you there. When this country gets to be a desert to you, remember that there is the Home Country, the blessed Glory Land, on the other side of the river, and the Father's house there with its many mansions."
 
-2, 3. I go to prepare a place for you [See Sermon #2751, Volume 47--"A PREPARED PLACE FOR A PREPARED PEOPLE."] And if I go and prepare a place for you, I will come again and receive you unto Myself; that where I am, there you may be also. Jesus often keeps this promise in many senses. By His gracious Spirit, He has come again. By His Divine Presence in the means of Grace, He full often comes again. By-and-by, if we die, He will come again to meet us. And if we do not die, then will the promise be fulfilled to the greatest possible extent, for Jesus will come again and receive in His own proper Person those who are alive and remain unto His coming.
+2, 3. I go to prepare a place for you [See Sermon #2751, Volume 47--"A PREPARED PLACE FOR a PREPARED PEOPLE."] And if I go and prepare a place for you, I will come again and receive you unto Myself; that where I am, there you may be also. Jesus often keeps this promise in many senses. By His gracious Spirit, He has come again. By His Divine Presence in the means of Grace, He full often comes again. By-and-by, if we die, He will come again to meet us. And if we do not die, then will the promise be fulfilled to the greatest possible extent, for Jesus will come again and receive in His own proper Person those who are alive and remain unto His coming.
 
 Anyhow, "I will come again, and receive you unto Myself," remains one of the sweetest promises that was ever given to Believers by the Lord Jesus Christ! He did not say, "I will receive you to Heaven." He promised something far better than that--"I will receive you unto Myself." Oh, what bliss it will be to get to Christ, to be with Him forever and ever!
 
@@ -94,7 +94,7 @@ Jesus said unto him, Have I been so long time with you, and yet have you not kno
 
 13-14. And whatever you shall ask in My name, that will I do, that the Father may be glorified in the Son. If you shall ask anything in My name, I will do it There is the only limit to true believing prayer! There are some things which we could not ask in Christ's name--that is, using His authority in asking for them. There are some wishes and whims that we may cherish, and that we think we may pray about, but we have not Christ's name or authority to warrant us in expecting that we shall realize them and, therefore, we cannot ask for them in His name. To say, "For Christ's sake," is one thing, but to say, "I ask this in Christ's name," is quite another matter! He never authorized you to make use of His name about everything. There are only certain things about which you can pray in His name, such as are the express subject of a Divine promise--and when you pray for one of those things, you shall prove Christ's words to be true, "If you shall ask anything in My name, I will do it."
 
-15-16. Ifyou love Me, keep My commandments. AndI willpray the Father, andHe shall give you another Comforter, [See Sermons #1074, Volume 18--THE PARACLETE and #1932, Volume 32--LOVE'S LAW AND LIFE.] The Paraclete, the Succorer, the Helper. The word, "Comforter," has lost its old meaning. You get
+15-16. Ifyou love Me, keep My commandments. AndI willpray the Father, andHe shall give you another Comforter, [See Sermons #1074, Volume 18--THE PARACLETE and #1932, Volume 32--LOVE's LAW AND LIFE.] The Paraclete, the Succorer, the Helper. The word, "Comforter," has lost its old meaning. You get
 
 it in certain old writings, when you read of such-and-such a man that he gave to someone else succor and comfort. There
 
@@ -128,7 +128,7 @@ riot! He wants Christ to manifest Himself to all the world! He seems to have bee
 
 Jesus answered and said unto him, If a man loves Me, he will keep My words: and My Father will love him, and
 
-We will come unto him, and make our abode with him. [See Sermon #2895, Volume 50--A BLESSED GOSPEL CHAIN.] Christ is sure to manifest Himself to those who love Him, but how can He manifest Himself to those who love Him not? They cannot see Him! They would not appreciate Him if they couldsee Him-- they have no spiritual taste with which to enjoy Him.
+We will come unto him, and make our abode with him. [See Sermon #2895, Volume 50--a BLESSED GOSPEL CHAIN.] Christ is sure to manifest Himself to those who love Him, but how can He manifest Himself to those who love Him not? They cannot see Him! They would not appreciate Him if they couldsee Him-- they have no spiritual taste with which to enjoy Him.
 
 24-26. He that loves Me not keeps not My saying: and the word which you hear is not Mine, but the Father's which sent Me. These things have I spoken unto you, being yet present with you. But the Comforter, which is the Holy Spirit, whom the Father will send in My name, He shall teach you all things and bring all things to your remembrance, whatever I have said unto you.Do we sufficiently look to the Holy Spirit for Divine teaching? We read our Bibles, I trust, with diligence--and also any explanatory books by which we may better understand our Bibles--but do we look up to the Holy Spirit and ask Him distinctly and immediately to teach us what is the meaning of Christ's words, and to bring them to our remembrance? I wish we did this more than we do.
 
@@ -144,4 +144,4 @@ Not as the world gives, give I unto you."With an expectation of getting a reward
 
 --Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

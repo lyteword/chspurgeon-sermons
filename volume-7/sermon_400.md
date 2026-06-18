@@ -7,7 +7,7 @@ TENDER FATHERS seek first to will their children by gentle means. The Lord, in h
 
 Three things I must do this morning; first, I must deal a blow, at the old Tempter, who has got the first hand at you; secondly, I will come to reason comfortably with you; and then, thirdly, I must lovingly persuade you, saying--"Come, let us return unto the Lord."
 
-First then, I must DEAL A BLOW AT THE OLD TEMPTER, WHO HAS GOT BEFORE ME AND HAS BEGUN TO DECEIVE YOU.
+First then, I must DEAL a BLOW AT THE OLD TEMPTER, WHO HAS GOT BEFORE ME AND HAS BEGUN TO DECEIVE YOU.
 
 I cannot tell what is the precise temptation that Satan has been using with you, but I think it is very likely to be one of four.
 
@@ -53,7 +53,7 @@ Then, that I may persuade you further, let me remind you that to return to God i
 
 But, yet again, remember the comfortable fruits which will surely follow if you return. What would you think if I could show you yourself within a week? There he stands; he is singing--
 
-> A debtor to mercy alone,   
+> a debtor to mercy alone,   
 > Of covenant mercy I sing;   
 > Nor fear with thy righteousness on,   
 > My person and offering to bring.   

@@ -27,8 +27,8 @@ Solomon once laid in it, and many since his time have sought their rest there. T
 
 > I fly like a bird of the air,    
 > In search of a home and a rest;    
-> A balm for the sickness of care,    
-> A bliss for a bosom unblest.    
+> a balm for the sickness of care,    
+> a bliss for a bosom unblest.    
 
 And yet he found it not. He had no rest in God. He tried pleasure till his eyes were red with it; he tried vice till his body was sick; and he descended into his grave a premature old man. If you had asked him, and he had spoken honestly, he would have said, the bed was shorter than that he could stretch himself upon it. No, young man, you may have all the vices, and all the pleasure and mirth of this metropolis, and there is much to be found, of which I make no mention here, and when you have it all, you will find it does not equal your expectation nor satisfy your desires. When the devil is bringing you one cup of spiced wine, you will be asking him next time to spice it higher; and he will flavour it to your fiery taste, but you will be dissatisfied still, until at last, if he were to bring you a cup hot as damnation, it would fall tasteless on your palate. You would say, "Even this is tasteless to me, except in the gall, and bitter wormwood, and fire that it brings." It is so with all worldly pleasure: there is no end to it; it is a perpetual thirst. It is like the opium eater; he eats a little, and he dreams such strange wonders; and he wakes, and where are they? Such dreamers, when awake, look like dead men, with just animation enough to enable them to crawl along. The next time, to get to their elysium, they must take more opium, and the next time more and more, and all the while, they are gradually going down an inclined plane into their graves. That is just the effect of human pleasure, and all worldly sensual delights; they only end in destruction; and even while they last, they are not wide enough for our desire, they are not large enough for our expectations, "for the bed is shorter than that a man can stretch himself on it."
 

@@ -36,7 +36,7 @@ ought, that we are living for God. Is there a man living who could truly say, wi
 
 Now I come to a second remark which is this. IF CHRISTIANS ASK GOD TO GUIDE THEM IN EVERYTHING THEY DO, THEY OUGHT TO SEE TO IT THAT THEY NEVER DO ANYTHING ABOUT WHICH
 
-THEY CANNOT ASK GOD'S GUIDANCE.
+THEY CANNOT ASK GOD's GUIDANCE.
 
 This Truth of God comes close to home to some people. For instance, unlawful pleasures are manifestly forbidden to the Christian. Those which the worldling may indulge in without any very great injury to himself are forbidden to the true Christian because he cannot enquire of the Lord about them. I have heard of people who say that they can go to the theater and yet are Christians. Well now, I would like somebody to write a form of prayer to be used by Christians in theatres, something to this effect--"O Lord, lead me not into temptation, but be pleased to bless the play tonight to my soul's welfare. Grant that if it is Your will that I should die here, I may enter into eternal life having gone from the pleasures of this life to the pleasures that are to be hereafter!" If I were to write such a prayer as that, you would say, "Oh, that is shocking! It is shocking for anybody even to thinkof praying there!" Ah, it is shocking--not shocking to think of praying, but shocking to go where you dare not pray Should a Christian ever be anywhere where he would be ashamed to die? I heard a lady once say that religion ought to be confined to places of worship and that it ought not to be talked about anywhere else. So I suggested to her that we ought to have our places of worship made larger, for, of course, people would want religion when they came to die--so they had better die where religion would be in its proper place!
 

@@ -30,7 +30,7 @@ Remember, too, that the Gospel comes to men not only by the most suitable form o
 
 One other thing I want you to particularly notice, and that is that the mercy of God is so tender because it comes to you now. If you are able to relieve a poor sufferer at once, and yet you keep him waiting, your treatment is as cruel as it is tardy. But God's Gospel says, "Behold, now is the accepted time; behold, now is the day of salvation!" If any sinner stands outside Mercy's gate for even half an hour, he must put the blame for his exclusion down to his own account, for, if he would but obey the Gospel message and trust to the finished work of Christ, the door would be opened at once! Such delays as this are not God's delays, but ours! And if we postpone our acceptance of His mercy, we have ourselves to blame!
 
-Now I must pass on to notice, thirdly, THE TENDERNESS OF GOD'S MERCY IN THE REQUIREMENTS OF THE GOSPEL.
+Now I must pass on to notice, thirdly, THE TENDERNESS OF GOD's MERCY IN THE REQUIREMENTS OF THE GOSPEL.
 
 What does the Gospel ask of us? It certainly asks nothing of us but what it gives to us. It never asks of any man a sum of money in order that he may redeem his soul with gold. The poorest are as heartily welcomed by Christ as the richest! And the beggar who could count all his money on his fingers is as gladly received as the millionaire who has his stocks and his shares, his lands and his ships! Poor men are bid to come to Jesus "without money and without price."
 

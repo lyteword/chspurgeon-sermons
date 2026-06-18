@@ -93,7 +93,7 @@ Notice that the Prophet says, "In mount Zion and in Jerusalem shall be deliveran
 
 As a result of the Lord's goodness, a remnant was saved. Notice it, "and in the remnant whom the Lord shall call." A remnant did call upon the Lord and live! Those 11 that stood up at Pentecost and bore witness to the Resurrection were all Jews! And those who met in the upper room, when the Holy Spirit came down, were Jews--this was the remnant. But the solemn thought is that it was only a remnant of God's favored people. Centuries of visitations, Prophets, miracles-- and only a remnant saved! God's Shekinah shining out among them and yet only a remnant obedient! The very Christ of God born of their nation and yet only a remnant saved! To this day we utter the Truth of God when we sing--
 
-"You chosen seed of Israel's race, A remnant weak and small."
+"You chosen seed of Israel's race, a remnant weak and small."
 
 The Jewish Church is a very insignificant portion of the Jewish people. The Apostle tells us that "at this present time there is a remnant according to the election of Grace." And Isaiah says, "Except the Lord of Hosts had left unto us a very small remnant, we should have been as Sodom, and we should have been like unto Gomorrah." Poor Israel, poor Israel! Most favored for many an age and yet only a remnant brought to call upon the saving Lord! Many come from distant lands and sit down with Abraham, Isaac and Jacob in the Kingdom of God--but the children of the kingdom are cast out into outer darkness--all but a mere remnant!
 

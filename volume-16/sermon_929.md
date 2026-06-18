@@ -12,7 +12,7 @@ As things now are, our soldiers and sailors are, too often, witnesses against th
 
 We shall now speak about Home Mission work under two heads. First, we have before us a Model Home Mission. And secondly a model Home Missionary. When we have talked about these two things, we shall press a third point, namely, the duty of imitating the works of the great Master.
 
-First, then, we have before us A MODEL HOME MISSION. We see sketched in the text the great Home Mission which was conducted by the Lord Jesus Christ, "who went about doing good." I am sure we shall learn much if we consider the way in which He conducted that enterprise.
+First, then, we have before us a MODEL HOME MISSION. We see sketched in the text the great Home Mission which was conducted by the Lord Jesus Christ, "who went about doing good." I am sure we shall learn much if we consider the way in which He conducted that enterprise.
 
 In commencing His work He selected as His great instrument the preaching of the Gospel. The Lord had anointed Him to preach the Gospel. He performed thousands of gracious actions. He officiated in many ways for the good of His fellow men, and for the glory of God. But His Throne on earth, if I might so speak, was the pulpit. It was when He began to declare the Gospel of the kingdom that His true glory was seen. "Never man spoke like this Man."
 

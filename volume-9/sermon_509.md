@@ -99,7 +99,7 @@ I want you to notice that word "us," for selfishness will dictate you to pray th
 
 I have heard of a poor pitman, who after being converted to God, had a great dread of falling into sin. One morning, after having endured much scorn, mockery, blasphemy, swearing, and ill-treatment from his fellow colliers, before he went down into the pit, knelt down and prayed that God would sooner let him die than fall into sin. He cried, "Lord, let me die sooner than fall into sin," and he did die there and then--happy thus to be taken up where he should no more know the annoyance of trial from without, or temptation from within.
 
-We close our discourse with A BRIEF EXHORTATION. I exhort you to pray this prayer very earnestly, dear Friends, and I bid you do it for several reasons.
+We close our discourse with a BRIEF EXHORTATION. I exhort you to pray this prayer very earnestly, dear Friends, and I bid you do it for several reasons.
 
 First, remember your own heart. A man who carries gunpowder about with him may well ask that he may not be led where the sparks are flying. If I have a heart like a bombshell, ready to explode at any moment, I may well pray God that I may be kept from the fire, lest my heart destroy me. Perhaps you have angry tempers, constitutionally so. Some men still remain hot and quick--some of our Welsh friends, always so. Such should pray every day that they may not be tempted by any jeering words. That they may be kept calm and quiet, and not be led into irritation. We have each besetting sins of some sort or another, and I do not know that the temptation to be hot and quick in temper is anything so bad as that to be dull and lumpy and stupid.
 

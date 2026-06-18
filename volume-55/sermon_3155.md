@@ -62,7 +62,7 @@ Blessed are the poor in spirit: for theirs is the Kingdom of Heaven. This is a g
 
 Blessed are they that mourn: for they shall be comforted. There is a blessing which often goes with mourning, itself, but when the sorrow is of a spiritualsort--mourning for sin--then is it blest, indeed!--
 
-"Lord, let me weep for nothing but sin And after none but Thee. And then I would--oh, that I might-- A constant mourner be!"
+"Lord, let me weep for nothing but sin And after none but Thee. And then I would--oh, that I might-- a constant mourner be!"
 
 Blessed are the meek The quiet-spirited, the gentle, the self-sacrificing.
 

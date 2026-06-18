@@ -82,7 +82,7 @@ If I know when I trust Christ that He will save me at the last, then I have some
 
 Thus, have I tried to open up the Apostle's creed, "We believe that through the grace of our Lord Jesus Christ we shall be saved, even as they."
 
-And now, having used the text as the Apostle's confession of faith, I shall take it as THE CONVERTED MORAL MAN'S STATEMENT. Let me show you what I mean. Observe and admire the way in which Peter puts the case. A company of Jews has assembled to discuss a certain matter and some of them look very wise. They bring up certain suggestions that are rather significant.
+And now, having used the text as the Apostle's confession of faith, I shall take it as THE CONVERTED MORAL MAN's STATEMENT. Let me show you what I mean. Observe and admire the way in which Peter puts the case. A company of Jews has assembled to discuss a certain matter and some of them look very wise. They bring up certain suggestions that are rather significant.
 
 They say, "Well, perhaps these Gentile dogs may be saved. Yes, Jesus Christ told us to go and preach the Gospel to every creature, therefore, no doubt He must have included these Gentile dogs. We do not like them, though, and must keep them as much under our rules and regulations as we can. We must compel them to be circumcised. We must have them brought under the full rigor of the Law. We cannot excuse them from wearing the yoke of bondage."
 

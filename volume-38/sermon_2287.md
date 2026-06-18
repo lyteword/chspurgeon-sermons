@@ -40,7 +40,7 @@ As for Paul, who puts himself with the rest of the Apostles, and says, "If Chris
 
 Dear Brothers and Sisters, you may rest assured that Jesus Christ did rise from the dead! You cannot put down these good men as impostors. You cannot reckon the Apostle Paul among those readily deceived, or among the deceivers of others. So you may be sure that Jesus Christ did rise from the dead, according to the Scriptures.
 
-Once more, Paul's argument is that IF THERE IS NO RESURRECTION, FAITH BECOMES A DELUSION.
+Once more, Paul's argument is that IF THERE IS NO RESURRECTION, FAITH BECOMES a DELUSION.
 
 As we have to give up the Apostles and all their teaching if Christ did not rise from the dead, so we must conclude that their hearers believed a lie--"your faith is also in vain." Beloved, I speak to you who have believed in the Lord Jesus Christ and who are resting in Him with great comfort and peace of mind, yes, who have experienced a great change of heart and a great change in your lives through faith in Christ. Now, if He did not rise from the dead, you are believing a lie! Take this home to yourselves--if he did not literally rise from the dead on the third day, this faith of yours that gives you comfort--this faith which has renewed you in heart and life, this faith which you believe is leading you Home to Heaven--must be abandoned as a sheer delusion! Your faith is fixed on a lie. Oh, dreadful inference! But the inference is
 

@@ -44,7 +44,7 @@ He knows the frailty of our frame.
 
 Our fellow Sufferer yet retains
 
-A fellow feeling of our pains,
+a fellow feeling of our pains,
 
 And still remembers in the skies,
 
@@ -85,7 +85,7 @@ First, Brothers and Sisters, the courts of Christ are our home. In this House of
 
 There are some hearers who must have a very grand place of worship and a very soft seat in it--and very eloquent preaching--and even then they soon drop off to sleep! But a true child of God who loves his Savior with all his heart, says, "I can stand anywhere. I do not mind being squeezed up in a corner so long as I can hear about Jesus--
 
-'Sweeter sounds than music knows Charm me in Immmanuel's name.'" That is right, Brother, Sister! Keep on playing that tune! Praise the name of Jesus! Let that be the theme of all your music! Ring again, and again, and again, those sweet silvery bells that sound out--
+'sweeter sounds than music knows Charm me in Immmanuel's name.'" That is right, Brother, Sister! Keep on playing that tune! Praise the name of Jesus! Let that be the theme of all your music! Ring again, and again, and again, those sweet silvery bells that sound out--
 
 "Free Grace and dying love."
 

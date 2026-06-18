@@ -68,7 +68,7 @@ I know they are forgiven,
 
 But still their pain to me
 
-Is all the grief and anguish They laid, my Lord, on Thee. My sins, my sins, my Savior! Their guilt I never knew Till, with You, in the desert I near Your passion drew. Till with You in the garden I heard Your pleading prayer, And saw the bloody drops of sweat That told Your sorrow there." II. Now, secondly, OUR CONTINUED SIGHT OF CHRIST WORKS IN US THROUGHOUT LIFE A MEASURE OF THE SAME BITTERNESS.
+Is all the grief and anguish They laid, my Lord, on Thee. My sins, my sins, my Savior! Their guilt I never knew Till, with You, in the desert I near Your passion drew. Till with You in the garden I heard Your pleading prayer, And saw the bloody drops of sweat That told Your sorrow there." II. Now, secondly, OUR CONTINUED SIGHT OF CHRIST WORKS IN US THROUGHOUT LIFE a MEASURE OF THE SAME BITTERNESS.
 
 For, first, as the great love of Christ is better known, it brings deeper grief for sin. We then more deeply lament that we could ever have slighted such love and that such love could ever have been called to so vast a sacrifice as that which it made for us. I do not suppose, Beloved, that your knowledge of the love of Christ at first was at all comparable to what it is now. If you have studied in the school of Christ's love and have believed it to be the most excellent of all the sciences, you will, by the teaching of the Spirit, and by experience, attain a clearer knowledge of the love of Christ which passes knowledge. And side by side with that will be a growing sense of abhorrence of yourself and detestation of the sin which nailed your Savior to the tree. It must be so! Deeper love to Christ will breed greater grief and a yet more bitter bitterness on account of sin.
 

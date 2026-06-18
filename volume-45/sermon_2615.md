@@ -30,7 +30,7 @@ It is a marvelous thing, but I believe I describe the experience of many whom I 
 
 If divers can go into the deeps to bring up pearls, we should not be ashamed, sometimes, to dive deep to bring up precious jewels of Divine Grace. Men will do anything to get gold--they will work in the most muddy streams, or under the most scorching sun--surely, then, we ought not to mind how much we stoop if we find that which is more precious than gold and silver, even "Jesus Christ and Him crucified." Is this how you feel? Then, Beloved, I have not only a hope for you, but I have a certainty concerning you! If you are brought to cry out, in all the senses I have mentioned, "Oh that I knew where I might find Him!" then, assuredly, the Lord has begun a good work in you and He will carry it on even unto the end.
 
-But now, for my second point, I SHALL ENDEAVOR TO GIVE SOME REASONS WHY IT IS THAT A GRACIOUS GOD DELAYS AN ANSWER TO THE PRAYER OF PENITENT SINNERS. I think I hear someone asking,
+But now, for my second point, I SHALL ENDEAVOR TO GIVE SOME REASONS WHY IT IS THAT a GRACIOUS GOD DELAYS AN ANSWER TO THE PRAYER OF PENITENT SINNERS. I think I hear someone asking,
 
 "How is it that God does not give a man comfort as soon as he repents? Why is it that the Lord makes some of His people wait in bondage when they are longing for liberty?"
 

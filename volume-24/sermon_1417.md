@@ -87,7 +87,7 @@ In old age Solomon tells us that the grasshopper is a burden, but this Child is 
 
 That brings us to our last point, upon which we have no time for more than a few words. WHEN CHRIST IS
 
-TAKEN UP INTO THE ARMS AND LOOKED UPON, HE HAS A WONDERFUL EFFECT. Notice the case before
+TAKEN UP INTO THE ARMS AND LOOKED UPON, HE HAS a WONDERFUL EFFECT. Notice the case before
 
 us. First, waiting is ended. Simeon had been waiting for the consolation of Israel, but he could now say, "Lord, what do I wait for?" We, too, had been waiting, wishing, longing and pining--but when we found our Lord, we no longer waited, but we could each one say--"I need nothing, I wish for nothing, I long for nothing, I pine for nothing. 'My eyes have seen Your salvation.'" Now, also, Simeon was excited to praise the Lord. He took Him up in his arms and blessed God. None can bless God like those who have Christ in their arms! I do not know that Simeon had ever been a poet before, but he began to pour out his swan song, his last, sweetest and, perhaps, his only hymn. Every line is full of exultation and delight!
 

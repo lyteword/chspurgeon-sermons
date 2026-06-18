@@ -14,7 +14,7 @@ Here he tells them that Eliphaz had administered unto him unsavory meat without 
 
 We may now forget the much-tortured Patriarch, Job, and apply this text to ourselves. "Can that which is unsavory be eaten without salt? Or is there any taste in the white of an egg?" Three thoughts arise out of it.
 
-The first point will be this--A LACK OF SAVOR IS A VERY GREAT NEED in anything that is meant for food. I am not going to deliver a cookery lecture and so I shall not enlarge upon the passage so far as it refers to the bread upon our table, or the food which we eat and drink. Everybody knows that all kinds of animal life delight in food that has a
+The first point will be this--a LACK OF SAVOR IS a VERY GREAT NEED in anything that is meant for food. I am not going to deliver a cookery lecture and so I shall not enlarge upon the passage so far as it refers to the bread upon our table, or the food which we eat and drink. Everybody knows that all kinds of animal life delight in food that has a
 
 flavor in it--and even "dumb driven cattle" will turn away from dry, flavorless food and will go a long way to find something that has a juice and a taste in it which suits the palate which God has created in them.
 

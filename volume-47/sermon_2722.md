@@ -6,7 +6,7 @@ WERE you ever in a new trouble, one which was so strange that you felt that a si
 
 My objective, in this discourse, will be to try to point out the footprints of Jesus in the sands of sorrow so that others of the children of God may have their hearts lifted up within them while they observe that "though He were a Son, yet learned He," as well as the rest of us who are in the Lord's family, "obedience by the things which He suffered."
 
-I ask your attention, first of all, to that which, I doubt not, you would have observed in the text without any help from me, namely, that OUR REDEEMER'S SONSHIP DID NOT EXEMPT HIM FROM SUFFERING.
+I ask your attention, first of all, to that which, I doubt not, you would have observed in the text without any help from me, namely, that OUR REDEEMER's SONSHIP DID NOT EXEMPT HIM FROM SUFFERING.
 
 "Though He were a Son." It is put as if this might have been a case where the rod of the household could have been spared. That there should be suffering for enemies, that there should be sorrow for rebels against God is natural and proper, but one might have thought that He would have spared His own Son and that, in His case, there would be no learning of obedience by the things which He suffered. But, according to the text, Sonship did not exempt the Lord Jesus Christ from suffering. I want you to notice that, in His case, the Sonship was very emphatic. It was a relationship which was enjoyed by Him by Nature. He was the Son of God before the worlds were made, or time began. We know not how it was, neither may we attempt to explain the Doctrine of the Eternal Filiation, but, assuredly, as long as there was a Father, there was a Son--and Jesus Christ has always been "the Son of the Highest." Yet, though He were a Son, when He came and took upon Himself our nature and appeared on earth, He was not exempted from learning obedience by the things which He suffered. In person He was august--He was the Heir of all things, the King of all kings, the King's Son as well as King, Himself--and yet, notwithstanding the loftiness of His Nature and the unspeakable majesty of His rank, He "learned obedience by the things which He suffered." He was the Son of God in a very special sense even by His earthly birth, for the angel said to Mary, "The Holy Spirit shall come upon you, and the power of the Highest shall overshadow you: therefore that Holy Thing which shall be born of you shall be called the Son of God."
 
@@ -39,7 +39,7 @@ Neither may you conclude, because you enjoy much of the Divine favor and love, t
 
 So I leave that point with you, dear Friends. The Sonship of our blessed Lord and Savior did not screen Him from suffering, therefore we cannot expect that our sonship, however clearly it may be proven and whatever honor it may have brought to us, will screen us from sorrow and suffering.
 
-My second thought is, perhaps, more pleasant than the former one, though, indeed, the first is like Samson's dead lion, full of honey to those who know how to get at it. The second lesson I learn from the text is that CHRIST'S SUFFERING DOES NOT MAR HIS SONSHIP, for, though He learned obedience by the things which He suffered, yet He
+My second thought is, perhaps, more pleasant than the former one, though, indeed, the first is like Samson's dead lion, full of honey to those who know how to get at it. The second lesson I learn from the text is that CHRIST's SUFFERING DOES NOT MAR HIS SONSHIP, for, though He learned obedience by the things which He suffered, yet He
 
 was a Son all the while. Ah, and as much a Son in His deepest sorrow as He was before the Eternal Throne when every angel bowed before Him and delighted to do Him homage. His sufferings never affected His Sonship--He was still, always, as He must be forever and ever, the Son of God!
 
@@ -61,7 +61,7 @@ Even the felon's death on the Cross cast no doubt upon Christ's Sonship. Crucifi
 
 Do not let us think, then, that any degree of poverty, or pain, or temptation, or slander, or shame, or even death, itself, can affect the sonship of one who is really a child of God. Let us lay hold of this sweet reflection and never let it go. Thus we have seen that Christ's Sonship did not exempt Him from suffering, but that His suffering did not mar His Son-ship.
 
-So I follow with my third observation, which is, that OBEDIENCE IS A THING WHICH HAS TO BE
+So I follow with my third observation, which is, that OBEDIENCE IS a THING WHICH HAS TO BE
 
 LEARNED EVEN BY SONS. Though Jesus was a Son, yet He learned obedience. As God, our Savior knew everything. As God, however, He did not obey. It was in His complex Character as our Mediator that He learned to obey.
 

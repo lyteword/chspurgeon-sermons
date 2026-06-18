@@ -38,7 +38,7 @@ When we see Him so gentle under all reproaches, bearing even to be spit upon wit
 
 tions, enough to make us blush if ever we dream of shrinking from any service or suffering for the sake of the Master who loved us so much that He even died for us!
 
-But now, secondly, and may God the Holy Spirit help me to speak with power upon this important point!-- THERE IS A LITTLE WORD OF DISTINCTION IN THE TEXT WHICH VERY MUCH HELPS TO CLEAR IT.
+But now, secondly, and may God the Holy Spirit help me to speak with power upon this important point!-- THERE IS a LITTLE WORD OF DISTINCTION IN THE TEXT WHICH VERY MUCH HELPS TO CLEAR IT.
 
 Perhaps somebody says, "I do not find the yoke of life easy, or the burden of life light." Christ does not say that they are. What He does say is, Myyoke is easy and My burden is light." What was Christ's light burden and what was Christ's easy yoke? I believe that I might illustrate the text by saying that He thought thus of that yoke and that burden which He bore--the yoke which rested upon the shoulders of "the Prince of the kings of the earth"--the burden which lay on that blessed back which once wore the robe of universal empire. Never before was there such a yoke, or such a burden, but, for love of us and for delight in what He would accomplish thereby, His yoke to Him was easy, and His burden was light. For the joy that was set before Him, He endured the Cross, despising the shame. So, whenever you have to bear a yoke or a burden, count it easy for the same reason as Christ did--but it must be Christ's yoke that we carry, for that alone will be easy to us.
 

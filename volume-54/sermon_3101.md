@@ -58,7 +58,7 @@ Remember, next, His Covenant. What a grand word that word, "Covenant," is to the
 
 "With David's Lord, and ours,
 
-A Covenant once was made
+a Covenant once was made
 
 Whose bonds are firm and sure,
 

@@ -152,7 +152,7 @@ Oh, He will never cast out one that way, for that is the way of salvation. And i
 
 O be wise and join in the prayer, "But You, O Lord, have mercy upon us, miserable sinners!" And may the Lord then pronounce over us His sentence, "You are clean, go and sin no more. Your iniquities are all forgiven you."
 
-I close by just observing, that THE SAME PLAN WHICH SHUTS OUT BOASTING LEADS US TO A GRACIOUS GRATITUDE TO CHRIST.
+I close by just observing, that THE SAME PLAN WHICH SHUTS OUT BOASTING LEADS US TO a GRACIOUS GRATITUDE TO CHRIST.
 
 We are sometimes asked by people, "So you think that such a thing is necessary to salvation?" or, perhaps, the question is put in another way, "How long do you think a man must be godly in order to be saved?" I reply, dear Friend, you cannot understand us, for we hold that these things do not save in any sense. "Why, then," they say, "are you baptized?" or, "Why do you walk in holiness?" Well, not to save myself but because I am saved. When I know that every sin of mine is forgiven, that I cannot be lost, that Christ has sworn to bring me to the place where He is--then I say, Lord what is there that I can do for You?
 

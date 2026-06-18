@@ -10,7 +10,7 @@ Concerning the stir mentioned in our text, I want to, ask, first, what caused th
 
 The first cause of this moving of the city was that Jesus was proclaimed King. True, the proclamation was uttered by children and by the common people and not by the officers of the State, yet He was proclaimed--and wherever Jesus Christ is proclaimed as King and Lord, there is sure to be a stir! Even if it is nothing but opposition to Him, there must be some movement, for Christ is never without influence either one way or another. He is never savorless--He is always either a savor of life unto life, or of death unto death. It matters very little who it is that proclaims Jesus as King, for the
 
-2 A Stir--And What Came of It Sermon #2939
+2 a Stir--And What Came of It Sermon #2939
 
 power is not in the voice that utters the proclamation, but in the Truth of God which is uttered! If God is pleased to call men of humble birth and small education to preach Jesus Christ, He will get all the more glory because of the feebleness of the instruments He uses! If He should call little children to yell out the Gospel--out of the mouths of babes and sucklings would He perfect His praise. It is whatis said, not who says it, that is the important matter. If it is the Gospel, that Gospel will shake the world! Let Luther's preaching bear witness to that fact. The Gospel preached by a tinker will have an everlasting effect upon those who hear it--let Bunyan's preaching be the witness to that fact. The Gospel preached by one who had been a servant at an inn may influence the entire nation, as witness the case of George Whitefield! It is the Gospel, not the man--the Truth, not the mere utterer of it--which is the more important!
 

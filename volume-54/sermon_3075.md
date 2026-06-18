@@ -4,13 +4,13 @@
 
 SAUL went out to seek his father's donkeys. He failed in the search, but he found a crown. He met with the Prophet Samuel, who anointed him king over God's people, Israel, and this was far better than finding the obstinate colts. Let us consider this amazing incident. Perhaps, though it treats of donkeys, it may yield us some royal thoughts.
 
-Our first remark shall be--OBSERVE HOW THE HAND OF GOD'S PROVIDENCE CAUSES LITTLE THINGS TO LEAD ON TO GREAT MATTERS.
+Our first remark shall be--OBSERVE HOW THE HAND OF GOD's PROVIDENCE CAUSES LITTLE THINGS TO LEAD ON TO GREAT MATTERS.
 
 This man Saul must be placed in the way of the Prophet Samuel. How shall a meeting be brought about? Poor beasts of burden shall be the intermediate means! The donkeys go astray and Saul's father bids him take a servant and go seek them. In the course of their wanderings, the animals might have gone North, South, East or West--for who shall account for the wild will of runaway donkeys? But so it happened, as men say, that they strayed, or were thought to have strayed, in such a direction that, by-and-by, Saul found himself near to Ramah, where Samuel, the Prophet, was ready to anoint him. On how small an incident the greatest results may hinge! The pivots of history are microscopic.
 
 Hence, it is most important for us to learn that the smallest trifles are as much arranged by the God of Providence as the most startling events. He who counts the stars has also numbered the hairs of our heads. Our lives and deaths are predestined, but so, also, are our sitting down and our rising up. Had we but sufficiently powerful perceptive faculties, we would see God's hand as clearly in each stone of our pathway as in the revolution of the earth. In watching our own lives, we may plainly see that on many occasions the merest grain has turned the scale. Whereas there seemed to be but a hair's-breadth between one course of action and another, yet that hair's-breadth has sufficed to direct the current of our life! "He," says Flavel, "who will observe Providences shall never be long without a Providence to observe." Providence may be seen as the finger of God, not merely in those events which shake nations and are duly emblazoned on the pages of history, but in little incidents of common life--yes, in the motion of a grain of dust, the trembling of a dewdrop, the flight of a swallow or the leaping of a fish!
 
-But that is not the consideration to which we now invite you. Our drift is this--as Saul went out to find donkeys, but found a crown, so, IN THE MATTER OF GRACE, MANY A MAN HAS RECEIVED WHAT HE LOOKED NOT
+But that is not the consideration to which we now invite you. Our drift is this--as Saul went out to find donkeys, but found a crown, so, IN THE MATTER OF GRACE, MANY a MAN HAS RECEIVED WHAT HE LOOKED NOT
 
 FOR.
 

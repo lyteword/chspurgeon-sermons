@@ -10,7 +10,7 @@ Paul thought very humbly of himself. He reckoned himself less than nothing and p
 
 My subject tonight is, first, the singular time of Paul's spiritual birth. There are many of God's true children who, like the Apostle, were "born out of due time." When I have expatiated upon that fact, I shall speak of the sure evidences of his spiritual birth and show you that, although "born out of due time," he was born--and there were sure evidences of his spiritual birth--which evidences, I trust, may be seen in many of us, also!
 
-First, then, let us think of THE SINGULAR TIME OF PAUL'S SPIRITUAL BIRTH.
+First, then, let us think of THE SINGULAR TIME OF PAUL's SPIRITUAL BIRTH.
 
 There are still some who, like the Apostle, are born to God "out of due time." They are truly born again, regenerated, converted, at a most unlikely season. There have been multitudes brought to Christ under earnest sermons, when the appeals of faithful men have thrilled the congregation and the Truth of God has been effectually carried home to the hearts of many of the hearers. But there have also been times when God's ministers have waxed faint, when the sermon has appeared to be destitute of all force, when nobody has seemed to have felt the power of the sermon and, apparently, the Truth of God has fallen quite flat! Yet, on many such occasions there have been some sinners converted to God when we would hardly have thought it to be possible!
 
@@ -72,7 +72,7 @@ Oh that the Lord, in His Infinite mercy, having given us this special day, would
 
 Who shall it be? And where shall the work of repentance begin? Does not somebody over there say, "Lord, let it be me"? There is said to be a special opportunity of making proposals in leap year, but I can tell you, if you make a proposal to come to Christ, that He has long ago set His heart on you! You would never have thought of proposing to Him if He had not first of all ordained to bring you to Himself! If you come to Him, He will receive you and oh, in His great mercy, may the Holy Spirit incline you to come to Him this twenty-ninth of February that falls upon a Sunday!
 
-Now I have only two or three minutes left for the second part of my subject--THE SURE EVIDENCES OF PAUL'S SPIRITUAL BIRTH.
+Now I have only two or three minutes left for the second part of my subject--THE SURE EVIDENCES OF PAUL's SPIRITUAL BIRTH.
 
 Though Paul was, in a spiritual sense, "born out of due time," he was truly born again. And those persons who have been converted at singular times and, under strange circumstances, have been really converted. How do we know that Paul was born again and that he was called to be an Apostle of Jesus Christ?
 

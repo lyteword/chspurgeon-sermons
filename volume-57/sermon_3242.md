@@ -78,7 +78,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM89.
 
 Verses 1, 2. I will sing of the mercies of the LORD forever: with my mouth will I make known Your faithfulness to all generations. For I have said, Mercy shall be built up forever: Your faithfulness shall You establish in the very heavens.
 
-[See Sermon #1565, Volume 26--MASCHIL OF ETHAN, A MAJESTIC SONG.]
+[See Sermon #1565, Volume 26--MASCHIL OF ETHAN, a MAJESTIC SONG.]
 
 1 Here is an eternal song concerning eternal mercy! The mercy of the Lord is from everlasting to everlasting, so the saints' praise for the never-ending mercy must itself be without end. The Psalmist has made known God's faithfulness to all generations, not only by speaking of it, but especially by writing of it, for that which is written abides when that which is merely spoken is soon forgotten. God's faithfulness concerns Heaven as well as earth and He will establish it "in the very heavens."
 
@@ -108,7 +108,7 @@ And in Your righteousness shall they be exalted.They shall mount to a higher pla
 
 17-19. For You are the Glory of their strength: and in Your favor our horn shall be exalted. For the Lord is our defense; and the Holy One of Israel is our king. Then You spoke in vision to Your holy one, and said, I have laid help
 
-upon One that is mighty; I have exalted One chosen out of the people. [See Sermon #11, Volume 1--THE PEOPLE'S CHRIST.] This is the very marrow of the Gospel! This is, indeed, "the joyful sound" which makes us truly blessed--the fact that God did, of old, exalt "One chosen out of the people," with whom He entered into an Eternal Covenant, pledging Himself to bless us through Him.
+upon One that is mighty; I have exalted One chosen out of the people. [See Sermon #11, Volume 1--THE PEOPLE's CHRIST.] This is the very marrow of the Gospel! This is, indeed, "the joyful sound" which makes us truly blessed--the fact that God did, of old, exalt "One chosen out of the people," with whom He entered into an Eternal Covenant, pledging Himself to bless us through Him.
 
 I have found David My servant; with My holy oil have I anointed him. David was the means of bringing great blessings to the people over whom he ruled. God blessed the whole nation through him and the Covenant made with David was virtually a Covenant made with all the people of Israel. In like manner, the Covenant made with "great David's greater Son" is virtually made with all those for whom He stood as Surety and Representative. The essence of the Gospel lies in the Covenant which God has made with His Son, Jesus Christ, on behalf of all His chosen people. Notice that God
 

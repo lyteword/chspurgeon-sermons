@@ -14,7 +14,7 @@ graves and expiring--for "they could not enter in because of unbelief." Many, ma
 
 I have only three remarks to make. And the first is that these were a highly-favored people, yet they could not enter in because of unbelief Secondly, that the sole and only thing, according to the text, which shut them out was unbelief And that, thirdly, there were other people, their own sons and daughters, who, being delivered from this unbelief, did enter in. That must have made the case more clear against them because their little ones, who they said should be prey, were, nevertheless, permitted, each one, to stand in his lot. God's purpose was not frustrated because of man's unbelief! "If we believe not, yet He abides faithful: He cannot deny Himself."
 
-First, then--THESE WERE A HIGHLY-FAVORED PEOPLE, YET THEY COULD NOT ENTER IN BECAUSE OF UNBELIEF.
+First, then--THESE WERE a HIGHLY-FAVORED PEOPLE, YET THEY COULD NOT ENTER IN BECAUSE OF UNBELIEF.
 
 Mark you, this was not said of Egyptians, Amorites or Philistines! No, it was said of Israelites who occupied the position of those who, in the New Testament, are called the "children of the kingdom"--many of whom will be cast out. These are the persons to whom it may be truly said, "Be you sure of this, that the Kingdom of God is come near unto you." The dust of the feet of God's servants will be shaken off against you, but yet you have heard the message of mercy and you have been as highly favored as Bethsaida and Chorazin when they heard the Word of God which, through its rejection, worked for them a more intolerable doom!
 
@@ -32,7 +32,7 @@ Remember, also, that they were a people with whom God had great patience. Has it
 
 "So stooping down, as needs he must Who cannot sit upright"
 
-But when a man knows his power to end the provocation and to deliver himself, he is not so slow to ease him of his adversary. See the gentleness of the Lord! Forty years He is provoked! One would have thought that, surely, in that time these people would turn and repent. Moses, himself, I think, in the greatest agony of his prayer, could only have said, "Lord, give them 12 months in which they may mend their ways." That gracious intercessor who is mentioned in the parable of the fig tree only said, "Let it alone this year, also." That was all. But this was forty years A fruitless tree standing for 40 years! Why cumbers it the ground? Oh, the stupendous mercy of God! But they could not enter into His rest after all. Will it be the same with you who have heard the Gospel for many years? What is to become of you? When so much patience is lost upon you, what must happen next? I scarcely feel as if I can pity you. I seem as if I pitied God that He has borne your indifference so long as the only return for His great love! In what manner has He acted that you should so ungenerously treat Him and continue to provoke Him? I fear it will, before long, be said of you, "they could not enter in because of unbelief."
+But when a man knows his power to end the provocation and to deliver himself, he is not so slow to ease him of his adversary. See the gentleness of the Lord! Forty years He is provoked! One would have thought that, surely, in that time these people would turn and repent. Moses, himself, I think, in the greatest agony of his prayer, could only have said, "Lord, give them 12 months in which they may mend their ways." That gracious intercessor who is mentioned in the parable of the fig tree only said, "Let it alone this year, also." That was all. But this was forty years a fruitless tree standing for 40 years! Why cumbers it the ground? Oh, the stupendous mercy of God! But they could not enter into His rest after all. Will it be the same with you who have heard the Gospel for many years? What is to become of you? When so much patience is lost upon you, what must happen next? I scarcely feel as if I can pity you. I seem as if I pitied God that He has borne your indifference so long as the only return for His great love! In what manner has He acted that you should so ungenerously treat Him and continue to provoke Him? I fear it will, before long, be said of you, "they could not enter in because of unbelief."
 
 Once more, only, on this point. These people had also received great mercies. It was not merely what they had seen, what they had been taught and the long-suffering they had enjoyed--they had received very remarkable favors. They drank of the Rock which followed them. And the manna fell every morning fresh from Heaven for them. Men did eat angels' food! They had a cloudy pillar to guide and shield them by day--and that same pillar at night became a light of fire and so lit up the canvas city all night long. The Lord was a wall of fire round about them and a glory in their midst! Will you think, dear Friend, what God has done for you from your childhood until now? Perhaps you found yourself upon a mother's lap and she was singing of Jesus. And as you grew up, you dwelt in a family circle where that dear name was a household word. By-and-by, you were led to a godly teacher to be taught more about Jesus. And since then you have heard from the pastor's mouth, a message which he tries to steep in love whenever he delivers it. Then think of the lord's gracious Providence. You have been fed and cared for. Perhaps you have been brought very low, but you have had food and raiment. Others are pining in the workhouse and you have, probably, a competence--or you are in health and are able to earn your livelihood. And in times of sickness, God hears you and keeps you from death. You have been preserved in accidents and here you are, kept alive with death so near! Will you not turn unto the Lord? For if not, He will not al-
 
@@ -108,7 +108,7 @@ to save men. Therefore He came not in the nature of angels, but in the nature of
 
 17, 18. Therefore in all things it behooved Him to be made like unto His brethren, that He might be a merciful and faithful High Priest in things pertaining to God, to make reconciliation for the sins of the people. For in that He Himself has suffered being tempted, He is able to succor them that are tempted. "And this is the reason why He suf-fered--and why He became a man capable of suffering--that He might be able to succor the tempted. It was for this that Christ left Heaven, for this He was born of the virgin, for this He lived and for this He died, that He might be "able to
 
-succor them that are tempted." [See Sermons #487, Volume 9--A TEMPTED SAVIOR--OUR BEST SUCCOR; #1974, Volume 33--THE SUFFERING SAVIOR'S SYMPATHY and #2885, Volume 50--CHRIST'S SYMPATHY WITH HIS PEOPLE.]
+succor them that are tempted." [See Sermons #487, Volume 9--a TEMPTED SAVIOR--OUR BEST SUCCOR; #1974, Volume 33--THE SUFFERING SAVIOR's SYMPATHY and #2885, Volume 50--CHRIST's SYMPATHY WITH HIS PEOPLE.]
 
 Hebrews 3:1. Therefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus.Think of Him, think how great He is, think what attention He deserves from all who believe in Him!
 
@@ -126,13 +126,13 @@ an evil heart of unbelief, in departing from the living God [See Sermon #2552, V
 
 But exhort one another daily, while it is called Today; lest any of you be hardened through the deceitfulness of
 
-sill. [See Sermon #620, Volume 116--A WARNING AGAINST HARDNESS OF HEART.]
+sill. [See Sermon #620, Volume 116--a WARNING AGAINST HARDNESS OF HEART.]
 
 If sin came to you openly proclaiming itself as sin, you would fight against it. But it is very cunning and deceitful and it gradually petrifies the heart and especially the heart of those who think that they will never provoke God by their sin. Pride has already begun to work in them--and where pride can work, every other sin finds elbowroom. God save us from the deceitfulness of sins!
 
 For we are made partakers of Christ if we hold the beginning of our confidence steadfast unto the end [See Sermon
 
-#1042, Volume 18--A PERSUASIVE TO STEADFASTNESS.] You are to hold
+#1042, Volume 18--a PERSUASIVE TO STEADFASTNESS.] You are to hold
 
 fast, to hold on and to hold out to the end--and the Grace you need in order to do this is waiting for you if you will but look for it and daily live under the power of it!
 

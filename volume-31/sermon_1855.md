@@ -12,7 +12,7 @@ It appears from the text that this child-like confidence towards God originally 
 
 acquittal. "If our heart condemn us not, then have we confidence toward God." May the Holy Spirit teach us while we think on these things!
 
-I want you to think of THE TRIAL HELD IN THE INNER COURT OF MAN'S NATURE, within his heart. It is a sort of petty session, not the Great Assize. Conscience sits within us, as judges sometimes sit in chambers, hearing cases, as they say, in camera. If we are righteously acquitted in this first court, then the matter is ended and we have confidence toward God. But if our heart condemn us; if in this preliminary trial we are condemned, it is an evil omen, for the probability is that the great all-knowing Judge will more than confirm the sentence. Condemnation by our own conscience is a bad sign, though there is a court of appeal. If our heart condemns us, God is greater than our heart and knows all things.
+I want you to think of THE TRIAL HELD IN THE INNER COURT OF MAN's NATURE, within his heart. It is a sort of petty session, not the Great Assize. Conscience sits within us, as judges sometimes sit in chambers, hearing cases, as they say, in camera. If we are righteously acquitted in this first court, then the matter is ended and we have confidence toward God. But if our heart condemn us; if in this preliminary trial we are condemned, it is an evil omen, for the probability is that the great all-knowing Judge will more than confirm the sentence. Condemnation by our own conscience is a bad sign, though there is a court of appeal. If our heart condemns us, God is greater than our heart and knows all things.
 
 I will now speak upon this trial under the heads of certain observations.
 
@@ -102,7 +102,7 @@ Blessed man that has confidence in God! Such a man goes up to his last bed when 
 
 > And when you see my eye-strings break,   
 > How sweet my minutes roll!   
-> A mortal paleness on my cheek,   
+> a mortal paleness on my cheek,   
 > But glory in my soul!   
 
 Now he is gone, gone into the land of spirits! He stands before his God and he does not tremble. He has that eagle-eye which can bear the light of the eternal sun! His heart condemns him not and he has confidence towards God. Amidst the supernal splendors he cries, "My Father!" Angels are crying, "Lord and God," but he says, "My Father"--and those loyal servants make room for a royal child! The shining ones escort the happy spirit to the blessed Father's feet. There we leave him. "Beloved, if our heart condemns us not, then have we confidence toward God." God bless you. Amen.

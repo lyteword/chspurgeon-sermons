@@ -58,7 +58,7 @@ Surely it should bring the sweetest consolation to you to think of Jesus Christ 
 
 "our Lord Jesus Christ Himself manifest Himself unto you with those dear upraised hands of His, with the scars still visible! And as you gaze upon Him, may you realize that He is giving to you "everlasting consolation and good hope through Grace" and, therefore, may your hearts be comforted and may you be established in every good word and work! How can you be moved from your steadfastness so long as you can see Him? How can you ever depart from Him who has won your affection and holds your soul fast with cords of a man, and bands of love? Surely you must cling to Him forever and ever! I feel that I must say with the poet--
 
-> A very wretch, Lord!I should prove,   
+> a very wretch, Lord!I should prove,   
 > Had I no love for Thee--   
 > Rather than not my Savior love,   
 > Oh, may I cease to be!   

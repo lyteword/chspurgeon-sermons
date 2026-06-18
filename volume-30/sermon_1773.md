@@ -98,7 +98,7 @@ Think of your peril, O you ungodly men! Within an hour you may be at the Judgmen
 
 How earnest every worker ought to be to do his work well while he has the opportunity. I have charged myself again and again--I would to God the charge had been more effectual--to preach--
 
-"As though I never might preach again, A dying man to dying men."
+"As though I never might preach again, a dying man to dying men."
 
 I am persuaded that if we were in possession of all the wisdom that Grace will give us, we should do everything for the good of men most speedily, with deep prayerfulness, with true spiritual life and with an entire dependence upon the Spirit of God for the blessing of it. Come, my Brothers and Sisters, what you do, do quickly! If you wish to honor your Lord while you are here, and win jewels for His crown, up and at it, for the day is far spent! You cannot afford to waste a moment, for you have much to do, and very little time to do it in! Help us, O Spirit of the Lord!
 

@@ -79,7 +79,7 @@ There is never such a time for seeing the Son of God as when the world heats the
 
 Ah, Nebuchadnezzar, you have seen a sight that has often been seen elsewhere. When God's people are in the furnace, God's Son is in the furnace, also! He will not leave those who will not leave Him. If we can cling to Him, rest assured that He will cling to us, even to the end! Fear not the lions, then. Our Samson would turn upon them and tear them in a moment if their hour were come--
 
-> Jesus' tremendous name Puts all our foes to flight! Jesus, the meek, the angry Lamb, A Lion is in fight. By all Hell's host withstood,   
+> Jesus' tremendous name Puts all our foes to flight! Jesus, the meek, the angry Lamb, a Lion is in fight. By all Hell's host withstood,   
 > We all Hell's host overthrow. And conquering them, through Jesus' blood   
 > We still to conquer go.   
 

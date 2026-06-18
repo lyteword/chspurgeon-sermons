@@ -16,7 +16,7 @@ ten upon our conscience, was removed by the removal of the sin, itself, which we
 
 The shadow of a rock is remarkably cooling, and so was the Lord Jesus eminently comforting to us. The shadow of a
 
-rock is more [See Sermons #1243, Volume 21--RIVERS OF WATER IN A DRY PLACE; #2856, Volume 49--OUR HIDING PLACE and #3031, Volume 53-- LANDLORD AND TENANT.] dense, more complete and more cool than
+rock is more [See Sermons #1243, Volume 21--RIVERS OF WATER IN a DRY PLACE; #2856, Volume 49--OUR HIDING PLACE and #3031, Volume 53-- LANDLORD AND TENANT.] dense, more complete and more cool than
 
 any other shade--and so the peace which Jesus gives passes all understanding--there is none like it! No chance beam darts through the rock shade, nor can the heat penetrate as it will do in a measure through the foliage of a forest. Jesus is a complete shelter--and blessed are they who are "under His shadow." Let them take care that they abide there and never venture forth to answer for themselves, or to brave the accusations of Satan.
 

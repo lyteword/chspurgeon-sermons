@@ -2,7 +2,7 @@
 
 "Purge me with hyssop, and/shall be clean: wash me, and/shall be whiter than snow." Psalm 51:7.
 
-[Another Sermon by Mr. Spurgeon on the same text is #1937, Volume 32--A MINGLED STRAIN.]
+[Another Sermon by Mr. Spurgeon on the same text is #1937, Volume 32--a MINGLED STRAIN.]
 
 You know how David had sinned. To the sin of adultery he had added that of murder. David felt like one who was shut out from God and was unworthy to approach Him. He could not be content to remain in such a condition. He longed to be reconciled to God and he remembered that he had sometimes seen a man who had the leprosy put out of the city as an unclean person, or he had seen one who had defiled himself by touching a corpse shut out for a time from all communion with those who drew near to worship God. "Ah," he thought, "that is just as I am--I am unworthy to appear before God, for I am spiritually unclean."
 
@@ -91,7 +91,7 @@ Wash me thoroughly from my iniquity. The forgiveness of sin is not enough for th
 
 And, mark you, for each one of us there is a special vocation in which we can follow Christ. I do not believe that all of you would be following Christ if you were to attempt to preach. Even Christ never attempted to do what His Father did not intend Him to do. A man once asked Him to officiate as a lawyer or a judge, but He replied, "Who made Me a judge or a divider over you?" One beauty of Christ's life was that He kept to His calling and did not go beyond His commission. And you will be wise if you do the same. If you are a servant, you can follow Christ by ministering to the comfort of all who are in the house. If you are a mother, you can follow Christ by training up your children for Him. Every man has his own particular calling and every Christian's calling should be especially for God. One is called to the foreign mission field--let him go, in God's name, to the regions beyond--let him not stay at home. Another is called to go from house to house to visit the sick, to care for the poor and so on--Bible-woman, City Missionary, I greet you in Christ's name and bid you keep to your own work and never run away from it! One is called to teach an infant class and another to care for the lads or the lasses--and all are fitted for the work to which they are called by God. And to each one the Master says, "Follow Me and keep to the work which My Father has given you to do, even as I pleased not Myself by selecting My own work, but did that which My Father had appointed for Me."
 
-Now secondly, IN ORDER TO FOLLOW CHRIST IT WILL BE A WISE THING TO LET A GREAT MANY
+Now secondly, IN ORDER TO FOLLOW CHRIST IT WILL BE a WISE THING TO LET a GREAT MANY
 
 OTHER THINGS ALONE.
 
@@ -107,7 +107,7 @@ The same rule applies to many theological questions. For instance, the puzzling 
 
 Then there is that great and weighty question concerning the relation between Divine Sovereignty and human responsibility. You may go to one place of worship and you will hear about very little except Divine Sovereignty. And you may go to another place and you will hear about little except human responsibility. Or you may have heard me
 
-preach about both Truths of God [See Sermon #77, Volume 2--DIVINE SOVEREIGNTY; #194, Volume 4--HUMAN RESPONSIBILITY and #207, Volume 4--SOVEREIGN GRACE AND MAN'S RESPONSIBILITY.] without any
+preach about both Truths of God [See Sermon #77, Volume 2--DIVINE SOVEREIGNTY; #194, Volume 4--HUMAN RESPONSIBILITY and #207, Volume 4--SOVEREIGN GRACE AND MAN's RESPONSIBILITY.] without any
 
 attempt to "reconcile" them, as I believe that they have never been at enmity against one another and, therefore, there is no need for any reconciliation! It has been a great temptation to many good men to get to fighting about these Truths when they would have been better employed in preaching the Atoning Sacrifice of Christ. I believe that before the foundation of the world, God chose in Christ all those whom He will eternally save. And I equally believe that whoever believes in the Lord Jesus Christ shall be eternally saved, that salvation is all of Grace and damnation is all of man's sin--that God will have the glory of every soul that is saved--and that every lost soul will be responsible for its own ruin.
 

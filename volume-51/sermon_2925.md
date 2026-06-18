@@ -6,7 +6,7 @@ OUR Lord did not begin His dealings with Peter in this emergency by asking him t
 
 it?"
 
-LET US USE THE TEXT AND QUESTION GOD'S PEOPLE--"Why did you doubt?" I am probably addressing some Brothers and Sisters--perhaps a great many who have been through a season of profound gloom and in the midst of that gloom there has been the element of spiritual evil. To be gloomy and depressed is not sinful at all, but there may have been in the midst of that, the sin of unbelief. There may have been a doubting of God--a distrust of His Providence--a questioning of His love. Now I come at this time to such a Brother or Sister and say, "O you of little faith, why did you doubt?" Can you answer that question? Shall I help you?
+LET US USE THE TEXT AND QUESTION GOD's PEOPLE--"Why did you doubt?" I am probably addressing some Brothers and Sisters--perhaps a great many who have been through a season of profound gloom and in the midst of that gloom there has been the element of spiritual evil. To be gloomy and depressed is not sinful at all, but there may have been in the midst of that, the sin of unbelief. There may have been a doubting of God--a distrust of His Providence--a questioning of His love. Now I come at this time to such a Brother or Sister and say, "O you of little faith, why did you doubt?" Can you answer that question? Shall I help you?
 
 First, I will suppose some reasons which, if they do exist, will justify you in having doubted. And then I will take the reasons you, yourselves assign, one by one. I shall put them to you to know whether the supposition is allowable.
 
@@ -52,7 +52,7 @@ Two or three words just to say that I think that I can give the reason why some 
 
 Thus much to the people of God.
 
-Now LET US SLIGHTLY ALTER THE TEXT AND QUESTION THOSE THAT ARE NOT GOD'S PEOPLE. We will pause a minute and use the text in another tense. The Lord Jesus Christ has been into this world and done a great deal for sinners and, as the result of what He has done, He has bid us go and proclaim everywhere free salvation through His precious blood. He declares that whoever believes in Him shall not perish, but shall have everlasting life. Many know all about this. They are well acquainted with the truth of Substitution and the way in which God can be just and yet the
+Now LET US SLIGHTLY ALTER THE TEXT AND QUESTION THOSE THAT ARE NOT GOD's PEOPLE. We will pause a minute and use the text in another tense. The Lord Jesus Christ has been into this world and done a great deal for sinners and, as the result of what He has done, He has bid us go and proclaim everywhere free salvation through His precious blood. He declares that whoever believes in Him shall not perish, but shall have everlasting life. Many know all about this. They are well acquainted with the truth of Substitution and the way in which God can be just and yet the
 
 Justifier of the ungodly. But they are still full of doubts. They have not believed. Dear Friend, I think I can give you some good reasons for your doubting if I am allowed a little scope for imagination.
 

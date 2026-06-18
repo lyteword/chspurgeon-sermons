@@ -10,7 +10,7 @@ But note also, that while God was awake, Jonah was asleep. While storms were blo
 
 I am going to speak upon the case of Jonah, first, as we may regard it as a useful lesson to the people of God. And, secondly, as it may be considered as an equally valuable warning to the unconverted.
 
-First, then, I shall use the case of Jonah as A USEFUL LESSON TO THE PEOPLE OF GOD--and I may very fairly do so when we remember who Jonah was.
+First, then, I shall use the case of Jonah as a USEFUL LESSON TO THE PEOPLE OF GOD--and I may very fairly do so when we remember who Jonah was.
 
 First, Jonah was a believer in God. He worshipped no false god--he worshipped only the living and true God. He was a professed and avowed believer in Jehovah. He was not ashamed to say--even when his conduct had laid him open to blame and when there was nobody to support him--"I am a Hebrew and I fear the Lord, the God of Heaven, which has made the sea and the dry land." Yet, though he was a believer in God, he was in the lowest part of the ship fast asleep!
 
@@ -66,7 +66,7 @@ right through the storm! O sleepy Christian, there is something wrong about you,
 
 Thus I have spoken, perhaps at too great a length, to Christians.
 
-Now, more briefly, I want to give A WARNING TO THE UNCONVERTED.
+Now, more briefly, I want to give a WARNING TO THE UNCONVERTED.
 
 Jonah, asleep on board that ship, is a type of a great number of unconverted people who come to our various places of worship. Jonah was in imminent danger, for God had sent a great storm after him and, my unconverted Hearer, your danger at this present moment is beyond description. There is nothing but a breath between you and Hell! One of our beloved Elders was with us here last Sabbath--he is now with the spirits of just men made perfect--but if it had been the lot of any unconverted person here to suffer and to expire in the same manner, alas, how sad it would have been for you, my Hearer! Driven from the Presence of God, you would be cast in the outer darkness where there is weeping and wailing and gnashing of teeth! The sword of Divine Justice is already furbished, will you yet make mirth? Can you laugh and jest when there is but a step between you and death--but a step between you and Hell? An enemy to God, unforgiven, the Angel of Justice seeking you out as the storm sought out Jonah in that ship, "What are you doing, O sleeper," when the peril of everlasting wrath is so near you?
 

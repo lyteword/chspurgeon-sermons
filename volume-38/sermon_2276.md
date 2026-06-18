@@ -1,6 +1,6 @@
 # Sermon 2276 | Forgiveness, Freedom, Favor
 
-"And this is the manner of the release: Every creditor that lends anything unto his neighbor shall release it; he shall not exact it of his neighbor, or of his brother; because it is called the LORD'S release." Deuteronomy 15:2.
+"And this is the manner of the release: Every creditor that lends anything unto his neighbor shall release it; he shall not exact it of his neighbor, or of his brother; because it is called the LORD's release." Deuteronomy 15:2.
 
 THIS wonderful transaction of "the Lord's release" came at the end of every seven years. It was according to the gracious Law of God for Israel that there should be, first of all, a rest one day in seven. Next, there were feast days one month in seven--and then there came, every seventh year, a year of rest for the land in which they did not till it, but left it to lie fallow. Then after the seven sevens were complete, there came on the fiftieth year, an extraordinary year of rest, in addition to the usual one--this was called the Year of Jubilee.
 
@@ -102,7 +102,7 @@ Thus is it oftentimes with God's people--when they rest most, they work best--an
 
 And you shall sow the eighth year, and eat yet of old fruit until the ninth year; until her fruits come in you shall eat of the old store. They were to have enough for the year of rest and for the next year in which the harvest was growing-- and still to have something over for the ninth year! They scarcely could need as much as that, but God would give them more than they actually needed, exceeding abundantly above what they asked or even thought. That Sabbatical year had other blessings connected with it. Let us read about them in the Book of Deuteronomy, Chapter Fifteen.
 
-Deuteronomy 15:1, 2. At the end of every seven years you shall make a release. And this is the manner of the release-- Every creditor that lends anything to his neighbor shall release it--he shall not exact it of his neighbor, or of his brother because it is called the LORD'S release. What a wonderful title for it, "the LORD'S release"!
+Deuteronomy 15:1, 2. At the end of every seven years you shall make a release. And this is the manner of the release-- Every creditor that lends anything to his neighbor shall release it--he shall not exact it of his neighbor, or of his brother because it is called the LORD's release. What a wonderful title for it, "the LORD's release"!
 
 Of a foreigner you may exact it again but that which is yours with your brother your hand shall release. How was a man to pay when he did not sow or reap during the Sabbatical year? The foreigner did not observe the year of rest-- consequently he was bound to pay and it was only fair that he should do so. But for the Israelite, who carried out the Divine Law, there was provision made if he were in debt.
 

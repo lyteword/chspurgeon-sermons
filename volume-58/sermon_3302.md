@@ -2,7 +2,7 @@
 
 "Jesus sai unto them, Believe you that I am able to do this?" Matthew 9:28.
 
-[Other Sermons by Mr. Spurgeon upon verses 27 to 30, are #1355, Volumen 23--OUR LORD'S QUESTION TO THE BLIND MEN and #1560, Volume 26-- THE PLAIN MAN'S PATHWAY TO PEACE.]
+[Other Sermons by Mr. Spurgeon upon verses 27 to 30, are #1355, Volumen 23--OUR LORD's QUESTION TO THE BLIND MEN and #1560, Volume 26-- THE PLAIN MAN's PATHWAY TO PEACE.]
 
 I WANT to lay special emphasis on the word, "this," in the text--"Believe you that I am able to do this?" The question of Jesus referred to one particular thing--it was not intended to apply to the general power of Christ to heal the sick or to raise the dead--it concerned the specific malady from which these two men were suffering. The question meant did they believe that Christ was able to cure their blindness? Among professing Christians, there is much so-called faith that is not really faith. Many of us profess much more in our creeds than we believe in our hearts and we hold a great deal more in theory than we do in reality. For instance, I suppose there is no professor of religion here who would dispute the power of the Lord Jesus Christ to do anything and everything--we believe that He has all power in Heaven and in earth. And yet, if it came to be a matter of personal detail and He said to us, "Believe you that I am able to do this?" we might not all be able to answer as promptly and as confidently as the blind men did, "Yes, Lord."
 

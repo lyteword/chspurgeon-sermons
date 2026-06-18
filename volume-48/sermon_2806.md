@@ -20,7 +20,7 @@ Lord."
 
 First, I shall try to show you that Christ's tender condescensions endear this title to us. Secondly, that our loving hearts read that title with peculiar emphasis. And, thirdly, that we find special sweetness in that word "our'--"Jesus our Lord."
 
-First, then, I want to show you that CHRIST'S TENDER CONDESCENSIONS ENDEAR THIS TITLE TO
+First, then, I want to show you that CHRIST's TENDER CONDESCENSIONS ENDEAR THIS TITLE TO
 
 US--"Jesus our Lord."
 

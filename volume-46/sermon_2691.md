@@ -109,7 +109,7 @@ And then say--
 > Lord, let me weep for nothing but sin,   
 > And after none but Thee;   
 > And then I would--oh, that I might!   
-> A constant weeper be.   
+> a constant weeper be.   
 
 This is joy, rest, patience, bliss--just to lie there and weep, and wash with tears the feet that came upon that errand of love and mercy for us! And still look, and love, and long, and weep, and look, and love, and long, and weep again, and kiss again and again the blessed feet of Him who has redeemed us unto God by His blood!
 

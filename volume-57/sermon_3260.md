@@ -98,7 +98,7 @@ But if you are without chastisement, whereof all are partakers, then are you bas
 
 9, 10. Furthermore we have had fathers of our flesh who corrected us, and we gave them reverence: shall we not much rather be in subjection unto the Father of Spirits, and live? For they, verily, for a few days chastened us after their
 
-own pleasures. [See Sermon #1073 Volume 18--A HONEYCOMB.] There was,
+own pleasures. [See Sermon #1073 Volume 18--a HONEYCOMB.] There was,
 
 possibly, much of their own temper mixed with their chastisements. They let off their wrath upon us sometimes by the medium of chastisement, but God never chastens His children merely out of anger.
 

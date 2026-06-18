@@ -18,7 +18,7 @@ Remember this, Sinner, however far you may get away from God, you will have to c
 
 Now, from this meeting between God and fallen man, I learn a few lessons which I will pass on to you as the Holy Spirit shall enable me.
 
-The first is this. When God did meet with fallen man, it was not until the cool of the day. This suggests to me GOD'S GREAT PATIENCE WITH THE GUILTY.
+The first is this. When God did meet with fallen man, it was not until the cool of the day. This suggests to me GOD's GREAT PATIENCE WITH THE GUILTY.
 
 Whether Adam and Eve sinned in the early morning, or in the middle of the day, or toward evening, we do not know. It is not necessary that we should know this, but it is probable that the Lord God allowed an interval to intervene between the sin and the sentence. He was not in a hurry to come because He could not come except in anger to bring their sins home to them. You know how quick the tempers of some men are. If they are provoked, it is a word and a blow with them, for they have no patience. It is our littleness that makes us impatient. God is so great that He can endure far more than we can. And though our first parents' sin greatly provoked Him--and it is to His Glory that He is so holy that He cannot look upon iniquity without indignation--yet He seemed to say to Himself, "I must go and call these two creatures of Mine to account for their sin. Yet judgment is My strange work--it is mercy in which I delight. This morning I drew back the curtains that had shielded them during the night and poured the sunlight in upon them, not a second beyond the appointed time, and I was glad to do it. And all day long I have been showering mercies upon them and the refreshing night-dews are already beginning to fall upon them. I will not go down to them till the latest possible moment. I will put it off till the cool of the day." God will do nothing in the heat of passion--everything shall be deliberate, calm, majestic and Divine!
 
@@ -40,7 +40,7 @@ And still, dear Friends, though God is slow to anger, yet He is always ready to 
 
 We can see the marks of His goodness in the very garments on our backs and the food of which we partake by His bounty. Many of His gifts come not merely to those who do not deserve them, but to those who deserve to be filled with the gall and wormwood of Almighty Wrath!
 
-Now, thirdly, I want to show you that WHEN THE LORD DID COME, HE AFFORDED US A PATTERN OF HOW THE SPIRIT OF GOD COMES TO AWAKEN THE CONSCIENCES OF MEN.
+Now, thirdly, I want to show you that WHEN THE LORD DID COME, HE AFFORDED US a PATTERN OF HOW THE SPIRIT OF GOD COMES TO AWAKEN THE CONSCIENCES OF MEN.
 
 I have already said that sooner or later God will come to confront each one of us. I pray that if He has never come to you, dear Friend, in the way of awakening your conscience and making you feel yourself a sinner, He may come to you very speedily. And when He does come to awaken you--it is somewhat in this way.
 
@@ -60,7 +60,7 @@ I remember well when the Lord brought me to my knees in this way and emptied out
 
 must be all of Grace, or else there could be no salvation for me--then He spoke tenderly and kindly to me. But at first, there did not seem to be any tenderness or pity to my soul. There was the Lord coming to me, laying bare my sin, revealing to me my lost condition and making me shiver and tremble while I feared that the next thing He would say to me would be, "Depart from Me, accursed one, into everlasting fire in Hell!" Instead, He said to me in tones of wondrous love and graciousness, "I have put you among My children. 'I have loved you with an everlasting love, therefore with loving kindness have I drawn you.'" Blessed be the name of the Lord, forever and ever, for such amazing treatment as this meted out to the guilty and the lost!
 
-Now, fourthly, and very solemnly, I want to show you that THIS COMING OF THE LORD TO ADAM AND EVE IS ALSO PROPHETICAL OF THE WAY IN WHICH HE WILL COME AS A JUDGING SPIRIT TO THOSE
+Now, fourthly, and very solemnly, I want to show you that THIS COMING OF THE LORD TO ADAM AND EVE IS ALSO PROPHETICAL OF THE WAY IN WHICH HE WILL COME AS a JUDGING SPIRIT TO THOSE
 
 WHO REJECT HIM AS AN AWAKENING SPIRIT.
 

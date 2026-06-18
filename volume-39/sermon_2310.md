@@ -18,7 +18,7 @@ Now, with that as a preface, I invite you to the study of our text.
 
 First, you will see, in the first two verses, a man complaining. Go three verses farther on and you will get to a man singing, about whom we will talk in the second place. And then we shall close our discourse tonight by asking, What are the connecting links between the man complaining and the man singing? How did this complaining man get up to concert pitch and begin to sing before he had gone more than a little way further on the road?
 
-First, then, here is A MAN COMPLAINING.
+First, then, here is a MAN COMPLAINING.
 
 Pardon me if I say that here is a man howling. Let me read the first two verses again--"How long will You forget me, O Lord? Forever? How long will You hide Your face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? How long shall my enemy be exalted over me?" Said I not truly, when I called it howling? There is so much of complaining here, so much of questioning--"How long? How long? How long? How long?"--four times over, that we may call it, as David did once call his prayer--"the voice of my roaring." It is a kind of howling, roaring, moaning complaint before God in the bitterness of his soul. Let us take these four, "How longs?" and speak of them.
 
@@ -42,7 +42,7 @@ And so our trouble outside is that Satan and his allies exult over us and we hav
 
 That is the first photograph--a man complaining.
 
-I am glad to pass from the first view and bring on the second one. The second picture of the same person is found in the sixth verse, where we see A MAN SINGING--"I will sing unto the Lord, because He has dealt bountifully with
+I am glad to pass from the first view and bring on the second one. The second picture of the same person is found in the sixth verse, where we see a MAN SINGING--"I will sing unto the Lord, because He has dealt bountifully with
 
 me."
 

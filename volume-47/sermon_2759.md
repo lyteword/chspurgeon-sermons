@@ -57,7 +57,7 @@ You may go flitting about as far as you like. I will sit there and look at the G
 
 "Not all the harps above Can make a heavenly place, Should Christ His residence remove, Or but conceal His face."
 
-So you see that Christ is the very precious subject of our meditation! Our meditation of Him shall be sweet. II. Now, in the second place, let me proceed to point out A BLESSED RESULT OF THIS MEDITATION. "My meditation of Him shall be sweet"
+So you see that Christ is the very precious subject of our meditation! Our meditation of Him shall be sweet. II. Now, in the second place, let me proceed to point out a BLESSED RESULT OF THIS MEDITATION. "My meditation of Him shall be sweet"
 
 This result depends very much upon the character of the one who meditates. I know some persons who come to Chapel who are very glad when they hear the minister pronounce the Benediction and dismiss the assembly. They are very glad when all is over and they would rather hear the parting Doxology than the text. As for a meditation on Christ, instead of saying it is sweet, they would say, "It is preciously dry." If they happen to hear an anecdote or a tale, they do not mind listening to that--but a meditation entirely upon Christ would be dry enough to them and they would be glad to hear it brought to a close. Ah, Friend, that is because of the taste you have got in your mouth--there is something wrong with your palate. You know when we have been taking a certain kind of medicine and our mouth has been impregnated with a strong flavor, whatever we eat acquires that taste. So is it with you. You have got your mouth out of taste with some of the world's poor dainties. You have got some of the powder of the apples of Sodom hanging on your lips and that spoils the glorious flavor of your meditation on Jesus. In fact, it prevents your meditating on Christ at all. It is only a hearing of the meditation with your ears, not a receiving it into your hearts. But the Psalmist says," My meditation of Him shall be sweet."
 
@@ -131,4 +131,4 @@ Amen. And we say, "Amen. So let it be."
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-RIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+RIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

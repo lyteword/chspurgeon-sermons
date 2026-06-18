@@ -8,7 +8,7 @@ WHAT I have to say this evening will really be an exposition of the whole Psalm.
 
 There are two things in the Psalm about which I am going to speak. The first is a parallel intended. And the second, praise expressed.
 
-First, there is A PARALLEL INTENDED.
+First, there is a PARALLEL INTENDED.
 
 This parallel was suggested to my mind while reading Bishop Horne's Commentary upon this Psalm. He confesses his acknowledgment to some older author for the idea. The parallel is this--David first extols the Revelation of God in Nature, and then extols the Revelation of God in His Word. And he seems to imply that there is a likeness between the two Revelations--that they are, in fact, two books of the same Revelation or two parts of one great poem!
 

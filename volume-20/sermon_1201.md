@@ -68,7 +68,7 @@ Do not think, my prosperous Friend, that the Lord has given you a high place tha
 
 The Lord tries the righteous because He has made them of metal which will endure the test--and He knows that by the sustaining power of His Holy Spirit they will be held up and made more than conquerors! Therefore is it a part of the operation of Providence to try the saints. Let that comfort those of you who are in trouble at this time.
 
-But we must pass on to note, fourthly, that THE LORD'S WISDOM IS SEEN IN ARRANGING THE
+But we must pass on to note, fourthly, that THE LORD's WISDOM IS SEEN IN ARRANGING THE
 
 SMALLEST EVENTS SO AS TO PRODUCE GREAT RESULTS. We frequently hear persons say of a pleasant or a great event, "What a Providence!" while they are silent as to anything which appears less important, or has an unpleasant savor. But, my Brothers and Sisters, the place of the shrub upon the heath is as fixed as the station of a king! And the dust which is raised by a chariot wheel is as surely steered by Providence as the planet in its orbit! There is as much Providence in the creeping of an aphid upon a rose leaf as in the marching of an army to ravage a continent. Everything--the most minute as well as the most magnificent--is ordered by the Lord who has prepared His Throne in the heavens, whose kingdom rules over all!
 

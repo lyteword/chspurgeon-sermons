@@ -73,7 +73,7 @@ For unto us was the Gospel preached, as well as unto them: but the word preached
 
 mixed with faith in them that heard it [See Sermon #2089, Volume 35--PROFITABLE MIXTURE.] They were not united to it by faith. Consequently, as they did not receive the Word, it was taken away from them.
 
-For we who have believed do enter into rest.[See Sermons #866, Volume 15--REST--and #2090, Volume 35--A DELICIOUS EXPERIENCE.] Faith brings us into this rest, even as unbelief shut them
+For we who have believed do enter into rest.[See Sermons #866, Volume 15--REST--and #2090, Volume 35--a DELICIOUS EXPERIENCE.] Faith brings us into this rest, even as unbelief shut them
 
 out.
 

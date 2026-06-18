@@ -29,7 +29,7 @@ Sometimes we hear a little about His influences, as if the Holy Spirit were not 
 
 May this Church ever continue to reverence the Holy Spirit without exaggerating His work! May we prize Him, love Him, and adore Him because He so wondrously glorifies our blessed Lord! With this, by way of preface, I shall now come at once to our text, using it three ways--first, as a test to try various things by. Secondly, as a direction how to honor Jesus. And thirdly, as a stimulus, stirring us up to glorify Christ.
 
-First, then, we shall use our text AS A TEST. There are a thousand things that claim to be of the Holy Spirit. How can we know whether they are or not? Here is a simple mode of discovering, "He shall glorify Me."
+First, then, we shall use our text AS a TEST. There are a thousand things that claim to be of the Holy Spirit. How can we know whether they are or not? Here is a simple mode of discovering, "He shall glorify Me."
 
 Let us, first of all, apply this test to ministers. There are crowds of preachers and reverend divines nowadays in the world. But all are not ministers of God. A true minister is a creation of the God of Heaven. It is no more in the power of the Church than it is in the power of the bishops to make ministers. Independency is as weak as Episcopacy on this point. God, alone, ordains ministers. All that the Church can do is to recognize them. We cannot make them at our colleges. We cannot make them by the laying on of hands, nor even by the choice of the Church. God must make them--God must ordain them. It is only for the Church to perceive God's work, and cheerfully to submit to His choice.
 
@@ -117,7 +117,7 @@ In Ireland how much of revival there was but the Holy Spirit withdrew necessaril
 
 These good things should never be made a subject of. "Come, see my zeal for the Lord of Hosts." While the good work goes on we should be so hard at work for the Master, that we have not time to put into every penny newspaper the tale of what God is doing. Let us then be up while the Master is with us, and doing His work, doing it in the Spirit's own way, seeking to glorify Jesus, and seeking to retain the Spirit in our midst.
 
-And now, lastly, I am to take my text by way of A STIMULUS. Does the Holy Spirit glorify Christ? Ah, then, how should we aim to do it! Let us make, then, Beloved Brothers and Sisters in Christ, let us make this the one object of our life--to glorify Christ. You have been a man in a large way of business. Could you say while you were doing business so largely that your object was to honor Christ in it?
+And now, lastly, I am to take my text by way of a STIMULUS. Does the Holy Spirit glorify Christ? Ah, then, how should we aim to do it! Let us make, then, Beloved Brothers and Sisters in Christ, let us make this the one object of our life--to glorify Christ. You have been a man in a large way of business. Could you say while you were doing business so largely that your object was to honor Christ in it?
 
 Well, you have come down in the world. You have a smaller shop now. Yes, and suppose you can glorify God more? Then you are in a better position than you used to be. I have seen many a man who prospered in his soul and honored his Master much, who has made a wrong step and has injured his usefulness and happiness. Wanting to get more business, he has launched into wide speculations and has had less time for serving his Lord. And he has thus really been in a worse position, for spirituals were under a decay.
 

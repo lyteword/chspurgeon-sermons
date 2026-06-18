@@ -16,7 +16,7 @@ Let me also add that sometimes very strange motives may bring people where they 
 
 Thus have I introduced to you the text--"He received Him joyfully." Now I want to say to you, with regard to the reception of the Savior, that He is not here corporeally or physically, for He has gone back into Glory, to sit at the right hand of the Father. But He is here spirituallyaccording to His promise, "Lo, I am with you always, even unto the end of the world." He enters freely into men's hearts, but He cannot now be received corporeally into your houses, nor can He sit at your tables and partake of your feasts. But He can, by His Spirit, enter into your hearts and He can spiritually dwell there, and make a temple of your bodies, and reign there, finding a happy abode within your renewed nature.
 
-Now, if you would receive Him, I wish to call your attention, first, to the fact that, in order to salvation, THERE MUST BE A PERSONAL RECEPTION OF A PERSONAL CHRIST. "He received Him joyfully." There you have two persons both present. "He"--that is, Zacchaeus--"received Him"--that is, Christ--"joyfully." That looks very simple, yet there is a great depth of the Truth of God in it, as I will try to show you.
+Now, if you would receive Him, I wish to call your attention, first, to the fact that, in order to salvation, THERE MUST BE a PERSONAL RECEPTION OF a PERSONAL CHRIST. "He received Him joyfully." There you have two persons both present. "He"--that is, Zacchaeus--"received Him"--that is, Christ--"joyfully." That looks very simple, yet there is a great depth of the Truth of God in it, as I will try to show you.
 
 For, first, there are some persons who suppose that in order to be saved, they are to receive a creed. That is quite true. You are to have a creed and I urge you to take heed what you believe. Go to the Law and to the Testimony and believe nothing but what is in the Word of God. But I pray you to also remember that a man may receive the most sound creed in Christendom--and yet be damned! He may believe, as a matter of head knowledge, all that should be believed. And yet, for all that, he may not believe anything with his heart, and so may perish. I believe that the devil is orthodox. In all that he says, he usually seems to propound either the Truth of God or something which shows that he knows what the Truth is, yet, though in that sense, he believes, and even goes as far as trembling, the devil is not changed in heart, nor will he be saved by what he believes! It is not receiving a creed which saves you--it is receiving a Person into your heart's love. It is not written in our text, "He received it, "but, "He received Him." Mark that--"He received Him joyfully."
 
@@ -58,7 +58,7 @@ And this blessed voluntariness, this joyous freedom of the will conferred by Sov
 
 This brings me now to close with my third remark, which is, that THE RECEPTION WHICH WE GIVE TO
 
-CHRIST MAY WELL BE A JOYFUL ONE.
+CHRIST MAY WELL BE a JOYFUL ONE.
 
 To receive Christ into the heart, dear Brothers and Sisters--ought not that to be as glad a thing as for a man to welcome his long-desired bride, or his firstborn child, or to receive his estate when he comes to the ripeness of manhood? Yes, more than that! Ought it not to be as much joy to receive Christ as to receive Heaven, itself, for would there be any Heaven possible if we had not first received Christ? Ring the bells of Heaven and ring them yet again, for a soul has re-
 
@@ -112,7 +112,7 @@ And Jesus said unto him, This day is salvation come to this house, for as much a
 
 11. For the Son of Man is come to seek and to save that which was lost And as they heard these things, He added and spoke a parable, because He was near to Jerusalem, and because they thought that the kingdom of God should immediately appear Some of them dreamt of a temporal sovereignty with Christ at its head, so He taught them that His Kingdom was something very different from that.
 
-12, 13. He said therefore, A certain nobleman went into a far country to receive for himself a kingdom, and to return. And he called his ten servants, and delivered them ten pounds, and said unto them, Occupy till I come.' 'Use these pounds on my account. Be stewards of them for me until I return."
+12, 13. He said therefore, a certain nobleman went into a far country to receive for himself a kingdom, and to return. And he called his ten servants, and delivered them ten pounds, and said unto them, Occupy till I come.' 'Use these pounds on my account. Be stewards of them for me until I return."
 
 14-16. But his citizens hated him, and sent a message after him, saying, We will not have this man to reign over us. And it came to pass, that when he was returned, having received the kingdom, then he commanded these servants to be called unto him, to whom he had given the money, that he might know how much every man had gained by trading. Then came the first, saying, Lord, your pound has gained ten pounds. He was a modest man. He did not say, "I have gained ten pounds," but, "Your pound has gained ten pounds." And if God has blessed anyone so as to enable him to bring in a large result from the talent entrusted to him, he must ascribe it all to God, and not to himself--"Lord, Your pound has gained ten pounds."
 

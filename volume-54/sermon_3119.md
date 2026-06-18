@@ -6,7 +6,7 @@ GOD is here speaking to a bad man who had been committing all sorts of evil deed
 
 It is my sorrowful task to have to show you that this great sin is very common among three classes of persons. First, it is very common for the ungodly to fall into this error. Secondly, returning sinners often make the same mistake. And thirdly, even the children of God are not always free from this error.
 
-First, then, IT IS A COMMON THING FOR THE UNGODLY TO FALL INTO THIS ERROR--"You thought that I was altogether like you."
+First, then, IT IS a COMMON THING FOR THE UNGODLY TO FALL INTO THIS ERROR--"You thought that I was altogether like you."
 
 God is very long-suffering to men--this is not the place of judgment. Sinners are not, as a general rule, punished here. Their sentence is reserved until the Day of Judgment. Some people regard every accident as a judgment, but we do not agree with them at all, otherwise we would have to very frequently condemn the innocent. Our Lord has very expressly told us that those upon whom the tower in Siloam fell were not greater sinners than the rest of those who dwelt in Jerusalem at that time. And that the Galileans whom Pilate slew and whose blood he mingled with their sacrifices, were no worse than the other Galileans who went up to the Temple and came away unharmed. God does sometimes startle the world with His judgments, but not often.
 

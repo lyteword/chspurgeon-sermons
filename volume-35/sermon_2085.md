@@ -120,7 +120,7 @@ I am not discouraged, though I am greatly saddened. The battle is not ours but t
 > Is not Your chariot hastening on?   
 > Have You not given this sign?   
 > May we not trust and live upon   
-> A promise so Divine?   
+> a promise so Divine?   
 
 When the Lord shall put on strength then shall His Church be aroused. I read you in the chapter--"Before she travailed, she brought forth. Before her pain came, she was delivered of a man child." The Lord can soon bring upon His Church her fruitful birth pangs and make the barren woman to keep house. I hope to see, before I die, a revived Church holding truthful doctrine, agonizing over lost souls and blessed with hosts of converts. Glory be to the name of the Lord where all is as a desert, He can make a garden. Aaron's dry rod shall bud and blossom again. His fold shall be filled and there shall be a great sound as of the bleating of countless sheep. Since God is almighty in the spiritual realm as well as in the material world, nothing is too great for us to expect.
 

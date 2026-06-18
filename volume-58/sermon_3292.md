@@ -2,7 +2,7 @@
 
 "Gird Your sword upon Your thigh, O Most Mighty One, with Your Glory and Your Majesty. And in Your Majesty ride prosperously because of truth and meekness and righteousness: and Your right hand shall teach You terrible things. Your arrows are sharp in the heart of the king's enemies; whereby the people fall under You." Psalm 45:3-5.
 
-[Another Sermon by Mr. Spurgeon, upon verse five, is #3039, Volume 53--THE KING'S SHARP ARROWS.]
+[Another Sermon by Mr. Spurgeon, upon verse five, is #3039, Volume 53--THE KING's SHARP ARROWS.]
 
 THIS Psalm has been thought by some to be a marriage song for Solomon on the occasion of his wedding with the daughter of Pharaoh. It may be so, though I should be very loath to believe it. But even if that should be true, we will find in the Psalm a distinct reference to the Lord Jesus Christ, and to His marriage union with His Church. Under the Mosaic dispensation, when a man had married a wife, he was not to go out to war for a year, but when the Lord Jesus Christ entered into a marriage union with His people, that very union made it necessary that He should wage war on their behalf. He had to meet all their spiritual foes in terrible conflict--the Prince of Darkness and all the powers of evil set themselves in array against Him--and we know how He fought with them, overcame them and trampled them beneath His feet as the treader of grapes crushes the purple clusters in the winepress. And now, even though in Heaven, He is in a state of rest. Yet here, as the Head of the Church Militant, His mystical body, He is still warring against sin, struggling most strenuously to drive sin out of the world and to make the earth His own dominion wherein He shall reign in righteousness and peace.
 
@@ -38,7 +38,7 @@ Then, the next wheel of the chariot, or the second of the noble steeds drawing i
 
 The next wheel or steed of the chariot is Meekness. Jesus said, "Learn of Me; for I am meek and lowly in heart." It is no proud Savior who invites you to come to Him! Let me remind you working men that Jesus Christ belonged to your rank in life and probably toiled at the carpenter's bench with Joseph, the husband of His mother, Mary. He was no domineering aristocrat, looking down with contempt upon men and women in a lower stratum of society. The Lord says concerning Him, "I have exalted One chosen out of the people." He is the people's Christ. [See Sermon #11, Volume 1--the
 
-PEOPLE'S CHRIST.] He is a condescending Savior who took little
+PEOPLE's CHRIST.] He is a condescending Savior who took little
 
 children up in His arms and blessed them, and said, "Allow the little children to come unto Me, and forbid them not: for of such is the Kingdom of God." Notwithstanding all His Glory and Majesty, He disdains not the poor and needy, and His ears are always open to the cry of the humble and contrite! He takes pity upon the prisoner, He hearkens to the wail of the sorrowful, He has respect unto the broken in heart and is always tender and compassionate to any who seek His aid. Surely this meekness of the Savior must commend the Gospel to you!
 
@@ -110,7 +110,7 @@ As far as the east is from the west, so far has He removed our transgressions fr
 
 Like as a fatherpities his children, so the LORDpities them that fear Him. [See Sermons #941, Volume 16--the tender
 
-PITY OF THE LORD; #1650, Volume 28--GOD'S FATHERLY PITY and #2639, Volume 45--OUR HEAVENLY FATHER'S PITY.] He has an infinitely tender he; t. He never strikes without regret, but His love always flows most freely. No earthly father or mother is half as full of pity as God is to His children.
+PITY OF THE LORD; #1650, Volume 28--GOD's FATHERLY PITY and #2639, Volume 45--OUR HEAVENLY FATHER's PITY.] He has an infinitely tender he; t. He never strikes without regret, but His love always flows most freely. No earthly father or mother is half as full of pity as God is to His children.
 
 For He knows our frame; He remembers that we are dust Our bodies are just animated dust and our souls are so weak and feeble that even they might be compared to dust in His sight--not iron or granite, but simply dust. What men call "the laws of Nature" are so stern that it is a wonder that men live as long as they do, for earthquakes and tornadoes and volcanoes are found that no man can bind! And when so many men are constantly crossing the sea it is a wonder that so many of them ever come to land again.
 

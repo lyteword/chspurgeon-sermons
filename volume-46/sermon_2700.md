@@ -67,7 +67,7 @@ With regard to love, s ome of us say, "How little we love Christ!" Many of you s
 
 That is a very good hymn--I find no fault with it--but please do not sing it too often! Now and then, you are welcome to it, but get through it as quickly as you can. I would far rather hear you sing that grand hymn of Toplady's--
 
-> A debtor to mercy alone,   
+> a debtor to mercy alone,   
 > Of Covenant mercy I sing!   
 > Nor fear, with Your righteousness on,   
 > My person and offering to bring.   

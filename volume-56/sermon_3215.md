@@ -6,7 +6,7 @@ IT was raining very heavily this afternoon at four o'clock when I was thinking o
 
 But now, to come to the text itself, I propose a meditation upon three of its practical uses. First, as suggesting a comfort for the timid. Secondly, as giving an argument with the doubting. And thirdly, as furnishing a lesson to the Christian.
 
-First, I think we may fairly use the text as A COMFORT FOR THE TIMID.
+First, I think we may fairly use the text as a COMFORT FOR THE TIMID.
 
 The clouds are black, they lower, they shut out the sunlight, they obscure the landscape. The timid one looks up and says, "Alas, how black they are and how they gather, fold on fold! What a dark, gloomy day!" What makes them black? It is because they are full of rain and, therefore, light cannot pierce them. And if they are full, what then? Why, then it will rain and the hot earth will be refreshed! And every little plant and every tiny leaf and rootlet of that plant will suck up moisture and begin to laugh for joy. Out of the black sky comes the bright daisy and the garden is painted with many colors--and the only palette that is used is, after all, that black one--for the sky does it by its rain.
 
@@ -50,7 +50,7 @@ What a wondrous book this Bible of ours is! When you have read the Bible through
 
 I cannot apply that thought. I have not time to beat it out more, but I hope God means it for some of you. You do not trust God, some of you, as you ought to do. You measure His corn with your own bushel. You know that you would fail your fellow men and think that He will fail you. You know your own weakness and infirmity--and you imagine that He will faint or be weary. Moreover, you know that you could not do a very generous thing for some who have been ungrateful and unkind to you--and you think He cannot either. Remember that passage, "My thoughts are not your thoughts, neither are your ways My ways, says the Lord. For as the heavens are higher than the earth, so are My ways higher than your ways, and My thoughts than your thoughts." You think about saving--God only thinks about giving. You take a delight in getting--He takes a delight in bestowing. Go to Him! Go to Him! You would not need anybody to be long praying you to accept a gift, so do not think that God needs much beseeching in order to give, for it is as easy for Him to give as it is for you to accept! And as accepting seems congenial to our nature, so does bestowing seem congenial to His! Go to Him and He will empty out His Grace upon you!
 
-Now, thirdly, the text furnishes A LESSON TO CHRISTIANS.
+Now, thirdly, the text furnishes a LESSON TO CHRISTIANS.
 
 "If the clouds are full of rain, they empty themselves upon the earth." The drift of the passage is, of course, to be gathered from the context--and it was intended by Solomon to teach us liberality. He says, "Give a portion to seven, and also to eight; for you know not what evil shall be upon the earth. If the clouds are full of rain, they empty themselves upon the earth." By which he means to say, "If your pocket is full, empty it out upon the poor and needy. If God has endowed you with much of this world's substance, look out for cases of necessity and consider it is as much the object of your existence to bestow help upon the needy as it is the design in the creation of a cloud that it should empty itself upon the earth."
 

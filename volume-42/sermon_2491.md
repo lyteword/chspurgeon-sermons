@@ -28,7 +28,7 @@ Many who come to hear the Gospel go their way to their farms and to their mercha
 
 Thus, surely, I have said enough upon this first point--ungodly men have good cause to be ashamed.
 
-Now, secondly, concerning these ungodly people, let me show you that SHAME IS A VERY DESIRABLE THING IF IT DRIVES THEM TO GOD. Hence the prayer, "Fill their faces with shame, that they may seek Your name,
+Now, secondly, concerning these ungodly people, let me show you that SHAME IS a VERY DESIRABLE THING IF IT DRIVES THEM TO GOD. Hence the prayer, "Fill their faces with shame, that they may seek Your name,
 
 O Lord."
 

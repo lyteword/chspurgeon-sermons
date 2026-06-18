@@ -10,7 +10,7 @@ My objective here and now will be to stir up the people of God and especially th
 
 First, our text gives us a model of prayer. Secondly, it and its surroundings give us encouragement for prayer First, then, our text gives us--
 
-A MODEL OF PRAYER.
+a MODEL OF PRAYER.
 
 I think I may notice this first as to the antecedents of the prayer. This prayer of Daniel was not offered without consideration. He did not come to pray as some people do, as though it were a thing that required no forethought whatever. We are constantly told we ought to prepare our sermons and I surely think that if a man does not prepare his sermons he is very blameworthy. But are we never to prepare when we speak to God, but only when we speak to man? Is there to be no preparation of the heart of man when we open our mouth before the Lord? Do not you think we often, both in private and public, begin to pray without any kind of preparation? The words come and then we try to quicken them rather than the desires coming first and the words like garments to clothe them?
 

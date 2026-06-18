@@ -2,7 +2,7 @@
 
 "Jesus said unto them, My meat is to do the will of HHim that sent Me, and to finish His work." John 4:34.
 
-[Another Sermon by Mr. Spurgeon, upon the same text, is Sermon #302, Volume 6--JESUS ABOUT HIS FATHER'S BUSINESS and another, upon verses31 to 38, is#1902, Volume 32--MYSTERIOUS MEAT.]
+[Another Sermon by Mr. Spurgeon, upon the same text, is Sermon #302, Volume 6--JESUS ABOUT HIS FATHER's BUSINESS and another, upon verses31 to 38, is#1902, Volume 32--MYSTERIOUS MEAT.]
 
 THIS text contains in it much consolation for those who are desirous of salvation, more of example to those who are saved and most of all of matter for praise concerning our Lord Himself, who is its Spokesman.
 
@@ -64,7 +64,7 @@ time for a Samaritan woman to draw water. But the reason why she went at that un
 
 10. Then said the woman of Samaria unto Him, How is it that You, being a Jew, ask drink of me, which am a woman of Samaria? For the Jews have no dealings with the Samaritans. Jesus answered and said unto her, If You knew
 
-the gift of God [See Sermons #782, Volume 13--SAVING KNOWLEDGE and #2277, Volume 38--SYCHAR'S SINNER SAVED.] How much we lose through ignorance! Ignorance is often like a great stone laid upon the well so that the flocks cannot be watered--blessed is everyone who helps to roll away that stone! It is a great thing to know the gift of God--"If you knew the gift of God."
+the gift of God [See Sermons #782, Volume 13--SAVING KNOWLEDGE and #2277, Volume 38--SYCHAR's SINNER SAVED.] How much we lose through ignorance! Ignorance is often like a great stone laid upon the well so that the flocks cannot be watered--blessed is everyone who helps to roll away that stone! It is a great thing to know the gift of God--"If you knew the gift of God."
 
 And who it is that says to you, give Me a drink; you would have asked of Him, and He would have given you living watei. There are two things worth knowing--what Grace is and Who it is that gives it. Lack of this knowledge often leads to lack of prayer--and lack of prayer leads to lack of receiving. Perhaps someone asks, "Why does not God give without prayer?" Because it is not His will to do so! His will is that we should pray about everything. Did you ever notice that even when the harvest is ripe, it cannot be gathered in without prayer? Jesus said to His disciples, "The harvest is truly plenteous, but the laborers are few. Pray you, therefore, the Lord of the harvest, that He will send forth laborers into His harvest." Prayer seems indispensable! It is part of God's necessary machinery. He has pleased to make it so. But what condescension of love it is that the prayer of man should be necessary to effect the purposes of God! God
 
@@ -80,7 +80,7 @@ who reverence the majesty of Christ's Deity, the perfection of His Humanity, the
 
 But the water that I shall give him shall be in him a well of water springing up into everlasting life. [See Sermons #770,
 
-Volume 13--THE WATER OF LIFE; #865, Volume 15--LIFE'S EVER-SPRINGING WELL and #1202, Volume 20--HOLY WATER.] The Grace of God is a living thing, a springing and abiding thing, an everlasting thing--and he that has it in his heart has that which has saved him forever!
+Volume 13--THE WATER OF LIFE; #865, Volume 15--LIFE's EVER-SPRINGING WELL and #1202, Volume 20--HOLY WATER.] The Grace of God is a living thing, a springing and abiding thing, an everlasting thing--and he that has it in his heart has that which has saved him forever!
 
 The woman said unto Him, Sir, give me this water, that I thirst not, neither come here to draw. Christ's words were coming true. He said that if she had known, she would have asked. And then, in her poor groping way, she began to pray, hardly knowing what she was asking for! I advise you also to pray even before you quite understand your own prayers, before you are sufficiently instructed to know what you really need! Ask God to give you what you need. Very often we make a discovery of our needs through having them supplied.
 

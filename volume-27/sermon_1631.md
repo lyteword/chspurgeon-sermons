@@ -94,7 +94,7 @@ Now, here is a testimony concerning Jesus borne by John and three other Evangeli
 
 If He is, indeed, commissioned of God to save Believers. And if He is, Himself, God, pledged to save Believers, then I, as a Believer, am as safe as the Throne of God, or the presence-angels which surround it! Whatever I feel or do not feel, I am a saved man since I heartily believe that which the Book was written to teach me, namely, God's Gospel to men, embodied in Jesus Christ, who, being the Son of God, is anointed of the Lord to save His people!
 
-So I come to the third point, which is this, that THE TRUE LIFE OF A SOUL LIES IN CHRIST JESUS AND
+So I come to the third point, which is this, that THE TRUE LIFE OF a SOUL LIES IN CHRIST JESUS AND
 
 COMES TO THAT SOUL THROUGH FAITH IN HIM. I understand by the life of a soul only one thing, and yet for the sake of clearing it we must divide it a little. First, when a man has been found guilty of death, if by any means that sentence is removed from him, he may be said to obtain life, life in its judicial form. Suppose that a person who is condemned to die is by some just and lawful means acquitted? In that fact he finds life. That is the first form of life that every man has who believes that Jesus is, indeed, the Christ. He is acquitted, pardoned, justified and, therefore, he lives.
 

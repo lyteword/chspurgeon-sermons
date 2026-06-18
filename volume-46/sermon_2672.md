@@ -56,7 +56,7 @@ Come, now, and look again. Behold, by faith, the second Person of the Blessed Tr
 
 Then think, also, of that dear and blessed Spirit of God who has come into your heart and striven with you when you resisted Him and, at last, won the day. And, since then, has helped your infirmities, checked your hastiness, awakened you from your sloth and been everything to you that He could be--and do you think that, after all this, He will ever forget or forsake you? Oh, if He had meant to cast you away, He has had many opportunities when He might have done so! Surely, He would never have come to dwell in such a hovel as your fallen nature is if He had not intended to transform it and make it into a pure alabaster palace wherein the living God might dwell! "Behold," says the Lord. That is, look into this great Truth of God--look deeply into it--and then say to yourself, "My fears of being forgotten or forsaken are all gone, for I am engraved upon the palms of His hands."
 
-So I close by referring very briefly to the last point, which is this, A RETURN SUGGESTED. I want, Brothers and Sisters, to speak in a very homely and familiar way to each one of you and, at the same time, to
+So I close by referring very briefly to the last point, which is this, a RETURN SUGGESTED. I want, Brothers and Sisters, to speak in a very homely and familiar way to each one of you and, at the same time, to
 
 be speaking to myself as well as to you.
 

@@ -28,7 +28,7 @@ God, mighty to save--and if mercy is to be had I will find it, though I deserve 
 
 That is our first point, this woman was altogether an outsider, and I hope our meditation on it may cheer some far-off one and induce him or her, also, to come to Jesus for salvation.
 
-In the second place, this woman was not only far from all outward religious privileges, but SHE HAD A VERY DREADFUL CASE TO PLEAD.
+In the second place, this woman was not only far from all outward religious privileges, but SHE HAD a VERY DREADFUL CASE TO PLEAD.
 
 She came to Christ to plead for her daughter who was "grievously vexed with a devil." Now, if one comes to Christ to ask Him to cure blindness, or sickness of any ordinary kind, it is a very simple case compared with this woman's. "Lord, my daughter is grievously vexed with a devil; a demon has come and made her body to be the place of his abode. O Lord, Son of David, interfere in this horrible case! The devil's hand is in it and only You can cast him out." I know that there are some--it may be that they have stolen into this Tabernacle, perhaps driven in by the rain--whose case is so bad that they have to conclude that the devil himself had a hand in it When they come before Christ, it is no common sin they have to confess, no ordinary soul-ruin they have to set before Him--it seems as if there has arisen from the infernal Pit some demon who has made them to be the special objects of his attack. The devil is in you, is he? Nevertheless, bring your case before Christ! If there were seven devils within you, instead of only one, remember her out of whom He cast seven devils--yes, and if it were a legion--if a whole band of demons had taken possession of you, remember the Gadarene demoniac out of whom Christ cast a legion of devils!
 
@@ -70,7 +70,7 @@ This woman had a further discouragement, for JESUS REFUSED THE PRAYER OF HIS OWN
 
 Now, suppose the prayers of a whole Church have failed with regard to you? Still pray on! Yes, if all the saints who live on earth had joined in one common intercession and had all cried to God for you--and they had received no favorable answer about you and, therefore, had ceased praying--still you should not cease crying to the Lord. Go on praying, for He will yet hear you, even in such a case as that--if you can have the splendid faith to be a forlorn hope, and go alone, and only pray the more because others cease to pray for you. Like this woman, worship the Lord and say, "Lord, help me." Though your prayer grows shorter because you are getting weary, if it grows very intense and you still keep on pleading, it cannot be long before a prayer-hearing Savior will give you the desire of your heart! I like this point in the woman, although the Apostles had ceased praying, she had not.
 
-Next, notice that in answer to the Apostles, THE LORD JESUS CHRIST GAVE HER A VERY HEAVY REBUKE. He said, "I am not sent but to the lost sheep of the house of Israel."
+Next, notice that in answer to the Apostles, THE LORD JESUS CHRIST GAVE HER a VERY HEAVY REBUKE. He said, "I am not sent but to the lost sheep of the house of Israel."
 
 That seemed to exclude her altogether, yet still she persevered--and I want to draw a parallel between her case and yours. Dear Friend, possibly someone has whispered in your ear, "Suppose you are not one of the elect." Well, that was very much what our Lord's expression meant to her. She was not one of the chosen people and she had heard Christ say, "I am not sent but to the lost sheep of the house of Israel." Notice that this woman does not battle with that Truth of
 
@@ -100,9 +100,9 @@ Verses 18-21. But those things which proceed out of the mouth come forth from th
 
 And, behold--There is something here that is worth beholding, so the Holy Spirit draws attention to it, just as we sometimes print, N.B., nota bene--mark well--"behold"--
 
-A woman of Canaan came from that same region. Possibly she did not know that Christ had come, but, anyhow, when Christ comes, sinners come. He journeyed to the coasts of Tyre and Sidon, and this woman met Him.
+a woman of Canaan came from that same region. Possibly she did not know that Christ had come, but, anyhow, when Christ comes, sinners come. He journeyed to the coasts of Tyre and Sidon, and this woman met Him.
 
-22, 23. And cried out to Him, saying, Have mercy on me, O Lord, Son of David; my daughter is grievously vexed with a devil. But He answered her not a word. And His disciples came and urged Him, saying, Send her away; for she cries after us. Perhaps they meant, "Give her the blessing and let her go. You are seeking quiet, here, and she will not let you, nor us, either, have any. 'Send her away.'" They made a great mistake when they said, "She cries after us." It was Christ to whom she cried, not His disciples!
+22, 23. And cried out to Him, saying, Have mercy on me, O Lord, Son of David; my daughter is grievously vexed with a devil. But He answered her not a word. And His disciples came and urged Him, saying, Send her away; for she cries after us. Perhaps they meant, "Give her the blessing and let her go. You are seeking quiet, here, and she will not let you, nor us, either, have any. 'send her away.'" They made a great mistake when they said, "She cries after us." It was Christ to whom she cried, not His disciples!
 
 But He answered and said, I am not sent but to the lost sheep of the house of Israel ' 'My ministerial commission is only to the Jews." As a Savior, He comes to save sinners out of all nations, but as the Messiah, His special mission was to the lost sheep of the house of Israel.
 

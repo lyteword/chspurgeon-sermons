@@ -109,7 +109,7 @@ Blessed is he who is resolved with Job and, by God's Grace, is enabled to abide 
 
 Most of you young people are full of fun and mirth and I am glad you have happy times. But the holidays of youth are not forever! Your tents will be spoiled, one of these days, as surely as you live--and what will you do then? All the joy which you can draw from this world's wells will turn to brackish water before long and you will loathe it--what will you do, then? Nothing will remain of all this momentary mirth when the heyday of your youth is over and the evil days come! And the days draw near when you shall say, I have no pleasure in them. Why, then, are you so taken up with fickle, fleeting joys? I beseech you seek substantial happiness! Ask for eternal blessings! Draw near to God by Jesus Christ and seek unfading bliss in His abiding love.
 
-In the third place there may come A SUDDEN SPOILING OF LIFE, ITSELF. In a moment, prostrated by
+In the third place there may come a SUDDEN SPOILING OF LIFE, ITSELF. In a moment, prostrated by
 
 disease and brought to Death's door, frail man may well cry out, "How suddenly are my tents spoiled, and my curtains in a moment!" It is by no means unusual for men to die very suddenly. One does not wish to suggest an unhappy thought, but this is so salutary a consideration that it ought never to be absent from us--we are but dust and may be dissolved in an instant by death! We are continually surprised that one and another have suddenly been called away--yet it is more strange that so many remain!--
 

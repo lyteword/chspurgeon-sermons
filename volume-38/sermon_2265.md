@@ -18,7 +18,7 @@ We also feel that we ought to be glad when others are joined to the Church becau
 
 "'Tis done! The great transaction's done-- I am my Lord's, and He is mine!" By the peace of mind which has come to us from joining with the people of God after believing in Christ, we feel glad to see other young soldiers stooping to take up the Cross of Christ and following Him, "outside the camp, bearing His reproach."
 
-Looking at our text, I notice in it, first, A WORD OF DISCRIMINATION. If you look carefully at the passage, you will soon see it--
+Looking at our text, I notice in it, first, a WORD OF DISCRIMINATION. If you look carefully at the passage, you will soon see it--
 
 "You have multiplied the nation, and increased the joy."
 

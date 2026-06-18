@@ -34,7 +34,7 @@ But do I ever pray?
 
 And do the wishes of my heart
 
-Go with the words I say? I may as well kneel down And worship gods of stone, As offer to the living God A prayer of words alone. For words without the heart
+Go with the words I say? I may as well kneel down And worship gods of stone, As offer to the living God a prayer of words alone. For words without the heart
 
 The Lord will never hear. Nor will He to those lips attend Whose prayers are not sincere." Further, let me observe that the spirit of prayer, though it is always present in every regenerated heart, is not always alike active. It is not, perhaps, today nor tomorrow that every Christian will be able to say, "I find in my heart to pray this one particular prayer to God." It may for the present be beyond our standard of Grace and we may therefore be unable to grasp the blessing. In some respects we are not masters of our supplications. You cannot always pray the prayer of faith in reference to any one thing--that prayer is often the distinct gift of God for an occasion. Others may ask your prayers and, sometimes, you may plead very prevalently for them, but at another time that power is absent. You may, at that time, feel no liberty to offer a certain petition, but on the contrary feel held back in the matter. Well, be guided by this inward direction and follow, rather than press forward, in such a case.
 
@@ -104,7 +104,7 @@ This rain waters the soul of man and when the warm love of God comes shining on 
 
 When you find a rare flower by the roadside and wonder how it came there, for it is no indigenous weed but a fair stranger from another clime, it is pleasant to trace out its way to the place it beautifies. And even so, when you find a prayer in your heart, it is gladsome to see how it comes forth from the heart of God, by the Word of God, to blossom in the garden ofyour soul!
 
-In the third place IT IS VERY PROFITABLE TO USE A PRAYER WHEN WE FIND IT IN OUR HEART.
+In the third place IT IS VERY PROFITABLE TO USE a PRAYER WHEN WE FIND IT IN OUR HEART.
 
 Notice the phraseology of my text. He says, "Your servant has found in his heart to pray this prayer unto You." Not to say this prayer, but to pray this prayer. There is great force in the expression. Some prayers are never prayed, but are like arrows which are never shot from the bow. Scarcely may I call them prayers, for they are such as to form, matter and verbiage, but they are said, not prayed. The praying of prayer is the main matter. Sometimes, Beloved, we may have a prayer in our hearts and may neglect the voice of the Lord within our soul--and if so, we are great losers.
 

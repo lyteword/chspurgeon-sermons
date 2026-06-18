@@ -2,7 +2,7 @@
 
 "A friend of publicans and sinners."--Matthew 11:19.
 
-MANY A TRUE WORD is spoken in jest, and many a tribute to virtue has been unwittingly paid by the sinister lips of malice. The enemies of our Lord Jesus Christ thought to brand him with infamy, hold him up to derision, and hand his name down to everlasting scorn, as "a friend of publicans and sinners." Short-sighted mortals! Their scandal published his reputation. To this day the Savior is adored by the title which was minted as a slur. It was designed to be a stigma, that every good man would shudder at and shrink from; it has proved to be a fascination which wins the heart, and enchants the soul of all the godly. Saints in heaven, and saints on earth delight to sing of him thus--
+MANY a TRUE WORD is spoken in jest, and many a tribute to virtue has been unwittingly paid by the sinister lips of malice. The enemies of our Lord Jesus Christ thought to brand him with infamy, hold him up to derision, and hand his name down to everlasting scorn, as "a friend of publicans and sinners." Short-sighted mortals! Their scandal published his reputation. To this day the Savior is adored by the title which was minted as a slur. It was designed to be a stigma, that every good man would shudder at and shrink from; it has proved to be a fascination which wins the heart, and enchants the soul of all the godly. Saints in heaven, and saints on earth delight to sing of him thus--
 
 > Savior of sinners they proclaim,   
 > Sinners of whom the chief I am.   

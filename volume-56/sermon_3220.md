@@ -6,7 +6,7 @@ IF you will look at our text, dear Friends, you will see that it is very ominous
 
 I am not going, however, to speak about these earthly variations, but about something that is of a far higher order. And I intend, first, to apply the text to Christ's love to us, for He had "a time to love." And then, secondly, to apply it to our love to Him, for we, also, have "a time to love."
 
-First, then, concerning CHRIST'S LOVE TO US, for He had "a time to love."
+First, then, concerning CHRIST's LOVE TO US, for He had "a time to love."
 
 Go back with me in thought, Beloved Brothers and Sisters in Christ, to the council chamber of eternity. God ordained that Adam, the great representative of the human race, would fall in the time of testing and that you and I and all mankind would be ruined by his fall. In His far-seeing vision, He perceived all of us going astray like lost sheep and then arose the necessity for the appointment of a Deliverer to rescue us from going down into the Pit. No angels had been created, then, and even though they would be, not one in all the shining ranks, nor all of them combined, could have saved a single soul! The Savior who would be sufficient to accomplish this colossal task must be Divine. Then was it with Christ "a time to love," and He came forward and entered into an Everlasting Covenant with His Father on His people's behalf. Let us never forget that eternal council chamber where Christ undertook to be our Surety and Substitute and, in due time, to die for us, "the Just for the unjust, that He might bring us to God."
 
@@ -145,7 +145,7 @@ My sister, My spouse, you have ravished My heart with one of your eyes, with one
 
 Oh, what a miracle of mercy it is that Christ, Himself, should be unhearted by such foul and loathsome creatures as we were! Yet He loved us so that He would have us and, having determined to do so, He put a beauty upon us that is really now worthy of His love! I speak advisedly, for the righteousness of Christ and the sanctification of the Spirit have in them something so fair that Christ does not now love that which is unworthy of His love--that righteousness which He has Himself worked in us now rightly claims His affection.
 
-How fair is Your love, My sister, My spousef. [See Sermon #282, Volume 5--CHRIST'S ESTIMATE OF HIS PEOPLE.] Hear that, O Spouse of Christ? Your love is often very cold, very feeble and, even at its best, it is not what you would have it to be, nor what it ought to be. Yet Jesus values it highly and says, "How fair is your love, My sister, My spouse!"
+How fair is Your love, My sister, My spousef. [See Sermon #282, Volume 5--CHRIST's ESTIMATE OF HIS PEOPLE.] Hear that, O Spouse of Christ? Your love is often very cold, very feeble and, even at its best, it is not what you would have it to be, nor what it ought to be. Yet Jesus values it highly and says, "How fair is your love, My sister, My spouse!"
 
 How much better is your love than wine! Yet He knows what the best wine is like, for He is one day to drink it new with us in His Father's Kingdom, yet He says that the love of His people is much better than wine, yes, even than that wine.
 
@@ -153,7 +153,7 @@ And the smell of your ointments than all spices! You know that He has the smell 
 
 11, 12. Your lips, O My spouse, drop as the honeycomb: honey and milk are under your tongue; and the smell of your garments is like the smell of Lebanon. A garden enclosed is My sister, My spouse; a spring shut up, a fountain
 
-sealed. [See Sermons #431, Volume 8--A SECRET AND YET NO SECRET and #1957, Volume 33--THE LORD'S OWN VIEW OF HIS CHURCH AND PEOPLE.] Oh, that my heart were like that at this moment! Jesus, shut the gates and shut out the world, and every wandering, wayward, sinful thought! Then shut Yourself in my heart and walk in it as in a garden that is walled around into which no intruders dare enter!
+sealed. [See Sermons #431, Volume 8--a SECRET AND YET NO SECRET and #1957, Volume 33--THE LORD's OWN VIEW OF HIS CHURCH AND PEOPLE.] Oh, that my heart were like that at this moment! Jesus, shut the gates and shut out the world, and every wandering, wayward, sinful thought! Then shut Yourself in my heart and walk in it as in a garden that is walled around into which no intruders dare enter!
 
 13, 14. Your plants are an orchard of pomegranates, with pleasant fruits; camphire, with spikenard, spikenard and saffron; calamus and cinnamon, with all trees of frankincense; myrrh and aloes, with all the chief spices. Oh, that this were fully true of us--that all our thoughts, words, and actions, which are like the fruits of the garden, were as full of spices of heavenly fragrance as Jesus here declares that He thinks them to be! Yet, alas, how little we do for Him, though He sets such store by our little that He regards it as much!
 

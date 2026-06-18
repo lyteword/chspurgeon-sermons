@@ -28,7 +28,7 @@ We cannot tell all that the Lord did in the past, but we are told in Scripture t
 
 Did He submit that His peer, His equal, the Son of the Highest, should wear the smock frock of a peasant and live among the sons of men as a carpenter's son? Did He fulfill that wondrous Word and allow that dear Son of His to be nailed to a Cross--to die on that gibbet like a common felon? Did He permit Him to slumber in the dust among the dead? He did! Let Bethlehem and Calvary say, "The Lord is true! He has kept His Covenant--
 
-"True to His Word, He gave His Son To die for crimes which men ha ve done. Blest pledge! He never will revoke A single promise He has spoke." But it was a stipulation of that Covenant on the Lord's side that Jesus Christ should have a people who would be His reward for His sufferings. The Father gave to Christ a chosen people--His sheep, His bride. These were to be His. "He shall see of the travail of His soul and shall be satisfied."
+"True to His Word, He gave His Son To die for crimes which men ha ve done. Blest pledge! He never will revoke a single promise He has spoke." But it was a stipulation of that Covenant on the Lord's side that Jesus Christ should have a people who would be His reward for His sufferings. The Father gave to Christ a chosen people--His sheep, His bride. These were to be His. "He shall see of the travail of His soul and shall be satisfied."
 
 Has the Divine Father kept that part of His Covenant? Beloved, He is keeping it every day! By the preaching of the Gospel and by other means in the hand of the Spirit, those for whom Jesus died are being called from among the mass of mankind! They are reconciled to God by the death of Jesus and they are saved! And whenever these present themselves before the Throne of God, He looks upon them as forgiven, regards them as one with His beloved Son and members of the body of Christ--and therefore He accepts them in the Beloved! For Christ's sake He preserves them. For Christ's sake He sanctifies them. For Christ's sake He will, by-and-by, glorify them! The Covenant of Grace has many promises in it, but not one of them has failed. As on Christ's side, the Covenant was kept by His death, so on the Father's side, the Covenant has been kept by the salvation of those whom Jesus redeemed from among men whom He gave himself a ransom for many.
 
@@ -44,7 +44,7 @@ Now, child of God, I want you to note this upon the tablets of your heart. Be su
 
 "He will not His great Self deny;
 
-A God all truth can never lie;
+a God all truth can never lie;
 
 As well might be His being quit
 

@@ -85,7 +85,7 @@ Verses 1, 2. Hear my prayer, O LORD, and let my cry come unto You. Hide not Your
 
 "That were a grief I could not bear Did You not hear and answer prayer."
 
-Incline Your ear unto me. ' 'Stoop down to me. Bend over me. Listen to the moans of my darkness, the whispers of my weakness."
+Incline Your ear unto me. ' 'stoop down to me. Bend over me. Listen to the moans of my darkness, the whispers of my weakness."
 
 In the day when I call, answer me speedily.' 'For I am brought so low that if a delay is not a denial, it will be tantamount to it, for I shall be dead before the answer comes unless it reaches me speedily."
 

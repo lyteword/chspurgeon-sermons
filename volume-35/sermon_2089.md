@@ -13,7 +13,7 @@ May great Grace be given that we may win where a whole nation failed! It will be
 
 First, I shall invite you to consider Israel's hearing of the Gospel--"Unto us was the Gospel preached as well as unto them." They heard good news from Moses, which was, at any rate, a Gospel. But to me it seems that they also heard the Gospel which we hear. Secondly, let us notice Israel's failure to profit thereby--"The word preached did not profit them." They heard but heard in vain. Thirdly, let us put our finger upon the fatal cause of failure, so plainly indicated here by the words, "not being mixed with faith in them that heard it." The hearing was alone and without the mixture of faith. It answered no practical purpose. May the Spirit of God prepare our hearts for this meditation and may we so consider the lamentable failure of Israel that we may not fall after the same example of unbelief!
 
-First, then, let us think of ISRAEL'S HEARING OF THE GOSPEL. Whether you take it as our translators have put it in the Authorized Version, "Unto us was the Gospel preached as well as unto them," or accept the Revised rendering, "Indeed, we have had good tidings preached unto us, even as also they," it comes to much the same meaning. For the message of Moses and the reports of the faithful spies were both typical of the Gospel which was brought to us by our Lord and His Apostles. Our Gospel is more clear than theirs. Yet they had the Gospel also, in all the essential truths of it and had they fully believed it, it would have been a saving Gospel to them.
+First, then, let us think of ISRAEL's HEARING OF THE GOSPEL. Whether you take it as our translators have put it in the Authorized Version, "Unto us was the Gospel preached as well as unto them," or accept the Revised rendering, "Indeed, we have had good tidings preached unto us, even as also they," it comes to much the same meaning. For the message of Moses and the reports of the faithful spies were both typical of the Gospel which was brought to us by our Lord and His Apostles. Our Gospel is more clear than theirs. Yet they had the Gospel also, in all the essential truths of it and had they fully believed it, it would have been a saving Gospel to them.
 
 We shall notice, first, that the good news brought to Israel was a Gospel of rest for slaves, a promise of deliverance for men who cried by reason of sore bondage. This was a fit emblem of that news which comes to us in the Gospel of Jesus Christ. Listen to the words of Moses in the sixth of Exodus--"Wherefore say unto the children of Israel, I am the Lord and I will bring you out from under the burdens of the Egyptians and I will rid you out of their bondage and I will
 
@@ -73,7 +73,7 @@ He says, "My grace is sufficient for you." Therefore I may gladly sing, "The Lor
 
 Enough of this. You will find it an interesting exercise to observe in how many ways the Gospel preached to Israel runs parallel with the Gospel preached to us. The true Gospel is no new Gospel--it is that old wine which is better than the new with all its fermentation and froth--it is the Gospel of the eternal God, which changes not.
 
-But now, secondly, I have the painful business of setting briefly before you ISRAEL'S FAILURE TO PROFIT BY
+But now, secondly, I have the painful business of setting briefly before you ISRAEL's FAILURE TO PROFIT BY
 
 THE GOSPEL WHICH THEY HEARD. Though they heard it from many, they clung to Egypt. One would think they
 

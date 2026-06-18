@@ -29,7 +29,7 @@ Him--
 
 Without dwelling on the immediate connection of the words which I have chosen from two familiar and beautiful verses, I would, with these two texts, weave a fabric of love. See what Jesus did for us and then think what we can do for Jesus. "For your sakes" Christ did His deeds of love. "For His sake" we are called upon to live and labor among the sons of men. May His love enkindle ours!
 
-First, let us consider THE MOTIVE OF CHRIST'S WORK. "For your sakes." As many of you as have believed in Christ Jesus may know that, "foryour sakes," the Lord of Glory stooped to be a suffering, dying Man.
+First, let us consider THE MOTIVE OF CHRIST's WORK. "For your sakes." As many of you as have believed in Christ Jesus may know that, "foryour sakes," the Lord of Glory stooped to be a suffering, dying Man.
 
 In meditating on the motive that moved the Lord Jesus to come to your rescue, consider, first, the august Person who undertook your salvation and died, "for your sakes." He was God. "He thought it not robbery to be equal with God." He made the heavens. "Without Him was not anything made that was made." The angels delighted to do Him homage! Every seraph's wing would fly at His bidding--all the host of Heaven worshipped at His feet. All the powers of Nature were under His control. He needed nothing to make Him glorious--all things were His and the power to make more than all! He might truly say, "If I were hungry, I would not tell you: for the world is Mine and the fullness thereof."
 

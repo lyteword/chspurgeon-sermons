@@ -38,7 +38,7 @@ When the Savior was nailed to the accursed tree, there was a great crowd before 
 
 While I have been trying to bring before your minds this picture of the suffering Savior, as it has been all vividly present to my own mental vision, I wonder if anyone here has been saying, "Oh, Sir, I also have to endure the cruel mocking of the ungodly! They call me this name and that, and I feel that I cannot endure it." What? Are you--
 
-"A soldier of the Cross, A follower ofthe Lamb"--
+"A soldier of the Cross, a follower ofthe Lamb"--
 
 and do you need to turn coward when they mete out to you something of the treatment that they gave to Him? Look at your Master in the hour of His agony on the Cross and never be afraid again! Remember how He forewarned His followers concerning this very matter--"The disciple is not above his master, nor the servant above his lord. It is enough for the disciple that he be as his master, and the servant as his lord. If they have called the master of the house, Beelzebub, how much more shall they call them of his household?" Cheerfully accept all the contempt and scorn that the world pleases to pour upon you--take it as a tribute to the likeness to Christ that even worldlings can see in you--and praise the Lord that you are counted worthy to suffer for Christ's name's sake!
 

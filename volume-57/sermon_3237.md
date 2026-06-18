@@ -30,7 +30,7 @@ proud and lifted up, but low in their own esteem. A people who are often much tr
 
 Now, the Lord has anointed the Lord Jesus on purpose to preach the Gospel to such as these. If any of you are good and deserving, the Gospel is not for you! If any of you fancy that you are keeping God's Laws perfectly and hope to be saved by your works, I have to tell you that the whole have no need of a physician and that the Lord Jesus did not come upon so needless an errand as that of healing men who have no wounds or diseases! But the sick need a doctor and Jesus has come in great compassion to remove their sickness. The more diseased you are, the more sure you may be that the Savior came to heal such as you are! The more poor you are, the more certain you may be that Christ came to enrich you! The more sad and sorrowful you are, the more sure you may be that Christ came to comfort you! You nobodies, you who have been turned upside down and emptied right out, you who are bankrupts and beggars, you who feel yourselves to be clothed with rags and covered with wounds and bruises and putrefying sores--you who are utterly bad through and through and know it, and mourn it and are humbled about it--you may know that God has poured the holy oil without measure upon Christ on purpose that He might deal out mercy to such poor creatures as you are! What a blessing this is! How we ought to rejoice in the anointing of Jesus, since it benefits such despicable objects! We who feel that we are such objects ought to cry, "Hosannah! Blessed is He that comes in the name of the Lord!"
 
-We must now CONSIDER OUR LORD'S DESIGN AND OBJECTIVE IN THUS PREACHING THE GOSPEL TO THE POOR AND THE MEEK.
+We must now CONSIDER OUR LORD's DESIGN AND OBJECTIVE IN THUS PREACHING THE GOSPEL TO THE POOR AND THE MEEK.
 
 It was, you observe, that he might bind up the brokenhearted. "He has sent Me to bind up the brokenhearted."
 
@@ -42,13 +42,13 @@ It is a beautiful figure, this binding up--as though the Crucified One took the 
 
 AN ADDRESS DELIVERED BY C. H. SPURGEON,
 
-AT THE METROPOLITAN TABERNACLE, NEWINGTON, AT A PRAYER MEETING FOR SABBATH SCHOOLS IN THE YEAR 1877.
+AT THE METROPOLITAN TABERNACLE, NEWINGTON, AT a PRAYER MEETING FOR SABBATH SCHOOLS IN THE YEAR 1877.
 
 "And Reuben answered them, saying, Spoke I not unto you, saying, Do not sin against the child, and you would not hear? Therefore, behold, his blood is now required of us."
 
 Genesis42:22.
 
-[A Sermon by C. H. Spurgeon upon the same text is #840, Volume 14--also entitled DO NOT SIN AGAINST THE CHILD.]
+[a Sermon by C. H. Spurgeon upon the same text is #840, Volume 14--also entitled DO NOT SIN AGAINST THE CHILD.]
 
 You know how Joseph's brothers, through envy, sold him into Egypt and how ultimately they were, themselves, compelled to go down into Egypt to buy corn. When they were treated roughly by the governor of that country, whom they did not know to be their brother, their consciences smote them and they said one, to another, "We are verily guilty concerning our brother, in that we saw the anguish of his soul when he besought us, and we would not hear. Therefore is this distress come upon us." While their consciences were thus accusing them, the voice of their elder brother chimed in, saying, "Said I not unto you, Do not sin against the child?" From which I gather that if we commit sin after being warned, the voice of conscience will be all the more condemning, for it will be supported by the memory of disregarded admonitions which will revive again--and with solemn voices say to us, "Said we not unto you, Do not sin against the child?" We who know what is due to children will be far more guilty than others if we sin against their souls. Wiser views as to the needs and hopes of the little ones are now abroad in this world than those which ruled the public mind 50 years ago--and we shall be doubly criminal if we now bring evil upon the little ones!
 

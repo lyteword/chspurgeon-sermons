@@ -8,7 +8,7 @@ Dear Friends, when we preach to you, we do, as it were, shoot arrows at a mark b
 
 As God shall enable me, by his Holy Spirit, I intend to describe the case of those who have been pierced by God's arrows. But I want, first, to speak of some arrows which do not come from God's quiver at all, but which, nevertheless, cause very much pain to some sensitive spirits. So, first, I am going to try to break the devil's arrows! Secondly, to endeavor to describe God's arrows. And then, thirdly, to seek to comfort those who have been wounded by these arrows.
 
-First, then, I am TO TRY TO BREAK SOME OF THE DEVIL'S ARROWS.
+First, then, I am TO TRY TO BREAK SOME OF THE DEVIL's ARROWS.
 
 I will venture to say that nine out of ten of the terrible feelings which men have when under conviction of sin are not the work of God's Spirit, but are the result of the uprising of their own unbelief stirred and agitated by the diabolic suggestions of Satan. He knows that it is "now or never" with them--if he can now drive them to despair and keep them from coming to Christ, he will have gained his end. But if now the anxious soul should find shelter and rest in the Atonement of Christ, the Prince of Darkness will have lost it forever and, therefore, he exerts all his power and stirs up all his fellow fiends to do their utmost to keep the poor soul in despair!
 
@@ -34,7 +34,7 @@ Truth?
 
 I do not know what other arrows the devil may have shot at any of you. He may, perhaps have told you that you have committed the unpardonable sin, but that is certainly more than he knows. If you now desire to be saved, you may depend upon it that you have not committed that sin which is unto death! And if you are now believing in the Lord Jesus Christ, you have the best possible proof that this sin cannot be laid to your charges, for whomever believes in Him is not condemned, but has everlasting life! Cling to the Cross of Christ and you shall never sink down to Perdition.
 
-Having thus tried to break some of the devil's arrows, I want, next, TO ENDEAVOR TO DESCRIBE SOME OF GOD'S ARROWS.
+Having thus tried to break some of the devil's arrows, I want, next, TO ENDEAVOR TO DESCRIBE SOME OF GOD's ARROWS.
 
 Here I will give you a piece of my own experience. When God began to deal with me, one of the first arrows that flew right into my heart was this, "You God see me." I recollected that God knew all about my sins, that He had seen them or heard them, and had noted them all down in His Book of Remembrance. I was greatly alarmed, for I had forgotten many of them and had dreamed that God also had forgotten them.
 
@@ -74,7 +74,7 @@ I am about to read a portion of Holy Scripture which may seem very strange to so
 
 Verse 1. I am the man that has seen affliction by the rod of His wrath. It is a mistake that most souls make when in trouble, to suppose that no others ever felt as they do. John Bunyan describes Christian as being very much comforted by hearing someone quoting Scripture as he went through the Valley of the Shadow of Death, for then he perceived that there were others in the same case with his own. Do not think, poor troubled Soul, that no one was ever so broken in pieces as you are--your path of sorrow is a well-trodden one,
 
-He has led me and brought me into darkness, but not into light A Hebrew method of saying that it was a thick darkness without any light, either star-light or moon-light. You who have passed through this state of conviction know what it means--no comfort from ordinances, no comfort from God's Word, no comfort from your daily mercies. Every stream of comfort seems dried up to you--and sin lies heavily upon you.
+He has led me and brought me into darkness, but not into light a Hebrew method of saying that it was a thick darkness without any light, either star-light or moon-light. You who have passed through this state of conviction know what it means--no comfort from ordinances, no comfort from God's Word, no comfort from your daily mercies. Every stream of comfort seems dried up to you--and sin lies heavily upon you.
 
 Surely against me is He turned; He turns His hand against me all the day. As if when a man is about to strike, he smites not with his open hand but turns his hand, so the Prophet says God did with him. He felt that he was being smitten with the heaviest blows that God seemed able to give.
 
@@ -106,7 +106,7 @@ MEMORY--THE HANDMAID OF HOPE.] Notice the gracious change that
 
 has taken place, as if the sun had risen after the blackness and gloom of the night! Now the birds of joy begin to sing and the flowers of hope begin to open their golden cups.
 
-It is of the LORD'S mercies that we are not consumed, because His compassion fails not Bad as our state is, we are not yet in Hell--we are not yet beyond the reach of hope!
+It is of the LORD's mercies that we are not consumed, because His compassion fails not Bad as our state is, we are not yet in Hell--we are not yet beyond the reach of hope!
 
 They are new every morning: great is Your faithfulness.We had new mercies this morning, and we have had fresh mercies this evening. God has not forgotten us! The very breath in our nostrils is a proof of His goodness to us. Let us, therefore, dear Friends, still hope for yet further favors from Him!
 
@@ -120,7 +120,7 @@ that he bear the yoke in his youth. [See Sermon #1291, Volume 22--THE BEST BURDE
 
 28-33. He sits alone and keeps silence, because he has borne it upon him. He puts his mouth in the dust so there may be hope. He gives his cheek to him that smites him: he is filled full with reproach. For the LORD willnot cast off forever: but though He causes grief, yet will He have compassion according to the multitude of His mercies. For He does not afflict willingly nor grieve the children of men. Unless He has some gracious motive for it, He never afflicts or grieves them, and when He does act thus, it is as when a father smites his child. It is because it must be done and not because he loves to do it. See, then, the great mercy of God! May it lead the sinner to repentance, yes, and lead us all to put our trust in the Lord!
 
-Jeremiah 31:22. For the LORD has created a new thing in the earth, A woman shall compass a man. Here is a prophecy of the birth of Immanuel, God With Us, born of a woman by the supernatural power of the Holy Spirit. Mary was indeed blessed among women and we rejoice in that Man who was thus miraculously born to be the Savior, Christ the Lord.
+Jeremiah 31:22. For the LORD has created a new thing in the earth, a woman shall compass a man. Here is a prophecy of the birth of Immanuel, God With Us, born of a woman by the supernatural power of the Holy Spirit. Mary was indeed blessed among women and we rejoice in that Man who was thus miraculously born to be the Savior, Christ the Lord.
 
 23-20. Thus says the LORD of Hosts, the God of Israel; As yet they shall use this speech in the land of Judah and in the cities thereof, when I shall bring again their captivity; The LORD bless you, O habitation of justice, and mountain of holiness. And there shall dwell in Judah itself, and in all the cities thereof together, husbandmen, and they that go forth with flocks. For I have satiated the weary soul, and I have replenished every sorrowful soul. There are good times in store for Israel! Jerusalem shall then be the "habitation of justice, and mountain of holiness."
 
@@ -134,7 +134,7 @@ Upon this I awaked, and beheld; and my sleep was sweet unto me. Jeremiah woke up
 
 But this shall be the Covenant that I will make with the house of Israel; after those days, says the LORD, I will put My Law in their inward parts, and write it in their hearts [See Sermons #1687, Volume 28--THE LAW WRITTEN IN THE HEART and
 
-#2992, Volume 52--GOD'S WRITING UPON MAN'S HEART.] Not on the tablets
+#2992, Volume 52--GOD's WRITING UPON MAN's HEART.] Not on the tablets
 
 [See Sermon #2436, Volume 41--"HOW GOOD TO THOSE WHO SEEK."]
 

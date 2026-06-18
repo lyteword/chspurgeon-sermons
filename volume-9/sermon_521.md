@@ -7,7 +7,7 @@ WE shall not attempt to discuss the question as to whether these magicians actua
 
 Without any preface, let me ask you, first of all, to observe this fact. When we have duly considered it, let us, in the second place, draw an inference from it. And then, in closing, let me endeavor to show some reasons why it is right that it should be so.
 
-Let us turn aside to see this great sight--the Divine triumphant over the diabolical--the spiritual subduing the natural--AARON'S ROD SWALLOWING ALL ITS RIVALS.
+Let us turn aside to see this great sight--the Divine triumphant over the diabolical--the spiritual subduing the natural--AARON's ROD SWALLOWING ALL ITS RIVALS.
 
 Let us take the case of the awakened sinner. That man was, a few days ago, as worldly, as carnal, as impassive as he well could be. If anyone should propose to make that man heavenly-minded, to lead him to set his affection upon things above, and not on things on the earth, the common observer would say, "Impossible! The man has no thought above what he shall eat, and what he shall drink, and how he shall be clothed--his heart is buried in a grave of cares. He rises early. He sits up late. He eats the bread of carefulness. He is glued and cemented to the world--as in old Roman walls, the cement has become so strong that the stone is no longer a separate piece, but has become a part of the wall itself--so this man is cemented to the world. He cannot be separated from it. You must break him in pieces with the hammer of death. You cannot separate him in any other way from the cares of life.
 
@@ -115,7 +115,7 @@ The man who has not consecrated the lap stone--who has not dedicated the counter
 
 I hope this may come home to some of you. And if it does, may it produce from this day forth a more thorough love to Jesus--a more practical way of showing a more entire devotedness to that great cause which is either an awful imposition, or else deserves to have our whole heart, our whole spirit, soul and body devoted to it.
 
-Now, I will close, by trying to GIVE SOME REASONS WHY I PUT THE SERVICE OF GOD SO PROMINENT, AND THINK THAT AARON'S ROD OUGHT TO SWALLOW UP ALL OTHER RODS.
+Now, I will close, by trying to GIVE SOME REASONS WHY I PUT THE SERVICE OF GOD SO PROMINENT, AND THINK THAT AARON's ROD OUGHT TO SWALLOW UP ALL OTHER RODS.
 
 What does the great Gospel revelation disclose to us? Does it not show us an awful danger and only one way of escape from it? Yonder is the place where the wrath of God burns without abatement, where souls suffer pangs indescribable. "To-phet is ordained of old. Yes, for the king it is prepared. He has made it deep and large: the pile there is fire and much wood. The breath of the Lord, like a stream of brimstone, does kindle it." Horrors, past imagination are revealed to us by the words of Jesus when He speaks of the worm that dies not, and of the fire that never shall be quenched.
 

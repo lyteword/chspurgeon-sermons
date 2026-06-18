@@ -90,7 +90,7 @@ What if somebody shall put his finger on your eyelids and close them in death an
 
 The ruins of lost innocence,
 
-A place of sorrow and decay--
+a place of sorrow and decay--
 
 The imprisoning stone is rolled away!" Therefore, comfort one another with these words and believe that the rest which Jesus gives us will be glorious, indeed!
 

@@ -19,7 +19,7 @@ So then, Beloved, let us never forget that all which Jesus endured came upon Him
 
 
 > Behold how every wound of His   
-> A precious balm distils,   
+> a precious balm distils,   
 > Which heals the scars that sin had made,   
 > And cures all mortal ills.'   
 

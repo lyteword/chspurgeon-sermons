@@ -4,7 +4,7 @@
 
 WHEN David wrote these words, he was not in a condition of ease and luxury. He was not in a position of assured safety, for he says in the one hundred and ninth verse, "My soul is continually in my hand." You know what we mean when we say that a man carries his life in his hand--that is to say, he expects death, he is in imminent peril--and may, at any moment, be cut off from his fellows. It was when David was in such a condition as that, hunted, as he tells us in another place, like a partridge upon the mountains, that he could say, "Your testimonies have I taken as an heritage forever." He was rich in his poverty, he was enthroned in his exile, he was happy in his sorrow and they who have enjoyed a similar experience in their times of distress know how this can be!
 
-With no further preface, I want to talk to you about our text under four heads, the first of which will be, LET US MAKE A MAP OF THIS ESTATE--"Your testimonies have I taken as an heritage forever."
+With no further preface, I want to talk to you about our text under four heads, the first of which will be, LET US MAKE a MAP OF THIS ESTATE--"Your testimonies have I taken as an heritage forever."
 
 There was David's heritage, that portion of goods that fell to him, that piece of goodly land that was his lot-- "Your testimonies." Ah, Brothers and Sisters, I cannot draw a complete map of this estate, it is so large, so wonderful, but, thank God, you can go and see it for yourselves! Walk over its broad acres, lie down in its green pastures, rest beside its still waters. It is, indeed, a wealthy country that is described in those two words, "Your testimonies."
 

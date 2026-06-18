@@ -44,7 +44,7 @@ I think there are some Christians who never see God as well as others do--I mean
 
 I remember telling you of a minister, who, calling on a sick woman, desired to leave a text with her for her private meditation. So, opening her old Bible, he turned to a certain passage which he found that she had marked with the letter P. "What does that P mean, my Sister?" he asked. "That means precious, Sir. I found that text very precious to my soul on more than one special occasion." He looked for another promise, and against this he found in the margin T and P. "And what do these letters mean, my good Sister?" They mean tried and proved, Sir, for I tried that promise in my greatest distress and proved it to be true. And then I put that mark against it so that the next time I was in trouble, I might be sure that that promise was still true." The Bible is scored all over with those Ts and Ps by generation after generation of Believers who have tested the promises of God and proved them to be true!. May you and I, Beloved, be among those who have thus tried and proved this precious Book!
 
-Our second remark was that THE PURIFICATION OF THE HEART ADMITS US TO A MOST GLORIOUS SIGHT--"The pure in heart shall see God"
+Our second remark was that THE PURIFICATION OF THE HEART ADMITS US TO a MOST GLORIOUS SIGHT--"The pure in heart shall see God"
 
 What does that mean? It means many things. I will briefly mention some of them. First, the man whose heart is pure, will be able to see God in Nature. When his heart is clean, he will hear God's footfall everywhere in the garden of the earth in the cool of the day. He will hear God's voice in the tempest, sounding in peal on peal from the tops of the mountains. He will behold the Lord walking on the great and mighty waters, or see Him in every leaf that trembles in the breeze. Once get the heart right and then God can be seen everywhere! To an impure heart, God cannot be seen anywhere, but to a pure heart God is to be seen everywhere--in the deepest caverns of the sea, in the lonely desert, in every star that gems the brow of midnight!
 
@@ -64,7 +64,7 @@ And, lastly, the time shall come when those who have thus seen God on earth shal
 
 "Far from a world of grief and sin, With God eternally shut in"-- the pure in heart shall fully understand what it is to see God/May that be your portion, Beloved, and mine, also, forever and ever!
 
-Now, lastly, and very briefly, I have to remind you that THIS PURIFICATION OF THE HEART IS A DIVINE
+Now, lastly, and very briefly, I have to remind you that THIS PURIFICATION OF THE HEART IS a DIVINE
 
 WORK.
 

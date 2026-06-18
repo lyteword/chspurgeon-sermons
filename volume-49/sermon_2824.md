@@ -8,7 +8,7 @@ These Roman soldiers had in them, as men, a spirit which I sometimes grieve to s
 
 Now we will leave those Roman soldiers and the Jews that had a hand in persecuting Him, for he that delivered Him unto them had committed even greater sin. Neither Pilate nor his legionaries were the chief criminals at that time, as we well know. From this incident in our Lord's life, I think we may learn, first, lessons for the heart. And, secondly, lessons for the conscience.
 
-First, we have here A SET OF LESSONS FOR OUR HEART.
+First, we have here a SET OF LESSONS FOR OUR HEART.
 
 Beloved, we begin with this one. Where I see the great Substitute for sinners put to such shame, scorn and ridicule, my heart says to itself, "See what sin deserves?" There is nothing in the world that more richly deserves to be despised, abhorred, condemned, than sin! If we look at it aright, we shall see that it is the most abominable thing, the most shameful thing in the whole universe. Of all the things that ever were, this is the thing which most of all deserves to be loathed
 
@@ -36,7 +36,7 @@ And so, at the back of persecution, at the back of heresy, at the back of the ha
 
 Have all our hearts truly learned these four grand lessons--the shamefulness of sin--the condescension of our Lord--the immeasurable love which made Him so condescending--and the ineffable glory which hides behind the skirts of all this shame and sorrow? If not, let us beseech the Holy Spirit to teach them to us.
 
-Now I want to give you, from this same incident, A SET OF LESSONS FOR YOUR CONSCIENCE.
+Now I want to give you, from this same incident, a SET OF LESSONS FOR YOUR CONSCIENCE.
 
 And, first, it is a very painful reflection--let your conscience feel the pain of it--that Jesus Christ can still be mocked. He has gone into the heavens and He sits there in Glory, but yet, spiritually, so as to bring great guilt upon him who does it, the glorious Christ of God can still be mocked and He is mocked by those who deride His people. Now, men of the world, if you see faults and failings in us, we do not wish you to screen us. Because we are the servants of God, we do not ask for exemption from honest criticism. We do not desire that our sins should be treated with more leniency than those of other men, but, at the same time, we bid you beware that you do not slander, scandalize and persecute those who
 

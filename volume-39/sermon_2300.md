@@ -1,4 +1,4 @@
-# Sermon 2300 | The Whole Gospel In A Single Verse
+# Sermon 2300 | The Whole Gospel In a Single Verse
 
 "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners, of whom I am chief." 1 Timothy 1:15.
 
@@ -6,7 +6,7 @@ I SPOKE, yesterday, with a brother minister who had been a pastor in America, an
 
 Now, this text contains the Gospel in brief, and yet I may say that it contains the Gospel in full. If you get condensed notes of a sermon or a speech, you often miss the very soul and marrow of it, but here you get all the condensation possible, as if the great Truths of the Gospel were pressed together by a hydraulic ram, and yet there is not a particle of it left out. It is one of the "little Bibles," as Luther used to call them--the Gospel in a verse. The essence of the whole Bible is here-- "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief."
 
-Now I am going to be short upon each point and, therefore, I shall at once speak upon this first head. Here is OUR NAME, OR A BROAD WORD OF DESCRIPTION--"Christ Jesus came into the world to save sinners." One of the most important questions that can be asked by any man is this, For whom is salvation meant? The answer we have is given by the Holy Spirit in the Inspired Word of God--"Christ Jesus came into the world to save sinners.''"
+Now I am going to be short upon each point and, therefore, I shall at once speak upon this first head. Here is OUR NAME, OR a BROAD WORD OF DESCRIPTION--"Christ Jesus came into the world to save sinners." One of the most important questions that can be asked by any man is this, For whom is salvation meant? The answer we have is given by the Holy Spirit in the Inspired Word of God--"Christ Jesus came into the world to save sinners.''"
 
 Jesus Christ came to save sinners of all sorts. So long as you can come under the general description, "sinners," it matters not what shape your sin has taken. All men have, alike, sinned, and yet all have not sinned in the same way. They have all wandered the downward road and yet each one has gone a different way from all the rest. Christ Jesus came into the world to save respectable sinners and disreputable sinners! He came into the world to save proud sinners and despairing sinners! He came into the world to save drunks, thieves, liars, whoremongers, adulterers, murderers and such! Whatever sort of sin there is, this Word of God is wonderfully comprehensive and sweeping--"Christ Jesus came into the world to save sinners."
 
@@ -18,7 +18,7 @@ Notice, next, that Jesus came to save sinners without any other qualification. T
 
 "Come, humble sinner, in whose breast," and so on. I think the writer of that hymn put it--
 
-"Come, tremblingsinner, in whose breast A thousand thoughts revolve."
+"Come, tremblingsinner, in whose breast a thousand thoughts revolve."
 
 But when Jesus Christ invites sinners, He does it after this fashion, "Come, sinners." "Christ Jesus came into the world to save sinners." There is no adjective before the noun! There is no sort of qualification except that they are sinners.
 
@@ -34,7 +34,7 @@ Once more, Christ came to save sinners without strength. Sin brings death. Where
 
 save sinners." I know He did, for the first good desires are His gift. The first prayers are His own breath. The first sigh under the burden of sin is His own work. Jesus does it all! He came into the world to save us. "When we were yet without strength, in due time Christ died for the ungodly," those in whom there could not be any trace of goodness--"the un-godly"--those who were without God and without hope in the world. It is for such that Jesus Christ came into the world. I do not know how to set this gate open wider. I will take it right off its hinges and I will pull up post and bar and all and defy the very devils of Hell to come and shut this City of Refuge against any soul, here, that is a sinner! If you have sinned, behold, the voice of Everlasting Love speaks aloud to you, tonight, these words, "This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners."
 
-I must not dwell long on any one word in our text, so I pass to another. In the second place, here is OUR NEED, OR A WIDE WORD OF SALVATION. We poor sinners need saving and, "Christ Jesus came into the world to save sinners."
+I must not dwell long on any one word in our text, so I pass to another. In the second place, here is OUR NEED, OR a WIDE WORD OF SALVATION. We poor sinners need saving and, "Christ Jesus came into the world to save sinners."
 
 Jesus came to save. He did not come to condemn us. When God came down upon earth, it might have been thought that He must have come to condemn, for when He came down to look at the tower of Babel, and saw the sin of the world, He scattered the sinners upon the face of all the earth. Now, it might be thought that if He came on earth, He would be shocked and horrified by a personal investigation of sin and then would say, "I will destroy the world." But Jesus said, "The Son of Man is not come to destroy men's lives, but to save them." "God sent not His Son into the world to condemn the world; but that the world, through Him, might be saved." If you get condemnation out of the Gospel, you put the condemnation into it yourselves! It is not the Gospel, but your rejection of it, that will condemn you. Therefore, I pray God that you may never put from you the Word of God and judge yourselves unworthy of everlasting life, as they did to whom Paul and Barnabas preached at Antioch.
 
@@ -66,7 +66,7 @@ More happy, but not more secure,
 
 The glorified spirits in Heaven." A very important part of the work of Grace is this. To start a man right is but little, but to keep that man holding on, even to the end--this is a triumph of Almighty Grace, and this is what Christ has come to do! Jesus came into the world, not to half save you, not to save you in this direction or that, and in this light or that, but to save you from your sin, to save you from an angry temper, to save you from pride, to save you from strong drink, to save you from covetous-ness, to save you from every evil thing--and to present you faultless before the Presence of His Glory with exceeding joy! This is a grand word, "Christ Jesus came into the word to save sinners." Oh, that you might believe it! I pray God that out of this congregation, which is wonderfully large for such a night, and yet small compared with our usual number on a Thursday evening, there may be very many who will say, "Yes, I believe that Jesus came to save sinners and I trust Him to save me." You will be saved the moment that you do that, for faith is the mark of His salvation, the proof that He has saved you!
 
-But now, thirdly, there is a name here. We have had our own name, sinners. Now here is HIS NAME, OR A GLORIOUS WORD OF HONOR--"Christ Jesus came into the world to save sinners." Christ Jesus! Not an angel, not the best of men, but Christ Jesus!
+But now, thirdly, there is a name here. We have had our own name, sinners. Now here is HIS NAME, OR a GLORIOUS WORD OF HONOR--"Christ Jesus came into the world to save sinners." Christ Jesus! Not an angel, not the best of men, but Christ Jesus!
 
 "Christ" means, as you know, Anointed, that is, God sent Him, anointed by His own Spirit, prepared, fitted, qualified and endowed for the work of saving. Jesus comes not without an anointing from God! He is not an amateur Savior, come on His own account, without any commission or authority, but God has anointed Him in order that He may save sinners. When He went into the synagogue at Nazareth on the Sabbath, He applied to Himself the words of the Prophet Elijah, "The Spirit of the Lord is upon Me, because He has anointed Me to preach the Gospel to the poor; He has sent Me to heal the broken-hearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to preach the acceptable year of the Lord."
 
@@ -76,7 +76,7 @@ everlasting life." Christ Jesus came into the world to save sinners, "very God o
 
 I cannot dwell longer on that part of my theme, but I wish that you who are seeking salvation would let your thoughts dwell upon it until you have truly trusted Him as your Savior.
 
-The fourth thing in the text is HIS DEED, OR A SURE WORD OF FACT. "Christ Jesus came into the world."
+The fourth thing in the text is HIS DEED, OR a SURE WORD OF FACT. "Christ Jesus came into the world."
 
 We have not to look to what He will do to save sinners, for He has done it!
 
@@ -94,7 +94,7 @@ I do not feel that I have any need to find any words of mine to try to garnish t
 
 Now, if He does not save sinners, His coming here is a failure. Do you believe, can you imagine, that Christ's coming into the world could be a failure? In my very soul I believe that all He meant to accomplish by His coming here He will accomplish--that no man shall ever be able to point to any failure in this grandest of Divine enterprises! There is no failure in Creation--there will be no failure in Providence! And when the whole story is ended, there will be no failure in this great work of Redemption! "Christ Jesus came into the world to save sinners," and sinners shall be saved. Will you be among them, my dear Hearer? Why should you not be among them?
 
-Once more. We have here, in the fifth place, OUR ACCEPTANCE, OR A WORD OF PERSONALITY. The
+Once more. We have here, in the fifth place, OUR ACCEPTANCE, OR a WORD OF PERSONALITY. The
 
 Apostle says, "Christ Jesus came into the world to save sinners, of whom I am chief." I am not going to dispute with the Apostle and yet, if he were here, I should be a little dubious as to his right to the title of, "chief of sinners," and I would ask him whether, if he were chief, I was not the next. I suppose that there are many here who would say, "Paul sinned no more grievously than we did before our conversion." I remember, in preaching once, I said that if I ever got to Heaven, those lines would be true of me--
 

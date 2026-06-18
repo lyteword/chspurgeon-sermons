@@ -31,7 +31,7 @@ Praise the God of Glory who loved you before the foundation of the world! Praise
 
 Sing you also unto the Son. Never fail to adore the Son of God who left the royalties of Heaven to bear the indignities of earth. Adore the Lamb slain! Kneel at the foot of the Cross and praise each wound, and magnify the Immortal who became mortal for our sakes--
 
-"Glory to You, great Son of God! From whose dear wounded body rolls A precious stream of vital blood Pardon and life for dying souls."
+"Glory to You, great Son of God! From whose dear wounded body rolls a precious stream of vital blood Pardon and life for dying souls."
 
 And, then, sing you to the Holy Spirit! Let us never fail in praising Him. I am afraid we often do. We forget Him too much in our sermons, our prayers and our hymns--or we mention Him, perhaps, as a matter of course, with formal expressions rather than with feelings of the most intense fervor. Oh, how our hearts are bound reverently to worship the Divine Indweller who, according to His abundant mercy, has made our bodies to be His Temple wherein He deigns to
 

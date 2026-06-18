@@ -81,7 +81,7 @@ Now, if this is the experience of all saints, and if no sinner living will dare 
 
 All human work which does not begin and end in the Lord Jesus must be a failure. All your works have been failures with you up to the present and so it will be to the end of the chapter. Give it up and God help you to try His method, for it is sure and efficacious.
 
-Now, with very great brevity, I will bring you to the third point of the sermon which is that THE SOUL'S SORROW WILL CONTINUE TO INCREASE SO LONG AS IT RELIES UPON ITS OWN EFFORTS. What is the effect of all that the creature does before it believes in Christ? It may be overruled for good, but much of its effect is mischievous. The good effect which flows from it lies in this--the more a man strives to save himself, the more convinced will he become of his own impotence and powerlessness.
+Now, with very great brevity, I will bring you to the third point of the sermon which is that THE SOUL's SORROW WILL CONTINUE TO INCREASE SO LONG AS IT RELIES UPON ITS OWN EFFORTS. What is the effect of all that the creature does before it believes in Christ? It may be overruled for good, but much of its effect is mischievous. The good effect which flows from it lies in this--the more a man strives to save himself, the more convinced will he become of his own impotence and powerlessness.
 
 I thought that I could turn to God whenever I pleased till I tried to turn to Him. I thought repentance a very easy thing till I began to repent. I dreamed that faith in Christ must be mere child's play till I had to groan, "Lord, help my unbelief!" As for the Law, when we attempt to keep it, we groan under a heavy burden which we have no strength to bear--
 

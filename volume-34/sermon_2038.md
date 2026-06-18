@@ -35,7 +35,7 @@ One word--one solemn word here, which I would speak with my whole soul. Remember
 
 But, dearly Beloved, if you do know the Lord--and I trust that many here do, indeed, know Him--then it is certain that He has manifested Himself to you. Wondrous love! Lord, how is it that You will manifest Yourself to us? You have looked to Him. You have trusted in Him. You have lived upon Him. And all this because He has remembered you in your low estate. You remember Him with joy at this moment because of your past experience of Him. He is so dear to you that you must remember Him. You could not live without Him. He is all your salvation and all your desire. Well, then, it is for you to come to this festival and do this in remembrance of Him.
 
-My first point shall be that THE MAIN OBJECT OF THE LORD'S SUPPER IS EVIDENTLY THAT WE SHOULD REMEMBER CHRIST BY IT. Notice this particularly. It is not that you should call to mind a doctrine-- though I would not have you ignorant or unmindful of any Truth of God which the Spirit of God has revealed. Neither is it that you should be mindful of a precept, though, Beloved, I would have you be careful that in all things you do your
+My first point shall be that THE MAIN OBJECT OF THE LORD's SUPPER IS EVIDENTLY THAT WE SHOULD REMEMBER CHRIST BY IT. Notice this particularly. It is not that you should call to mind a doctrine-- though I would not have you ignorant or unmindful of any Truth of God which the Spirit of God has revealed. Neither is it that you should be mindful of a precept, though, Beloved, I would have you be careful that in all things you do your
 
 Savior's will. But the essence of your business at His table is, "This do in remembrance of Me," that is, of Himself--of His own blessed Person.
 

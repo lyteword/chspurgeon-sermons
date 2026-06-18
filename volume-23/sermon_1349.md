@@ -76,7 +76,7 @@ What is stronger than the power of love--love which makes the most obdurate at l
 
 So, then, I say, as we leave this point, Brothers and Sisters, remember humbly and hopefully that the battle is not yours after all! The Lord has undertaken the conflict and He will gain the victory! The conquest of sin is to be achieved by the Almighty--you are to wrestle and contend--but God in you is the winner of the contest! Therefore, since God is with you, nothing is impossible! There is no constitutional fault which you cannot remedy! There is no strong passion which you cannot check! There is no inward desire, however fierce, which you cannot, at last, destroy! Have courage! High degrees of sanctity are possible to you, now that God is with you. Despair of nothing! Doubt not, for in all things you shall be more than conquerors through Him that loves you! Only let your faith continually fling herself upon the Omnipotence of God and you shall see that He will purify your hearts.
 
-Thirdly, let us consider that THE SEAT OF FAITH'S ACTION is primarily the heart--"purifying their
+Thirdly, let us consider that THE SEAT OF FAITH's ACTION is primarily the heart--"purifying their
 
 hearts." I will not speak upon this topic more than to outline what I would have said had I been able to utter my words with greater rapidity. Infirmities of voice are a sad hindrance to ministers--pray that they may be removed, for in my case, at least, the brain is slow when the speech is hampered.
 
@@ -92,7 +92,7 @@ If, first of all, we believe that Jesus is the Christ and come to rest in Him, t
 
 Only the living faith which works upon the heart and influences the desires and the affections can be the faith of God's elect. A moonlight faith, which has light but no warmth, is a thing of the night and is not the faith of the children of the day. Faith which lives in the cold attic of the brain and never descends into the parlor and banqueting room of the heart, will starve with cold--and it is not the life which the Holy Spirit works in man. Judge what I say, but if you forget all, still remember that faith stands first and then the heart's purification follows as a consequence. Never put the cart before the horse, nor the effect before the cause! Do not expect the fruit of holiness without the root of faith, nor try to increase purity, which is a result, without first strengthening the faith which is its original.
 
-Lastly, let us consider THE MODE OF FAITH'S OPERATION--how does Faith go to work to purify the
+Lastly, let us consider THE MODE OF FAITH's OPERATION--how does Faith go to work to purify the
 
 heart? Observe, dear Friends, first, that Faith believes in sin as sin and sees the horror of it as an offense against a holy and gracious God in whom she devoutly believes. Faith believes in Hell and sees the "smoke of its torments going up forever and ever." Faith believes in the worm that dies not and the fire that never can be quenched." Faith, "the evidence of things not seen," places before the soul, in dread array, the pomp of that tremendous day when Christ, with clouds, shall come, so that the soul sees sin to be an exceedingly dreadful and damnable thing and turns to God for deliverance from it--this is one element in the purification of the soul.
 

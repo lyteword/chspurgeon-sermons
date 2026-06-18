@@ -21,7 +21,7 @@ And yet more I think we may add, we have fellowship with God in the most promine
 
 But to proceed a step further: we have a most divine and precious communion with the Father in the objects of his love. When two persons love the same thing, their affection becomes a tie between them. The two may love each other, but when in the course of providence, children are brought into the house, their children become another bond between their parents, each of them mutually giving their hearts to their little ones, feel that their hearts are yet more fully given the one to the other. Now, there is a tie between God the Father and our souls, for did not he say, "This is my beloved Son, in whom I am well pleased?" And cannot you and I add, "Yes, he is our beloved Savior, in whom we are well pleased?" Is it not written, "It pleased the Father to bruise him?" And do we not feel that ye have found a divine pleasure and satisfaction in looking into his wounds, his agonies, and his death? And has not Father determined to glorify his Son Jesus? And is not the fondest thought of our heart that we may help to glorify him here on earth, and may spread his glories even in heaven, by telling to the angels, and principalities, and powers, the height and depth of his lovingkindness? Does the Father love the Son?--even so do we love him, not to the same infinite extent, for we are finite beings, yet with sincerity, even as the Father loves Jesus, so sincerely do we love him--
 
-> A very wretch, Lord! I should prove,   
+> a very wretch, Lord! I should prove,   
 > Had I no love for thee;   
 > Rather than not my Savior love,   
 > O may I cease to be!   

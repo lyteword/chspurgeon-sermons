@@ -118,7 +118,7 @@ nor mighty in prayer, nor well taught in Scripture, nor useful in your lives--I 
 
 You do not seek Him with a deep sense of your need of Him. If you, being evil, give your children bread, how much more will God give you the Spirit? And as you, being evil, do not mock your child by putting him off without the bread, and giving him something else, neither will your heavenly Father. He will give you the real Spirit--not enthusiasm that might mislead you! Not fanaticism that might injure you! Not self-conceit that might become like a deadly scorpion to you--but He promises to give His own gentle, truthful, infallible Holy Spirit to them that ask Him.
 
-Now for our last point. THE BEST OF PRAYERS, WHICH IS SURE TO BE HEARD, IS ALSO A MOST
+Now for our last point. THE BEST OF PRAYERS, WHICH IS SURE TO BE HEARD, IS ALSO a MOST
 
 COMPREHENSIVE ONE. Turn to the parallel passage in the Gospel of Matthew (7:11). Note that Matthew says nothing about the egg. And then read the eleventh verse, "If you being evil know how to give good gifts unto your children, how much more shall your Father which is in Heaven give good things to them that ask Him?"
 

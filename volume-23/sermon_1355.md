@@ -104,7 +104,7 @@ I sometimes tell a story to illustrate this. It is a simple enough tale, but it 
 
 Now, simple as the story is, that is just the philosophy of a sinner's faith in Christ. As the dog mastered the man by confiding in him, so a poor guilty sinner does, in effect, master the Lord, Himself, by trusting Him when he says, "Lord, I am a poor dog of a sinner and You might drive me away, but I believe You to be too good for that. I believe You can save me, and lo, I trust myself with You. Whether I am lost or saved, I trust myself with You." Ah, dear Heart, you will never be lost if you thus trust! He who trusts himself with Jesus has given the answer to the question, "Do you believe that I am able to do this?" and there is nothing now left but for him to go his way and rejoice, for the Lord has opened his eyes and saved him!
 
-Now, thirdly, THAT QUESTION WAS A VERY REASONABLE ONE. "Do you believe that I am able to do
+Now, thirdly, THAT QUESTION WAS a VERY REASONABLE ONE. "Do you believe that I am able to do
 
 this?" Just a minute, let me show that it was a very reasonable question for Christ to put--and equally reasonable for me to urge home upon many here present. Our Lord Jesus might have said, "If you do not believe that I am able to do this, why did you follow Me? Why did you follow Me more than anybody else? You have been after Me down the streets and you have come into this house after Me. Why have you done this if you do not believe that I am able to open your eyes?"
 
@@ -128,7 +128,7 @@ Say it and mean it! Say it decidedly and distinctly, with your whole heart, "Yes
 
 That is the kind of answer which I long to get from you all! May the Spirit of God produce it!
 
-Then see OUR LORD'S RESPONSE to their answer. He said, "According to your faith be it unto you." As much as if He had said--If you believe in Me there is light for your blind eyes. So true the faith, so true the sight. If you believe decidedly and fully, you shall not have one eye opened, or both eyes half opened, but all your sight shall be given to you. Decided faith shall clear away every speck and make your vision strong and clear. If your answer is quick, so shall My answer be. You shall see in a moment, for you at once believed.
+Then see OUR LORD's RESPONSE to their answer. He said, "According to your faith be it unto you." As much as if He had said--If you believe in Me there is light for your blind eyes. So true the faith, so true the sight. If you believe decidedly and fully, you shall not have one eye opened, or both eyes half opened, but all your sight shall be given to you. Decided faith shall clear away every speck and make your vision strong and clear. If your answer is quick, so shall My answer be. You shall see in a moment, for you at once believed.
 
 The Lord's power just kept touch with their faith. If their faith was true, His cure was true. If their faith was complete, His cure was complete. And if their faith said, "yes," at once, He give them sight at once. If you are a long while in saying, "yes," you will be a long while in getting peace. But if you say, tonight, "I will venture it, for I see it is so. Jesus must be able to save me. I will give myself up to Him." If you do that at once you shall have instantaneous peace--yes, in that very seat, young man, you who are burdened tonight shall find rest! You shall wonder where the burden has gone, and look round and find that it has vanished, because you have looked to the Crucified One and trusted all your sins with Him.
 

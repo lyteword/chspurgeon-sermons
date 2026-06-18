@@ -76,7 +76,7 @@ Now as we come to the Table of our Lord, let us come with deep solemnity remembe
 
 EXPOSITION BY C. H. SPURGEON: PSALM 72
 
-A Psalm for Solomon.
+a Psalm for Solomon.
 
 This was David' s dying bequest to his son, Solomon--but a greater than Solomon is here, for this Psalm concerns the reign, triumph and everlasting dominion of our Lord Jesus Christ!
 
@@ -102,7 +102,7 @@ Yes, all kings shall fall down before Him: all nations shall serve Him. There is
 
 13. For He shall deliver the needy when he cries, the poor also, and him that has no helper He shall spare the
 
-poor and needy, and shall save the souls of the needy. [See Sermon #1037, Volume 18--THE POOR MAN'S FRIEND.] Now, needy one, here is a promise for you! Is there one here that has no helper? Then let that one know that Christ is the Friend of the friendless and the Helper of the helpless!
+poor and needy, and shall save the souls of the needy. [See Sermon #1037, Volume 18--THE POOR MAN's FRIEND.] Now, needy one, here is a promise for you! Is there one here that has no helper? Then let that one know that Christ is the Friend of the friendless and the Helper of the helpless!
 
 14-16. He shall redeem their soul from deceit and violence: and precious shall their blood be in His sight. And He shall live, and to Him shall be given of the gold of Sheba: prayer also shall be made for Him continually; and daily shall
 
@@ -114,4 +114,4 @@ The fruit thereof shall shake like Lebanon. Just as there are peculiar noises he
 
 And they of the city shall flourish like grass of the earth. They shall be so many that one might as well attempt to count the blades of grass as to reckon the number of God's saints!
 
-17-20. His name shall endure forever: His name shall be continued as long as the sun: and men shall be blessed in Him: all nations shall call Him blessed. Blessed be the LORD God, the God of Israel, who only does wondrous things. And blessed be His glorious name forever: and let the whole earth be filled with His Glory. Amen, and Amen. The prayers of David, the son of Jesse are ended [See Sermons #27, Volume 1--THE ETERNAL NAME; #2187, Volume 37--JESUS--"ALL BLESSING AND ALL BLESSED"; #2451, Volume 42--"BLESSED IN HIM" and #129, Volume 3--DAVID'S DYING PRAYER.] He had nothing more to pray for! He had his heart's highest and best wish and, therefore, he closes his prayer where God had given him all that he could ask.
+17-20. His name shall endure forever: His name shall be continued as long as the sun: and men shall be blessed in Him: all nations shall call Him blessed. Blessed be the LORD God, the God of Israel, who only does wondrous things. And blessed be His glorious name forever: and let the whole earth be filled with His Glory. Amen, and Amen. The prayers of David, the son of Jesse are ended [See Sermons #27, Volume 1--THE ETERNAL NAME; #2187, Volume 37--JESUS--"ALL BLESSING AND ALL BLESSED"; #2451, Volume 42--"BLESSED IN HIM" and #129, Volume 3--DAVID's DYING PRAYER.] He had nothing more to pray for! He had his heart's highest and best wish and, therefore, he closes his prayer where God had given him all that he could ask.

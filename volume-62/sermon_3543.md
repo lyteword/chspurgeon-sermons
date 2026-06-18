@@ -10,7 +10,7 @@ Still, we have the same tale to tell. God has been faithful to us under all circ
 
 I purpose this evening to mention some of the occasions on which we have yet to speak on God's behalf. Somepreva-lent excuses for silence. Some imperative reasons for bearing testimony. And some pointed suggestions to those who feel compelled to open their mouth boldly for the honor of God. To my mind, it seems obvious that--
 
-THERE ARE CERTAIN OCCASIONS WHEN EVERY SAVED ONE SHOULD SPEAK ON GOD'S BEHALF.
+THERE ARE CERTAIN OCCASIONS WHEN EVERY SAVED ONE SHOULD SPEAK ON GOD's BEHALF.
 
 Is it not peculiarly incumbent upon us immediately after we have found peace by putting our trust in the Lord Jesus Christ? He that believes with his heart is bound, according to the Gospel rule, to confess also with his mouth. Have you heard the good tidings, the way of salvation, yourself--believed it and received the fullness of its blessing? Then you are forbidden to hide your light under a bushel! You are admonished to let it be seen by all that are in the house. You are not, as a coward, to conceal your allegiance to your Lord, but you are, as a warrior, to put on the King's livery, enter the ranks and join with the rest of His people. Is not this the message we are told to circulate, "He that believes and is baptized shall be saved"? Should you not, therefore, avow your faith and confess your Lord in Baptism? Then, having believed His Word and obeyed His precept, take up His Cross as one who is dead and buried with Him in the outward type and symbol--to follow wherever He leads! This seems to me, as I read the Word of God, to have been the course with all the early Christians. They believed and were baptized. They did not postpone or procrastinate, but no sooner
 
@@ -48,7 +48,7 @@ Or do you hesitate to speak for God because you are afraid your testimony would 
 
 Still, I can imagine that there are many here who are using some excuse or other, which they would not like to mention. They say they will wait a little--they will tarry awhile. Others say nothing, but are simply neglecting the duty. Well, I will not stay to argue with them, but I will rather pray that God the Holy Spirit may convince them, if they have been quickened from their spiritual death and are this day heirs of God, to face their incumbent duty and their blessed privilege in all ways--and on all prudent opportunities to speak on God's behalf. But there are--
 
-VALID REASONS WHY WE SHOULD SPEAK ON GOD'S BEHALF, to which I will now draw your attention.
+VALID REASONS WHY WE SHOULD SPEAK ON GOD's BEHALF, to which I will now draw your attention.
 
 Surely it is demanded of all Believers. We are bidden to confess with the mouth if we have believed with the heart. We have, moreover, the promise that, "he that with his heart believes, and with his mouth confesses, shall be saved." And this likewise, "He that confesses Me before men, him will I confess before My Father who is in Heaven." The alternative is fraught with judgment--"He that denies Me"--which signifies a non-confession--"he that denies Me before men, him will I deny before My Father which is in Heaven." If it is, then, the Lord's will, it is at your peril that you forget or neglect it! "He that knows his Master's will, and does it not, shall be beaten with many stripes." Hasten, then, you backward Christian! Make haste and delay not to keep this Commandment! Be convinced that you have yet to speak on God's behalf.
 

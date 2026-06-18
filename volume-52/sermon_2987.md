@@ -28,7 +28,7 @@ ever yet satisfied with honors. They are but as a puff of wind which can never f
 
 Others have said, "But surely there is something solid and satisfying in learning." Well, there is more to be said for this than for either of the other two things that I have mentioned and, as far as I am concerned, I would sooner seek satisfaction in my library than in the marble halls of the wealthy or in the courts of kings! To study, to read, to make discoveries, to furnish the brain, to enrich the mind--there is something worth doing in all this, yet Solomon, who carried out this idea as far as it could be carried out in his day, recorded his very emphatic verdict concerning it, "Much study is a weariness of the flesh." "Vanity of vanities, all is vanity," is very apt to also be your utterance with regard to study, for you always have the dreary thought that even if you could know more than all other men in the world, when your turn came to sleep in the grave, there would be no difference between you and the peasant of whom Wordsworth wrote--
 
-"A primrose by a river's brim A yellow primrose was to him, And it was nothing more."
+"A primrose by a river's brim a yellow primrose was to him, And it was nothing more."
 
 If the peasant rises no higher than that, however learned any of us may be, we have only risen a little above him for a time--and in the common dust we, too, shall sleep with him! If there were no eternal futures, what would all the joys of earthly knowledge be worth to us?
 
@@ -89,4 +89,4 @@ Dear young Friends, the way of the highest happiness is the way of absolute trus
 
 --Adapted from The C. HI. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

@@ -64,7 +64,7 @@ I cannot describe all the characters that may be suggested by those Samaritans, 
 
 Such is the pattern of the sham conversion which these people experienced.
 
-Now, lastly, we have got before us THEIR REAL STATE AND GOD'S VERDICT UPON IT. He says, "They feared not the Lord."
+Now, lastly, we have got before us THEIR REAL STATE AND GOD's VERDICT UPON IT. He says, "They feared not the Lord."
 
 No, they insulted the Lord. They did not fear Him. The men who worshipped God and worshipped Baal, worshipped God and Adrammelech were impiously daring! The Lord's claim is that He, only, is God, and He would have us know that the gods of the heathens are not gods. Our God made the Heavens, but as for these--they are the work of men's hands! One of the Roman emperors was willing to put up a statue of Christ in the Pantheon among all the rest of the gods and there were some who thought that that showed a kindly spirit. But what an insult to set up Christ by the side of lustful Jupiter and infamous Venus--and all the rest of these horrible gods which were only fit for a reformatory, the very best of them! And for the Samaritans to mention the name of Jehovah side by side with those cruel, bestial gods which they worshipped was not to do Him honor, but was to insult His sacred majesty! Even so, Sirs, to try and keep religion and yet to keep your sins is not to fear God but to insult Him! "Unto the wicked God says, What have you to do to declare My statutes or that you should take My Covenant in your mouth?" Keep clear of such trickery! If you must sin, do not add to your sins this needless and unnecessary one of making a hypocritical pretense of fearing the living God! Save yourself that superfluity of evil.
 

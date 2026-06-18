@@ -113,7 +113,7 @@ Who among them can declare this, and show us former things? Let them bring forth
 
 You are My witness, says the LORD. The chosen people of God have become witnesses for Jehovah that He, and He alone, is the true God. That He, and He alone has truly foretold the future. Let the heathen prove that their gods have done the same if they can--we know that they cannot. "You are My witnesses, says the Lord."
 
-And My servant whom Ihave chosen. [See Sermon #644, Volume 11--GOD'S WITNESSES] That great Servant of God, you know His name, even Christ Jesus the faithful and true Witness, bears better witness for God than the whole nation of the Jews, or the Lord's chosen people in all ages can bear!
+And My servant whom Ihave chosen. [See Sermon #644, Volume 11--GOD's WITNESSES] That great Servant of God, you know His name, even Christ Jesus the faithful and true Witness, bears better witness for God than the whole nation of the Jews, or the Lord's chosen people in all ages can bear!
 
 10, 11. That you may know and believe Me, and understand that I am He: before Me there was no God formed, neither shall there be after Me. I, even I, am the LORD; and beside Me there is no Savior. Look the whole world over and see where there is any Savior for sinners except Jesus Christ. Does any other religion even profess to have a Savior? Destroyers they have, but where is their Savior?
 

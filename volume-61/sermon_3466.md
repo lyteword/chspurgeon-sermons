@@ -50,7 +50,7 @@ that you will never believe a Doctrine simply because I utter it! Unless I can c
 
 But now a third meaning belongs to the text. A happy circumstance it is, this dark night, that the preacher does not need to use his manuscript, for if he did, his sermon would certainly come to an end right now. But here is this point, "Let no man beguile you of your reward." It may mean this--
 
-LET NO MAN ROB YOU OF THE PRESENT REWARD WHICH YOU HAVE IN BEING A CHRISTIAN.
+LET NO MAN ROB YOU OF THE PRESENT REWARD WHICH YOU HAVE IN BEING a CHRISTIAN.
 
 Let no man deprive you of the present comfort which your faith should bring to you. Let me, just for a few minutes, have your attention while I speak upon this. Dear Brothers and Sisters, you and I, if we are believers in Christ, are this day completely pardoned. There is no sin in God's book against us. We are wholly and completely justified! The righteousness of Jesus Christ covers us from head to foot and we stand before God as if we had never sinned! Now let no man rob you of this reward. Do not be tempted by anything that is said to doubt the completeness of a believer in Christ. Hold this, and as you hold it, enjoy it! Do not let the man whom you have most to fear, beguile you. Even though conscience should upbraid you and you should have many grave reasons for doubt, as you imagine, yet if you believe in Jesus, stand to it--"There is, therefore, now no condemnation to me, for I am in Christ Jesus! He that believes in Him is not condemned! I have believed and I am not condemned. Neither will He permit condemnation to be thundered against me, for Christ has borne my sin for me and I am clear in Him." Let no man beguile you of the reward of feeling that you are complete in Christ!
 

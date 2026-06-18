@@ -82,7 +82,7 @@ Verse 1. Therefore seeing we also are compassed about with so great a cloud of w
 
 Looking unto Jesus the Author and Finisher of our faith; who for the joy that was set before Him endured the Cross, despising the shame, and is set down at the right hand of the Throne of God. His race is complete. His wrestling is over, so He sits down with the great Judge of All as the One who has won His crown forever. Let us look to Him. [See Sermon
 
-#1073, Volume 18--A HONEYCOMB]
+#1073, Volume 18--a HONEYCOMB]
 
 For consider Him that endured such contradiction of sinners against Himself lest you be wearied and faint in your
 
@@ -124,7 +124,7 @@ come short of the Grace of God and, as it were, fall back. Paul is still keeping
 
 to an innumerable company of angels, to the general assembly and Church of the first-born, which are written in Heaven, and to God, the Judge of All, and to the spirits of just men made perfect, and to Jesus, the Mediator of the New Covenant, and to the blood of sprinkling, that speaks better things than that of Abel See that you refuse not Him that speaks. For if they escaped not who refused Him that spoke on earth, much more shall not we escape, if we turn away from Him that speaks from Heaven: whose voice then shook the earth: but now He has promised, saying, Yet once more I
 
-shake not the earth only, but also Heaven. And this word, Yet once more, signifies the removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain. All that is eternal must, of course, endure forever. The Everlasting Covenant, "the glorious Gospel of the blessed God," the purchase of the Savior's blood, the work of the Holy Spirit--all these shall stand fast forever, they can never be shaken." [See Sermon #690, Volume 12--A LESSON FROM THE GREAT PANIC] The Immutable Word spoken by
+shake not the earth only, but also Heaven. And this word, Yet once more, signifies the removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain. All that is eternal must, of course, endure forever. The Everlasting Covenant, "the glorious Gospel of the blessed God," the purchase of the Savior's blood, the work of the Holy Spirit--all these shall stand fast forever, they can never be shaken." [See Sermon #690, Volume 12--a LESSON FROM THE GREAT PANIC] The Immutable Word spoken by
 
 the mouth of the unchanging God lives and abides forever!
 

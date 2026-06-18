@@ -28,7 +28,7 @@ thousand such, should be constantly going up from our hearts to the Throne of Go
 
 state of prayer--you must not leave this undone. Oh, that we prayed more, that we set apart more time for it! Good Bishop Farrar had an idea in his head which he carried out. Being a man of some substance and having some 24 persons in his household, he divided the day and there was always some person engaged either in holy song or else in devout supplication through the whole of the 24 hours! There was never a moment when the censor ceased to smoke, or the altar was without its sacrifice. Happy shall it be for us when, day and night, we shall circle the Throne of God rejoicing, but till then, let us emulate the ceaseless praise of seraphs before the Throne of God, continually drawing near unto God and making supplication and thanksgiving.
 
-But to proceed to a second remark, dear Friends, I think it will be very clear, upon a little reflection, that we constantly restrain or neglect prayer BY NOT HAVING OUR HEARTS IN A PROPER STATE WHEN WE COME TO ITS EXERCISE.
+But to proceed to a second remark, dear Friends, I think it will be very clear, upon a little reflection, that we constantly restrain or neglect prayer BY NOT HAVING OUR HEARTS IN a PROPER STATE WHEN WE COME TO ITS EXERCISE.
 
 We rush into prayer too often. We would think it necessary, if we were to address the Queen, that our petition should be prepared. But often we dash before the Throne of God as though it were but some common house of call, without even having a thought in our minds of what we are going for. Now, just let me suggest some few things which I think should always be subjects of meditation before our season of prayer and I think if you confess that you have not thought of these things, you will also be obliged to acknowledge that you have restrained prayer.
 
@@ -58,7 +58,7 @@ Oh, for the Luthers that can shake the gates of Heaven by supplication! Oh, for 
 
 But you know, too, that all true prayer has thanksgiving in it. "Yours is the kingdom, and the power, and the glory, forever and ever." What prayer is complete without the doxology? And here, too, we restrain prayer. We do not praise, and bless, and magnify the Lord as we should. If our hearts were more full of gratitude, our expressions would be far more noble and comprehensive when we speak forth His praise. I wish I could put this so plainly that every Christian might mourn on account of his sin and mend his ways. But, indeed, it is only mine to speak--it is my Master's to open your eyes, to let you see and to set you upon the solemnly important duty of self-examination! In this respect, I am sure even the prayers that you and I have offered today may well cry out against us, and say, "You have restrained prayer."
 
-Yet, again, I fear we must all join in acknowledging A SERIOUS FAULT WITH REGARD TO THE AFTER-
+Yet, again, I fear we must all join in acknowledging a SERIOUS FAULT WITH REGARD TO THE AFTER-
 
 PART OF OUR PRAYERS. When prayer is done, do you not think we very much restrain it?
 

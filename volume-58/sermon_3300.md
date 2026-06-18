@@ -89,7 +89,7 @@ But they that are after the Spirit, the things of the Spirit Those in whom there
 
 6, 7. For to be carnally minded is death; but to be spiritually minded is life and peace. Because the carnal mind is
 
-enmity against God: for it is not subject to the Law of God, neither indeed can be. [See Sermons #20, Volume 1--the carnal mind ENMITY AGAINST GOD and #1878, Volume 32--A TRAITOR SUSPECTED AND CONVICTED.] The old nature never will obey the Law of God--it can never do so. What, then, is to be done with
+enmity against God: for it is not subject to the Law of God, neither indeed can be. [See Sermons #20, Volume 1--the carnal mind ENMITY AGAINST GOD and #1878, Volume 32--a TRAITOR SUSPECTED AND CONVICTED.] The old nature never will obey the Law of God--it can never do so. What, then, is to be done with
 
 it? Improve it? No, my Hearers, the only thing to be done with it is to let it die and then to bury it. In Baptism you have a
 

@@ -2,7 +2,7 @@
 
 "Hearken to Me, you that follow after righteousness, you that seek the LORD: look unto the rock where you were hewn, and to the hole of the pit where you were dug." Isaiah 51:1.
 
-[Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18--A BRIGHT LIGHT IN DEEP SHADES.]
+[Another Sermon by Mr. Spurgeon upon the same text, is #1050, Volume 18--a BRIGHT LIGHT IN DEEP SHADES.]
 
 THESE words were addressed to those who were already the people of God. No others could be thus exhorted to look unto the rock where they were hewn, since they have never been hewn from it. Nor to the hole of the pit where they were dug, for they still are in the hole of the pit. They are lost and ruined and they still remain in that condition. But the people of God have been broken off that rock by a blow from the Divine hammer. They have been brought up from the horrible pit by the might of the Divine arm and their feet are now firmly fixed upon the Rock of Ages!
 
@@ -101,7 +101,7 @@ And the Law is not of faith: but, the man that does them shall live in them. The
 
 Christ has redeemed us from the curse ofthe Law, being made a curse for us: for it is written, Cursedis everyone
 
-that hangs on a tree. [See Sermons #873, Volume 15--CHRIST MADE A CURSE FOR US and #2093, Volume 35--THE CURSE AND THE CURSE FOR US.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"--
+that hangs on a tree. [See Sermons #873, Volume 15--CHRIST MADE a CURSE FOR US and #2093, Volume 35--THE CURSE AND THE CURSE FOR US.] What a wonderful Doctrine this is! We should have he itated to use such language as this had not the Holy Spirit, Himself, moved Paul to write that Christ was "made a curse for us." He who is most blessed, forever. He who is the fountain of blessing and the channel of blessing to all who ever are blessed was, "made a curse for us: for it is written, Cursed is everyone that hangs on a tree"--
 
 That the blessing of Abraham might come on the Gentiles through Jesus Christ, that we might receive the promise ofthe Spirit through faith. Dear Friends, are you living by faith upon the Son of God? Are you trusting in God? Are you believing His promises? Some think that this is a very little thing, but God does not think so. Faith is a better index of character than anything else. The man who trusts his God and believes His promises is honoring God far more than is the man who supposes that by any of his own doings he can merit Divine approval and favor.
 

@@ -95,7 +95,7 @@ To crown all, to you, my Beloved Hearers, Christ has given you abundance of teac
 
 Now, this is meeting you, let your brains be the very smallest. This is coming down to you, though you sit on the lowest step of human intellect. Jesus Christ meets you just where you are.
 
-But yet again. I think I hear another say, "I am in despair, for I CANNOT FIND ANY REASON IN MYSELF, OR OUT OF MYSELF, WHY GOD SHOULD FORGIVE SUCH A PERSON AS I AM."
+But yet again. I think I hear another say, "I am in despair, for I CANNOT FIND ANY REASON IN MYSELF, OR OUT OF MYSELF, WHY GOD SHOULD FORGIVE SUCH a PERSON AS I AM."
 
 So then, you are in a hopeless state--at least you see no hope. The Lord meets you where you are, by putting the reason of your salvation altogether in Himself. Shall I remind you of one or two texts which will surely satisfy you? "I, even I, am He that blots out your transgressions." What for? "For My own sake." He cannot pardon you for your sake, you clearly see that. And you feel that He cannot pardon you for other people's sake. But for "My own sake," says He, "that I may glorify Myself." Not in you but in His own mighty breast He finds the motive, that He may make His own mercy illustrious. For His own sake He will do it.
 

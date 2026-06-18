@@ -8,7 +8,7 @@ THESE ancient words, so simple, yet so sweet, fascinate us with a potent hallowe
 
 We shall proceed accordingly, this evening, to talk to you upon four things. First, the nature of a true Church as it is depicted by Israel in the wilderness. Secondly, the obligation of such a Church to invite suitable persons to join it. Thirdly, the argument that the Church may use, and the inducements it will always have to offer in setting forth the benefits to be conferred on those who heartily respond. And fourthly, the scrupulous fidelity it behooves us, as members of the Church, to observe in keeping our pledge ever afterwards to seek the welfare of such as unite with our fellowship.
 
-First, then, WHAT ARE THE CHARACTERISTICS OF A TRUE CHURCH AS IT IS PICTURED BY ISRAEL IN THE WILDERNESS? We might prolong the answer to this question with many minute features, but it will be unnecessary, at present, to do more than give you a simple broad outline. The people in the wilderness were a redeemed people. They had been redeemed by blood and redeemed by power. The sprinkling of the blood of the paschal lamb over their lintels and their doorposts had secured their safety when the first-born of Egypt was slain.
+First, then, WHAT ARE THE CHARACTERISTICS OF a TRUE CHURCH AS IT IS PICTURED BY ISRAEL IN THE WILDERNESS? We might prolong the answer to this question with many minute features, but it will be unnecessary, at present, to do more than give you a simple broad outline. The people in the wilderness were a redeemed people. They had been redeemed by blood and redeemed by power. The sprinkling of the blood of the paschal lamb over their lintels and their doorposts had secured their safety when the first-born of Egypt was slain.
 
 Thus they were redeemed by blood, while wonderful miracles were worked throughout the whole land. And at the last, when threatened and pursued by their oppressors, the whole of the pride and pomp of Egypt was destroyed in the Red Sea. They were, indeed, redeemed by power. So, all the true members of God's Church understand what the blood of sprinkling means. They have enjoyed a Passover through it. God has passed over them--passed over them in mercy. Justice has executed its warrant upon the Person of the Lamb, and they have escaped--they have been redeemed by blood.
 
@@ -118,7 +118,7 @@ Of natives in the Holy Mount;
 
 As one new born and nourished there." Woe unto those who shall have no part with Israel in the day when the lots shall be divided and the portions shall be given! Woe unto such as shall be found among the Amalekites or Canaanites--strangers to the chosen seed! But happy shall all they be who have God to be their God, for their portion shall be bliss forever. Come you, therefore, with us, for whatever good the Lord shall do unto us you shall be a partaker in it.
 
-And now, lastly. All this being seriously pondered and clearly understood, the last point is a matter of very serious importance. Lest we should be found mere pretenders, LET ALL OF US WHO BELONG TO CHRIST'S CHURCH
+And now, lastly. All this being seriously pondered and clearly understood, the last point is a matter of very serious importance. Lest we should be found mere pretenders, LET ALL OF US WHO BELONG TO CHRIST's CHURCH
 
 TAKE CARE TO MAKE THIS ARGUMENT TRUE.
 

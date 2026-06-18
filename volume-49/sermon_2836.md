@@ -92,7 +92,7 @@ Now, may I write the word SINNER in great capital letters and ask, "Who is the m
 
 is true--I am a great sinner. The second is not true, for, because I am a great sinner, (and I thank you for telling me of it), and because I feel it, I shall be saved, for Christ came to save sinners! And so I cut your head off with your own sword." The greatest saints on earth often have come to this. "Oh," said the heir of Heaven, "I am afraid I am no child of God." And the shortcut to comfort is this, "Well, if I am not a child of God, I am a sinner and--
 
-"'A sinner is a sacred thing,
+"'a sinner is a sacred thing,
 
 The Holy Spirit has made him so.'" And straightway he comes to Christ, and cries--
 

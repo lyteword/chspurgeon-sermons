@@ -29,7 +29,7 @@ They may begin, even now, I say, to make ready for this festival and by Divine G
 
 So I will begin by saying, first, that as in the case before us in the text, so at this very time, THERE ARE
 
-SEASONS WHEN WE FEEL UNFIT FOR THE SACRED ORDINANCE OF THE LORD'S TABLE. It may be that at
+SEASONS WHEN WE FEEL UNFIT FOR THE SACRED ORDINANCE OF THE LORD's TABLE. It may be that at
 
 this hour there are many in the congregation who are not sanctified for the feast and are not cleansed according to the due order. I speak not of you all--there are choice spirits in this place who "walk in the light, as God is in the light," and have fellowship with God perpetually--so that the blood of Jesus cleanses them from all sin.
 
@@ -95,7 +95,7 @@ Confession made, let prayer ascend to Heaven--"The good Lord pardon every one of
 
 And therefore we are sure that He will sup with us--even with us--though we come blushingly and with shame upon our faces.
 
-We come, in the last place, to notice, that IN SO COMING, WE MAY EXPECT A BLESSING. If we do but come with a prepared heart and great longing of soul, even though we confess ourselves to be disorderly and have to plead with the Lord to forgive our unfitness, yet He will, without fail, meet with us and enrich us with the blessing which we seek. God's ways of acting are the same in all ages and if Hezekiah and his people won the blessing and "praised the Lord day by day, singing with loud instruments unto the Lord," even we may look for the same joy and holy exultation!
+We come, in the last place, to notice, that IN SO COMING, WE MAY EXPECT a BLESSING. If we do but come with a prepared heart and great longing of soul, even though we confess ourselves to be disorderly and have to plead with the Lord to forgive our unfitness, yet He will, without fail, meet with us and enrich us with the blessing which we seek. God's ways of acting are the same in all ages and if Hezekiah and his people won the blessing and "praised the Lord day by day, singing with loud instruments unto the Lord," even we may look for the same joy and holy exultation!
 
 We read that they "kept the feast of unleavened bread seven days with great gladness." Beloved, I want you to enter into that great gladness tonight! If there is any place where we are bound to be glad, it is at the Lord's Supper. Remember, this is no funeral feast--it is no memorial of one who lies rotting in the grave. Here we remember that Jesus died, but we also bear those prophetic words, "Until I come." He lives! And He shall shortly come with all the glory and majesty of Heaven to claim the kingdoms as His own and to judge the nations in equity. Therefore have we joy as we come to the Table.
 

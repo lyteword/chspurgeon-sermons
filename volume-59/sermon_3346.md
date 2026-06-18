@@ -24,7 +24,7 @@ As I begin to look at him in the light of my text, which is far above all the fi
 
 Thus much on that one thought. And now a second one. If there is another state, as you know there is, for body and soul--
 
-WHAT A LIGHT THAT CASTS UPON THIS PRESENT LIFE!
+WHAT a LIGHT THAT CASTS UPON THIS PRESENT LIFE!
 
 How little it makes it! How great it makes it! How little! Well, if I suffer, today. If my life should be made weary through weakness of body, or if it should be bitter through heart-toil, or if it should be severe through stern poverty, yet you know how we sing--
 
@@ -72,7 +72,7 @@ Why do you give so much attention to this world that is so soon to be left--and 
 
 Blessed Spirit, take away this folly and make men wise that they may be saved! Let this be our one great concern-- with holy care to make our calling and election sure, that when the Master comes we may not be found castaways--but may be gathered with His people! And now for the last point. I do not know whether you will set much store by this last thought, but it is this--considering that our friends whom we talk with everyday, with whom we go up and down to the market, and to the place of worship--considering that they are to live forever--
 
-SHOULD WE NOT ALTER A GREAT DEAL OF OUR PRESENT BEHAVIOR UNDER THE POWER OF THIS TRUTH?
+SHOULD WE NOT ALTER a GREAT DEAL OF OUR PRESENT BEHAVIOR UNDER THE POWER OF THIS TRUTH?
 
 What kind of behavior does this majestic fact inculcate towards our fellow men and women? Well, I think that Christian people ought always to act to one another as immortal beings. Now I know some who belong to one denomination who will scarcely speak to those of another section of Christ's one Church. Well, well, well--if you both ever get to Heaven, you will have to dwell together! Yet it seems as though you cannot live together on earth without bickering! Why can't you make up your minds to differ from each other, but always in a Christian spirit? I think, if I knew I had to live with a man, forever, one thing I would like to do would be to tell him perfectly honestly, with sincere love, all the Truths of God I knew--and I ought to be willing to hear from him all the Truth he thought he knew. I would not like him to say to me, "Now, you must not hold your views strongly--you must not speak of them, or try to propagate them." That would be as bad as telling me I must sin against God by restraining the light which He had given me! Neither ought I to say to him, "You shall not be free to hold and disseminate your views," for that would be to take upon myself a responsibility which does not belong to me!
 

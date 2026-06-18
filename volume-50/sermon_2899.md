@@ -52,7 +52,7 @@ Sometimes God sends the Truth very specially home to the heart and conscience of
 
 And when the eternal counsel so runs and the Divine decree so determines, so shall it be, for the Lord God is mighty to save and none shall be able to withstand the power of His Omnipotent Grace!
 
-Now, thirdly, I am going to keep to the same theme, yet to touch another string while I reply to this question-- IN WHAT POSITION DOES THE GOSPEL PLACE A MAN WHEN IT COMES TO HIM?
+Now, thirdly, I am going to keep to the same theme, yet to touch another string while I reply to this question-- IN WHAT POSITION DOES THE GOSPEL PLACE a MAN WHEN IT COMES TO HIM?
 
 The word of this salvation has been sent to many of you. In what position does it put you? Well, first, in a position of great indebtedness, for you owe--I dare not try to calculate how much--God for sending the Gospel to you. That there should be a Gospel to send to you--that Christ should be given for you--that His precious blood should be shed for you--that there should be full and free forgiveness for you, though you feel that you are altogether undeserving of it-- all this makes up a stupendous favor from God. May you never dare to thrust it from you!
 

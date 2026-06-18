@@ -18,7 +18,7 @@ I think, then, that to be tempted with painful temptations--those that goad the 
 
 This will suffice by way of preface to a little talk about temptation with a view of comforting any who are sorely tempted of Satan. I know that I am speaking to many such and I would repeat to them the words of my text--"There has no temptation taken you but such as is common to man: but God is faithful, who will not allow you to be tempted beyond what you are able, but with the temptation will also make the way of escape, that you may be able to bear it." Remember, dear tried Friend, that you must not sit down in despair and say, "I am greatly tempted, now, and I am afraid that I shall be tempted worse and worse until my feet shall slide, and I shall fall and utterly perish." Do not say as David did when he had been hunted like a partridge upon the mountains, "I shall now perish one day by the hand of Saul," but believe that the Lord, who permitsyou to be tempted, will deliver you in His own good time!
 
-Here is your first comfort. THERE HAS BEEN A LIMIT IN ALL YOUR FORMER TRIALS. "There has no temptation taken you but such as is common to man."
+Here is your first comfort. THERE HAS BEEN a LIMIT IN ALL YOUR FORMER TRIALS. "There has no temptation taken you but such as is common to man."
 
 Temptation has sometimes laid hold of you, like a murderer takes a man by the throat, all of a sudden. It has seized you--perhaps that is as correct a word as I can use--temptation has seized you, unawares, pinioned you and seemed to grip you tightly. And yet, up till now, the temptations you have had to endure have only been such as are common to man!
 

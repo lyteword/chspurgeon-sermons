@@ -74,7 +74,7 @@ Heard Him pray 'Forgive them, Father'
 
 And my wistful heart said fondly
 
-'Some of self and some of Thee,'
+'some of self and some of Thee,'
 
 Day by day His tender mercy,
 
@@ -99,7 +99,7 @@ They cannot speak in the same bold tones as they were known to do! All boasting 
 Now, as I have said, wind nor tempest could produce this in Elijah, but the still small voice of God did it at once--
 
 > Lord, You have won, at length I yield! My heart, by mighty Grace compelled, Surrenders all to You! Against Your terrors long I strove, But who can stand against Your love? Love conquers even me!   
-> If You had bid Your thunders roll, And lightning flash, to blast my soul, I still had stubborn been. But mercy has my heart subdued, A bleeding Savior I have viewed, And now I hate my sin.   
+> If You had bid Your thunders roll, And lightning flash, to blast my soul, I still had stubborn been. But mercy has my heart subdued, a bleeding Savior I have viewed, And now I hate my sin.   
 
 It appears, in reading the chapter, as if the Prophet did not come out of the cave until he heard that voice. He was called upon by God to come out and stand in the open before the Most High, but as I read it, he had not done this until the still small voice called him and drew him in the way of the command so that obedience is a second blessed effect. Shamefaced on account of his errors, he is now resolved to follow his Lord's word at once. And he stands at the opening of the cave to hear what God, the Lord, will speak. If the Spirit of God shall work effectually upon any of us, one of the first marks of it will be that while we are humbled because of sin, we shall grow earnest to work righteousness. Grace makes us tender in the matter of obedience.
 

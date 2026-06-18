@@ -93,7 +93,7 @@ Do you know what self-loathing means? Some of you do, I know. And I am sure that
 
 O you wonderfully wise men, you intellectual persons, who so modestly dub yourselves "thoughtful and cultured," you snuff out a poor evangelical Believer as if he were an idiot. May the Lord give you an hour of Job's, "I abhor myself," and then you will be bearable. But as you now are, you are a thief! While the dunghill is your proper place, you covet the Throne of the Almighty. But He will not yield it to you--you would improve upon Divine Revelation and revise infallible inspiration. But your boasting is vain. Oh that you had a manifestation of God and then you would know yourselves! God grant it to you for His mercy's sake!
 
-Thirdly, I have to show you that SUCH A SIGHT FILLS THE HEART WITH TRUE REPENTANCE. Job
+Thirdly, I have to show you that SUCH a SIGHT FILLS THE HEART WITH TRUE REPENTANCE. Job
 
 says, "I abhor myself and repent in dust and ashes." The word "myself has been added by the translators. And they could hardly have done otherwise. Job's expression, however, refers to all that had come out of himself or had lurked within himself. He abhorred all that he had been doing and saying. He says, "I abhor and repent in dust and ashes." What did he repent of? I think Job repented, first, of that tremendous curse which he had pronounced upon the day of his birth. It was terrible. See the third chapter.
 

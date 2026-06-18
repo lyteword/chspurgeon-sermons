@@ -23,7 +23,7 @@ light may penetrate their minds. May God who commanded the light to shine out of
 
 First, this morning I shall ask you to think upon Paul's words and consider his name for the Gospel--it is "the Gospel of the glory of Christ." Secondly, let us consider the light which streams from that Gospel of the glory of Christ. When we have thought of these two things, let us consider what to do with this light, this marvelous light of the Gospel of the glory of Christ.
 
-At the outset LET US CONSIDER PAUL'S NAME FOR THE GOSPEL--"the Gospel of the glory of Christ."
+At the outset LET US CONSIDER PAUL's NAME FOR THE GOSPEL--"the Gospel of the glory of Christ."
 
 It is very evident that the Apostle felt that the Gospel was solely and altogether of Christ. The Anointed was, in his view, the one subject of the glad tidings from beginning to end. When He was born the angels proclaimed good tidings of great joy to the sons of men. And after His death His human messengers went forth to all nations with messages of love. His death is the birth of our hope--His resurrection is the rising of our buried joy. His session at the right hand of God is the prophecy of our eternal bliss. Christ is the Author of the Gospel, the Subject of the Gospel and the end of the Gospel. His hand is seen in every letter of that wonderful Epistle of Divine love called the New Testament, or New Covenant.
 

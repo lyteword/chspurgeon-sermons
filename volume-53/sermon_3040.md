@@ -10,7 +10,7 @@ It was mainly in this sense that David said, "I am poor and needy; yet the Lord 
 
 Two things are noteworthy in the text. First, here, is a frank acknowledgment--"I am poor and needy." But, secondly, here is a comfortable confidence--"yet the Lord thinks upon me."
 
-First, here is A FRANK ACKNOWLEDGMENT.
+First, here is a FRANK ACKNOWLEDGMENT.
 
 Some men do not object to confess that they are poor in worldly goods. In fact, they are rather fond of pleading poverty when there is a collection coming, or a subscription list in dangerous proximity. Men have even gloried in history in the name of, "The Beggars." And, "silver and gold have I none," has been exalted into a boast! But spiritually, it is little less than a miracle to bring men to feel, first, and then to confess their poverty, for naked, and poor, and miserable as we are by nature, we are all apt enough to say, "I am rich and increased with goods." We cannot dig and to beg we are ashamed. If we did not inherit a penny of virtue from father Adam, we certainly inherited plenty of pride! Poor and proud we all are. We will not, if we can help it, take our seat in the lowest room, though that is our proper place. Grace alone can bring us to see ourselves in the glass of truth. To have nothing is natural to us, but to confessthat we have nothing is more than we will come to until the Holy Spirit has worked self-abasement in us. The emptiers must come up upon us for, though naturally as empty as Hagar's bottle, yet we boast ourselves to be as full as a fountain! The Spirit of God must take from us our goodly Babylonian garment, or we shall never consent to be dressed in the fair white
 
@@ -46,7 +46,7 @@ We are needy in every exercise. If we are called to preach, we have to cry, "Lor
 
 And, Brothers and Sisters, we are needy at all times. We never wake up in the morning but we need strength for the day--and we never go to bed at night without needing Grace to cover the sins of the past. We are needy at all periods of life. When we begin with Christ, in our young days, we need to be kept from the follies and passions which are so strong in giddy youth. In middle age our needs are still greater, lest the cares of this world should eat as does a canker. And in old age we are still needy and need Preserving Grace to bear us onward to the end. So needy are we that even in lying down to die, we need our last bed to be made for us by Mercy and our last hour to be cheered by Grace. So needy are we that if Jesus had not prepared a mansion for us in eternity, we would have no place to dwell! We are as full of needs as the sea is full of water! We cannot stay at home and say, "I have much goods laid up for many years," for the wolf is at the door and we must go out a-begging again! Our clamorous necessities follow us every moment and dog our heels in every place. We must take the two adjectives and keep them close together in our confession--"I am poor and needy."
 
-The second part of the subject is much more cheering. It is A COMFORTABLE CONFIDENCE--"yet the Lord thinks upon me."
+The second part of the subject is much more cheering. It is a COMFORTABLE CONFIDENCE--"yet the Lord thinks upon me."
 
 A poor man is always pleased to remember that he has a rich relative, especially if that rich relative is very thoughtful towards him, finds out his distress and cheerfully and abundantly relieves his needs!
 

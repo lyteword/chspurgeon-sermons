@@ -18,7 +18,7 @@ As He does so, let us not evade the question, or play tricks with it. Let not, a
 
 Now, coming to the text, I am going to try to do two things--first, to examine Peter's reply. And then, secondly, to invite you to examine yourselves to see whether you can each give the same reply.
 
-First, let us EXAMINE PETER'S REPLY. "Lord, You know all things; You know that I love You."
+First, let us EXAMINE PETER's REPLY. "Lord, You know all things; You know that I love You."
 
 I begin with the observation that it is quite clear, from his reply, that Peter was no Unitarian. He had no doubts about the Divinity of Christ, for he said to Him, "Lord, You know all things." Now, there is no being conceivable as knowing all things except God! And if it is true that Jesus Christ knows all things, then He possesses that Omniscience which is one of the essential attributes of Deity. I find that, nowadays, there is a sad increase of that pestilent heresy which is practically a return to the old Arianism which sought to rob Christ of His true Glory and reduce Him to the level of a mere man. We, at any rate, are not tainted with that fatal error--God grant that we never may be! No, He who as Man, is our Brother, is also God, our Lord and Savior, Jesus Christ, whom we worship and adore! And we think and speak of Him as possessing every attribute that is essential to the Deity and, therefore, as possessing this one--that He knows all things. He searches the hearts and tries the reins of the children of men, for He is, assuredly, "very God of very God," or, as Paul says, in his Epistle to the Romans, He "is over all, God blessed forever."
 

@@ -99,7 +99,7 @@ After this, Jesus knowing that all things were now accomplished, that the Script
 
 He said, It is finished: andHe bowedHis head, and gave up the ghost [See Sermon #421, Volume 7--it is finished and #2344,
 
-Volume 40--CHRIST'S DYING WORD FOR HIS CHURCH.] Incarnate Love has
+Volume 40--CHRIST's DYING WORD FOR HIS CHURCH.] Incarnate Love has
 
 fulfilled its self-imposed task! Jesus, as the Substitute for sinners, was condemned to die and He died that He might finish the work of our Redemption--
 

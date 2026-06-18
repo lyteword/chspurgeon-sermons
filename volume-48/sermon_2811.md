@@ -48,7 +48,7 @@ You also have your responsibilities--you must be a holy people. "A city set on a
 
 be an active people. If God has done so much for you and you begin to sleep upon your oars, or to sit still and say, "We have done enough, now we will be quiet," the curse of God will fall upon you! As surely as you are men or women, He has not brought you to this post of duty that you may cease your efforts or stand still! He puts you into the middle of the battle that you may fight with sterner vigor, that you may deal your blows with both your hands to win the battle for your Lord and Master! There are responsibilities that lie upon you as a Church that will utterly crush you unless this prayer is answered for you, "If Your Presence go not with us, carry us not up hence."
 
-Thirdly, we are to consider THE SINS BY WHICH GOD'S PRESENCE MAY BE DRIVEN AWAY--AND
+Thirdly, we are to consider THE SINS BY WHICH GOD's PRESENCE MAY BE DRIVEN AWAY--AND
 
 THE MEANS BY WHICH THAT PRESENCE MAY BE RETAINED.
 
@@ -100,4 +100,4 @@ And with Your blessing let the house of Your servant be blessed forever
 
 --Adapted from The C. H. Spurgeon Collection, Version 1.0, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO A SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.

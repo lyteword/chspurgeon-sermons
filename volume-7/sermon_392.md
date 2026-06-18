@@ -45,7 +45,7 @@ And then, again, trusting God, you will not be guilty of self-contradiction. He 
 
 The practical lesson from all this is--"trust in the Lord with all your heart, and lean not to your own understanding." Whatever your trouble is, take it to God this morning--do not bear it till the night! Whatever your difficulty and pecu- liar exercise of mind, tell it unto the Lord, your God. He is as able as He is willing, and as willing as He is able. Having sent the trial, He will surely make a way of escape for you!
 
-But now I turn to the second part of our discourse. IN SPIRITUAL MATTERS, HE WHO HANDLES A MATTER WISELY SHALL FIND GOOD.
+But now I turn to the second part of our discourse. IN SPIRITUAL MATTERS, HE WHO HANDLES a MATTER WISELY SHALL FIND GOOD.
 
 But what is the right way of handling this dread matter which stands between our soul and God? We have immortal spirits, and spirits that are responsible. The Day of Judgment draws near, and with it Heaven's happiness, or Hell's torment. What, my Brothers and Sisters, shall we do to handle this matter wisely? And here comes up the old serpent again, and he says, "Young man, the easiest way to handle this matter is to let it alone altogether! You are young as yet--there is plenty of time--why put old heads on young shoulders? You will have need enough to think of religion, by-and-by, but at present, you see, it will be much in your way. Better leave it alone. It is only these ministers that try and make you thoughtful--but they only bother you and trouble you--so drop it! You can think of it, if there is anything in it, by-and-by, but for the present, rejoice in your youth, and let your joy be in the morning of your days--for the evil days come--and then let your thoughtfulness come with them."
 

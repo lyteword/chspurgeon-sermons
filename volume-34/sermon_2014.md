@@ -31,7 +31,7 @@ The singers of our Psalm had listened to their gracious fathers and when they sa
 
 "In Zion God is known,
 
-A refuge in distress.
+a refuge in distress.
 
 How bright has His salvation shone
 
@@ -137,7 +137,7 @@ Without fruitfulness the vine becomes the most worthless of all trees. And witho
 
 "Stand up, stand up for Jesus!" in this day of blasphemy and rebuke.
 
-AND LASTLY, HEARING, SEEING, WITNESSING--GOD WILL GIVE YOU A FULLER ASSURANCE
+AND LASTLY, HEARING, SEEING, WITNESSING--GOD WILL GIVE YOU a FULLER ASSURANCE
 
 THAN YOU HAVE AS YET. Permit me to read the text again--"As we have heard, so have we seen in the city of the Lord of Hosts, in the city of our God: God will establish it forever." That is the conclusion which the saint comes to when he has tried the Truth of God for himself and borne witness to the result of his trial. God will never leave His Church. God will never forfeit His Word. God will never desert His Gospel. He is Jehovah of Hosts and changes not and has all power at His disposal. He is our Lord, our God in Covenant. He cannot desert the work of His own hands, nor leave the people of His love.
 

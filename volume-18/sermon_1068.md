@@ -70,7 +70,7 @@ He struck Him in the desert and in the garden, till beneath that smiting great d
 
 So when He saw our sin laid upon His Son, He struck Him with the blows of a cruel One till beneath that smiting His Son cried out, "My God, My God, why have You forsaken Me?" He was bearing, in that moment, all the crushing blows of that great sword of vengeance of which we read in the Prophets--"Awake, O sword, against My Shepherd, and against the Man that is My Fellow, says the Lord." Put these things all together as best you can, for I lack words with which to fitly describe these bruises from the ills of life--bruises from friends and foes, stripes from Satan, and blows from God--and surely it is the most sorrowful story that ever was told--
 
-> O King of Grief! (A title strange, yet true.   
+> O King of Grief! (a title strange, yet true.   
 > To You, of all kings, only due). O King of Wounds!   
 > How shall I grieve for You Who in all grief outruns me?   
 > Shall I weep blood?   

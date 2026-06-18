@@ -50,7 +50,7 @@ Yes, Jesus was raised for my justification--I praise Him for that glorious fact!
 
 Thus have I taught you two lessons. The first, that our faith looks to God the Father in salvation. And secondly, that our faith concerns itself with Christ as ours.
 
-Now, thirdly, OUR FAITH FOR SALVATION RELIES ON CHRIST'S DEATH AND RESURRECTION-- "Who was delivered for our offenses, and was raised, again, for our justification."
+Now, thirdly, OUR FAITH FOR SALVATION RELIES ON CHRIST's DEATH AND RESURRECTION-- "Who was delivered for our offenses, and was raised, again, for our justification."
 
 Observe, then, that a faith which only deals with the historical narrative of Christ's life will not save you. If you believe that there was such a Person as Jesus Christ, even if you truly believe that He was both God and Man. If you believe all that Matthew, Mark, Luke and John wrote, and all the Epistles, as well, yet, if you believe this only in the sense that they are historically true, you have not yet attained to saving faith! You must go beyond that if you are to possess the faith mentioned in our text.
 

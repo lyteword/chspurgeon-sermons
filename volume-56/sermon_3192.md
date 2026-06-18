@@ -24,7 +24,7 @@ Best of all, Christ, has gone back to Glory as the Representative of His people.
 
 Changing the direction of our thought, yet still keeping to the same main track, let us turn to the second clause of
 
-the text. "My blood is drink, indeed." That is to say, CHRIST'S REDEEMING SACRIFICE IS MOST SOUL-
+the text. "My blood is drink, indeed." That is to say, CHRIST's REDEEMING SACRIFICE IS MOST SOUL-
 
 SATISFYING. It is not merely soul-comforting, but soul-satisfying!
 

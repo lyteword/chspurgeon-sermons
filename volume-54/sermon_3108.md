@@ -20,7 +20,7 @@ Now I have got to the gate of this palace. I have climbed the hill and stand the
 
 I will just tell of you one or two cases of persons who went to this house of feasting. Or rather, let me tell it to you in another way by reminding you that most of the awful catastrophes that have ever happened in this world have happened
 
-to men when they have been in "the house of feasting."[A reference to the first page of this Sermon will show that it was preached when Mr. Spurgeon was only just 20 years of age. Readers may be interested in a list of later Sermons by him upon some of the incidents here mentioned. They are as follows--NOAH--See Sermon #823, Volume 14--NOAH'S FLOOD. SAMSON--See Sermon #224, Volume 4--SAMSON CONQUERED and #1939, Volume 33--SHAVED AND SHORN, BUT NOT BEYOND
+to men when they have been in "the house of feasting."[a reference to the first page of this Sermon will show that it was preached when Mr. Spurgeon was only just 20 years of age. Readers may be interested in a list of later Sermons by him upon some of the incidents here mentioned. They are as follows--NOAH--See Sermon #823, Volume 14--NOAH's FLOOD. SAMSON--See Sermon #224, Volume 4--SAMSON CONQUERED and #1939, Volume 33--SHAVED AND SHORN, BUT NOT BEYOND
 
 HOPE] It is a fact which I will prove in a moment or two, that
 

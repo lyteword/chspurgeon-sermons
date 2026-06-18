@@ -10,7 +10,7 @@ And here let me say what a charming thing it is to deal with experimental divini
 
 At this time, as God shall help me, I shall dwell upon the forgiveness of sins. We have not time to plunge into the deeps of the eternal purpose, nor even to dive into the full Doctrine of Redemption, but, as the swallow with his wing touches the brook and then is up and away, so must it be with my thoughts at this time--a mere touch of the river of the Water of Life will be a blessing to myself and, as I cast a little spray over you, I hope it will refresh you, also. May the Holy Spirit help our meditation!
 
-The first observation, taken distinctly from the text, is this--THAT THE FORGIVENESS OF SINS IS A GRAND BLESSING. The Apostle has mentioned it, if you notice, among the great things of God--His electing love, His adoption of us by Jesus Christ, His acceptance of us in the Beloved. Side by side with these colossal mercies, he puts this one, that we have "the forgiveness of sins, according to the riches of His Grace." This is a blessing of no mean stature, for it marches with the giants of Election and Adoption. Let it stand prominently out before us at this time.
+The first observation, taken distinctly from the text, is this--THAT THE FORGIVENESS OF SINS IS a GRAND BLESSING. The Apostle has mentioned it, if you notice, among the great things of God--His electing love, His adoption of us by Jesus Christ, His acceptance of us in the Beloved. Side by side with these colossal mercies, he puts this one, that we have "the forgiveness of sins, according to the riches of His Grace." This is a blessing of no mean stature, for it marches with the giants of Election and Adoption. Let it stand prominently out before us at this time.
 
 What is this "forgiveness of sins"? Too often, in popular talk, it is supposed that the chief and main thought of the forgiven sinner is that he has escaped from Hell. Salvation means much more than this and what it further means is too much kept in the background, but yet I will begin with rescue from punishment, for if sin is pardoned, the penalty is extinguished. It would not be possible for God to forgive and yet to punish. That would be a forgiveness quite unworthy of God. It would, indeed, be no forgiveness at all! We are certain that the everlasting punishment of sin declared in Scrip-
 
@@ -60,7 +60,7 @@ Lord Jesus, hold Your Cross before my closing eyes! O blessed Redeemer, what wil
 
 But now, thirdly--and the text is very clear upon this, as upon the other two points--THE FORGIVENESS
 
-OF SIN IS STILL A MATTER OF GRACE--AND OF RICH GRACE. "We have redemption through His blood, the
+OF SIN IS STILL a MATTER OF GRACE--AND OF RICH GRACE. "We have redemption through His blood, the
 
 forgiveness of sins, according to the riches of His Grace."
 

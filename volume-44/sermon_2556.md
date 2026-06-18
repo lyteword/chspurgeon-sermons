@@ -32,7 +32,7 @@ But there are others in whom the corruption has become more apparent. They have 
 
 That will suffice for this part of our subject. Let us look back with shame on our original. Let us remember the hole of the pit from where we were dug and then stand fast in this one certainty--we know that we were dead.
 
-Secondly, we know another thing and a brighter thing--WE KNOW THAT WE HAVE UNDERGONE A
+Secondly, we know another thing and a brighter thing--WE KNOW THAT WE HAVE UNDERGONE a
 
 VERY AMAZING CHANGE--"We know that we have passed from death unto life."
 

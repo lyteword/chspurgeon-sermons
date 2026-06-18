@@ -30,7 +30,7 @@ To be divided from the world--its possessions, its maxims, its motives--is the m
 
 "Depart you, depart you, go you out from there, touch no unclean thing; go you out of the midst of her; be you clean, that bear the vessels of the Lord."
 
-"Remember Lot's wife." And our first point shall be--REMEMBER THAT SHE WAS LOT'S WIFE. She was the wife of a man who, with all his faults, was a righteous man. She was united to him in the closest possible bonds and yet she perished! She had dwelt in tents with holy Abraham and seemed to be a sharer in all the privileges of the separated
+"Remember Lot's wife." And our first point shall be--REMEMBER THAT SHE WAS LOT's WIFE. She was the wife of a man who, with all his faults, was a righteous man. She was united to him in the closest possible bonds and yet she perished! She had dwelt in tents with holy Abraham and seemed to be a sharer in all the privileges of the separated
 
 people--and yet she perished! She was dear to one who had been dear to the father of the faithful and yet, for all that, she perished in her sin!
 

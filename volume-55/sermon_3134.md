@@ -8,7 +8,7 @@ WE cannot tell how the Spirit of God brooded over that vast watery mass. It is a
 
 That fact I intend to use this evening, spiritualizing it. It is a literal fact and we are not to regard this Chapter of Genesis or any other part of Genesis as being a mere parable. But having said so, we think we may now say that these real facts may illustrate the work of God in the new creation and our main thought, just now, is that the work of the Holy Spirit in the soul of man is comparable to His work in Creation. As in various books by the same author you can trace the writer's idioms and as in many paintings by one great artist there are certain touches which betray the same hand, so in the great book of Nature we see traces of the same hand as in the book of Grace! And in this great picture of material beauty we may see the handiwork of that same Master Artist who has drawn lines and curves of spiritual beauty upon the souls of the redeemed!
 
-I am going, first, to try to draw A PARALLEL BETWEEN THE SPIRIT'S WORK IN THE OLD AND NEW CREATION.
+I am going, first, to try to draw a PARALLEL BETWEEN THE SPIRIT's WORK IN THE OLD AND NEW CREATION.
 
 And first I want to remind you that as the movement of the Holy Spirit upon the waters was the first act in the six days work, so the work of the Holy Spirit in the soul is the first work of Grace in that soul. There may have been a thousand sermons heard, but there has been no effectual work within the soul until the Spirit of God comes there! Sabbaths may have passed over the man's head for 50 years and during every one of those Sabbaths that man may have been a regular attendant at the House of God--but there has been nothing savingly done for him unless the Spirit of God has entered into him and begun to work upon his soul. He may have been baptized and joined the Church and partaken of the Lord's Supper--but, for all that, his heart is still without any sort of form or fashion which God would have it to bear. It is void--there is no life of God within it, no faith in Christ, no true hope for the future. It is emptiness, itself, notwithstanding all that has been done, if the Spirit of God has not been at work in it!
 
@@ -57,7 +57,7 @@ Has not the Spirit of God often dealt so with you experienced saints who know wh
 
 Do not despair, dear Friend--look again to the Cross--begin again where you began before! Remember the simple
 
-story that I told you long ago of poor Jack the Huckster, [See Sermon #47, Volume 1--CHRIST'S PRAYER FOR HIS PEOPLE.] who used to sing--
+story that I told you long ago of poor Jack the Huckster, [See Sermon #47, Volume 1--CHRIST's PRAYER FOR HIS PEOPLE.] who used to sing--
 
 "I'm a poor sinner, and nothing at all, But Jesus Christ is my All-in-All."
 
@@ -89,7 +89,7 @@ Offer unto God thanksgiving; and pay your vows unto the Most High. The offering 
 
 15, 16. And call upon Me in the day of trouble: I will deliver you and you shall glorify Me. [See Sermons #1505, Volume 25--
 
-PRAYER TO GOD IN TROUBLE AN ACCEPTABLE SACRIFICE and #1876, Volume 31--ROBINSON CRUSOE'S TEXT.] But unto the wicked, Godsays, What have you to do to declare My statutes, or thatyou should take My Covenant in your mouth? There were, in those days, wicked priests who taught the people what they did not themselves practice, just as there are, in these days, men who because of their official position, have dared to stand up and declare the Gospel of Christ by which they were not, themselves, saved! And in which, indeed, they were not even Believers! Are they the men to preach the Truth of God? Are they fit to teach others? Assuredly not! "Unto the wicked God says, "What have you to do to declare My statutes, or that you should take My Covenant in your mouth?"
+PRAYER TO GOD IN TROUBLE AN ACCEPTABLE SACRIFICE and #1876, Volume 31--ROBINSON CRUSOE's TEXT.] But unto the wicked, Godsays, What have you to do to declare My statutes, or thatyou should take My Covenant in your mouth? There were, in those days, wicked priests who taught the people what they did not themselves practice, just as there are, in these days, men who because of their official position, have dared to stand up and declare the Gospel of Christ by which they were not, themselves, saved! And in which, indeed, they were not even Believers! Are they the men to preach the Truth of God? Are they fit to teach others? Assuredly not! "Unto the wicked God says, "What have you to do to declare My statutes, or that you should take My Covenant in your mouth?"
 
 17-20. Seeing you hate instruction, and cast My words behind you. When you saw a thief then you consented with him, and have been partaker with adulterers. You give your mouth to evil, and your tongue frames deceit You sit and speak against your brother; you slander your own mother's son. How, then, can you hope to please God with your formal ceremonies, with your mere attendance at the House of God while your heart is estranged from Him? You do but mock God with all this empty formalism!
 

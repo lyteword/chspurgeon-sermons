@@ -72,7 +72,7 @@ We believe in plenary verbal Inspiration, with all its difficulties, for there a
 
 This is what David said he would do, and I recommend all tried saints to do the same.
 
-Now, fourthly, there was another thing which David meant to do and that was to REVERENCE GOD'S
+Now, fourthly, there was another thing which David meant to do and that was to REVERENCE GOD's
 
 WORD TO THE HIGHEST DEGREE. He puts it thus. "You have magnified Your Word above all Your name." My text is such a great one that I need half-a-dozen nights to discuss it, so I can only give you hints of what I would say if I had the time.
 

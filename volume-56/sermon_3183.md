@@ -12,7 +12,7 @@ But in our case, we know that we must die--and if it were not for the hope of th
 
 Now, Solomon, in the Book of Proverbs, applied the Truth that we know not about tomorrow to the boaster, the man who said, "Tomorrow I will go into such a city and buy, and sell, and get gain, and then go to another city, and get
 
-more gain, and then, when I have amassed so much wealth, I will say, 'Soul, you have much goods laid up for many years; take your ease--eat, drink and be merry.'" Solomon seems to come in and put his hand upon the man's shoulder and to say, virtually, "You fool, you know nothing about all this! You do not know what shall be on the morrow--your goods may never come to you, or you may not be here to trade with these goods at all. So you build a castle in the air! You think your fancies are true. You are as one that dreams of a feast and wakes to find himself hungry! How can you be so foolish?" Solomon dwells upon the text very solemnly and says, "Boast not yourself of tomorrow, for you know not what a day may bring forth."
+more gain, and then, when I have amassed so much wealth, I will say, 'soul, you have much goods laid up for many years; take your ease--eat, drink and be merry.'" Solomon seems to come in and put his hand upon the man's shoulder and to say, virtually, "You fool, you know nothing about all this! You do not know what shall be on the morrow--your goods may never come to you, or you may not be here to trade with these goods at all. So you build a castle in the air! You think your fancies are true. You are as one that dreams of a feast and wakes to find himself hungry! How can you be so foolish?" Solomon dwells upon the text very solemnly and says, "Boast not yourself of tomorrow, for you know not what a day may bring forth."
 
 I do not intend, however, to use the text with this objective tonight. It struck me that as Solomon uses it here with one design, it might be very properly used for another. That as he intends to shame our growing pride and certainty of prosperity, so it might be used especially to cheer those who have a tendency to gloom--and to shed a ray of light into the thick darkness of their fear.
 
@@ -54,7 +54,7 @@ At any rate, will you let me repeat the advice I have already given? Since you c
 
 I wish that the Lord would bless these words of mine to disconsolate ones. I think there may be some who may be sustained for a while and kept up by what I have said. But it will be better, still, if they shall now be filled with a desperate resolve to cast themselves at the foot of the Cross. Then little do they know what the day will bring forth! They cannot imaging the joy they shall have, nor the peace they shall receive! The pardon which Christ shall give them is far more rich than they have thought it could be--and the success with which their prayers shall be crowned is far more marvelous than even their best hopes have conceived! "You know not what a day may bring forth."
 
-Now thirdly, turning this time not to those who are fearing the future, nor yet to those who are disconsolate about present affliction, I thought of addressing a few words to THOSE WHO ARE WEARIED IN THE MASTER'S
+Now thirdly, turning this time not to those who are fearing the future, nor yet to those who are disconsolate about present affliction, I thought of addressing a few words to THOSE WHO ARE WEARIED IN THE MASTER's
 
 SERVICE.
 

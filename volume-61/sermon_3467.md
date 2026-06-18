@@ -10,7 +10,7 @@ I do not know but it is sometimes as well, when one has been plunged in sorrow, 
 
 Looking at the text in this light, I think it speaks to everyone here present. Would you begin anew, lo, there is One who can help you to do so! From the Throne of God where sits the once Crucified but now Glorified Savior, there comes a whisper of hope to each and every soul who would be made new and would begin life anew. "Behold I make all things new." In trying to bring out the thoughts contained in this exclamation from the Throne--from the Emperor of the Universe, from the court of the King of Kings--we shall first speak, very briefly, of the new creation. Secondly, we should bid you adore the great Regenerator And, in the third place, we shall ask you to behold with attention, the fact before you, with a view of receiving benefit from it Observe the text speaks of--
 
-A NEW CREATION.
+a NEW CREATION.
 
 "I make." That is a Divine Word. "I make all things." That, also, is Divine. "I make all things new." That seems to reach the third stage, wherein the thrice holy God appears glorious in the highest degree! "I make all things new." This our Lord Jesus Christ has done upon the greatest scale! We must view His purpose. It is the purpose and intention of the Lord Jesus to make this world entirely new. You recollect how it was made at first--pure and perfect. It sang with its
 
@@ -109,7 +109,7 @@ And in the midst of the seven candlesticks One like unto the Son of Man Or proba
 
 Clothed with a garment down to the feet.
 
-And girt about the chest with a golden band A royal robe. A band all decked and adorned with jewelry.
+And girt about the chest with a golden band a royal robe. A band all decked and adorned with jewelry.
 
 His head and His hair were white like wool, as white as snow. For He is the Ancient of Days, and all the wisdom that is supposed to belong to gray hair is with Him.
 

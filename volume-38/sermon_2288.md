@@ -6,7 +6,7 @@ THERE may be much to learn from an empty place. The world thinks much of the pla
 
 I do not intend to keep to one subject, tonight. I think I have, in these words about David's place, a roving commission and, keeping to my text, I shall be able to consider a great many subjects and to speak briefly upon each.
 
-First, then, let us think of THE EMPTY PLACE IN THE PERSECUTOR'S HOUSE--"David's place was empty."
+First, then, let us think of THE EMPTY PLACE IN THE PERSECUTOR's HOUSE--"David's place was empty."
 
 David had good reason for vacating his place at Saul's table, for the passionate king was so malicious and so embittered against him, that he sought his life. Saul had, on several occasions, in his fits of mad anger, hurled javelins at the man to whom he owed so much--and the envious king determined to put his rival to death at the first convenient opportunity! David, therefore, very properly left a place in which his life was continually in peril.
 
@@ -42,7 +42,7 @@ But Brothers and Sisters, I want to ask you, and myself, also--are we rendering 
 
 I thought it might be well to awaken these thoughts in the mind of those of you who are specially concerned in this part of my subject.
 
-During the past year, many of you now present have had A PLACE IN THE ASSEMBLY OF GOD'S PEOPLE.
+During the past year, many of you now present have had a PLACE IN THE ASSEMBLY OF GOD's PEOPLE.
 
 I do not quite like to put the question about how often David's place in the congregation of the righteous has been empty. I have very little need to ever say anything to you, dear Friends, about any lack of regular attendance upon the means of Grace. I think no people I have ever heard of are more commonly found listening to the preaching of the Word, or joining in religious service. Yet there may be some of you who have absented yourselves when you should have been present. Or there may be members of other congregations who have fallen into lax and loose habits with regard to forsaking the assembling of themselves together, "as the manner of some is," even as it was in Paul's day. Let any such who may be with us check those habits as soon as they begin. They are very detrimental to all spiritual growth. I do not think you will find a man in good health if he takes his meals at all sorts of irregular hours. As a rule, the body needs its regular periods of receiving nourishment and sustenance--and it is the same with the soul. You will scarcely find a Christian to be in sound health if he neglects the appointed time for being fed with spiritual meat.
 
@@ -80,11 +80,11 @@ I have tasted of this sweetness and I have found it so refreshing to my spirit t
 
 I believe that many of you will be doing Christ's work best at home. You need not teach in the Sunday school--you can have one in your own house. Many a daughter is better occupied in seeing after the younger ones of her own family than anywhere else. Yet with such exceptions as these, I beg you to take the general run of what I have said--I speak unto wise men, judge you what I say--and believe me that there is something to be done by each one who loves the Lord. You are not accountable to me, or to the elders of the Church--you are accountable only to the Crown Prince, the Prince Imperial of Heaven, Christ Jesus, our Lord! He has bought you with His precious blood. You are His. Then serve Him and let not your place of service ever be vacant through your neglect or indolence.
 
-Again, "David's place was empty." I hope that OUR PLACE AT THE LORD'S TABLE will not be empty at any time when it is possible for us to occupy it.
+Again, "David's place was empty." I hope that OUR PLACE AT THE LORD's TABLE will not be empty at any time when it is possible for us to occupy it.
 
 There are not any in this Church, known to me, who absent themselves from the Lord's Table very grossly. But still, there is room for improvement in this matter in the case of some of us. I like to go to that Table every week and my own solemn conviction is that that is none too often. If there is any rule about it in Scripture, there certainly is no rule for going once a month, much less for once a quarter! If there is any rule, it is that on the first day of the week, when we meet together, we should break bread in memory of our Savior's dying love! I commend it to our Brothers and Sisters to consider whether they keep the feast as often as they should, remembering our Master's wondrous passion and death. It may be that they lose much spiritual benefit because their place at the Lord's Table is empty--when it should be filled.
 
-But I must hasten on towards the conclusion. Brothers and Sisters, tomorrow, when you will be keeping the Christmas feast, there will be many family gatherings. And in those family gatherings there will be SOME HOUSEHOLDS WHERE DAVID'S PLACE WILL BE EMPTY.
+But I must hasten on towards the conclusion. Brothers and Sisters, tomorrow, when you will be keeping the Christmas feast, there will be many family gatherings. And in those family gatherings there will be SOME HOUSEHOLDS WHERE DAVID's PLACE WILL BE EMPTY.
 
 As I came here, I was thinking of what inroads death has made in this congregation this year. There have been many vacancies made and there will be many more next year. I miss from one seat, a Sister whom I saw upon her dying bed. And, from another part of the building, a Brother whose cheering words in his last moments did my soul good. I miss here, one, and there, another. I could run my finger along these pews in the area and I could come up on this platform, and I could truly say, concerning one who has been called Home this year, "David's place is empty." We can hardly say that literally because his son fills it, and long may he fill it, and have God's blessing resting upon him! But here and there, and everywhere in this Tabernacle, I miss some who have gone Home. Our family gathering is gradually breaking up. Thank God it is being reformed up yonder, where there will be no death and no parting!
 

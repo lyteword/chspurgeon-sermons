@@ -38,7 +38,7 @@ Alas, I must also mention another evil cause of heart trouble and fear. It is th
 
 of Jesus Christ murmuring or fretting and being peevish. You never heard anyone who really knew Him say that Jesus Christ was one of those exacting people whom nobody could please. Why, on the contrary, He was one of those whom you could scarcely displease! And even when wicked men nailed Him to the tree, He prayed for them, "Father, forgive
 
-them, for they know not what they do." [See Sermons # 897, Volume 15--THE FIRST CRY FROM THE CROSS; #2263, Volume 38--CHRIST'S PLEA FOR IGNORANT SINNERS and #3068, Volume 53--UNKNOWN DEPTHS AND HEIGHTS.]
+them, for they know not what they do." [See Sermons # 897, Volume 15--THE FIRST CRY FROM THE CROSS; #2263, Volume 38--CHRIST's PLEA FOR IGNORANT SINNERS and #3068, Volume 53--UNKNOWN DEPTHS AND HEIGHTS.]
 
 "Let not your heart be troubled," for the probability is that if you look below the trouble, you will find that there is underneath it some evil thing which is the real cause of the trouble. Therefore, O you children of God, in whom dwells the Spirit of God, strive against it!
 

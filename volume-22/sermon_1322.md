@@ -52,7 +52,7 @@ life at once? Ah, do not do it! There are brighter days before you, since Jesus 
 
 "Happy day, happy day, When Jesus washed my sins away! He taught me how to watch and pray, And live rejoicing every day, Happy day, happy day, When Jesus washed my sins away!" I have spoken enough upon the character, which, I think, comprehends many here--"All you that labor and are heavy laden." I know how well it suited me once upon a time and how glad I was to answer to the call of the text.
 
-Now, secondly, the text speaks of A BLESSING WHICH INVITES YOU. "Come unto Me," says Jesus, "and I will give you rest." "Rest! Rest! Rest!" I could keep on ringing that silver bell all the evening--"Rest! Rest! REST!" "You gentlemen of England who live at home at ease," you scarcely know the music of that word! The sons of toil, the mariners tossed upon the sea, the warriors in the battle, the men who labor deep in the mines--these know, as you do not, how sweet this music sounds!
+Now, secondly, the text speaks of a BLESSING WHICH INVITES YOU. "Come unto Me," says Jesus, "and I will give you rest." "Rest! Rest! Rest!" I could keep on ringing that silver bell all the evening--"Rest! Rest! REST!" "You gentlemen of England who live at home at ease," you scarcely know the music of that word! The sons of toil, the mariners tossed upon the sea, the warriors in the battle, the men who labor deep in the mines--these know, as you do not, how sweet this music sounds!
 
 Rest! Rest! Rest! Rest for the weary body is the outward emblem of that inward blessing which Jesus Christ holds up, tonight, before the eyes of all laboring and heavy-laden souls. Rest--rest which He will give, which He will give at once--rest to the conscience. The conscience, tossed to and fro under a sense of sin, has no peace. But when Jesus is revealed as bleeding and suffering in the sinner's place, and making full atonement for human guilt, then the conscience grows quiet. As Noah's dove lighted upon the ark, so conscience lights on Christ and rests there forever! No sin of yours shall trouble you when you have seen how it troubled Christ--how He took it on His shoulders and bore it up to the Cross--and then flung it into the depths of the sea, never to be mentioned against you anymore forever!
 
@@ -66,7 +66,7 @@ As for your fears and forecasts which now are troubled--He will turn them into h
 
 them can afford you any trace of it until you come to the Incarnate God, Christ Jesus, and bow at His feet. Then you shall find rest to your souls, but not till then!
 
-This brings me, next, to say that the text presents A DIRECTION TO GUIDE EVERY LABORING AND
+This brings me, next, to say that the text presents a DIRECTION TO GUIDE EVERY LABORING AND
 
 HEAVY-LADEN SOUL IN THE PURSUIT OF REST. I shall be sure to have your very deep attention to the directions which Jesus gives, for you all need to find rest. Oh, may the Divine Spirit now lead you into the way of peace! If you follow our Lord's directions and do not find rest, then His Word is not true. But His Word is true! I invite you to try it and urge you, at once, to accept His guidance and leadership.
 

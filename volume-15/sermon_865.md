@@ -84,7 +84,7 @@ Moreover, to meet the obstinacy and depravity of our hearts, behold how deep cal
 
 "Oh, the depth," says the Apostle, and we may well say the same. My Hearer, ought not this to encourage you? Are you a burdened, conscience-stricken sinner, brought so low as to be all but a damned sinner? You are only just this side of Hell! You almost smoke like a brand in the fire, yet is there mercy enough to rescue you and to give you a place among them that are glorified at the right hand of God! The deep of your misery calls to the deep of sacred mercy and faith shall hear a favorable answer.
 
-Fourthly and with brevity, THE DEPTH OF DIVINE LOVE TO THE SAINTS CALLS FOR A DEEP OF
+Fourthly and with brevity, THE DEPTH OF DIVINE LOVE TO THE SAINTS CALLS FOR a DEEP OF
 
 CONSECRATION IN EVERY BELIEVING HEART. Study, my dear Brothers and Sisters, quietly, the depth of the love of God to you, His people. He loved you without a cause--
 
@@ -108,7 +108,7 @@ As the bullock was brought to the altar--bound to the horns thereof, killed and 
 
 Lord!
 
-Time fails me, therefore I must notice another deep. There is a depth in this world, A DEPTH OF DIVINE FORBEARANCE towards impenitent and graceless men. And depend upon it, it answers to another deep, A DEEP OF
+Time fails me, therefore I must notice another deep. There is a depth in this world, a DEPTH OF DIVINE FORBEARANCE towards impenitent and graceless men. And depend upon it, it answers to another deep, a DEEP OF
 
 IMMEASURABLE AND NEVER-ENDING WRATH IN THE WORLD TO COME. It is a very solemn subject and I
 
@@ -130,7 +130,7 @@ Listen, now, I pray you! As surely as God has shown towards you a great deep of 
 
 Do not deceive yourselves by any dream of annihilation! Do not imagine there shall come an end to your woe! If there were the shadow of a ground for that statement, Hell would cease to be Hell, for hopelessness is of the essence of Hell. O, by the boundless love treasured up in Christ Jesus, remember there is equal terror in His wrath! The hand that is mighty to save is equally mighty to destroy! All Omnipotence has been put out to save, but this rejected, an equal Omnipotence shall be put out to crush. Tempt not the Lord! The deeps of your sin are already challenging the deeps of His justice. "Turn you, turn you, why will you die?"
 
-Awaken not the fury which you cannot endure, overcome, or avoid! Kindle not the fire which, like flames among stubble, will burn furiously and cannot be stopped! O dash not your souls upon the bosses of Jehovah's buckler! Cast not yourselves upon the point of His glittering spear! God grant of His eternal mercy that you may not tempt those deeps. ' VI. Now to close with a more cheerful theme. There is, Brethren, A BLESSED DEEP OF HOLY HAPPINESS AND
+Awaken not the fury which you cannot endure, overcome, or avoid! Kindle not the fire which, like flames among stubble, will burn furiously and cannot be stopped! O dash not your souls upon the bosses of Jehovah's buckler! Cast not yourselves upon the point of His glittering spear! God grant of His eternal mercy that you may not tempt those deeps. ' VI. Now to close with a more cheerful theme. There is, Brethren, a BLESSED DEEP OF HOLY HAPPINESS AND
 
 BLISS FOR THE SAINTS IN HEAVEN, AND TODAY IT CALLS TO THE DEEP OF JOY AND THANKFULNESS
 

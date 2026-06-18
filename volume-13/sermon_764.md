@@ -56,7 +56,7 @@ And since, dear Friends, it is the Lord's war that we are engaged in, we are enl
 
 Let us carve out victory while we have the raw material of conflict to carve. There are no battles to be fought, and no victories to be won in Heaven. So now, in this life, let us resolve, in the name and strength of God the Holy Spirit, with all our force and vigor to glorify God who has appointed us our warfare. We now leave this head to turn to the second, and may God the Holy Spirit bless us in so doing.
 
-JOB'S VIEW OF OUR WORK while on earth is that we are to wait. "All the days of my appointed time will I wait." The word "wait" is very full of teaching. It contains the whole of the Christian life, if understood in all its various senses. Let us take up a few very briefly.
+JOB's VIEW OF OUR WORK while on earth is that we are to wait. "All the days of my appointed time will I wait." The word "wait" is very full of teaching. It contains the whole of the Christian life, if understood in all its various senses. Let us take up a few very briefly.
 
 In the first place, the Christian life should be one of waiting--that is, setting loose of all earthly things. Many travelers are among us this morning. They are passing from one town to another, viewing many countries. But if they are only travelers, and are soon to return to their homes, they do not speculate in the various businesses of Lombard Street or Cheapside. They do not attempt to buy large estates and lay them out, and make gold and silver. They know that they are only strangers and they act as such.
 
@@ -110,7 +110,7 @@ making thing! It makes you desire fresh supplies. You cannot sip from the waters
 
 Do you ever have a heart-sickness after Heaven? Do you ever feel the cords that bind you to Christ tugging at your heart strings to draw you nearer? Oh, yes! You must feel this! And if you are mixing up these longings to be with Christ, these expectations to depart, with a patient endurance of the Divine will, you have hit upon Job's true idea of life! May you not only have the idea, but carry it out practically--may all Believers do so to the praise and glory of Divine Grace.
 
-Now comes JOB'S ESTIMATE OF THE FUTURE. It is expressed in this word, "Till my change come." He refers to the two great changes which he views at one glance--the change of death when we shall "shuffle off this mortal coil" and the change of resurrection when we shall put on our imperishable garments--shall be girt about with eternal gladness!
+Now comes JOB's ESTIMATE OF THE FUTURE. It is expressed in this word, "Till my change come." He refers to the two great changes which he views at one glance--the change of death when we shall "shuffle off this mortal coil" and the change of resurrection when we shall put on our imperishable garments--shall be girt about with eternal gladness!
 
 Beloved, let it be observed that in a certain sense death and resurrection are not a change to a Christian--they are not a change as to his identity. The same man who lives here will live forever! The same Believer who serves God on earth will wake up in the image of Christ to serve Him day and night in His temple--and that identity will exist not only with regard to the soul, but the body--"My eyes shall see Him and not another." These very eyes which have wept for sin shall see the King in His beauty! And these hands which here have served the Lord, shall embrace Him in His Glory!
 

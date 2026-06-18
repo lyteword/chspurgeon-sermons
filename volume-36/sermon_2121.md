@@ -7,7 +7,7 @@ BEFORE our friend who leads us in singing begins, we sometimes hear his tuning f
 
 The words before us are the keynote of this Psalm and all the music is set to it and closes with it. Notice that the Psalm begins, "Bless the Lord, O my Soul," and it ends in the same way, "Bless the Lord, O my Soul," as if to show us that praise is the Alpha and the Omega of a Christian life. Praise is the life of life. So we begin; so we continue; so shall we end, world without end.
 
-This Psalm has just as many verses in the original as there are letters in the Hebrew alphabet. It is an alphabetical Psalm as to number and so I may say that the A of it is, "Bless the Lord, O my Soul," and the Z of it is, "Bless the Lord, O my Soul." Oh, that our infancy would bless the Lord and our childhood and our youth bless the Lord--and our manhood and our old age bless the Lord! From the cradle to the tomb one line of sapphire, one streak of sparkling crystal should run through the entire mass of life--and that should be praise unto God.--
+This Psalm has just as many verses in the original as there are letters in the Hebrew alphabet. It is an alphabetical Psalm as to number and so I may say that the a of it is, "Bless the Lord, O my Soul," and the Z of it is, "Bless the Lord, O my Soul." Oh, that our infancy would bless the Lord and our childhood and our youth bless the Lord--and our manhood and our old age bless the Lord! From the cradle to the tomb one line of sapphire, one streak of sparkling crystal should run through the entire mass of life--and that should be praise unto God.--
 
 I would begin the music here, And so my soul should rise Oh, for some heavenly notes to bear My passions to the skies!"
 

@@ -2,7 +2,7 @@
 
 "Then Jesus said unto the twelve, Will you also go away? Then Simon Peter answered Him, Lord, to whom shall we go? You have the words of eternal life." John 6:67, 68.
 
-[See Sermons #2914, Volume 50--A MOURNFUL DEFECTION and #1646, Volume 28--A HOME QUESTION AND A RIGHT ANSWER.]
+[See Sermons #2914, Volume 50--a MOURNFUL DEFECTION and #1646, Volume 28--a HOME QUESTION AND a RIGHT ANSWER.]
 
 WITHOUT any preface, we will proceed at once to consider the first division of our subject, which is that THE PREACHING OF THE DOCTRINES OF TRUTH IS OFTEN THE MEANS OF SEPARATING THE PRECIOUS FROM THE VILE.
 
@@ -55,7 +55,7 @@ We must, all of us know some of these reprobates who once were numbered among th
 > When any turn from Zion's way (Alas, what numbers do)! I think I hear my Savior say, 'Willyou forsake Me too?' Ah, Lord, with such a heart as mine, Unless You hold me fast I feel I will! I shall decline, And prove like they at last. What anguish has that question stirred, If I will also go?   
 > Yet, Lord, relying on Your Word, I humbly answer, 'No.'   
 
-Now, as briefly as we can, let us consider PETER'S REPLY TO OUR LORD'S QUESTION, and I hope that
+Now, as briefly as we can, let us consider PETER's REPLY TO OUR LORD's QUESTION, and I hope that
 
 many a heart here will make that reply its own. It was a grand answer! There is a magnificence about it which I cannot expect to bring out to the fullest--"Lord, to whom shall we go? You have the words of eternal life."
 

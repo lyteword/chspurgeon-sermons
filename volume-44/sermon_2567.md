@@ -77,7 +77,7 @@ Scriptures, that God has made His Son to be the Substitute for all His people an
 > In His own body on the tree   
 > And more than paid my debt!   
 > Surely He has my pardon bought--   
-> A perfect righteousness worked out.   
+> a perfect righteousness worked out.   
 > His people to redeem--   
 > O that His righteousness might be   
 > By Grace imputed now to me,   

@@ -104,7 +104,7 @@ Then, let us take Him to be our entire trust and stay. O my beloved Friends, the
 
 the time of trial, supplying your every need and leading you always onward by a matchless way which you know not, which every moment shall cause you greater astonishment and delight as you see the unfolding of the Character of God. Oh, that each one of you would say, "This God shall be my God. I will trust Him. By His Grace I will trust Him now."
 
-The last thing is that THIS DECISION SHOULD LEAD US TO CAST IN OUR LOT WITH GOD'S PEOPLE AS WELL AS WITH HIMSELF, for Ruth said, "Your people shall be my people."
+The last thing is that THIS DECISION SHOULD LEAD US TO CAST IN OUR LOT WITH GOD's PEOPLE AS WELL AS WITH HIMSELF, for Ruth said, "Your people shall be my people."
 
 She might have said, "You are not well spoken of, you Jews, you Israelites. The Moabites, among whom I have lived, hate you." But, in effect, she said, "I am no Moabitess now. I am going to belong to Israel and to be spoken against, too. They have all manner of bad things to say in Moab about Bethlehem-Judah, but I do not mind that, for I am going to be, from now on, an inhabitant of Bethlehem and to be reckoned in the number of the Bethlehem people, for no longer am I of Moab and the Moabites."
 

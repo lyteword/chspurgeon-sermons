@@ -61,7 +61,7 @@ What concentrated scorn there is in this fortieth verse! It is not, "this Jesus.
 
 But now let us look, in the second place, AT THIS INCIDENT AS SETTING FORTH THE SIN WHICH HAS
 
-BEEN THE GUILT OF THE WORLD IN ALL AGES, AND WHICH IS THE WORLD'S GUILT NOW. When the Apostles went forth to preach the Gospel and the Truth of God had spread through many countries, there were severe edicts passed by the Roman Emperors. Against whom were these edicts framed? Against the foul offenders of that day?
+BEEN THE GUILT OF THE WORLD IN ALL AGES, AND WHICH IS THE WORLD's GUILT NOW. When the Apostles went forth to preach the Gospel and the Truth of God had spread through many countries, there were severe edicts passed by the Roman Emperors. Against whom were these edicts framed? Against the foul offenders of that day?
 
 It is well known that the whole Roman Empire was infested with vices such as the cheek of modesty would blush to hear named. The first chapter of the Epistle to the Romans is a most graphic picture of the state of society throughout the entire Roman dominions. When severe laws were framed, why were they not proclaimed against these atrocious vices? It is scarcely fit that men should go unpunished who are guilty of crimes such as the Apostle Paul has mentioned, but I find no edicts against these things--I find that they were borne with and scarcely mentioned with censure.
 

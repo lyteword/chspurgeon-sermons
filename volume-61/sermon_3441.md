@@ -4,7 +4,7 @@
 
 A LITTLE more than eight years ago, I remember addressing you from these very words. You will find the sermon in
 
-the printed series [See Sermon #512, Volume 9--A PRECIOUS DROP OF HONEY.]
+the printed series [See Sermon #512, Volume 9--a PRECIOUS DROP OF HONEY.]
 
 But such a text as this is to be preached hundreds of times! It is quite impossible to exhaust it, and if we should run over the same circle of thought in some measure, the thought suggested is of itself so precious, it were well to have our pure minds stirred up by way of remembrance.
 

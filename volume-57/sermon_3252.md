@@ -112,7 +112,7 @@ in the room, but the light is one. Three witnesses to our heart, but the witness
 
 9, 10. If we receive the witness ofmen, the witness of God is greater: for this is the witness of God which He has testified of His Son. He that believes on the Son of God has the witness in himself. [See Sermons #1250, Volume 21--the priest dispensed WITH and #1428, Volume 24--THE TRUE POSITION OF THE WITNESS WITHIN.] What better witness than this, could he have?
 
-He that believes not God has made Him a liar--[See Sermon #1207, Volume 20--A solemn impeachment of unbelievers.] He need not actually say that God is a liar-the fact that he
+He that believes not God has made Him a liar--[See Sermon #1207, Volume 20--a solemn impeachment of unbelievers.] He need not actually say that God is a liar-the fact that he
 
 does not believe Him has practically made out that God is a liar. How many of us are there to whom this passage applies? "He that believes not God has made Him a liar"--
 

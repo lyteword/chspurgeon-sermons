@@ -6,7 +6,7 @@ IT is absolutely certain, dear Friends, that whatever our personal characters ma
 
 Since, dear Friends, the stream of sorrow is here, and we cannot make it flow in any other direction, what shall we do with it? Let us try to put it to profitable uses! Let us lift up our heart in prayer to God that all our sorrows may be sanctified--that, with all other things, they may work together for our lasting good--and that we, who are the children of God, may be perfected in the image of Christ according to the Divine Purpose. Let us remember, however, that sorrow will not of itself be beneficial to us. It is possible to endure afflictions on earth and afterwards to endure eternal damnation in Hell. Sinners may go from beds of languishing to beds of flame, from toil and poverty here, to torment and all despair hereafter. There is nothing at all in sorrow that can burn out sin--there is no power in human suffering to remove the wrath of God!
 
-I shall commence my discourse with this very simple remark--IN THEIR TIMES OF DISTRESS, GOD'S PEOPLE HAVE OFTEN FOUND VERY GREAT PROFIT.
+I shall commence my discourse with this very simple remark--IN THEIR TIMES OF DISTRESS, GOD's PEOPLE HAVE OFTEN FOUND VERY GREAT PROFIT.
 
 Suffering is one of the things which is written in the Covenant of Grace as a blessing. The rod was promised to us when we became the children of God and we cannot escape it. And I think the poet Cowper was right when he said that "the trueborn child of God" would not escape it if he might. The distress of Believers, when it is sanctified to them, loosens their hold upon this world. Trials cut the ropes which fasten our souls to earthly things and so enable us to mount. They file the chains which, as on the eagle's foot, will not let her spread her wings and soar upward toward the sun. Trouble, like a sharp spade, digs up the earth that is about our roots and then we bring forth more fruit. Were it not for the thorns in our nest, we would be so content with its soft lining that we would sit in it till we died. But the sharp thorns prick our breasts and then we turn our eyes aloft and learn to try our wings, ready for the time when they shall have fully grown and we shall mount to joys above!
 
@@ -36,7 +36,7 @@ Ah, Brothers and Sisters, there have been many who have thus, by a series of ber
 
 But now I come to the main point of my discourse which is that although distress is often blessed to God's people, and is frequently sanctified to the conversion of sinners, our text is a notable proof that THERE IS NOTHING
 
-IN TRIAL, ITSELF, WHICH WILL NECESSARILY SOFTEN THE HEART AND MAKE A MAN REPENT. "In the
+IN TRIAL, ITSELF, WHICH WILL NECESSARILY SOFTEN THE HEART AND MAKE a MAN REPENT. "In the
 
 time of his distress did he trespass yet more against the Lord: this is that king Ahaz."
 

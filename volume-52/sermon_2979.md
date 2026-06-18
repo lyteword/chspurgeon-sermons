@@ -4,7 +4,7 @@
 
 MOST writers upon this Psalm, after having referred the banner to the Kingdom of David, say that there is here a reference to the Messiah. We believe there is. Nor is that reference an obscure allusion. In the Lord Jesus we find the clue to the history and the solution of the prophecy. He is the banner--He is the ensign that is lifted up before the people. He is Jehovah-Nissi, "the Lord My Banner," whom it is our joy to follow and around whom it is our delight to rally. We shall not stay to prove--though we might readily do so--that the banner here intended is no other than the Lord Jesus Christ in the majesty of His Person--in the efficacy of His merit--in the completeness of His righteousness--in the success of His triumph--in the glory of His advent. If you read it with an eye to Him, you have the meaning at once-- "You has given Christ as a banner to those who fear You, to be displayed because of the truth." So let us consider our Lord Jesus Christ, first, as He is compared to a banner. Secondly, by whom Hie is given. Thirdly, to whom Hie is given. And fourthly, for what purpose.
 
-Let us consider OUR LORD JESUS CHRIST AS HE IS COMPARED TO A BANNER.
+Let us consider OUR LORD JESUS CHRIST AS HE IS COMPARED TO a BANNER.
 
 The banner was far more useful, I suppose, in ancient, than it is in modern warfare. Times have changed and we are changed by them. Yet we still speak with reverence of the old flag. There is much meaning in the phrase, "the flag that's braved a thousand years the battle and the breeze." The soldier still waves the flag of his country and the sailor still looks with patriotic pride to the flag that has so long floated at England's masthead. Our metaphor, perhaps, rather points to ancient than present use.
 
@@ -76,7 +76,7 @@ And when Jacob saw them, he said, This is God's host: and he called the name of 
 
 And Jacob sent messengers before him to Esau his brother unto the land ofSeir, the country ofEdom. He is out of one trouble with Laban--now he is into another with Esau. Well did John Bunyan say--
 
-> A Christian man is seldom long at ease;   
+> a Christian man is seldom long at ease;   
 > When one trouble's gone, another does him seize.   
 
 5. And he commanded them, saying, Thus shall you speak unto my lord Esau, Your servant Jacob says thus, I have adjourned with Laban, and stayed there until now: and I have oxen, and asses, flocks, and menservants, and women servants: and I have sent to tell my lord, that I may find favor in your sight This is very respectful language, and rather submissive, too. But when a man knows that he has done wrong to another, he ought to be prepared to humble himself to the injured individual and, though it happened long ago, yet Jacob really had injured his brother Esau. So it was but right that in meeting him again, he should put himself into a humble position before him. There are some proud people who, when they know that they have done wrong, yet will not admit it. And it is very hard to end a quarrel when one will not yield and the other feels that he will not, either. But there is good hope of things going right when Jacob, who is the better of the two brothers, is also the humbler of the two.

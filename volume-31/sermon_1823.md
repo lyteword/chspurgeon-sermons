@@ -98,7 +98,7 @@ Sometimes our corrupt nature quarrels with God about our service. The Lord says,
 
 If you will stoop, you shall conquer. If you will yield, you shall have your desire. If you will be nothing, God will make much of you. If you will be lowly, God will exalt you. But if you will stand out against your Lord, as surely as He loves you, He will correct you and He will teach you better manners before He is done with you!
 
-Let us leave that point and close with a fourth observation--IT IS A GREAT PITY WHEN THIS KIND OF
+Let us leave that point and close with a fourth observation--IT IS a GREAT PITY WHEN THIS KIND OF
 
 WILLFULNESS STANDS IN THE WAY OF USEFULNESS. It would have been so with Peter if the Lord had not used the process by which He overcame him. "Not so, Lord," said Peter. "Not so, Lord, for I have never eaten anything that is common or unclean." In some things, Peter was a great deal too conservative. He says, "Not so, Lord," and some read it, "Never, Lord, never, Lord, for I have never!" That is, "I must never do a thing I have never done." Many are of this mind--they cannot advance an inch! This is the hymn they sing each morning before breakfast, "As it was in the beginning, is now and ever shall be, world without end. Amen." And until they go to bed at night, it is the tune they keep on singing, "As it was in the beginning. As it was in the beginning." They will never do what has not been done, nor learn what they have not learned!
 

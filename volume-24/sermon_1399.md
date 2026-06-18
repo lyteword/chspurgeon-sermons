@@ -20,7 +20,7 @@ No, but O Man, who are you that replies against God? If He says it, it is so! Be
 
 Now, let us look quietly at what Cain said. He said to the Lord, "Am I my brother's keeper?" May the Holy Spirit guide us in considering this question.
 
-First it is to be noted that MAN IS NOT HIS BROTHER'S KEEPER IN SOME SENSES. There is some little weight in what Cain says. Generally some amount of truth clings to every lie and even in the greatest possible profanity there is, usually, something or other of truth, though it is grievously twisted and distorted. In this atrocious question of Cain there is some little measure of reason. In some sense no man is his brother's keeper. For instance, every man must bear his own responsibility for his own acts before Almighty God. It is not possible for a man to shift from his own shoulders to those of another his obligations to the Most High.
+First it is to be noted that MAN IS NOT HIS BROTHER's KEEPER IN SOME SENSES. There is some little weight in what Cain says. Generally some amount of truth clings to every lie and even in the greatest possible profanity there is, usually, something or other of truth, though it is grievously twisted and distorted. In this atrocious question of Cain there is some little measure of reason. In some sense no man is his brother's keeper. For instance, every man must bear his own responsibility for his own acts before Almighty God. It is not possible for a man to shift from his own shoulders to those of another his obligations to the Most High.
 
 Obedience to the Law of God must be personally rendered or a man becomes guilty. No matter how holy his father, or how righteous his mother, he, himself will have to stand upon his own feet and answer for himself before the judgment seat of God. Each man who hears the Gospel is responsible for the hearing of it. No one else can believe the Gospel for him, or repent for him, or be born again for him, or become a Christian for him. He must, himself, personally, repent of sin, personally believe in Jesus Christ, personally be converted and personally live to the service and Glory of God. Every tub must stand on its own bottom. There have been idle attempts to shift the responsibility to a certain order of men called priests, or clergymen, or ministers--according as the case may be--but it cannot be done.
 
@@ -38,7 +38,7 @@ I remember years ago, when I labored to feel the responsibility of men's souls u
 
 Our responsibility is heavy enough without our exaggerating it! We are not men's sponsors and if they reject our Savior whom we faithfully preach, their blood must be upon their own heads. Our Lord did not always weep over Jerusalem--He sometimes rejoiced in spirit! No one thought must exclusively occupy our minds or we shall be good for nothing in practical life. We are not the keepers of other men's souls in a boundless sense--there is a limit to our responsibility and it is foolish to allow an excessive sensitiveness to burden us into semi-lunacy. There is, however, a sense in which we are our brother's keeper and of that I am now going to speak. You will bear my warning in mind and it will not weaken the force of what I say, but it will increase its weight, because you will feel that I have looked at the subject all round.
 
-So now, secondly, IN A HIGH DEGREE WE ARE, EACH ONE OF US, OUR BROTHER'S KEEPER. We
+So now, secondly, IN a HIGH DEGREE WE ARE, EACH ONE OF US, OUR BROTHER's KEEPER. We
 
 ought to regard ourselves in that light and it is a Cainish spirit which prompts us to think otherwise and to wrap ourselves up in hardheartedness and say, "It is no concern of mine how others fare. Am I my brother's keeper?" Let us be far from that spirit! For, first, common feelings of humanity should lead every Christian man to feel an interest in the soul of every unsaved man. I say, "common humanity," for we use the word, "humanity," to signify kindness.
 
@@ -94,7 +94,7 @@ I may add that all of you who name the name of Jesus, by that very fact, come in
 
 My time quite fails me. I need much more, but if I leave those thoughts with you I shall be well content. However, I must occupy a little longer space while I speak on the third head, namely, that IT WILL BE HIGH PRESUMPTION
 
-ON OUR PART IF, FROM THIS NIGHT FORWARD, WE SHIRK THE DUTY OF BEING OUR BROTHER'S
+ON OUR PART IF, FROM THIS NIGHT FORWARD, WE SHIRK THE DUTY OF BEING OUR BROTHER's
 
 KEEPER. I will set it very briefly in a strong light. It will be denying the right of God to make a Law and to call upon us to obey it if we refuse to do as we are told. God has so organized society that every man receiving light is bound to spread it--and if you decline the blessed service you will practically deny the right of God to require such service of you! You will be judging your Judge and lording it over your God. High treason lies in that!
 

@@ -8,7 +8,7 @@ I do not think that I would waste your time if I were to give you a lecture upon
 
 I want, under the guidance of the Holy Spirit, to speak upon this subject. First, here is a descriptive title which may be fitly applied to Christ by many of us. He is our own Friend, and also our father's Friend. Secondly, here is suggestive advice concerning this Friend. "Forsake Him not." And before I have done, I shall say a little upon a consequent resolution. I hope that we shall turn the text into a solemn resolve and say, "My own Friend, and my father's Friend, I will not forsake."
 
-First, then, here is A DESCRIPTIVE TITLE for our blessed Lord and Master.
+First, then, here is a DESCRIPTIVE TITLE for our blessed Lord and Master.
 
 First, he is a Friend, the Friend of man. I know that Young calls him the "great Philanthropist." I do not care to see that title--it is not good enough for Him--though truly the great Lover of man is Christ. Better still is the title which was given to Him when He was upon earth, "the Friend of sinners."--
 

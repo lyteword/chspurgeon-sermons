@@ -7,7 +7,7 @@ OR, as some read it, "The Lord gives, and the Lord takes away; blessed be the na
 
 There are two points to which I ask your earnest attention while we meditate upon this subject. The first is the exhortation drawn from the text--learn to see the Lord's hand in everything--in giving and in taking. And, secondly--and this is a harder lesson--learn to bless the Lord's name in everything--in giving and in taking.
 
-First, LET US LEARN TO SEE THE LORD'S HAND IN EVERYTHING.
+First, LET US LEARN TO SEE THE LORD's HAND IN EVERYTHING.
 
 Our whole history seems to be divided, as our text divides itself, into a beholding of God's hand in giving and then a beholding of it in taking.
 
@@ -46,7 +46,7 @@ To use another figure, our position is like that of a nurse into whose care a mo
 
 'If You should call me to resign What most Iprize--it never was nine! I only yield You what was Yours-- Your will be done!'"
 
-The second part of my discourse must be briefer than the first part, yet it is equally important. It is this, LEARN TO BLESS THE LORD'S NAME IN EVERYTHING. Learn to ring the bells of His praise all day long and, for that matter, all night long, too!
+The second part of my discourse must be briefer than the first part, yet it is equally important. It is this, LEARN TO BLESS THE LORD's NAME IN EVERYTHING. Learn to ring the bells of His praise all day long and, for that matter, all night long, too!
 
 First, bless the name of the Lord when He reveals His hand in giving.' 'Ah," you say, "that is an easy thing to do." So it ought to be, my Brothers and Sisters in Christ, and it is a neglect of our duty when we do not do it. We come down to our breakfast in the morning rejoicing in health and strength, and we go out to our day's engagements but, I hope not without thankfulness that we are in health and that we have food to eat, and raiment to put on! We are out all day and things prosper with us, but I trust that we do not accept all this as a matter of course--but that we praise the Lord for it all day long--and then when we go home again at night, and God is still with us, I hope we do not fall asleep before we again praise Him. John Bunyan used to say that the very chickens shame us if we are ungrateful, for they do not take a drink of water without lifting up their heads, as if in thankfulness, for the refreshing draught. If we, who are the Lord's children, do not bless Him for the mercies which so constantly come to us from Him, we are, of all people, the most ungrateful! Oh, for a grateful frame of mind, for I am sure that is a happy frame of mind. Those who are determined to murmur and to complain of God's dealings with them, are sure to find plenty of things to complain of--while those who are of a thankful spirit will see reasons and occasions for gratitude in everything that happens!
 

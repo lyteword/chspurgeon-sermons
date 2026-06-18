@@ -32,7 +32,7 @@ Genuine people of God, then, have the Lord to be their God according to the firs
 
 That, then, is the first mark of the Lord's people--the Lord is their God.
 
-A second mark of the Lord's people is given in our text. Read the whole of the first sentence and you will see that he who feels that God has called upon him, to serve him with all his strength, is one of the Lord's servants--"Your God has commanded your strength." That is to say, ALL THE STRENGTH OF A CHRISTIAN--physically, mentally, morally, spiritually--IS AT GOD'S DISPOSAL.
+A second mark of the Lord's people is given in our text. Read the whole of the first sentence and you will see that he who feels that God has called upon him, to serve him with all his strength, is one of the Lord's servants--"Your God has commanded your strength." That is to say, ALL THE STRENGTH OF a CHRISTIAN--physically, mentally, morally, spiritually--IS AT GOD's DISPOSAL.
 
 A true Christian acknowledges that all he has, and the best of all that he has, should always be consecrated and dedicated to his Lord. First, we are heartily to obey God's commands. There is no part of our strength that we may reserve for ourselves--it all belongs to our Lord. We are to be like a soldier who, when he goes to war, thinks of nothing but how he shall discharge his duties so as to please his commanding officer.
 
