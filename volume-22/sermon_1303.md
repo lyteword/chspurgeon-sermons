@@ -55,7 +55,7 @@ No sense of perfect home rest ever comes over the soul while we are here, except
 
 Well, Brothers and Sisters, we find no such home spiritually in this world, for this is the place of conflict and watchfulness. Here we dwell among enemies and we have to sorrowfully cry--"My soul is among lions, among those that are set on fire of Hell." We sing--
 
-> Woe's me that I in Mesech am A sojourner so long!   
+> Woe's me that I in Mesech am a sojourner so long!   
 > That I in tabernacles dwell   
 > To Kedar that belong.   
 > My soul with him that hates peace   

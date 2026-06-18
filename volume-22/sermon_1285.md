@@ -14,7 +14,7 @@ A repeat ought to be considered a beauty rather than a blemish in music. There i
 
 My present purpose is to endeavor to show you why there should be six verses here when one verse might have sufficed. It is clear one might have been quite sufficient. Suppose it had run thus--"Who slew famous kings, Sihon king of the Amorites and Og king of Bashan, and gave their land for a heritage to His people: for His mercy endures forever." That would have comprehended all the sense, but the Holy Spirit did not judge that to be the best way of speaking, and so He divided it into six parts. He repeated it that there might be heard six times the refrain--"His mercy endures forever." Not, I think, merely for the sake of repeating that beautiful Truth of God so often, but for other reasons connected with the Truth of which He was writing. It is well to dwell long and to dwell deliberately, upon some of God's dealings with us. This is the theme on which I want to thread a few ideas.
 
-And, first, IT IS WELL TO DELIBERATE LONG OVER THE MERCIFUL SIDE OF GOD'S JUDGMENTS. One does not always see mercy in, He "slew mighty kings: for His mercy endures forever: and smote famous kings: for His mercy endures forever." It would have read more naturally if He had said, "Who smote mighty kings: for His justice endures forever: and slew famous kings: for His vengeance endures forever." The point to be brought out, however, was
+And, first, IT IS WELL TO DELIBERATE LONG OVER THE MERCIFUL SIDE OF GOD's JUDGMENTS. One does not always see mercy in, He "slew mighty kings: for His mercy endures forever: and smote famous kings: for His mercy endures forever." It would have read more naturally if He had said, "Who smote mighty kings: for His justice endures forever: and slew famous kings: for His vengeance endures forever." The point to be brought out, however, was
 
 that there was mercy in these judgments. The Holy Spirit would have us know that there is mercy abroad in the world even--
 
@@ -91,7 +91,7 @@ Oh, if only I heard Christians often saying one to another, "Have you heard what
 
 contrary, they are gladdened and made to rejoice. "Come and hear, all you that fear God, and I will tell you what He has done for my soul!" I am sure the response of all God's people will be--"Let us hear it! Tell it to us, for we will rejoice with you and magnify the name of the Most High."
 
-Fourthly, CONTINUED BENEFITS ARE A SPECIAL PROOF OF ENDURING MERCY. For God to slay Sihon, king of the Amorites, may hardly prove, by itself, that His mercy endures forever, though it does prove that He had mercy then. Therefore the inspired poet wisely strikes that string and before the note has died away upon the listening ear, He touches another. "Og king of Bashan," says He, "for His mercy endures forever." One, two, three, four, five, six succeeding stanzas--these mercies come quickly, one after the other, and so they show the continuance of the mercy, while the unbroken succession of wave upon wave in ceaseless regularity gives sanction to the chorus, "His mercy endures forever!"
+Fourthly, CONTINUED BENEFITS ARE a SPECIAL PROOF OF ENDURING MERCY. For God to slay Sihon, king of the Amorites, may hardly prove, by itself, that His mercy endures forever, though it does prove that He had mercy then. Therefore the inspired poet wisely strikes that string and before the note has died away upon the listening ear, He touches another. "Og king of Bashan," says He, "for His mercy endures forever." One, two, three, four, five, six succeeding stanzas--these mercies come quickly, one after the other, and so they show the continuance of the mercy, while the unbroken succession of wave upon wave in ceaseless regularity gives sanction to the chorus, "His mercy endures forever!"
 
 Thus, dear Brethren, were we in the habit of dwelling distinctly upon God's distinct mercies, do you not think we should have in our souls a firmer faith as to the endurance, the continuity, the everlastingness of the mercy of God? Oh, what the Lord did for us when we were babes in Grace! When we think of what He did then, we say, "His mercy endures forever." Then consider what He did for us when we were young men in Christ Jesus! "His mercy endures forever." Think of what He has done for us after we have grown to be fathers! "His mercy endures forever." And O you gray heads, tell of what the Lord has done for you, for when you put all four ages together you can say with peculiar emphasis, "His mercy endures forever."
 
@@ -101,7 +101,7 @@ Do you not see that the striking of these bells, one by one--the bringing out of
 
 "For His mercies shall endure Ever faithful--ever sure."
 
-Fifthly, THE OVERRULING OF TRIALS IS A SUBJECT TO DWELL UPON WITH DELIGHT. Read the
+Fifthly, THE OVERRULING OF TRIALS IS a SUBJECT TO DWELL UPON WITH DELIGHT. Read the
 
 verses--"And gave their land for a heritage: for His mercy endures forever: even a heritage unto Israel His servant, for His mercy endures forever." The Israelites did not expect to have the territory of Sihon and Og. Their land was on the other side of the Jordan, but since Sihon and Og assailed them as unexpected foes, they got out of them unexpected territory.
 
@@ -121,7 +121,7 @@ It is impossible for a Christian to be very strong--in certain ways, at any rate
 
 And so, when we have become used to trial and trouble, faith is to us a far more simple matter than it was before. Then we become "strong in the Lord and in the power of His might." What shall we say, then? Thanks to Sihon, king of the Amorites, and Og, king of Bashan, for teaching us war? No, but we will thank the Lord who has given "their land to be a heritage, even a heritage for Israel His servant: for His mercy endures forever."
 
-Lastly, THE HAPPENING OF ALL THIS TO THE SAME PERSONS IS A FURTHER ILLUSTRATION
+Lastly, THE HAPPENING OF ALL THIS TO THE SAME PERSONS IS a FURTHER ILLUSTRATION
 
 THAT HIS MERCY ENDURES FOREVER. These six verses tell of great things done for Israel, all for Israel. That last verse is very sweet to me--"Even a heritage unto Israel His servant." What are the kings slain for? For Israel. What does Sihon die for? For Israel. Why does Og fall? For Israel. For whom is the heritage? For Israel. And who is Israel and what has Israel done to have all this?
 

@@ -130,4 +130,4 @@ It leaves you what you were before--it is not the faith, pure and simple, that w
 
 PORTION OF SCRIPTURE READ BEFORE SERMON--Romans 3:20. HYMNS FROM "OUR OWN HYMN BOOK"--351, 544, 406.
 
-[The original title of this sermon was A Remonstrance and a Rejoinder]
+[The original title of this sermon was a Remonstrance and a Rejoinder]
