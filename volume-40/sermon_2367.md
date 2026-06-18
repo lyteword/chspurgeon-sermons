@@ -24,7 +24,7 @@ Do you remember that wonderful poem by Miss Havergal, in which she speaks of the
 
 "They say there is a hollow, safe and still,
 
-A point of coolness and repose
+a point of coolness and repose
 
 Within the center of a flame where life might dwell
 
@@ -40,7 +40,7 @@ There is a point of rest
 
 At the great center of the cyclone's force,
 
-A silence at its secret source.
+a silence at its secret source.
 
 A little child might slumber undistracted,
 

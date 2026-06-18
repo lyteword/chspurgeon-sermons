@@ -54,7 +54,7 @@ How have you found Christ, my Brothers and Sisters? If you have known Him, what 
 
 So then, you have seen your Lord associated with His disciples up to this point, and you have learned that He has manifested nothing else towards them but love.
 
-But now, thirdly, WHAT A CHANGE WAS COMING OVER HIM! "Jesus knew that His hour was come that
+But now, thirdly, WHAT a CHANGE WAS COMING OVER HIM! "Jesus knew that His hour was come that
 
 He should depart out of this world unto the Father."
 

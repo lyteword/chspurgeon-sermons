@@ -96,7 +96,7 @@ The Lord grant His blessing to those who are to be baptized tonight! May they be
 
 EXPOSITION BY C. H. SPURGEON: PSALM39
 
-To the chief Musician, even to Jeduthun, A Psalm of David.
+To the chief Musician, even to Jeduthun, a Psalm of David.
 
 David dedicated some Psalms to Asaph and one or two to Jeduthun. Some of this chief musician's family appear to have remained singers as late as the time of Nehemiah. It is a great honor to be a singer in the House of God. Ungodly men have no right to lead the Psalmody--only redeemed lives can sing aright the song of redemption. I reckon that it is almost as wrong to have an unconverted person to lead the singing as it would be to have an unconverted man to preach the Gospel. David was in a great heat of spirit, and much tried, when he wrote this Psalm. There is little that is cheerful in it, yet there is much that may cheer us. Sometimes, when we are unusually thoughtful, we are more likely to be blessed than at other times. Specific gravity is better than specific levity--there are some who have a great deal of the latter quality.
 

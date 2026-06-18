@@ -6,7 +6,7 @@ THERE are times when the wicked seem to have things all their own way. This eart
 
 To comfort any of the Lord's children who have begun to worry themselves because things do not go with them as they desire, I have selected this text, and I pray the Lord to bless it to them.
 
-First, I shall ask you to notice that GOD'S CHILDREN ARE UNDER INSTRUCTION.
+First, I shall ask you to notice that GOD's CHILDREN ARE UNDER INSTRUCTION.
 
 Other children may run about and take holiday. They may wander into the woods, gather the flowers and do very much what they like, but God's own children have to go to school. This is a great privilege for them, although they do not always think so. Children are not often good judges of what is best for themselves. No doubt we should like to play the truant--we should be very glad to put away our schoolbags, quit the schoolhouse, go out by ourselves and wander at our own sweet will--but our heavenly Father loves us too well to let it be so with us. Because we are His children, therefore He will have us trained and prepared for that high destiny which awaits us, by-and-by.
 
@@ -42,7 +42,7 @@ At such times, too, we have proved, dear Friends, the power of the Word of God. 
 
 That leads me to say that, according to our text, God Himself is our Teacher. He is not satisfied with giving us a Book and smiting us when we are inattentive to its teachings, but He, Himself, teaches us. Was there ever a Teacher so full of wisdom, a Teacher who understood His pupils so well, a Teacher so altogether master of the whole art of teaching? Was there ever a Teacher so patient, so able to apply His lessons to the heart, itself, so full of power to give understanding as well as to make the thing clear to the understanding when it is given? Happy people, who have God to be their Tutor! Happy pupils, even though, when the school bell rings, you have half a mind to stay away and play with yonder children who do not belong to your school! Yet happy are you if you are truly God's scholars. Even if, every now and then, your days are spent in weeping, and your lessons are so badly done that they bring the rod upon you, yet are you happy children. "Blessed is the man whom You chasten, O Lord, and teach Him out of Your Law." So much, then, for our first head.
 
-Now upon our second point I will say a little, and only a little. We have had God's children under instruction. Now let us think of GOD'S CHILDREN EDUCATED. The Lord has chastened and taught His child for this purpose-- "That You may give him rest from the days of adversity, until the pit is dug for the wicked." "What?" you ask, "chas-
+Now upon our second point I will say a little, and only a little. We have had God's children under instruction. Now let us think of GOD's CHILDREN EDUCATED. The Lord has chastened and taught His child for this purpose-- "That You may give him rest from the days of adversity, until the pit is dug for the wicked." "What?" you ask, "chas-
 
 tened to give us rest? It is usual for chastening to break our rest." Yes, I know that it is so with other chastening, but in very deed this is the way in which God gives rest to His people.
 
@@ -62,7 +62,7 @@ He spoke of me as though I were a great man and I assured him that he was quite 
 
 Much more might be said upon this part of my subject, especially about learning to look beyond this present life, but I have not the time or the strength to say it.
 
-I must now go on to the third point which is that GOD'S CHILDREN ARE STILL DEAR TO HIM. We have
+I must now go on to the third point which is that GOD's CHILDREN ARE STILL DEAR TO HIM. We have
 
 thought of them at school, chastened and instructed, and we have seen them learning a few lessons. Now let us notice how dear they are to their Lord at all times, for the text says, "The Lord will not cast off His people, neither will He forsake His inheritance."
 
@@ -76,7 +76,7 @@ Then, further, the Lord will not forsake His people, for it is added, "Neither w
 
 I do not feel as if I need say much more upon this theme, but it is enough for me, I think, just to remind you of those precious Words of our great and gracious Father which are many times repeated in His Word, "I will never leave you, nor forsake you," and leave them with you, His children. Take them and feed upon them! God give you to know the full comfort of them!
 
-So I shall close with this fourth point--GOD'S PEOPLE WILL BE RIGHTED IN THE END. "Judgment shall return unto righteousness: and all the upright in heart shall follow it."
+So I shall close with this fourth point--GOD's PEOPLE WILL BE RIGHTED IN THE END. "Judgment shall return unto righteousness: and all the upright in heart shall follow it."
 
 Just now, judgement has gone away. It has gone up to its own land. Judgment is within the veil, but there are reasons for its absence from us. Judgment has gone away, perhaps, that it may try the faith of God's people. The Lord does not, today, strike down the profane, nor slay the hypocrite, as He might if He dealt with them in strict justice. Judgment has gone out of the world for a while, though it watches and records all things. It is gone, partly, for our trial and testing, that we may learn to trust an absent God and Savior. Judgment is also gone away in order that mercy may be extended to the ungodly, that they may live and that they may turn to God, for He wills not the death of any, but that they may turn to Him and live. Judgment has gone up to the Throne for a while until the wicked shall have completed the full measure of their sin, "until the pit is dug for the wicked." Not yet is the iniquity of the Amorites full--and judgment has gone away and will stay away until it is.
 

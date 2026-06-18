@@ -16,7 +16,7 @@ losophical difficulties? Can you not, if you think of anything--be it the most c
 
 However, for the help of some sincere seekers after Christ who may be in perplexity, I will speak about this matter that troubles them. Let me read the text again--"No man can come to Me, except the Father who sent Me draws him: and I will raise him up at the last day. It is written in the Prophets, 'And they shall all be taught by God.' Therefore, everyone who has heard, and has learned of the Father, comes unto Me."
 
-Our first observation upon this text is that THE ALL-IMPORTANT MATTER OF FAITH IS A VERY SIMPLE BUSINESS. Twice is it mentioned here, and the only definition of it that is given is coming to Christ--"No man can come to Me." And, again, in the forty-fifth verse, "Comes unto Me."
+Our first observation upon this text is that THE ALL-IMPORTANT MATTER OF FAITH IS a VERY SIMPLE BUSINESS. Twice is it mentioned here, and the only definition of it that is given is coming to Christ--"No man can come to Me." And, again, in the forty-fifth verse, "Comes unto Me."
 
 Faith in Christ is simply and truly described as coming to Him. It is not an acrobatic feat--it is simply a coming to Christ. It is not an exercise of profound mental faculties--it is coming to Christ. A child comes to his mother. A blind man comes to his home. Even an animal comes to his master. Coming is a very simple action, indeed. It seems to have only two things about it. One is, to come away from something, and the other is, to come to something.
 

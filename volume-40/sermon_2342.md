@@ -17,7 +17,7 @@ I thought our text might be a very serviceable Word of God for this first Sabbat
 
 Looking at the text, we may divide it into two parts. In the first portion, we have a very blessed fact--"Lord, You have heard the desire of the humble." In the second part, we have two very blessed assurances--"You will prepare their heart, You will cause Your ear to hear."
 
-We will begin with what the text says about A VERY BLESSED FACT--"Lord, You have heard the desire of the
+We will begin with what the text says about a VERY BLESSED FACT--"Lord, You have heard the desire of the
 
 humble."
 

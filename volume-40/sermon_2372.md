@@ -2,7 +2,7 @@
 
 "Look You upon me and be merciful to me, as You used to do to those who love Your name." Psalm 119:132.
 
-["We believe that David wrote this Psalm. It is Davidic in tone and expression and it tallies with David's experience in many interesting points. In our youth, our teachers called it, 'David's pocketbook,' and we incline to the opinion often expressed that here we have the royal diary written at various times throughout a long life."--C. H. SPURGEON'S Note in The Treasury of David as to the author of Psalm 119.]
+["We believe that David wrote this Psalm. It is Davidic in tone and expression and it tallies with David's experience in many interesting points. In our youth, our teachers called it, 'David's pocketbook,' and we incline to the opinion often expressed that here we have the royal diary written at various times throughout a long life."--C. H. SPURGEON's Note in The Treasury of David as to the author of Psalm 119.]
 
 PERHAPS YOU noticed, while I was reading, that during the writing of several of the verses, David occupied himself with the praises of God's Word. He kept to that point, extolling with all his might those Scriptures in which God had spoken to his heart, but he could not go on long without prayer. If these meditations were written in his pocket-book, day by day, it is noteworthy that although he fervently praises the Word of God, yet he also frequently breaks out into prayer. However the child of God may occupy his mind--and he very properly employs it in many holy occupations--yet he often turns to prayer, for he cannot live without it. Well does Montgomery say--
 
@@ -14,7 +14,7 @@ Notice, also, how brief David's prayer is, and yet how full of matter! I believe
 
 The whole of our text is but short, yet it contains much more meaning than I can bring out to you in this one discourse. I want to call your attention to four things in it. First, David's brief petition--"Look You upon me." Secondly, his humble confession (it is not given in so many words, but it lies hidden away like the perfumed violet beneath the green leaves)--"Be merciful unto me," which is a virtual confession of sin. Thirdly, his tacit profession, for he says, "as You used to do unto those that love Your name," which is tacitly saying that he loves God's name, or else he could not pray the Lord to deal with him as He used to do with such people. And, fourthly--and here I shall enlarge somewhat--his gracious aspiration. The highest, loftiest wish that David had was that God would deal with him as He was accustomed to do unto those that love His name. He did not want to fare either better or worse than the rest of the Lord's family, so he boldly prayed, "Look You upon me, and be merciful unto me, as You used to do unto those that love Your name."
 
-To begin with, here is, in our text, DAVID'S BRIEF PETITION--"Look You upon me."
+To begin with, here is, in our text, DAVID's BRIEF PETITION--"Look You upon me."
 
 I think that these words came to David's mouth from his heart and that he prayed, "Look You upon me," because his own eyes had failed him. Turn to the one hundred and twenty-third verse. If you look at it, you will see that one thing in a saint may suggest another. In that verse he wrote, "My eyes fail," and in our text he says, "Look You upon me. Lord, when I feel as if I could not look at You, do You look at me! My eyes fail me. I have washed them out with rivers of water, I have flooded them with fountains of grief. Unbelief has come in. I cannot see as I would--the dust of the world and the smoke of care have dimmed my eyes--I seem to grow blind, my Lord, and though I would always look at You and never take my eyes off You, yet my eyes fail me!" In such a case as that, it is so sweet to pray to God, "Look You upon me."
 
@@ -42,7 +42,7 @@ I think, too, that David meant one thing more, that is, that God's look could pr
 
 Does not the Psalmist mean all that I have said? And did I not speak truly when I told you that this little prayer, "Look You upon me," has much more in it than I can draw out of it in a single discourse? I advise you to pray it as it is, with all the meanings packed away in it--"Look You upon me." God help you to do so!
 
-Our next division is DAVID'S HUMBLE CONFESSION. It is not actually expressed in words, but it is hidden away in his next utterance--"Be merciful unto me."
+Our next division is DAVID's HUMBLE CONFESSION. It is not actually expressed in words, but it is hidden away in his next utterance--"Be merciful unto me."
 
 The Psalmist's confession is the link between his first prayer and this second supplication. His prayer grew out of this confession. He prayed to the Lord, "Look You upon me," because he could not, himself, look to God. And then he added this petition because he realized his need of Divine mercy. "Be merciful unto me." Do you remember the Savior's parable, or the fact the Savior described when He said, "Two men went up into the Temple to pray. One of them, the publican, standing afar off, would not lift up so much as his eyes unto Heaven, but smote upon his breast, saying, 'God be merciful to me a sinner'"? Surely David, long before that story was told, was acting it out! He dared not look up to God. He could not look up, or he would not have prayed, "Look You upon me."
 
@@ -54,7 +54,7 @@ ceive forgiveness of sin, what a mercy that is! Did you ever try to fathom the d
 
 There I will leave this part of my subject, but I pray God the Holy Spirit not to leave it, but to lay it home to some hearts here. People are getting ready for Whitsuntide--some will be going into the country, and others are obliged to keep their shops open late before the holidays--therefore we are fewer in number, here, than usual, but I have been wondering whether God does not intend to save somebody who has come in here, tonight, because it is the holiday season? The Lord grant that it may be so! What can be more appropriate to you who are conscious of guilt and groaning under the heavy burden of sin, than that you should pray these two petitions of David's supplication--"Look You upon me, and be merciful unto me"?
 
-The third point, upon which I will not detain you long, is DAVID'S TACIT PROFESSION. There is, again, hidden away, here, not uttered in words, but secretly implied, a profession of love for the Lord--"Look You upon me, and be merciful unto me, as You used to do unto those that love Your name"
+The third point, upon which I will not detain you long, is DAVID's TACIT PROFESSION. There is, again, hidden away, here, not uttered in words, but secretly implied, a profession of love for the Lord--"Look You upon me, and be merciful unto me, as You used to do unto those that love Your name"
 
 If the Psalmist does not actually declare that he loves God's name, he does at least say, "Lord, put me down among them that love Your name. Count me with them. I want to love Your name, O Lord; therefore, treat me as You treat
 
@@ -76,7 +76,7 @@ The genuine child of God also loves God's Revelation. That is often what is mean
 
 I must not say more on this point, for I have only a little time left, and I need that for the last division of my discourse.
 
-Fourthly, we are to consider DAVID'S GRACIOUS ASPIRATION. What he asks is that God would be merciful to him as He is accustomed to be to those who love His name. That is our aspiration, too--I trust we want God to deal with us as He deals with the rest of His people.
+Fourthly, we are to consider DAVID's GRACIOUS ASPIRATION. What he asks is that God would be merciful to him as He is accustomed to be to those who love His name. That is our aspiration, too--I trust we want God to deal with us as He deals with the rest of His people.
 
 Notice, here, that David would be dealt with as saints have always been dealt with. If God treats us as He treats His children, I think we may be perfectly satisfied. There was a time when, if anybody had said to me, "The Lord will put you among His children and treat you as one of them," I would have been ready to dance for joy! And I do not run back, today, from the solemn conviction that if He will only treat me as He treats the rest of His family, I shall be perfectly satisfied. How is that? How does the Lord deal with His children?
 
