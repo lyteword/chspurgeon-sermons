@@ -97,7 +97,7 @@ But you say, "I must bring some merits." Hark to the blood that speaks! It says,
 
 I am afraid there are many that do not know what we mean by believing. Good Dr. Chalmers once visiting a poor old woman, told her to believe in Christ, and she said, "But that is just the thing I do not know what you mean by." So Dr. Chalmers said, "Trust Christ." Now, that is just the meaning of believing. Trust him with your soul; trust him with your sins; trust him with the future; trust him with the past; trust him with everything. Say,
 
-> A guilty, weak, and worthless worm,    
+> a guilty, weak, and worthless worm,    
 > On Christ's kind arms I fall    
 > Be thou my strength and righteousness,    
 > My Jesus and my all.    

@@ -70,7 +70,7 @@ Now, the comfortable reflection is this:&mdash;Some of you this morning are cons
 
 > Oh, sovereign grace my heart subdue;    
 > I would be led in triumph, too,    
-> A willing captive of my Lord,    
+> a willing captive of my Lord,    
 > To sing the triumph of his Word"?    
 
 And have I not myself heard you say in your heart&mdash;"Jesus, Jesus, my whole trust Is in thee: I know that no righteousness of my own can save me, but only thou, O Christ&mdash;sink or swim, I cast myself on thee?" Oh, my brother, thou art drawn by the Father, for thou couldst not have come unless he had drawn thee. Sweet thought! And if he has drawn thee, dost thou know what is the delightful inference? Let me repeat one text, and may that comfort thee: "The Lord hath appeared of old unto me, saying, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee." Yes, my poor weeping brother, inasmuch as thou art now coming to Christ, God has drawn thee; and inasmuch as he has drawn thee, it is a proof that he has loved thee from before the foundation of the world. Let thy heart leap within thee, thou art one of his. Thy name was written on the Saviour's hands when they were nailed to the accursed tree. Thy name glitters on the breast-plate of the great High Priest to-day; ay, and it was there before the day-star knew its place, or planets ran their round. Rejoice in the Lord ye that have come to Christ, and shout for joy all ye that have been drawn of the Father. For this is your proof, your solemn testimony, that you from among men have been chosen in eternal election, and that you shall be kept by the power of God, through faith, unto the salvation which is ready to be revealed.

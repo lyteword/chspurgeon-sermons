@@ -14,7 +14,7 @@ Now, beloved, there be many who think that God the Father is at best but an indi
 > Twas not to make Jehovah's love    
 > Toward his people flame,    
 > That Jesus from the throne above,    
-> A suffering man became.    
+> a suffering man became.    
 
 > Twas not the death which he endured,    
 > Nor all the pangs he bore,    

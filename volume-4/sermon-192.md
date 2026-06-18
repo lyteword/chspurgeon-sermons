@@ -1,4 +1,4 @@
-# Sermon 192 | The Sunday-School Teacher&mdash;A Steward
+# Sermon 192 | The Sunday-School Teacher&mdash;a Steward
 
 On behalf of the Sunday School Union
 

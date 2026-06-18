@@ -56,7 +56,7 @@ And you children of God, I turn to you, for you have your doubts too. Would you 
 
 And really I am convinced that every Christian has his doubts at times, and that the people who do not doubt are just the people that ought to doubt; for he who never doubts about his state perhaps may do so when it is too late. I knew a man who said he never had a doubt for thirty years. I told him that I knew a person who never had a doubt about him for thirty years. "How is that?" said he "that is strange." He thought it a compliment. I said, "I knew a man who never had a doubt about you for thirty years. He knew you were always the most confounded hypocrite he ever met; he had no doubt about you." But this man had no doubt about himself: he was a chosen child of God, a great favourite of the Most High; he loved the doctrine of Election, wrote it on his very brow; and yet he was the hardest driver and the most cruel oppressor to the poor I ever met with, and when brought to poverty himself, he might very frequently be seen rolling through the streets. And this man had not a doubt for thirty years; and yet the best people are always doubting. Some of those who are just living outside the gates of heaven, are afraid of being cast into hell after all; while those people who are on the high road to the pit are not the least afraid. However, if you would get rid of your doubts once more, turn to Christ. You know what Dr. Carey had put on his tomb-stone&mdash;just these words, for they were his comfort;&mdash;
 
-> A guilty, weak, and helpless worm,    
+> a guilty, weak, and helpless worm,    
 > Into Christ's arms I fall;    
 > He is my strength and righteousness,    
 > My Jesus and my all.    

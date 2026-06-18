@@ -13,7 +13,7 @@ The religion, then, of the present, is not the worldling's religion. He tolerate
 
 What man is there who having once set his heart on riches, did not find his delight in the thought of being rich increase with the nearness of his approach to the desired object? And are we not all of us accustomed, when we think a good thing is at a distance, to try if we can shorten the time between us and it. We try anything and everything to push on the lagging hours; we chide them, wish that Time had double wings, that he might swiftly fly and bring the expected season. When the Christian talks of heaven, you will always hear him try to shorten the distance between himself and the happy land; he says,&mdash;
 
-> A few more rolling suns at most    
+> a few more rolling suns at most    
 > Will land me on fair Canaan's coast.    
 
 There may be many years between him and paradise, but still he is prone to say,
