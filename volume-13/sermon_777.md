@@ -24,7 +24,7 @@ This brigade of "helps," if I understand Bunyan right, are stationed all round t
 
 Such seem to me to be the sort of "helps" we want. Such, perhaps, these ancient "helps" may have been.
 
-I want, first of all, to GIVE A FEW DIRECTIONS TO THESE "HELPS" AS TO HOW THEY MAY HELP POOR SINNERS OUT OF THE SLOUGH OF DESPOND. After some little experience I have had in helping others, I would recommend one particular course at the outset. When you meet with someone who is despairing and thinks he cannot be saved, get him to state his case. This should always be the first thing.
+I want, first of all, to GIVE a FEW DIRECTIONS TO THESE "HELPS" AS TO HOW THEY MAY HELP POOR SINNERS OUT OF THE SLOUGH OF DESPOND. After some little experience I have had in helping others, I would recommend one particular course at the outset. When you meet with someone who is despairing and thinks he cannot be saved, get him to state his case. This should always be the first thing.
 
 When Help went to Christian he did not at once put out his hand to him, but he said, "What are you doing there? How did you get there?" It does men good to state their spiritual case to others. Confession to a priest is a piece of abomination, but sometimes the communication of our spiritual difficulties to another will be, in itself, a most helpful exercise to ourselves. You will know how to deal with them and they will know the better what you want when they put their necessities into words. I have occasionally found that the mere act of stating a difficulty has been the very means of at once removing it.
 

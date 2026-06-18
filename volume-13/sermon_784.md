@@ -60,7 +60,7 @@ I trust we are not so utterly abandoned to spiritual blindness and ingratitude! 
 
 Whatever may be the commendable motive for any statement, yet it must not be made if it is not accurate, and
 
-therefore, in the second place, I come to observe OUR LORD'S JUSTIFICATION FOR THIS COMMENDATION,
+therefore, in the second place, I come to observe OUR LORD's JUSTIFICATION FOR THIS COMMENDATION,
 
 which is abundantly satisfactory to all who know Him. What our Lord says of Himself is strictly true. It falls short of the mark, it is no exaggeration. Observe each one of the words. He begins, "I am." Those two little words I would not insist upon, but it is no straining of language to say that even here we have a great deep. What creature can, with exact truthfulness, say, "I am"?
 

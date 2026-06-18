@@ -104,7 +104,7 @@ The figure seems to me to indicate two or three things in one. There is health h
 
 Now, dear Christian Brothers and Sisters, I would earnestly ask you not to be content without the enjoyment of this blessing. The more one looks upon the world, the more one is convinced that Christian joy is, after all, Christian strength. Doubts and fears cut the very foundations of Christian power. Strong faith is that which wins the victory, while unbelief deprives us of all hope of conquest, and lays us groveling in the mire beneath the feet of our own very weakest foe. Oh, for more of this holy joy! I have told you how to get it. Fulfill the conditions we referred to in the former part of this discourse and then you shall have your bones made fat.
 
-The fourth blessing is this, "AND YOU SHALL BE LIKE A WATERED GARDEN." This figure of a garden is a very sweet and attractive one. I need not tell you how much taste may be displayed and how much pleasure may be derived from the cultivation of such plots of ground. Our fancy is soon at work to invent a picture of flower beds, and fruit
+The fourth blessing is this, "AND YOU SHALL BE LIKE a WATERED GARDEN." This figure of a garden is a very sweet and attractive one. I need not tell you how much taste may be displayed and how much pleasure may be derived from the cultivation of such plots of ground. Our fancy is soon at work to invent a picture of flower beds, and fruit
 
 trees, shady walks, and pleasant fountains laid out close to some grand mansion and opening its fairest views to the best apartments of the palace.
 

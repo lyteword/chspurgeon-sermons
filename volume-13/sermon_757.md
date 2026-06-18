@@ -101,7 +101,7 @@ Though the grass is free to all men who choose to eat it, yet no creature cares 
 
 God is seen in the grass as the Worker and the Caretaker. Then let us see His hand in Providence at all times. Let us see it and lean upon it, not only when we have abundance, but even when we have none, for the grass is preparing for the cattle even in the depth of winter. God is preparing and breaking the soil. He is sending the juices into the roots, giving the roots a little rest that they may afterwards bring forth abundance. And you, you sons of sorrow, in your trials and troubles, are still cared for by God. He has an end to serve in all your griefs and miseries. He will accomplish His own Divinely gracious purpose in you--only be still and see the salvation of God! Every winter's night has a direct connection with the joyous days of mowing and reaping, and each time of grief is linked to future joy.
 
-Our third head is most interesting. GOD'S WORKING IN THE GRASS FOR THE CATTLE GIVES US ILLUSTRATIONS CONCERNING DIVINE GRACE. I ask every Christian here to give me his earnest attention for a few
+Our third head is most interesting. GOD's WORKING IN THE GRASS FOR THE CATTLE GIVES US ILLUSTRATIONS CONCERNING DIVINE GRACE. I ask every Christian here to give me his earnest attention for a few
 
 minutes, and I think he may hear something which may cheer him. I will suppose that I am soliloquizing, and I will say to myself as I read the text, "He causes the grass to grow for the cattle. Here I perceive a satisfying provision for that form of creature.
 

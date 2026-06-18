@@ -1,4 +1,4 @@
-# Sermon 785 | Wanted, A Guest Chamber!
+# Sermon 785 | Wanted, a Guest Chamber!
 
 "The Master says, Where is the guest chamber, where I shall eat the Passover with My disciples."- Mark 14:14.
 
@@ -20,7 +20,7 @@ In the worst times of superstition God raises up witnesses for His Truth. We nee
 
 I shall now call your attention to the whole incident of our Lord's finding a guest chamber in which to keep the Passover. I shall regard the question which I have selected for a text, first, as the mighty word of the Master's effectual Grace, and next, as the affectionate enquiry of the servant's obedient solicitude.
 
-First, the Master says, "Where is the guest chamber?" This question may be regarded as THE MIGHTY WORD OF THE MASTER'S EFFECTUAL GRACE. Our Lord intended to celebrate the Passover in the large upper room belonging to the person to whom He sent Peter and John. The message which He sent by their lips was all-powerful--the man at once yielded up his furnished parlor without difficulty or demur, because there went a power with the word which the man was unwilling and unable to resist.
+First, the Master says, "Where is the guest chamber?" This question may be regarded as THE MIGHTY WORD OF THE MASTER's EFFECTUAL GRACE. Our Lord intended to celebrate the Passover in the large upper room belonging to the person to whom He sent Peter and John. The message which He sent by their lips was all-powerful--the man at once yielded up his furnished parlor without difficulty or demur, because there went a power with the word which the man was unwilling and unable to resist.
 
 Viewing this as a symbolical representation of the way in which hearts are won for Jesus, we observe, in the first place, that the time and the circumstances were all appointed. Two Apostles were commanded to go to the city and when they should come to the city, Providence would be there working before them--they were to meet a man just at the entrance of the city. He was to be there at the very moment of their arrival--he and none but he. This man must bear a pitcher--the pitcher must be filled with water. The water carrier must proceed to a certain house, and to no other. This house must contain an upper room, large enough to receive Christ and 12 others. This room must be in the possession of a person who would be perfectly willing to receive the Master and His disciples, and the good man of the house must be home to show the room and give the messengers admittance at once.
 
@@ -91,7 +91,7 @@ And ought not this, moreover, to encourage every worker for God? Brethren, if th
 
 If we had to preach to thousands year after year, and never rescued but one soul, that one soul would be a full reward for all our labor, for a soul is of countless price! Let us be of good courage, the Master may give us all our hearers as our hire if He wills to do so! He can subdue the most hard heart with a word, and make our ministry, which has been barren up to this moment, suddenly become fruitful to His glory! God grant that many this day may learn what effectual Grace is, and Christ shall have all the praise.
 
-During the second part of our discourse we shall regard the question of the text as the AFFECTIONATE ENQUIRY OF THE LORD'S SERVANTS. We have not, this morning, any verbal direction as to any special person in this house. I am not told to speak especially to that young man, or to yonder young woman. I am not directed to address the appeals of the Gospel to those who may be sitting in this area, or to those in the galleries. I am not at all directed, as were Peter and John--still the directions to the Gospel-preacher are very sufficient and plain.
+During the second part of our discourse we shall regard the question of the text as the AFFECTIONATE ENQUIRY OF THE LORD's SERVANTS. We have not, this morning, any verbal direction as to any special person in this house. I am not told to speak especially to that young man, or to yonder young woman. I am not directed to address the appeals of the Gospel to those who may be sitting in this area, or to those in the galleries. I am not at all directed, as were Peter and John--still the directions to the Gospel-preacher are very sufficient and plain.
 
 Here they are, "Go you into all the world, and preach the Gospel to every creature." I am not called to preach to the elect alone--I do not know them. I know that my message will be of no service to any but the chosen, but, in order that it may come to these, it is our work to address it to all. We cast the net into the sea and the Lord sends us what fish He wills. To one and all, therefore, of you who have not known Christ, I have this question to ask--"The Master says, Where is the guest chamber?"
 
