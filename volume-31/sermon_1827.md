@@ -28,7 +28,7 @@ And all the heavens adore." "Consummatum est" is written at the foot of His Thro
 
 "A life eternal as Your years
 
-A glory infinite like Thine
+a glory infinite like Thine
 
 Repays Him for His groans and tears,
 
@@ -66,7 +66,7 @@ Dear Heart, there is no quarrel between you and God! Peace has been made through
 
 In addition to the fact that they are right with God, Believers have their present solaces in many ways. Grace endows them with immediate joys. I like that part of our song which we sang just now--
 
-"The hill of Zion yields A thousand sacred sweets Before we reach the heavenly fields, Or walk the golden streets."
+"The hill of Zion yields a thousand sacred sweets Before we reach the heavenly fields, Or walk the golden streets."
 
 If I were to try and tell all the things that make Christians glad, even here below, I should have to make an endless catalog! Where should I begin? Once beginning, where should I leave off? You can count your sorrows, dear Brothers and Sisters, I dare say. You are quite au fait at adding them all up, but I would have you to recapitulate your joys with equal readiness! Why not? Review the shining ranks of your mercies. Are they not new every morning? Is not the faithfulness of God exceedingly great? Oh, my Brothers and Sisters, God has done so much for us that we are glad! He has surprised us with the greatness of His goodness!
 
@@ -84,7 +84,7 @@ At this present moment there is a place in Heaven for me that nobody can ever fi
 
 The children of God have further cause to be glad because they have all blessings secured to them, so that they shall never lose them. That which their God has promised them shall never be taken from them. They are in a position of indisputable security, for they are hidden in the wounds of Christ, as in the clefts of the Rock of Ages. They shall never die, for they are members of His body who is immortal. They are in that hand from which none can ever snatch them. "I give unto My sheep eternal life, and they shall never perish: neither shall any pluck them out of My hand." Let us begin to be merry, as it is said in the parable of the prodigal son. "They began to be merry." I have read that parable ever so many times and I have looked to see whether it is written that they ever left off being merry--and I cannot find that they did. "They began to be merry." Very well, let us begin to be merry at this hour, dear Friends, and let us never leave off as long as we live! Let us rejoice forevermore. As long as we have a God to rejoice in, let us rejoice! As long as we have a Heaven to go to, let us rejoice! As long as we have an eternal Covenant ordered in all things and sure, let us rejoice! As long as we have any being, let us rejoice in the Lord!
 
-Secondly, let me remark that THE SAINTS' GLADNESS IS OF A PECULIAR SORT.
+Secondly, let me remark that THE SAINTS' GLADNESS IS OF a PECULIAR SORT.
 
 The gladness which is peculiar to the children of God is a gladness that God has worked in them. "You have made Him exceedingly glad." Oh, yes, I heard him! He seemed very glad, but when he began to explain to me his gladness, I could tell by his hiccough where he got it--he owed it to the deadly cup. Shame on him! Oh, yes, he was exceedingly glad, but when I saw his merriment, I could tell that it was his youth and his good health that gave him his gladness! These will soon vanish away. But the child of God owes his gladness to a deeper source--God has made him glad! He that can touch the secret springs of the heart, apart from circumstances or conditions, has often made a man glad when he has been racked with pain, or when he has been in the depths of poverty, or when he has been suffering at the demoniacal hands of inquisitors.
 

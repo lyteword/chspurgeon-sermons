@@ -10,7 +10,7 @@ Moreover, our good works, be they what they may, are the subjects of an ordinanc
 
 I want, at this time, to call your attention to four things in the text. And if you can carry in your mind's eye the first creation, the making of Adam and what he was made for--and where he was put when he was made--it will serve as a background to the picture of the second creation which I shall attempt to paint. I would dwell upon man as God's workmanship in a still higher sense than by his first making. I would set him forth as created anew "unto good works, which God has before prepared"--for that is the word properly used in the new translation--"which God has before prepared that we should walk in them."
 
-To begin, then, notice first, THE SINGULAR ORIGIN OF A Christian. Of all Christians, whether Jews or Gentiles--of all Christians, even if they are the highest Apostles, like Paul, or the least of all the family of love, such as we may be--as many as are truly saved and brought into union with Christ, they are the workmanship of God!
+To begin, then, notice first, THE SINGULAR ORIGIN OF a Christian. Of all Christians, whether Jews or Gentiles--of all Christians, even if they are the highest Apostles, like Paul, or the least of all the family of love, such as we may be--as many as are truly saved and brought into union with Christ, they are the workmanship of God!
 
 No Christian in the world is a chance production of Nature, or the outcome of evolution, or the result of special circumstances. "By the Grace of God I am what I am," may be said by every man who is saved. To nothing can we ascribe the fact that we are in Christ except this--that we are God's workmanship. Of regeneration, we must say, once and for all, "This is the finger of God."
 

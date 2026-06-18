@@ -26,7 +26,7 @@ Now we come to the central matter. Out of the midst of the bush there came a Voi
 
 We will not go straight to the answer, but we will beat about the bush a little, that the reasoning may the more
 
-gently enter our minds. I would say, first, that in these words we have A GLORIOUS RELATIONSHIP DECLARED.
+gently enter our minds. I would say, first, that in these words we have a GLORIOUS RELATIONSHIP DECLARED.
 
 Moses called the Lord, "The God of Abraham, and the God of Isaac, and the God of Jacob."
 

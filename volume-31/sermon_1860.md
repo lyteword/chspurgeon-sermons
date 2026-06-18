@@ -54,7 +54,7 @@ I say again this makes terrible work of a great many persons who have been broug
 
 religion this morning--that you may have been a praying man or woman for years, you may have come, like Saul of Tarsus, to the fullness of your age and have abounded in the appearance of devotion--and yet you may have to pray to God for the first time!
 
-This brings me to my second reflection, and that is, IT IS IMPLIED IN THE TEXT THAT IT WAS A REMARKABLE THING FOR SUCH A PERSON TO NOW PRAY. It is put with an ecce, a mark of admiration, "Behold,
+This brings me to my second reflection, and that is, IT IS IMPLIED IN THE TEXT THAT IT WAS a REMARKABLE THING FOR SUCH a PERSON TO NOW PRAY. It is put with an ecce, a mark of admiration, "Behold,
 
 he prays!" It is a very difficult thing, a very marvelous thing, for a man to truly pray who has been, all his lifetime, praying in a false way! It is a miracle of Grace to bring a proud Pharisee to plead for mercy like a penitent publican! It is not half so wonderful that an irreligious man should begin to pray as that a vainglorious professor should begin to pray. The most remarkable conversion that could take place here, today, would not be that of Elymas, the sorcerer, but of Saul, the Pharisee! The most remarkable conversion in the Apostolic age was that of a man who, from his youth up, had been plunged in self-righteousness and in the self-content which comes of attention to ritual, ceremony and the form of godliness. "Behold he prays."
 
