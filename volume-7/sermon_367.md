@@ -7,7 +7,7 @@ OUR God is one God. He is none other than the Infinite Jehovah who of old spoke 
 
 I shall use the text, first, as a caution; secondly, as a command. I shall be but brief upon each particular, for my strength I feel may speedily fail me, but I trust in God to make some impressions on our hearts.
 
-First, then, I shall use it as A CAUTION.
+First, then, I shall use it as a CAUTION.
 
 Inasmuch as Moses has said, "Ascribe you greatness to our God," we believe that he intended thereby to hint to us that we ought to ascribe greatness to none else. If greatness is to be ascribed to God, then none of God's creatures may in the least share the honor of that mighty attribute of greatness! Now as there are many who violate this Truth of God, and need this caution, they must allow me, if any of them are here, to caution them.
 

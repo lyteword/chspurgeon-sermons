@@ -57,7 +57,7 @@ Sometimes the devil will say to us, "Well, you do a great deal in the cause of C
 
 I feel as much reason to have God's grace over the best deeds as over the worst. I often lie down in the very dust of self-abasement feeling that I have not anything--no, not a rag of my own--no, not a grain of merit, not an atom whereon I can trust. As abject a sinner as there is out of Hell--if I look into myself--it is my only satisfaction that I am enabled to look to Christ and to Christ alone. All that is of Nature's spinning must be unraveled. All that is of Nature's manufacture must be broken in pieces. We must unhoof the horses and burn the chariots of human strength in the fire, for thus says the Spirit, "I will stain the pride of all glory and bring into contempt all the excellent of the earth." "Yes, doubtless and we count all things His for the excellency of the knowledge of Christ Jesus our Lord." Here is our struggle--"that we may win Christ and be found in Him, not having our own righteousness which is of the Law, but the righteousness which is of God by faith."
 
-Thirdly, we draw from the text A SENTENCE OF ADMONITION TO THE BELIEVER--"Of His fullness have all we received."
+Thirdly, we draw from the text a SENTENCE OF ADMONITION TO THE BELIEVER--"Of His fullness have all we received."
 
 Should not the believer be of all men the most honorable? I have heard sometimes of a man being a Christian and yet being proud. Now a proud Christian is a singular contradiction. Yet you do know some--you would not say they were not godly people--but then, their coat is made of the best broad cloth and they think it would be a little going down if they were to speak to those who wear fustian or white coats during the week. They are a little better off in the world and so they do not receive their poorer Brethren. This is the most silly pride in the world. I have not a word to say about it. It is too mean to be worth a man's words spent upon it.
 
@@ -75,7 +75,7 @@ He gives us blood and we give Him a few tears. He gives us sweat and we give Him
 
 I have not time nor strength to enlarge further upon these points. Therefore the last and not the least important.
 
-The text seems to me to be A MOST SWEET INVITATION--A MOST BLESSED ENCOURAGEMENT TO POOR NEEDY SINNERS.
+The text seems to me to be a MOST SWEET INVITATION--a MOST BLESSED ENCOURAGEMENT TO POOR NEEDY SINNERS.
 
 So, Sinner, you need tonight a new heart. You will never be able to make your heart new yourself--He must give it to you. So, Sinner, you need repentance--you can never repent of yourself. He is exalted on high to give repentance. So you need a sense of your own sin and sinfulness--He can make you feel it, for He felt it all Himself. So you do feel your sin, you say and you want to have it pardoned--He can pardon it and without exception He has power to forgive sins on earth. Tell me not how vile you have been--He can pardon you. Say you are guilty of aggravated crimes--He can forgive you. Tell me not, even, that you have stained your hands with blood--He is able to wash out that stain and make you whiter than snow.
 
