@@ -31,7 +31,7 @@ the hill if they could. When He passed through the street, He became the song of
 Moreover, dear Friends, you will find that a broad wall of separation is abundantly good for yourselves. I do not think any Christian in the world will tell you that when he has given way to the world's customs, he has ever been profited thereby. If you can go and find an evening's amusement in a suspicious place and feel profited by it, I am sure you are not a Christian, for, if you were really a Christian, it would pain your conscience and unfit you for more devout exercises of the heart! Ask a fish to spend an hour on dry land and I think, did it comply, the fish would find that it was not much to its benefit, for it would be out of its element&mdash;and it will be so with you in communion with sinners. When you are compelled to associate with worldly people in the ordinary course of business, you find much that grates upon the ear, that troubles the heart and annoys the soul. You will be often like righteous Lot, vexed with the conversation of the wicked&mdash;and you will say with David&mdash;
 
 > Woe's me that I in Mesech am   
-> a sojourner so long!   
+> A sojourner so long!   
 > That I in tabernacles dwell   
 > To Kedar that belong.   
 
