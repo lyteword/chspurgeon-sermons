@@ -116,7 +116,7 @@ It is a sad wonder that men do not believe in Jesus. It is a mournful wonder tha
 
 Let us finish by each one of us singing this verse from the heart and all of us together with our tongues&mdash;
 
-> a guilty, weak and helpless worm,   
+> A guilty, weak and helpless worm,   
 > On Christ's kind arms I fall:   
 > He is my strength and righteousness   
 > My Jesus and my All.

@@ -73,7 +73,7 @@ Look steadily at the Pierced One and note the suffering which is covered by the 
 > The piercing nail, the pointed thorn,   
 > Caused not the saddest smart&mdash;   
 > But every struggling sigh betrayed   
-> a heavier grief within,   
+> A heavier grief within,   
 > How on His burdened soul was laid   
 > The weight of human sin.   
 
