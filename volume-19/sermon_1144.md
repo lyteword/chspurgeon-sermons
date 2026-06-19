@@ -17,7 +17,7 @@ Perhaps it may be well, here, to confess that the plea before us is not one whic
 > Man'splea to man is, that he never more   
 > Will beg, and that he never begged before&mdash;   
 > Man'splea to God is, that he did obtain   
-> a former suit, and therefore sues again.   
+> A former suit, and therefore sues again.   
 > How good a God we serve, that, when we sue,   
 > Makes His old gifts the examples of His new!   
 

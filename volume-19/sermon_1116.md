@@ -94,7 +94,7 @@ The last meaning I shall give the text is this&mdash;that if ever we are beset b
 
 Francis Quarles, in his quaint, "Emblems," represents a man with a flail who is dealing heavy blows all round. And the only one who escapes is a person who, with much daring, comes close to him. The way to escape the heavy blows of Providence is to close in with Him who wields the rod, for the further off the heavier is the blow! In all dark times run home! Return unto your rest. If you cannot come to the Lord as a saint, come as a sinner! If the past should have been altogether a delusion, yet begin again! Do not discuss with Satan the question as to whether you are a saint or not, but fly to Christ Jesus! Cease all your questions about whether or not you are saved, and say&mdash;
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Christ's kind arms I'll fall.   
 > He'll be my strength and righteousness,   
 > My Jesus, and my All.   

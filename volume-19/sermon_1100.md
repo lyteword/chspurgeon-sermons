@@ -96,9 +96,9 @@ Now, mark my word, this is a gross and fatal delusion! There is not between the 
 
 Moreover, the Lord Jesus has not come to aid us in self-sufficient endeavors to save ourselves. I wonder how Christian people can sing that verse&mdash;
 
-> a charge to keep I have,   
-> a God to glorify;   
-> a never-dying soul to save,   
+> A charge to keep I have,   
+> A God to glorify;   
+> A never-dying soul to save,   
 > And fit it for the sky.   
 
 It might suit a Jew at the foot of Sinai, but a Christian should have none of it! If we have to save our own souls it is all over with us. What? Can we fit our souls for the sky? We, save our own souls? Why, this is the clean opposite of the Gospel of Jesus Christ! The theory of some is that there is much natural goodness in men and they have only to work it out and gradually improve themselves into a state of Grace. No, Sir, you are on the wrong tack. Do you know what is the very first ceremony of the Christian religion?

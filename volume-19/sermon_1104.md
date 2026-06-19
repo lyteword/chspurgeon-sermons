@@ -28,8 +28,8 @@ The lower classes, as they are called, are less than ever within the reach of th
 
 But those who love the cause of God and Truth must not be discouraged, as though some new thing had happened unto us. Dark times and wintry seasons there have been before. Sharp frosts and drenching rains are no novelties. We are passing through a spiritual winter, but the spring shall surely come and with it spiritually&mdash;
 
-> a season of refreshing, a waking as from sleep,   
-> a longing and a singing That make the pulses leap! A sense of renovation Of freshness and of health, a casting off of worldliness a love for heavenly wealth.   
+> A season of refreshing, a waking as from sleep,   
+> A longing and a singing That make the pulses leap! A sense of renovation Of freshness and of health, a casting off of worldliness a love for heavenly wealth.   
 
 While our text leads us to expect a time of unprofitable sowing, it excites the hope of a sacred spring time. God's Gospel cannot perish, His kingdom cannot fail, His Truth cannot be overcome! And that for many reasons, among which are these&mdash;That which is sown in the garden springs up from out of the ground because there is vitality in it. The life is dormant for a while, but it displays itself in due season. There is at the appointed hour for all the buried seeds a bursting of grave clothes, a rending of sepulchers and an upheaval of the earth. And then in resurrection freshness comes forth the blade, to be succeeded by the ear and that by the full corn in the ear.
 
