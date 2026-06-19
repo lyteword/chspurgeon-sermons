@@ -77,7 +77,7 @@ What hast thou to say to this command, O man? Have I one here so profoundly brai
 
 "Oh!" cries one, "I wish I could say that I could thus escape the wrath of the law! Oh that I knew that Christ did keep the law for me!" Stop, then, and I will tell you. Do you feel to-day that you are guilty, lost, and ruined? Do you with tears in your eyes confess that none but Jesus can do you good? Are you willing to give up all trusts, and cast yourself alone on him who died upon the cross? Can you look to Calvary, and see the bleeding sufferer, all crimson with streams of gore? Can you say
 
-> a guilty, weak, and helpless worm,    
+> A guilty, weak, and helpless worm,    
 > Into thine arms I fall;    
 > Jesus, be thou my righteousness,    
 > My Saviour and my all!    

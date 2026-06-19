@@ -63,7 +63,7 @@ What a terrible picture is hinted at in these words of the apostle&mdash;"Saved 
 
 > And when ye hear my eyestrings break,    
 > How sweet my minutes roll!&mdash;    
-> a mortal paleness on my cheek,    
+> A mortal paleness on my cheek,    
 > But glory in my soul!    
 
 That is the "abundant entrance" of the man who has manfully served his God&mdash;who, by divine grace, has had a path unclouded and serene&mdash;who, by diligence, has "made his calling and election sure;" and therefore, as a reward, not of debt, but of grace, hath entered heaven with higher honors and with greater ease than others equally saved, but not saved in so splendid a manner.

@@ -46,7 +46,7 @@ Beloved, we do solemnly say again, that Holy Scripture is so perfect, so complet
 > My hopes and fears start up alarmed,    
 > And o'er life's narrow verge look down,    
 > On what? A bottomless abyss,    
-> a dread eternity.    
+> A dread eternity.    
 
 It is not right to say that, as if it were all we know. Blessed be God, the saint does not look down upon a bottomless abyss; he looks up to the celestial "city that hath foundations, whose builder and maker is God." Nor do even the wicked look down upon an unknown abyss; for to them it is clearly revealed. Though "eye hath not seen, nor ear heard," the tortures of the lost yet hath Holy Scripture sufficiently told us of them to make it a well-mapped road; so that when they meet with death, and hell, and terror, it shall be no new thing; for they heard of it before, and it was distinctly revealed to them. Nothing more could we know that would be of any use. Tattlers, idle curiosity people, and such like, would be mightily delighted with such a man. Ah! what a precious preacher he would be to them, if they could get him all the way from heaven, and get him to tell all its secrets out! Oh! how would they love him&mdash;how would they delight in him! "For," say they "he knows a great deal more than anybody else; he knows a great deal more than the Bible tells us; he knows a great many little details, and it is wonderful to hear him explain them!" But there the matter would end. It would be merely the gratification of curiosity; there would be no conferring of blessing; for if to know more of the future state would be a blessing for us, God would not withhold it; there can be no more told us.-If what you know would not persuade you, "Neither would you be persuaded though one rose from the dead."
 

@@ -94,7 +94,7 @@ But note next, while it was a loud voice, how sweet it was. Noise is not music. 
 
 And there will be no discord of any other sort to spoil the melody of those before the throne. Oh! my beloved brethren, that we might be there! Lift us up, ye cherubs! Stretch your wings, and bear us up where the sonnets fill the air. But if ye must not, let us wait our time.
 
-> a few more rolling suns at most,    
+> A few more rolling suns at most,    
 > Will land us on fair Canaan's coast;    
 
 and then we shall help to make the song, which now we can scarcely conceive, but which yet we desire to join.

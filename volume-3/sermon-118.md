@@ -51,7 +51,7 @@ Now, if I have the pleasure of seeing him, I shall tell him, God does not requir
 
 To conclude. There is not a sinner in this place who knows himself to be lost and ruined, who may not have all his sins forgiven, and "rejoice in the hope of the glory of God." You may, though black as hell, be white as heaven this very instant. I know tis only by a desperate struggle that faith takes hold of the promise, but the very moment a sinner believes, that conflict is past. It is his first victory, and a blessed one. Let this verse be the language of your heart; adopt it, and make it your own:
 
-> a guilty weak, and helpless worm.    
+> A guilty weak, and helpless worm.    
 > In Christ's kind arms I fall;    
 > He is my strength and righteousness,    
 > My Jesus and my all.    
