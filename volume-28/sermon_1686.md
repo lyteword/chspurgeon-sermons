@@ -51,7 +51,7 @@ and we can also add that we need not go abroad for wonders, for we have a perfec
 
 > Still has my life new wonders seen   
 > Of loving kindness rare!   
-> a monument of Grace I stand,   
+> A monument of Grace I stand,   
 > Your goodness to declare.   
 
 Let us think for a minute or two of the parallel between us and these disciples as to wonderment. Consider, first, that the instantaneous and profound calm was contrary to Nature. The Galilean Lake lies in a deep hollow, much below the level of the ocean, and in the sides of the cliffs and hills which shut it in, there are valleys and openings which act as funnels, down which, blasts of cold air from the mountains often rush upon a sudden. When the time of storm is really on, the Lake of Galilee is not tossed about like an ordinary open sea, but is rent, torn, heaved up and almost hurled out of its bed by down-driving hurricanes and twisting whirlwinds! No sailor knows which way the wind will blow except that it blows all ways at once and particularly downwards&mdash;as if, with a direct downdraft from Heaven, it blows vessels into the water&mdash;and soon, changing its course, lifts them into the air!
