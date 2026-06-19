@@ -37,7 +37,7 @@ I think, also, that he had in his mind's eye the fact that they were now about t
 > But there's a nobler Co venant sealed   
 > To David's greater Son.   
 > His seed forever shall possess   
-> a Throne above the skies;   
+> A Throne above the skies;   
 > The meanest subject of His Grace   
 > Shall to that glory rise.   
 

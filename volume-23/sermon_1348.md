@@ -102,7 +102,7 @@ Now, we shall, none of us, ever be vessels of silver and gold unless the Lord ma
 > (The love of His beloved and purchased ones)   
 > Which fills His heart with gladness.'   
 > So spoke a poor, vile, broken, earthy thing,   
-> a worthless castaway.   
+> A worthless castaway.   
 > The Master heard and when He passed that way He stooped and touched it with His wounded hand&mdash; When lo! Its baseness vanished, and instead   
 > There stood a golden chalice wondrous fair, And overflowing with deep love for him! He raised it to His gracious lips, and quaffed 'The wine that makes glad the heart of God,' Then took the cup to Heaven.   
 

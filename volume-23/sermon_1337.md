@@ -133,7 +133,7 @@ We spoke of bitter draughts under our first head, and truly these have their vir
 > And lightnings flash, to blast my soul,   
 > I still had stubborn been.   
 > But mercy has my heart subdued,   
-> a bleeding Savior I have viewed,   
+> A bleeding Savior I have viewed,   
 > And now I hate my sin.   
 
 We must briefly notice the modus operandi of this love. "You have embraced my soul out of the pit of corruption." Yonder is the child in the pit and the father, wishing to save it, goes down into the pit and embraces his beloved one and so brings him up to life and safety. After this manner did Jesus save us! He embraced us by taking our nature and so becoming one with us. It is by embraces that He regenerates converts and sanctifies us, for He comes into union with us by the indwelling of the Holy Spirit! All our lives He communes with us and embraces us with arms of mighty love and so lifts us up from the pit of corruption.
