@@ -40,9 +40,9 @@ ITSELF.
 
 According to the eleventh verse, "Solomon had a vineyard at Baal Hamon. He let out the vineyard unto keepers&mdash; everyone, for the fruit thereof, was to bring a thousand pieces of silver." So, dear Brothers and Sisters, everyone of us whom the Lord has brought to Himself, has a part of His vineyard to keep for Him. We do not sing, with Wesley&mdash;
 
-> a charge to keep I have,   
-> a God to glorify,   
-> a never-dying soul to save,   
+> A charge to keep I have,   
+> A God to glorify,   
+> A never-dying soul to save,   
 > And fit it for the sky,   
 
 because we do not believe anything of the kind! We leave the work of saving our souls in higher hands than our own&mdash; but after our souls are saved, then we have a charge to keep and that charge is to publish the name and fame of Jesus to the utmost of our power&mdash;to seek to bring others under the sound of the Gospel&mdash;and to tell them what they must do to be saved.
