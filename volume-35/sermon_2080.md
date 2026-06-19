@@ -57,7 +57,7 @@ They were nailed to crosses and bound to stakes to be burned. But the enthusiasm
 
 In these evil days fact is turned into myth and truth into opinion. Our Lord's resurrection is a literal fact&mdash;when He rose from the dead He was no specter, ghost, or apparition. But as He was a real Man who died the cruel death of the Cross, so He was a real Man who rose again from the dead, bearing in His body the marks of the crucifixion. His appearance to His familiar companions was to them no dream of the night&mdash;no fevered imagination of enthusiastic minds. Jesus Christ took pains to make them sure of His real Presence and that He was really among them in His proper Person&mdash;
 
-> a Man there was, a real Man,   
+> A Man there was, a real Man,   
 > Who once on Calvary died,   
 > That same blest Man arose from death&mdash;   
 > The mark is in His side!   
