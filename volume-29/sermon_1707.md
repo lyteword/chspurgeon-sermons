@@ -83,8 +83,8 @@ Moreover, God sent such a One&mdash;He "sent His Son." If men send an embassy to
 > Quit with joy those blissful shores,   
 > Ambassador to me!   
 > To me, a worm, a sinful clod,   
-> a rebel all forlorn:   
-> a foe, a traitor, to my God,   
+> A rebel all forlorn:   
+> A foe, a traitor, to my God,   
 > And of a traitor born.   
 
 Note further, not only the grandeur of the Ambassador, but the tenderness of the relationship existing between him and the offended God. "He sent His Son." The previous verse says, "His only-begotten Son." We cannot speak of God except after the manner of men, for God, in all His Glory is incomprehensible. But speaking after the manner of men, what must it have cost Jehovah to take His only Son from His bosom to die? Christ is the Father's Self&mdash;in essence they are One&mdash;there is but one God. We do not understand the mystery of the Trinity in unity, but we believe it. It was God Himself who came here in the Person of His dear Son! He underwent all&mdash;for we are "the flock of God which He has purchased with His own blood."
