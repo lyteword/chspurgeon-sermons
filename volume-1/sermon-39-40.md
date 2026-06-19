@@ -40,7 +40,7 @@ The gospel wants not your consent, it gets it. It knocks the enmity out of your 
 > Free from sin I walk at large    
 > The Saviour's blood's my full discharge;    
 > At his dear feet content I lay,    
-> a sinner saved, and homage pay.    
+> A sinner saved, and homage pay.    
 
 They shall come! They shall come! And naught in heaven, nor on earth, nor in hell, can stop them from coming.
 

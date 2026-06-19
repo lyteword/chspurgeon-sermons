@@ -30,7 +30,7 @@ A creature&mdash;a sinful creature, can have no claim upon God; for that would b
 > The sovereign will of God alone    
 > Creates us heirs of grace;    
 > Born in the image of his Son,    
-> a new-created race.    
+> A new-created race.    
 
 And we say to all of you who gnash your teeth at this doctrine, whether you know it or not, you have a vast deal of enmity towards God in your hearts; for until you can be brought to know this doctrine, there is something which you have not yet discovered, which makes you opposed to the idea of God absolute, God unbounded, God unfettered, God unchanging, and God having a free will, which you are so fond of proving that the creature possesses. I am persuaded that the Sovereignty of God must be held by us if we would be in a healthy state of mind. "Salvation is of the Lord alone." Then give all the glory to his holy name, to whom all glory belongs.
 

@@ -76,7 +76,7 @@ But if a man never in his life knew himself to be a Christian, he never was a Ch
 > Now free from sin, I walk at large,    
 > My Saviour's blood's my full discharge;    
 > At his dear feet content I lay,    
-> a sinner saved, and homage pay.    
+> A sinner saved, and homage pay.    
 
 There are moments when the eyes glisten with joy and we can say, "We are persuaded, confident, certain." I do not wish to distress any one who is under doubt. Often gloomy doubts will prevail; there are seasons when you fear you have not been called, when you doubt your interest in Christ. Ah! what a mercy it is that it is not your hold of Christ that saves you, but his hold of you! What a sweet fact that it is not how you grasp his hand, but his grasp of yours, that saves you. Yet I think you ought to know, sometime or other, whether you are called of God. If so, you will follow me in the next part of my discourse, which is a matter of pure experience; unto us who are saved, it is "Christ the power of God, and the wisdom of God."
 

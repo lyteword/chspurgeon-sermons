@@ -45,8 +45,8 @@ There is one said reflection which we are obliged to mention when we look upon t
 
 I am still&mdash;
 
-> a monument of grace,    
-> a sinner saved by blood    
+> A monument of grace,    
+> A sinner saved by blood    
 
 I have no hope now, save in the blood of Christ, and can only wonder how it is that Christ could have preserved me so long. Truly, I can say, "Even to old age he is the same, and even to hoary hairs he hath carried me."
 
@@ -59,7 +59,7 @@ The aged man, too, hath peculiar hopes. He hath no such hopes as I or my young f
 
 And, my brother, what is the reason of thy hope? If thou art asked what reason thou hast to believe thou art a Christian, thou wilt say, "The self-same reason I gave at the Church-meeting." When I came before it, I said, then "I believe myself to be a child of God, because I feel myself to be a sinner, and God has given me grace to put my trust in Jesus." I think that is all the reason you have to believe yourself a child of God now. At times you have some evidence, as you call it; but there are hours when your graces and virtues are obscured, and you cannot see them, for gloomy doubts prevail, and you will confess, I am sure, that the only way to get rid of your doubts will be, to come and say, again&mdash;
 
-> a guilty, weak, and helpless worm,    
+> A guilty, weak, and helpless worm,    
 > On Christ's kind arms I fall;    
 > He's still my strength and righteousness,    
 > My Saviour and my all.    
