@@ -64,7 +64,7 @@ And now, another lessen to those of you who are as yet hearers and nothing more.
 
 Lastly, I would say to you who are being plowed and are agitated about your souls, go at once to the next stage of believing. Oh, if people did but know how simple a thing believing is, surely they would believe! Alas, they do not know it, and it becomes all the more difficult to them because in itself it is so easy! The difficulty of believing lies in there being no difficulty in it! "If the Prophet had bid you do some great thing, would you not have done it?" Oh, yes, you would have done it and you would have thought it easy, too! But when he simply says," Wash, and be clean," there is a difficulty with pride and self. If you can truly say that you are willing to abase your pride and do anything which the Lord bids you, then I pray you understand that there is no further preparation required&mdash;believe in Jesus at once! May the Holy Spirit make you sick of self and ready to accept the Gospel! The Word is near you, let it be believed! It is in your mouth, let it be swallowed! It is in your heart, let it be trusted! With your heart believe in Jesus and with your mouth make confession of Him and you shall be saved! A main part of faith lies in the giving up of all other confidences. Oh, give up at once every false hope! I tried once to show what faith was by quoting Dr. Watts' lines&mdash;
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Your kind arms I fall.   
 > Be You my strength, and righteousness,   
 > My Jesus and my All.   

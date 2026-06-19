@@ -51,7 +51,7 @@ the harp strings of penitence! We ought always to be able to play on those strin
 > Lord, let me weep for nothing but sin,   
 > And after none but Thee&mdash;   
 > And then I would&mdash;oh that I might!)&mdash;   
-> a constant weeper be,   
+> A constant weeper be,   
 
 for these bitter sweets&mdash;these sweet bitters&mdash;are almost the choicest of our sorrow joys or joyful sorrows that we have this side of Heaven! Thus David sings.
 
