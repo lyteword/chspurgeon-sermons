@@ -16,7 +16,7 @@ And Jesus call to Heaven's perfect peace!" We shall be able to say, perhaps, whe
 
 > And when you see my eye-strings break,   
 > How sweet my minutes roll!   
-> a mortal paleness on my cheek,   
+> A mortal paleness on my cheek,   
 > But glory in my soul!   
 
 So will it be with us&mdash;we shall depart in peace. To the Believer, death is not a thing to be dreaded&mdash;he even asks for it, "Lord, now let You, permit You, Your servant to depart in peace. Grant it as a gift, vouchsafe it as a favor." Death to the sinner is a curse, but to the Believer it is a form of benediction, it is the gate of life. To the sinner, it is a chain dragging him down to the unutterable darkness of Hell, but to the saint, it is a chariot of fire bearing him aloft to the Heaven of light and love!

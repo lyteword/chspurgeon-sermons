@@ -71,7 +71,7 @@ The Gift of Christ makes us view God with thankfulness. Never fall into the mist
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His throne above,   
-> a suffering Mian became.   
+> A suffering Mian became.   
 > 'Twas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
