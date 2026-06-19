@@ -11,7 +11,7 @@ THE FALL of man was utter and entire. Some things when they have become dilapida
 > To form the heart anew.   
 > To chase the shades of death away   
 > And bid the sinner live!   
-> a beam of heaven, a vital ray,   
+> A beam of heaven, a vital ray,   
 > 'Tis thine alone to give.   
 
 But while such a thing would be impossible apart from God, it is certain that God can do it. Oh, how the Master delighteth to undertake impossibilities! To do what others can do were but like unto man; but to accomplish that which is impossible to the creature is a mighty and noble proof of the dignity of the Creator. He delighteth to undertake strange things; to bring light out of darkness; order out of confusion; to send life into the dead; to heal the leprosy; to work marvels of grace and mercy, and wisdom, and peace&mdash;these, I say, God delighteth to do; and so, while the thing is impossible to us, it is possible to him. And more, its impossibility to us commends it to him, and makes him the more willing to undertake it, that he may thus glorify his great name.
