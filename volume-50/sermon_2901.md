@@ -69,7 +69,7 @@ The Prophet then goes on to compare the mourning for sin to the mourning of the 
 > Lord, let me weep for nothing but sin,   
 > And after none but Thee!   
 > And then I would&mdash;oh, that I might!&mdash;   
-> a constant weeper be.   
+> A constant weeper be.   
 
 I must not dwell upon this sacred topic, but close with what would have been my fourth division if there had been time for it. That is that EVANGELICAL REPENTANCE DOES NOT ITSELF CLEANSE US FROM SIN.
 

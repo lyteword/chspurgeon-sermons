@@ -20,7 +20,7 @@ It is well for us to always be "looking for that blessed hope and the glorious a
 > How great we must be made.   
 > But when we see our Savior here,   
 > We shall be like our Head.   
-> a hope so much Divine   
+> A hope so much Divine   
 > May trials well endure,   
 > May purge our souls from sense and sin   
 > As Christ the Lord is pure.   
