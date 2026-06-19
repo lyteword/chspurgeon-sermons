@@ -64,7 +64,7 @@ Another child is Mr. Clip-Promise. Do you know him? He does not doubt the promis
 
 > Let thy experience sweet declare,    
 > If able to remind,    
-> a Bochim here, a Bethel there,    
+> A Bochim here, a Bethel there,    
 > Thy Savior made thee find.    
 
 Then there is Mr. Wrong-thoughts of Christ. Do you know him? Well I do not know that I have met him very lately, but there was a time when he and I had a great battle, and I think he had the worst of it, for by grace I was enabled to strike him very hard. Do you know what this fellow had the impudence to tell me? He said, "Oh! Christ will never receive such a sinner as you are." And when I had come to Christ, and he received me, he said, "Oh! Christ will not hold you fast." He will it you let him, but then you will not let him, for you are such a sinner he cannot hold you, and he will not. He has often made me doubt my Master's immutability or his faithfulness, or his power to save. But as far as I am personally concerned of late, I was able to seize him, and I have laid him in prison; I think he is dying of a consumption, for I have not heard much of him lately. Glad enough shall I be to have him buried once for all. And if any of you are troubled with him, lock him up, do not let him keep abroad, for Wrong-thoughts of Christ is one of the worst spirits that ever came up from the pit. What! to think badly of Christ, to think of him who is all goodness, as if he were hard-hearted or unkind. Begone, Wrong thoughts of Christ, we will not harbour thee but will put thee in durance vile, and there shalt thou starve and die.
