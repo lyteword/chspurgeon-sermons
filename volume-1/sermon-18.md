@@ -20,7 +20,7 @@ Yea, more, I will further urge you to this pious pilgrimage. Come, for angels bi
 
 There is yet one reason more why I would have thee visit this royal sepulchre&mdash;because it is a quiet spot. Oh! I have longed for rest, for I have heard this world's rumors in my ears so long, that I have begged for
 
-> a lodge in some vast wilderness,    
+> A lodge in some vast wilderness,    
 > Some boundless contiguity of shade,    
 
 where I might hide myself forever. I am sick of this tiring and trying life; my frame is weary, my soul is mad to repose herself awhile. I would I could lay myself down a little by the edge of some pebbly brook, with no companion save the fair flowers or the nodding willows. I would I could recline in stillness, where the air brings balm to the tormented brain, where there is no murmur save the hum of the summer bee, no whisper save that of the zephyrs, and no song except the caroling of the lark. I wish I could be at ease for a moment. I have become a man of the world; my brain is racked, my soul is tired. Oh! wouldst thou be quiet, Christian? Merchant, wouldst thou rest from thy toils? wouldst thou be calm for once? Then come hither. It is in a pleasant garden, far from the hum of Jerusalem; the noise and din of business will not reach thee there; "Come, see the place where the Lord lay." It is a sweet resting spot, a withdrawing room for thy soul, where thou mayest brush from thy garments the dust of earth and muse awhile in peace.

@@ -43,7 +43,7 @@ Again, when a man has a broken heart, he not only feels sorrow for sin, but he f
 
 Need I give any other description of the character I desire to comfort. I trust you are discovered. Oh! my poor brother, I grieve to see thee in distress, but there is pardon through Jesus&mdash;there is forgiveness even for thee. What though your sins lie like a millstone on your shoulder, they shall not sink you down to hell. Arise! He, my gracious Lord, calleth thee. Throw thyself at his feet, and lose thy griefs in his loving and cheering words. Thou art saved if thou canst say,
 
-> a guilty, weak, and helpless worm,    
+> A guilty, weak, and helpless worm,    
 > On Christ's kind arms I fall;    
 > He is my strength and righteousness,    
 > My Jesus, and my all.    

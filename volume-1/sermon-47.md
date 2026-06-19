@@ -92,20 +92,20 @@ Well, then, if there is any one here who is "a poor sinner, find nothing at all,
 
 "Oh! but," says one, "I am sinful, vile, worthless." All right! you're "a Poor sinner and nothing at all," and Jesus Christ is willing to be your "all in all." "But I have blasphemed God, departed from his ways, and greviously transgressed." Well, I believe that, and a great deal more, and am very glad to hear it; for thus I see you are
 
-> a poor sinner, and nothing at all.    
+> A poor sinner, and nothing at all.    
 
 I am very glad if you will hold that opinion of yourself. "Ah! but I am afraid I have sinned too much. When I try I cannot do anything. When I try to mend my ways; when I try to believe in Christ, I cannot." We are glad, very glad of it brother, that you are
 
-> a poor sinner, and nothing at all.    
+> A poor sinner, and nothing at all.    
 
 If you had a single particle of goodness; if you had a little bit not big enough to cover the top of your little finger, we should not be glad. But if thou art
 
-> a poor sinner, and nothing at all,    
+> A poor sinner, and nothing at all,    
 > Jesus Christ is thy all in all.    
 
 Come! wilt thou have him? Thou art "nothing at all." Wilt thou have Christ? There he stands. Ask: it is all he wants, for thou art the object of his regard. There are only three steps. One is to step out of self, the second is to step upon Jesus, the third is to step into heaven. You have taken one step. I am sure you will take the others. God never makes you feel you are
 
-> a poor sinner, and nothing at all;    
+> A poor sinner, and nothing at all;    
 
 but, sooner or later, he gives
 

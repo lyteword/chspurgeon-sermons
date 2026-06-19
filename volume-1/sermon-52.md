@@ -36,7 +36,7 @@ Sinner! Art thou legally condemned this morning? Dost thou feel that? Then, let 
 > Now freed from sin I walk at large,    
 > The Saviour's blood's my full discharge,    
 > At his dear feet content I lay,    
-> a sinner saved, and homage pay.    
+> A sinner saved, and homage pay.    
 
 Brethren, we have gained legal life in Christ, and such legal life that we cannot lose it. The sentence has gone against us once&mdash;now it has gone out for us. It is written, 
 

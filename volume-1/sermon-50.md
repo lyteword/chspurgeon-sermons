@@ -47,7 +47,7 @@ But sometimes he leads us by direction. The guide points and says&mdash;"There, 
 
 But perhaps the best way in which the Holy Ghost leads us into all truth is by illumination. He illuminates the Bible. Now, have any of you an illuminated Bible at home? "No," says one, "I have a morocco Bible; I have a Polyglot Bible; I have a marginal reference Bible." Ah! that is all very well but have you an illuminated Bible? "Yes, I have a large family Bible with pictures in it." There is a picture of John the Baptist baptizing Christ by pouring water on his head and many other nonsensical things; but that is not what I mean: have you an illuminated Bible? "Yes, I have a Bible with splendid engravings in it." Yes; I know you may have; but have you an illuminated Bible? "I don't understand what you mean by an illuminated Bible." Well, it is the Christian man who has an illuminated Bible. He does not buy it illuminated originally, but when he reads it
 
-> a glory gilds the sacred page,    
+> A glory gilds the sacred page,    
 > Majestic like the sun    
 > Which gives a light to every age,&mdash;    
 > It gives, but burrows none.    
@@ -66,7 +66,7 @@ Now, what are the practical inferences from this great doctrine? The first is wi
 
 Another inference is this whenever any of our brethren do not understand the truth let us take a hint as to the best way of dealing with them. Do not let us controvert with them. I have heard many controversies, but never heard of any good from one of them. We have had controversies with certain men called Secularists, and very strong arguments have been brought against them; but I believe that the day of judgment shall declare that a very small amount of good was ever done by contending with these men. Better let them alone, where no fuel is the fire goeth out; and he that debateth with them puts wood upon the fire. So with regard to Baptism. It is of no avail to quarrel with our Paedo-baptist friends. If we simply pray for them that the God of truth may lead them to see the true doctrine, they will come to it far more easily than by discussions. Few men are taught by controversy, for
 
-> a man convinced against his will, is of the same opinion still.    
+> A man convinced against his will, is of the same opinion still.    
 
 Pray for them that the Spirit of truth may lead them "into all truth." Do not be angry with your brother, but pray for him; cry, "Lord! open thou his eyes that he may behold wondrous things out of thy law."
 
