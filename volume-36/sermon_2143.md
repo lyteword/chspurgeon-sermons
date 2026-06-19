@@ -64,7 +64,7 @@ Lord, when I hear You say, "This is My Beloved Son, in whom I am well-pleased," 
 Beams of light seemed to rise from that marvelous face! A halo of Glory surrounded that solemn countenance and the people could not but perceive that this was a man on whom God had looked! And more. It was not only a witness of his office, but it was an increase of his power. The people were overawed by this strange light. They dared, even after this, to murmur against Moses for they dared to murmur against God Himself&mdash;but still, to a people of such a temper as theirs, the supernatural light must have been a source of wonder and of awe&mdash;
 
 > They gazed and looked, and lo, on brow and face,   
-> a glory and a brightness not of earth!   
+> A glory and a brightness not of earth!   
 > The eyes lit up with fire of heavenly birth,   
 > The whole man bright with beams of God's great Grace.   
 

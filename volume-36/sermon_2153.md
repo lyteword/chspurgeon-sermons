@@ -20,7 +20,7 @@ God thinks not so&mdash;He has said, "Take away the filthy garments from Him. Le
 What great things God thinks of His elect! What a high price He puts upon His redeemed! His delight is in His saints. He takes more solace in them that fear Him than in all creation besides. "Unto you that believe Christ is precious"&mdash;but you that believe are also precious to Him! Does He not say, "Since you were precious in My sight, you have been honorable"? Therefore none but an honorable and glorious Person shall represent the chosen. Let us humbly rejoice in the glory and beauty of Him who takes our place before the Infinite Jehovah&mdash;
 
 > Jesus, in You our eyes behold   
-> a thousand glories more   
+> A thousand glories more   
 > Than the rich gems, and polished gold,   
 > The sons of Aaron wore.   
 
