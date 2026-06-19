@@ -102,7 +102,7 @@ Blessed man that has confidence in God! Such a man goes up to his last bed when 
 
 > And when you see my eye-strings break,   
 > How sweet my minutes roll!   
-> a mortal paleness on my cheek,   
+> A mortal paleness on my cheek,   
 > But glory in my soul!   
 
 Now he is gone, gone into the land of spirits! He stands before his God and he does not tremble. He has that eagle-eye which can bear the light of the eternal sun! His heart condemns him not and he has confidence towards God. Amidst the supernal splendors he cries, "My Father!" Angels are crying, "Lord and God," but he says, "My Father"&mdash;and those loyal servants make room for a royal child! The shining ones escort the happy spirit to the blessed Father's feet. There we leave him. "Beloved, if our heart condemns us not, then have we confidence toward God." God bless you. Amen.
