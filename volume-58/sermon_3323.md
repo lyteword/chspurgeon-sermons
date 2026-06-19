@@ -17,7 +17,7 @@ Let us take each expression and muse on it. " Until the day breaks." In a certai
 wings it comes! Every day of winter's sorrow or of summer's joy brings it nearer. We said last Sunday evening, "Now is our salvation nearer than when we believed," and we often sing&mdash;
 
 > We nightly pitch our moving tent   
-> a day's march nearer home.   
+> A day's march nearer home.   
 
 This is one of the choicest consolations of the present&mdash;that we are getting nearer to the daybreak!
 

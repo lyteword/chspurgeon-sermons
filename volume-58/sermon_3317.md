@@ -66,7 +66,7 @@ Oh, come to Him, come now! 'Tis all mercy today. You are not bidden to come to a
 > And lighting's flash to blast my soul,   
 > I still had stubborn been&mdash;   
 > But mercy has my heart subdued,   
-> a bleeding Savior I have viewed, And now I hate my sin.   
+> A bleeding Savior I have viewed, And now I hate my sin.   
 
 EXPOSITION BY C. H. SPURGEON: PSALM 136; EPHESIANS1
 
