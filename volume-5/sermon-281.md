@@ -27,7 +27,7 @@ And yet, once again, another crown hath Christ, and that is the crown of victory
 
 > Oh, sovereign grace my heart subdue;    
 > I will be led in triumph, too,    
-> a willing captive to my Lord    
+> A willing captive to my Lord    
 > To sing the triumphs of his Word.    
 
 If this be the case with you, then you may yourself recognize one of the many crowns that are on his head.
