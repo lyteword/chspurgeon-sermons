@@ -11,7 +11,7 @@ Let there be no mistake about the objective and purpose of Christ's Sacrifice! J
 > 'Twaas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above,   
-> a suffering Man became.   
+> A suffering Man became.   
 > 'Twaas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
@@ -65,7 +65,7 @@ Look at this expression again. When our Lord died, He was in the servant's place
 
 > The head that once was crowed with thorns,   
 > Is crowned with glory now!   
-> a royal diadem adorns   
+> A royal diadem adorns   
 > The mighty Victor's brow!   
 > The highest place that Heaven affords Is His, is His by right, The King of kings and Lord of lords, And Heaven's eternal light   
 
