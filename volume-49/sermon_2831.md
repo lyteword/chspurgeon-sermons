@@ -40,9 +40,9 @@ Nor do I think, dear Friends, that our text could be made to mean that any of us
 
 There are some Christian people&mdash;at least, I call them Christians by courtesy&mdash;whose main thought is about saving their own souls. Their favorite hymn is not in "Our Own Hymn Book"&mdash;
 
-> a change to keep I have,   
-> a God to glorify&mdash;   
-> a never-dying soul to save,   
+> A change to keep I have,   
+> A God to glorify&mdash;   
+> A never-dying soul to save,   
 > And fit it for the sky.   
 
 That is nothing but a kind of spiritual selfishness&mdash;living unto yourself! There is something that you want to get and that something is what you strive after. Blessed is that man who is saved beyond all fear and who, for the love he bears his Lord, lives wholly and only to prove the power of the Grace of God that has been bestowed upon him&mdash;and earnestly seeks to be the means of saving the souls of others. The Doctrines of Grace do this for us, by delivering us from all fear with regard to the future and fixing us firmly upon the Rock of Ages. They turn our thoughts away from self to the service and the glory of our God. I delight to sing&mdash;
