@@ -15,7 +15,7 @@ Observe first, that nothing gives the believer so much joy as fellowship with Ch
 
 > Tis but a bitter sweet;   
 > When I attempt to pluck the rose,   
-> a pricking thorn I meet.   
+> A pricking thorn I meet.   
 > Here perfect bliss can ne'er be found,   
 > The honey's mix'd with gall;   
 > 'Midst changing scenes and dying friends,   
@@ -70,7 +70,7 @@ Our third remark was to be&mdash;that with a sense of Christ's preciousness is c
 
 Will you take him again this morning, brethren, in Jesus? I know you will. Would that those who never did take him, would take him now and say, "My saviour." There stands his atonement, freely offered to you, may you have the grace to take it, and say, "My Savior, my Savior," this morning. Has your heart taken him? It is well for us to use both hands, not only the hand of faith, but the hand of love, for this is the true embrace when both arms meet around our beloved. Do you love him? O souls, do you LOVE Christ, with an emphasis upon the word. Do not talk to me about a religion which dwells in the head and never gets into the heart. Get rid of it as quickly as you can; it will never bring you to heaven. It is not "I believe this and that" merely, but "I love." Ah! some who have been great fools in doctrine have been very wise in love. We tell our children to learn things "by heart." I think you can, you love Jesus, and if you cannot you must confess as I do,
 
-> a very wretch, Lord, I should prove,   
+> A very wretch, Lord, I should prove,   
 > Had I no love to thee;   
 > Sooner than not my Savior love,   
 > O may I cease to be.   
