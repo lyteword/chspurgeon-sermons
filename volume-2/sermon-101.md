@@ -66,7 +66,7 @@ Do you see him?
 
 > The head that once was crowned with thorns,    
 > Is crowned with glory now;    
-> a royal diadem adorns    
+> A royal diadem adorns    
 > That mighty Victor's brow.    
 > No more the bloody crown,    
 > The cross and nails no more:    

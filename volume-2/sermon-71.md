@@ -50,7 +50,7 @@ Another reason why, when David was in the smoke, he did not forget God's statute
 
 > By God's command where'er I stray,    
 > Sorrow attends me all the way,    
-> a never failing friend;    
+> A never failing friend;    
 > And, if my sufferings may augment    
 > Thy praise, behold me well content&mdash;    
 > Let sorrow still attend!    
