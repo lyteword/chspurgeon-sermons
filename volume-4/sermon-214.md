@@ -28,7 +28,7 @@ I do believe that the very angels have never wondered but once and that has been
 But trace the Saviours course, and all the way he is wonderful. Is it not marvellous that he submitted to the taunts and jeers of his enemies&mdash;that for a long life he should allow the bulls of Bashan to gird him round, and the dogs to encompass him? Is it not surprising that he should have bridled in his anger when blasphemy was uttered against his sacred person? Had you or I been possessed of his matchless might, we should have dashed our enemies down the brow of the hill, if they had sought to cast us there; we should never have submitted to shame and spitting; no, we would have looked upon them, and with one fierce look of wrath, have dashed their spirits into eternal torment. But he hears it all&mdash;keeps in his noble spirit&mdash;the lion of the tribe of Judah, but bearing still the lamb-like character of
 
 > The humble man before his foes,    
-> a weary man, and full of woes.    
+> A weary man, and full of woes.    
 
 I do believe that Jesus of Nazareth was the king of heaven, and yet he was a poor, despised, persecuted, slandered man; but while I believe it I never can understand it. I bless him for it; I love him for it; I desire to praise his name while immortality endures for his infinite condescension in thus suffering for me; but to understand it, I can never pretend. His name must all his life long be called Wonderful.
 

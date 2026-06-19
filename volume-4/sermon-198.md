@@ -60,7 +60,7 @@ In a Christian every fault is seen. A worldly man may commit a thousand faults, 
 
 And alas! those spiritual creatures are not all good. There be those that are not yet chained and reserved in darkness, but who are permitted by God to wander through this world like roaring lions, seeking whom they may devour, ever ready to tempt us. And there is one at the head of them called Satan, the enemy, and you know his employment. He has access to the throne of God, and he makes most horrid use of it, for he accuses us day and night before the throne. The accuser of the brethren is not yet cast down&mdash;that is to be in the great day of the triumph of the Son of Man; but as Jesus stands our Advocate before the throne, so does old Satan first watch us and tempt us, and then stands as our accuser before the bar of God. O my dear brothers and sisters, if you have entered into this race, and have commenced it, let these many eyes urge you forward.
 
-> a cloud of witnesses around    
+> A cloud of witnesses around    
 > Hold thee in full survey;    
 > Forget the steps already trod,    
 > And onward urge thy way.    

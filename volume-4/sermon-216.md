@@ -61,7 +61,7 @@ Oh, what a marvellous thing, it from the thousands of hearts here present, so ma
 "But," says one, "I have no redeeming trait in my character at all." I am glad you think so; still you may use the prayer, "God be merciful to me." "But it will be a useless prayer," says one. My brother, I assure thee not in my own name, but in the name of God, my Father and your Father, it shall not be a useless prayer. As sure as God is God, him that cometh unto Christ he will in no wise cast out. Come with me now, I beseech thee; tarry no longer; the bowels of God are yearning over thee. Thou art his child, and he will not give thee up. Thou hast run from him these many years, but he has never forgotten thee; thou hast resisted all his warnings until now, and he is almost weary, but still he has said concerning thee, "How shall I make thee as Admah; how shall I set thee as Zeboim? Mine heart is turned within me, my repentings are kindled together."
 
 > Come humbled sinner, in whose breast    
-> a thousand thoughts revolve;    
+> A thousand thoughts revolve;    
 > Come with thy guilt and fear oppressed,    
 > And make this last resolve:    
 > I'll go to Jesus; though my sin    
