@@ -17,7 +17,7 @@ O then, you saints, love God the Father! We sometimes meet with Christians who a
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above   
-> a suffering Man became.   
+> A suffering Man became.   
 > 'Twas not the death which He endured   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
