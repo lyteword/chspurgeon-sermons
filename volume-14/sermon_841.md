@@ -120,7 +120,7 @@ Do you know what it is to trust Christ? I do not know how to explain it better t
 
 
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Your kind arms I fall.   
 > Be You my strength and righteousness,   
 > My Jesus and my All.   

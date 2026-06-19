@@ -84,7 +84,7 @@ The solemn article comes nearer and nearer, the pulse is fainter. You have enoug
 
 > And when you hear my eye-strings break,   
 > How sweet the minutes roll;   
-> a mortal paleness on my cheek,   
+> A mortal paleness on my cheek,   
 > But Glory in my soul,   
 
 or perhaps you burst out with a song concerning the new Jerusalem, "your happy home," name ever dear to you! And you rejoice that you are about to end your labors in the joy and peace which remains for the people of God.
@@ -115,7 +115,7 @@ Beloved, do this everyday! Look into the glass of the Word and see what manner o
 
 
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Christ's kind arms I fall   
 > He is my strength and righteousness,   
 > My Jesus, and my All.   

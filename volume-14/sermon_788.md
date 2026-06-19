@@ -72,7 +72,7 @@ Now, beloved, the practical use to which I put this, I am afraid somewhat discur
 > Lord, let me weep for nought but sin,   
 > And after none but thee;   
 > And then I would, O that I might,   
-> a constant weeper be.   
+> A constant weeper be.   
 
 I do not know a more beautiful sight to be seen on earth than a man who has served his Lord many years, and who, having grown grey in service, feels that, in the order of nature, he must soon be called home. He is rejoicing in the first-fruits of the Spirit which he has obtained, but he is panting after the full harvest of the Spirit which is guaranteed to him. I think I see him sitting on a jutting crag by the edge of Jordan, listening to the harpers on the other side, and waiting till the pitcher shall be broken at the cistern, and the wheel at the fountain, and the spirit shall depart to God that made it. A wife waiting for her husband's footsteps; a child waiting in the darkness of the night till its mother comes to give it the evening's kiss, are portraits of our waiting. It is a pleasant and precious thing so to wait and so to hope.
 
