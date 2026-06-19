@@ -63,7 +63,7 @@ At first came the Gnostics with their philosophy and into what perils they dragg
 It is with human wisdom as it is with human riches&mdash;how difficult shall they that have it enter into the Kingdom of God! True wisdom is another thing&mdash;that is a gift which comes from above and causes no puffing up of the heart, for it adores the God from whom it came! The wisdom which is true and real, the Lord is prepared to give to those who confess their ignorance&mdash;to those who will be babes in His sight. It is not ignorance which God loves, but conceit that He hates! Knowledge is good, but the affectation of it is evil! O for more true wisdom! May God give us much of it and may those who are babes, as yet, come to be men of full stature in Christ Jesus! Yet forget not your Lord's joy in the character of His converts, but remember the lines in which the poet of the sanctuary paraphrases our text&mdash;
 
 > Jesus, the man of constant grief,   
-> a mourner all His days,   
+> A mourner all His days,   
 > His Spirit once rejoiced aloud,   
 > And turned His joy to praise.   
 > Father, I thank Your wondrous love,   

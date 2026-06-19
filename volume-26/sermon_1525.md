@@ -94,9 +94,9 @@ Secondly, in the comparison of the saint to the lily we remark that he has, like
 
 sin. "Thorns, also, and thistles shall it bring forth unto you." Not so the lily&mdash;it is a fair type of the blessing which makes rich without the sorrow of carking care. The thorn is the mark of wrath and the lily is the symbol of Divine Providence. A true Believer is a blessing, a tree whose leaves heal and whose fruit feeds. A genuine Christian is a living Gospel, an embodiment of goodwill towards men. Did not the old Covenant blessing run, "In you and in your seed shall all the nations of the earth be blessed"? I cannot refrain from quoting a metrical meditation of one who loved the Song of Solomon and drank into its spirit. He says of the Church, she is&mdash;
 
-> a radiant thing, where all is gloomy else,   
+> A radiant thing, where all is gloomy else,   
 > Florescent where all else is barrenness.   
-> a blossom in the desert, that proclaims   
+> A blossom in the desert, that proclaims   
 > Man is no friendless outcast, hopeless doomed   
 > To traverse scenes of wickedness and grief,   
 > But, pilgrim as he is, has One who plans,   

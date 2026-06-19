@@ -47,7 +47,7 @@ Someone said to a Christian man, "What is your age?" and he replied, "I am on th
 > Here in the body tent,   
 > Absent from Him I roam,   
 > Yet nightly pitch my moving tent   
-> a day's march nearer Home.   
+> A day's march nearer Home.   
 
 If a day's march is worth singing about, is not a year's journey nearer Home a theme for still greater delight? Should we try to make out that we have so much longer to stay in exile&mdash;so much longer before we shall see the face of the Well-Beloved&mdash;so much longer before, like heirs that have come of age, we shall enter on our Divine inheritance?
 
