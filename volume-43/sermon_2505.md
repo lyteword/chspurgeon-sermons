@@ -18,7 +18,7 @@ There are others who feel some present apprehension of coming judgment. They are
 
 I went to the House of God and heard what I supposed was the Gospel, but it was no Gospel to me. My soul abhorred all manner of meat&mdash;I could not lay hold upon a promise, or indulge a hope&mdash;and I felt that I was going down to the Pit. If anyone had asked me what would become of me, I would have answered, "I am going down to the Pit." If anyone had entreated me to hope that mercy might come to me, I would have refused to entertain such a hope, for I felt that I was going down to the Pit! Well, dear Friends, it was while I was in that dreadful state of mind that Infinite Mercy met with me and saved me! And I wish that I had, in my present congregation, many wounded, broken spirits. Many weary, heavy-laden souls, for it is sweet work to preach the Gospel to such people!&mdash;
 
-> a sinner is a sacred thing,   
+> A sinner is a sacred thing,   
 > The Holy Spirit has made him so   
 
 &mdash;that is, a really convicted sinner, not a sham sinner, but one who acknowledges that the title belongs to him and says, "Put that label upon me, for that is what I am! I deserve the wrath of God and I feel as if the first spattering drops of the fiery tempest have already fallen upon me." This is the man who sees a true description of himself in the words of our text, "going down to the Pit."
