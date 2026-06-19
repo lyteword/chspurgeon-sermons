@@ -150,7 +150,7 @@ Now, dear Friends, let me ask you to join in this exercise. Let us first unitedl
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above,   
-> a suffering Man became.   
+> A suffering Man became.   
 > 'Twas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   
