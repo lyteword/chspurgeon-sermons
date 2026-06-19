@@ -23,7 +23,7 @@ Next, the place of the blood is where the Lord sees it in reference to us. Under
 > 'Twas not to make Jehovah's love   
 > Towards the sinner flame,   
 > That Jesus, from His Throne above,   
-> a suffering Man became!   
+> A suffering Man became!   
 > 'Twas not the death which He endured,   
 > Nor all the pangs He bore,   
 > That God's eternal love procured,   

@@ -62,7 +62,7 @@ Once more, the Lord will not cease to commune with His people. Whenever you desi
 
 I do not feel that I need say any more upon this promise; but I should like everyone who is a Christian to take it home. "Fou shall not be forgotten of Me." Perhaps, in a few days, you will be lying upon the bed of pain. The Lord bids me say to you in preparation for that affliction, "You shall not be forgotten of Me." Or, possibly, during this week, you will have a very serious loss in business that will occasion you a great staggering unless, as you read this promise to yourself, you say, "But the Lord has said, You shall not be forgotten of Me." Dear children of God, you never know what trouble or alarm is coming, only you have often proved the truth of Mr. Bunyan's quaint ditty&mdash;
 
-> a Christian man is never long at ease   
+> A Christian man is never long at ease   
 > When one fright's gone, another does him seize.   
 
 Therefore, be ready for anything, be ready for everything! You will be prepared for whatever may come if you remember this promise, "You are My servant: you shall not be forgotten of Me." The Lord will help you, He will help you right through, He will help you even to the end. Fall back upon this precious promise, "You shall not be forgotten of Me." I wish that I could put this passage, like a wafer made of honey, under every tongue where the mouth is full of bitterness, so that you might suck at it and get the sweetness out of it, and so say to yourself, "I shall be happy, yet, and happy, come what may, for the Lord will not forget me!"
