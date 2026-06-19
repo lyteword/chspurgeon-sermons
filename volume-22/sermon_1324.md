@@ -128,7 +128,7 @@ By His rich Grace I will love Him&mdash;I will, I will." Thank God, dear Friend,
 
 You may come. His Church invites you and His Spirit invites you, for, "the Spirit and the Bride say, Come." We who have, ourselves, come, would all invite you, for it is written, "Let him that hears, say, Come. And whoever will, let him take of the Water of Life freely." Do you feel a softness of soul coming over you? Does something whisper, "Now is mercy's hour"? Then, I beseech you, quench not the Spirit, and tarry no longer! No, tarry not even to leave that pew and find your little chamber and fall on your knees, but here and now yield yourself to Him! It will be the best moment you have ever lived&mdash;the beginning of days to you! As the night when Israel came out of Egypt shall this night be to your spirit if you yield yourself&mdash;
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Christ's kind arms I fall   
 > He is my strength and righteousness&mdash;   
 > My Jesus, and my all.   

@@ -131,7 +131,7 @@ The Angel is near this morning! Seize Him! Grasp Him! And if He seem to fling yo
 
 But I ask you to pray believingly and this is, indeed, the heart of the matter. Ask for remission and repentance, this morning, believing that Christ can give it and believing that He is as willing as He is able. If you can look up and see those dear eyes which wept over sinners. If you can see those wounds, still open for sinners like so many gates of Heaven, you will perceive that Jesus still calls to you and bids you trust Him! Do not think Him unwilling to forgive. That would be too cruel a suspicion after He has died! Trust Him wholly, only, sincerely, solely! Have done with those works and prayers and tears which you have been known to rely upon! All that you ever did to save yourself must be undone! Nature's spinning must all be unraveled&mdash;her fig leaves will wither&mdash;sin's nakedness requires a better covering. Your only hope lies in Him who is Prince and Savior. Cry at once to Him&mdash;
 
-> a guilty weak, and helpless worm,   
+> A guilty weak, and helpless worm,   
 > On Your kind arms I fall;   
 > You are my strength and righteousness,   
 > My Jesus, and my All.   
