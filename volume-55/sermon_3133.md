@@ -80,7 +80,7 @@ I love to find those who have not got anything good at all about them. Some like
 
 If there is anyone here tonight who thinks himself, "the chief of sinners," I have called him and God has called him! I wish he would act like a man I once saw in the County Court, when I was sitting there. He said, "Make way! Make way! His Honor has called me." And He elbowed his way up, because the judge had called him! God says, "Come now, and let us reason together, says the Lord: though your sins are as scarlet, they shall be as white as snow; though they are red like crimson, they shall be as wool." Say, "Stand back, for God calls me and I will come!" Sinner, it is Jesus you must rely on, and it is not yourself. It is nothing that you have, or can have&mdash;it is nothing that you do, or can do&mdash;you can be saved by Jesus Christ alone. Have faith in Him and rely on the Savior. Do you feel your need of a Savior? Then come and cast yourself upon Him! Leave off being anythingand let Christ be everything! Leave off doing, and let Him do! Say&mdash;
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Christ's kind arms I fall!   
 > He is my strength and righteousness,   
 > My Jesus and my all.   

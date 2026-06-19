@@ -30,7 +30,7 @@ It soothes his sorrows, heals his wounds, And drives away his fears." You also s
 > And in Your Presence rest   
 > Nor voice can sing, nor heart can frame,   
 > Nor can the memory find   
-> a sweeter sound than Your blest name,   
+> A sweeter sound than Your blest name,   
 > OSavior of mankind!   
 
 You received Him as your Savior and, therefore, He has saved you from the penalty of sin and He will also save you from the dominion and power of sin. If you are saved, you are saved entirely through Jesus&mdash;and you do not need, and you do not desire any other Savior! You look to Jesus for all that can be comprehended in the word, salvation. His name means Savior and you have found Him to be a Savior to you. So you have received the anointed Savior, Christ Jesus.
