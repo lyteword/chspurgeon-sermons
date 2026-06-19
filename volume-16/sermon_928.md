@@ -66,7 +66,7 @@ But that very morning that I heard the Gospel message, "Look unto Me, and be you
 > Then broke my bonds of grief.   
 > My mourning He to dancing turns,   
 > For sackcloth joy He gives,   
-> a moment, Lord, Your anger burns,   
+> A moment, Lord, Your anger burns,   
 > But long Your favor lives.   
 
 If I had not avowed my deliverance the very stones must have cried out! It was not in my heart to keep it back, but I am sure I could not have done so if I had desired. God's Grace does not come into the heart as a beggar into a barn, and lie hidden away as if it stole a night's lodging. No, its arrival is known all over the house, and every chamber of the soul testifies its presence! Grace is like a bunch of lavender&mdash;it discovers itself by its sweet smell. Like the nightingale it is heard where it is not seen. Like a spark which falls into the midst of straw it burns, and blazes, and consumes, and so reveals itself by its own energetic operations.
