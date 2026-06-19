@@ -35,7 +35,7 @@ parents' door! How sad it is that in many cases the influence of the mother and 
 > Our offspring, with an anxious heart,   
 > We now commend to Thee.   
 > Our children are our greatest care,   
-> a charge which You have given&mdash;   
+> A charge which You have given&mdash;   
 > In all Your Graces let them share,   
 > And all the joys of Heaven.   
 > If a centurion could succeed,   
