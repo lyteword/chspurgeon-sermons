@@ -112,7 +112,7 @@ need any apologies for the Gospel&mdash;it is its own witness. "God was in Chris
 
 Let us now come to bayonet point. Friend, will you believe in Jesus Christ?&mdash;that is the point! You have heard about Him long enough&mdash;will you now believe on Him? Wagon loads of sermons have been lost upon you&mdash;will you now believe on Him? "I will think about it." I don't ask you to think about it, but to believe on Him. "I shall go home and try what I can do." Do not try to do anything&mdash;believe on Jesus, for the Gospel precept is&mdash;"Believe on the Lord Jesus Christ and you shall be saved." May the sweet Spirit of God come upon you mightily, now, and take you away from all things but the one thing necessary! Oh that you would cast your guilty souls on Jesus and find Him mighty to redeem! Here is a simple verse for you to say in your hearts&mdash;
 
-> a guilty, weak, and helpless worm,   
+> A guilty, weak, and helpless worm,   
 > On Christ's kind arms I fall;   
 > He is my strength and righteousness,   
 > My Jesus, and my All.   
