@@ -53,7 +53,7 @@ Then, that I may persuade you further, let me remind you that to return to God i
 
 But, yet again, remember the comfortable fruits which will surely follow if you return. What would you think if I could show you yourself within a week? There he stands; he is singing&mdash;
 
-> a debtor to mercy alone,   
+> A debtor to mercy alone,   
 > Of covenant mercy I sing;   
 > Nor fear with thy righteousness on,   
 > My person and offering to bring.   
