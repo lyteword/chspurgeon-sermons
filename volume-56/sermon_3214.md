@@ -13,7 +13,7 @@ You must have noticed how often accidents happen to people when they are engaged
 > Often the clouds of deepest woe   
 > So sweet a message bear.   
 > Dark though they seem, 'twere hard to find   
-> a frown of anger there.   
+> A frown of anger there.   
 > It needs our hearts be weaned from earth,   
 > It needs that we be driven,   
 > By loss of every earthly stay,   

@@ -20,7 +20,7 @@ word as to a well and sit down on the brink and drink a refreshing draught! Come
 
 The text begins with the words, "my Beloved." Come, Soul, can you venture to call Christ your Beloved? Certainly He should be beloved by you, for what has He not done for you? Favors rich and rare have been the gifts of His hands&mdash; gifts purchased by His own most precious blood! If you do not love Him, my Heart, you are a most ungrateful thing, indeed! You are deceitful, rotten, loathsome above all things and desperately wicked, O my Heart, if Jesus, being your Savior, you do not love Him! He ought to be loved by the most of you here, for you profess to have been redeemed by His blood and adopted into the family of God through Him. You professed, when you were baptized, to be dead with Him&mdash; and when you come to this Communion Table, tonight, you will profess that He is your meat and your drink, your life, your soul's stay and comfort! So, if you do not love Him, what shall I say to you? I will let you say it to yourselves&mdash;
 
-> a very wretch, Lord!I should prove,   
+> A very wretch, Lord!I should prove,   
 > Had I no love for Thee&mdash;   
 > Rather than not my Savior love,   
 > Oh may I cease to be!   

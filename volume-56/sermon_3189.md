@@ -71,7 +71,7 @@ Take another view of this matter. God will comfort you who are here below. "Oh, 
 > Celestial fruits on earthly ground   
 > From faith and hope may grow.   
 > The hill of Zion yields   
-> a thousand sacred sweets   
+> A thousand sacred sweets   
 > Before we reach the heavenly fields,   
 > Or walk the golden streets.   
 > Then let our songs abound,   
