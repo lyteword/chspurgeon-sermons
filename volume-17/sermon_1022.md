@@ -16,7 +16,7 @@ WE DO NOT usually sleep towards the things of this world. We rise up early, and 
 > *    *    *    *    *    *    *   
 > Is the road fair, we loiter; clogged with mire,   
 > We stick or else retire;   
-> a lamb appeals a lion, and we fear   
+> A lamb appeals a lion, and we fear   
 > Each bush we see's a bear.   
 > When our dull souls direct our thoughts to thee,   
 > As slow as snails are we;   

@@ -77,7 +77,7 @@ Moreover, on the throne of grace, God is again bound to us by his promises. The 
 And, once more, and sweetest thought of all, every covenant promise has been endorsed and sealed with blood, and far be it from the everlasting God to pour scorn upon the blood of his dear Son. When a king has given a charter to a city, he may before have been absolute, and there may have been nothing to check his prerogatives, but when the city has its charter, then it pleads its rights before the king. Even thus God has given to his people a charter of untold blessings, bestowing upon them the sure mercies of David. Very much of the validity of a charter depends upon the signature and the seal, and, my brethren, how sure is the charter of covenant grace. The signature is the hand-writing of God himself, and the seal is the blood of the Only-begotten. The covenant is ratified with blood, the blood of his own dear Son. It is not possible that we can plead in vain with God when we plead the blood-sealed covenant, ordered in all things and sure. Heaven and earth shall pass away, but the power of the blood of Jesus with God can never fail. It speaks when we are silent, and it prevails when we are defeated. Better things than that of Abel doth it ask for, and its cry is heard. Let us come boldly, for we hear the promise in our hearts. When we feel alarmed because of the sovereignty of God, let us cheerfully sing&mdash;
 
 > The gospel bears my spirit up,   
-> a faithful and unchanging God   
+> A faithful and unchanging God   
 > Lays the foundation for my hope   
 > In oaths, and promises, and blood.   
 

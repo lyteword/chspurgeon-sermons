@@ -42,7 +42,7 @@ Jesus intended to heal the paralysed man, but he did so by first of all saying, 
 > I would, but cannot love,   
 > Though wooed by love divine;   
 > No arguments have power to move   
-> a soul so base as mine.   
+> A soul so base as mine.   
 > O could I but believe!   
 > Then all would easy be;   
 > I would, but cannot&mdash;Lord, relieve:   

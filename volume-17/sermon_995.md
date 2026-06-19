@@ -13,7 +13,7 @@ They are his, first of all, because he chose them. Ere the worlds were made, out
 
 > I never cast a flower away,   
 > The gift of one who cared for me;   
-> a little flower&mdash;a faded flower,   
+> A little flower&mdash;a faded flower,   
 > But it was done reluctantly.   
 
 Yet, oh, how weak the words of human passion! but, oh, how strong the expressions of divine ardor, when Jesus speaks to the Father of "the men whom thou gavest me out of the world"! "Thine they were," he says, "and thou gavest them me; and those that thou gavest me I have kept." Ye sheep of Christ, rest safely; let not your soul be disturbed with fear. The Father gave you to his Son, and he will not lightly lose what God himself has given him. The infernal lions shall not rend the meanest lamb that is a love-token from the Father to his best Beloved. While Christ stands defending his own, he will protect them from the lion and the bear, that would take the lambs of his flock; he will not suffer the least of them to perish.

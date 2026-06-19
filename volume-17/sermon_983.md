@@ -18,7 +18,7 @@ My object will be to show that, contrary to the ordinary course of nature, but n
 While this is contrary to nature, it is also unusual in history. In the Book of Numbers we read that Balak, son of Zippor, desired to vanquish Israel, and therefore he sent for Balaam, the son of Beor, saying, "Curse me Israel, and peradventure I shall prevail against them." Balaam was not able to curse Israel by word of mouth, but he cursed them in very deed when he counselled the king to make them unclean in God's sight by sending the daughters of Moab among them, who not only led them into lasciviousness, but invited them to the sacrifices of their gods. Then the anger of the Lord was kindled against Israel, and the plague would have devoured them, had not the holy zeal of Phinehas turned away the divine anger. Thus it is clear that Moab of old was foremost in polluting and defiling Israel. It is a great feat of faith when the thing which naturally defiles is turned into a washpot. Behold the transformations of grace! This ungodly world outside the church, the world of wicked men, would naturally pollute us, but faith turns them into a washpot, and finds in them motives for watchfulness and holiness. We sigh, in the words of the old psalm&mdash;
 
 > Woe's me that I in Mesech am   
-> a sojourner so long;   
+> A sojourner so long;   
 > That I in tabernacles dwell   
 > To Kedar that belong.   
 
@@ -58,7 +58,7 @@ Even when no very great calamity puts out the candle of the worldling, Yet, as y
 > The fire that in my bosom plays   
 > Alone as some volcanic isle;   
 > No torch is kindled at its blaze&mdash;   
-> a funeral pile.   
+> A funeral pile.   
 
 This is the world's treatment of its old servants: it dishonors them in old age; but it is not so with aged believers: "they shall still bring forth fruit in old age; they shall be fat and flourishing, to show that the Lord is upright." When all our wealth on earth is gone, our treasure is still safe in heaven, where moth corrupts not, and thieves break not through nor steal. When we think of the despair of men, of blasted hopes, Moab may become our washpot, and may keep us from setting our affection upon their fleeting joys.
 
