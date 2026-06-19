@@ -103,7 +103,7 @@ You have not much comfort at home, perhaps. By very hard work you earn that litt
 > Stitch, stitch, stitch   
 > In poverty, hunger, and dirt.   
 > Sewing at once, with a double thread,   
-> a shroud as well as a shirt.   
+> A shroud as well as a shirt.   
 
 But, my Sister, you may surely rejoice tonight in spite of all this! There may be little on earth, but there is much in Heaven. There may be but small comfort for you here apart from Christ but oh when, by faith, you mount into His Glory, your soul is glad! You shall be as rich as the richest tonight if the Holy Spirit shall but bring you to the Table and enable you to feed upon your Lord and Master! Perhaps you have come here tonight when you ought not to have done so. The physician would have told you to stay in your bed, but you persisted in coming up to the House where the Lord has so often met with you. I trust that we shall hear your voice in the song. There appears to have been, in David's day, many things to silence the praise of God, but David was one who would sing. I like that expression of his where the devil seems to come up and put his hand on his mouth and say, "Be quiet!" "No," said David, "I will sing!" Again the devil tries to quiet him, but David is not to be silenced, for three times he puts it, "I will sing, yes, I will sing praises unto the Lord!" May the Lord make you resolve, this night, that you will praise the Lord Jesus with all your heart!
 

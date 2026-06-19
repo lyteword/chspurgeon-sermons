@@ -76,7 +76,7 @@ And when Jacob saw them, he said, This is God's host: and he called the name of 
 
 And Jacob sent messengers before him to Esau his brother unto the land ofSeir, the country ofEdom. He is out of one trouble with Laban&mdash;now he is into another with Esau. Well did John Bunyan say&mdash;
 
-> a Christian man is seldom long at ease;   
+> A Christian man is seldom long at ease;   
 > When one trouble's gone, another does him seize.   
 
 5. And he commanded them, saying, Thus shall you speak unto my lord Esau, Your servant Jacob says thus, I have adjourned with Laban, and stayed there until now: and I have oxen, and asses, flocks, and menservants, and women servants: and I have sent to tell my lord, that I may find favor in your sight This is very respectful language, and rather submissive, too. But when a man knows that he has done wrong to another, he ought to be prepared to humble himself to the injured individual and, though it happened long ago, yet Jacob really had injured his brother Esau. So it was but right that in meeting him again, he should put himself into a humble position before him. There are some proud people who, when they know that they have done wrong, yet will not admit it. And it is very hard to end a quarrel when one will not yield and the other feels that he will not, either. But there is good hope of things going right when Jacob, who is the better of the two brothers, is also the humbler of the two.
