@@ -20,7 +20,7 @@ Now, let this be taken as a plain statement of our belief as to the Lord's work 
 > To form the heart anew.   
 > To chase the shades of death a way,   
 > And bid the sinner live!   
-> a beam of Heaven, a vital ray   
+> A beam of Heaven, a vital ray   
 > 'Tis Yours alone to give.   
 
 And, having said this, we proceed to bear witness that what can be done by us ought to be done, since what can be done by man will not be done by Christ. It is a rule with our Lord never to work needless miracles. Indeed, He only
