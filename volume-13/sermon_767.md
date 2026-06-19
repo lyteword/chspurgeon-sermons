@@ -161,7 +161,7 @@ Go into the court and present your offering of prayer and praise! Go as a priest
 > It yields a Heaven below;   
 > And angels round the Throne will say,   
 > 'Tis all the Heaven they know.   
-> a glimpse&mdash;a single glimpse of You,   
+> A glimpse&mdash;a single glimpse of You,   
 > Would more delight my soul   
 > Than this vain world, with all its joys,   
 > Could I possess the whole.   
