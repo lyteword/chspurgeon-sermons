@@ -70,7 +70,7 @@ Lastly, the cry of "I thirst" is to us THE PATTERN OF OUR DEATH WITH HIM. Know y
 > Dear fountain of delight unknown!   
 > No longer sink below the brim;   
 > But overflow, and pour me down   
-> a living and life-giving stream.   
+> A living and life-giving stream.   
 
 Jesus thirsted, then let us thirst in this dry and thirsty land where no water is. Even as the hart panteth after the water brooks, our souls would thirst after thee, O God.
 
