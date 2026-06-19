@@ -37,7 +37,7 @@ This necessity is evident if we consult the authority of Scripture. Consider its
 > The Sovereign Will of God alone   
 > Creates us heirs of Grace&mdash;   
 > Born in the image of His Son,   
-> a new peculiar race.   
+> A new peculiar race.   
 
 Remember also what even the Gospel requires of men. Men can hear the Gospel, for they have ears, but they cannot understand it until the Spirit of God opens their minds and hearts to receive it. Unto this day it happens unto men as unto the generation in Christ's day that though they have ears, they hear not, and though we speak unto them, they do not perceive, for how shall the fleshly man receive spiritual things? The unregenerate heart can no more understand the Gospel than a horse can understand astronomy&mdash;it is altogether beyond the comprehension of the carnal man! When we use a simple metaphor, he takes it as literally, as Nicodemus did when the Lord said to him, "Except a man is born-again, he cannot see the Kingdom of God," and he foolishly asked, "Can he enter a second time into his mother's womb and be born?" When Christ talked to the woman at the well of Sychar about the living water, she said at once, "Sir, give me this water, that I thirst not, neither come here to draw." And, today, when Christ says concerning the bread at the communion, "Take, eat, this is My body," the carnally-minded say that the bread is turned into flesh, not having the spiritual discernment to be able to comprehend even the simplest metaphors which the Lord Jesus Christ is pleased to use! Spiritual things must be spirituallydiscerned and, therefore, the carnal mind cannot discern them!
 
