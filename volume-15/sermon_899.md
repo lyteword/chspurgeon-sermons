@@ -36,7 +36,7 @@ It was loving kindness which arranged your parents' native place and time of bir
 Alas, to what an excess of riot did some of His people run! But He loved them notwithstanding all. He was a Friend that loved under the most provoking circumstances&mdash;
 
 > Loved when a wretch defiled with sin, At war with Heaven, in league with Hell,   
-> a slave to every lust obscene, Who, living, lived but to rebel.   
+> A slave to every lust obscene, Who, living, lived but to rebel.   
 
 When Justice would have said, "Let the rebel go, O Jesus. Be not bound any longer by cords of love to such a wretch," our ever faithful Redeemer would not cast us away, but threw another band of Divine Grace around us and loved us still. Consider well, "His great love wherewith He loved us, even when we were dead in trespasses and sins." I feel as if this were rather a matter for you to think over in private, than for me thus hastily to introduce to you in public. May the Holy Spirit, however, now bedew your hearts with grateful drops of celestial love as I remind you of the love at all times of this best of friends.
 

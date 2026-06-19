@@ -103,7 +103,7 @@ And there, as you lie, tormented to the quick, you will have this to be your mis
 He lost his soul, but he did not gain the world. He gained only a little frivolous pleasure, even that poor pittance he spent in an hour and then he was forever cast away! May it not be so with you&mdash;not with one of you, old or young! But may the Lord have mercy upon the whole assembly, for His dear name's sake. Amen.&mdash;
 
 > There is a time, we know not when,   
-> a point we know not where,   
+> A point we know not where,   
 > That marks the destiny of men,   
 > To glory or despair.   
 > There is a line, by us unseen,   

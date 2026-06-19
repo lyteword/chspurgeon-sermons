@@ -91,7 +91,7 @@ O my Heart, well may I strike you, that at the sight of the death of the dear Lo
 > Lord, let me weep for nothing but sin,   
 > And after none but You.   
 > And then I would&mdash;O that I might   
-> a constant weeper be!   
+> A constant weeper be!   
 
 One might desire to become a Niobe and realize the desire of Jeremy, "O that my head were waters." Even the holy extravagance of George Herbert does not surprise us, for we would even sing with him the song of GRIEF&mdash;
 
