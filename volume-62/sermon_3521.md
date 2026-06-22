@@ -2,13 +2,13 @@
 
 "Unto the pure all things are pure, but unto them who are defiled and unbelieving, nothing is pure, but even their mind and conscience are defiled." Titus 1:15.
 
-I SHALL not profess, this evening, to enter into a full exposition of this text, for there are many deep things in it, and many intricate questions are suggested by it. I shall only make some observations upon it intended to be of practical service.
+I shall not profess, this evening, to enter into a full exposition of this text, for there are many deep things in it, and many intricate questions are suggested by it. I shall only make some observations upon it intended to be of practical service.
 
 This text has often been misused&mdash;made to mean what was never in the Apostle's mind. He does not mean that a wrong thing becomes right to a pure-minded man&mdash;that is the very opposite of what he does mean! He means that when men's minds are pure, other matters become pure to them, but when their minds are impure, then they use these things for impurity. We shall endeavor to pick out the meaning as we go along, but by no means does it mean that I may pretend that I am of a pure mind and that, therefore, will make impurity, itself, pure! That would be to prove, if I found any pleasure in impurity, that my mind was impure. The true solution of the conduct of a man who professes to be pure in mind and yet commits himself to an unholy course of life, is not that the man makes that unholy life, pure, but that his unholy living proves that his mind is not pure at all!
 
 Our text has in it, tonight, two kinds of men&mdash;the pure and the defiled and unbelieving. And secondly, it has two kinds of effects produced upon these men by outward things&mdash;to the one, all things are pure&mdash;to the other, there is nothing pure. First, let us talk about these&mdash;
 
-TWO KINDS OF MEN.
+Two kinds of men.
 
 First, the pure&mdash;where shall we find them? Where are they born? We answer, no men are born so! Who shall bring a clean thing out of an unclean? No one! Not one! As our parents have sinned, we, their children, are born with tendencies to sin&mdash;we are impure even from birth! There are none pure but those who are made so by a second creation! The first time they are marred upon the wheel. They must go under the Creator's hand a second time&mdash;they must feel the power of the purifying Spirit of God creating them anew before they can be called pure at all! And these are not absolutely pure. Even in those who are entitled to be called, "pure in heart," there remains impurity. If any man shall question that, let him remember the First Epistle of John, the first Chapter, at the eighth verse&mdash;"If any man says he has no sin, he is a liar, and the truth is not in him." There is sin in the best of men&mdash;and if they do not perceive it, it must be because they are blinded with a foolish self-conceit&mdash;for in the purest heart there still remains connected with it the old nature and the impurity inherited from the first Adam. This makes life a perpetual conflict until life's close. Still, we name men by their predominant characteristics. The partial impurity of a good man does not entitle him to be called impure. If the master principle within him, the reigning principle, is purity, he is a pure man. A man may once in his life have spoken an untruth&mdash;he may have been surprised into saying a thing which is not&mdash;but if the general tenor of his life is stern integrity, we do not, therefore, condemn him and brand him as a liar! Otherwise where were the men living upon earth who would be worthy of a name implying praise? The godly are pure&mdash;have been made pure by regeneration, and they are pure, though not absolutely so.
 
@@ -30,7 +30,7 @@ Now there are men in the world with defiled understandings and defiled conscienc
 
 Thus have I spoken upon the two sorts of men, the pure and the defiled. But now, secondly, here is the main point that we have to speak of&mdash;
 
-THE TWO AFFECTS PRODUCED ON THESE TWO KINDS OF MEN.
+The two affects produced on these two kinds of men.
 
 To those who are pure, all things are pure. To those who are impure and unbelieving, everything becomes impure. Only a few things by way of specimen.
 
