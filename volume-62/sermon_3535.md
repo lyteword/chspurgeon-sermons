@@ -3,11 +3,11 @@
 "Unto You will I cry, O Lord, my Rock. Do not be silent to me, lest if You are silent to me, I become like those who go down to the pit." Psalm 28:1.
 
 
-I HAVE no doubt that the first and most natural meaning of these words is this, that David passed through such mental distress, such accumulated grief, that unless his prayer should bring him consolation from Heaven, he felt that he must despair and so become like those who sink into everlasting despair, going down into the pit of Hell. I think it is a cry against his misery which vexed him&mdash;an earnest petition that he might not have to suffer so long as to drive him into that same despair which is the eternal inheritance of lost souls.
+I have no doubt that the first and most natural meaning of these words is this, that David passed through such mental distress, such accumulated grief, that unless his prayer should bring him consolation from Heaven, he felt that he must despair and so become like those who sink into everlasting despair, going down into the pit of Hell. I think it is a cry against his misery which vexed him&mdash;an earnest petition that he might not have to suffer so long as to drive him into that same despair which is the eternal inheritance of lost souls.
 
 But in reading the other day Masillon's Reflections of the Psalms, I noticed that that eminent French preacher gives quite another turn to the passage, and he seems to regard this as being the prayer of David when he was exposed to the association of the ungodly, fearful lest he should become in character like those that go down into the pit, and even if that should not be the first meaning of the text, it seems to me to be a natural inference from it, and if not, still the thought, itself, is one which contains so much of holy caution about it that I desire to commend it to all my Brothers and Sisters in Christ Jesus tonight, and especially to such as are usually exposed to danger from evil society. We will begin, then, by remarking that&mdash;
 
-MANY OF THE BEST OF GOD's SAINTS ARE CALLED IN THE ORDER OF PROVIDENCE TO BE TRIED BY EVIL COMPANIONSHIP.
+Many of the best of God's saints are called in the order of providence to be tried by evil companionship.
 
 "I pray not that You should take them out of the world," said Christ, "but that You should keep them from the Evil One." Hence we are not shut up in monasteries or nunneries. We have not to&mdash;
 
@@ -19,9 +19,9 @@ It must be difficult, too, for a man to keep himself free from the contamination
 
 Yet Brothers and Sisters, I may as well come back to where I started. I suppose that we are, all of us, in whatever way of life we may be walking, exposed more or less to the associations of those who are not the servants of Christ. What business could a man select in which he would find that all with whom he had to deal were Christians? If there were, indeed, a parish of All Saints, it might be a very desirable place for residence, though I hardly know whether any man would be right in going to live there, since God's objective in making saints on earth at all is that by casting them like salt in the midst of the earth, they may work for good and savor the mass. You must, you must mix, more or less, with those who will tempt you! Do not be in a hurry, therefore, to change your position in life. If it is not, in itself, sinful&mdash;in case it is so, give it up tomorrow&mdash;but if it is not, in itself, sinful, stand not aghast at its peculiar temptations! There are temptations elsewhere. You may go from the frying pan into the fire, as the old proverb has it, very readily. In getting out of one temptation, you may soon get into another and, on the whole, probably the temptation that is troubling you most is the best that you can have. It is the temptation that would not trouble you that would be the most dangerous, and when a man's cross has been long on his shoulder, it begins to fit him&mdash;and he had better not change it for another. In every condition it is your lot to be crying to God for help, but do not be earnest to get out of the fire. This much the first point, then. The second is this. It appears from the text that&mdash;
 
-THE GREAT DANGER OF GOOD MEN IS LEST THEY SHOULD BECOME LIKE THE UNGODLY
+The great danger of good men is lest they should become like the ungodly
 
-THROUGH ASSOCIATION WITH THEM.
+Through association with them.
 
 Brothers and Sisters, I shall speak very much from observation, actual observation and, I fear, also partly from personal experience, when I briefly describe the way in which association with the ungodly tends to make Christians like they are.
 
@@ -43,7 +43,7 @@ of Hell!
 
 Brothers, just one moment here. There is nothing more horrible that I know of than that a man who professes to have been washed in the blood of Christ should defile himself as others do! What a dishonor to that dear name before which the angels bow, that we who wear it should act as Christ's enemies do! Paul says, "I tell you, even weeping, that there are some who are the enemies of the Cross of Christ, for their god is their belly; their end is destruction; they glory in their shame"&mdash;and these were professors! Nothing can be worse for the Church&mdash;nothing more disastrous to the world&mdash;than for Christians to become like the unconverted! The flood came upon the earth when the sons of God entered into alliance with the daughters of men. The day of chastisement is always near the day of sin&mdash;and the day when the godly assimilate with the Christless will be the prelude of the great overwhelming flood of fire that shall sweep away the earth! Do let us, if we would bless our age, be firm for the right and for the Truth of God! If we would be happy, ourselves, if we would honor and glorify Christ, let our prayer constantly be that we may not be as the wicked are. But I must not tarry longer, for I have to notice, in concluding&mdash;
 
-THE REMEDY TO WHICH DAVID RESORTED AGAINST THE DANGEROUS TENDENCY WHICH HE FELT.
+The remedy to which David resorted against the dangerous tendency which he felt.
 
 David was a great deal better man than we might have expected him to be in the position he occupied. When you hear persons condemn the glaring fall of David, you may join in their condemnation, but you may also ask them to remember the remarkable circumstances in which David was found. The sin which David committed, great and grievous as it was, was all too common&mdash;what if I say isall too common&mdash;in a soldier's life! The first part of David's life he spent as a captain of free-booters. That word does not quite describe his band, for they were not lawless robbers, but they were men, we are told, who were discontented and who fled from regular government&mdash;and we know from their character and conduct that they were rough, unbridled soldiers who would never have been governed by anyone less strong in character than David. Now associations like these he must often have felt to be extremely dangerous to his spirit.
 
@@ -55,7 +55,7 @@ I shall not need, I think, to spend even a moment in making the personal applica
 
 But I need your attention, in closing, to the last thought suggested by the text. The objective of David's prayer was that he might hear the voice of God in his soul, "lest," says he, "if You are silent to me, I become like those who go down to the pit."
 
-WHAT, THEN, WAS THIS VOICE OF GOD WHICH DAVID DESIRED TO HEAR?
+What, then, was this voice of God which David desired to hear?
 
 Let me guess at it for a minute. Was it not, first, that voice which would awaken sacred memories You have been exposed to temptation, my Brothers and Sisters, and you are ready to yield, but a voice reminds you of the day of your first espousals when your heart was warm towards Christ&mdash;of the days of your Baptism, when you were buried with Christ, professing to be dead to the world! It reminds you of the solemn vows that you made in years gone by, of solemn declarations that were registered before high Heaven that you would be firm and faithful, and keep Covenant with God. What? Will you, you, you&mdash;will you sin? A member of a Christian Church, one whose head has been leaning on Christ's bosom, one who has heard His voice and rejoiced in it&mdash;can you, can you turn aside? Perhaps you have an invitation for tomorrow&mdash;can you accept it when it involves sin? It may be that this very night you would have fallen, but by the recollection of those holy and happy seasons that you have had at the Lord's Table, those times of private payer, those hours when it was well with you, and you did walk with God, the still small voice of God calls to you, "What are you doing here, Elijah? Servant of God, what have you to do in the way of Assyria, to drink the waters of the muddy river? Turn aside from the ways of sin and seek your God."
 
@@ -65,7 +65,7 @@ The voice of God, moreover, may be regarded as that which actually impels the so
 
 May the Lord keep you, my Beloved, keep you fast and firm amidst this crooked and perverse generation! You young people, you young men and women&mdash;may the Lord grant that none of you may ever turn your backs in the day of battle! And you old people&mdash;the greatest pain we have ever had has been brought to this Church not by young people, but by old people! It is the old fools that are the biggest fools when they are fools! When old people are wise, they are the wisest&mdash;but when they are foolish, they are the most foolish! God keep the aged, and preserve their reverend heads, that they may not disgrace them, but may be a crown of glory to them! The Lord keep the pastors, keep the Elders, be with you all, and keep you all pure and unspotted from the world! This is our prayer and desire. God grant it, for Jesus' sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: DANIEL 6.
+Exposition by C. H. Spurgeon: Daniel 6.
 
 Verses 1-3. It pleased Darius to set over the kingdom an hundred and twenty princes, which should be over the whole kingdom. And over these three governors, of whom Daniel was first: that the princes might give accounts unto them, and the king should have no damage. Then this Daniel was preferred above the governors and princes, because an
 
