@@ -1,6 +1,7 @@
 # Sermon 3544 | The Only Road
 
-"Jesus said to Him, I am the way, the truth, and the life; no man comes to the Father but by Me." John 14:6.
+> Jesus said to Him, I am the way, the truth, and the life; no man comes to the Father but by Me.  
+> John 14:6
 
 Jesus had been speaking about the Father, about His going to the Father, about the Father's house and about going there. And He was asked by Thomas this question, "We know not where You are going, and how can we know the way?" We are to understand this verse as being an answer to that question. He tells him where He was going, namely, to the Father, and also the way to the Father, namely, by Himself.
 
@@ -56,7 +57,7 @@ And now we shall pass on to the second point.
 
 Christ is the way to the Father as he is the life. We get life through Him&mdash;then we come to
 
-God. But we are dead till we get Christ&mdash;and God is not the God of the dead, but of the living! We are dead, I say, till we get Christ and the place of the dead is on the earth&mdash;not in Heaven. Bury the dead out of my sight, corruption cannot inherit the Kingdom of God! Now observe we never come to God till first we get life enough in Christ to have Him as a hope of pardon. I never dared think of coming to God till, first of all, I saw that He had laid help upon One that is mighty, even upon Christ Jesus. When I understood that the only-begotten Son of God became Man for the sinner's sake and suffered in the sinner's place, then I thought, "There is hope for me."
+God. But we are dead till we get Christ&mdash;and God is not the God of the dead, but of the living! We are dead, I say, till we get Christ and the place of the dead is on the earth&mdash;not in Heaven. Bury the dead out of my sight, corruption cannot inherit the Kingdom of God! Now observe we never come to God till first we get life enough in Christ to have Him as a hope of pardon. I never dared think of coming to God till, first of all, I saw that He had laid help upon One that is mighty, even upon Christ Jesus. When I understood that the only begotten Son of God became Man for the sinner's sake and suffered in the sinner's place, then I thought, "There is hope for me."
 
 And the next thought I had was, "I will arise and go unto my Father, and I will confess my sin, hoping that He will have mercy upon me." Is there one here that wants to be reconciled to God? Soul, your only hope of ever being reconciled to Him is on the Cross&mdash;it is through Jesus&mdash;and only through Jesus, that you can have even half a hope that is worth having of ever being the friend of God. Oh, look there! Go to His bleeding wounds to get life and you will then begin to get to God!
 
