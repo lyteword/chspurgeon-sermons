@@ -24,7 +24,7 @@ Come then, Beloved, with hearts humbled on account of past sin, and yet encourag
 
 "Just as I am without one plea, But that Your blood was shed for me, And that You bid me come to Thee, Oh, Lamb of God, I come."
 
-While our text conducts us onward to the successful restoration of communion, it glances also at&mdash; II. unsuccessful attempts to find the beloved one.
+While our text conducts us onward to the successful restoration of communion, it glances also at unsuccessful attempts to find the beloved one.
 
 Of how many of us might it be said that with a lazy attitude and a listless wish, we have yawned after a gift for which we might have vehemently yearned. "By night on my bed I sought Him whom my soul loves." As it were on her bed of sloth and idleness, she dreamed of a happiness she was far from enjoying. But we shall never get the privilege of close
 

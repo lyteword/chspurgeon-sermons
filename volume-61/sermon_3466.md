@@ -34,7 +34,7 @@ Recollect, you professors, you lose the reward if you lose the road to the rewar
 
 if you travel ever so earnestly to the north, you will never reach the south. And if you earnestly take prussic acid, you will die! And if you earnestly cut off a limb, you will be wounded. You must not only be earnest, but you must be right in it! Hence is it necessary to say, "Let no man beguile you of your reward." "I bear them witness," said the Apostle, "that they had a zeal for God, but not according to knowledge, but went about to establish their own righteousness, and have not submitted themselves to the righteousness of God." Oh, may we not be beguiled, then, so as to miss the reward of Heaven at the last!
 
-But I must pass on, especially as the light fails us this evening&mdash;I hope it is prognostic of a coming shower. Here is a second rendering which may be given to the text&mdash; II. Let no man domineer over you.
+But I must pass on, especially as the light fails us this evening&mdash;I hope it is prognostic of a coming shower. Here is a second rendering which may be given to the text&mdash;let no man domineer over you.
 
 This rendering, or something analogous to it, is in the French translation. One of the great expositors in his commentary upon this passage refers it to the judges at the end of the course who sometimes would give the reward to the wrong person, and the person who had really run well might thus be deprived of his reward. Now, however close a man may be to Christ, the world, instead of honoring him for it, will, on the contrary, censure and condemn him&mdash;and hence the Apostle's exhortation is, "Let no man domineer over you."
 
