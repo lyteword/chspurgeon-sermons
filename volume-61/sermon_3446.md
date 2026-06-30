@@ -1,6 +1,7 @@
 # Sermon 3446 | "Christ Is All"
 
-"Christ is all." Colossians 3:11.
+> Christ is all.  
+> Colossians 3:11
 
 My text is so very short that you cannot forget it and, I am quite certain, if you are Christians at all, you will be sure to agree with it! What a multitude of religions there is in this poor wicked world of ours! Men have taken it into their heads to invent various systems of religion and if you look around the world, you will see scores of different sects. But it is a great fact that while there is a multitude of false religions, there is but one that is true. While there are many falsehoods, there can be but one truth&mdash;real religion is, therefore, one. There is but one Gospel&mdash;the Gospel of our Lord Jesus Christ. What a wonderful thing it is that Jesus Christ, the Son of God, should be born of humble parents and live as a poor Man in this world for the purpose of our salvation! He lived a life of suffering and trial and, at last, through the malignity of His enemies, was crucified on Calvary as an outcast of society. "Now," they said, "there is an end of His religion! Now it will be such a contemptible thing, that nobody will ever call himself a Christian&mdash;it will be discreditable to have anything to do with the name of the Man, Jesus, the Prophet of Nazareth." But it is an amazing fact that this religion has not only lived, but is at this hour as strong as ever! Yes, the religion He founded still exists and is still powerful, and constantly expanding. While other religions have sunk into the darkness of the past, and the idols have been cast to the moles and to the bats, the name of Jesus is still mighty&mdash;and it shall continue to be a blessed power so long as the universe shall endure!
 
