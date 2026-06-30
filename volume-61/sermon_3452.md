@@ -1,6 +1,7 @@
 # Sermon 3452 | Belief in the Resurrection
 
-"He is risen." Mark 16:6.
+> He is risen.  
+> Mark 16:6.
 
 Our Lord always told His disciples that He would rise. They were astonished to hear that He would die at all&mdash;they did not think it possible that He could die by the terrible death which He often hinted at. Had they understood and really believed that He would rise again, they might not have been so surprised at His death. But as often as He spoke of it, their minds seemed to have been like their eyes, on some occasions&mdash;held back that they should not see! And if they perceived His meaning, it ran so contrary to all their ideas of a Kingdom for a Messiah, that they could not grasp it as a reality!
 
