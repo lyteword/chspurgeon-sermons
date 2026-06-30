@@ -1,6 +1,7 @@
 # Sermon 3458 | Redeeming the Unclean
 
-"And every first-born of a donkey you shall redeem with a lamb; and if you will not redeem it, then you shall break its neck." Exodus 13:13.
+> And every first-born of a donkey you shall redeem with a lamb; and if you will not redeem it, then you shall break its neck.  
+> Exodus 13:13
 
 We read to you in the former part of the service the origination of the Law of God by which the first-born, both of man and beast, belonged to the Most High. That Law seemed to be a very admirable memorial of what the Lord did, and also a very just requirement on the part of God that the first-born, whom He had so miraculous delivered, should be His through all time.
 
