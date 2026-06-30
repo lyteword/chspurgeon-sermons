@@ -2,13 +2,13 @@
 
 "Let no man beguile you of your reward." Colossians 2:18.
 
-THERE is an allusion here to the prize which was offered to the runners in the Olympic games. And at the outset it is well for us to remark how very frequently the Apostle Paul conducts us by his metaphors to the racecourse. Over and over again he is telling us so to run that we may obtain, bidding us to strive and, at other times, to agonize, and speaks of wrestling and contending. Ought not this make us feel what an intense thing the Christian life is&mdash;not a thing of sleepiness or haphazard, not a thing to be left, now and then, to a little superficial consideration? It must be a matter which demands all our strength, so that when we are saved there is a living principle put within us which demands all our energies and gives us energy over and above any that we ever had before! Those who dream that carelessness will find its way to Heaven have made a great mistake. The way to Hell is neglect, but the way to Heaven is very different. "How shall we escape if we neglect so great a salvation?" A little matter of neglect brings you to ruin, but our Master's words are, "Strive to enter in at the straight gate, for many, I say unto you, shall seek"&mdash;merely seek&mdash;"to enter in, and shall not be able." Striving is needed more than seeking! Let us pray that God the Holy Spirit would always enable us to be in downright, awful earnest about the salvation of our souls. May we never count this a matter of secondary importance, but may we seek first and beyond everything else, the Kingdom of God and His righteousness. May we lay hold on eternal life&mdash;may we so run that we may obtain.
+There is an allusion here to the prize which was offered to the runners in the Olympic games. And at the outset it is well for us to remark how very frequently the Apostle Paul conducts us by his metaphors to the racecourse. Over and over again he is telling us so to run that we may obtain, bidding us to strive and, at other times, to agonize, and speaks of wrestling and contending. Ought not this make us feel what an intense thing the Christian life is&mdash;not a thing of sleepiness or haphazard, not a thing to be left, now and then, to a little superficial consideration? It must be a matter which demands all our strength, so that when we are saved there is a living principle put within us which demands all our energies and gives us energy over and above any that we ever had before! Those who dream that carelessness will find its way to Heaven have made a great mistake. The way to Hell is neglect, but the way to Heaven is very different. "How shall we escape if we neglect so great a salvation?" A little matter of neglect brings you to ruin, but our Master's words are, "Strive to enter in at the straight gate, for many, I say unto you, shall seek"&mdash;merely seek&mdash;"to enter in, and shall not be able." Striving is needed more than seeking! Let us pray that God the Holy Spirit would always enable us to be in downright, awful earnest about the salvation of our souls. May we never count this a matter of secondary importance, but may we seek first and beyond everything else, the Kingdom of God and His righteousness. May we lay hold on eternal life&mdash;may we so run that we may obtain.
 
 I would press this upon your memories because I observe&mdash;observe it in myself as well as in my fellow Christians, that we are often more earnest about the things of this life than we are about the things of the life to come. We are all impressed with the fact that in these days of competition, if a man would not be run over and crushed beneath the wheels of the Juggernaut of poverty, he must exert himself. No man now seems able to keep his head above water with the faint swimmer strokes which our forefathers used to give. We have to strive&mdash;and the bread that perishes has to be labored for. Shall it be that this poor world shall engross our earliest thoughts and our latest cares, and shall the world to come have only now and then a consideration? No! May we love our God with all our heart, and all our soul, and all our strength&mdash;and may we lay our body, soul and spirit upon the altar of Christ's service&mdash;for these are but our reasonable sacrifices to Him.
 
 Now the Apostle, in the text before us, gives us a warning which comes to the same thing, however it is interpreted. But the passage is somewhat difficult of rendering and there have been several meanings given to it. Out of these there are three meanings which have been given of the text before us which are worthy of notice. "Let no man beguile you of your reward" The Apostle, in the first place, may mean here&mdash;
 
-LET NO MAN BEGUILE ANY OF YOU who profess to be followers of Christ, of the great reward that will await the faithful at the last.
+Let no man beguile any of you who profess to be followers of Christ, of the great reward that will await the faithful at the last.
 
 Now, my Brothers and Sisters, we have, many of us, commenced the Christian race, or we profess to have done so&mdash; but the number of the starters is far greater than the number of the winners! "They that run in a race, run all, but one receives the prize." "Many are called, but few are chosen." Many commence, apparently, in the Christian career, but after a while, though they did run well, something hinders them that they do not obey the Truths of God and they go out from us because they were not of us, or if they had been of us, doubtless they would have continued with us. Now we may expect, now that we have commenced to run, that some will come and try to turn us out of the racecourse openly&mdash;not
 
@@ -34,7 +34,7 @@ Recollect, you professors, you lose the reward if you lose the road to the rewar
 
 if you travel ever so earnestly to the north, you will never reach the south. And if you earnestly take prussic acid, you will die! And if you earnestly cut off a limb, you will be wounded. You must not only be earnest, but you must be right in it! Hence is it necessary to say, "Let no man beguile you of your reward." "I bear them witness," said the Apostle, "that they had a zeal for God, but not according to knowledge, but went about to establish their own righteousness, and have not submitted themselves to the righteousness of God." Oh, may we not be beguiled, then, so as to miss the reward of Heaven at the last!
 
-But I must pass on, especially as the light fails us this evening&mdash;I hope it is prognostic of a coming shower. Here is a second rendering which may be given to the text&mdash; II. LET NO MAN DOMINEER OVER YOU.
+But I must pass on, especially as the light fails us this evening&mdash;I hope it is prognostic of a coming shower. Here is a second rendering which may be given to the text&mdash; II. Let no man domineer over you.
 
 This rendering, or something analogous to it, is in the French translation. One of the great expositors in his commentary upon this passage refers it to the judges at the end of the course who sometimes would give the reward to the wrong person, and the person who had really run well might thus be deprived of his reward. Now, however close a man may be to Christ, the world, instead of honoring him for it, will, on the contrary, censure and condemn him&mdash;and hence the Apostle's exhortation is, "Let no man domineer over you."
 
@@ -50,7 +50,7 @@ that you will never believe a Doctrine simply because I utter it! Unless I can c
 
 But now a third meaning belongs to the text. A happy circumstance it is, this dark night, that the preacher does not need to use his manuscript, for if he did, his sermon would certainly come to an end right now. But here is this point, "Let no man beguile you of your reward." It may mean this&mdash;
 
-LET NO MAN ROB YOU OF THE PRESENT REWARD WHICH YOU HAVE IN BEING a CHRISTIAN.
+Let no man rob you of the present reward which you have in being a Christian.
 
 Let no man deprive you of the present comfort which your faith should bring to you. Let me, just for a few minutes, have your attention while I speak upon this. Dear Brothers and Sisters, you and I, if we are believers in Christ, are this day completely pardoned. There is no sin in God's book against us. We are wholly and completely justified! The righteousness of Jesus Christ covers us from head to foot and we stand before God as if we had never sinned! Now let no man rob you of this reward. Do not be tempted by anything that is said to doubt the completeness of a believer in Christ. Hold this, and as you hold it, enjoy it! Do not let the man whom you have most to fear, beguile you. Even though conscience should upbraid you and you should have many grave reasons for doubt, as you imagine, yet if you believe in Jesus, stand to it&mdash;"There is, therefore, now no condemnation to me, for I am in Christ Jesus! He that believes in Him is not condemned! I have believed and I am not condemned. Neither will He permit condemnation to be thundered against me, for Christ has borne my sin for me and I am clear in Him." Let no man beguile you of the reward of feeling that you are complete in Christ!
 
@@ -60,9 +60,9 @@ There is a third blessed Truth, that not only are you pardoned and safe in Chris
 
 The Lord grant that you may feel this within and let no man beguile you of your reward as long as you live! May you live and die in the enjoyment of it, Beloved, for Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: EPHESIANS 4; 6:1-15.
+Exposition by C. H. Spurgeon: Ephesians 4; 6:1-15.
 
-EPHESIANS 4.
+Ephesians 4.
 
 Verses 1, 2. I therefore, the prisoner of the Lord, beseech you that you walk worthy of the vocation wherewith you are called. With all lowliness and meekness, with long-suffering, forbearing one another in love. It is a loving call. Walk lovingly. It is the condescension of God that called you. Be, therefore, lowly. It is God in tenderness who has loved you. Be, therefore, meek, "forbearing one another in love."
 
@@ -98,7 +98,7 @@ Let no corrupt communication proceed out of your mouth.Putrid is the word&mdash;
 
 And be you kind, one to another, tenderhearted, forgiving one another, even as God for Christ's sake has forgiven you.
 
-EPHESIANS 6.
+Ephesians 6.
 
 Verse 1. Children, obey your parents in the Lord: for this is right. Fitting by nature and pleasing in the sight of God.
 
