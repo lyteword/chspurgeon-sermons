@@ -1,6 +1,7 @@
 # Sermon 3460 | Praise Comely to the Upright
 
-"Praise is comely for the upright." Psalm 33:1.
+> Praise is comely for the upright.  
+> Psalm 33:1
 
 The Psalmist was full of praise and, therefore, felt that he could not fully express the Glory of God, but desired to enlist others in the sacred service. You hear him often calling upon sea and land, upon earth and Heaven, upon mountain and valley, upon plants and creeping things, upon living creatures, upon the heavens and the heavens that are above the heavens, to assist him in magnifying the name of the Infinite Jehovah, whose praise still exceeds all the honor that can be given to Him by all His creatures. Praise has a blessed contagion in it. It is like fire&mdash;if it burns its way in one place, it will be spreading itself if it can. A man cannot praise God alone. There will always be within him a high ambition to teach others to take up the strain. He will always be longing and desiring to lead others in the same sweet employ. Now let us seem to hear across these ages the voices of those who are with their God as they cry to us, "Rejoice in the Lord, you righteous, for praise is comely to the upright."
 
