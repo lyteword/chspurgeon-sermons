@@ -1,6 +1,6 @@
 # Sermon 3441 | God's Memorial Of His People
 
-> Behold I have engraved you upon the palms of My hands.
+> Behold I have engraved you upon the palms of My hands.  
 > Isaiah 49:16
 
 A little more than eight years ago, I remember addressing you from these very words. You will find the sermon in the printed series. But such a text as this is to be preached hundreds of times! It is quite impossible to exhaust it, and if we should run over the same circle of thought in some measure, the thought suggested is of itself so precious, it were well to have our pure minds stirred up by way of remembrance.
