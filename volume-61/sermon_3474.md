@@ -80,17 +80,17 @@ Among whom also we all had our conversation in timespast in the lusts of our fle
 
 5. But God, who is rich in mercy, for His great love wherewith He loved us even when we were deadin sins, has quickened us together with Christ Wonder! The life that quickens. Christ quickens all the members of His mystical body, and this has come to us through the riches of God's mercy. Whatever God has, He has in abundance, but of His mercy we read that He has riches of it&mdash;and truly all those riches of mercy He has shown in our case. We cannot but have riches of gratitude for such riches of mercy!
 
-By Grace you are saved.See, Paul puts that in a parenthesis. It was not necessary to the sense, but he knew that there would come a time when men would not like this Doctrine, so he puts it in, "By Grace are you saved." They cannot bear it and, therefore, they shall have it. They shall have it when the sense does not seem to demand it. To make it quite clear, he will insert it. "By Grace you are saved."
+By Grace you are saved. See, Paul puts that in a parenthesis. It was not necessary to the sense, but he knew that there would come a time when men would not like this Doctrine, so he puts it in, "By Grace are you saved." They cannot bear it and, therefore, they shall have it. They shall have it when the sense does not seem to demand it. To make it quite clear, he will insert it. "By Grace you are saved."
 
 And has raised us up together, and made us sit together in heavenly places in Christ Jesus. We are not only raised from the dead with Christ, but we are spiritually raised into the heavenly places with Him. It is a great thing when a man learns to look up from earth to Heaven. It is a greater thing when he learns to look down from Heaven upon earth&mdash;to have you sitting at the right hand of God, and then to look down on all the things of this present life as far below you!
 
-That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through Christ Jesus.Brothers and Sisters, we are to be a show, an exhibition, in which God will exhibit the riches of His Grace in His kindness toward us through Christ Jesus. Angels will count it a high joy to study the life of a regenerate man, to see him rise from death in sin to the Glory of God in Christ Jesus! What is so precious in God's esteem ought to continually excite our praise.
+That in the ages to come He might show the exceeding riches of His Grace in His kindness toward us through Christ Jesus. Brothers and Sisters, we are to be a show, an exhibition, in which God will exhibit the riches of His Grace in His kindness toward us through Christ Jesus. Angels will count it a high joy to study the life of a regenerate man, to see him rise from death in sin to the Glory of God in Christ Jesus! What is so precious in God's esteem ought to continually excite our praise.
 
 For by Grace are you saved. There it is again! Paul rings that silver bell in the deaf ears of men. "By Grace are you saved."
 
 8, 9. Through faith; and that not of yourselves: it is the gift of God. Not ofworks, lest any man should boast We would be sure to boast if we could. We are a boasting people! Man is a poor mass of flesh, and he is largely given to the corruption of pride. He will boast if he can.
 
-For we are His workmanship.If there is any good thing in us, He put it there. It is not for us to boast. It is for Him to boast if He pleases.
+For we are His workmanship. If there is any good thing in us, He put it there. It is not for us to boast. It is for Him to boast if He pleases.
 
 10, 11. Created in Christ Jesus unto good works, which God has before ordained that we should walk in them. Therefore remember&mdash;Oh, that is a good word for us, "Remember." We are so apt to forget. "Remember"&mdash;
 
