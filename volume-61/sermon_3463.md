@@ -39,7 +39,7 @@ Now I might enlarge, but I shall not. You clearly see that there are many moral 
 
 a few plain, earnest words with those of you who have not believed.
 
-There have been many arguments which have been used at different times to bring over the skeptical to the faith. I will just tell you what has often strengthened my own mind, so that, my dear Friends, if God inclines you to overcome the moral difficulty, you may not have a mental difficulty. In the first place, the Doctrine that we are called upon to be-lieveis, that having sinned we are condemned, but that God, full of mercy, had pity upon us and that His Son, God Himself, came down on earth to suffer what was due on account of our sins. In order that the Justice of God might not even seemto be robbed of its due, Jesus, God's only-begotten Son&mdash;
+There have been many arguments which have been used at different times to bring over the skeptical to the faith. I will just tell you what has often strengthened my own mind, so that, my dear Friends, if God inclines you to overcome the moral difficulty, you may not have a mental difficulty. In the first place, the Doctrine that we are called upon to be-lieveis, that having sinned we are condemned, but that God, full of mercy, had pity upon us and that His Son, God Himself, came down on earth to suffer what was due on account of our sins. In order that the Justice of God might not even seemto be robbed of its due, Jesus, God's only begotten Son&mdash;
 
 "Bore that we might never bear His Father's righteous ire."
 
@@ -71,9 +71,9 @@ There was a man of the Pharisees, namedNicodemus, a ruler of the Jews. Christ's 
 
 The same came to Jesus by night, and said unto Him, Rabbi, we know that You are a Teacher come from God: for no man can do these miracles that You do, except God be with Him. The miracles were accepted as a proof of Christ's mission, and if they do not seem to be such a proof to us at this distance, they were a most marvelous and necessary proof at the first. Perhaps they have ceased because that first work being done, the testimony can now stand upon its own strength, and men reading it may judge it to be of God if they will. But to Nicodemus it was quite clear that Christ could not have worked His miracles, except God were with Him.
 
-Jesus answered and said unto him, Verily, verily, I say unto you, Except a man is born-again, he cannot see the Kingdom of God.Here is a greater miracle than I have worked in the outside world. Here is a spiritual miracle. This is what you must receive as well as others. You cannot even understand My Kingdom, and know what it means&mdash;you cannot see it, except you are born-again.
+Jesus answered and said unto him, Verily, verily, I say unto you, Except a man is born-again, he cannot see the Kingdom of God. Here is a greater miracle than I have worked in the outside world. Here is a spiritual miracle. This is what you must receive as well as others. You cannot even understand My Kingdom, and know what it means&mdash;you cannot see it, except you are born-again.
 
-Nicodemus said unto Him, How can a man be born when he is old? Can he enter the second time into his mother's womb, and be born?Thus do men interpret Christ's figures literally, and this has been the basis of much mischief and false doctrines. When He is using metaphors to make the thing plain, they straightway use the metaphor rather as a cloak to hide the meaning than as a glass through which to see it! This is the reason why the false doctrine of transubstantiation has come up. Because our Savior said, "This is My body," men have not been able to understand that He meant, "This representsmy body. This is a figure." Truly "the letter kills." It is the inner spirit that gives life.
+Nicodemus said unto Him, How can a man be born when he is old? Can he enter the second time into his mother's womb, and be born? Thus do men interpret Christ's figures literally, and this has been the basis of much mischief and false doctrines. When He is using metaphors to make the thing plain, they straightway use the metaphor rather as a cloak to hide the meaning than as a glass through which to see it! This is the reason why the false doctrine of transubstantiation has come up. Because our Savior said, "This is My body," men have not been able to understand that He meant, "This representsmy body. This is a figure." Truly "the letter kills." It is the inner spirit that gives life.
 
 Jesus answered, Verily, verily, Isay unto you, Except a man be born ofwater and of the Spirit, he cannot enter into the Kingdom of God. He cannot be Christ's professed disciple unless he receives the Spirit and unless he is baptized&mdash; if the water here relates to Baptism at all, which we judge it does not. He must be renewed, washed and purified. That must be the water&mdash;and he must have the Holy Spirit dwelling in him, or else, as he cannot see, so he cannot enter into the Kingdom of God.
 
@@ -83,13 +83,13 @@ That which is born of the flesh is flesh: and that which is born of the Spirit i
 
 mysteries in Nature. There are mysteries in Grace. Every new-born soul is a mystery. He cannot explain himself. He can scarcely understand himself.
 
-9, 10. Nicodemus answered, and said unto Him, How can these things be? Jesus answered and said unto him, Are you a master of Israel, and know not these things?These simple things&mdash;these elementary principles&mdash;these rudiments of the school book of Believers.
+9, 10. Nicodemus answered, and said unto Him, How can these things be? Jesus answered and said unto him, Are you a master of Israel, and know not these things? These simple things&mdash;these elementary principles&mdash;these rudiments of the school book of Believers.
 
 Verily, verily, I say unto you, We speak what We know, and testify what We have seen: and you receive not Our witness. This was an additional hint to Nicodemus of the unbelief that still lingered in him. "You receive not Our witness."
 
 If I have told you earthly things&mdash;Things that have to do with men while here below.
 
-And you believe not, how shall you believe ifI tell you of heavenly things?If I lift the veil and talk to you about still greater mysteries, if you do not believe about regeneration, where will you be if I begin to talk of My Godhead and of all the inner secrets?
+And you believe not, how shall you believe ifI tell you of heavenly things? If I lift the veil and talk to you about still greater mysteries, if you do not believe about regeneration, where will you be if I begin to talk of My Godhead and of all the inner secrets?
 
 And no man has ascended up to Heaven, but He that came down from Heaven, even the Son of Man which is in Heaven. A riddle, doubtless, to Nicodemus, which in later days he understood.
 
