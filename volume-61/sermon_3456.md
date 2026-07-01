@@ -43,7 +43,7 @@ out of my heart, to feel my own sudden tenderness! I have even sat at that Table
 
 Then the next act of our Savior was to proceed to inform their understanding. You observe He opened their understanding that they might understand the Scriptures. Nearness to Christ is an education. Get near to Jesus and you will find that the Corpus Christi is the true college! He who knows the body of Christ has got the body of theology, the body of divinity&mdash;the true theology of the Word of God. He that knows Him has understanding. With all your getting, get understanding! And from Him you shall get it, for He is Wisdom. And is He not the Truth of God? And is He not the Incarnate Wisdom? With Him God took counsel before the earth was. There is no studying the Scriptures that becomes so useful as when we study them with Christ to turn over the leaves for us.
 
-Then the next thing was He refreshed their memories.Perhaps I ought to have mentioned this before because it occurs first. He said to them, "These are the words I spoke to you." Tonight, perhaps, if Jesus is here, you will remember those other times when you have seen Him&mdash;
+Then the next thing was He refreshed their memories. Perhaps I ought to have mentioned this before because it occurs first. He said to them, "These are the words I spoke to you." Tonight, perhaps, if Jesus is here, you will remember those other times when you have seen Him&mdash;
 
 "His former visits we recount, When with Him on the holy mount."
 
@@ -103,7 +103,7 @@ For I have given unto them the Words which You gave Me; and they have received t
 
 Ipray for them: Ipray not for the world, but for them which You have given Me; for they are Yours. There is an intercession of Christ which is for all the world, but His choicest intercession&mdash;His effectual prayer&mdash;is for His own. Nothing, perhaps, makes men so angry as this statement! They cannot endure that God should dispense His gifts according to His own will&mdash;but so it stands true!. There is an intercession in which none have a part but His own. "I pray for them: I pray not for the world, but for them which You have given Me, for they are Yours."
 
-11. And all Mine are Yours, and Yours are Mine; and I am glorified in them. And now I am no more in the world, but these are in the world, and I come to You.They, therefore, will be left. The Shepherd will be gone. They will seem to be like orphans with their best Friend departed.
+11. And all Mine are Yours, and Yours are Mine; and I am glorified in them. And now I am no more in the world, but these are in the world, and I come to You. They, therefore, will be left. The Shepherd will be gone. They will seem to be like orphans with their best Friend departed.
 
 11-13. Holy Father, keep through Your own name those whom You have given Me, that they may be one, as We are. While I was with them in the world, I kept them in Your name: those that You gave Me, I have kept, and none of them is lost, but the son of perdition; that the Scripture might be fulfilled. And now come I to You; and these things I speak in the world, that they might have My joy fulfilled in themselves. He asks not only that they may be kept and so unharmed, but that they may be comforted, and so made glad. O sad hearts, hear your Redeemer's prayer for you&mdash;and do not doubt that it is answered&mdash;"that they might have My joy fulfilled in themselves. "
 
