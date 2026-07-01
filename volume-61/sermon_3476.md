@@ -69,7 +69,7 @@ Exposition by C. H. Spurgeon: Psalm 116:1-11.
 
 It begins well.
 
-Verse 1. I love the Lord.Can you say that? "Yes, Lord, You know all things. You know that I love You." "I love the Lord." Love is said to be blind, but not love to God! Love to God can see and it can give a reason for its own existence&mdash;and a good substantial reason, too. "I love the Lord."
+Verse 1. I love the Lord. Can you say that? "Yes, Lord, You know all things. You know that I love You." "I love the Lord." Love is said to be blind, but not love to God! Love to God can see and it can give a reason for its own existence&mdash;and a good substantial reason, too. "I love the Lord."
 
 Because He has heard my voice and my supplications. A good reason for love will be found in the closet where prayer is answered. If you have ever been in trouble and that Divine Friend has listened to your feeble cries, you do love Him, and you cannot help loving Him!. You wonder why others do not love Him too.
 
@@ -83,7 +83,7 @@ The sorrows of death compassed me. They were all round me. They made a circle. I
 
 And the pains of Hell had hold upon me. They came inside the circle and they gripped me. I was like one that did lie under the lion. He seemed to bite and tear me. "The pains of Hell had hold upon me." Did you ever know that? I did. Oh, I can never forget, for the scars are in my mind to this day when the pains of Hell had hold upon me! They say that there is no Hell. He will never say that who has ever felt the pains of a guilty conscience&mdash;the pangs of unforgiven sin to a soul that is made alive by the Spirit of God! "The pains of Hell had hold upon me."
 
-I found trouble and sorrow.An unexpected find. They were hidden away&mdash;these double enemies&mdash;hidden away beneath my pleasures, beneath my sins, beneath my self-righteousness. "I found trouble and sorrow."
+I found trouble and sorrow. An unexpected find. They were hidden away&mdash;these double enemies&mdash;hidden away beneath my pleasures, beneath my sins, beneath my self-righteousness. "I found trouble and sorrow."
 
 Then I called upon the name of the Lord. The best hour for prayer is the time of our greatest distress. When you can do nothing else but pray, then is the very best time to pray! When you seem shut up to prayer, what a blessed shutting up it is! "Then I called upon the name of the Lord." And what was his prayer? Very short. Very full&mdash;a sort of soldier's
 
@@ -97,7 +97,7 @@ Yes, our God is merciful That is the practical outcome of the holy conjunction o
 
 The Lord preserves the simple. You clever men take heed of this. "The Lord preserves the simple"&mdash;the plain, hearty, honest, sincere, sometimes ridiculed for their lack of cunning. God takes care of them.
 
-I was brought low, and He helped me.What a sweet thing it is when you have studied a general Doctrine to be able to give yourself as a particular instance of it. "The Lord preserves the simple." That is a grand Truth of God. "But I was brought low, and He helped me." That is an emphatic proof! That is the enjoyable illustration of the grand Truth! Can you say that, dear Friends? Can you put that in your diary? "I was brought low, and He helped me."
+I was brought low, and He helped me. What a sweet thing it is when you have studied a general Doctrine to be able to give yourself as a particular instance of it. "The Lord preserves the simple." That is a grand Truth of God. "But I was brought low, and He helped me." That is an emphatic proof! That is the enjoyable illustration of the grand Truth! Can you say that, dear Friends? Can you put that in your diary? "I was brought low, and He helped me."
 
 Return unto your rest, O my soul; for the Lord has dealt bountifully with you. Come back. He is a good God. Why wander? Return unto your first Husband, for it was better with you than now. He has been bountiful. My soul again lives on His bounty.
 
