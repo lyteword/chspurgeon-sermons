@@ -80,7 +80,7 @@ The Lord at Your right hand shall strike through kings in the day of His wrath. 
 
 ROMANS2:25-29.
 
-Verse 25. For circumcision verily profits, if you keep the Law: but if you are a breaker of the Law, your circumcision is made uncircumcision.Paul is dealing with the Jew, who was apt to think that he must have a preference beyond the Gentiles on account of his circumcision.
+Verse 25. For circumcision verily profits, if you keep the Law: but if you are a breaker of the Law, your circumcision is made uncircumcision. Paul is dealing with the Jew, who was apt to think that he must have a preference beyond the Gentiles on account of his circumcision.
 
 26-29. Therefore if the uncircumcision keeps the righteousness of the Law, shall not his uncircumcision be counted for circumcision? And shall not uncircumcision which is by nature, if it fulfills the Law, judge you, who by the letter and circumcision transgress the Law? For he is not a Jew, which is one outwardly; neither is that circumcision, which is outward in the flesh. But he is a Jew, which is one inwardly; and circumcision is that of the heart, in the spirit, and not in the letter: whose praise is not of men, but of God. If this principle were fully recognized everywhere, it would certainly put an end to all that notion of sacramentarianism which some men hold! It is not the outward, not the external, not the form and ceremony&mdash;it is the inward work of the Holy Spirit&mdash;it is holiness and change of heart. Let none of us ever fall into the gross error of those who imagine that there is attached to certain ceremonies a certain degree of Divine Grace. It is not so. He is not a Christian who is one outwardly&mdash;he is a Christian who is one inwardly.
 
@@ -88,7 +88,7 @@ ROMANS3.
 
 Verses 1, 2. What advantage then has the Jew? Or what profit is there of circumcision? Much every way: chiefly, because that unto them were committed the oracles of God. The Jews of old had a great advantage, for they had the Truth of God when other men had not. The voice of God spoke to them clearly, when only here and there, to a few chosen ones beside, was the voice of God delivered at all.
 
-For what if some did not believe? Shall their unbelief make the faith of God without effect?It was a privilege to belong to the Jewish people, even though some, and many through their unbelief, did not avail themselves of the privilege.
+For what if some did not believe? Shall their unbelief make the faith of God without effect? It was a privilege to belong to the Jewish people, even though some, and many through their unbelief, did not avail themselves of the privilege.
 
 4-7. God forbid! Yes, let God be true, but every man a liar; as it is written, That You might be justified in Your sayings, and might overcome when You are judged. But if our unrighteousness commends the righteousness of God, what shall we say? Is God unrighteous who takes vengeance? (I speak as a man). God forbid! For then how shall God judge the world? For if the Truth of God has more abounded through my lie unto His glory: why am I yet also judged as a sinner? Here is another objection&mdash;if it is so that, somehow or other, the sin of man is overruled to magnify the Grace of God, why am I, then, blameworthy? But the Apostle stamps this out as an evil suggestion and a very moral disease.
 
