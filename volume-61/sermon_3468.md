@@ -84,7 +84,7 @@ I complained, and my spirit was overwhelmed. It is no new thing, then, for the b
 
 I call to remembrance my song in the night. To see whether You did forsake me in days gone by&mdash;marked my past experience of Your faithfulness.
 
-6-9. Icommune with my own heart: andmy spirit made diligent search. Will the Lord cast off forever? And willHe be favorable no more? Is His mercy clean gone forever? Does His promise fail forevermore? Has God forgotten to be gracious? Has He in anger shut up His tender mercies?Will He be favorable no more? Very proper questions to put. They answer themselves when we put then plainly, but while they lie festering in our spirits&mdash;misshapen things like ghosts that haunt our hearts&mdash;then they alarm us. It is well to come to plain dealings with our soul and to say, "Why are you cast down, O my Soul; why are you disquieted within me?"
+6-9. Icommune with my own heart: andmy spirit made diligent search. Will the Lord cast off forever? And willHe be favorable no more? Is His mercy clean gone forever? Does His promise fail forevermore? Has God forgotten to be gracious? Has He in anger shut up His tender mercies? Will He be favorable no more? Very proper questions to put. They answer themselves when we put then plainly, but while they lie festering in our spirits&mdash;misshapen things like ghosts that haunt our hearts&mdash;then they alarm us. It is well to come to plain dealings with our soul and to say, "Why are you cast down, O my Soul; why are you disquieted within me?"
 
 9, 10. Selah. And I said. When I came to reckon all up, and make a righteous judgment. When I bid my fears lie still awhile and let me listen to reason, I said&mdash;
 
@@ -96,7 +96,7 @@ This is my infirmity: but I will remember the years of the right hand of the Mos
 
 You have with Your arm redeemed Your people, the sons of Jacob and Joseph. Saints in the olden times were very fond of falling back upon the redemption of Israel out of Egypt. It was a favorite subject of their contemplation&mdash;it yielded them great comfort, and very, very frequently they turned it into sacred song. Now in Heaven we shall do the same, for we shall sing the song of Moses and the Lamb. Let not the Church in modern times forget to draw consolation out of that well! Here the Psalmist gives us a description, as I think it is, of the passage of the Red Sea&mdash;giving it as a sort of type of the way in which God will always deliver His people to the world's end.
 
-16-20. The waters saw You, O God, the waters saw You; they were afraid: the depths also were troubled. The clouds poured out water: the skies sent out a sound: Your arrows also went abroad. The voice of Your thunder was in the Heaven: the lightning lighted the world: the earth trembled and shook Your way is in the sea, and Your path in the great waters, and Your footsteps are not known. You lead Your people like a flock by the hand of Moses and Aaron.For one moment just look at this picture. You will be delivered and God will be glorified in your deliverance just as He was in the coming out of Egypt, but it will be by a mysterious way, perhaps a way little guessed at by you. God's path will be in the great waters. You will see the power, but before you see it, you will little guess how it will be displayed. Only follow where He leads, for as amidst the thunder and the lightning, He led His people as calmly on as a shepherd leads his flock. So shall you, whatever happens, with Jehovah for Your Shepherd, be led safely on till you come to the Celestial City! Let us sing the song of the Red Sea.
+16-20. The waters saw You, O God, the waters saw You; they were afraid: the depths also were troubled. The clouds poured out water: the skies sent out a sound: Your arrows also went abroad. The voice of Your thunder was in the Heaven: the lightning lighted the world: the earth trembled and shook Your way is in the sea, and Your path in the great waters, and Your footsteps are not known. You lead Your people like a flock by the hand of Moses and Aaron. For one moment just look at this picture. You will be delivered and God will be glorified in your deliverance just as He was in the coming out of Egypt, but it will be by a mysterious way, perhaps a way little guessed at by you. God's path will be in the great waters. You will see the power, but before you see it, you will little guess how it will be displayed. Only follow where He leads, for as amidst the thunder and the lightning, He led His people as calmly on as a shepherd leads his flock. So shall you, whatever happens, with Jehovah for Your Shepherd, be led safely on till you come to the Celestial City! Let us sing the song of the Red Sea.
 
 Revelation 1:15-20.
 
@@ -104,9 +104,9 @@ In the first 14 verses we have given to us part of the glowing description of th
 
 And His feet like unto fine brass, as if they burned in a furnace; and His voice as the sound of many waters. Seas lashed to tempests, cataracts leaping from their stupendous heights&mdash;such was the voice of Christ!
 
-And He had in His right hand seven stars. And out of His mouth went a sharp two-edged sword.For His Word is a killing thing.
+And He had in His right hand seven stars. And out of His mouth went a sharp two-edged sword. For His Word is a killing thing.
 
-And His countenance was as the sun shines in its strength.What magnificent figures put together! We are well prepared to find that John could not long endure this majestic representation of the Lord.
+And His countenance was as the sun shines in its strength. What magnificent figures put together! We are well prepared to find that John could not long endure this majestic representation of the Lord.
 
 And when I saw Him, I fell at His feet as dead. He was not only brought to the posture of reverence, but he was so overawed that he became unconscious! It is the same Person upon whose breast John had laid his head, yet now He is
 
