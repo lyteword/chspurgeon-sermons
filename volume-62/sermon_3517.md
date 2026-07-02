@@ -51,7 +51,7 @@ Come, Brothers and Sisters, let us, too, rejoice! Forget your own troubles a whi
 
 Now suppose the preacher should receive a message tonight that every soul here would be saved except one, and suppose it were revealed to him who that one would be and he was expected, now, to point out that one! Oh, dreadful message! With what trembling would you all sit, each one afraid lest it should be yourself to be left unsaved. I have no such message, thank God! And yet, yet if I could hope that all here would be saved but one, I must confess my heart would be lighter than it is, for unless some of you repent, forsake your sins, and fly to Christ, the lost will not be one, but many! Dear Hearer, let it not be you! While Mercy, still with silken accents speaks and cries, "Return, return!" While Love with bleeding hands beckons and cries with the wounded side of Christ, "Oh, believe and come! Whoever believes on Him shall be saved, for he that believes and is baptized shall be saved. He that believes not shall be damned!" May God help you to trust in Christ and live! Amen.
 
-Exposition by C. H. Spurgeon: Romans 12:1-16
+## Exposition by C. H. Spurgeon: Romans 12:1-16
 
 I beseech you, therefore, brethren&mdash;Paul is a calm reasoner. He is a bold stater of Truth of God, but here he comes to pleading with us. I think that I see him lift the pen from the paper and look round upon us as with the accent of entreaty, and say, "I beseech you, therefore, brethren, by the mercies of God, by God's great mercy to you, His many mercies, His continued mercies." What stronger plea could the Apostle have? "I beseech you, brethren, by the mercies of God."
 
