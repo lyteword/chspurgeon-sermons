@@ -131,7 +131,7 @@ For you see your calling, brethren, how that not many wise men after the flesh, 
 
 28, 29. To bring to nothing things that are. That no flesh should glory in His Presence. This is what flesh always likes to do. Proud flesh we speak of, and all flesh is such. Flesh has a great tendency to swell, to corrupt&mdash;it is easily puffed up&mdash;but God will not have it so. What is flesh to God? Did not He make all things? Shall the thing formed boast itself against the Former?
 
-But of Him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctifcation, and redemption.In fact, we have everything in Christ! We have in His Prophetic office, wisdom. In His priestly office, righteousness and sanctification. And in His royal office, in which He paid the price of our salvation, we have redemption!
+But of Him are you in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctifcation, and redemption. In fact, we have everything in Christ! We have in His Prophetic office, wisdom. In His priestly office, righteousness and sanctification. And in His royal office, in which He paid the price of our salvation, we have redemption!
 
 That, according as it is written, He that glories, let him glory in the Lord. Here is room for glorifying and it is our duty to glory in God. Let us do so more and more!
 
