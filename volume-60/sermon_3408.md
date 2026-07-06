@@ -74,6 +74,6 @@ For when we were yet without strength, in due time Christ died for the ungodly. 
 
 For scarcely for a righteous man will one die: yet perhaps for a good man. A benevolent, loving-spirited man.
 
-7, 8. Some would even dare to die. But God commends His love toward us in that while we were yet sinners, Christ died for us.And that is the glory of His Love! While we were rebels against His government, He redeemed us. While we were far off from Him by wicked works, He sent His Son to die and bring us near. Free Grace, indeed, was this&mdash;not caused by anything in us but springing freely from the great heart of God!
+7, 8. Some would even dare to die. But God commends His love toward us in that while we were yet sinners, Christ died for us. And that is the glory of His Love! While we were rebels against His government, He redeemed us. While we were far off from Him by wicked works, He sent His Son to die and bring us near. Free Grace, indeed, was this&mdash;not caused by anything in us but springing freely from the great heart of God!
 
 Much more, then, being now justified by His blood, we shall be saved from wrath through Him. You see the force of the argument? If He loved us when we were still dead in sin, much more will He keep us and preserve us now that He has justified us! Were His enemies redeemed? Shall not His friends be kept? Did He love those who were still far off? Will He not love those who are brought near&mdash;and love us even to the end?
