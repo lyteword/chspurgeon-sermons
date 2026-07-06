@@ -82,11 +82,11 @@ Gracious is the LORD, and righteous. Wonderful combination&mdash;gracious and ye
 
 5, 6. Yes, our God is merciful. The LORD preserves the simple. Those that have such a deal of wit may take care of themselves, but, "the Lord preserves the simple," the straightforward, the plain-minded&mdash;those who believe His Word without raising questions. "The Lord preserves the simple."
 
-I was brought low and He helped me.Oh, many of you can say this, I trust, and if you cannot, I hope you will before long&mdash;"I was brought low and He helped me."
+I was brought low and He helped me. Oh, many of you can say this, I trust, and if you cannot, I hope you will before long&mdash;"I was brought low and He helped me."
 
 ROMANS 5:10-21.
 
-For if, when we were enemies, we were reconciled to God by the death of His Son, much more, being reconciled, we shall by saved by His life.This is a grand argument for the safety of all Believers, having a three-fold edge to it! If He reconciled His enemies, will He not save His friends? If He reconciled us, will He not save us? If He reconciled us by the death, will He not save us by the life of His Son?
+For if, when we were enemies, we were reconciled to God by the death of His Son, much more, being reconciled, we shall by saved by His life. This is a grand argument for the safety of all Believers, having a three-fold edge to it! If He reconciled His enemies, will He not save His friends? If He reconciled us, will He not save us? If He reconciled us by the death, will He not save us by the life of His Son?
 
 And not only so The blessings of the Covenant of Grace rise tier upon tier, mountain upon mountain, Alp on Alp. When you climb to what seems the utmost summit, there is a height yet beyond you. "And not only so"&mdash;
 
