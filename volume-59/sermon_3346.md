@@ -98,7 +98,7 @@ For there are no pangs in their death: but their strength is firm. Their unbelie
 
 They set their mouth against the heavens, and their tongue walks through the earth. Leaving nobody alone, sparing no character, however pure.
 
-10, 11. Therefore his people return here: and waters of a full cup are wrung out to them. And they say, How does God know? And is there knowledge in the Most High?They get to doubt the Personality of God. If they will not precisely say that there is no God, yet they go as near to it as they can! They come to what is about the same thing. They have a god who does not know and who does not perceive.
+10, 11. Therefore his people return here: and waters of a full cup are wrung out to them. And they say, How does God know? And is there knowledge in the Most High? They get to doubt the Personality of God. If they will not precisely say that there is no God, yet they go as near to it as they can! They come to what is about the same thing. They have a god who does not know and who does not perceive.
 
 Behold, these are the ungodly whoprosperin the world; theyincrease in riches. And this is what the good man said&mdash;
 
@@ -106,7 +106,7 @@ Behold, these are the ungodly whoprosperin the world; theyincrease in riches. An
 
 If I say, I will speak thus, behold I should offend against the generation of Your children. So he did not say what he thought. Some have said, "If you think so, you may as well say so." But not so! You might as well say if you have a match you may as well burn your house down! Bad thought is bad to yourself, but it ends there&mdash;turn it into words and tell it to others and it may do infinite mischief.
 
-16, 17. When I thought to know this, it was too painful for me. Until I went into the sanctuary of God, then understood I their end.He went and hid himself in his God! He got near his God. It does not mean that he went to some place of worship, but that he went to the God whom he worshipped&mdash;hid himself in his God.
+16, 17. When I thought to know this, it was too painful for me. Until I went into the sanctuary of God, then understood I their end. He went and hid himself in his God! He got near his God. It does not mean that he went to some place of worship, but that he went to the God whom he worshipped&mdash;hid himself in his God.
 
 Surely you did set them in slippery places; You cast them down into destruction&mdash;
 

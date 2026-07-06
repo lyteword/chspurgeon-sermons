@@ -100,7 +100,7 @@ EXPOSITION BY C. H. SPURGEON: JOHN11:27-46.
 
 Our Lord's greatest miracles were always the reward of faith.
 
-Verse 27. She said unto Him, Yes, Lord I believe that you are the Christ, the Son of God, which should come unto the world.By which she as good as said, "I believe that and I believe everything else. I have an implicit faith in You. Whatever You say, whatever You have said or shall say, I am prepared to believe it all, for I believe in You. I believe that You are the Christ, the Son of God, which should come into the world."
+Verse 27. She said unto Him, Yes, Lord I believe that you are the Christ, the Son of God, which should come unto the world. By which she as good as said, "I believe that and I believe everything else. I have an implicit faith in You. Whatever You say, whatever You have said or shall say, I am prepared to believe it all, for I believe in You. I believe that You are the Christ, the Son of God, which should come into the world."
 
 And when she had so said, she went her way, and called Mary her sister secretly. Because she knew that the Jews hated the Savior. She could not tell what would come of it if they knew of His coming, so she whispers to her&mdash;
 

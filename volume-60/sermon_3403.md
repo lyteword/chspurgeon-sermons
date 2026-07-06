@@ -101,7 +101,7 @@ After this I beheld The Gentile Church.
 
 And, lo, a great multitude, which no man could number, of all nations, and tribes, and people, and tongues. It will do some people good to see that sight, for they fancy that all the saints go to their place of worship! There are no good people anywhere except those that think exactly as they do. So they seem to fancy. Oh, that their eyes were opened a little, for I am afraid that some Christians are very much like the mouse that had always lived in a box and on some grand occasion climbed up to the edge of the box. He looked over and saw the vast area of the cupboard, and said, "I had no idea the world was as big as that!" And yet it had never been outside the cupboard even then. Oh, for eyes that could see a sight like this! "After this, I beheld, and lo, a great multitude which no man could number" (we can count pretty high, too) "of all nations, and tribes, and people, and tongues."
 
-Stood before the Throne, and before the Lamb, clothed with white robes.Perfectly pure&mdash;perfectly happy&mdash; arrayed like priests and conquerors, for they had "palms in their hands."
+Stood before the Throne, and before the Lamb, clothed with white robes. Perfectly pure&mdash;perfectly happy&mdash; arrayed like priests and conquerors, for they had "palms in their hands."
 
 9-11. And palms in their hands. And cried with a loud voice saying, Salvation to our God who sits upon the Throne, and unto the Lamb. And all the angels stood round about the Thron. In the outer ring and about the elders that represent the Church, who stand in the inner ring, nearest to Christ and nearest akin to the Son of Man.
 

@@ -82,9 +82,9 @@ Come, you children, hearken unto me: I will teach you the fear ofthe LORD.
 
 A Sunday School teacher's text! Gather the children close to you. Say, "Come near me. I would be familiar with you." It was a king who spoke these words, and yet he delighted to say, "Come, you children." Win their attention. "Hearken unto me." If they do not hear, how shall they understand? "And I will teach you the fear of the Lord." That is your subject&mdash;pure religion&mdash;heart religion&mdash;spiritual religion! I will teach you the fear of the Lord."
 
-What man is he that desires life?What man is he that does notdesire life? Love of it is innate in us all.
+What man is he that desires life? What man is he that does notdesire life? Love of it is innate in us all.
 
-12, 13. Andloves many days, that he maysee good?Keep your tongue from evilandyour lips from speaking guile. He begins with one of the hardest practical duties of the fear of God, for he that bridles his tongue is also able to bridle the whole body! The tongue is such an unruly member that if that is kept&mdash;and only through Divine Grace can it be so&mdash;then we may be quite certain that all the other organs and faculties will be kept, too.
+12, 13. Andloves many days, that he maysee good? Keep your tongue from evilandyour lips from speaking guile. He begins with one of the hardest practical duties of the fear of God, for he that bridles his tongue is also able to bridle the whole body! The tongue is such an unruly member that if that is kept&mdash;and only through Divine Grace can it be so&mdash;then we may be quite certain that all the other organs and faculties will be kept, too.
 
 Depart from evil and do good. Seek peace and pursue it a great deal packed away into a small compass there. There is the negative, "Depart from evil," and the positive which must go with it, "Do good." And if you do not do good, you will soon do evil. And then there is that blessed precept&mdash;"Seek peace." Hunt after it if you cannot find it. And if it runs away from you, follow it&mdash;pursue it&mdash;hunt after it till you gain it! A peaceable life is a happy life.
 

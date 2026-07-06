@@ -74,7 +74,7 @@ Verse 6, 7. The LORD said also unto me in the days of Josiah the king, Have you 
 
 7, 8. But she returnednot. Andher treacherous sister Judah saw it AndIsaw, when for all the causes whereby backsliding Israel committed adultery I had put her away, and given her a bill of divorce. Yet her treacherous sister Judah feared not, but went and played the harlot also. Some cannot be kept back from sin by the punishment of others, but they run into the fire in which others have been burnt, and so they aggravate their sin.
 
-And it came to past through the lightness of her whoredom that she defiled the land and committed adultery with stones and with wood.That is to say, she gave her heart to false gods and worshipped stones and wood. And how it must anger the living God to see men turn away from Him to worship blocks of wood and stone, instead of Him, and especially a people who have been instructed concerning the living God, and so commit the grossest act of disloyalty to Him, and are rebellious to the last degree.
+And it came to past through the lightness of her whoredom that she defiled the land and committed adultery with stones and with wood. That is to say, she gave her heart to false gods and worshipped stones and wood. And how it must anger the living God to see men turn away from Him to worship blocks of wood and stone, instead of Him, and especially a people who have been instructed concerning the living God, and so commit the grossest act of disloyalty to Him, and are rebellious to the last degree.
 
 10, 11. And for this her treacherous sister Judah has not turned unto Me with her whole heart, but feignedly says the LORD. And the LORD said unto me, The backsliding Israel has justified herself more than treacherous Judah. The one sinned openly and persevered in it. The other pretended to repent and did not, and that pretended repentance was more hateful in the sight of God than even the daring and open sin of Israel. What next?
 
@@ -114,7 +114,7 @@ Then said I, Ah, Lord God! Surely You have greatly deceived this people and Jeru
 
 11, 12. At that time shall it be said to this people and to Jerusalem, a dry wind of the high places in the wilderness toward the daughter of My people, not to fan, nor to cleanse. Even a full wind from those places shall come unto Me: now also will'I give sentence against them. What an awful line that is. "Now also will I give sentence against them." They had been on their trial. They are found guilty. They will not repent. "Now will I proceed to pronounce their doom and give sentence against them."
 
-Behold, he shall come up as clouds, and his chariots shall be as a whirlwind: his horses are swifter than eagles. Woe unto us!For we are spoiled. They began to cry out when they began to smart. And the Prophet comes in, again.
+Behold, he shall come up as clouds, and his chariots shall be as a whirlwind: his horses are swifter than eagles. Woe unto us! For we are spoiled. They began to cry out when they began to smart. And the Prophet comes in, again.
 
 O Jerusalem, wash your heart from wickedness, that you may be saved. There is always that silver bell of mercy ringing out the note of invitation! "O Jerusalem, your sorrows, your destruction may yet be averted if you will turn from your darkness! Wash your heart from wickedness, that you may be saved."
 
