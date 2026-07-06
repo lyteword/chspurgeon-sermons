@@ -66,7 +66,7 @@ Verses 1, 2. My God, My God, why have You forsaken Me? Why are You so far from h
 
 But You are holy, O You that inhabit thepraises ofIsrael. No hard thoughts of God, even when He was forsaken. A forsaken Christ still clings to the Father and ascribes perfect holiness to Him.
 
-4-6. Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and not a man: a reproach of men, and despised of the people.How low did Christ descend for our sakes not only as low as man, but still lower! Never was godly man forsaken of God, and yet Jesus was&mdash;so He is lower than we are while He hangs upon the tree "a reproach of men, and despised of the people."
+4-6. Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and not a man: a reproach of men, and despised of the people. How low did Christ descend for our sakes not only as low as man, but still lower! Never was godly man forsaken of God, and yet Jesus was&mdash;so He is lower than we are while He hangs upon the tree "a reproach of men, and despised of the people."
 
 7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the LORD that He would deliver Him, let Him deliver Him, seeing He delighted in Him. Was not this just what they said at the Cross? Ah, little did they know that He saved others&mdash;Himself He could not save, because a matchless love held His hands there, as with diamond rivets.
 
@@ -94,7 +94,7 @@ Verses 1, 2. The song of songs, which is Solomon's. Let Him kiss me with the kis
 
 2, 3. For Your love is better than wine. Because of the savor of Your good ointments Your name is as ointment poured forth, therefore do the virgins love You. There is such a sweetness in the name. It is not like a box of ointment shut up, but like a sweet perfume that fills the room. For the merits of Jesus are so sweet that they perfume Heaven itself! It was not on Calvary alone that that sweet ointment was known&mdash;it was known in the Seventh Heaven!
 
-Draw me, we will run after You.We want to get near to Christ, but we cannot. "Draw me," we cry, "we will run after You."
+Draw me, we will run after You. We want to get near to Christ, but we cannot. "Draw me," we cry, "we will run after You."
 
 The king has brought me into His chambers: we wiil be glad and rejoice in You, we will remember Your love more than wine: the upright love You. The wine shall help us to remember Him tonight when we come to His Table, but we will remember Him more than wine.
 
@@ -112,9 +112,9 @@ So rich is He&mdash;rose and lily both in one&mdash;
 
 "White is His soul, from blemish free, Red with the blood He shed for Me."
 
-As the lily among thorns, so is My love among the daughters.His Church stands out like a fair lily in a thorn-brake&mdash;separate and distinct&mdash;often suffering, standing where she does not wish to be, but all the lovelier by contrast. But if Christ praises His Church, she praises Him again.
+As the lily among thorns, so is My love among the daughters. His Church stands out like a fair lily in a thorn-brake&mdash;separate and distinct&mdash;often suffering, standing where she does not wish to be, but all the lovelier by contrast. But if Christ praises His Church, she praises Him again.
 
-3, 4. As the apple tree among the trees of the wood, so is my Beloved among the sons. I sat down under His shadow with great delight, and His fruit was sweet to my taste. He brought me to the banqueting house, and His banner over me was love.So full of joy is she that she can bear it no longer. She seems ready to faint with bliss!
+3, 4. As the apple tree among the trees of the wood, so is my Beloved among the sons. I sat down under His shadow with great delight, and His fruit was sweet to my taste. He brought me to the banqueting house, and His banner over me was love. So full of joy is she that she can bear it no longer. She seems ready to faint with bliss!
 
 5-7. Stay me with flagons, comfort me with apples: for Iam love sick. His left handis under my head, andHis right hand does embrace me. I charge you, O you daughters of Jerusalem&mdash;By every lovely, timid, tender, chaste thing&mdash;
 
