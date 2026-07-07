@@ -115,13 +115,13 @@ We are troubled on every side, yet not distressed&mdash;He is not so far gone as
 
 We are perplexed, but not in despair&mdash; We scarcely know what to do, but, by His Grace we have not given way to despair. We are perplexed, but hope has not gone from us. Dum spiro spero, was the old Latin proverb&mdash;"While I live, I hope." But the Christian proverb is a still better one, Dum expiro spero&mdash;"Even while I die I still have hope," for "the righteous has hope in his death."
 
-Persecuted, but not forsaken.For there is One who, when we are persecuted, is persecuted with us and persecuted in us, who has promised that we shall not be left desolate! He has said, "I will never leave you, nor forsake you."&mdash;
+Persecuted, but not forsaken. For there is One who, when we are persecuted, is persecuted with us and persecuted in us, who has promised that we shall not be left desolate! He has said, "I will never leave you, nor forsake you."&mdash;
 
 "Should persecution rage and flame, Still trust in your Redeemer's name! In fiery trials you shall see That, 'as your day, your strength shall be.'"
 
 Cast down, but not destroyed&mdash;Even if the adversary is able to cast us down, he is not able to destroy us, for "underneath are the everlasting arms." "Cast down, but not destroyed"&mdash;
 
-Always bearing about in the body the dying of the Lord Jesus, that the life, also, of Jesus might be made manifest in our body.Thus did these Apostolic saints in a very high sense die daily, and so must we, when called to suffer for the Truth's sake, bear about in our body the dying of the Lord Jesus.
+Always bearing about in the body the dying of the Lord Jesus, that the life, also, of Jesus might be made manifest in our body. Thus did these Apostolic saints in a very high sense die daily, and so must we, when called to suffer for the Truth's sake, bear about in our body the dying of the Lord Jesus.
 
 12. For we which live are always delivered unto death for Jesus'sake, that the life, also, of Jesus might be made manifest in our mortal flesh. So then, death works in us, but life in you. The disinterestedness of Christian affection is here seen in that Paul was willing even to be delivered unto death if only the Church in Corinth and other Christians might receive more of the Divine Life. This is the motive that actuated our blessed Lord, Himself. He saved others, but in order to do so, He could not save Himself&mdash;and he who would be a blessing to others must expect that just in proportion to the good that he is able to impart to them, must be the cost to himself.
 
@@ -129,7 +129,7 @@ Always bearing about in the body the dying of the Lord Jesus, that the life, als
 
 Yet the inward man is renewed day by day. As our body, through pain and disease, is constantly sinking towards the grave, here is our continual consolation&mdash;that our inner man is renewed day by day!
 
-For our light affliction, which is but for a moment, works for us a far more exceeding and eternal weight of glory.This is one of the most remarkable verses in all Scripture! The contrast here drawn is perfect and the language is in the highest degree pertinent to the subject. When the Apostle speaks of affliction, he contrasts it with glory! The affliction he calls a lightness of affliction, but the glory he calls a weight of glory&mdash;and while he describes the affliction as
+For our light affliction, which is but for a moment, works for us a far more exceeding and eternal weight of glory. This is one of the most remarkable verses in all Scripture! The contrast here drawn is perfect and the language is in the highest degree pertinent to the subject. When the Apostle speaks of affliction, he contrasts it with glory! The affliction he calls a lightness of affliction, but the glory he calls a weight of glory&mdash;and while he describes the affliction as
 
 momentary, he rightly says that the glory is eternal. And then, as though he would make the contract still more vivid, he says that this momentary, light affliction, "works for us a far more exceeding and eternal weight of glory." He can scarcely find words big enough to express the contrast between what Believers now have to endure and what they shall forever enjoy!
 
