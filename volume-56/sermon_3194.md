@@ -65,9 +65,9 @@ bore our sins in His own body on the tree! Then all His merits shall be reckoned
 
 EXPOSITION BY C. H. SPURGEON: GALATIANS3.
 
-Verse 1. O foolish Galatians, who has bewitchedyou?Paul writes as if they had come under some kind of witchcraft and been deluded by it. This seemed to astonish the Apostle, so he cries out to them "Who has bewitched you?"
+Verse 1. O foolish Galatians, who has bewitchedyou? Paul writes as if they had come under some kind of witchcraft and been deluded by it. This seemed to astonish the Apostle, so he cries out to them "Who has bewitched you?"
 
-That you shouldnot obey the truth, before whose eyes Jesus Christ has been evidently set forth, crucified among you?They had heard the plainest possible preaching from Paul and his companions. Jesus Christ had been so clearly set forth before them that they might, as it were, see Him as He hung upon the Cross of Calvary. Yet, under some unhallowed spell, they turned aside from the faith of Christ!
+That you shouldnot obey the truth, before whose eyes Jesus Christ has been evidently set forth, crucified among you? They had heard the plainest possible preaching from Paul and his companions. Jesus Christ had been so clearly set forth before them that they might, as it were, see Him as He hung upon the Cross of Calvary. Yet, under some unhallowed spell, they turned aside from the faith of Christ!
 
 This only I want to learn from you: Didyou receive the Spirit by the works of the Law, or by the hearing of faith?
 
