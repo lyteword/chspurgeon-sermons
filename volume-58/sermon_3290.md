@@ -4,7 +4,7 @@
 
 PERHAPS in the special senses in which Ezekiel uses this expression, we shall not expect to feel "the hand of the Lord" upon us. God may not call us to prophesy as Ezekiel did, although in the Scriptural use of the word, "prophesy," the preacher of the Word is still called to deliver the message which he has received from his Lord's lips. The days of special visions and voices and prophesying have passed away, but we can still say with Peter, "We have a more sure word of prophecy, whereunto you do well that you take heed, as unto a light that shines in a dark place, until the day dawns and the day star arise in your hearts."
 
-I think, however, that we may use our text with some profit in other senses&mdash;"The hand of the Lord was upon me in the evening." So we will enquire, first, what hand was this?Secondly, what time was this? And then, thirdly, what teaching is there for us in this incident?
+I think, however, that we may use our text with some profit in other senses&mdash;"The hand of the Lord was upon me in the evening." So we will enquire, first, what hand was this? Secondly, what time was this? And then, thirdly, what teaching is there for us in this incident?
 
 So first, let us ask, WHAT HAND WAS THIS? The answer is very clearly stated in the text, "the hand of the Lord." We will examine this expression, first, in its connection with the Lord's people, and then in its relation to sinners in whom a gracious work is beginning.
 
