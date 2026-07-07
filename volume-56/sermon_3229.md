@@ -113,9 +113,9 @@ confess that he does believe in Him. It would be a shame for any Believer to try
 
 11, 12. For the Scripture says, Whoever believes on Him shall not be ashamed. For there is no difference between the Jew and the Greek: for the same Lord over all is rich unto all that call upon Him. Whoever they may be, Jews or Gentiles, rich or poor, learned or illiterate, black or white&mdash;if they will but call upon God in prayer, He will not be miserly towards them, but He will be generous towards them in the abundance of the blessings which He will give them in answer to their cry!
 
-13, 14. For whoever shall call upon the name of the Lord shall be saved. How then shall they call on Him in whom they have not believed?They cannot rightly pray without faith, "for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him."
+13, 14. For whoever shall call upon the name of the Lord shall be saved. How then shall they call on Him in whom they have not believed? They cannot rightly pray without faith, "for he that comes to God must believe that He is, and that He is a rewarder of them that diligently seek Him."
 
-And how shall they believe in Him of whom they have not heard?Those who do not hear the Gospel are not likely to believe it. And there are many unbelievers who never seek to hear it&mdash;and it is always wrong for a man to refuse to believe any Truth of God before he knows what it really is. There should at least be a sincere searching of the Holy Scriptures and a candid listening to the preaching of the Word before it is rejected.
+And how shall they believe in Him of whom they have not heard? Those who do not hear the Gospel are not likely to believe it. And there are many unbelievers who never seek to hear it&mdash;and it is always wrong for a man to refuse to believe any Truth of God before he knows what it really is. There should at least be a sincere searching of the Holy Scriptures and a candid listening to the preaching of the Word before it is rejected.
 
 14, 15. And how shall they hear without a preacher? And how shall they preach, except they are sent? As it is written, How beautiful are the feet of them that preach the Gospel of Peace, and bring glad tiding of good things." [See Sermon
 
