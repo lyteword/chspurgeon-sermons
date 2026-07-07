@@ -96,7 +96,7 @@ ready to be revealed in the last time. [See Sermon #948, Volume 16&mdash;a STRIN
 
 Wherein you greatly rejoice, though now for a season, if necessary, you are in heaviness through manifold temptations [See Sermon #222, Volume 4&mdash;THE CHRISTIAN's HEAVINESS AND REJOICING.] What? Can there be rejoicing and heaviness in the same heart at the same time? Oh, yes! Our experience has taught us that we can be at the same moment in heaviness of heart and yet rejoicing in the Lord!
 
-7-9. That the trial of your faith, being much more precious than of gold that perishes, though it is tried with fire, might be found unto praise and honor and glory at the appearing of Jesus Christ: whom having not seen, you love; in whom though now you see Him not, yet belie ving, you rejoice with joy unspeakable and full of glory: receiving the end of your faith, even the salvation of your souls.You have that already if you have believed in Jesus! You have received a
+7-9. That the trial of your faith, being much more precious than of gold that perishes, though it is tried with fire, might be found unto praise and honor and glory at the appearing of Jesus Christ: whom having not seen, you love; in whom though now you see Him not, yet belie ving, you rejoice with joy unspeakable and full of glory: receiving the end of your faith, even the salvation of your souls. You have that already if you have believed in Jesus! You have received a
 
 present, immediate salvation! There are some who do not understand or realize this. They miss the whole joy of our holy religion. They are always hoping to be saved, by-and-by, but those who are in Christ Jesus by a living personal faith, receive here and now the end of their faith, even the salvation of their souls!
 

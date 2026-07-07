@@ -107,7 +107,7 @@ For there shall be a day that the watchmen upon the MountEphraim shall cry, Aris
 
 afflicted and the most infirm among us shall know what the joy of the Lord means! The Lord grant it, and we will praise His holy name.
 
-They shall come with weeping, and with supplications I will lead them.Weeping and prayer go well together. There is no prayer like a wet prayer saturated with the tears of repentance.
+They shall come with weeping, and with supplications I will lead them. Weeping and prayer go well together. There is no prayer like a wet prayer saturated with the tears of repentance.
 
 I will cause them to walk by the rivers of water in a straight way&mdash;-Hear this, you mourners! God will supply your need with rivers of waters, and He will make you walk in a straight way. Sometimes we are perplexed because the road seems to wind in and out like a labyrinth, but God can lead us in a straight way! "I will cause them to walk by the rivers of waters in a straight way"&mdash;
 

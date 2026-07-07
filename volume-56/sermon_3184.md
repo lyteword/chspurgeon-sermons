@@ -67,7 +67,7 @@ was all in vain, for die they must! God save all of you, my dear Hearers, from s
 EXPOSITION BY C. H. SPURGEON: HEBREWS 4.
 
 
-Verse 1. Let us therefore fear lest a promise being left us of entering into His rest, any of you should seem to come short of it.Not only dread coming short, but dread the very appearanceof it! Oh, that we might now enter into that rest and so clearly enjoy it that there should not even be a seeming to come short of it!
+Verse 1. Let us therefore fear lest a promise being left us of entering into His rest, any of you should seem to come short of it. Not only dread coming short, but dread the very appearanceof it! Oh, that we might now enter into that rest and so clearly enjoy it that there should not even be a seeming to come short of it!
 
 For unto us was the Gospel preached, as well as unto them: but the word preached did not profit them, not being
 

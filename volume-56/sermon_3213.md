@@ -120,7 +120,7 @@ Verse 1 I will bless the LORD at all times: His praise shall continually be in m
 
 My soul shall make her boast in the LORD. We do not like boasters, but we would encourage every child of God to boast in the Lord as much as he pleases!
 
-The humble shall hear thereof and be glad.There is nothing that humble people dislike more than to hear others boasting&mdash;yet there is nothing that they like more than to hear anyone boast in the Lord!
+The humble shall hear thereof and be glad. There is nothing that humble people dislike more than to hear others boasting&mdash;yet there is nothing that they like more than to hear anyone boast in the Lord!
 
 Omagnify the LORD with me. There is a sweet contagion about the praise of God. We want others to help us to spread it everywhere, so we say with David, "O magnify the Lord with me"&mdash;
 
@@ -156,8 +156,8 @@ The face of the LORD is against them that do evil. He sets His face against them
 
 The LORD is near unto them that are of a broken heart; and saves such as are of a contrite spirit Not your proud spirits, not your hectoring ones, but your lowly, penitent souls are the ones that are dear to the heart of God. He is near to them and saves them.
 
-19, 20. Many are the afflictions of the righteous; but the LORD delivers him out of them all. He keeps all his bones: not one of them is broken.He will have many a flesh wound, but there shall be no permanent injury to him. And even though his body were diseased, his soul would be saved.
+19, 20. Many are the afflictions of the righteous; but the LORD delivers him out of them all. He keeps all his bones: not one of them is broken. He will have many a flesh wound, but there shall be no permanent injury to him. And even though his body were diseased, his soul would be saved.
 
-21, 22. Evil shall slay the wicked: and they that hate the righteous shall be desolate. The LORD redeems the soul of His servants.Great as the price is, He pays it! They are so precious to Him that He minds not what price He pays so that He may redeem the souls of His servants.
+21, 22. Evil shall slay the wicked: and they that hate the righteous shall be desolate. The LORD redeems the soul of His servants. Great as the price is, He pays it! They are so precious to Him that He minds not what price He pays so that He may redeem the souls of His servants.
 
 And none of them that trust in Him shall be desolate. Blessed be His holy name!

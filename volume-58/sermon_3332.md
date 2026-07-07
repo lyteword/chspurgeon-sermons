@@ -66,7 +66,7 @@ And after that, do God's people sing? Yes, they have sweet singing times in thei
 
 sufferings or in His glories! Those are singing times, when the heart is lifted up to feel its oneness to Christ and its vital union with Him&mdash;and is enabled to "rejoice in hope of the Glory of God."
 
-Have you not had some precious singing times, too, at the Lord's Table?Ah, when the bread has been broken and the wine poured out, how often have I had a song when the people have all joined in singing&mdash;
+Have you not had some precious singing times, too, at the Lord's Table? Ah, when the bread has been broken and the wine poured out, how often have I had a song when the people have all joined in singing&mdash;
 
 > Gethsemane, can I forget,   
 > Or there the conflict see,   

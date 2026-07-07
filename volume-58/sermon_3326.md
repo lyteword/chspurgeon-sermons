@@ -93,7 +93,7 @@ Much more then, being now justified by His blood, we shall be saved from wrath t
 
 For if, when we were enemies, we were reconciled to God by the death of His Son, much more, being reconciled, we shall be saved by His life. There are three points which strengthen the argument here, which you will readily see by reading it at your leisure. The Lord our God who justified us when we were enemies, by the death of His Son, will save us now that we are friends through the life of His Son. "And not only so." Here we ascend again&mdash;it is ever higher and higher, something yet more&mdash;so that we are never at the end of this blessed record of mercy and Grace!
 
-And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the Atonement.We are at one with God. We are perfectly reconciled to Him and we have at present, at this very moment, a great joy and delight in God!
+And not only so, but we also joy in God through our Lord Jesus Christ, by whom we have now received the Atonement. We are at one with God. We are perfectly reconciled to Him and we have at present, at this very moment, a great joy and delight in God!
 
 Now we shall read together the seventy-first Psalm, just in order that we may see how good men in all ages have been assisted by their experience and their hope&mdash;and how their hope has grown out of their tribulation, their patience and their experience. The Old Man's Psalm. You can remember it, dear Friends, who are aged, by its being 71&mdash;it is just past the threescore years and ten!
 
@@ -105,9 +105,9 @@ Deliver me, O my God, out of the hands of the wicked, out of the hands of the un
 
 For You are my hope, O Lord God: You are my trust from my youth. Happy man that can look back upon a youth spent in God's fear, for if we have trusted God in our youth, depend upon it, He will never cast us away!
 
-By You have I been held up from the womb: You are He that took me out of my mother's womb: my praise shall be continually of You.When we could not help ourselves, in the very moment of our birth, God took care of us! And He will take care of us even to the end. Men and women who are old should remember how carefully the Lord nursed them when they were infants&mdash;and if you come to a second childhood, you shall still have the same God!
+By You have I been held up from the womb: You are He that took me out of my mother's womb: my praise shall be continually of You. When we could not help ourselves, in the very moment of our birth, God took care of us! And He will take care of us even to the end. Men and women who are old should remember how carefully the Lord nursed them when they were infants&mdash;and if you come to a second childhood, you shall still have the same God!
 
-I am as a wonder unto many.They cannot make me out! I am a blessed problem and puzzle to them&mdash;it seems so strange that being so much afflicted I am yet so much upheld!
+I am as a wonder unto many. They cannot make me out! I am a blessed problem and puzzle to them&mdash;it seems so strange that being so much afflicted I am yet so much upheld!
 
 But You are my strong refuge. Yes! There is the answer to the riddle. If God is with us, men may well wonder, but He will always help us.
 
