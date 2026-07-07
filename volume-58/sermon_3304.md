@@ -64,7 +64,7 @@ Ah, well, in due time we shall get there and then, when looking down from our se
 
 EXPOSITION BY C. H. SPURGEON: ROMANS 5:1-11.
 
-Verse 1. Therefore being justified by faith&mdash;But why, "therefore"? Because of the verse preceding it&mdash;"Who was delivered for our offenses, and was raised again for our justification." Christ died to atone for our sins, Christ rose again to secure our justification, "Therefore being justified by faith"&mdash; We have peace with God through our lord Jesus Christ
+Verse 1. Therefore being justified by faith&mdash;But why, "therefore?" Because of the verse preceding it&mdash;"Who was delivered for our offenses, and was raised again for our justification." Christ died to atone for our sins, Christ rose again to secure our justification, "Therefore being justified by faith"&mdash; We have peace with God through our lord Jesus Christ
 
 [See Sermon #1456, Volume 25&mdash;PEACE&mdash;a FACT AND a FEELING.] We have
 
@@ -84,7 +84,7 @@ Knowing that tribulation works patience. A man cannot prove that he has patience
 
 And patience, experience; and experience, hope. You cannot make an experienced Christian without trouble. You cannot make an old sailor on shore, nor make a good soldier without fighting. Here is that window of hope, again. Sanding at the back of our experience, we look out the window and what God has done for us is a token of what God will do for us!
 
-And hope makes us not ashamed.Peace gives us courage, hope takes the blush out of the cheek when we confess Christ, for we remember the Glory that is to be revealed in Him and in us, so how can shame come in?
+And hope makes us not ashamed. Peace gives us courage, hope takes the blush out of the cheek when we confess Christ, for we remember the Glory that is to be revealed in Him and in us, so how can shame come in?
 
 Because the love of God is shed abroad in our hearts by the Holy Spirit which is given unto us. [See Sermons #829, Volume 14&mdash;THE PERFUMING OF THE HEART and #1904, Volume 32&mdash;THE PERSONAL PENTECOST AND THE GLORIOUS HOPE.] God's love is like sweet per: me in an alabaster box&mdash;the Holy Spirit breaks that box,
 
@@ -100,7 +100,7 @@ For scarcely for a righteous man will one die. However upright and just a man ma
 
 him.
 
-Yet perhaps for a good man some would even dare to die.That is to say, for a generous, kind, noble-hearted man, some might dare to die.
+Yet perhaps for a good man some would even dare to die. That is to say, for a generous, kind, noble-hearted man, some might dare to die.
 
 But God commends His love toward us, in that while we were yet sinners, Christ died for us. [See Sermon #104, Volume
 
