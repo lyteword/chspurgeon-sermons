@@ -72,7 +72,7 @@ wise shepherd able and willing to provide for it? And how can a Believer want wh
 
 Then come those three sweet words, "He leads me," which in themselves are full of music&mdash;
 
-"He leads me. He leads me! By His own hand He leads me!" You know how our song makes these words ring out over and over again and it is truly charming. "He leads me." The Holy Spirit is our Guide and as the softly-flowing river of Grace marks our journey, we sing, "He leads me beside the still waters." You and I sometimes go wandering by the noisy brooks that ripple over the stones and make such a noise because they are so shallow. But when the Spirit guides us, it is beside the deep rivers, the deep still waters that He leads us.
+"He leads me. He leads me! By His own hand He leads me!" You know how our song makes these words ring out over and over again and it is truly charming. "He leads me." The Holy Spirit is our Guide and as the softly flowing river of Grace marks our journey, we sing, "He leads me beside the still waters." You and I sometimes go wandering by the noisy brooks that ripple over the stones and make such a noise because they are so shallow. But when the Spirit guides us, it is beside the deep rivers, the deep still waters that He leads us.
 
 "He restores my soul." Is not that a blessed little sentence? When my soul gets empty, He stores it again&mdash;re-stores it. When it goes wandering away from Him&mdash;
 
@@ -98,7 +98,7 @@ You anoint my head with oil a sweet savor shall be upon the man who is thus anoi
 
 My cup runs over. [See Sermons #874, Volume 15&mdash;THE OVERFLOWING CUP and #1222, Volume 21&mdash;THE OVERFLOWING CUP.] "I have more than I expected&mdash;more than I ever asked for&mdash;more than I desired&mdash;more than I am capable of holding!" "My cup runs over." If ever your cup does thus run over, be sure to call your poor neighbors in to catch the overflowing mercy! If ever you have more blessing than you can hold, ask some other Christian to share it with you. Recollect what Peter and his companions did when, at Christ's command, they let down the net and caught more fish than their net could hold without breaking&mdash;they beckoned unto their partners, which were in the other ship, that they should come and help them. "What? Come and help them fish?" Oh, no&mdash;come and help them share the fish! Many persons say, "You are kindly invited to come to such-and-such a meeting," because they want to get something out of you&mdash;but it is a better kind of invitation when you are asked because there is something to be given away&mdash;and those who have an overflowing cup want you to share the blessing with them.
 
-Surely goodness and mercy shall follow me all the days of my life.I shall never be able to outrun the goodness and mercy of my God! I shall always have closely attendant upon me His goodness to supply my needs and His mercy to forgive my sins.
+Surely goodness and mercy shall follow me all the days of my life. I shall never be able to outrun the goodness and mercy of my God! I shall always have closely attendant upon me His goodness to supply my needs and His mercy to forgive my sins.
 
 And I will dwell in the house of the LORD forevei.
 
