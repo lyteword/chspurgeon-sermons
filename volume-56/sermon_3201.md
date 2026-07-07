@@ -74,7 +74,7 @@ I think those that are reckoned strong and do the most for God are generally tho
 
 Beloved, it is because those who serve God best often feel that they are lame, driven away, afflicted, and tossed with doubts and fears&mdash;it is because of this that this promise is put to the lowest case and the blessing given to the very meanest capacity! It is so in order that one who is strong may be able to come in, and when in depression of spirit say, "That promise will suit me! I will get a grip of it. I will come to God with it in my hands and at the Mercy Seat get it fulfilled to me, even to me." The Lord grant you, Beloved, to be numbered among His jewels in that day!
 
-What shall I say to those who know nothing about the Divine Life at all, who, perhaps, are saying, "Well, we never get to limping or doubting. We have a merry time of it"? Yes and so does the butterfly, while the summer lasts, but the winter kills it. Your summer may last a little while, but the chill of death will soon be on you&mdash;and then what is there for you but hopeless misery forever and forever? God give you Grace to fly to Jesus now and be saved with an everlasting salvation, through Jesus Christ, our Savior! Amen.
+What shall I say to those who know nothing about the Divine Life at all, who, perhaps, are saying, "Well, we never get to limping or doubting. We have a merry time of it?" Yes and so does the butterfly, while the summer lasts, but the winter kills it. Your summer may last a little while, but the chill of death will soon be on you&mdash;and then what is there for you but hopeless misery forever and forever? God give you Grace to fly to Jesus now and be saved with an everlasting salvation, through Jesus Christ, our Savior! Amen.
 
 EXPOSITION BY C. H. SPURGEON: MCAH4.
 
@@ -90,7 +90,7 @@ And they shall beat their swords into plowshares, and their spears into pruning 
 
 But they shall sit, every man under his vine and under his fig tree: and none shall make them afraid: for the mouth of the LORD of Hosts has spoken it The best evidence that this will be the case is that the Lord of Hosts, who has all power at His disposal, has said that it shall be so!
 
-For all people will walk, everyone in the name of his god, and we will walk in the name ofthe LORD our God forever and ever.When we learn to know God in truth, we do not give Him up, but we walk in His name forever and ever. God's Covenant with us is an Everlasting Covenant, reaching beyond time and enduring throughout eternity. Some nations have discarded their idol gods, but those who really know and love the Lord will walk in His name forever and ever.
+For all people will walk, everyone in the name of his god, and we will walk in the name ofthe LORD our God forever and ever. When we learn to know God in truth, we do not give Him up, but we walk in His name forever and ever. God's Covenant with us is an Everlasting Covenant, reaching beyond time and enduring throughout eternity. Some nations have discarded their idol gods, but those who really know and love the Lord will walk in His name forever and ever.
 
 In that day, says the LORD will I assemble the lame. God will bring to Himself you that limp, that hesitate, that tremble, that fear&mdash;"I will assemble the lame."
 
@@ -108,7 +108,7 @@ and gather them to Himself, for that would be the fullness of the Gentiles, also
 
 Now why do you cry out aloud? Is there no King in you? Is your Counselor perished? Sometimes our prayers may be the utterance of our fears rather than of our faith&mdash;and then the question comes, "Is there no King in you? Is your Counselor perished?" Can we not trust to Him whose name is "Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace"?
 
-For pangs have taken you as a woman in travail.They are sharp pangs, but they lead to life and, therefore, they are blessed pangs after all!
+For pangs have taken you as a woman in travail. They are sharp pangs, but they lead to life and, therefore, they are blessed pangs after all!
 
 Be inpain, andlabor to bringforth, O daughter ofZion, like a woman in travail: for now shall you go forth out of the city and you shall dwell in the field, and you shall go even to Babylon: there shall you be delivered; there the LORD shall redeem you from the hand of your enemies. It looks more like a threat than a promise that God would send His people to Babylon, but there they were to be delivered. And it oftentimes happens with us that we must be brought into captivity before we are set free&mdash;we must feel the weight of the iron bondage of sin and Satan before we are brought out into the glorious liberty wherewith Christ makes His people free!
 
