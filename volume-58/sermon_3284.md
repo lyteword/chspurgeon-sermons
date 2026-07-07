@@ -108,7 +108,7 @@ poor and needy, and shall save the souls of the needy. [See Sermon #1037, Volume
 
 He be praised. There shall be an handful of corn on the earth&mdash;[See Sermon #717, Volume 12&mdash;PRAY FOR JESUS.] Only a handful? O you birds of the air, how you long to eat it all up! O you thorns, how soon would you choke it to death! It is only a handful of corn&mdash;
 
-Upon the top of the mountains.That is a bad place for corn&mdash;surely it will die there&mdash;the winter snows will chill it and, exposed to every stormy blast it will never fill the arms of the reaper. But is it so? Listen&mdash;
+Upon the top of the mountains. That is a bad place for corn&mdash;surely it will die there&mdash;the winter snows will chill it and, exposed to every stormy blast it will never fill the arms of the reaper. But is it so? Listen&mdash;
 
 The fruit thereof shall shake like Lebanon. Just as there are peculiar noises heard in a great forest when the wind sweeps through it&mdash;there is an allusion to this in the Hebrew&mdash;there should be such an abundance of fruit from this handful of corn that as when the forest bows its head before the whirlwind, so shall there be heard a sound as of God rushing among the multitude of His saints!
 
