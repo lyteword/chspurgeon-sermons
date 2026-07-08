@@ -127,7 +127,7 @@ I will walk before the LORD in the land of the living. "That shall be my way of 
 
 10, 11. I believed, therefore have I spoken: I was greatly afflicted: I said in my haste, All men are liars. It is always better not to speak in haste. It is very seldom that we say much that is worth hearing when we talk too fast. "I said in my haste, All men are liars."
 
-What shall I render unto the LORD for all His benefits toward me?That is better, for it is better to praise the Lord than to find fault with men, even if the fault found is really there. It is better for each one of us to be rendering our
+What shall I render unto the LORD for all His benefits toward me? That is better, for it is better to praise the Lord than to find fault with men, even if the fault found is really there. It is better for each one of us to be rendering our
 
 homage to God than picking holes in the coats of others, so let each one of us ask, "What shall I render unto the Lord for all His benefits toward me?"
 
