@@ -84,7 +84,7 @@ EXPOSITION BY C. H. SPURGEON: JOHN3.1-21.
 
 Let us once more read together part of this blessed soul-saving chapter. I suppose that more souls have been saved through the reading of this chapter than through almost any other portion of Holy Writ.
 
-Verses 1, 2. There was a man of the Pharisees, named Nicodemus, a ruler of the Jews: the same came to Jesus by night.He could not have come at a better time&mdash;the business of the day was over and all was quiet.
+Verses 1, 2. There was a man of the Pharisees, named Nicodemus, a ruler of the Jews: the same came to Jesus by night. He could not have come at a better time&mdash;the business of the day was over and all was quiet.
 
 And said unto Him, Rabbi, we know that You are a Teacher come from God: for no man can do these miracles that You do except God is with him. It is always well to go as far as you can in your avowal of belief in Christ. Nicodemus confessed what he knew to be true and he drew from it the thoroughly accurate conclusion that Christ must be a Teacher come from God because of the miracles which He worked. Dear Hearer, if you do not yet fully know Christ, take heed that you do not trifle with the Truth of God which you do know. If God has taught you a little about Him, prize that little and you shall have more! As we have often said, "He that values moonlight shall yet have sunlight." Thank God if you know as much as Nicodemus knew&mdash;and ask Him to teach you more.
 
@@ -120,7 +120,7 @@ And no man has ascended up to Heaven, but He that came down from Heaven, even th
 
 look at the Crucified Savior, be saved at once and forever!
 
-16, 17. For God so loved the world, that He gave His only begotten Son, that whoever believes in Him should not perish, but have everlasting life. For God sent not His Son into the world to condemn the world; but that the world through Him might be saved.There was no necessity for Christ to come here to condemn us, for we were already condemned by our sin! Why, then, did Jesus come? He must have come upon an errand of mercy, to bring salvation to the lost. It is even so&mdash;God sent Him for that very purpose, that He might give eternal life to as many as believe on Him. Oh, the glorious freeness of this precious Gospel! Surely they deserve the deepest Hell who will not have Heaven upon such terms! They must forever perish if they reject life when it is set before them in this truly gracious manner!
+16, 17. For God so loved the world, that He gave His only begotten Son, that whoever believes in Him should not perish, but have everlasting life. For God sent not His Son into the world to condemn the world; but that the world through Him might be saved. There was no necessity for Christ to come here to condemn us, for we were already condemned by our sin! Why, then, did Jesus come? He must have come upon an errand of mercy, to bring salvation to the lost. It is even so&mdash;God sent Him for that very purpose, that He might give eternal life to as many as believe on Him. Oh, the glorious freeness of this precious Gospel! Surely they deserve the deepest Hell who will not have Heaven upon such terms! They must forever perish if they reject life when it is set before them in this truly gracious manner!
 
 18, 19. He that believes on Him is not condemned: but he that believes not is condemned already, because he has not believed in the name of the only begotten Son of God. And this is the condemnation. The very first form of it, the proof of it, and the reason for it&mdash;"This is the condemnation."
 
