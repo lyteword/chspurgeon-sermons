@@ -110,7 +110,7 @@ In this chapter we see what Paul, writing under the Inspiration of the Holy Spir
 
 Verses 1, 2. Paul, an Apostle of Jesus Christ by the will of God, to the saints which are at Ephesus, and to the faithful in Christ Jesus: Grace be to you, and peace, from God our Father, and from the Lord Jesus Christ Brothers and Sisters in Christ, this is a benediction for you as well as for the saints at Ephesus! It is for all "the faithful in Christ Jesus." May you all have Grace without measure and may you all have "the peace of God, which passes all understanding," to "keep your hearts and minds through Christ Jesus"! Grace and peace are both to be had by believing in Jesus.
 
-Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenly places in Christ.It is right that we should bless God as He has so richly blessed us. Blessed be the Heavenly Father who
+Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenly places in Christ. It is right that we should bless God as He has so richly blessed us. Blessed be the Heavenly Father who
 
 has so abundantly blessed His children. How has He blessed us? "With all spiritual blessings in heavenly places (or, things) in Christ."
 
