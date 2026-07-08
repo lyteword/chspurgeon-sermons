@@ -2,7 +2,7 @@
 
 "For the Son of Mann is come to seek and to save that which was lost." Luke 19:10.
 
-GOD came down from Heaven but once to be united with human flesh. On what errand did He come and who were the objectives of it? What messenger was sent on that errand? What method was pursued by Him? With what success was it attended?Our text gives us the information&mdash;"The Son of Man is come to seek and to save that which was lost." Let us speak briefly upon these four points.
+GOD came down from Heaven but once to be united with human flesh. On what errand did He come and who were the objectives of it? What messenger was sent on that errand? What method was pursued by Him? With what success was it attended? Our text gives us the information&mdash;"The Son of Man is come to seek and to save that which was lost." Let us speak briefly upon these four points.
 
 First, AS TO THE OBJECTIVE OF CHRIST's ERRAND&mdash;"The Son of Man is come to seek and to save that which was lost."
 
@@ -60,7 +60,7 @@ We know that He seeks, but does He save them? If I must give an answer from my o
 
 EXPOSITION BY C. H. SPURGEON: LUKE 19.
 
-Verses 1-5. And Jesus entered and passed through Jericho. And behold, there was a man named Zacchaeus, who was the chief among the publicans, and he was rich. And he sought to see Jesus who He was; and could not for the press, because he was little of stature. And he ran before, and climbed up into a sycamore tree to see Him: for He was to pass that way. And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must abide at your house.Remember that the Lord Jesus was on His way to Jerusalem to suffer and to die. And there He was, the patient, suffering Lamb of God&mdash;but here He speaks in that commanding tone which well became the Prince of the House of David&mdash;"Zacchaeus, make haste, and come down; for today I must abide at your house."
+Verses 1-5. And Jesus entered and passed through Jericho. And behold, there was a man named Zacchaeus, who was the chief among the publicans, and he was rich. And he sought to see Jesus who He was; and could not for the press, because he was little of stature. And he ran before, and climbed up into a sycamore tree to see Him: for He was to pass that way. And when Jesus came to the place, He looked up, and saw him, and said unto him, Zacchaeus, make haste, and come down; for today I must abide at your house. Remember that the Lord Jesus was on His way to Jerusalem to suffer and to die. And there He was, the patient, suffering Lamb of God&mdash;but here He speaks in that commanding tone which well became the Prince of the House of David&mdash;"Zacchaeus, make haste, and come down; for today I must abide at your house."
 
 And he made haste, and came down, and received Him joyfully. Solomon said, "Where the word of a king is, there is power." Omnipotence went with the word of this King of kings, so Zacchaeus was bound to obey it.
 
