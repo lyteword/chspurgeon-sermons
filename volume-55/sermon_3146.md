@@ -71,7 +71,7 @@ And, Brothers and Sisters, that is the company to which you and I belong! And wh
 
 EXPOSITION BY C. H. SPURGEON: JOHN21.
 
-Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself.May every one of you, my fellow disciples, realize that Jesus is showing Himself to you! He is only to be seen in His own Light. He must show Himself to us, or else we shall never see Him.
+Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself. May every one of you, my fellow disciples, realize that Jesus is showing Himself to you! He is only to be seen in His own Light. He must show Himself to us, or else we shall never see Him.
 
 There were together Simon Peter, and Thomas calledDidymus, andNathanael of Cana in Galilee and the sons of Zebedee, and two other of His disciples. He had told them to go into Galilee and gave them the promise, "There shall you see Me." So now they were by the Galilean Lake. They were keeping their appointment with Christ and as He always keeps His appointment with His people, He was there to meet them as He had promised.
 
