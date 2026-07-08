@@ -32,7 +32,7 @@ Fond of our prison and our clay." "How are we to get rid of this fear?" asks one
 
 It is not in that way that Christians seek to overcome their fear of death. They are thoughtful and they wish to always ponder, to consider and to judge concerning the future as well as the present. They desire to look beyond this mortal state. They ask for brighter vision and clearer eyesight and do not need to shut their eyes to the future, whatever it may have in store for them!
 
-I am going to try to answer three questions concerning this fear of death. First, where shall we look to be delivered from it?Secondly, what shall we further think of to help us conquer it? And, thirdly, what shall we do to overcome it?
+I am going to try to answer three questions concerning this fear of death. First, where shall we look to be delivered from it? Secondly, what shall we further think of to help us conquer it? And, thirdly, what shall we do to overcome it?
 
 First, then, WHERE SHALL WE LOOK TO BE DELIVERED FROM THE FEAR OF DEATH?
 
