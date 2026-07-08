@@ -66,7 +66,7 @@ EXPOSITION BY C. H. SPURGEON: JOHN9.
 
 Verse 1. And as Jesus passed by, He saw a man who was blind from his birth. Therefore the man could not see Jesus, but the more important matter was that Christ could see the blind man! And you, dear Heart, may not yet have learned to look on Christ, but He can look on you in your blindness&mdash;and a look from Him will speedily work a wondrous change in you!
 
-And His disciples asked Him, saying, Master, who did sin, this man, or his parents, that he was born blind?Many of Christ's disciples are still occupied in asking questions that serve no practical purpose, like this one, "Master, who did sin, this man, or his parents, that he was born blind?"
+And His disciples asked Him, saying, Master, who did sin, this man, or his parents, that he was born blind? Many of Christ's disciples are still occupied in asking questions that serve no practical purpose, like this one, "Master, who did sin, this man, or his parents, that he was born blind?"
 
 Jesus answered, Neither has this man sinned, nor his parents. That is to say, sin on their part was not the cause of his blindness.
 
@@ -112,7 +112,7 @@ Jesus heard that they had cast him out. Jesus knew all that had happened to this
 
 And when He had found hi . For He always finds those whom the world or false professors have cast out.
 
-35, 36. He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him?He was a sensible man and he had the sense to perceive that knowledge rightly used leads to faith. He desired to know in order that he might believe. And if you ever say that you cannot believe, but are anxious to do so, then make enquiry as to what is to be believed&mdash;examine the evidence concerning it and so faith will come to you by the operation of God's good Spirit.
+35, 36. He said unto him, Do you believe on the Son of God? He answered and said, Who is He, Lord, that I might believe on Him? He was a sensible man and he had the sense to perceive that knowledge rightly used leads to faith. He desired to know in order that he might believe. And if you ever say that you cannot believe, but are anxious to do so, then make enquiry as to what is to be believed&mdash;examine the evidence concerning it and so faith will come to you by the operation of God's good Spirit.
 
 37-40. And Jesus said unto him, You have both seen Him, and it is He that talks with you. And he said, Lord, I believe. And he worshipped Him. And Jesus said, For judgment I am come into this world, that they which see not might see; and that they which see might be made blind. And some of the Pharisees which were with Him heard these words, and said unto Him, Are we blind also?"Are we blind?" It seemed impossible to them that it could be so! Jesus answered them with scathing words.
 
