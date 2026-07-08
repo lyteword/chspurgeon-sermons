@@ -103,7 +103,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM 119:81-88.
 
 Verse 81. My soul faints for Your salvation: but I hope in Your word. The Psalmist was so full of longing, hungering, thirsting, for God's salvation that he had come even to faintness through the strength of his desire. Yet, in his faintness, he was not too far gone to hope&mdash;and we, also, have good ground for hoping and believing that God, who gave us His Word, will stand to it, for He is both able and willing to fulfill all that He has promised!
 
-My eyes fail from searching Your word, saying, When will You comfort me?He looked out for a message from God as the watchers of the night looked for the breaking of the morning. His eyes ached to behold the comforts of his God. Oh, blessed state of strong desire! I pray God that we may all experience it!
+My eyes fail from searching Your word, saying, When will You comfort me? He looked out for a message from God as the watchers of the night looked for the breaking of the morning. His eyes ached to behold the comforts of his God. Oh, blessed state of strong desire! I pray God that we may all experience it!
 
 For I am become like a bottle in the smoke; yet do I not forget Your statutes. When an empty skin bottle was hung up in one of the smoky dwellings of the East, it became withered, cracked, useless. And the Psalmist says, "'I am become like a bottle in the smoke,'&mdash;I seem to be good for nothing, withered, dried up&mdash;'yet do I not forget Your statutes.'" A good memory is one of the best of things for us to possess, but a good memory for that which is good is better still.
 
