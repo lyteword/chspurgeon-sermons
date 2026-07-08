@@ -6,7 +6,7 @@ WHEN our Lord Jesus Christ is represented as a King, we delight to think of Him 
 
 There are some Truths which Jesus Christ proclaims in the Gospel and which He bids us also proclaim, which are like sharp arrows&mdash;wounding, piercing, killing&mdash;and of these I am about to speak, hoping and trusting that those arrows may, in all their sharpness, pierce all hearts that have not felt them yet! And that where they go, they may kill sin and that He may then come in to heal who has wounded them and to give life to those whom He has slain.
 
-First, we shall ask and answer the question, what are those Truths which are like sharp arrows?Secondly, why are they arrows? And thirdly, how come they stick fast in human hearts?
+First, we shall ask and answer the question, what are those Truths which are like sharp arrows? Secondly, why are they arrows? And thirdly, how come they stick fast in human hearts?
 
 First, then, WHAT ARE THOSE TRUTHS WHICH ARE SHARP AS ARROWS IN THE HEARTS OF MEN?
 
@@ -46,7 +46,7 @@ Some of you remember when the Word used to prick your conscience as you heard it
 
 much light to prefer the darkness, with so much love from God to resolve to hate Him! Knowing so well as we did our duty, what arrant fools we were to have neglected it! Knowing that sin was folly, how could we choose it? And knowing that holiness was happiness, for we saw it reflected in the faces of our dearest relatives and friends, how was it that we did not seek it for ourselves?" How we shall wring our hands in unutterable anguish if this should ever be our portion! The Lord prevent it, by His Grace!
 
-The last sharp arrow that I shall mention is one which Christ Himself has often shot, it is this&mdash;that condemnation for sin is a matter of this present time. Dear Hearers, if you have never heard this Truth of God before, hear it now and tremble at it! You have not to wait until you rise from the dead to receive your condemnation&mdash;"He that believes not is condemned already, because he has not believed in the name of the only-begotten Son of God." And as "there is, therefore, now no condemnation to them which are in Christ Jesus," so we may solemnly say, "There is, therefore, now a most weighty condemnation upon you who are not in Christ Jesus, who are walking not after the Spirit, but after the flesh." Your sentence is already passed, like that of the poor wretch who is now lying in the condemned cell, tomorrow to suffer the extreme penalty of the law! Such is your lot&mdash;"condemned already."
+The last sharp arrow that I shall mention is one which Christ Himself has often shot, it is this&mdash;that condemnation for sin is a matter of this present time. Dear Hearers, if you have never heard this Truth of God before, hear it now and tremble at it! You have not to wait until you rise from the dead to receive your condemnation&mdash;"He that believes not is condemned already, because he has not believed in the name of the only begotten Son of God." And as "there is, therefore, now no condemnation to them which are in Christ Jesus," so we may solemnly say, "There is, therefore, now a most weighty condemnation upon you who are not in Christ Jesus, who are walking not after the Spirit, but after the flesh." Your sentence is already passed, like that of the poor wretch who is now lying in the condemned cell, tomorrow to suffer the extreme penalty of the law! Such is your lot&mdash;"condemned already."
 
 All these Truths of God are the sharp arrows from the bow of King Jesus!
 
@@ -106,7 +106,7 @@ Your Throne, O God, is forever and ever: the scepter of Your Kingdom is a right 
 
 throne. The day shall come when all the honor of earthly kings' daughters will have passed away, but the glory of those who are in Christ's court as honorable women shall abide forever.
 
-At Your right hand did stand the queen in gold of Ophir.In the best and purest gold. Every member of the Church of Christ may well say, with Dr. Watts&mdash;
+At Your right hand did stand the queen in gold of Ophir. In the best and purest gold. Every member of the Church of Christ may well say, with Dr. Watts&mdash;
 
 "Strangely, my Soul, are You arrayed By the great Sacred Three!"
 

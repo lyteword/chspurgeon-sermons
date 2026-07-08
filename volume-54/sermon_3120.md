@@ -129,4 +129,4 @@ But now they desire a better country, that is, an heavenly: therefore God is not
 
 By faith Isaac blessed Jacob and Esau concerning things to come. He was old and blind, so that he did not know which of his sons came for the first blessing, yet he could see into the future sufficiently to bless both his sons "concerning things to come." What wondrous power there is in faith even when it is exercised by very imperfect individuals!
 
-By faith Jacob, when he was a dying, blessed both the sons of Joseph; and worshipped, leaning upon the top of his staff.That staff had been Jacob's companion on many memorable occasions, so it was most fitting that he should lean upon it while blessing his grandsons!
+By faith Jacob, when he was a dying, blessed both the sons of Joseph; and worshipped, leaning upon the top of his staff. That staff had been Jacob's companion on many memorable occasions, so it was most fitting that he should lean upon it while blessing his grandsons!

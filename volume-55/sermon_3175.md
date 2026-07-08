@@ -64,7 +64,7 @@ That is the end of all doubts about the future, "He is on the throne." His hand 
 
 We can very well leave all things with our crowned Head! I suppose none of us would wish to contradict Hm, nor to have anything arranged otherwise than His loving mind appoints. If He stood by us this afternoon, and said to any one of us, "My Child, I have arranged your way in tender love and wisdom," no one of us would wish it to be otherwise. If He said to us, "I have appointed such-and-such," would we say to Him, as Joseph said to Jacob, "Not so, my Father," and would we wish Him to uncross the hands which He guides so wisely? Would we not ask for the cross-handed blessing? Let the King be a king, and do what seems good to Him! May we not only say that, but stand to it in the trying hour&mdash;
 
-"Peace!Perfect peace!Death shadowing us and ours?
+"Peace! Perfect peace! Death shadowing us and ours?
 
 Jesus has vanquished death and all its powers." Death is the last enemy, but more&mdash;he is "the last enemy that shall be destroyed." He cannot touch a child of God! Only his shadow may fall upon us. How small a thing is this! The shadow of a sword cannot kill, the shadow of a dog cannot bite, the shadow of a lion cannot rend and the shadow of death cannot destroy!&mdash;
 

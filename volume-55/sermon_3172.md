@@ -128,7 +128,7 @@ And went to him and bound up his wounds, pouring in oil and wine, andset him on 
 
 And on the morrow when he departed he took out twopence and gave them to the host, and said unto him, Take care of him; and whatever you spend more, when I come again, I will repay you. "This is my piece of work. I want to finish it and as I cannot stay, will you kindly supply the ready money, and when I come again, I will repay you?"
 
-37. Which, now, of these three, do you think was neighbor unto him that fell among the thieves? And he said, he that showed mercy on him. Oh, you lawyer, why did you not say, "The Samaritan"? Of course he did not like to use that word! Oh, no, we never mention them&mdash;the "Samaritans." "The Jews have no dealings with the Samaritans." So he would not honestly say, "The Samaritan," but he made a roundabout of it and said, "He that showed mercy on him."
+37. Which, now, of these three, do you think was neighbor unto him that fell among the thieves? And he said, he that showed mercy on him. Oh, you lawyer, why did you not say, "The Samaritan?" Of course he did not like to use that word! Oh, no, we never mention them&mdash;the "Samaritans." "The Jews have no dealings with the Samaritans." So he would not honestly say, "The Samaritan," but he made a roundabout of it and said, "He that showed mercy on him."
 
 Then said Jesus unto him, Go, and do you likewise. May we all be enabled to do so by exercising constant love to those who are in need!
 

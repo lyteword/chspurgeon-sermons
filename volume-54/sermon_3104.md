@@ -82,9 +82,9 @@ And I answered, O Lord GOD, You know. Again He said unto me, Prophesy upon these
 
 So I prophesied as I was commanded: and asIprophesied, there was a noise. A rustle&mdash;
 
-And behold a shaking, and the bones came together, bone to his bone.Here was Divine Power bringing the bones to their proper position in the various bodies and forcing the separated anatomy to re-form itself.
+And behold a shaking, and the bones came together, bone to his bone. Here was Divine Power bringing the bones to their proper position in the various bodies and forcing the separated anatomy to re-form itself.
 
-And when I beheld, lo, the sinews and the flesh came up upon them, and the skin covered them above: but there was no breath in them.So there was no very great improvement so far&mdash;there were only dead bodies instead of dry bones! There was something more to look at, but nothing more agreeable&mdash;and really no more of life than there was before.
+And when I beheld, lo, the sinews and the flesh came up upon them, and the skin covered them above: but there was no breath in them. So there was no very great improvement so far&mdash;there were only dead bodies instead of dry bones! There was something more to look at, but nothing more agreeable&mdash;and really no more of life than there was before.
 
 Then said He unto me, Prophesy unto the wind, prophesy, son of man, "Prophesy unto the wind." That seems a very absurd thing to do, but there are no absurdities where God gives His commands.
 
@@ -96,7 +96,7 @@ hope is lost: we are ourselves are cut off."There is no hope for us. We are dead
 
 Therefore prophesy and say unto them, Thus says the Lord GOD; Behold, O My people, I will open your graves, and cause you to come up out of your graves, and bring you into the land of Israel There was to be a house of Israel after all. The nation seemed to be dead and buried, but God would revive and restore it. This is a promise which may apply to a Church when she gets into a very low spiritual state and it looks as if she could never do any more good. "Behold, O My people, I will open your graves." And to you, dear Friends, who are very heavy of heart, full of despair and who seem as if you were as good as dead and buried, God speaks in this promise! Therefore believe His Word as though it had been directed to you, personally, "Behold, O My people, I will open your graves, and cause you to come up out of your graves, and bring you into the land of Israel."
 
-Andyou shall know that Iam the LORD, when Ihave openedyour graves, O Mypeople, and brought you up out of your graves.Great deliverances and almighty quickening reveal God to us and make us know how gloriously great Jehovah is!
+Andyou shall know that Iam the LORD, when Ihave openedyour graves, O Mypeople, and brought you up out of your graves. Great deliverances and almighty quickening reveal God to us and make us know how gloriously great Jehovah is!
 
 And shall put My Spirit in you, andyou shall live, and I shall place you in your own land: then shall you know that I the LORD have spoken it, and performed it, says the LORD. When the Jews get back to Canaan&mdash;as they will&mdash; they will then not only know that Jehovah is God, but also that Jesus Christ is the true Messiah! May the Lord hasten that blessed consummation in His own time!
 
@@ -116,7 +116,7 @@ Neither shall they defile themselves any more with their idols, nor with their d
 
 AndDaviddMy servant shall be king over them; and they allshall have one shepherd: they shallalso walk in My judgments, and observe My statutes, and do them. Oh, for the one King to reign over the one people, who shall keep the one Law, and walk in holiness and humility before the one Lord!
 
-And they shall dwell in the land that I have given unto Jacob, My servant, wherein your fathers have dwelt; and they shall dwell therein, even they, and their children, and their children's children forever: and My servant David shall be their prince forever.Surely God does not treat the saints now worse than he treated Israel in the days of old, so we may go to Him in prayer for our children and for our children's children.
+And they shall dwell in the land that I have given unto Jacob, My servant, wherein your fathers have dwelt; and they shall dwell therein, even they, and their children, and their children's children forever: and My servant David shall be their prince forever. Surely God does not treat the saints now worse than he treated Israel in the days of old, so we may go to Him in prayer for our children and for our children's children.
 
 Moreover, I will make a covenant of peace with them; it shall be an everlasting covenant with them. Oh, that blessed word, everlasting! A salvation which is not everlasting is not worth having&mdash;any promise that is not fulfilled, any Grace that can fail&mdash;is not God's promise or God's Grace.
 

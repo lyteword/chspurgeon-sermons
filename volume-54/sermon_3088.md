@@ -90,7 +90,7 @@ would never have had that sweet twenty-third Psalm to sing if our Divine Shepher
 
 weep out the twenty-second Psalm, which begins with our Savior's saddest cry from the Cross. [See Sermons #2133, Volume 36&mdash;"my god, my GOD, WHY HAVE YOU FORSAKEN ME?"; #2562, Volume 44&mdash;CRIES FROM THE CROSS and #2803, Volume 48&mdash;THE SADDEST CRY FROM THE CROSS]
 
-My God, My God! Why have You forsaken Me?Every word here is emphatic. Take the first two words "My God, My God. "These reveal our Savior's claim upon God as His God. Why have You forsaken Me? I can understand that others should leave Me, but why have You done so?" Then lay the stress upon the last word&mdash;"'Why have You forsaken Me&mdash;Your only-begotten Son, your ever-obedient Son, your well-beloved Son?"
+My God, My God! Why have You forsaken Me? Every word here is emphatic. Take the first two words "My God, My God. "These reveal our Savior's claim upon God as His God. Why have You forsaken Me? I can understand that others should leave Me, but why have You done so?" Then lay the stress upon the last word&mdash;"'Why have You forsaken Me&mdash;Your only begotten Son, your ever-obedient Son, your well-beloved Son?"
 
 1, 2. Why are You so far from helping Me, and from the words of My roaring? O My God, I cry in the daytime, but You hear not; and in the night season, and am not silent. See our Savior hanging on the Cross! Hear Him utter these sorrowful words and remember that He had come up from Gethsemane, all crimson with the bloody sweat which had oozed from every pore as He had agonized in prayer&mdash;yet no deliverance had come to Him, for God had left Him to die in accordance with the Covenant into which He had voluntarily entered.
 
@@ -140,11 +140,11 @@ His death and Resurrection&mdash;how gracious men would praise the Lord and how 
 
 Your heart shall live forever. "I die, but by My death you shall live forever." He sees them, as it were, gathered around His Cross and He congratulates Himself upon the fact that He has bought eternal life for them.
 
-All the ends of the world shall remember and turn unto the LORD; and all the kindreds of the nations shall worship before You.The conversion of the nations shall be the fruit of His death.
+All the ends of the world shall remember and turn unto the LORD; and all the kindreds of the nations shall worship before You. The conversion of the nations shall be the fruit of His death.
 
 For the Kingdom is the LORD's: and He is the governor among the nations. See how He distributes crowns, and talks of thrones, just as He is about to die&mdash;so sure is He that His soul shall not rest in Hades, neither shall His holy body see corruption, but that He shall rise again and be forever "King of kings, and Lord of lords."
 
-29-31. All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive His own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. They shall come.I should have liked to hear those syllables fall from those dear lips of His. "They shall come," He says to Himself. "They shall come"&mdash;
+29-31. All they that are fat upon earth shall eat and worship: all they that go down to the dust shall bow before Him: and none can keep alive His own soul. A seed shall serve Him; it shall be accounted to the Lord for a generation. They shall come. I should have liked to hear those syllables fall from those dear lips of His. "They shall come," He says to Himself. "They shall come"&mdash;
 
 Andshall declare His righteousness unto apeople that shall be born. He sees the great host of the regenerate, the twice-born, who shall be saved through His death.
 

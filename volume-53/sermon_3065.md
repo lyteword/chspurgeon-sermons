@@ -58,7 +58,7 @@ EXPOSITION BY C. H. SPURGEON: MATTHEW5:1-12.
 
 Verse 1. And seeing the multitudes, He went up into a mountain. For convenience and quietude and to be out of the way of traffic He went up into a mountain. Elevated Doctrines would seem most at home on the high places of the earth.
 
-And when He was set.For that was the mode of Eastern teaching.
+And when He was set. For that was the mode of Eastern teaching.
 
 His disciples came unto Him. They made the inner ring around Him and others gathered around them.
 
@@ -70,7 +70,7 @@ Are the poor in spirit: for theirs is the Kingdom of Heaven. This is a paradox t
 
 Blessed are they that mourn: for they shall be comforted. They are not only poor in spirit, but they are weeping, lamenting, mourning. Worldlings are frivolous, frolicsome, light-hearted and loving everything that is akin to mirth&mdash; yet it is notsaid of them, but of those that mourn, that "they shall be comforted."
 
-Blessed are the meek.Not your high-spirited, quick-tempered men who will put up with no insults&mdash;your hectoring, lofty ones who are always ready to resent any real or imagined disrespect. There is no blessing here for them! But blessed are the gentle&mdash;those who are ready to be thought nothing of.
+Blessed are the meek. Not your high-spirited, quick-tempered men who will put up with no insults&mdash;your hectoring, lofty ones who are always ready to resent any real or imagined disrespect. There is no blessing here for them! But blessed are the gentle&mdash;those who are ready to be thought nothing of.
 
 For they shall inherit the earth. Some say that the best way to get through the world is to swagger along with a coarse impudence and to push out of your way all who may be in it. But there is no truth in that idea. The truth lies in quite another direction&mdash;"Blessed are the meek: for they shall inherit the earth."
 

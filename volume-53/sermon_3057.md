@@ -76,7 +76,7 @@ Give up all speculating, I beseech you&mdash;give up reading books merely for th
 
 EXPOSITION BY C. H. SPURGEON: JOHN21.
 
-Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself.Jesus loved to show Himself to His people. Of old, His delights were with the sons of men. So now that He had risen from the dead, He was not ashamed to visit His brethren and He did not disdain to make Himself known to them&mdash;and He will still show Himself to us after a spiritual fashion, if we sincerely desire to see Him.
+Verse 1. After these things Jesus showed Himself again to the disciples at the sea of Tiberias; and on this wise showed He Himself. Jesus loved to show Himself to His people. Of old, His delights were with the sons of men. So now that He had risen from the dead, He was not ashamed to visit His brethren and He did not disdain to make Himself known to them&mdash;and He will still show Himself to us after a spiritual fashion, if we sincerely desire to see Him.
 
 There were together Simon Peter, and Thomas called Didymus, and Nathanael of Cana in Galilee, and the sons of Zebedee, and two other of His disciples. As John was the writer of this record, he did not put his own name there, but merely mentioned "the sons of Zebedee."
 
@@ -86,7 +86,7 @@ They went forth and immediately entered into a boat and that night they caught n
 
 But when the morning was now come, Jesus stood on the shore: but the disciples knew not that it was Jesus. We must remember that a great change had taken place in Him and that the disciples were at some distance from the shore. They saw a person standing there, but they were not sure who it was.
 
-Then Jesus said unto them, Children, have you any food?This is not an exact translation of our Savior's words. He might too readily have revealed His identity if He had spoken like that. His question was more like a common fisherman's salutation, "Lads, have you any food?"
+Then Jesus said unto them, Children, have you any food? This is not an exact translation of our Savior's words. He might too readily have revealed His identity if He had spoken like that. His question was more like a common fisherman's salutation, "Lads, have you any food?"
 
 They answered Him, No. Jesus likes us to admit that we do not possess anything of our own before He gives us the blessing He is waiting to bestow. He lets us see that the table is bare before He loads it with His bounty so that He may have all the praise and glory for what He gives us.
 
@@ -94,9 +94,9 @@ And He said unto them, Cast the net on the right side of the boat, and you shall
 
 Therefore that disciple whom Jesus loved (again John does not mention his own name) said to Peter, It is the Lord."It is only He who could spy out the fish and only He who could fill the net with them. It is just His way of acting. 'It is the Lord.'" The eyes of true love are very quick. Peter was not the first to recognize Jesus&mdash;John was&mdash;for He loved Him most.
 
-Now when Simon Peter heard that it was the Lord, he put on his outer garment (for he had taken it off) and did cast himself into the sea.He had such reverence for his Master that he would not appear before Him without a sufficient covering, yet he was in a hurry to get to Him. Peter always was in a hurry&mdash;yet he was grandly impetuous as a rule. I wish that some "slowpokes" had a little of his pace!
+Now when Simon Peter heard that it was the Lord, he put on his outer garment (for he had taken it off) and did cast himself into the sea. He had such reverence for his Master that he would not appear before Him without a sufficient covering, yet he was in a hurry to get to Him. Peter always was in a hurry&mdash;yet he was grandly impetuous as a rule. I wish that some "slowpokes" had a little of his pace!
 
-8, 9. And the other disciples came in the little boat, (for they were not far from land, but as it were two hundred cubits) dragging the net with fishes. As soon as they were come to land, they saw a fire of coals there and fish laid thereon, and bread.How that fire must have reminded Peter of his denial of his Lord! He saw his Master by the light of the charcoal fire&mdash;and that is how he saw Him on the night when he denied Him.
+8, 9. And the other disciples came in the little boat, (for they were not far from land, but as it were two hundred cubits) dragging the net with fishes. As soon as they were come to land, they saw a fire of coals there and fish laid thereon, and bread. How that fire must have reminded Peter of his denial of his Lord! He saw his Master by the light of the charcoal fire&mdash;and that is how he saw Him on the night when he denied Him.
 
 10, 11. Jesus said unto them, Bring of the fish which you have now caught. Simon Peter went up and drew the net to land full of great fishes, an hundred and fifty-three: and for all there were so many, yet was not the net broken. On the previous occasion when Peter's net was miraculously filled by Christ, we read that the net broke. That was Peter's own net, but this time I suppose it was not Peter's, but one that he had borrowed and probably he had no time to mend it, so the Master took care that it should not break. He always has His own ways of working&mdash;and they always fit the circumstances of the case and show His thoughtful care of His people.
 
@@ -106,11 +106,11 @@ Jesus said unto them, Come and dine. The Revised Version is more correct&mdash;"
 
 12-15. And none of the disciples dared ask Him, Who are You? knowing that it was the Lord. Jesus then came and took the bread and gave it to them, and likewise the fish. This is now the third time that Jesus showed Himself to His disciples, after that He was risen from the dead. So when they had dined. When they had broken their fast&mdash;but not until then, for Christ does not talk to men when their hunger might make them inattentive.
 
-Jesus said to Simon Peter, Simon, son of Jonas, Do you love Me more than these?He had talked as if he did&mdash; "Although all shall be offended, yet will not I."
+Jesus said to Simon Peter, Simon, son of Jonas, Do you love Me more than these? He had talked as if he did&mdash; "Although all shall be offended, yet will not I."
 
-He said unto Him, Yes, Lord; You know that I love You.He was wise in not measuring his love in comparison with that of his fellow disciples, or in speaking of the quantity of it, but he affirmed that even Christ knew that he did really love Him.
+He said unto Him, Yes, Lord; You know that I love You. He was wise in not measuring his love in comparison with that of his fellow disciples, or in speaking of the quantity of it, but he affirmed that even Christ knew that he did really love Him.
 
-15-17. He said unto hiim, Feed My lambs. He said to him again the second time, Simon, son of Jonas, Do you love Me? He said unto Him, Yes, Lord; You know that I love You. He said unto Him, Feed My sheep. He said unto Him the third time, Simon, son of Jonas, Do you love Me?Here is a lesson for all who would be pastors of Christ's flock. The first necessity of a true pastor is love to Christ. The second necessity of a true pastor is love to Christ. And the third necessity of a true pastor is love to Christ. A man who does not love the Great Shepherd cannot properly feed either His sheep or lambs. If his own heart is not right towards the Divine Owner of the sheep, he cannot be a true under-shepherd to Christ's flock.
+15-17. He said unto hiim, Feed My lambs. He said to him again the second time, Simon, son of Jonas, Do you love Me? He said unto Him, Yes, Lord; You know that I love You. He said unto Him, Feed My sheep. He said unto Him the third time, Simon, son of Jonas, Do you love Me? Here is a lesson for all who would be pastors of Christ's flock. The first necessity of a true pastor is love to Christ. The second necessity of a true pastor is love to Christ. And the third necessity of a true pastor is love to Christ. A man who does not love the Great Shepherd cannot properly feed either His sheep or lambs. If his own heart is not right towards the Divine Owner of the sheep, he cannot be a true under-shepherd to Christ's flock.
 
 17-19. Peter was grieved because He said unto him the third time, Do you love Me? And he said unto Him, Lord, You know all things; You know that I love You. Jesus said unto him, Feed My sheep. Verily, verily, I say unto you, When you were young, you gird yourself, and walked where you would: but when you shall be old, you shall stretch forth your hands, and another shall gird you, and carry you where you would not. This spoke He, signifying by what death he should glorify God. Peter was to stretch out his hands and be nailed to a cross as his Lord was.
 
