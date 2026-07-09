@@ -82,7 +82,7 @@ Do you still hang back? Then what is your reason for doing so? Is it that you ne
 
 "'Doing' is a deadly thing, 'Doing' ends in death."
 
-Certain gentlemen are very fond of talking about the immorality of the Doctrine of Justification by Faith, and trying to show how it is destructive of good works. I think that those who talk thus should try to practice a few good works on their own account. And one of the good works I would suggest to them is that of being honest enough to quote the whole of a verse, instead of half. Suppose I were to go about, and say, "Oh, the Bible is a dreadful book. It says, 'There is no God'"? Somebody would very probably say to me, "How dare you make such a statement as that? The Bible says, 'The fool has said in his heart, There is no God.' You have quoted only part of the verse." That is just what these objectors have done. The whole verse says&mdash;
+Certain gentlemen are very fond of talking about the immorality of the Doctrine of Justification by Faith, and trying to show how it is destructive of good works. I think that those who talk thus should try to practice a few good works on their own account. And one of the good works I would suggest to them is that of being honest enough to quote the whole of a verse, instead of half. Suppose I were to go about, and say, "Oh, the Bible is a dreadful book. It says, 'There is no God'?" Somebody would very probably say to me, "How dare you make such a statement as that? The Bible says, 'The fool has said in his heart, There is no God.' You have quoted only part of the verse." That is just what these objectors have done. The whole verse says&mdash;
 
 "Till to Jesus' work you cling By a simple faith, 'Doing'is a deadly thing, 'Doing' ends in death."
 

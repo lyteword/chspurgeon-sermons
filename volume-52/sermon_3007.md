@@ -79,7 +79,7 @@ Has waited long; is waiting still&mdash;
 
 You treat no other friend so ill!
 
-Oh lovely attitude!He stands
+Oh lovely attitude! He stands
 
 With melting heart and laden hands!
 
