@@ -68,7 +68,7 @@ EXPOSITION BY C. H. SPURGEON: AMOS 6:1-8; 7:1-6.
 
 Amos was a herdsman and a gatherer of sycamore fruit. His words are rugged, but sometimes he rises to sublimity. His expressions are somewhat dark and not readily understood, but when we learn the meaning of them, we perceive that they are full of deep, earnest, solemn warning and instruction.
 
-Amos 6:1. Woe to them that are at ease in Zion, and trust in the mountain of Samaria, which are named chief of the nations, to whom the house of Israel came!It was a time of great sin and also of great judgment, yet there were some in Zion who were quite at ease under all that was happening. No sense of sin grieved them, no thought of coming judgment alarmed them. What did they care if the nation went to rack and ruin? What did it mean to them that God was angry with His people? They were atheists or, at least, they acted as if they were! Whatever might happen, they would run the
+Amos 6:1. Woe to them that are at ease in Zion, and trust in the mountain of Samaria, which are named chief of the nations, to whom the house of Israel came! It was a time of great sin and also of great judgment, yet there were some in Zion who were quite at ease under all that was happening. No sense of sin grieved them, no thought of coming judgment alarmed them. What did they care if the nation went to rack and ruin? What did it mean to them that God was angry with His people? They were atheists or, at least, they acted as if they were! Whatever might happen, they would run the
 
 risk of it. "Woe," says God, to all such people as these&mdash;and when the Lord says, "Woe," to anyone, it is indeed woe, for He never speaks thus without cause.
 
@@ -78,9 +78,9 @@ You that put far away the evil day. You who say, "There is time enough yet. Let 
 
 And cause the seat of violence to come near For, when men try to postpone thoughts about "the judgment" which is to follow "after death," they are generally the more eager to indulge in sin. They say, "There is time enough yet," because they want a longer period for yet greater indulgence in sinful ways. The Lord cries, "Woe," to all such people as these.
 
-That lie upon beds of ivory.They were men of wealth who spent their money upon all manner of luxuries while the poor of the land were perishing through need.
+That lie upon beds of ivory. They were men of wealth who spent their money upon all manner of luxuries while the poor of the land were perishing through need.
 
-And stretch themselves upon their couches, and eat the lambs out of the flock, and the calves out of the midst of the stall.It was, as I have said, a time of danger when war was at the gates, but the people were so careless that they lived as if peace were established forever and the enemy could never touch them! Their expenditure was at a high rate for self-indulgence and only for that.
+And stretch themselves upon their couches, and eat the lambs out of the flock, and the calves out of the midst of the stall. It was, as I have said, a time of danger when war was at the gates, but the people were so careless that they lived as if peace were established forever and the enemy could never touch them! Their expenditure was at a high rate for self-indulgence and only for that.
 
 That chant to the sound of the viol, and invent to themselves instrument of music, like David. But not for the same purpose as David played and sang&mdash;his instruments of music were used for spiritual solace and the worship of God&mdash;but these people set their wits to work to find out how their music might inflame their lusts and be a vehicle for the expression of their lascivious desires.
 
