@@ -115,7 +115,7 @@ soul."
 
 Yes, though I walk through the Valley of the Shadow of Death, I will fear no evil' 'Not only shall there be none, but I will fear none." A sense of the Lord's Presence lifts a Christian above fear! You know how often it is true that we "feel a thousand deaths in fearing one." But if we have a sense of our Savior's Presence, when we really do walk through the Valley of the Shadow of Death, not a trace of fear shall come across our peaceful souls!
 
-For You are with me. The Presence of Christ is all that His people can ever need. The All-Powerful, Ever-Faithful, Infinitely-Compassionate One being with us&mdash;what cause for fear can possibly remain?
+For You are with me. The Presence of Christ is all that His people can ever need. The All-Powerful, Ever-Faithful, Infinitely Compassionate One being with us&mdash;what cause for fear can possibly remain?
 
 Your rod and Your staff they comfort me. "To see Your scepter and even to feel Your chastising rod&mdash;to know that You are a King and that You rule over Israel&mdash;to know that as a Shepherd You carry "a crook to guide Your flock, shall be enough to comfort my heart and to sustain my spirit." How sweet is the next verse!
 
@@ -133,7 +133,7 @@ All the days of my life. "Not merely now and then, but all my days&mdash;my dark
 
 And I will dwell in the house of the LORD forever. This life begins here, for this earth is but the lower part of God's House. And when the time shall come for us to leave this earth, we, who are the Lord's own children, shall only go upstairs to the higher rooms to "dwell in the house of the Lord forever." This, then, is the portion of the children of God. But there are some to whom David's language will seem strange. They cannot sing this sweet Psalm, for their life is as restless as the waves of the sea. No quiet pastoral poem could set forth their joy, for the sound of war is heard in the streets of their city of Mansoul. If any such souls are seeking rest and peace, let them hearken to the voice of God as it speaks to them from the Book of the Prophet Isaiah, chapter fifty-five.
 
-Isaiah 55:1, 2. Ho, everyone who thirsts, come you to the waters, and he that has no money; come you, buy, and eat; yes, come buy wine and milk without money and without price. Why do you spend money for that which is not bread? And your labor for that which satisfies not?Why have you sought rest where it can never be found? Why have you craved delights which can never satisfy you? Cease from such folly!
+Isaiah 55:1, 2. Ho, everyone who thirsts, come you to the waters, and he that has no money; come you, buy, and eat; yes, come buy wine and milk without money and without price. Why do you spend money for that which is not bread? And your labor for that which satisfies not? Why have you sought rest where it can never be found? Why have you craved delights which can never satisfy you? Cease from such folly!
 
 Hearken diligently unto Me. Thus speaks the Lord Jehovah&mdash;"Hearken diligently unto Me."
 
@@ -141,7 +141,7 @@ Hearken diligently unto Me. Thus speaks the Lord Jehovah&mdash;"Hearken diligent
 
 it&mdash;"with you" who hunger and thirst after righteousness and who have no other recommendation than that, poor as it is. "I will make an everlasting covenant with you."
 
-3, 4. Even the sure mercies of David. Behold, I have given Him. The Son of David&mdash;"great David's greater Son"&mdash; and God's own well-beloved and only-begotten Son, even Jesus Christ, our Lord and Savior. God says "I have given
+3, 4. Even the sure mercies of David. Behold, I have given Him. The Son of David&mdash;"great David's greater Son"&mdash; and God's own well-beloved and only begotten Son, even Jesus Christ, our Lord and Savior. God says "I have given
 
 Him"&mdash;
 
