@@ -100,7 +100,7 @@ Gracious is the LORD, and righteous; yes, our God is merciful. All who have ever
 
 The LORD preserves the simple. Those who are of a single mind&mdash;who have no double meanings and concealed motives&mdash;those who know their own ignorance and weakness and who, therefore, dare not trust in themselves.
 
-I was brought low, and He helped me. David could speak for himself and he did so without the slightest hesitation. Can you, dear Friends, after making trial of God's love and Grace, say of Him, "I was brought low, and He helped me"? If you can, then bear this testimony to His praise and glory!
+I was brought low, and He helped me. David could speak for himself and he did so without the slightest hesitation. Can you, dear Friends, after making trial of God's love and Grace, say of Him, "I was brought low, and He helped me?" If you can, then bear this testimony to His praise and glory!
 
 Return unto your rest, O my soul; for the LORD has dealt bountifully with you. Man's soul is like the dove that Noah sent out from the ark. It flew over the wide waste of waters, seeking rest, but finding none, so, at last, with weary wings, it made its way back to the ark. And, Soul, you will never rest till you come back to your Creator and Redeemer! You may fly to the pleasures and follies of this world but they can furnish no real rest for you. If you would rest, you must come back to your God.
 
