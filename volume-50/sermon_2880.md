@@ -138,7 +138,7 @@ holy awe of God. And then the heart shall be enlarged&mdash;we shall deal with g
 
 6, 7. The multitude of camels shall cover you, the dromedaries of Midian and Ephah, all they from Sheba shall come: they shall bring gold and incense; and they shall show forth the praises of the LORD. All the flocks of Kedar shall be gathered together unto you, the rams of Nebaioth shall minister unto you: they shall come up with acceptance on My altar, and I will glorify the house of My glory. These people had mostly been followers of false prophets, but they, too, shall forsake their fanaticism and their bigotry and come to unite with the Church of God. Those least likely and furthest off from hope shall be brought in by the Sovereign Grace of God.
 
-Who are these that fly as a cloud and as the doves to their windows?The Church is astonished! She asks, "Who can
+Who are these that fly as a cloud and as the doves to their windows? The Church is astonished! She asks, "Who can
 
 they be?"
 
