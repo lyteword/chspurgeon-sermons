@@ -88,7 +88,7 @@ Then said He. They were in a right frame for hearing, having been rendered atten
 
 18-22. Unto what is the Kingdom of God like, and whereunto shall I resemble it? It is like a grain of mustard seed, which a man took and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it And again He said, Whereunto shall I liken the Kingdom of God? It is like leaven which a woman took and hid in three measures of meal, till the whole was leavened. And He went through the cities and villages, teaching, and journeying toward Jerusalem. That is practically what He was always doing&mdash;"journeying toward Jerusalem," toward that great climax of His life&mdash;His substitutionary death upon the Cross of Calvary.
 
-Then said one unto Him, Lord, are there few that are saved?That is a question that many have asked&mdash;and some have vainly tried to answer. What did Jesus reply?
+Then said one unto Him, Lord, are there few that are saved? That is a question that many have asked&mdash;and some have vainly tried to answer. What did Jesus reply?
 
 24. And He said unto them, Strive to enter in at the strait gate. Instead of gratifying idle curiosity, He excites to diligence in seeking entrance into the narrow way.
 
@@ -96,7 +96,7 @@ For many, I say unto you, will seek to enter in, and shall not be able. They wil
 
 When once the master of the house is risen up, and has shut the door and you begin to stand outside, and to knock at the door. They do not like to go away. They are reluctant to meet their final doom. Oh, that they had been wise enough to cry for mercy when it was to be had! Now they stand and begin to knock&mdash;and more than that, they begin to plead.
 
-Saying, Lord, Lord, open unto us!All this earnestness, all this deference, all this reverence have come too late.
+Saying, Lord, Lord, open unto us! All this earnestness, all this deference, all this reverence have come too late.
 
 25, 26. AndHe shallanswer andsay unto you, Iknow not who you are: then shallyou begin to say, We have eaten and drunk in Your Presence, and You have taught in our streets. "We were regular hearers of the Word. We observed all the usual forms of religion&mdash;we even went to the Communion Table."
 
