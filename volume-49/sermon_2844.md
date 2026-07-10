@@ -10,7 +10,7 @@ I want you to clearly understand that the fault did not lie in the suddenness of
 
 Do not judge the reality of your conversion either by the suddenness of it or by the length of time which it occupied, for it is true that superficial conversions are usually sudden, although all sudden conversions are not superficial. There are many who, in the sight of God, are not converted at all, who appeared as if they were the subjects of a great, remarkable and complete change. Where there is no depth, there is no durability. That familiar proverb is a true one, "Easy come, easy go." As a general rule, those persons who have, as they say, "found religion" all of a sudden, without any mental struggle and who have never found it in their heart and soul, are the very people to let it go quite as readily whenever a time of trial comes.
 
-In case there should be any persons of that sort here unwarned, I am going to speak of them and to them now, answering these three questions. First, what is meant by having deepness ofearth?Secondly, what is meant by the scorching
+In case there should be any persons of that sort here unwarned, I am going to speak of them and to them now, answering these three questions. First, what is meant by having deepness ofearth? Secondly, what is meant by the scorching
 
 of the sun?'And, thirdly, how can we avoid the evil of having no deepness of earth and so being withered by the scorching of the sun?
 
