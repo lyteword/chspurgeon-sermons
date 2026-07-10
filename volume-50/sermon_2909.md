@@ -104,7 +104,7 @@ And if you, as a poor sinner, are trusting wholly and only in Christ, then He is
 
 EXPOSITION BY C. H. SPURGEON: JOB 19.
 
-Verses 1, 2. Then, Job answered andsaid, how long will you vex my soul and break me in pieces with words?They struck at him with their hard words as if they were breaking stones on the roadside! We ought to be very careful what we say to those who are suffering affliction and trial, for a word, though it seems to be a very little thing, will often cut far more deeply and wound far more terribly than a razor. So Job says, "How long will you vex my soul and break me in pieces with words?"
+Verses 1, 2. Then, Job answered andsaid, how long will you vex my soul and break me in pieces with words? They struck at him with their hard words as if they were breaking stones on the roadside! We ought to be very careful what we say to those who are suffering affliction and trial, for a word, though it seems to be a very little thing, will often cut far more deeply and wound far more terribly than a razor. So Job says, "How long will you vex my soul and break me in pieces with words?"
 
 These ten times have you reproached me: you are not ashamed that you make yourselves strange to me. He means that they had reproached him several times over&mdash;and hints that they ought to have been ashamed to act so strangely, so coldly, so harshly towards him.
 
@@ -140,6 +140,6 @@ Why do youpersecute me as God does, andare not satisfied with my flesh? "If God 
 
 For I know that my Redeemer lives, and that He shall stand at the latter day upon the earth. "For I know." What a splendid burst of confidence this is, right out of the depth of his sorrow, like some wondrous star that suddenly blazes upon the brow of the blackest night, or like the sudden rising of the morning sun!
 
-26-28. And though after my skin, worms destroy this body, yet in my flesh shall I see God: whom I shall see for myself, and my eyes shall behold, and not another; though my reins are consumed within me. But you should say, Why persecute we him, seeing the root of the matter is found in me?Job seems to say, speaking about himself, though in the third person, "He is a devout man, can you not see that? He has faith in God, my Friends, can you not perceive that? Why, then, do you persecute him so?"
+26-28. And though after my skin, worms destroy this body, yet in my flesh shall I see God: whom I shall see for myself, and my eyes shall behold, and not another; though my reins are consumed within me. But you should say, Why persecute we him, seeing the root of the matter is found in me? Job seems to say, speaking about himself, though in the third person, "He is a devout man, can you not see that? He has faith in God, my Friends, can you not perceive that? Why, then, do you persecute him so?"
 
 Be you afraid of the sword: for wrath brings the punishments of the sword, that you may know there is a judgment Now Job carries the war into the enemy's camp and he says, "You charge me with all sorts of sin and yet you cannot deny that the root of the matter is in me. Would it not be much wiser for you to be yourselves afraid lest God should cut you off for falsely accusing me and slandering me in the time of my sorrow?" There we may confidently leave Job, for the man who can truly say what he has said about his Redeemer will come out all right at the last.
