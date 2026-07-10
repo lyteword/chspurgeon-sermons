@@ -12,7 +12,7 @@ In caverns deep a burning snare,
 
 He shot from Heaven a piercing ray
 
-And the dark treachery brought to day." Nor is this the only event for which the fifth of November is notable, for in 1688 we as a nation experienced a deliverance equally as great. James II had attempted to revive the dying cause of Popery&mdash;and the hopes of Satan were great. But sturdy Protestants would not easily lose their dearly-bought liberties and, therefore, brought about the glorious revolution by which King William III ascended the throne&mdash;and from him the succession has been happily continued until the reign of our Queen for whom our earnest prayers shall rise&mdash;
+And the dark treachery brought to day." Nor is this the only event for which the fifth of November is notable, for in 1688 we as a nation experienced a deliverance equally as great. James II had attempted to revive the dying cause of Popery&mdash;and the hopes of Satan were great. But sturdy Protestants would not easily lose their dearly bought liberties and, therefore, brought about the glorious revolution by which King William III ascended the throne&mdash;and from him the succession has been happily continued until the reign of our Queen for whom our earnest prayers shall rise&mdash;
 
 "Such great deliverance God has worked,
 
@@ -136,4 +136,4 @@ Thus says the LORD the King ofIsrael, andHis Redeemer the LORD ofHosts; Iam the 
 
 And who can proclaim as I do? Then let him declare it and set it in order for Me. Since I appointed the ancient people and the things that are coming, and shall come, let them show these to them. If these idols are gods, let them prophesy and tell what is to happen in the future! But they cannot even speak to one another.
 
-Fear you not, neither be afraid: have not I told you from that time, and have declared it? You are even My witnesses, is there a God beside Me?Indeed, there is no other God; Iknow not any.
+Fear you not, neither be afraid: have not I told you from that time, and have declared it? You are even My witnesses, is there a God beside Me? Indeed, there is no other God; Iknow not any.
