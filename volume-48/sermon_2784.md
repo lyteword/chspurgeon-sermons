@@ -82,7 +82,7 @@ EXPOSITION BY C. H. SPURGEON: PSALM115.
 
 This is one of the Hallel Psalms which were sung by the Jews at the feast of the Passover. It is highly probable that they were sung by our Lord on that memorable night when He instituted the sacred feast which is to be the perpetual memorial of His death, "until He comes." They have, however, a message for us who are now gathered together here.
 
-Verses 1, 2. Not unto us, O LORD, not unto us, but unto Your name give glory, for Your mercy, and for Your truth's sake. Why should the heathen say, Where is now their God?They talk about what He did when He brought His people up out of Egypt&mdash;but they tauntingly ask, "Where is now their God?" You are not dead, O God! Nor are You even waxing weak&mdash;will You not let the heathen know that they are resisting You in vain?
+Verses 1, 2. Not unto us, O LORD, not unto us, but unto Your name give glory, for Your mercy, and for Your truth's sake. Why should the heathen say, Where is now their God? They talk about what He did when He brought His people up out of Egypt&mdash;but they tauntingly ask, "Where is now their God?" You are not dead, O God! Nor are You even waxing weak&mdash;will You not let the heathen know that they are resisting You in vain?
 
 But our God is in the heavens. Where they cannot see Him. But that is just where He should be&mdash;in His own royal pavilion, seated upon His own Throne&mdash;out of gunshot of all His enemies&mdash;where He can survey the whole world, where He is dependent upon none, but absolutely supreme over all&mdash;"Our God is in the heavens."
 
