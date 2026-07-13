@@ -88,11 +88,11 @@ Did not Moses give you the Law, and yet none of you keeps the Law? Why go you ab
 
 21. The people answered and said, You have a devil: who goes about to kill You? Jesus answered and said unto them, I have done one work, and you all marvel "I did it on the Sabbath and you are all stumbling at that."
 
-22, 23. Moses therefore gave unto you circumcision; (not because it is of Moses, but of the fathers) and you on the Sabbath circumcise a man. If a man on the Sabbath receive circumcision, that the Law of Moses should not be broken; are you angry at Me because I have made a man every whit whole on the Sabbath?Surely, there was never a more triumphant answer than that!
+22, 23. Moses therefore gave unto you circumcision; (not because it is of Moses, but of the fathers) and you on the Sabbath circumcise a man. If a man on the Sabbath receive circumcision, that the Law of Moses should not be broken; are you angry at Me because I have made a man every whit whole on the Sabbath? Surely, there was never a more triumphant answer than that!
 
 24, 25. Judge not according to the appearance, but judge righteous judgment Then said some of them of Jerusalem, Is not this He whom they seek to kill? Perhaps some of the same people who had asked Christ, "Who goes about to kill You?" now enquired, "Is not this He, whom they seek to kill?"
 
-26, 27. But, lo, Hie speaks boldly, and they say nothing unto Him. Do the rulers know indeed that this is the very Christ?However, we know where this Man is from, but when the Christ comes, no man knows where He comes from. They had a notion&mdash;perhaps derived from that passage in Isaiah, "who shall declare His generation?"&mdash;that the birth of Christ would be hidden in mystery. At any rate, there was some cloudy idea floating about that it would be concealed.
+26, 27. But, lo, Hie speaks boldly, and they say nothing unto Him. Do the rulers know indeed that this is the very Christ? However, we know where this Man is from, but when the Christ comes, no man knows where He comes from. They had a notion&mdash;perhaps derived from that passage in Isaiah, "who shall declare His generation?"&mdash;that the birth of Christ would be hidden in mystery. At any rate, there was some cloudy idea floating about that it would be concealed.
 
 Then cried Jesus in the temple as He taught, saying, You both knowMe, andyou know from where Icome. "And yet you do not know Me."
 
@@ -114,7 +114,7 @@ Yet a little while am I with you, and then Igo unto Him that sent Me. "You may w
 
 Others said, This is the Christ. The Messiah.
 
-41, 42. But some said, Shall Christ come out of Galilee?Has not the Scripture said, That Christ comes of the seed of David, and out of the town of Bethlehem, where David was?This was blessed testimony even out of the mouth of Christ's enemies! They objected against Christ what was, indeed, the fact, for He did come of the seed of David, and from the town of Bethlehem. He was born there and though they called Him the Nazarene&mdash;and He refused not the title&mdash;though over His head Pilate wrote, "Jesus of Nazareth, the King of the Jews," yet is He the Son of David and His birthplace was at Bethlehem, though some of them knew it not.
+41, 42. But some said, Shall Christ come out of Galilee? Has not the Scripture said, That Christ comes of the seed of David, and out of the town of Bethlehem, where David was? This was blessed testimony even out of the mouth of Christ's enemies! They objected against Christ what was, indeed, the fact, for He did come of the seed of David, and from the town of Bethlehem. He was born there and though they called Him the Nazarene&mdash;and He refused not the title&mdash;though over His head Pilate wrote, "Jesus of Nazareth, the King of the Jews," yet is He the Son of David and His birthplace was at Bethlehem, though some of them knew it not.
 
 43, 44. So there was a division among the people because of Him. And some of them would have taken Him; but no man laid hands on Him. He was immortal till His work was done! The hour for His death had not yet struck and He must live on till the appointed time.
 
