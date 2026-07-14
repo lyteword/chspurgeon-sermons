@@ -47,7 +47,7 @@ Then it is also a word of congratulation, for some render it, "Rejoice," and, in
 
 And, according to some versions, it may be read, "Peace be unto you!" That is a word of pacification&mdash;as though our Lord had said, "Ah, you women did not run away from Me as the men did. But, still, you were afraid and very timid. Sad though you were at the sepulcher, you went there trembling. You did not believe My Word, or you scarcely believed it&mdash;that I would rise from the dead&mdash;but I am not going to have any back reckonings with you. 'Peace be to you!'"
 
-Now, dear Friends, have you heard your Lord and Savior say to you, "It is all forgiven&mdash;every omission and every commission, every slip and every fault&mdash;all the lukewarmness and all the coldness is all gone"? That is the meaning of the greeting, "All hail!" from the lips of Christ. "There is nothing between Me and you, dear Heart, but perfect peace and unbroken love. I rejoice to see you and I would have you rejoice, and rest, and be quiet, for I have come near unto you, to bless and cheer you."
+Now, dear Friends, have you heard your Lord and Savior say to you, "It is all forgiven&mdash;every omission and every commission, every slip and every fault&mdash;all the lukewarmness and all the coldness is all gone?" That is the meaning of the greeting, "All hail!" from the lips of Christ. "There is nothing between Me and you, dear Heart, but perfect peace and unbroken love. I rejoice to see you and I would have you rejoice, and rest, and be quiet, for I have come near unto you, to bless and cheer you."
 
 That is the second lesson I learn from the text. First, that, when we are running on our Master's errands, we may hope that He will meet us. And, next, when He does meet us, we may expect that He will always have a good word for us.
 
@@ -120,7 +120,7 @@ The Lord is not slack concerning His promise, as some men count slackness; but i
 
 But the Day of the Lord will come as a thief in the night in which the Heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth, also, and the works that are therein shall be burned up. The next and great judgment will be by fire.
 
-12. Seeing, then, that all these things shall be dissolved, what manner of persons ought you to be in all holy conversation and godliness, looking for and hastening unto the coming of the day of God, wherein the Heavens being on fire shall be dissolved, and the elements shall melt with fervent heat?This should be the practical outcome of the anticipation of coming judgment. Let us look on "all these things" as passing away.
+12. Seeing, then, that all these things shall be dissolved, what manner of persons ought you to be in all holy conversation and godliness, looking for and hastening unto the coming of the day of God, wherein the Heavens being on fire shall be dissolved, and the elements shall melt with fervent heat? This should be the practical outcome of the anticipation of coming judgment. Let us look on "all these things" as passing away.
 
 Nevertheless we, according to Hispromise, look for new Heavens anda new earth, wherein dweels righteousness. The end of this world will be the beginning of a new and better one, of which "righteousness" will be the great characteristic!
 
