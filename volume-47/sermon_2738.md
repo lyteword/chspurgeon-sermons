@@ -44,7 +44,7 @@ But how shall I tell you of that last trying test to which He was subjected by t
 
 "Bore all Incarnate God could bear, With strength enough, but none to spare."
 
-That awful cry, "My God, My God, why have You forsaken Me?" was the concentration of the very essence of misery and woe! Then it was that the alabaster box was broken and the precious ointment was poured forth to perfume the air all the way from earth to Heaven, for God Himself smells a sweet savor of rest in the Sacrifice of His well-beloved and only-begotten Son! Death could not keep Him back from the accomplishment of His purpose to redeem His people! Well did Charles Wesley sing&mdash;
+That awful cry, "My God, My God, why have You forsaken Me?" was the concentration of the very essence of misery and woe! Then it was that the alabaster box was broken and the precious ointment was poured forth to perfume the air all the way from earth to Heaven, for God Himself smells a sweet savor of rest in the Sacrifice of His well-beloved and only begotten Son! Death could not keep Him back from the accomplishment of His purpose to redeem His people! Well did Charles Wesley sing&mdash;
 
 "Stronger His love than death or Hell&mdash;
 
@@ -100,7 +100,7 @@ Verse 1. Thus says the LORD, Where is the bill ofyour mother's divorcement, whom
 
 Behold, for your iniquities have you sold yourselves, and for your transgressions is your mother put away. That is to say, the nation, which was their mother, had lost the favor of God&mdash;not because of His fickleness, but because their sins had cried aloud for justice and for judgment. It could not be that God should be in friendly relationship with such a people, so hypocritical, so false, so every way rebellious against Him!
 
-Why, when I came, was there no man? When I called, was there none to answer?Christ came to this world at a time when there practically seemed to be none left on the earth who were good for anything. The Pharisees, who were, outwardly, the most religious of men, were proud formalists and base hypocrites&mdash;and the whole nation had gone astray from God, so that Christ might well ask, "When I came, why was there no man? When I called, why was there none to answer?"
+Why, when I came, was there no man? When I called, was there none to answer? Christ came to this world at a time when there practically seemed to be none left on the earth who were good for anything. The Pharisees, who were, outwardly, the most religious of men, were proud formalists and base hypocrites&mdash;and the whole nation had gone astray from God, so that Christ might well ask, "When I came, why was there no man? When I called, why was there none to answer?"
 
 Is My hand shortened at all, that it cannot redeem? Or have Inopower to deliver? Behold, at Myrebuke Idry up the sea, I make the rivers a wilderness&mdash;their fish stink because there is no water and die for thirst. Here the Lord reminds them of what He did at the Red Sea. This same Christ, who came here and found none to answer to His call, is the true God who was the Redeemer of Israel. He led the tribes through the Red Sea, drying it up by the word of His mouth, that there might be a way for His ransomed to pass through! Yet, when this great Redeemer came to earth, as far as most of the men were concerned, there were none to welcome Him. Even though He came in love and tenderness, there were none to answer to Him.
 

@@ -34,7 +34,7 @@ And I am sure that He also satisfies all our hopes. Large as they may be, there 
 
 Now let us turn to the second sentence of our text. "My people shall be satisfied with My goodness, says the Lord." This teaches us that AS GOD's PEOPLE, WE ARE SATISFIED WITH GOD's GOODNESS. All through my discourse, I shall be appealing to you, dear Friends, and asking you whether it is not as I say. Come now, Beloved, you who are the Lord's people, I want to ask you a few questions concerning His goodness to you.
 
-First, are you satisfied with God's eternal purposes?Your names are written in His Book of Life. He chose you from eternity to be His. Before the torch of light had kindled the first shining orb, He had looked upon you with Prescient eyes and loved you! You are satisfied about that great Truth of God, I hope&mdash;"I have loved you with an everlasting love." "Satisfied," did I say? That word seems scarcely good enough! Sit down and turn over in your mind this eternal love of God and you will feel such delight within your soul, if you feel as I do, that you will soon have tears streaming down your cheeks for very joy as you sing&mdash;
+First, are you satisfied with God's eternal purposes? Your names are written in His Book of Life. He chose you from eternity to be His. Before the torch of light had kindled the first shining orb, He had looked upon you with Prescient eyes and loved you! You are satisfied about that great Truth of God, I hope&mdash;"I have loved you with an everlasting love." "Satisfied," did I say? That word seems scarcely good enough! Sit down and turn over in your mind this eternal love of God and you will feel such delight within your soul, if you feel as I do, that you will soon have tears streaming down your cheeks for very joy as you sing&mdash;
 
 "Loved of my God, for Him again With love intense I burn! Chosen of You ere time began, I choose You in return."
 
@@ -46,7 +46,7 @@ Well, now, since you have become the subject of this adoption, all God's dealing
 
 dear Friends, this is a happy state of mind to be in, to be content with all that happens to us&mdash;to have done with wishing for any alteration in God's dealings with us&mdash;to be satisfied with whatever He gives and just as satisfied when He withholds&mdash;to be even as a weaned child, crying no more after this poor world, but giving yourself up entirely to your loving Father's care! May God grant to each one of you this privilege of being perfectly satisfied with His Providential dealings with you! You will be a very naughty child if you are not&mdash;and you will bring upon yourself a heap of trouble if you kick against what God has done. It will cost you more pain to rebel against God's will than that will ever can cause you if you yield to it.
 
-Are you not also satisfied with the goodness of God in His promises?Take your Bible&mdash;is it not a galaxy of stars&mdash; everyone of them infinitely more precious than the whole of the wealth of this world? All that you need for time and for eternity is included in the promises of God's Word&mdash;
+Are you not also satisfied with the goodness of God in His promises? Take your Bible&mdash;is it not a galaxy of stars&mdash; everyone of them infinitely more precious than the whole of the wealth of this world? All that you need for time and for eternity is included in the promises of God's Word&mdash;
 
 "What more can He say than to you He has said, You who unto Jesus for refuge have fled?"
 

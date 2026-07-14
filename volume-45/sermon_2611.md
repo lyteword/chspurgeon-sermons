@@ -91,7 +91,7 @@ Yet said you not, There is no hope: you have found the life of your hand; theref
 
 And of whom have you been afraid or feared, that you have lied and have not remembered Me?''Me, your Maker, your Friend, to whom you owe your very soul, unless that soul shall go down into the Pit, 'You have not remembered Me.'"
 
-Nor laid it to your heart; have not I held My peace even of old, and you do not fear Me?When God is very long-suffering and lets men alone in their sin, then, often, they quite forget Him and have no fear of Him.
+Nor laid it to your heart; have not I held My peace even of old, and you do not fear Me? When God is very long-suffering and lets men alone in their sin, then, often, they quite forget Him and have no fear of Him.
 
 I will declare your righteousness, and your works; for they shall not profit you. If God once takes the self-righteous man's righteousness and explains what it really is, He will soon reveal to its owner that it is a mere delusion and sham that will not profit him at all.
 
@@ -121,9 +121,9 @@ Behold, in the day of your fast you find pleasure, and exact all your labors. "Y
 
 Behold, you fast for strife and debate, and to smite with the fiat of wickedness: you shall not fast as you do this day, to make your voice to be heard on high. The best sort of mere external religion will soon turn sour. If you do not worship the Lord in a right spirit, God will loathe the very form of your service! Why, you might, by hypocrisy, make even Prayer Meetings to be hateful in the sight of God! And the ordinances may be made as abominable to God as the "mass" itself! You can soon degrade hearing sermons into mere listening to oratory and the Sabbath may easily become an object only of superstitious and formal observance. The heart&mdash;the heart is everything! If that is wrong, it sours the sweetest things under Heaven.
 
-Is it such a fast that Ihave chosen? A day for a man to afflict his soul?Is it to bow down his headas a bulrush, and to spread sackcloth and ashes under him? Will you call this a fast and an acceptable day to the LORD? Does God care only for the externals of worship? Is He satisfied with sackcloth and ashes, and the hanging down of the head like a bulrush?
+Is it such a fast that Ihave chosen? A day for a man to afflict his soul? Is it to bow down his headas a bulrush, and to spread sackcloth and ashes under him? Will you call this a fast and an acceptable day to the LORD? Does God care only for the externals of worship? Is He satisfied with sackcloth and ashes, and the hanging down of the head like a bulrush?
 
-Is not this the fast that Ihave chosen? To loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that to break everyyoke?Yes, this is true fasting before God&mdash;not to demand your pound of flesh and declare that you will have it. Not to grind down the poor man to the last farthing, but, "to loose the bands of wickedness, to undo the heavy burdens and to let the oppressed go free."
+Is not this the fast that Ihave chosen? To loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that to break everyyoke? Yes, this is true fasting before God&mdash;not to demand your pound of flesh and declare that you will have it. Not to grind down the poor man to the last farthing, but, "to loose the bands of wickedness, to undo the heavy burdens and to let the oppressed go free."
 
 Is it not to dealyour bread to the hungry, and thatyou bring thepoor that are cast out to yourhouse? When you see the naked, that you cover him; and that you hide not yourself from your own flesh? That is the kind of fast that the Lord approves&mdash;to deny yourself that you may give to those who are in need!
 

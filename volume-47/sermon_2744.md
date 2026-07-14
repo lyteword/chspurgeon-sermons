@@ -100,7 +100,7 @@ Verse 6. For when we were yet without strength, in due time Christ died for the 
 
 For scarcely for a righteous man will one die. For a merely just man, scarcely would anybody die. 7. Yet perhaps for a good man. For a benevolent man&mdash;
 
-7, 8. Some would even dare to die. But God commends His love toward us, in that while we were yet sinners, Christ died for us. It is under that aspect that Christ is to be regarded as dying for the ungodly, dying for sinners. Ungodly Man, guilty Sinner, is there not hope for you in this blessed Truth of God? Does anyone say, "I shall be lost, for I am ungodly. I must necessarily perish, for I am a sinner"? Your logic is at fault, dear Friend. "Christ died for the ungodly." "While we were yet sinners, Christ died for us." therefore, the ungodly&mdash;sinners&mdash;are saved because of His death&mdash;and all who trust Him shall be saved.
+7, 8. Some would even dare to die. But God commends His love toward us, in that while we were yet sinners, Christ died for us. It is under that aspect that Christ is to be regarded as dying for the ungodly, dying for sinners. Ungodly Man, guilty Sinner, is there not hope for you in this blessed Truth of God? Does anyone say, "I shall be lost, for I am ungodly. I must necessarily perish, for I am a sinner?" Your logic is at fault, dear Friend. "Christ died for the ungodly." "While we were yet sinners, Christ died for us." therefore, the ungodly&mdash;sinners&mdash;are saved because of His death&mdash;and all who trust Him shall be saved.
 
 Much more then, being nowjustifed by His blood, we shall be saved from wrath through Him. Did He die for us while we were sinners? Will He not, then, surely keep us, now that we are saved? Yes, that He will!
 
