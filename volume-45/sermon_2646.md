@@ -78,7 +78,7 @@ EXPOSITION BY C. H. SPURGEON: JOHN 1:19-51; MATTHEW 4:12-24.
 
 John 1:19, 20. And this is the record of John, when the Jews sent priests and Levites from Jerusalem to ask him, Who are you? And he confessed, and denied not, but confessed, I am not the Christ ' 'I am not the One anointed of God to save mankind."
 
-And they asked him, Who then? Are you Elijah?' 'Are you Elijah come back to earth?" 21. And he said, I am not For, though indeed he was the true piritualElijah who was to come as the forerunner of the Messiah, yet, in the sense in which they asked the question, the only truthful answer was, "I am not." 21. Are you that Prophet?The long-expected prophet foretold by Moses?
+And they asked him, Who then? Are you Elijah?' 'Are you Elijah come back to earth?" 21. And he said, I am not For, though indeed he was the true piritualElijah who was to come as the forerunner of the Messiah, yet, in the sense in which they asked the question, the only truthful answer was, "I am not." 21. Are you that Prophet? The long-expected prophet foretold by Moses?
 
 21-23. And he answered, No. Then they said unto him, Who are you, that we may give an answer to them that sent us? What do you say of yourself? He said, I am the voice. That is all. A voice and nothing more. John did not profess to be the Word&mdash;he was only the voice which vocalized that Word and made it audible to human ears. He came to bear witness to the Christ, but he was not, himself, the Christ. "I am the voice"
 
@@ -88,7 +88,7 @@ And they asked him, Who then? Are you Elijah?' 'Are you Elijah come back to eart
 
 31-34. And I knew Him not: but that He should be made manifest to Israel, therefore am I come baptizing with water. And John bore record, saying, I saw the Spirit descending from Heaven like a dove, and it abode upon Him. And I knew Him not: but He that sent me to baptize with water, the same said unto me, Upon whom you shall see the Spirit descending, and remaining on Him, the same is He which baptizes with the Holy Spirit. And I saw, and bare record that this is the Son of God. The secret sign of the descent of the Spirit, in dove-like form, upon our Lord, was given to John. And as soon as he saw it, he knew for sure that Jesus was the Sent One, the Messiah, and that he must point Him out to the people.
 
-35, 36. Again, the next day, John stood with two of his disciples. And looking at Jesus as He walked, he said, Behold the Lamb of God!This was the same text from which he had preached the day before and it was the same sermon, somewhat shortened. So should it be with us&mdash;
+35, 36. Again, the next day, John stood with two of his disciples. And looking at Jesus as He walked, he said, Behold the Lamb of God! This was the same text from which he had preached the day before and it was the same sermon, somewhat shortened. So should it be with us&mdash;
 
 > His only righteousness I show,   
 > His saving truth proclaim   
