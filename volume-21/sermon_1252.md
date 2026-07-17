@@ -20,7 +20,7 @@ The operations of Grace are gradual, but its entrance is instantaneous. Although
 
 The darkness struggles for the mastery, but the light, once given, none shall quench&mdash;it must and shall shine forth more and more unto the perfect day. All this is worthy of our careful note, but the point which we are about to dwell upon is this&mdash;our text concerns only the first day of creation and the Lord's consideration of that first day's work&mdash;and His approval of it. The first day of creation fairly pictures the commencement of our spiritual life, our conviction, conversion and first faith in Jesus.
 
-My objective shall be to speak words of comfort to beginners, that I may cheer those upon whom the true light has only lately begun to shine. And I shall, also, give a few words of advice to older people as to their duty to these newly-enlightened ones.
+My objective shall be to speak words of comfort to beginners, that I may cheer those upon whom the true light has only lately begun to shine. And I shall, also, give a few words of advice to older people as to their duty to these newly enlightened ones.
 
 Our first observation will be this&mdash;THE LORD SEES WHATEVER HE CREATES. "The Lord saw the light." He was the sole observer of it. Neither eyes of man, nor bird, nor beast was there to behold the golden glory, but God saw the light! Newly enlightened one, it may be you are pained because you have no Christian companion to observe your change of heart. Cease from your sorrow, for God beholds you! Have you seen yourself a sinner and do you, therefore, weep in secret places? Have you begun to see the Savior and do you look to Him in loneliness of spirit and find in Him a joy with which a stranger intermeddled not?
 
