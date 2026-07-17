@@ -115,7 +115,7 @@ Right well does the poet say&mdash;
 
 Jesus lifts His hand and says, "I give unto My sheep eternal life. And they shall never perish, neither shall any man pluck them out of My hand." Man's work is superficial and therefore soon disappears. All that nature spins, nature un-ravels&mdash;all that is woven in the loom of human excitement will be rent to pieces by the hand of time and trial. But surely I know that what God does He does forever and it stands fast without a change. Oh, that He would this morning come and quicken dead souls! Pray, dear Brothers and Sisters, that it may be so!
 
-The Lord will do as He wills. Does He not say, "I will have compassion upon whom I will have compassion"? Oh, that He would have compassion on this great congregation at this moment and give them life! We heard the cry of human weakness just now when our sister was taken in a fit. I doubt not that our Lord heard it, too, and pitied the bodily infirmity&mdash;how much more will He hear the voice of our spiritual need and have pity upon our death in sin!
+The Lord will do as He wills. Does He not say, "I will have compassion upon whom I will have compassion?" Oh, that He would have compassion on this great congregation at this moment and give them life! We heard the cry of human weakness just now when our sister was taken in a fit. I doubt not that our Lord heard it, too, and pitied the bodily infirmity&mdash;how much more will He hear the voice of our spiritual need and have pity upon our death in sin!
 
 What little time you can yet afford me, I will use in stating THAT HERE WE HAVE AN ASSURANCE THAT
 
@@ -145,7 +145,7 @@ A man, finding himself imbedded in the snow, discovered, to his horror, that he 
 
 to die, but he found that he could speak and here was hope. His tongue was not frozen so he began to call aloud. And he did not call long before helpers came and dug him out and thawed him back to life. If you cannot do anything else, my dear Friend, do cry aloud. Cry, "O God, help me! O Lord quicken me!"
 
-Do any of you say, "Well, I never get into so sad a state. I am always lively"? I am very glad to hear it, if it is true. But I have heard that the statues in St. Paul's Cathedral are never afflicted with rheumatism. And the reason is because they have no life. I am just a little afraid that you also may have no changes and no fears because you have no spiritual life. God knows whether it is so or not. Look to it. I would sooner have the rheumatism and be alive than be without pain and be a statue. The most painful life is preferable to the stillest death.
+Do any of you say, "Well, I never get into so sad a state. I am always lively?" I am very glad to hear it, if it is true. But I have heard that the statues in St. Paul's Cathedral are never afflicted with rheumatism. And the reason is because they have no life. I am just a little afraid that you also may have no changes and no fears because you have no spiritual life. God knows whether it is so or not. Look to it. I would sooner have the rheumatism and be alive than be without pain and be a statue. The most painful life is preferable to the stillest death.
 
 But O you dying saints of God&mdash;you poor, fainting, perishing Believers&mdash;take hope this morning, for the Holy Spirit will revive you, even as Jesus says, "He that lives and believes in Me, though he were dead, yet shall he live."
 

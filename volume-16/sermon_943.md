@@ -122,7 +122,7 @@ What? Dare you sleep with God's Spirit upon you? Up, man! To sleep if you were b
 
 To my mind there appears to be no more potent argument why Paul should go from house to house and lay his hands on all around, and heal the sick. So with you&mdash;you have the power to work miracles, my Brother. The telling out of the Gospel, accompanied by the spirit of God, works moral and spiritual miracles. Because you can work these miracles,
 
-should you say, "God will do His own work"? No, Man, but right and left, at all times and in all places, go and tell out the soul-saving story, and God speed you! Because God works by you, therefore work!
+should you say, "God will do His own work?" No, Man, but right and left, at all times and in all places, go and tell out the soul-saving story, and God speed you! Because God works by you, therefore work!
 
 A small vessel, lying idle in dock, without a freight, is a loss to its owner. But a great steamship, of many hundred horsepower, cannot be suffered to remain unemployed. The greater the power at command, the more urgently are we bound to use it. The indwelling power of God is put forth in reply to faith and prayer&mdash;shall we not labor to obtain it? The fact that the Church's work is God's work rather than hers is no cause why she should indulge in sloth. If she had only her own strength, she might waste it with less of crime. But having God's strength about her, she dares not loiter.
 

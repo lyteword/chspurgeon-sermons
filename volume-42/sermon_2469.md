@@ -110,7 +110,7 @@ Tell me, O You whom my soul loves, where You feed, where You make Your flock to 
 
 If you know not, O you fairest among women. Just note that. She said that she was black, but Christ says that she is the fairest among women! In fact, there is a passage in the Song where He twice calls her fair. As Erskine puts it&mdash;
 
-"Lo! You are fair! Lo! You are fair, Twice fair are you, I say. My Grace, My righteousness becomes Your doubly-bright array."
+"Lo! You are fair! Lo! You are fair, Twice fair are you, I say. My Grace, My righteousness becomes Your doubly bright array."
 
 O you faithful ones, what joy is contained in this warm praise which your Lord gives to you!" If you know not, O you fairest among women&mdash;
 

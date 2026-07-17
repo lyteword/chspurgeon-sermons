@@ -112,7 +112,7 @@ When, for instance, a young Christian man dies, and his master writes to me, say
 
 You notice that he speaks of their "walk." The world could not report their private prayers and inward emotions. The world can only speak of what it sees and understands. So John heard of their "walk," their public character and deportment. Be careful, be careful of your private lives, my Brothers and Sisters, and I believe your public lives will be sure to be right. Remember that it is upon your public life that the verdict of the world will very much depend&mdash; therefore watch every step, action, and word lest you err in any measure from the Truth of God.
 
-What is it to "walk in the Truth of God"? It is not merely resting in the Truth of God, or else some would suppose it meant that John was overjoyed because they were sound in doctrine and cared little for anything else. His joyous survey did include their orthodoxy in creed&mdash;it reached far beyond. We will begin at that point and grant that it is a great joy
+What is it to "walk in the Truth of God?" It is not merely resting in the Truth of God, or else some would suppose it meant that John was overjoyed because they were sound in doctrine and cared little for anything else. His joyous survey did include their orthodoxy in creed&mdash;it reached far beyond. We will begin at that point and grant that it is a great joy
 
 to see our converts standing fast in the Truth of God, and, Brothers and Sisters, I am glad, indeed, when I hear that you hold fast the essential, fundamental, cardinal Truths of our holy faith.
 

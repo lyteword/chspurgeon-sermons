@@ -38,7 +38,7 @@ work to be an impalpable something that comforts others, but cannot comfort you.
 
 The principle applies next in the matter of sanctification. Very real and close to our souls, my Brethren, is the flesh. It makes us groan daily, being burdened. Very close to home are our corruptions&mdash;these foes of our own household worry us too much to allow us to forget them. Very plain to us also are our temptations&mdash;they await us on all sides. And the inward conflict which comes of our fallen nature, and the temptations of Satan and the world&mdash;this, too, is very clear. We can no more doubt our conflicts than the wounded soldier doubts the bloodiness of the battle. All these things are evermore before our eyes to our grief.
 
-But I am afraid that here, too, Christ Jesus is often to us as merely an apparition and not as a real Sharer in our spiritual conflicts. Know you not, Beloved, that Jesus Christ is touched with tender sympathy for you in all your temptations? Understand you not that He has prepared provision for you in all your conflicts that you may surely win the day? Expect you not even yet to say, "I have overcome through the blood of the Lamb"? Will you not at this hour shout the anticipatory note of triumph, "Thanks be to God, which gives us the victory though our Lord Jesus Christ"? You have corruptions within&mdash;this is a fact. But Christ is formed in you the hope of Glory&mdash;this is an equal fact.
+But I am afraid that here, too, Christ Jesus is often to us as merely an apparition and not as a real Sharer in our spiritual conflicts. Know you not, Beloved, that Jesus Christ is touched with tender sympathy for you in all your temptations? Understand you not that He has prepared provision for you in all your conflicts that you may surely win the day? Expect you not even yet to say, "I have overcome through the blood of the Lamb?" Will you not at this hour shout the anticipatory note of triumph, "Thanks be to God, which gives us the victory though our Lord Jesus Christ?" You have corruptions within&mdash;this is a fact. But Christ is formed in you the hope of Glory&mdash;this is an equal fact.
 
 There is that in you which would destroy you, but there is also that implanted in you which cannot be destroyed&mdash; this is equally true. You are, in the first Adam, made in the image of the earthy&mdash;over this you lament. But in the Second Adam you already begin to bear the image of the heavenly, and you shall perfectly bear it before long. Can you not grasp this? Alas, we do not lay hold of these things, do not get to say, as the Apostle John did, "which we have seen, with our eyes, which we have looked upon, and our hands have handled, of the Word of Life."
 
@@ -146,7 +146,7 @@ He was not an amateur Savior. He did not come into this world to save us from su
 
 Lastly, IF WE COULD BUT BE CURED OF THIS DESPERATE MISCHIEF, OUR LORD JESUS CHRIST WOULD HAVE a HIGHER PLACE IN OUR ESTEEM. AND MANY BENEFICIAL RESULTS WOULD FOLLOW.
 
-For, first, did you notice that after the disciples knew it to be Christ, and He came into the ship with them, they said, "Of a Truth you are the Son of God"? If you once realize Christ, you will know Him in His Person as you never will know Him by all I can tell you, or you can read about Him.
+For, first, did you notice that after the disciples knew it to be Christ, and He came into the ship with them, they said, "Of a Truth you are the Son of God?" If you once realize Christ, you will know Him in His Person as you never will know Him by all I can tell you, or you can read about Him.
 
 You once read about a man. You saw his likeness in the "Illustrated News," you heard people talk about him. At last you were in his company, and sat down with him. and then you said, "Now I know the man. I did not before." Oh, if you
 
@@ -164,7 +164,7 @@ But with the humility comes a deep and profound joy and peace. With Christ in th
 
 I know your heads would bow to worship, and then you would open your eyes and gaze on Him, and feast your souls with the sight, and then each one would say, "What can I do for Him?" And if the condescending Master gave you each leave to come and spread offerings at the feet of the Crucified, oh, what heaps of treasure would be brought! Each one would feel, "I have not with me what I wish," but you would say, "Take all I have, my blessed Lord, for You have redeemed me with Your blood."
 
-Is not He just as dear to you now, though unseen? Is not faith as mighty a faculty as sight? Is it not "the evidence of things not seen"? Is not Wesley's verse true? &mdash;
+Is not He just as dear to you now, though unseen? Is not faith as mighty a faculty as sight? Is it not "the evidence of things not seen?" Is not Wesley's verse true? &mdash;
 
 "The things unknown to feeble sense,
 

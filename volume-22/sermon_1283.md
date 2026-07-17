@@ -74,7 +74,7 @@ It is all in vain to seek sacraments&mdash;you must seek Him. It is idle to go t
 
 Christ!
 
-Is it not written, "No man comes unto the Father but by Me"? Jesus is the one Mediator between God and man&mdash; and if you would find God, you must find Him in the Person of Jesus the Nazarene&mdash;who is also the Son of the Highest. You will find Jesus by believing Him, trusting Him, resting upon Him. When you have trusted Jesus, you have found God in Jesus, for He has said, "He that has seen Me, has seen the Father." Then have you come to God when you have believed in Jesus Christ. How simple this is! How unencumbered with subtleties and difficulties! When God gives Grace, how easy and how plain is believing! Salvation is not by doing, nor by being, nor by feeling, but simply by believing.
+Is it not written, "No man comes unto the Father but by Me?" Jesus is the one Mediator between God and man&mdash; and if you would find God, you must find Him in the Person of Jesus the Nazarene&mdash;who is also the Son of the Highest. You will find Jesus by believing Him, trusting Him, resting upon Him. When you have trusted Jesus, you have found God in Jesus, for He has said, "He that has seen Me, has seen the Father." Then have you come to God when you have believed in Jesus Christ. How simple this is! How unencumbered with subtleties and difficulties! When God gives Grace, how easy and how plain is believing! Salvation is not by doing, nor by being, nor by feeling, but simply by believing.
 
 We are not to be content with self, but to seek the Lord! Being nothing in ourselves, we are to go out of ourselves to Him. Being, ourselves, unworthy, we are to find worthiness in Jesus!
 

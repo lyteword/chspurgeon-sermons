@@ -45,7 +45,7 @@ What a bliss this is! Our times, in all their needs and aspects, are in God's ha
 
 not there! He will bless your going out. Come not home to your chamber, crying, "Oh, that I knew where I might find Him!" He will bless your coming in! Go not to your bed, dreaming that you are left an orphan&mdash;neither wake up in the morning with a sense of loneliness upon you&mdash;you are not alone, for the Father is with you!
 
-Will you not feel how good it is that God should come so close to you and handle your bread and your water, and bless your bed and your board? Are you not happy to be allowed to come so close to God, as to say, "My times are in Your hand"? There is a great deal in this first point as to the nearness of the Lord&mdash;and if you will turn it over&mdash;you will see more and more that a conviction that our times are in God's hand tends to create a happy and holy sense of the nearness of God to us.
+Will you not feel how good it is that God should come so close to you and handle your bread and your water, and bless your bed and your board? Are you not happy to be allowed to come so close to God, as to say, "My times are in Your hand?" There is a great deal in this first point as to the nearness of the Lord&mdash;and if you will turn it over&mdash;you will see more and more that a conviction that our times are in God's hand tends to create a happy and holy sense of the nearness of God to us.
 
 THIS TRUTH IS a COMPLETE ANSWER TO MANY a TEMPTATION. You know how craftily Satan will
 

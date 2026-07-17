@@ -76,7 +76,7 @@ Alas, some Christians are, at times, ashamed to acknowledge their Master, but th
 
 You are always most prudent when you cast away all caution and throw yourself upon Jesus, sink or swim! It can never be prudent to doubt Him who is "the Truth," but it is always the highest wisdom to place all in His hands and leave it there for time and for eternity. To risk all with Jesus is to end all risk. Our hymn says&mdash;
 
-"Venture on Him, venture wholly-Let no other trust intrude."
+"Venture on Him, venture wholly Let no other trust intrude."
 
 But, indeed, there is no venturing in it&mdash;it is safe as the Throne of the Eternal! May the Holy Spirit lead you to make a speedy trial of it!
 

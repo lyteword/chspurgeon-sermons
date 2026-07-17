@@ -136,7 +136,7 @@ Fortify your strongholds: go into clay, and tread the mortar, make strong the br
 
 Your shepherds slumber, O king of Assyria. They who should have taken care of the people, the chief governors, neglected them. They who should have defended the people were out of the way when they were needed&mdash;"Your shepherds slumber, O king of Assyria."
 
-Your nobles shall dwell in the dust: your people are scattered upon the mountains, and no man gathers them. Let not the same be said of London. Are there any who can say, "No man cares for my soul"? Let them not be without a helper&mdash;
+Your nobles shall dwell in the dust: your people are scattered upon the mountains, and no man gathers them. Let not the same be said of London. Are there any who can say, "No man cares for my soul?" Let them not be without a helper&mdash;
 
 > Oh, come, let us go and find them!   
 > In the paths of death they roam.   

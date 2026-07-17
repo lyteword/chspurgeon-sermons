@@ -11,7 +11,7 @@ It is not, however, my purpose to explore the mystic truth which is couched bene
 
 He does not send them as a tyrant would send a soldier upon an errand for which he is not capable. Nor does He afterward withhold His succor, forgetful of the straits to which they may be reduced. But He is very careful of His servants and will not let one of them perish. He counts them as the apple of His eye, keeps them at all hours and defends them from all dangers. Why is this? The Lord our God has strong reasons for being thus considerate of His servants. Are they not His children? Is He not their Father? Does He not love them? If all human loves could be put together, they would scarcely make a drop in a bucket compared with the oceans of love which God the Father has towards His children.
 
-All mothers' loves, all the loves of friends, of brothers and of sisters, of husbands and of wives&mdash;if all piled together, would be a molehill, compared with the towering mountain of the Divine love which God the Father has towards His chosen. We are&mdash;and there is no other figure which sets forth the whole length and breadth of that love&mdash;we are as dear to God as His Only-begotten Son, Jesus Christ&mdash;
+All mothers' loves, all the loves of friends, of brothers and of sisters, of husbands and of wives&mdash;if all piled together, would be a molehill, compared with the towering mountain of the Divine love which God the Father has towards His chosen. We are&mdash;and there is no other figure which sets forth the whole length and breadth of that love&mdash;we are as dear to God as His Only begotten Son, Jesus Christ&mdash;
 
 "So dear, so very dear, to God I cannot dearer be; The love wherewith He loves His Son, such is His love for me."
 

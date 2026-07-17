@@ -59,7 +59,7 @@ This Divine complacency leads to a very intense observation of them. "He knows t
 
 sic in this sense. He that knows the stars and knows the infinite multitude of living creatures in the universe, has a special and peculiar knowledge of His own chosen.
 
-"I know them," says He. And He intends, by that, an intense observation. Now, Beloved, just try a little here, to see whether you come into this number&mdash;"I know them." Does the Lord know you as His own? Has He had personal communion with you and you with Him? Or will He have to say to you at the last, "I never knew you"? Why, some of you have made Him know you! You have gone to Him in such trials and in such troubles and you have cried to Him in such bitterness and anguish, that, if He asks your name, you can say&mdash;
+"I know them," says He. And He intends, by that, an intense observation. Now, Beloved, just try a little here, to see whether you come into this number&mdash;"I know them." Does the Lord know you as His own? Has He had personal communion with you and you with Him? Or will He have to say to you at the last, "I never knew you?" Why, some of you have made Him know you! You have gone to Him in such trials and in such troubles and you have cried to Him in such bitterness and anguish, that, if He asks your name, you can say&mdash;
 
 "Once a sinner near despair
 
@@ -93,7 +93,7 @@ No, stop&mdash;He not only gave them life but He sustains that life by a constan
 
 Notice the nature of that life. "I give unto My sheep eternal life." Now, you all know what "eternal" means&mdash;or say, rather, none of you can form an idea of eternity which can grasp all its length of endurance. Only this&mdash;you know it has no end and cannot, therefore, close. If anybody said that he had eternal life and lost it, he would be flatly contradicting himself. It could not be eternal, or else he must still have it. If it is eternal, it is eternal and there is no end to it. And that is an end of further argument about it.
 
-If the life that Christ gives us, when we are born again, can die, it is not "eternal" life, or else words have ceased to have any meaning at all. In its nature, as being the work of the Holy Spirit, and an emanation from God, the life bestowed in regeneration is an undying one. Has not the Holy Spirit described us as "being born again, not of corruptible seed but of incorruptible, by the Word of God, which lives and abides forever"? The life of God imparted by the Holy Spirit must live forever. As the gift is continuous, is always being given, and as it is in itself eternal life, it must always exist.
+If the life that Christ gives us, when we are born again, can die, it is not "eternal" life, or else words have ceased to have any meaning at all. In its nature, as being the work of the Holy Spirit, and an emanation from God, the life bestowed in regeneration is an undying one. Has not the Holy Spirit described us as "being born again, not of corruptible seed but of incorruptible, by the Word of God, which lives and abides forever?" The life of God imparted by the Holy Spirit must live forever. As the gift is continuous, is always being given, and as it is in itself eternal life, it must always exist.
 
 But, principally, I dwell upon the glorious character of the Giver. "I give unto My sheep eternal life." The life that Christ gives is not that poor, paltry life which lasts the professor for about three weeks and then dwindles down and dies out. Or, say, three months and then the revival is over and the convert is spun out and done for and has to begin again. Such is the religious life which is excited by men. But it is not so with the life which comes from God.
 
@@ -125,7 +125,7 @@ Now we must go a step farther. We have no time to urge these arguments at any gr
 
 So, first, here is their security&mdash;they are in His hands. That is, in His possession and He grasps them, as a man holds a thing in his hand and says, "It is mine." Neither shall any take them away from being under His protection. Never shall they be plucked away from Christ. When He says this, He pledges His honor to preserve them, for if it could be that one were plucked out of His hand, then would the devils in Hell rejoice and say, "He could not keep them. He said that He would, but He could not. We have managed to pluck this one, or that one, out of the pierced hand of their Redeemer." But such a horrible exultation shall never be heard throughout the ages of eternity.
 
-"They shall never perish, neither shall any pluck them out of My hand." Someone wickedly said, "They may get out of His hand themselves." But how can this be true, when the first sentence is, "They shall never perish"? Treat Scripture honestly and candidly and you will admit that the promise, "they shall never perish," shuts out the idea of perishing by
+"They shall never perish, neither shall any pluck them out of My hand." Someone wickedly said, "They may get out of His hand themselves." But how can this be true, when the first sentence is, "They shall never perish?" Treat Scripture honestly and candidly and you will admit that the promise, "they shall never perish," shuts out the idea of perishing by
 
 going out of the Lord's hand by their own act and deed. "They shall never perish, neither shall any pluck them out of My hand." Who is to loosen the clasp of that hand which was pierced with the nail for me? My Lord Jesus bought me too dearly ever to let me go. He loves me so well that His whole omnipotence will work with that hand, and unless there is something greater than Godhead, I cannot be plucked away from that dear, fast-holding grip.
 
@@ -145,7 +145,7 @@ Oh, the serene security of those who hear the voice of Christ and whom He calls 
 
 And then the Savior finishes all by saying that, while He has spoken of the Father and Himself as two and two as they are as Persons&mdash;yet in their Divine Essence they are but One. He says, "I and My Father are One." And especially One in love to His people. "The Father Himself loves you," even as He loves His Son. And, while you read the love of Christ in His death, you must read the Father's love quite as much in that great sacrifice. It is true of our Lord Jesus that&mdash;"He loved the Church and gave Himself for it." But it is equally true of the Father&mdash;"God so loved the world, that He gave
 
-His Only-Begotten Son."
+His Only Begotten Son."
 
 They are one in an infinite love to all those who, called according to the Divine purpose, are following Christ and hearing His voice. I fall back with great joy upon this blessed conviction&mdash;that He will not suffer those to perish who have received eternal life at His hands. Of course, if you have only taken temporary life&mdash;if you only believe in that&mdash;you will get no more than you believe. Your gift will be measured by your faith. But if you say, "I gave myself up to Christ
 

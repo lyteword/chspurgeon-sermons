@@ -16,7 +16,7 @@ Our privileged lot is described in the text as a cup and a view of that happy po
 
 All your former confidences were as deceitful brooks which fly before the hot breath of summer. The wells of pleasure were empty and you were in a parched land where hope smiled not. Your former delights proved to be but a mirage, fair to look upon, but unsubstantial as a dream. You crouched at the foot of Sinai and even presumptuously attempted to climb its ragged sides&mdash;but you failed to find a drop of water there. Do you remember when Christ said to you&mdash;
 
-"Behold, I freely give Living water, thirsty one, Stoop down and drink and live"? Oh, what a change for you! You thirst no longer, for within your soul Jesus has an ever-springing well of living water. You believe in Him and all the cravings of your nature are supplied. Think of the full cup which Jesus holds to
+"Behold, I freely give Living water, thirsty one, Stoop down and drink and live?" Oh, what a change for you! You thirst no longer, for within your soul Jesus has an ever-springing well of living water. You believe in Him and all the cravings of your nature are supplied. Think of the full cup which Jesus holds to
 
 your lips&mdash;contrast it with your former poverty when you were ready to perish in despair&mdash;and rejoice this morning that you have a royal cup to drink of which will never fail you. Time was, too, when you were in something more than need&mdash;you were in a degradation whose remembrance crimsons your cheek. Your riotous living ended in a mighty famine and you gladly would have filled your belly with the husks that swine did eat.
 

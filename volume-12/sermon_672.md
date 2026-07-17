@@ -51,7 +51,7 @@ Then, in the next place, there is a great deal of difference between your cry an
 
 But you know what you need, and few as your words are, your heart knows its own bitterness and dire distress. Your sighs and groans have an obvious meaning. Your understanding is at the right hand of your hungry heart. You know that you want peace and pardon. You know that you need Jesus, His precious blood, His perfect righteousness. Now, if
 
-God hears such a strange, chattering, indistinct cry as that of a raven, don't you think that He will also hear the rational and expressive prayer of a poor, needy, guilty soul who is crying unto Him, "God be merciful to me a sinner"? Surely your reason tells you that!
+God hears such a strange, chattering, indistinct cry as that of a raven, don't you think that He will also hear the rational and expressive prayer of a poor, needy, guilty soul who is crying unto Him, "God be merciful to me a sinner?" Surely your reason tells you that!
 
 Moreover, the young ravens cannot use arguments, for they have no understanding. They cannot say as you can&mdash;
 
@@ -93,7 +93,7 @@ Possibly you doubt whether natural cries are heard by God. Let me assure you tha
 
 Straightway the men of war took to their heels&mdash;no defeat was more thorough&mdash;and for once in their lives they must have felt that they might possibly err! Surely, Brethren, this may encourage and comfort you! I am not going to set you just now to the task of finding out whether your prayers are natural or spiritual&mdash;whether they come from God's Spirit or whether they do not&mdash;because that might, perhaps, discourage you. If the prayer proceeds from your very heart, we know how it got there, though you may not. God hears the ravens, and I do believe He will hear you, and I believe, moreover, though I do not now want to raise the question in your heart, that He hears your prayer, because&mdash; though you may not know it&mdash;there is a secret work of the Spirit of God going on within you which is teaching you to pray.
 
-But I have mightier arguments and nearer the mark. When the young ravens cry, they cry alone. But when you pray you have a mightier One than you praying with you! Hear that sinner crying, "God be merciful to me a sinner"? Hark! Do you hear that other cry which goes up with his? No, you do not hear it because your ears are dull and heavy, but God hears it. There is another voice, far louder and sweeter than the first, and far more prevalent, mounting up at the same moment and pleading, "Father, forgive them through My precious blood."
+But I have mightier arguments and nearer the mark. When the young ravens cry, they cry alone. But when you pray you have a mightier One than you praying with you! Hear that sinner crying, "God be merciful to me a sinner?" Hark! Do you hear that other cry which goes up with his? No, you do not hear it because your ears are dull and heavy, but God hears it. There is another voice, far louder and sweeter than the first, and far more prevalent, mounting up at the same moment and pleading, "Father, forgive them through My precious blood."
 
 The echo to the sinner's whisper is as majestic as the thunder's peal! Never sinner prays truly without Christ praying at the same time! You cannot see nor hear Him, but never does Jesus stir the depths of your soul by His Spirit without His soul being stirred, too. Oh, Sinner, your prayer, when it comes before God, is a very different thing from what it is when it issues forth from you!
 

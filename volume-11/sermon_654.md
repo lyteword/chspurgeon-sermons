@@ -81,7 +81,7 @@ At the south of Africa the sea was generally so stormy that when the frail boats
 
 Say with David, "Why are you cast down, O my Soul, why are you disquieted in me? Hope you in God, for I shall yet praise Him." Do I not remember this day some hills Mizar where my soul has had such sweet fellowship with God that she thought herself in Heaven? Can I not remember moments of awful agony of soul when in an instant my spirit leaped to the topmost heights of ecstasy at the mention of my Savior's name? Have there not been times with me at the Lord's Table, in private prayer and in listening to His Word, when I could say&mdash;
 
-"My willing soul would stay In such a frame as this, And sit and sing herself away, To everlasting bliss"? Vell, let me remember this and have hope, for&mdash; "Did Jesus once upon me shine, Then Jesus is forever mine."
+"My willing soul would stay In such a frame as this, And sit and sing herself away, To everlasting bliss?" Vell, let me remember this and have hope, for&mdash; "Did Jesus once upon me shine, Then Jesus is forever mine."
 
 He never loved where He afterwards hates. His will never changes. It is not possible that He who said, "I have engraved you upon the palms of My hands," should ever forget or cast away those who once were dear to Him.
 

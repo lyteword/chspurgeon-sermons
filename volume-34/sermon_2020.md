@@ -99,7 +99,7 @@ This clears the deck of every doubt that would board your vessel. This is the bl
 
 Having led you thus far, I now would have you follow me in something practical, namely, APPLYING IT IN DETAIL. The text says, "Is anything too hard for Me?" Apply this question to the justification of your obedience. When
 
-you know what is right it will happen, more often than not, that to do right will be costly or at least risky&mdash;and if you judge after the manner of worldly-wise men you will consider yourselves likely to be losers by obeying God. You may lose friends, reputation, assistance and peace. This question of loss is answered at once by this fact&mdash;if you do what God bids you&mdash;the responsibility of your conduct lies with Him and He will bear you through. "Is anything too hard for the
+you know what is right it will happen, more often than not, that to do right will be costly or at least risky&mdash;and if you judge after the manner of worldly wise men you will consider yourselves likely to be losers by obeying God. You may lose friends, reputation, assistance and peace. This question of loss is answered at once by this fact&mdash;if you do what God bids you&mdash;the responsibility of your conduct lies with Him and He will bear you through. "Is anything too hard for the
 
 Lord?"
 

@@ -86,7 +86,7 @@ Genesis 45:1, 2. Then Joseph could not refrain himself before all them that stoo
 
 2, 3. And the Egyptians and the house of Pharaoh heard. And Joseph said unto his brethren, I am Joseph; does my father yet live? And his brethren could not answer him for they were troubled at his presence. What a rush of thoughts must have passed through their minds when they remembered all their unkind behavior toward him! There is no wonder that "they were troubled at his presence."
 
-And Joseph said unto his brethren, Come near to me, I pray you. He pleads with them. He who was far greater than they&mdash;a prince among peasants&mdash;now prays to them! And is it not amazing that the Lord Jesus, our infinitely-greater Brother, at times pleads with us, even as He said to the woman at the well, "Give Me to drink"? Joseph said unto his brethren, "Come near to me, I pray you."
+And Joseph said unto his brethren, Come near to me, I pray you. He pleads with them. He who was far greater than they&mdash;a prince among peasants&mdash;now prays to them! And is it not amazing that the Lord Jesus, our infinitely greater Brother, at times pleads with us, even as He said to the woman at the well, "Give Me to drink?" Joseph said unto his brethren, "Come near to me, I pray you."
 
 4, 5, And they came near Andhe said, Iam Joseph your brother, whom you soldinto Egypt Now therefore be not grieved, nor angry with yourselves, that you sold me here: for God did send me before you to preserve life. "You did very wrong, but I say nothing about that, for I want you to notice how God has overruled your action, how your sin has been made to be the means of your preservation and the preservation of many besides. 'God did send me before you to preserve life.'"
 
@@ -110,7 +110,7 @@ Your love is better than wine. Because of the savor of Your good ointments Your 
 
 6, 7. Look not upon me, because Iam black, because the sun has looked upon me: my mother's children were angry with me; they made me the keeper of the vineyards, but my own vineyard have I not kept Tell me, O You whom my soul loves, where You feed.&mdash;Still is there that same craving for nearness to the Beloved. Since we love Christ, we desire to be with Him. We cannot bear His absence. "Tell me, O You whom my soul loves, where You feed."
 
-Where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions?See, dear Friends, how this same seeking after the Beloved comes out in another shape in the third chapter of the Song.
+Where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions? See, dear Friends, how this same seeking after the Beloved comes out in another shape in the third chapter of the Song.
 
 Song of Solomon 3:1. By night on my bed Isought Him whom my soul loves: I sought Him, but I foundHim not. Sometimes, the most eager search does not at once obtain its end. For wise reasons, Christ sometimes hides Himself from His seeking people.
 

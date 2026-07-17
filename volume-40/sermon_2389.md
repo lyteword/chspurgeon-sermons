@@ -148,7 +148,7 @@ When You with rebukes correct man for iniquity, You make his beauty to consume a
 
 Surely every man is vanity. Selah. In the fifth verse, you see that when the Psalmist reached that point, he stopped, and said, "Selah," and he does so, again, here. Striking his music with a heavy hand&mdash;he has put it out of tune, again, so he pauses and begins to tighten the strings up once more. You and I often need to be tightened up like the strings of a harp, to put us in right order before we go on to praise or to pray.
 
-Hear my prayer, O LORD, and give ear unto my cry. See how David's "prayer" grows into a "cry"? It deepens in intensity&mdash;there is more power in a cry than in an ordinary prayer&mdash;it shows more earnestness and implies greater urgency! "Hear my prayer, O Lord, and give ear unto my cry."
+Hear my prayer, O LORD, and give ear unto my cry. See how David's "prayer" grows into a "cry?" It deepens in intensity&mdash;there is more power in a cry than in an ordinary prayer&mdash;it shows more earnestness and implies greater urgency! "Hear my prayer, O Lord, and give ear unto my cry."
 
 Hold not Your peace at my tears. That is a still more powerful mode of pleading. Tears are the irresistible weapons of weakness. Women, children, beggars and sinners can all conquer by tears&mdash;when they can win by nothing else! If they will take to these pearly drops and especially if they can look through them to the crimson drops of a Savior's blood, they can win what they will of God&mdash;"Hold not Your peace at my tears."
 

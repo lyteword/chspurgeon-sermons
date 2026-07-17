@@ -103,7 +103,7 @@ Another reason why we trust Christ is because we conceive that the merit of His 
 
 Can you see the Son of God agonizing in the garden? Your Maker lies on the ground. Can you see Him taken before Herod and Pilate, and there mocked and scourged and spit upon? Can your eyes endure to see that spectacle of grief when the plowers made deep furrows on His blessed back? Can you believe that He is very God of very God, and yet is suffering thus? Can you see Jehovah grind Him to powder between the upper and the nether millstone of His wrath?
 
-Can you hear Him say, "It is finished"? Can you mark the fearful shriek of "Eloi! Eloi! Lama Sabacthani?" Can you believe that this is the Son of God&mdash;standing for sinners and suffering all this weight of wrath and punishment for us&mdash; and yet think that He is not worthy of being trusted to do that for which He died?
+Can you hear Him say, "It is finished?" Can you mark the fearful shriek of "Eloi! Eloi! Lama Sabacthani?" Can you believe that this is the Son of God&mdash;standing for sinners and suffering all this weight of wrath and punishment for us&mdash; and yet think that He is not worthy of being trusted to do that for which He died?
 
 Oh, Sinner! Let me tell you, when I heard it said to me, "Look unto Christ and be saved," I did look and when I saw God suffering for me, the perfect Son of man bleeding for me&mdash;the Immaculate and Innocent One afflicted for me&mdash;and Jehovah Himself suffering for me in the Person of His own dear Son, I could not help believing!
 

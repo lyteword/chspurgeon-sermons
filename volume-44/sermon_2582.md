@@ -104,7 +104,7 @@ And they had no child, because that Elizabeth was barren, and they both were now
 
 "'Tis all my business here below To cry, 'Behold the Lamb.'" And in this way we may be partakers of John the Baptist's joy!
 
-18-20. AndZacharias said unto the angel, How shall I know this?For Iam an oldman, andmy wife welladvanced in years. And the angel answering said unto him, I am Gabriel that stands in the Presence of God; and am sent to speak unto you, and to show you these glad tidings. And, behold, you shall be dumb, and not able to speak until the day that these things&mdash;These glad tidings&mdash;
+18-20. AndZacharias said unto the angel, How shall I know this? For Iam an oldman, andmy wife welladvanced in years. And the angel answering said unto him, I am Gabriel that stands in the Presence of God; and am sent to speak unto you, and to show you these glad tidings. And, behold, you shall be dumb, and not able to speak until the day that these things&mdash;These glad tidings&mdash;
 
 Shall be performed, because you believe not my words, which shall be fulfilled in their season. Many a child of God is dumb because of unbelief. Mary believed and, therefore, she sang a holy, joyous song&mdash;a sweet canticle of delight&mdash;"My soul does magnify the Lord." But Zacharias, because of his unbelief, was unable to speak. I wonder whether there is a man here who might have spoken for his God with power, but whose mouth is closed because of his unbelief? If so, may the Lord hasten the time when his dumbness shall be ended!
 

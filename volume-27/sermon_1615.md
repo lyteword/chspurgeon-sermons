@@ -14,7 +14,7 @@ I do not say that those who know the Lord are always happy, but I say that they 
 
 "I have been there and still will go 'Tis like a little Heaven below."
 
-I would not be kept away, or bought out of the House of God by all that could be offered me. I believe that Sunday should be spent in recreation! You are dreadfully shocked and well you may be&mdash;but what do I mean by, "recreation"? It means creating us over anew! Oh, that everybody who talks about spending Sunday in recreation would know the meaning of the word, "recreation," and would come to be re-created, regenerated, renewed, refreshed, invigorated, strengthened, revived and made to rejoice in God! The Lord's Day is the highest hill of the week! On that day we stand on tiptoe
+I would not be kept away, or bought out of the House of God by all that could be offered me. I believe that Sunday should be spent in recreation! You are dreadfully shocked and well you may be&mdash;but what do I mean by, "recreation?" It means creating us over anew! Oh, that everybody who talks about spending Sunday in recreation would know the meaning of the word, "recreation," and would come to be re-created, regenerated, renewed, refreshed, invigorated, strengthened, revived and made to rejoice in God! The Lord's Day is the highest hill of the week! On that day we stand on tiptoe
 
 on Pisgah and look to "the rest which remains for the people of God!" It is the type of that everlasting Sabbath which remains for the people of God.
 

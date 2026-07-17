@@ -79,7 +79,7 @@ There is, moreover, a union of mutual necessity between the members and the head
 There is, farther, between the head and the members a union of nature. I will not attempt to describe the chemical composition of human flesh, but it is quite clear that my head is made of the same flesh as my members. There is no difference between the flesh of one and the flesh of the other. So, though our Covenant Head is now in Heaven and His feet are on earth, yet Christ is still so one by nature with His people, that He is very Man of very Man, as much as He is very God of very God! If you deny His Humanity, I do not think you will long hold His Divinity. And if you deny His Deity, you have sadly destroyed the perfection of His Humanity&mdash;for He is a perfect Man&mdash;He could not be if He so acted as to make men think that He was God, when He was not! To us He is God-Man in one Person, whom we love and adore! His Nature is the same as our nature and we are joined to Him forever&mdash;
 
 > Lord Jesus, are we ONE with Thee.9   
-> Oh, height!Oh depth of love!   
+> Oh, height! Oh depth of love!   
 > With You we died upon the tree,   
 > In You we live above.   
 > Oh, teach us, Lord, to know and own   
