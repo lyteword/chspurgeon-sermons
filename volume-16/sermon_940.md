@@ -92,7 +92,7 @@ Now if I have to speak of such sins as these that are common among ungodly men, 
 
 A moral man does not swear, but a holy man adores. A moral man would not commit outward sin. A holy man would not commit inward sin&mdash;and over that inward sin, if committed&mdash;he would pour forth floods of tears. I can hardly explain to you the word "holy," except by calling you to notice that it comes from the same Saxon root as the words "heal," "whole," and "all." A man who is made spiritually whole is a complete man, all the virtues are there. His heart is right as well as his outward acts. Heal, all, whole, wholly, holy, by these steps you reach the word. A holy man aims to be like God, complete in His Character, motives, and thoughts&mdash;renewed after the image of Him that created Him in righteousness and true holiness.
 
-Did not that word stagger you as I read the chapter this morning? Was not that a wonderful expression? "Partakers of His holiness"? That you and I should share in the holiness of God&mdash;is not this a lofty thing? And yet we must have no less than this, for without it we shall not see God. "This is a hard saying," says one, "you judge us too severely." Breth-
+Did not that word stagger you as I read the chapter this morning? Was not that a wonderful expression? "Partakers of His holiness?" That you and I should share in the holiness of God&mdash;is not this a lofty thing? And yet we must have no less than this, for without it we shall not see God. "This is a hard saying," says one, "you judge us too severely." Breth-
 
 ren, I judge you not, it is God's Word that judges, and I pray you regard its infallible utterance&mdash;"Without holiness no man shall see the Lord."
 

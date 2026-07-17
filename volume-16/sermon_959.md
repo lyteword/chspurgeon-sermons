@@ -122,7 +122,7 @@ Now for our last point. THE BEST OF PRAYERS, WHICH IS SURE TO BE HEARD, IS ALSO 
 
 COMPREHENSIVE ONE. Turn to the parallel passage in the Gospel of Matthew (7:11). Note that Matthew says nothing about the egg. And then read the eleventh verse, "If you being evil know how to give good gifts unto your children, how much more shall your Father which is in Heaven give good things to them that ask Him?"
 
-Now what does our text say, "How much more shall your heavenly Father give the Holy Spirit to them that ask Him?" Is it not clear then that the Holy Spirit is the equivalent for "good things," and that, in fact, when the Lord gives us the Holy Spirit He gives us all "good things"? What a comprehensive prayer, then, is the prayer for the Spirit of God!
+Now what does our text say, "How much more shall your heavenly Father give the Holy Spirit to them that ask Him?" Is it not clear then that the Holy Spirit is the equivalent for "good things," and that, in fact, when the Lord gives us the Holy Spirit He gives us all "good things?" What a comprehensive prayer, then, is the prayer for the Spirit of God!
 
 Dear Brothers and Sisters, sit down with pencil in hand and a sheet of blank paper before you, and write down all your spiritual wants. I will judge of your wisdom by the length of the list&mdash;for if you know yourself you will find you have not done yet&mdash;you are a great mass of wants. To pray for all these things separately might seem a very long exercise. My dear Brethren, just take the pencil, and do as the school boys do when they add up the total of their sums. You will find it all adds to this&mdash;the Holy Spirit.
 

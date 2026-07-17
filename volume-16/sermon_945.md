@@ -132,7 +132,7 @@ As Martin Luther said of certain men in his day, these inventors of new doctrine
 
 But their fathers have work to do abroad, and their mothers have other matters at home. Your drum and whistle will not draw them out. For the solidity of the Church, for her steadfastness in the faith, for her defense against the constantly recurring attacks of heretics and infidels. For her permanent advance and the seizing of fresh provinces for Christ
 
-we want not only your young, hot bloods, which may God always send to us, for they are of immense service and we cannot do without them. But we need also the cool, steady, well-disciplined, deeply-experienced hearts of men who know by experience the Truth of God. Those that hold fast what they have learned in the school of Christ. May the Lord our God, therefore, send us many such. They are wanted.
+we want not only your young, hot bloods, which may God always send to us, for they are of immense service and we cannot do without them. But we need also the cool, steady, well-disciplined, deeply experienced hearts of men who know by experience the Truth of God. Those that hold fast what they have learned in the school of Christ. May the Lord our God, therefore, send us many such. They are wanted.
 
 And now I shall close by calling your attention to THE GREAT SOLEMNITY OF THE SUBJECT. We have
 
