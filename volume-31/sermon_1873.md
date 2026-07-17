@@ -8,7 +8,7 @@ In her extremity, the guilty nation began to cry to Jehovah, her God, and the an
 
 With a handful of men, he is quite prepared to go against a host of adversaries, but he pines for a sign. Again and again he asks for it. The anxious question seems to be constantly recurring to him, "Is the Lord with us? If the Lord is with us, where are all His miracles which our fathers told us of, saying, Did not the Lord bring us up from Egypt?" Therefore his frequent prayer is, "If now I have found Grace in Your sight, show me a sign." He began with this, and this ill beginning colored his whole career. I have known many persons like this son of Joash&mdash;they say, "Let me but know that God is with me and my fear is gone." But their repeated question is, "Is the Lord with me? Is Jesus mine and am I His? Let me but know that I am a true Believer and I am sure that I shall not perish, for God will not forsake His own&mdash; but then, am I a Believer? Have I the marks and evidences of a child of God?"
 
-Hence the practice of severe self-examination and therefore,, also, the weakening habit of craving for tokens and feelings. How many are crying, "We see not our signs," when they ought to say, "But we see Jesus!"? How many are praying, "Show me a token for good," when the Lord Jesus has given Himself for them and has, thereby, given the best token of His Grace?
+Hence the practice of severe self-examination and therefore,, also, the weakening habit of craving for tokens and feelings. How many are crying, "We see not our signs," when they ought to say, "But we see Jesus!?" How many are praying, "Show me a token for good," when the Lord Jesus has given Himself for them and has, thereby, given the best token of His Grace?
 
 So it happened to Gideon, that the Lord, knowing his hunger for signs and yet knowing the sincerity of his faith, bade him, on the night of the great battle which was to rout Midian, go down as a spy into the camp with his servant. And there Gideon would receive a token for good which would effectually quiet all his fears.
 
@@ -98,7 +98,7 @@ The hosts of Israel are melting away and they will melt much more. As in Gideon'
 
 Another lesson would I draw from the text as to our inward conflicts. Dear Friend, you are feeling in your heart the great power of sin. The Midianites are encamped in your soul. In the little valley of Esdraelon which lies within your bosom, there are countless evils and these, like the locusts, eat up every growing thing and cause comfort, strength and joy to cease from your experience. You sigh because of these invaders. I counsel you to try what faith can do. Your own earnest efforts appear to make you worse&mdash;try faith! Neither tears, nor prayers, nor vows, nor self-denials have dislodged the foe&mdash;try the barley cake of faith! Believe in the Lord Jesus Christ! In Him you are saved! In Him you have power to become a child of God! Believe this and rejoice. Poor sinner, try faith! Poor backslider, try faith! Poor desponding heir of Heaven, try faith! This barley cake of faith will smite the power of sin, break the dominion of doubt and bring you victory!
 
-Remember that ancient Scripture, "Call upon Me in the day of trouble, and I will deliver you, and you shall glorify Me"? Make bold to believe! Say at once&mdash;
+Remember that ancient Scripture, "Call upon Me in the day of trouble, and I will deliver you, and you shall glorify Me?" Make bold to believe! Say at once&mdash;
 
 "I do believe, I will believe, That Jesus died for me."
 
