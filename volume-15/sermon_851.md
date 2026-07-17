@@ -15,7 +15,7 @@ Understand that if anything is one with a man, actually one with that man, it st
 > So near, so very near to God, We cannot nearer be, For in the Person of His Son,   
 > We are as near as He.   
 
-The other key word of the text is, "by the blood of Christ." If it is asked what power lies in the blood to bring near, it must be answered, first, that the blood is the symbol of the Covenant. Ever in Scripture when covenants are made, victims are offered and the victim becomes the place and ground of approach between the two covenanting parties. The blood of our Lord Jesus Christ is expressly called, "the blood of the Everlasting Covenant," for God comes in Covenant near to us by the blood of His only-begotten Son. Every man whose faith rests upon the blood of Jesus slain from before the
+The other key word of the text is, "by the blood of Christ." If it is asked what power lies in the blood to bring near, it must be answered, first, that the blood is the symbol of the Covenant. Ever in Scripture when covenants are made, victims are offered and the victim becomes the place and ground of approach between the two covenanting parties. The blood of our Lord Jesus Christ is expressly called, "the blood of the Everlasting Covenant," for God comes in Covenant near to us by the blood of His only begotten Son. Every man whose faith rests upon the blood of Jesus slain from before the
 
 foundations of the world is in Covenant with God and that Covenant becomes to him most sure and certain because it has been ratified by the blood of Jesus Christ and therefore can never be changed or disannulled.
 
