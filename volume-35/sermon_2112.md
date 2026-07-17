@@ -39,7 +39,7 @@ God is with him in his loneliness and among the multitude&mdash;God is above him
 
 If you live a blundering, careless, godless life, you will have much tossing to and fro and many questionings of heart. "There is no peace," says my God, "unto the wicked." But to His people, His saintly ones, His sanctified ones, the people who follow after righteousness&mdash;to these the Lord Himself will secure peace by His own word of mouth.
 
-Do I hear anyone saying, "Alas, I could not venture to be classed with saints"? Listen one minute&mdash;these people, though they are now God's people, and though they are now made saintly by His Grace&mdash;were once given over to folly. How do I know this? Because the text says, "Let them not turn again to folly"&mdash;which shows that once they did follow after folly. Once they followed sin with all their hearts. They knew not God, neither served Him. But they have been turned away from folly, sin and shame&mdash;a change, a conversion has taken place in them, by the Grace of God.
+Do I hear anyone saying, "Alas, I could not venture to be classed with saints?" Listen one minute&mdash;these people, though they are now God's people, and though they are now made saintly by His Grace&mdash;were once given over to folly. How do I know this? Because the text says, "Let them not turn again to folly"&mdash;which shows that once they did follow after folly. Once they followed sin with all their hearts. They knew not God, neither served Him. But they have been turned away from folly, sin and shame&mdash;a change, a conversion has taken place in them, by the Grace of God.
 
 Therefore, dear Hearer, let not your past foolishness dismay you, if you would now come to God. Fool as you may have been, the Lord is turning you from folly. And if He brings you to be numbered among His people and His holy ones, He will speak peace to you. I think I hear one say, "I have turned away from folly but I feel that there is in my heart a
 
@@ -129,7 +129,7 @@ It is just the same with these intellectual difficulties. You may, by overcoming
 
 I am going no further than that which the Holy Spirit has taught me through the infallible Word of God. What is more, I am not going to waste my time by reading what every doubter may please to write. I have had enough of these
 
-poisonous drugs, and will have no more. Does anyone say, "We ought to read everything"? No! No! If I go out to dinner and there should happen to come to table a steak that is far gone, I let it alone. When the knife goes into it, the perfume betrays it and I do not pass my plate up for a portion.
+poisonous drugs, and will have no more. Does anyone say, "We ought to read everything?" No! No! If I go out to dinner and there should happen to come to table a steak that is far gone, I let it alone. When the knife goes into it, the perfume betrays it and I do not pass my plate up for a portion.
 
 Others may carve slices from the carrion of unbelief. But having long eaten sweet Gospel food, I cannot bring my soul to feed on that which is unholy and only fit for dogs. That which denies Scripture and dishonors the blood of the Lord Jesus is more fit for burning than reading. If you have once been staggered by modern thought, do not turn again to that folly. Be not like silly people, who seem to fall down in the mud for the sake of being brushed. Why desire to be befogged and bewildered for the sake of getting set in the right way after long straying?
 

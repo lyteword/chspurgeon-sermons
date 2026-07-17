@@ -35,7 +35,7 @@ scarcer now than they were then&mdash;&mdash;-and I do not feel inclined to run 
 
 The burden which the true preacher of God bears is for God, and on Christ's behalf, and for the good of men. He has a natural instinct which makes him care for the souls of others and his anxiety is that none should perish but that all should find salvation through Jesus Christ. Like the Christ who longed to save, so does the true Malachi, or messenger of
 
-God, go forth with this as his happy, joyful, cheerfully-borne burden&mdash;&mdash;-that men may turn unto God and live. Yet, it is a
+God, go forth with this as his happy, joyful, cheerfully borne burden&mdash;&mdash;-that men may turn unto God and live. Yet, it is a
 
 burden, for all that. And of that I am going to speak to you. Much practical Truth of God will come before us while we speak of ''the burden of the Word of the Lord.'' Pray that the Holy Spirit may bless the meditation to our hearts.
 

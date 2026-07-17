@@ -57,7 +57,7 @@ Human nature is restive under the yoke of the Law. Its shoulder will not endure 
 
 This is a very sad and dangerous state of things. Every chastisement which ends in chastisement&mdash;and produces no salutary fruit&mdash;not only involves solemn responsibility but it casts a sevenfold blackness over future guilt. He that goes astray over the thorn-hedge of affliction is not likely to return. May God save us from unsanctified chastisements, for they are full often the outriders of destruction! "He, that being often reproved hardens his neck, shall suddenly be destroyed, and that without remedy."
 
-Ephraim feels this and fears the result of having been thus obstinate towards God. Was there not grave reason for fear? If the fire will not separate the dross from the lump of ore, what is to be done with it, but to cast it away as reprobate? What is the Lord to say to those whom He has chastised in vain but this&mdash;"Ephraim is joined unto his idols: let him alone"? If the rampant young bullock will not bear the yoke, bring forth the axe. That which will not bend shall break&mdash;that which cannot be mended must be thrown away.
+Ephraim feels this and fears the result of having been thus obstinate towards God. Was there not grave reason for fear? If the fire will not separate the dross from the lump of ore, what is to be done with it, but to cast it away as reprobate? What is the Lord to say to those whom He has chastised in vain but this&mdash;"Ephraim is joined unto his idols: let him alone?" If the rampant young bullock will not bear the yoke, bring forth the axe. That which will not bend shall break&mdash;that which cannot be mended must be thrown away.
 
 Yet there is something better than this. The mourner in our text despairs of all but God. He cannot turn himself and chastisement will not turn him. He has no hope left but for God Himself to interpose. "Turn You me and I shall be turned." Lord, You did send a fever&mdash;it has burnt me but it has not melted me! Let Your love do what Your furnace could not! Lord Jesus, come Yourself and melt this iron heart! Lord, You have sent death and he has frightened me, but he has not changed me!
 
@@ -77,7 +77,7 @@ Thus I have dimly described the man at the turning point. And it only remains to
 
 Secondly, let us hear MAN AFTER THE TURNING POINT. Here you have the description in the nineteenth verse. It begins with "Surely." Is it not very remarkable that each of these verses should be stamped with the hallmark,
 
-and each one bear the word, "surely"? The Lord said He had "surely heard Ephraim bemoaning himself." And here Ephraim says, "Surely after that I was turned, I repented."
+and each one bear the word, "surely?" The Lord said He had "surely heard Ephraim bemoaning himself." And here Ephraim says, "Surely after that I was turned, I repented."
 
 See, before us, prayer mixed with faith soon answered. Not many moments after Ephraim had said, "You are the Lord, my God," he felt that he was turned. He treats it as a matter of fact and speaks of "after that I was turned." There is a sacred moment in the life of the chosen of God in which he is turned. I do not think that every man can tell when that turning took place. But it did take place in the case of every saved one.
 
@@ -109,7 +109,7 @@ What the man could once boast of, he could not now mention without disgust. He c
 
 Lastly on this point, memory now comes in and revives the reproach of youth. Memory is a very terrible torture to a guilty heart. "Son, remember!" is one of the voices heard in Hell. "I was ashamed, yes, even confounded, because I did bear the reproach of my youth." The formerly forgetful man now recollects what he used to be in years gone by. How convenient it is to forget. But how damnable! Forgotten sin steels the heart and blinds the conscience&mdash;and so destroys the soul.
 
-Ephraim had forgotten his green and foolish years when he was in the first fury of his sinful madness. Do you say to me, "I was sowing my wild oats then"? I answer, "You were sowing and soon will come the time for reaping." Go down, now, to the field and see what has come of your random life! Wild oats are seldom barren. I have known them grow up into a harvest of unquenchable flames! God has not forgotten your youthful provocation.
+Ephraim had forgotten his green and foolish years when he was in the first fury of his sinful madness. Do you say to me, "I was sowing my wild oats then?" I answer, "You were sowing and soon will come the time for reaping." Go down, now, to the field and see what has come of your random life! Wild oats are seldom barren. I have known them grow up into a harvest of unquenchable flames! God has not forgotten your youthful provocation.
 
 Ah, when memory is awake, it piles huge piles of firewood upon the fires of remorse and the flame rises to the heavens. It is a great reproach to a man to have been a rebel in his youth&mdash;it shows how ingrained a traitor he is. I can only compare the sinner with a quickened memory to one who is traveling across the plains of Russia dreaming in his carriage and all of a sudden he is aroused by the sharp bark of a wolf behind him. And this is followed up by a thousand cruel voices of brutes, hungry and gaunt and grim, all eager for his blood.
 

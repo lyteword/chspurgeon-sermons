@@ -159,6 +159,6 @@ Then will come a thousand years of perfect peace and rest, and joy and glory. An
 
 "Far from a world of grief and sin, With God eternally shut in." Oh, this will be to be filled with righteousness!
 
-My Hearers, you will never be filled unless you hunger first. You must hunger and thirst here, that you may be filled hereafter. If you are hungering and thirsting, what should you do? Look to Jesus, for He alone can satisfy you. Believe on our Lord Jesus Christ. Believe on Him now, for He is made of God unto us righteousness. And if you want righteousness you will find it in the Lord Jesus Christ, the Only-Begotten Son of God.
+My Hearers, you will never be filled unless you hunger first. You must hunger and thirst here, that you may be filled hereafter. If you are hungering and thirsting, what should you do? Look to Jesus, for He alone can satisfy you. Believe on our Lord Jesus Christ. Believe on Him now, for He is made of God unto us righteousness. And if you want righteousness you will find it in the Lord Jesus Christ, the Only Begotten Son of God.
 
 I am sure those dear Friends who called out so loudly just now, will join with me in crying out from the heart, "AMEN! AMEN!" May everybody here begin to hunger and thirst after righteousness at once. Let us all say, "AMEN."
