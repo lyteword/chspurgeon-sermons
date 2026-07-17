@@ -145,6 +145,6 @@ Friends! Are you trusting in Christ? My Hearers, many of you are perfect strange
 
 Lastly, they say to us, as they look down from the battlements of Heaven&mdash;Are you getting ready to join our ranks, to take up our occupations and to sing our songs? Answer for yourself, my Brothers and Sisters, as I must answer for myself. Are you living for your own pleasure? Then you must die. For, "he that sows to the flesh, shall of the flesh reap corruption." Are you living for Christ? Then shall you live, "because He lives you shall live also." Are you a priest to God today? You shall bear the golden bowl in Heaven. Are you instead a servant of your own body, your own lusts, your own gain, your own pleasure? Then the lowest depths must be your portion. Heaven is "a prepared place for a prepared people." Are we prepared?
 
-Brothers, Sisters, can we say, "We hope in Christ. He is our only trust." And do we endeavor to live to Him? And though with many failings and frailties, yet can we still say, "For me to live is Christ"? Oh, if it is so,
+Brothers, Sisters, can we say, "We hope in Christ. He is our only trust." And do we endeavor to live to Him? And though with many failings and frailties, yet can we still say, "For me to live is Christ?" Oh, if it is so,
 
 "Come, death andsome celestial band, to bear our souls away!" But if it is not so, then our end must be destruction, because our God has been our belly.

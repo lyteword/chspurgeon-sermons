@@ -55,7 +55,7 @@ But now I want you to notice just this. It says, "Walk you in Him." Oh, I cannot
 
 Dear Friends, in trying to open up that point just for a moment, let us notice what this walking in Christ must mean. As Christ was at first when we received Him the only ground of our faith&mdash;so as long as we live, we are to stand to the same point. Did you not sing the other day when you first came to Him&mdash;
 
-"I'm a poor sinner and nothing at all, But Jesus Christ is my All in All"? Well, that is how you are to continue to the end. We commence our faith with&mdash; "Nothing in my hands I bring, Simply to the Cross I cling."
+"I'm a poor sinner and nothing at all, But Jesus Christ is my All in All?" Well, that is how you are to continue to the end. We commence our faith with&mdash; "Nothing in my hands I bring, Simply to the Cross I cling."
 
 When you are old with honors, when you are covered with fame, when you have served your Master well, still come in just the same way with&mdash;
 
