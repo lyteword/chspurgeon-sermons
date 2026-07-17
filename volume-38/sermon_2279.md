@@ -46,7 +46,7 @@ Add to this the immediateness of Divine Grace and you understand where the diffi
 
 "Tis done! The great transaction's done; I am my Lord's, and He is mine." And then the saved soul turns around and says, "Can it be true that I am really saved&mdash;I who was, just now, in the very depths of despair?"
 
-Now, I am only going to deal with this difficulty in the following few words to show you that it has no solid basis. You say, "Can this be true?" because it is so good. My answer is&mdash;You need something good, do you not? You need something greatly good! Could anything save you but a great act of Grace? Tell me. Are you not of Richard Baxter's mind when he prayed, "Lord, give me great mercy, or no mercy; for little mercy will not serve my purpose"? If anybody
+Now, I am only going to deal with this difficulty in the following few words to show you that it has no solid basis. You say, "Can this be true?" because it is so good. My answer is&mdash;You need something good, do you not? You need something greatly good! Could anything save you but a great act of Grace? Tell me. Are you not of Richard Baxter's mind when he prayed, "Lord, give me great mercy, or no mercy; for little mercy will not serve my purpose?" If anybody
 
 says, "It is too good to be true," say, "It is no better than I need. I need perfect pardon! I need complete renewal! I need to be made a child of God. I need to be saved." It is not too good to be true, for it is not too good to be what you need!
 
