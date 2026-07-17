@@ -133,6 +133,6 @@ Let us view Him in the light of life at this very hour. I beseech my Lord Jesus 
 
 Oh that our Lord would now appear! Oh that His silver trumpets would ring out while yet I speak to you! Oh that His feet would once more touch this earth! The second coming of our living Lord is the ultimatum of our faith. He is alive and as surely as He lives, He will open wide the golden gate and come again to take His people up to be with Him forever. Has He not
 
-said, "I will come again and receive you unto Myself"? They that have been faithful to Him in this evil generation, through the dark as well as through the light and have followed at His heels through mire and slough&mdash;these shall partake of His glory.
+said, "I will come again and receive you unto Myself?" They that have been faithful to Him in this evil generation, through the dark as well as through the light and have followed at His heels through mire and slough&mdash;these shall partake of His glory.
 
 "These are they which follow the Lamb wherever He goes." Who is on the side of the living Christ at this hour? Let him come out and boldly say so. Hold not back lest you be found traitors. Confess your Lord, take up your cross and by God's grace be the living servants of the living Jesus. Amen.
