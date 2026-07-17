@@ -32,7 +32,7 @@ If Lot is to be rescued, he must, as men say, put his best foot forward. It is q
 
 "Hasten, sinner, to be wise,
 
-Stay not for the morrow's sun"? We sang that line over and over again in the different verses&mdash;
+Stay not for the morrow's sun?" We sang that line over and over again in the different verses&mdash;
 
 "Stay not for the morrow's sun." Oh, that God would, in great mercy, press that appeal home upon you! "Escape for your life."
 

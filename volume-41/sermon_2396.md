@@ -112,7 +112,7 @@ Put not Your servant away in anger. "Put not Your servant away." God will not pu
 
 You have been my help. "Yes, that You have, O Lord! You have been my help."
 
-9, 10. Leave me not, neither forsake me, O God of my salvation. When my father and my mother forsake me, then the LORD will take me up. There is a poor child and his father and mother have both gone away and left him. But the Divine Father comes along, picks the child up and clasps him to His bosom&mdash;"Then the Lord will take me up." It is a wonderful thing to be taken up by God! A man prospers in business and people say, "Oh, yes, he may get on very well, for such-and-such a great man has taken him up!" But how much better shall you and I prosper who can say, "The Lord will take me up"? If He has taken us up, what a wonderful Patron we have! There is no other like the Lord!
+9, 10. Leave me not, neither forsake me, O God of my salvation. When my father and my mother forsake me, then the LORD will take me up. There is a poor child and his father and mother have both gone away and left him. But the Divine Father comes along, picks the child up and clasps him to His bosom&mdash;"Then the Lord will take me up." It is a wonderful thing to be taken up by God! A man prospers in business and people say, "Oh, yes, he may get on very well, for such-and-such a great man has taken him up!" But how much better shall you and I prosper who can say, "The Lord will take me up?" If He has taken us up, what a wonderful Patron we have! There is no other like the Lord!
 
 Teach me Your way, O LORD. "I am only a child. Teach me, Lord. I am fatherless and motherless. Take me into Your orphanage and teach me Your way, O Lord!"
 
