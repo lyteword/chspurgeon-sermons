@@ -10,7 +10,7 @@ Live near to Jesus, Brothers and Sisters. Live with Jesus. Live in Jesus and you
 
 We have here our Savior answering the questions of His Church, which she, in wonder, had asked of Him&mdash;"Who is this that comes from Edom, with dyed garments from Bozrah? This that is glorious in His apparel, traveling in the greatness of His strength?" "I that speak in righteousness," He says, "mighty to save." And when again she asks Him, "Why are You red in Your apparel and Your garments like he that treads in the wine vat?" He replies, "I have trodden the winepress alone; and of the people there was none with Me."
 
-Very briefly, as the Spirit shall help us, we shall notice, first, the interesting figure employed. Secondly, the glorious fact stated. Thirdly, the solitary Conqueror described. And then, fourthly, we shall offer some sweet and salutary considerations suggested, that we may be refreshed by our meditations. Let our souls be calm and quiet whilst we contemplate the awfully-solemn and sublimely-grand spectacle of the Conqueror of men and the Conqueror of Hell treading the winepress alone.
+Very briefly, as the Spirit shall help us, we shall notice, first, the interesting figure employed. Secondly, the glorious fact stated. Thirdly, the solitary Conqueror described. And then, fourthly, we shall offer some sweet and salutary considerations suggested, that we may be refreshed by our meditations. Let our souls be calm and quiet whilst we contemplate the awfully solemn and sublimely grand spectacle of the Conqueror of men and the Conqueror of Hell treading the winepress alone.
 
 First, then, here is AN INTERESTING FIGURE EMPLOYED&mdash;"I have trodden the winepress."
 
