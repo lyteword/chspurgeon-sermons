@@ -137,7 +137,7 @@ When God saved Jonah by the whale which was prepared for him, did He do it becau
 
 Remember, too, the need they were in. You can measure the greatness of the goodness of God by the distance from the place where Adam left his fallen posterity, broken by the Fall, to the position at the right hand of Christ where God's eternal mercy shall place them forever! Picture to yourself a place full of all manner of vile and loathsome diseases, where the deadly fever and the living-death called leprosy, are found. See yon man who enters, braving all the dangers of infection that he may heal the sick and restore the wretched ones to health and life! How great his goodness!
 
-But is even that to be compared to the goodness of God's Son who not only ran the risk with no chance of escape, but deliberately "was made sin for us, that we might be made the righteousness of God in Him"? "He bore our sins in His own body on the tree" willingly, deliberately, and came of set purpose to die for us&mdash;
+But is even that to be compared to the goodness of God's Son who not only ran the risk with no chance of escape, but deliberately "was made sin for us, that we might be made the righteousness of God in Him?" "He bore our sins in His own body on the tree" willingly, deliberately, and came of set purpose to die for us&mdash;
 
 "This was compassion like a God, That when the Savior knew The price of pardon was His blood, His pity never withdrew."
 
@@ -149,7 +149,7 @@ If Daniel mused in the lions' den, or the three holy children in the fiery furna
 
 I shall not further preach on that topic. I put you at the river's edge and bid you wade in, hoping that you may proceed as far as the Apostle, when he said, "Oh, the depths!"
 
-And now, lastly, WHAT SHOULD THIS TEACH US? Should not this make us grateful to God for such wondrous kindness? The Lord has not given His people to drink of a twinkling rivulet, but He has been pleased to give the river of Himself to them that they may drink to the full! Did you ever get the meaning of that passage, "That you may be filled with all the fullness of God"? Oh, that is a text that one would like to preach from in Heaven! If there are pulpits there, and congregations, give me that for a text above all others, except that best of all, "Unto Him that loved us, and washed us from our sins in His blood, to Him be glory."
+And now, lastly, WHAT SHOULD THIS TEACH US? Should not this make us grateful to God for such wondrous kindness? The Lord has not given His people to drink of a twinkling rivulet, but He has been pleased to give the river of Himself to them that they may drink to the full! Did you ever get the meaning of that passage, "That you may be filled with all the fullness of God?" Oh, that is a text that one would like to preach from in Heaven! If there are pulpits there, and congregations, give me that for a text above all others, except that best of all, "Unto Him that loved us, and washed us from our sins in His blood, to Him be glory."
 
 "Filled with all the fullness of God!" Beloved, have you learned this wonder? Will you now bless the Lord that there is such a marvel of love for you to learn? You have already had as much as you could bear of God's goodness! You have
 

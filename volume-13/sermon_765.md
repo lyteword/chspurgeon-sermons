@@ -16,7 +16,7 @@ There are clergymen who imagine that because they happen to be in a Church which
 
 What tithes did they receive? What rates did they levy? What laws did they make upon the Jews and the Gentiles? Were they rectors or vicars? Prebendary or deans? Canons or curates? Did they buy their livings in the market? Did they sit in the Roman House of Lords dressed in lawn sleeves? Were they styled Right Reverend Fathers in God? Were they appointed by the Prime Minister of the day? Did they put on gowns and read prayers out of a book? Did they christen children and call them regenerate, and bury wicked reprobates in sure and certain hope of a blessed resurrection?
 
-As opposite as light is from darkness were those Apostles from the men who pretend to be their Divinely-appointed successors! When will men cease to thrust their arrogant pretences into our faces? Only when common sense, to say noth-
+As opposite as light is from darkness were those Apostles from the men who pretend to be their Divinely appointed successors! When will men cease to thrust their arrogant pretences into our faces? Only when common sense, to say noth-
 
 ing of the religion of our country, shall have rebuked their presumption! One thing is clear from this "Apostle's Creed" which we have before us&mdash;it is clear that the Apostles did not believe in ritualism! Peter&mdash;why, they make him out to be the head of the Church! Do they not say that he was the first pope, and so on? I am sure if Peter were here he would grow very angry with them for slandering him so scandalously, for in his Epistle he expressly warned others against being lords over God's heritage&mdash;and you may be sure he did not fall into that sin himself!
 
