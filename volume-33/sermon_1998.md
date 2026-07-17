@@ -18,7 +18,7 @@ I like much this self-forgetting sentence of the Apostle, "I suffer trouble, as 
 
 I am going to talk to you upon that point with as much brevity as I can. First, I call your attention to this grand Truth, that the Word of God is not bound&mdash;in what sense is this true? And, secondly, for what reasons is this true? And, thirdly, what other facts run parallel to this fact, that though the preacher is bound, yet the Word he preaches is not bound?
 
-First, then, IN WHAT SENSE IS IT TRUE that, "the Word of God is not bound"? Possibly a meditation upon this text may revive the spirits of some who are cast down. May the Holy Spirit, Himself, bless the subject to us!
+First, then, IN WHAT SENSE IS IT TRUE that, "the Word of God is not bound?" Possibly a meditation upon this text may revive the spirits of some who are cast down. May the Holy Spirit, Himself, bless the subject to us!
 
 That the Word of God is not bound, is, at this time, true in many senses. And, first, it is not bound so that it cannot be preached. Paul could preach it even when in bonds and he did preach it, so that the Gospel was made known throughout Caesar's palace&mdash;and there were saints in the imperial household! Many came to and fro into the Praetorian guard-room and heard the Word from the mouth of the Apostle. You may be quite sure that he never neglected to make known the message of the Gospel to all that visited him in his prison, so that the Word of God was not bound, even, with respect to himself!
 
