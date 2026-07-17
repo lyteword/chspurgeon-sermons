@@ -30,7 +30,7 @@ To put together all I have said&mdash;you must quit every other hope; you must t
 
 But, now, secondly, while there is this necessity of character, notice, also, THE UNIVERSALITY OF PER-SONS&mdash;"Him that comes to Me I will in no wise cast out."
 
-Granted that he comes to Christ, that is all that is needed. Does someone say, "Sir, I am a very obscure person. Nobody knows me. My name was never in the papers and never will be. I am a nobody"? Well, if Mr. Nobody comes to Christ, He will not cast him out! Come along, you unknown person, you anonymous individual, you that everybody but Christ forgets! If even you come to Jesus, He will not cast you out.
+Granted that he comes to Christ, that is all that is needed. Does someone say, "Sir, I am a very obscure person. Nobody knows me. My name was never in the papers and never will be. I am a nobody?" Well, if Mr. Nobody comes to Christ, He will not cast him out! Come along, you unknown person, you anonymous individual, you that everybody but Christ forgets! If even you come to Jesus, He will not cast you out.
 
 Another says, "I am so very odd." Do not say much about that, for I am odd, too. But, dear Friends, however odd we are, though we may be thought very eccentric and some may even consider us a little touched in the head, yet, nevertheless, for all that, Jesus says, "Him that comes to Me I will in no wise cast out." Come along with you, Mr. Oddman! You shall not be lost for lack of brains, nor even for having too many&mdash;though that is not a very common misfortune! If you will but come to Christ, though you have no talent, though you are but poor and will never make much headway in the world, Jesus says, "Him that comes to Me I will in no wise cast out."
 
@@ -57,7 +57,7 @@ Perhaps One friend says, "I am afraid that I have committed the unpardonable sin
 
 Come to Christ just as you are&mdash;foul, vile, careless, godless, Christless! Come now, even now, for Jesus said, "Him that comes to Me I will in no wise cast out."
 
-Is there not a glorious width about my text? "Him that comes to Me I will in no wise cast out." What, "him," is this? It is, "him that comes!" What, "him that comes"? Any "him that comes" in all the world! If he comes to Christ, he shall not be cast out! A red man, or a black man, or a white man, or a yellow man, or a copper-colored man&mdash;whatever he is, if he comes to Jesus, he shall in no wise be cast out!
+Is there not a glorious width about my text? "Him that comes to Me I will in no wise cast out." What, "him," is this? It is, "him that comes!" What, "him that comes?" Any "him that comes" in all the world! If he comes to Christ, he shall not be cast out! A red man, or a black man, or a white man, or a yellow man, or a copper-colored man&mdash;whatever he is, if he comes to Jesus, he shall in no wise be cast out!
 
 When you mean to put a thing broadly, it is always best to state it and leave it. Do not go into details! The Savior does not. Some years ago there was a man, a kind, loving husband, who wished to leave to his wife all his property. Whatever he had, he intended her to have it all, as she ought. So he put down in his will, "I leave to my beloved wife, Elizabeth, all that I have." That was all right. Then he went on to describe in detail what he was leaving her, and he wrote, "All my freehold and personal estate." The most of his property happened to be leasehold, so the wife did not get it because her husband gave a detailed description! It was in the detail that the property slipped away from the good woman.
 

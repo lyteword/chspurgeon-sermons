@@ -90,7 +90,7 @@ But if you would know this name most sweetly, you must know it by the teaching o
 
 "Till God in human flesh I see, My thoughts no comfort find."
 
-Now ask yourselves, do you know what "God with us" means? Has it been God with you in your tribulations, by the Holy Spirit's comforting influence? Has it been God with you in searching the Scriptures? Has the Holy Spirit shone upon the Word? Has it been God with you in conviction, bringing you to Sinai? Has it been God with you in comforting you, by bringing you, again, to Calvary? Do you know the full meaning of that name, Immanuel, "God with us"? No&mdash; he who knows it best knows little of it! Alas, he who knows it not at all is ignorant, indeed&mdash;so ignorant that his ignorance is not bliss, but will be his damnation! Oh, may God teach you the meaning of that name, Immanuel, "God with
+Now ask yourselves, do you know what "God with us" means? Has it been God with you in your tribulations, by the Holy Spirit's comforting influence? Has it been God with you in searching the Scriptures? Has the Holy Spirit shone upon the Word? Has it been God with you in conviction, bringing you to Sinai? Has it been God with you in comforting you, by bringing you, again, to Calvary? Do you know the full meaning of that name, Immanuel, "God with us?" No&mdash; he who knows it best knows little of it! Alas, he who knows it not at all is ignorant, indeed&mdash;so ignorant that his ignorance is not bliss, but will be his damnation! Oh, may God teach you the meaning of that name, Immanuel, "God with
 
 us"!
 
