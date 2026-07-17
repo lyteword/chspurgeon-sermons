@@ -28,7 +28,7 @@ If we had but faith enough to preach to them as we should, aiming directly, dist
 
 Now, with this introduction, I would speak upon the text a little more particularly, and we shall observe with brevity, first, to whom the text applies&mdash;"He gathers together the outcasts of Israel." Secondly, we shall consider in what sense He may be said to gather them. And then, thirdly, what lesson this teaches us.
 
-First, then, TO WHOM MAY THIS TEXT APPLY&mdash;"He gathers together the outcasts of Israel"? It refers to several classes in different ways. First, it is a fact that our Lord Jesus gathered together some of the very poorest and most despised among men&mdash; those who might, under some respects, be regarded as outcasts. And it is certain that, to this day, the Gospel comes in the largest measure of power to the poor of this world. Often, too, it comes with amazing power to those who are despised by others, or are regarded as being of inferior degree.
+First, then, TO WHOM MAY THIS TEXT APPLY&mdash;"He gathers together the outcasts of Israel?" It refers to several classes in different ways. First, it is a fact that our Lord Jesus gathered together some of the very poorest and most despised among men&mdash; those who might, under some respects, be regarded as outcasts. And it is certain that, to this day, the Gospel comes in the largest measure of power to the poor of this world. Often, too, it comes with amazing power to those who are despised by others, or are regarded as being of inferior degree.
 
 You know that at this time it is boastfully said by the enemies of the Gospel that the culture, the brain, the intellect, the education of England is all on the side of skepticism. I am not so sure. When people say that they possess a great deal
 
