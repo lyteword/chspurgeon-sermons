@@ -106,7 +106,7 @@ But let none of you suffer as a murderer, or as a thief or as an evildoer, or as
 
 17. Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf For the time is come that judgment must begin at the house of God. Trial and testing must begin there. We must not expect to have our religion taken for granted and ourselves to be saved simply upon our own warranty. We must be tried&mdash;"The Lord is a God of knowledge, and by Him actions are weighed." "The time is come that judgment must begin at the house of God."
 
-And if it first begin at us, what shall the end be of them that obey not the Gospel of God?If the wheat is winnowed, what is to become of the chaff? If God puts even the gold into the fire, what is to become of the dross? If that which is really valuable has to be tested, what is to be done with the mire and the clay? Oh, that all who have no part or lot with Christ would consider this solemn Truth of God!
+And if it first begin at us, what shall the end be of them that obey not the Gospel of God? If the wheat is winnowed, what is to become of the chaff? If God puts even the gold into the fire, what is to become of the dross? If that which is really valuable has to be tested, what is to be done with the mire and the clay? Oh, that all who have no part or lot with Christ would consider this solemn Truth of God!
 
 And if the righteous scarcely are saved&mdash;If they are saved with difficulty&mdash;
 
