@@ -130,7 +130,7 @@ Matthew 28:16. Then the eleven disciples went away into Galilee, into a mountain
 
 And when they saw Him, they worshipped Him. Probably this was the occasion referred to by Paul, when the risen Savior "was seen of above five hundred brethren at once."
 
-But some doubted. There were some honest doubters, then. The breed has been kept up ever since, only there are more dishonest doubters by a great deal than there are of honest ones, now. We can never expect to be quite free from doubters in the Church, since even in the presence of the newly-risen Christ, "some doubted."
+But some doubted. There were some honest doubters, then. The breed has been kept up ever since, only there are more dishonest doubters by a great deal than there are of honest ones, now. We can never expect to be quite free from doubters in the Church, since even in the presence of the newly risen Christ, "some doubted."
 
 And Jesus came and spoke unto them. These words to imply that He came nearer to them than He was at first&mdash; unveiling Himself still more and revealing Himself more clearly.
 

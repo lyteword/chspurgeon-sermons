@@ -110,7 +110,7 @@ Will the Lord cast off forever? Has He ever done so? He may seem to cast off for
 
 And will He be favorable no more? It is a long lane that has no turning. The Lord may take down the rod, but will He always use it? Will He always chide?
 
-Is His mercy clean gone forever? If His favor is gone, yet is His mercy gone? Does not the Psalm say, "His mercy endures forever"? If I cannot claim favor as a saint, may I not hope for mercy as a sinner? "Is His mercy clean gone forever?"
+Is His mercy clean gone forever? If His favor is gone, yet is His mercy gone? Does not the Psalm say, "His mercy endures forever?" If I cannot claim favor as a saint, may I not hope for mercy as a sinner? "Is His mercy clean gone forever?"
 
 Does His promise fail forevermore? Oh, what a question that is! God's promise may tarry, but it never fails, and if it seems to fail for the time being, will it fail forevermore?
 

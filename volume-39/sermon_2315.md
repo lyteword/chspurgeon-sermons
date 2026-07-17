@@ -104,7 +104,7 @@ Though I might also have confidence in the flesh. If any other man thinks that h
 
 But what things were gain to me, those I counted loss for Christ. So that, when we come to Christ, whatever we have to trust to, we must put away. We must write it on the other side of the ledger. We had entered it as a gain&mdash;now we must set it down as a loss&mdash;it is of no value, whatever! It is a loss if it shall tempt us to trust any less in Christ.
 
-Yes doubtless, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord. Those are sweet words, "my Lord." Remember how Thomas cried, in ecstasy, "My Lord and my God"? Paul, by faith putting his finger into the prints of the nails, says, "My Lord."
+Yes doubtless, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord. Those are sweet words, "my Lord." Remember how Thomas cried, in ecstasy, "My Lord and my God?" Paul, by faith putting his finger into the prints of the nails, says, "My Lord."
 
 8, 9. For whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in Him. Oh, what a precious place to be found in, "in Him," trusting in Him, hidden away in Him, a member of His body, as it were, losing myself in Him!
 
@@ -132,6 +132,6 @@ For our conversation is in Heaven. Can you say that, dear Friend? Is your citize
 
 From whence also we look for the Savior, the Lord Jesus Christ. He is coming! He is coming! Are we looking for Him? This is the true position of the Christian&mdash;looking for the appearing of his Lord!
 
-Who shall change our vile body. "The body of our humiliation." We have only part of the redemption while we are here. The soul is regenerated, newly-born, but the bodyis not. "The body is dead because of sin, but the spirit is life because of righteousness." The redemption of the purchased possession will be perfect at the resurrection. The resurrection will be, to the body, what regeneration is to the soul! We sometimes wonder why we are sick when Christ could make us well in a moment&mdash;but the reason is that, as yet, He has not fully brought His Divine Power to bear upon the body.
+Who shall change our vile body. "The body of our humiliation." We have only part of the redemption while we are here. The soul is regenerated, newly born, but the bodyis not. "The body is dead because of sin, but the spirit is life because of righteousness." The redemption of the purchased possession will be perfect at the resurrection. The resurrection will be, to the body, what regeneration is to the soul! We sometimes wonder why we are sick when Christ could make us well in a moment&mdash;but the reason is that, as yet, He has not fully brought His Divine Power to bear upon the body.
 
 That it may be fashioned like unto His glorious body, according to the working whereby He is able even to subdue all things unto Himself May He show some part of that blessed power in us tonight! Amen.
