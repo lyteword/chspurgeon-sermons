@@ -6,7 +6,7 @@ THE Savior, when He departed from this world, provided for all the needs of His 
 
 Our Savior here directs us to one particular blessing, which the coming of the Holy Spirit would bring us, namely, that of Divine Instruction. In endeavoring to enter in some measure into the text, tonight&mdash;too briefly to enter into it fully&mdash;we shall, first of all remark that the text suggests to us&mdash;
 
-THE VALUE OF ALL THAT JESUS CHRIST HAS SPOKEN.
+THE VALUE OF ALL THAT Jesus Christ HAS SPOKEN.
 
 For He tells us that the Holy Spirit shall "bring to our remembrance all things whatever He has said unto us."
 
@@ -86,7 +86,7 @@ It is not likely that you should desire the Holy Spirit to instruct you. There a
 
 There are some here to whom the Holy Spirit is an unknown Person, who have never been made alive unto God by Him and, consequently, cannot desire that they may be instructed by Him. Oh, that the blessed Spirit would come and convince them of their sin in not believing, which is the greatest of all sins&mdash;and the very sin of which the Spirit comes to convince men! "He shall convince them of sin because they believe not on Me." Oh, may He convince them of this sin and then may they understand that there is nothing for them to do, but that Christ has done it for them&mdash;and that all they have to do is to receive the finished work, to wear the finished robe, to look to Jesus Christ and to find life in the look! Pray for them, Brothers and Sisters, that the Holy Spirit may help their infirmities, that they may know Christ and may come to Him! May God bless the Gospel to them whenever it is preached! And when they are told that "the Son of Man came into the world to seek and to save that which was lost," may they cry unto Him and trust Him, for this is the vital part of the business and, trusting in Him, they shall enter into eternal life through Jesus Christ our Lord!
 
-EXPOSITION BY C. H. SPURGEON: ROMANS9:26-32.
+Exposition BY C. H. Spurgeon: ROMANS9:26-32.
 
 The Jews thought that God must certainly save them. They thought they had a birth claim. Were they not the children of Abraham? Surely they had some right to it! This Chapter battles the question of right. No man has any right to the Grace of God. The terms are inconsistent. But that same Grace delights to save and bless even the perverse and rebellious who will yield to its blessed power!
 
