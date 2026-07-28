@@ -2,11 +2,11 @@
 
 "Happy are the people who are in such a state; happy are the people whose God is the Lord." Psalm 144:15.
 
-SOMETIMES God's people are unhappy when they ought to be happy. God observes this. Therefore He tells them when they possess the materials of happiness and gives them a description of the peace and prosperity of those who are truly happy men. Thus recollecting the choice mercies which surround them and not attaching so much importance to the little trials of the day, they may become of God's mind and feel themselves to be as happy as He declares they are. The pure in spirit are said by our Savior to be blessed. They often think themselves to be cursed and feel as if there were no blessing for them. But blessed they are, for Jesus knows whom He has blessed! And though God's people are sometimes, in their own consciences, unhappy, they are a happy people and to be congratulated on their condition notwithstanding. They have reasons for happiness. They have satisfactory grounds for happiness. They have springs of happiness. They have future prospects of happiness. If you are God's people, you cannot err in exorcising faith about this thing. You are numbered with those who are the happiest people under Heaven!
+Sometimes God's people are unhappy when they ought to be happy. God observes this. Therefore He tells them when they possess the materials of happiness and gives them a description of the peace and prosperity of those who are truly happy men. Thus recollecting the choice mercies which surround them and not attaching so much importance to the little trials of the day, they may become of God's mind and feel themselves to be as happy as He declares they are. The pure in spirit are said by our Savior to be blessed. They often think themselves to be cursed and feel as if there were no blessing for them. But blessed they are, for Jesus knows whom He has blessed! And though God's people are sometimes, in their own consciences, unhappy, they are a happy people and to be congratulated on their condition notwithstanding. They have reasons for happiness. They have satisfactory grounds for happiness. They have springs of happiness. They have future prospects of happiness. If you are God's people, you cannot err in exorcising faith about this thing. You are numbered with those who are the happiest people under Heaven!
 
 The text speaks not only of the persons, but also of the condition of God's people&mdash;a condition which I believe is, to a great extent, parallel to our own as a Christian Church. It seems to me that we have, according to the Gospel standard of interpretation, all the privileges, all the blessednesses, which, in the verse preceding the text, David ascribes to this happy people. I shall ask you, therefore, to look at these things, that each particular may be an incentive to gratitude. He declares here&mdash;
 
-THE ELEMENTS OF HAPPINESS.
+the elements of happiness.
 
 First, David accounts those to be a happy people who are in a healthy and vigorous condition. The sons have "as plants grown up in their youth. And the daughters as cornerstones, polished after the similitude of a palace." It is a great blessing to a Church to have in her midst fruitful, earnest young men, yes! And I will say that whatever their age may be, it is no small measure of a Church's strength to have her sons about her, who, having grown up and become mature in knowledge, mental force and spiritual vigor, bear fruit unto the Glory of God!
 
@@ -34,7 +34,7 @@ The last mercy which David mentions is that of satisfaction&mdash;"that there is
 
 Now, Brothers and Sisters, these things may have in them little interest for strangers, but they will have, I trust, some force, though I put them thus hurriedly to you who have been with us from the beginning and whose history has proven how God has multiplied His blessings. Unworthy of the least of all His mercies we were and the Church was brought low by affliction and sorrow till it seemed as though our name would be blotted out from His Israel and Ichabod was written on our wall&mdash;but God turned His hand in mercy upon us! That is 15 years ago. And by the space of these revolving years He has never ceased to bless. We have had no startling phenomena of revival. We have had no excitements such as have passed over different parts of the Christian world. But steadily, as though all had been regulated by an ever-progressing geometry, we have gone on to increase and to multiply&mdash;and have been led on from service to service in the name and strength of the Lord God! Not one particle of this is ascribable to human agency, only so far as God may have pleased to use it! The whole of it belongs to God! We then, at least, whatever others may say, ought to keep in the same frame of mind in which we were last Monday evening when we gathered round that Communion Table, instant in prayer, constant in fellowship, continuing to be happy in blessing and praising and magnifying the Lord!
 
-THE SOURCE OF HAPPINESS.
+the source of happiness.
 
 The latter part of the text carries us up to higher ground. Happiness, a practical outflow from the favor which God shows, is traced to its Source, the God of All Grace, and accounted for by the Covenant relations into which He has entered. "Yes, happy is that people whose God is the Lord." Now, Beloved, our God is the Lord, our God is Jehovah! Let me refresh your memories with this Truth of God in two or three of its aspects that you may remember and act in the spirit suggested by them. Our God is the Lord!
 
@@ -59,7 +59,7 @@ Hence the Lord's people are a happy people because they have a portion they can 
 
 I wish we were all such happy people! I wish we were, all of us, happy to the fullest degree! If you are not, you may be! If you are not, if you trust in Christ, you shall be, if you come empty-handed and simply take Christ to be your Savior! He never did reject one, yet, and never shall! He will accept you tonight and put you in the same happy case as others of His people. I know there are some here that are hard to comfort, but the Master, I trust, will do it yet, for He releases the prisoners and delights to find out the hard cases and to deal with them! If there is a dungeon door that no key can open, He delights to come with the mighty hammer of His Word and smash the door in pieces and give the spirit liberty! May He do that tonight, and then we will sing together of His pardoning power. Amen!
 
-Exposition BY C. H. Spurgeon: PSALM 103; 1 CORINTHIANS 1:25-31.
+Exposition by C. H. Spurgeon: Psalm 103; 1 Corinthians 1:25-31.
 
 This Psalm is a song of exulting thanksgiving, of overflowing joy and praise! Let each one of us read it as speaking for himself. Let it, here and now, be our own personal tribute of peculiar mercy received by each of us!
 
@@ -119,7 +119,7 @@ You ministers of His, that do His pleasure. You servants of His, whether you are
 
 Bless the Lord, all His works in all places of His dominion: bless the Lord, O my Soul In the spirit of that, I think, we must always sing our hymns of praise unto God. No, more, our whole life should be a Psalm of joyous thanksgiving and thanks-living!
 
-1 CORINTHIANS 1:25-31.
+1 Corinthians 1:25-31.
 
 In this Chapter the Apostle magnifies the Cross of His Lord as God's greatest gift to the world and as the highest glory of God's self-revelation to men! He praises God that the Corinthian Christians have experienced the saving Grace that comes by faith in the sinner's sacrifice on Calvary. He rejoices, too, that that same Grace has taught them to look forward to the Savior's return in Glory. But he is compelled to reprove them for some divisions and rivalries that sprang from their glorying in gifts rather than graces. This leads him to remind them how God had disparaged mere worldly wisdom by saving mankind by the death of Jesus. And he brings all to a very practical application in the verses that we now ponder.
 
@@ -137,4 +137,4 @@ That, according as it is written, He that glories, let him glory in the Lord. He
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
+Pray the Holy Spirit will use this sermon to bring many to a saving knowledge of Jesus Christ.
