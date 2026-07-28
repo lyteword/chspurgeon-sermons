@@ -59,13 +59,13 @@ Hence the Lord's people are a happy people because they have a portion they can 
 
 I wish we were all such happy people! I wish we were, all of us, happy to the fullest degree! If you are not, you may be! If you are not, if you trust in Christ, you shall be, if you come empty-handed and simply take Christ to be your Savior! He never did reject one, yet, and never shall! He will accept you tonight and put you in the same happy case as others of His people. I know there are some here that are hard to comfort, but the Master, I trust, will do it yet, for He releases the prisoners and delights to find out the hard cases and to deal with them! If there is a dungeon door that no key can open, He delights to come with the mighty hammer of His Word and smash the door in pieces and give the spirit liberty! May He do that tonight, and then we will sing together of His pardoning power. Amen!
 
-EXPOSITION BY C. H. SPURGEON: PSALM 103; 1 CORINTHIANS 1:25-31.
+Exposition BY C. H. Spurgeon: PSALM 103; 1 CORINTHIANS 1:25-31.
 
 This Psalm is a song of exulting thanksgiving, of overflowing joy and praise! Let each one of us read it as speaking for himself. Let it, here and now, be our own personal tribute of peculiar mercy received by each of us!
 
-Verse 1. Bless the LORD, O my soul: and all that is within me, bless His holy name. If things without are not joyous, let all that is within wake itself up to praise my God! He will hear me, even though I speak not. If I keep the praise within myself, He will hear the music of my soul. "Bless His holy name."
+Verse 1. Bless the Lord, O my soul: and all that is within me, bless His holy name. If things without are not joyous, let all that is within wake itself up to praise my God! He will hear me, even though I speak not. If I keep the praise within myself, He will hear the music of my soul. "Bless His holy name."
 
-Bless the LORD, O my soul Do it again. If you have blest Him once, bless Him again. Does He not multiply to bless you? Bless Him repeatedly, continually! Then never weary of the work. Repeat yourself in grateful praise.
+Bless the Lord, O my soul Do it again. If you have blest Him once, bless Him again. Does He not multiply to bless you? Bless Him repeatedly, continually! Then never weary of the work. Repeat yourself in grateful praise.
 
 And forget not all His benefits. Your poor memory has often been the grave of His mercy, but now call for a resurrection and let His mercies rise before your eyes, and let your praises rise with them. "Forget not all His benefits."
 
@@ -81,11 +81,11 @@ Who satisfies your mouth with good things. He might have left you to pine in spi
 
 So that your youth is renewed like the eagle's. Oh, you are strengthened! You grow young again, your faith is revived, your hope is brightened, your love has been stirred up and the smoldering flame begins to burn anew with vigor! Will you not bless Him who restores you after this fashion? Surely, you cannot refuse to praise.
 
-The LORD executes righteousness and judgment for all that are oppressed. Let the poor of the earth praise Him fox this! Let the despised&mdash;those who are trampled on&mdash;exult in the fact that God is the executioner of the proud and the executor of the poor. "He executes righteousness and judgment for all that are oppressed."
+The Lord executes righteousness and judgment for all that are oppressed. Let the poor of the earth praise Him fox this! Let the despised&mdash;those who are trampled on&mdash;exult in the fact that God is the executioner of the proud and the executor of the poor. "He executes righteousness and judgment for all that are oppressed."
 
 He made known His ways unto Moses, His acts unto the children of Israel He is a God who makes Himself known! He might have hidden Himself behind His works, instead of which He has given us a Revelation&mdash;a Revelation in the Old Testament which made David sing! But you and I have a Revelation in the New Testament&mdash;not made to Moses this time, but to great David's greater son! Shall we not praise Him for making known His ways and His acts to us in the Person of His Son, in a bright and lustrous manner unknown before? "My Soul, bless you the Lord."
 
-The LORD is merciful and gracious, slow to anger, and plenteous in mercy. And should not this make us plenteous in song? So good a God to such great sinners! Merciful&mdash;full of mercy and gracious! Full of Grace, love and kindness! So slow to anger and so quick to forgive! O my Soul, be you slow to murmur! Be you quick to praise!
+The Lord is merciful and gracious, slow to anger, and plenteous in mercy. And should not this make us plenteous in song? So good a God to such great sinners! Merciful&mdash;full of mercy and gracious! Full of Grace, love and kindness! So slow to anger and so quick to forgive! O my Soul, be you slow to murmur! Be you quick to praise!
 
 He will not always chide. So that even you, who feel His chidings tonight, ought to bless Him because they last such a little while. Such are our faults that if He were always chiding, we could not find any fault with Him. But He will not always chide. He will sometimes. He makes us know the folly of our hearts when we wander from Him, but, "He will not always chide."
 
@@ -101,23 +101,23 @@ And sound it lofty at His Throne!" What music can be equal to such mercy as this
 
 As far as the east is from the west, so far has He removed our transgressions from us. Oh, what a mercy this is! In the third verse, you see, He gave us the note upon which here, in the twelfth verse, He enlarges&mdash;"Who forgives all your iniquities." How does He forgive them? Why, "as far as the east is from the west, so far has He removed our transgressions from us." They were ours! We could not deny them, but He has removed them&mdash;taken them right away from us and laid them on a Scapegoat. That Scapegoat has carried them away&mdash;they will never be found again. "As far as the east is from the west, so far has He removed our transgressions from us." Now comes in the next note. The third verse was, "Who heals all your diseases." This is what He says of it&mdash;
 
-Like as a father pities his children, so the LORD pities them that fear Him. While they are sick in body and while He looks at them with great tenderness, feeling for them, suffering with them&mdash;
+Like as a father pities his children, so the Lord pities them that fear Him. While they are sick in body and while He looks at them with great tenderness, feeling for them, suffering with them&mdash;
 
 For He knows our frame. He remembers that we are dust He knows that our sickness is but a premonition of that death which will dissolve this mortal frame, which is only kept together by a continuous miracle. It is strange that such a heap of dust as our body is does not dissolve much sooner. That it should return to the dust from where it came is no wonder. The wonder is that it returns not at once&mdash;and it would, were it not for that next mercy mentioned in the fourth verse, "Who redeems your life from destruction." He is singing about that now. "He knows our frame. He remembers that we are dust."
 
 15, 16. As for man, his days are as grass: as a flower of the field, so he flourishes. For the wind passes over it, and it is gone: and the place thereof shall know it no more. Shall we sorrow about this? No, for we remember that we have another note yet in the fourth verse, "Who crowns you with loving kindness and tender mercies." So He chants that again in the seventeenth verse.
 
-17, 18. But the mercy of the LORD is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children. To such as keep His Covenant, and to those that remember His commandments to do them. Mercy for ourselves! Mercy for our children! What a blessing this is&mdash;that our father's Friend is our Friend, and is the Friend of our children, too! As David loved Mephibosheth for Jonathan's sake, so does God still look upon the children of His children and keeps His Covenant with them!
+17, 18. But the mercy of the Lord is from everlasting to everlasting upon them that fear Him, and His righteousness unto children's children. To such as keep His Covenant, and to those that remember His commandments to do them. Mercy for ourselves! Mercy for our children! What a blessing this is&mdash;that our father's Friend is our Friend, and is the Friend of our children, too! As David loved Mephibosheth for Jonathan's sake, so does God still look upon the children of His children and keeps His Covenant with them!
 
-The LORD has prepared His Throne in the heavens. Blessed be His name, He crowns us and we are glad that He should be crowned, too! "Who crowns you with loving kindness and tender mercies." And here we see Him&mdash;who it is that crowns us. "The Lord has prepared His Throne in the heavens."
+The Lord has prepared His Throne in the heavens. Blessed be His name, He crowns us and we are glad that He should be crowned, too! "Who crowns you with loving kindness and tender mercies." And here we see Him&mdash;who it is that crowns us. "The Lord has prepared His Throne in the heavens."
 
-19, 20. And His Kingdom rules over all Bless the LORD, you His angels&mdash;As if David could not do it well enough, himself, and so he called in the angels to help him! You bright spirits that behold Him day and night and circle His Throne, rejoicing with your never-ceasing symphonies, lend me your harps and tongues! "Bless the Lord, you His angels."
+19, 20. And His Kingdom rules over all Bless the Lord, you His angels&mdash;As if David could not do it well enough, himself, and so he called in the angels to help him! You bright spirits that behold Him day and night and circle His Throne, rejoicing with your never-ceasing symphonies, lend me your harps and tongues! "Bless the Lord, you His angels."
 
-20, 21. That excel in strength, that do His commandments, hearkening unto this voice of His word. Bless you the LORD, all you His hosts. Sun, moon, and stars, the hosts of Heaven, and all creatures that dwell in this lower sphere of whatever form you are, burst forth into song and extol Him! And oh, men&mdash;the bests that should be the hosts of God&mdash; when you are made willing in the day of His power, go forth to praise Him! "Bless the Lord, all you His hosts."
+20, 21. That excel in strength, that do His commandments, hearkening unto this voice of His word. Bless you the Lord, all you His hosts. Sun, moon, and stars, the hosts of Heaven, and all creatures that dwell in this lower sphere of whatever form you are, burst forth into song and extol Him! And oh, men&mdash;the bests that should be the hosts of God&mdash; when you are made willing in the day of His power, go forth to praise Him! "Bless the Lord, all you His hosts."
 
 You ministers of His, that do His pleasure. You servants of His, whether you are wind, and rain, and snow, or whether you are intelligent agents, so long as you are doing His pleasure, praise Him as you do it!
 
-Bless the LORD, all His works in all places of His dominion: bless the LORD, O my Soul In the spirit of that, I think, we must always sing our hymns of praise unto God. No, more, our whole life should be a Psalm of joyous thanksgiving and thanks-living!
+Bless the Lord, all His works in all places of His dominion: bless the Lord, O my Soul In the spirit of that, I think, we must always sing our hymns of praise unto God. No, more, our whole life should be a Psalm of joyous thanksgiving and thanks-living!
 
 1 CORINTHIANS 1:25-31.
 
@@ -137,4 +137,4 @@ That, according as it is written, He that glories, let him glory in the Lord. He
 
 &mdash;Adapted from The C. H. Spurgeon Collection, Ages Software, 1.800.297.4307
 
-PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF JESUS CHRIST.
+PRAY THE HOLY SPIRIT WILL USE THIS SERMON TO BRING MANY TO a SAVING KNOWLEDGE OF Jesus Christ.
