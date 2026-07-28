@@ -58,13 +58,13 @@ Let me also invite you to cultivate another thirst&mdash;a thirst like that whic
 
 My last point is a very heavy one. I could wish it has not to be delivered. It is addressed&mdash;
 
-TO UNGODLY MEN AND WOMEN.
+TO UNGodLY MEN AND WOMEN.
 
 If the Lord Jesus Christ thirsted when He only carried the sins of others, what thirst will be upon you when God shall punish you for your own sins? Either 'Christ must thirst for you, or you mush thirst forever, and ever, and ever! There is but one alternative&mdash;Justice must be vindicated through a Substitute, or it must be glorified in your everlasting destruction! Think what it will be to have your sweet cup and your flowing bowl all put away from you, and not a drop of water to cool your tongue&mdash;to have your dainty meat and your gay festivals forever abolished&mdash;no light for your eyes, no joy for any one of the senses of your body and your souls made to suffer unutterable woe!
 
 I shall not stay to picture, even in Christ's own words, the agony of lost spirits. But I bid you keep this on your minds. If Christ, who was God's Son, suffered so bitterly for sins that were not His own, how bitterly must you, who are not God's sons, but God's enemies, suffer for sins that are your own? And you must so suffer unless Christ, the Substitute, stands for you! He was no Substitute for all, but only for His own people. You say to me, "Did He stand for me?" I can tell you if you can answer this question, "Do you trust Jesus Christ? Will you now trust Him?" If so, a simple childlike faith in Jesus will bring you salvation! Now, remember, if you believe, all your sins are laid upon Christ and, therefore, they can never be laid upon you! If you believe, Christ was punished in your place and you can never be punished, because he was punished for you! Substitution&mdash;this is the groundwork of our confidence! Because He was accursed, we cannot be accursed, for, if we believe in Him, all that He suffered was for us&mdash;and we stand absolved before the Judgment Seat of Christ. The Lord give you this simple faith in the Redeemer this very night! And then He will see in you of the travail of His soul and the thirst of His great heart will be satisfied! The Lord bless you. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 51; 32; MATTHEW26:59-68; LUKE 23.
+Exposition BY C. H. Spurgeon: PSALMS 51; 32; MATTHEW26:59-68; LUKE 23.
 
 Let us read two Psalms of penitence. Repentance and faith go hand in hand all the way to Heaven. Repenting and believing make up a large measure of the Christian life. First, let us read the fifty-first Psalm, penned by David after his great sin with Bathsheba, when, by the instrumentality of Nathan, he had been led to repentance. What if we have not fallen into any gross open sin? Yet, perhaps if we could see our hearts as God sees them, we should be as much ashamed as the Psalmist was when to the music of his sighs and groans, he poured out this Psalm.
 
@@ -86,7 +86,7 @@ Against You, You only, have I sinned, and done this evil in Your sight: that You
 
 Now, we will read the thirty-second Psalm.
 
-Verses 1-5. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the Lord imputes not iniquity, and in whose spirit there is no guile. When I kept silent, my bones waxed old through my roaring all the day long. For day and night Your hand was heavy upon me: my moisture is turned into the drought of summer Selah. I acknowledged my sin unto You, andmy iniquity have I not hid. I said, I will confess my transgressions unto the LORD, and You forgave the iniquity of my sin. Selah. Soon over. Once poured into Jehovah's ear out of a contrite heart, and the transgression was gone forever! May it be so with you, dear Hearer. If Your sin has never been forgiven you till tonight, may you this night obtain pardon through confession of sin.
+Verses 1-5. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the Lord imputes not iniquity, and in whose spirit there is no guile. When I kept silent, my bones waxed old through my roaring all the day long. For day and night Your hand was heavy upon me: my moisture is turned into the drought of summer Selah. I acknowledged my sin unto You, andmy iniquity have I not hid. I said, I will confess my transgressions unto the Lord, and You forgave the iniquity of my sin. Selah. Soon over. Once poured into Jehovah's ear out of a contrite heart, and the transgression was gone forever! May it be so with you, dear Hearer. If Your sin has never been forgiven you till tonight, may you this night obtain pardon through confession of sin.
 
 6, 7. For this shall everyone that is godly pray unto You in a time when You may be found: surely in the floods of great waters they shall not come near him. You are my hiding place. You shall preserve me from trouble. You shall compass me about with songs of deliverance. Selah.
 
