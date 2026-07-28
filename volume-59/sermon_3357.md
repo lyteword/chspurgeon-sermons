@@ -86,7 +86,7 @@ I have given you good enough reasons, then, for taking heed how you hear, but wh
 
 those already felt. Oh, yield now to the saving Grace of God in Christ Jesus! Look to Him and be saved, I pray you, for Jesus' sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: 2 TIMOTHY 2.
+Exposition BY C. H. Spurgeon: 2 TIMOTHY 2.
 
 Verse 1. You therefore, my son, be strong in the Grace that is in Christ Jesus. This is an exhortation to everyone of us, not only to have Grace, but to be strong in it. There are many professors who as long as they are just saved, are content. We are not content with being barely alive spiritually&mdash;we do not wish to spend our life shivering with cold, but we seek after comfort as well as existence&mdash;and we seek to be in health, as well as to be in life. So should it be with the Christian. He should pray, "Lord, make me strong in the Grace that is in Christ Jesus." Oh, that these words might be not merely an exhortation, but a Divine fiat, that as God said, "Let there be light," so He may say to His children, "Be you strong," and then oh, how soon shall the weakest of us leap into immortal strength!
 
