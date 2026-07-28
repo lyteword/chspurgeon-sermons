@@ -108,7 +108,7 @@ I commend these thoughts to you and earnestly ask you once again, if you have ne
 > That were to die, delightful thought,   
 > As sinner never died!   
 
-EXPOSITION BY C. H. SPURGEON: LUKE 15:1-24.
+Exposition BY C. H. Spurgeon: LUKE 15:1-24.
 
 Verse 1. Then drewnear unto Him all thepublicans andsinners to hearHim. They were drawing near. It was not an unusual occurrence. It was their habit to draw near to Christ. The Pharisees and Scribes stood in the outer ring. They did not come too near. These poor outcasts and publicans and sinners drew near. They wanted to catch every word. They could not have too much of it. They took a delight in getting near to His blessed Person. They drew near to hear Him.
 
