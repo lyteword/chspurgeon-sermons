@@ -96,7 +96,7 @@ to mount! We feel at perfect peace with God right now, and if Death were to come
 
 God grant it for His name's sake! Amen.
 
-EXPOSITION BY C. H. SPURGEON: JOHN11:27-46.
+Exposition BY C. H. Spurgeon: JOHN11:27-46.
 
 Our Lord's greatest miracles were always the reward of faith.
 
