@@ -56,7 +56,7 @@ I may never speak to some of you again, but oh, I should like to leave that thou
 
 The Lord Himself grant it to everyone of you! Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM22:1-22; SONG OF SOLOMON 1:1-7,2:1-7.
+Exposition BY C. H. Spurgeon: PSALM22:1-22; SONG OF SOLOMON 1:1-7,2:1-7.
 
 PSALM22.
 
@@ -68,7 +68,7 @@ But You are holy, O You that inhabit thepraises ofIsrael. No hard thoughts of Go
 
 4-6. Our fathers trusted in You: they trusted, and You did deliver them. They cried unto You, and were delivered: they trusted in You, and were not confounded. But I am a worm, and not a man: a reproach of men, and despised of the people. How low did Christ descend for our sakes not only as low as man, but still lower! Never was godly man forsaken of God, and yet Jesus was&mdash;so He is lower than we are while He hangs upon the tree "a reproach of men, and despised of the people."
 
-7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the LORD that He would deliver Him, let Him deliver Him, seeing He delighted in Him. Was not this just what they said at the Cross? Ah, little did they know that He saved others&mdash;Himself He could not save, because a matchless love held His hands there, as with diamond rivets.
+7, 8. All they that see Me laugh Me to scorn: they shoot out the lip, they shake the head, saying, He trusted on the Lord that He would deliver Him, let Him deliver Him, seeing He delighted in Him. Was not this just what they said at the Cross? Ah, little did they know that He saved others&mdash;Himself He could not save, because a matchless love held His hands there, as with diamond rivets.
 
 9, 10. But You are He that took Me out of the womb: You did make Me hope when I was upon My mother's breasts. I was cast upon You from the womb: You are My God from My mother's belly. He remembers His wonderful birth. He was God's, indeed, from the very first.
 
@@ -84,7 +84,7 @@ The assembly of the wicked has enclosed Me. The hind of the morning is now surro
 
 16, 17. They pierced My hands and My feet. I may count all My bones: they look and stare upon Me. Horrible, to the tender, modest soul of Jesus, were those vile stares of the ribald multitude as they gazed upon Him.
 
-18-22. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O LORD: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power of the dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. I will declare Your name unto My brethren: in the midst of the congregation will I praise You. The sun that was darkened, now shines again. The Savior's griefs are over. A calm is spread over His mind. He is about to say, "It is finished!" and His heart is comforted. We leave that passage there.
+18-22. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O Lord: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power of the dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. I will declare Your name unto My brethren: in the midst of the congregation will I praise You. The sun that was darkened, now shines again. The Savior's griefs are over. A calm is spread over His mind. He is about to say, "It is finished!" and His heart is comforted. We leave that passage there.
 
 SONG OF SOLOMON 1.
 
