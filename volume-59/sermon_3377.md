@@ -71,7 +71,7 @@ Oh, beloved Friends, if you are left while others perish, I beseech you, by the 
 
 But are you in very deed reconciled to God yourselves? Reader, are you cured of the awful disease of sin? Are you marked with the blood-red sign of trust in the atoning blood? Do you believe in the Lord Jesus Christ? If not, the Lord have mercy upon you! May you have sense enough to have mercy upon yourself! May the Spirit of God instruct you to that end. Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS 8:14-30.
+Exposition BY C. H. Spurgeon: ROMANS 8:14-30.
 
 Verse 14. For as many as are led by the Spirit of God, they are the sons of God. Not those who say they are "the sons of God," but those who undoubtedly prove that they are by being led, influenced, gently guided by the Spirit of
 
