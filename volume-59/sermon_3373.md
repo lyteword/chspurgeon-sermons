@@ -2,11 +2,11 @@
 
 "My friends scorn me; but my eyes pour out tears unto God." Job 16:20.
 
-WE know that Job's sorrows were recorded, not for his honor, but for our profit. We are told to consider the patience of Job and truly we might often be sustained, cheered and comforted if we would but look upon that Patriarch in the depths of his grief. We are "born to sorrow" and if our cup is not embittered with it tonight, we must not expect to be long without a taste of the gall in our mouths.
+We know that Job's sorrows were recorded, not for his honor, but for our profit. We are told to consider the patience of Job and truly we might often be sustained, cheered and comforted if we would but look upon that Patriarch in the depths of his grief. We are "born to sorrow" and if our cup is not embittered with it tonight, we must not expect to be long without a taste of the gall in our mouths.
 
 There is one particular sorrow, however, which appertains to the early days of our spiritual life, concerning which I intend to speak tonight. It is the sorrow caused by the scorning of us by our friends. This becomes a very little sorrow to us in later days, but at the first it is a "trial of cruel mocking," and a very severe one. I suppose the advanced Christian at last can even come to "rejoice in tribulations" of this sort&mdash;he counts it to be an honor&mdash;he rejoices and is exceedingly glad when men say all manner of evil against him falsely for Christ's name's sake. But at the first there is nothing, perhaps, more staggering to the young Christian than to find that his "worst foes" are they of his own household and that they who should have cherished and nurtured in him the piety which is so excellent a flower, do their cruel worst to nip it in the bud!
 
-Without further preface, therefore, we shall try, as the Holy Spirit shall teach and help us, to speak to you upon a very common trial, ' 'My friends scorn me." And then, yet again, meditate on a remarkable resort and exercise, ' 'But my eyes pour out tears unto God." First, then, let us think upon&mdash; I. A VERY COMMON TRIAL.
+Without further preface, therefore, we shall try, as the Holy Spirit shall teach and help us, to speak to you upon a very common trial, ' 'My friends scorn me." And then, yet again, meditate on a remarkable resort and exercise, ' 'But my eyes pour out tears unto God." First, then, let us think upon a very common trial.
 
 "My friends scorn me." What is it they do? They scorn me. I shall apply the text tonight to scorn on account of religion. It is lately, my dear young friends&mdash;I address myself particularly to you&mdash;it is lately that you have been impressed. It is lately that you have considered your ways. There has been an evident alteration in you. You have become of a serious cast of mind. You are now a seeker&mdash;you desire salvation. For this reason your friends scorn you. Perhaps they say that you are so miserable that they cannot bear your company. Probably the remark is correct and you feel it to be so, but they do not know that this misery of yours will end in perfect joy. They do not comprehend this rough plowing of your soul, which is preparatory to the joyful harvest. They do not understand that the good Physician often uses the lancet and opens wide the wound before He comes with His downy fingers to close it and to heal it. You are miserable and you might expect them, therefore, to be the more gentle with you and to help your faith as much as possible, but instead of that, they continually tell you that your company is altogether unbearable&mdash;and so they scorn you. Meanwhile, they also insinuate that the attention which you are now paying to religious matters is with a sinister motive and design. They say that you are a hypocrite! They cannot understand that there can be such a thing as religious sincerity. To them it is all hypocrisy. They suppose that all those who seek to live godly lives in Christ Jesus are merely making a pretense with a view to some personal advantage. Do not be surprised if they insinuate that you "cant," if they mimic any tone that may be peculiar to you&mdash;if in any and every way possible they throw in your face the insinuation that you are false and hypocritical. And, perhaps, they also twit you with your faults, which are, alas, too many&mdash;and are near the surface&mdash;and so very easily visible to them.
 
@@ -30,7 +30,7 @@ Let me say, however, take care that you do not give any cause of offense. It is 
 
 Now, I know that what I have been saying does not belong to a great many of you. But still, I must sometimes take texts which will apply to these special cases, especially as just now there are many who have been saved at the Agricultural Hall, and here, and elsewhere, and to whom the struggle for conscience' sake is quite a new thing. And a word or two by way of comfort to them I am sure you will not grudge. And now we shall turn to the second part of the sermon, and we find the Patriarch engaged in&mdash;
 
-a REMARKABLE RESORT AND EXERCISE.
+a remarkable resort and exercise.
 
 His friends were scorning him, but he did not answer them. He had a sharp word or two, certainly, but still, the direction of his mind and the bent of his spirit went another way. He thought of God and forgot them. Herein is wisdom. When you are perplexed with a trouble, when you are mortified by some wicked person, do not let that thing always fret you. Have you ever noticed how you may torment yourselves with some little thing if you like? There is a fly in the room and that fly may be almost as much a trouble to you as though it were an eagle if you let its buzz be always in your ears. And if you keep on thinking about that buzzing fly, you can magnify it into a big dragon with wings. But if you forget it, and go on with your writing or your needlework, the fly may buzz away 50 times as much, but it will not trouble you! It is a very blessed thing, when, having a care which you cannot get over, you take it to God in prayer and so get over it. I will tell you what I have sometimes done with some of my difficulties. I have turned them over&mdash;I have looked at them in all shapes and ways&mdash;I have considered every way of getting over them. I have been vexed, troubled and distressed for the time, and at last I have come to feel, "Well now, I cannot do anything with this. It is a hard shell&mdash;I cannot crack it. But I have frequently been enabled by Grace to deliberately take that matter and put it upon the shelf and say, "By God's Grace I will never think about that again as long as I live&mdash;I have done the best I could with it, Lord, and if it does not get right, that is now Your business and not mine&mdash;I will be done with it forever." Sometimes you will find that the trouble will get right as soon as you leave it alone. It is just your meddling with it that makes the difficulty. You do not see that at the time, but as soon as you just get out of the way, the whole thing becomes right at once! God's wheels of Providence grind much more accurately than any of the wheels of our mental calculations. And when we are altogether out of joint, then it is that God comes in and shows us what His wisdom and power can do. Leave, then, the scorning friends, and betake yourselves to your God!
 
@@ -56,7 +56,7 @@ I may never speak to some of you again, but oh, I should like to leave that thou
 
 The Lord Himself grant it to everyone of you! Amen.
 
-Exposition BY C. H. Spurgeon: PSALM22:1-22; SONG OF SOLOMON 1:1-7,2:1-7.
+Exposition by C. H. Spurgeon: PSALM22:1-22; Song of Solomon 1:1-7,2:1-7.
 
 PSALM22.
 
@@ -86,7 +86,7 @@ The assembly of the wicked has enclosed Me. The hind of the morning is now surro
 
 18-22. They part My garments among them, and cast lots upon My vesture. But be not You far from Me, O Lord: O My Strength, hasten You to help Me. Deliver My soul from the sword; My darling from the power of the dog. Save Me from the lion's mouth: for You have heard Me from the horns of the unicorns. I will declare Your name unto My brethren: in the midst of the congregation will I praise You. The sun that was darkened, now shines again. The Savior's griefs are over. A calm is spread over His mind. He is about to say, "It is finished!" and His heart is comforted. We leave that passage there.
 
-SONG OF SOLOMON 1.
+Song of Solomon 1.
 
 Now, concerning our love to Him, let us read a few verses of the Song of Solomon, first Chapter. You have been introduced to the Beloved, red with His own blood, but never so lovely as in His passion.
 
@@ -102,7 +102,7 @@ I am black, but comely, O you daughters of Jerusalem, as the tents of Kedar, as 
 
 7. Look not upon me, because I am black, because the sun has looked upon me. My mother's children were angry with me: they made me the keeper of the vineyards; but my own vineyard have I not kept. Tell me, O You whom my soul loves, where You feed, where You make Your flock to rest at noon: for why should I be as one that turns aside by the flocks of Your companions? A few verses of the next Chapter.
 
-CHAPTER 2
+Chapter 2
 
 Song of Solomon 2:1. I am the rose of Sharon, and the lily of the valleys. So He is, and much more than that&mdash;
 
