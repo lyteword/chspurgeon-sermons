@@ -8,7 +8,7 @@ But the sentence before us is equally applicable to every other Gospel precept. 
 
 You will notice in the text that there are two "ifs"&mdash;"If you know these things, happy are you if you do them." It appears, then, first, that genuine and acceptable service to Christ should be based upon intelligent knowledge&mdash;"If you know these things." And secondly, that all intelligent understanding of the things of God should lead us to the practice of them&mdash;"Happy are you if you do them." The first "if shall be taken first&mdash;"If you know these things"&mdash;
 
-ALL SERVICE OF Christ IS BASED UPON INTELLIGENT KNOWLEDGE.
+all service of Christ is based upon intelligent knowledge.
 
 Our first observation is that this is an "if even in this country. "If you know these things." Alas, even in such a city as this, where the Gospel is to be heard in all our streets and Bibles are to be found in all our homes, it is so sad that tens of thousands do not know these things! They are so careless about what God has revealed that they will not even cross the threshold to listen to the Word of God! This day what a mass of Sabbath-breaking has grieved the Spirit of God! All around us there are those who are toiling hard six days in the week for themselves and cannot give to their God and, I may add, to their truer and nobler selves, this one day in which to think of Him. He has written to them the great things of His Law and they have trifled with it! He speaks to them and invites them to hear that their souls may live, but they would rather rest in their beds, or be found in any kind of pleasure sooner than seeking pleasure in the ways of God! Pity this poor city, you who know its sins! Pray for it, you who know its high privileges and solemn responsibilities! Work for it, you who have power with the heavenly Father, until at last the blessing shall come and men shall no longer need to say to their fellows, "Know the Lord."
 
@@ -38,9 +38,9 @@ What should come of it? Why, if you know these things and have learned them by t
 
 Thus much about the first "if." It looks to me like the first arch&mdash;and having passed through it, I can see another beyond me&mdash;and I must pass to the second if I would get the happiness.
 
-THE INTELLIGENT KNOWLEDGE OF THE THINGS OF God SHOULD LEAD US TO THE PRACTICE
+the intelligent knowledge of the things of God should lead us to the practice
 
-OF THEM.
+of them.
 
 "If you know these things, happy are you if you do them."
 
@@ -62,7 +62,7 @@ In the next place, for God to give the comforts of His promises to men who will 
 
 To give His blessing to those who do not practice His precepts would be, in fact, to give a premium for sin. The more knowledge, if that knowledge is not put into practice, the more sin, in consequence! Shall God reward a man who, sitting in the Light of God, will not walk by the Light? And shall He give enjoyments to those who know His will and who do not that will? No, Sirs, if blessings came to merely knowledge, I suppose the devil would be the most blessed of beings! Certainly if the comforts of the Gospel came to those who understand the Gospel best, but who do not practice it, there would be some of the vilest of mankind who would be orthodox enough&mdash;who would, on such a rule, go to Heaven! But they shall find themselves shut out when that judgment shall be given which proceeds upon this rule, "By their fruits you shall know them." You all see, without any reasoning from me, that it would seem strange, indeed, if God allowed the precepts of the Gospel to be trampled underfoot and then gave the same blessings to the rebellious as to the graciously obedient! It must not, shall not be! See we not, then, that our happiness from the things of God must come, not merely through knowledge, though that is the first stage of Divine Favor&mdash;but we must not rest satisfied until we pass into the second stage&mdash;the doingof what we have learned! We close with the question which the text naturally inspires&mdash;
 
-WHAT IS THE HAPPINESS WHICH THIS PRACTICAL OBEDIENCE BRINGS?
+what is the happiness which this practical obedience brings?
 
 Briefly, it is always a blessed thing to be obedient to God. The very soul of joy to the creature who wants to be truly happy is conformity to the will of the Creator. When God's will and ours keep pace together, it will be Heaven on earth to us! It is only when our will jars with the Divine mind that our soul's happiness departs, but when we are helped to lay
 
@@ -78,7 +78,7 @@ But, painful reflection! There are many&mdash;very many&mdash;and you know who t
 
 If there is a living Christ to pardon you and make you snowy clean, resolve you will find Him! If there is a road to Heaven, determine to find and walk in it. "And now farewell sin, farewell self-righteousness, farewell the shallow pleasures of this world! Jesus, take my heart just as it is&mdash;I give it up to You&mdash;and help me to do now what I have never done before&mdash;to put in practice what I hear, and carry out what I have been taught." So may God help you and we will meet in Heaven and we will say together there that this night's text was true, "If you know these things, happy are you if you do them." God help you to do them, now, for Christ's sake. Amen.
 
-Exposition BY C. H. Spurgeon: HEBREWS 11.
+Exposition by C. H. Spurgeon: Hebrews 11.
 
 First, a definition of faith.
 
