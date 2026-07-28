@@ -14,7 +14,7 @@ Coming now, however, at once to the text, we shall notice, in the first place, t
 
 These things, I think, are very evidently in the text. In the first place, then, in the text&mdash;
 
-OUR Lord Jesus Christ CLAIMS TO BE "GREATER THAN SOLOMON."
+our Lord Jesus Christ claims to be "greater than Solomon."
 
 You all know the history of Solomon. Solomon was great in several particulars and we shall point out to you that in each of these, Christ is greater than he.
 
@@ -70,7 +70,7 @@ He was renowned for this. You have his Proverbs, his Ecclesiastes, one of his th
 
 But the wisdom of our Lord Jesus Christ far transcends this, for He can open up all the dark questions of your mind! He can teach you, O man, what you most want to know. He can teach you the way to Heaven, the way to escape from the power as well as the result of your sins, the way to get peace with God! The sages could not tell you this, but Jesus can. Seek Him, for He is greater than Solomon! I had more to say upon this point, but time will not allow, for I must have a word or two upon the second head, which is&mdash;
 
-THIS Jesus IS HERE
+this Jesus is here
 
 He is not here in body. As we reminded you last Sabbath evening, He is gone. He is not here in that sense, "for He is risen." But Christ is here by His Spirit. If you want to get to Christ, this is the way&mdash;think of Him. That is, coming towards Him. Read His life. Study His death. Meditate upon Him. Let the thought of His laying down His life for His enemies dwell upon your minds. I wish that some of you would read the story of His Crucifixion very, very often. If you have not any faith, perhaps faith will come while you are reading it. "God commended His love towards us in that while we were yet sinners, in due time Christ died for the ungodly." He did not die for those good people who have not any sin. He had nothing to do with those good people who are so righteous that they can get to Heaven their own way. Christ died for the guilty, the lost, the worthless. He comes like a physician to the sick&mdash;like one who gives sustenance to the perishing poor. Oh, read His life, for this will help you to come to Him!
 
@@ -78,7 +78,7 @@ The true way in which to come to Christ is to believe Him, to trust Him. If any 
 
 That is the only way of salvation, to throw yourselves completely on Jesus! God must punish sin, but Christ bore what was due to our sin in the place of sinners, of all who trust Him! If you trust Him, then Christ was punished instead of you and no penalty can fall on you. Your debts have all been paid by Christ and God cannot&mdash;for He is righteous&mdash; demand from you what Jesus has already endured for your sake. If you trust Jesus Christ, then, as sure as God is true, He will save you! It is His own promise, "He that believes and is baptized shall be saved." Now, for the purpose of trusting, Christ is here. If you could see Him with your eyes, you could not trust Him any more than you can tonight when you cannot see Him, though He is here and oh, wonder of wonders, He is also engaged yonder in Heaven, according to this Book, in pleading for you! You do not need to see a man to trust him. I can trust a man who is in India. I can trust a brother whom I may have in Australia, I can trust a man who may be in the backwoods of America and trust him quite as well as if I saw him&mdash;perhaps my trust might be all the more like trust because I did not see him. We say that there are some people whom we can only trust as far as we can throw them, that is to say, we cannot trust them at all! But Christ is not of that kind. For all the purposes that are needed, then, to save you, Christ is here! By His Spirit He is here, and here now, and He will now whisper into your soul, "Peace. Your sins are forgiven you." If you will now trust Him, you shall have in your heart a peace which passes all understanding, which shall be the best proof to you that Jesus is here. Oh, why do you put it off? Oh, why do you who feel you need a Savior, continue so long away from this simple faith." I prayed for you just now&mdash;the Lord knows how sincerely I prayed&mdash;that we might all meet in Heaven. We never shall, unless we all believe in Jesus, for He is the one Door&mdash;if we will not enter by Him, we cannot enter&mdash;there is no stealing or climbing our way there.
 
-If we have to come and rest in Christ, why should we not do it tonight? Oh, why should we this night not be led to rest alone in Christ? If we do this, we are saved, already saved, completely saved, irrevocably saved&mdash;so saved that neither death nor Hell shall ever divide the Believer from his Lord! May this be done by us all, for Jesus is here. And now I have to close by saying that if, with this Gospel before us, we do not come to this greater than Solomon&mdash; III. THE QUEEN OF SHEBA WILL CONDEMN US!
+If we have to come and rest in Christ, why should we not do it tonight? Oh, why should we this night not be led to rest alone in Christ? If we do this, we are saved, already saved, completely saved, irrevocably saved&mdash;so saved that neither death nor Hell shall ever divide the Believer from his Lord! May this be done by us all, for Jesus is here. And now I have to close by saying that if, with this Gospel before us, we do not come to this greater than Solomon, the Queen of Sheba will condemn us!
 
 For look! She was a heathen who had heard but a little about Solomon and yet she came to see if it were true. You profess to be Christians, many of you. You have heard about Jesus from the time when you left the cradle. If you come not, these many Sundays, these many sermons, these good books and these Bibles of yours&mdash;what shall they be but like the big stones that were hurled at Achan to destroy him for his sin? May God grant that you may not sin against the Light of God, but may the Light lead you to Christ that you may be saved!
 
@@ -105,7 +105,7 @@ Lord Jesus Christ and you shall be saved." "He that believes and is baptized sha
 
 May the Eternal Spirit bring you, empty-handed and ruined, to the All-Sufficient Savior and may you be enabled to now rely upon Him and you shall find that He is true! "Him that comes unto Me," He says, "I will in no wise cast out." The Lord bless you for Christ's sake!
 
-Exposition BY C. H. Spurgeon: PSALM 119:113-120.
+Exposition by C. H. Spurgeon: Psalm 119:113-120.
 
 The proper way in which to read these verses is to peruse them in the spirit of prayer, turning every verse into a personal supplication to God. I trust that many of us may be so in the Spirit, today, that these words may suit us.
 
