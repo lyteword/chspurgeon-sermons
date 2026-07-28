@@ -92,7 +92,7 @@ Well, but where&mdash;where&mdash;where? You do not like to say where and I will
 
 So may it be with you, for Jesus' sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: ROMANS3:9.
+Exposition BY C. H. Spurgeon: ROMANS3:9.
 
 Verses 9, 10. What then? Are we better than they? No, in no wise: for we have before proved both Jews and Gentiles, that they are all under sin. As it is written, There is none righteous, no, not one. There is none that understands, there is none that seeks after God. They are all gone out of the way, they are together become unprofitable; there is none that does good, no, not one. Their throat is an open sepulcher: with their tongues they have used deceit; the poison of asps is under their lips. Whose mouth is full of cursing and bitterness: their feet are swift to shed blood. Destruction and misery are in their ways. And the way of peace have they not known.' There is no fear of God before their eyes. This is a description of man given by Prophets in the olden times. "Now," says Paul, "we know that what things soever the Law says, it says to them who are under the Law." So that this is a description of the Jews, a description of the people who had the Light of God, the best people that were then upon the face of the earth&mdash;and if these are the good people&mdash; where are the Gentiles, the bad ones without the Light?
 
