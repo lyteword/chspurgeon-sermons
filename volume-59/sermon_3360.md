@@ -54,7 +54,7 @@ If Christ is thus alone in suffering, Brothers and Sisters, let us seek to make 
 
 The Lord give us such a frame of mind as that, tonight, when we come to the breaking of bread, and His be the glory. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALM 69:1-21; MARK 15:15-23; LUKE23:26-33.
+Exposition BY C. H. Spurgeon: PSALM 69:1-21; MARK 15:15-23; LUKE23:26-33.
 
 We shall read together at this time a part of the sixty-ninth Psalm and afterwards two passages in the New Testament. Although there is no doubt that this Psalm is intended to describe a very large class of sufferers, we think it never had its full meaning perfectly carried out until our blessed Lord and Master suffered at the hands of men. We shall read the Psalm believing that it is full of Christ. It is absolutely certain that we have references hare to His Advent, His passion and His Resurrection.
 
