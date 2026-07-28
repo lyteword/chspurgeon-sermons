@@ -8,7 +8,7 @@ But I prefer tonight to take the text as it may refer to God's dealings with His
 
 Now, these dealings of God with His servants, always wise and prudent, are frequently like great deeps. This evening I shall simply work out three or four thoughts which arise out of that metaphor.
 
-THE DEALINGS OF GOD WITH HIS PEOPLE ARE OFTEN UNFATHOMABLE.
+THE DEALINGS OF God WITH HIS PEOPLE ARE OFTEN UNFATHOMABLE.
 
 We cannot discover the foundation or cause and spring of them. Some of God's servants who are earnestly desirous to provide things honest in the sight of all men, though they are industrious and energetic and use proper prudence, do not find themselves able to prosper in trade. They are thwarted in all their purposes. There seems to be a kind of fatality connected with all their enterprises. If they do but touch a business or a bargain which will turn into gold with the traffic of others, it melts under their hand into dross. Now, it is not always that this can be explained. "Your judgments are a great deep"&mdash;a matter to be perceived as a fact, but not to be explained by reasoning.
 
@@ -62,7 +62,7 @@ Dear child of God, you that are in trouble tonight, the voice of that trouble is
 
 May God bless the tried ones here! But there are some here, perhaps, who are in trial and have no God to go to. Poor souls! Poor souls! Poverty and no God! Sickness and no God! A life of toil, and no Heaven! A slavery of penury on earth and then driven forever away from God's Presence! Oh, how pitiable! How pitiable! Pity yourselves and remember that it need not always be so. You may have a Heaven, you may have present bliss. Here is the Gospel&mdash;"He that believes and is baptized shall be saved." Oh, if you can but trust Him who bled upon the Cross, you shall have comfort for your present trouble! You shall have pardon for your past, present and future sins! The Lord bless each one of you, for Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: PSALMS 73; 37:1-10.
+Exposition BY C. H. Spurgeon: PSALMS 73; 37:1-10.
 
 TITLE, "A PSALM OF ASAPH." He was a great singer, but he could not always sing. In the first part of the Psalm he felt rather like groaning than singing&mdash;and you shall find that those who sing the sweetest the praises of God sometimes have to hang their harps upon the willows and are silent. The strong temptation through which Asaph passed is one which is very common. You find another account of it in the thirty-seventh Psalm. It may help your memory to notice that it is the thirty-seventh and the seventy-third Psalm (transpose the figures) which are both upon the same subject&mdash;the temptation caused to the people of God by the prosperity of the wicked.
 
@@ -124,21 +124,21 @@ My flesh and my heart fails. I see what a poor thing I am. I allowed my flesh an
 
 26, 27. But God is the strength of my heart, and my portion forever. For, lo, they that are far from You shall perish: You have destroyed all them that go a whoring from You. A strong word, but none too forcible, for every heart that seeks delight away from God is an unchaste heart. It has got away from true purity even for a moment in pouring out its love upon the creature.
 
-But it is good for me to draw near to God: I have put my trust in the Lord GOD, that I may declare all Your works.
+But it is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works.
 
 PSALM 37. Verse 1. Fret not yourself because of evildoers, neither be you envious against the workers of iniquity. A common temptation. Many of God's saints have suffered from it. Learn from their experience. Avoid this danger. There really is no power in it when once the heart has come to rest in God. But it is a sad affliction until the heart does get its rest. "Fret not because of evildoers."
 
-2-4. For they shallsoon be cut down like the grass, and wither as the green herb. Trust in the LORD, and do good; so shall you dwell in the land, and verily you shall be fed. Delight yourself also in the LORD. Make Him your delight, and take care that you do really delight. Feel a fullness of joy in Him.
+2-4. For they shallsoon be cut down like the grass, and wither as the green herb. Trust in the Lord, and do good; so shall you dwell in the land, and verily you shall be fed. Delight yourself also in the Lord. Make Him your delight, and take care that you do really delight. Feel a fullness of joy in Him.
 
 And He shall give you the desires of your heart. Because when the heart delights in God, then its desires are all such as God can safely grant. He does not say to every man, or even to every praying man, "I will give you the desires of your heart," but, "Delight yourself in the Lord," and then He will.
 
-Commit your way unto the LORD. Give it up to Him to rule it, and to guide you and lead you in every step. "Commit your way unto the Lord."
+Commit your way unto the Lord. Give it up to Him to rule it, and to guide you and lead you in every step. "Commit your way unto the Lord."
 
 5, 6. Trust also in Him and He shall bring it to pass. And He shall bring forth your righteousness as the light, and your judgment as the noonday. It is better to trust our character with God than with the ablest counselor. Scandal may pass over a fair name for a while and cloud it, but God is the avenger of all the righteous! There will be a resurrection of reputations, as well as of persons at the Last Great Day. Only we must commit it to God.
 
-7, 8. Rest in the LORD, and wait patiently for Him: fret not yourself because of him who prospers in his way, because of the man who brings wicked devices to pass. Cease from anger, and forsake wrath: fret not yourself in any wise to do evil a fretful spirit soon comes to be an angry spirit&mdash;and when we begin to be jealous of evildoers, we are very apt to become evildoers ourselves! Many an honest man has snatched at hasty gain because he was envious of the prosperity of the unrighteous. And then he has pierced himself through with many sorrows in consequence. But "fret not yourself in any wise to do evil." There is an old proverb that it is hard for an empty sack to stand upright. Therefore, when you are in temporal trouble, ask the Lord to fill you with His Grace, for then you will stand upright and, by-and-by, you shall be delivered.
+7, 8. Rest in the Lord, and wait patiently for Him: fret not yourself because of him who prospers in his way, because of the man who brings wicked devices to pass. Cease from anger, and forsake wrath: fret not yourself in any wise to do evil a fretful spirit soon comes to be an angry spirit&mdash;and when we begin to be jealous of evildoers, we are very apt to become evildoers ourselves! Many an honest man has snatched at hasty gain because he was envious of the prosperity of the unrighteous. And then he has pierced himself through with many sorrows in consequence. But "fret not yourself in any wise to do evil." There is an old proverb that it is hard for an empty sack to stand upright. Therefore, when you are in temporal trouble, ask the Lord to fill you with His Grace, for then you will stand upright and, by-and-by, you shall be delivered.
 
-For evildoers shall be cut off: but those that wait upon the LORD, they shallinherit the earth. If there is anything good to be had here, men that wait upon God shall have it! If there is any grain of wheat amidst these heaps of chaff, Believers that are trusting the Lord shall find them!
+For evildoers shall be cut off: but those that wait upon the Lord, they shallinherit the earth. If there is anything good to be had here, men that wait upon God shall have it! If there is any grain of wheat amidst these heaps of chaff, Believers that are trusting the Lord shall find them!
 
 For yet a little while, and the wicked shall not be. How transient are their joys! Their wealth which they accumulate, the beauty which they think is upon their estate&mdash;all this is but as the painted colors of the bubble, which is scarcely seen before it vanishes. Will you envy this? Will you envy a little child his playthings, which will be broken in an hour? Will you envy a madman the straw crown which he plaits and puts upon his head when he thinks himself a king? Oh, be not so foolish! Your inheritance is eternal and you are immortal! Why should you envy the creature of an hour? "For yet a little while, and the wicked shall not be."
 
