@@ -10,7 +10,7 @@ It is implied, again, in the text that a man hears the Gospel, for it does not m
 
 But now, these two things being granted&mdash;that we ought to hear and that it ought to be the Gospel&mdash;the text graciously counsels us, "Take heed how you hear." We purpose to handle our theme after this fashion. First, there is a caution implied in the text. Secondly, there are rules intended in it. And then again, there are strong reasons for it. First, there is&mdash;
 
-a CAUTION IMPLIED IN THE TEXT.
+a caution implied in the text.
 
 "Take heed how you hear." The caution is that we should not think it a trifling thing to hear the Gospel of Jesus Christ. "Take heed"&mdash;as though you had to stop on the threshold and remember where you are. Take heed, take heed and remember, then, that it is no trifling thing to hear a sermon if it is a Gospel sermon! Some think it is a simple work to preach and child's play to sit and listen. When the great trumpet peals and the dead are awakened, they will think very differently! They will reckon that speech was never put to so noble a purpose as when it was used to bring men to reconciliation with their Maker&mdash;and that ears were never used to as good an end as when they were used attentively to hear what God the Lord would speak when He would bid the rebel come to Him and find mercy! The preacher, if he is what he should be, does not think it a light or easy thing to preach. It is said of Luther that he never feared any man and yet he declares that he never preached a sermon without his knees knocking together because he trembled lest he should be guilty of the blood of any of his hearers. This is the great burden of my life, lest I should miss anything that should be profitable to you. Lest, in dealing with God's Word, I should be like some untaught chemist's lad who is mixing medicines which were meant for restoring health, but who introduces poisons into them. No! But I would tell you all I know, tell you all God's Word as I have learned it and speak it honestly, affectionately and plainly, trusting thus to be clear of the blood of all men!
 
@@ -28,7 +28,7 @@ There may have come in here some poor desponding men and women, ready to make aw
 
 Oh, may it be a blessed night to some of you while you are here! Pray for it, people of God! "The effectual fervent prayer of a righteous man avails much." Let your prayer go up that souls here may so hear the Word of the Gospel of salvation as being a great message from God and, therefore, may hear it with all their hearts and so listen to it that it may be salvation unto them according to the Master's promise, "Incline your ears and come unto Me: hear and your souls shall live." Now, and at somewhat greater length&mdash;
 
-THE TEXT IMPLIES SOME RULES AS TO HEARING.
+the text implies some rules as to hearing.
 
 The text is multum in parvo&mdash;much in little. "Take heed how you hear," means many things. Do not be alarmed when I say that we shall have seven points under this head. That you may remember them, I have put them in the order of the alphabet.
 
@@ -58,7 +58,7 @@ Again, "take heed how you hear," and mind that you hear gratefully and prayerful
 
 May God give you Grace to put in practice these seven hints that I have given you. "Take heed how you hear." And now, lastly, there are&mdash;
 
-CERTAIN OBVIOUS REASONS FOR TAKING HEED HOW YOU HEAR.
+certain obvious reasons for taking heed how you hear.
 
 And the first is because it is God's Word. Not everything that I say, or that any minister says, is God's Word. Hence you should take heed to separate between what is God's and what is ours. But wherein we speak according to Holy Scripture, it is as much God's Word as if God Himself spoke. And let me remind you that God's Word, whoever speaks it, is a much more solemn matter than a king's word! Where the word of a king is, there is power, but where the Word of God is, though a boy should speak it, there is Irresistible Power! It is better for you to hear God's Word from your fellow men than it would be to hear it from an angel, for God would have employed angels on such messages if they had been better. But because men can enter with greater sympathy into your feelings, God has not given this ministry unto angels, but has "committed unto us the word of reconciliation." It is better for you to hear it from us than it would be to hear it from one who should rise from the dead, for if not, God would bid them rise from the dead and preach to you. But remember, He would not send any from the dead to preach to Dive's kinsmen.
 
@@ -86,7 +86,7 @@ I have given you good enough reasons, then, for taking heed how you hear, but wh
 
 those already felt. Oh, yield now to the saving Grace of God in Christ Jesus! Look to Him and be saved, I pray you, for Jesus' sake. Amen.
 
-Exposition BY C. H. Spurgeon: 2 TIMOTHY 2.
+Exposition by C. H. Spurgeon: 2 Timothy 2.
 
 Verse 1. You therefore, my son, be strong in the Grace that is in Christ Jesus. This is an exhortation to everyone of us, not only to have Grace, but to be strong in it. There are many professors who as long as they are just saved, are content. We are not content with being barely alive spiritually&mdash;we do not wish to spend our life shivering with cold, but we seek after comfort as well as existence&mdash;and we seek to be in health, as well as to be in life. So should it be with the Christian. He should pray, "Lord, make me strong in the Grace that is in Christ Jesus." Oh, that these words might be not merely an exhortation, but a Divine fiat, that as God said, "Let there be light," so He may say to His children, "Be you strong," and then oh, how soon shall the weakest of us leap into immortal strength!
 
