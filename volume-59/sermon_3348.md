@@ -8,7 +8,7 @@ But the sentence before us is equally applicable to every other Gospel precept. 
 
 You will notice in the text that there are two "ifs"&mdash;"If you know these things, happy are you if you do them." It appears, then, first, that genuine and acceptable service to Christ should be based upon intelligent knowledge&mdash;"If you know these things." And secondly, that all intelligent understanding of the things of God should lead us to the practice of them&mdash;"Happy are you if you do them." The first "if shall be taken first&mdash;"If you know these things"&mdash;
 
-ALL SERVICE OF CHRIST IS BASED UPON INTELLIGENT KNOWLEDGE.
+ALL SERVICE OF Christ IS BASED UPON INTELLIGENT KNOWLEDGE.
 
 Our first observation is that this is an "if even in this country. "If you know these things." Alas, even in such a city as this, where the Gospel is to be heard in all our streets and Bibles are to be found in all our homes, it is so sad that tens of thousands do not know these things! They are so careless about what God has revealed that they will not even cross the threshold to listen to the Word of God! This day what a mass of Sabbath-breaking has grieved the Spirit of God! All around us there are those who are toiling hard six days in the week for themselves and cannot give to their God and, I may add, to their truer and nobler selves, this one day in which to think of Him. He has written to them the great things of His Law and they have trifled with it! He speaks to them and invites them to hear that their souls may live, but they would rather rest in their beds, or be found in any kind of pleasure sooner than seeking pleasure in the ways of God! Pity this poor city, you who know its sins! Pray for it, you who know its high privileges and solemn responsibilities! Work for it, you who have power with the heavenly Father, until at last the blessing shall come and men shall no longer need to say to their fellows, "Know the Lord."
 
@@ -38,7 +38,7 @@ What should come of it? Why, if you know these things and have learned them by t
 
 Thus much about the first "if." It looks to me like the first arch&mdash;and having passed through it, I can see another beyond me&mdash;and I must pass to the second if I would get the happiness.
 
-THE INTELLIGENT KNOWLEDGE OF THE THINGS OF GOD SHOULD LEAD US TO THE PRACTICE
+THE INTELLIGENT KNOWLEDGE OF THE THINGS OF God SHOULD LEAD US TO THE PRACTICE
 
 OF THEM.
 
@@ -78,7 +78,7 @@ But, painful reflection! There are many&mdash;very many&mdash;and you know who t
 
 If there is a living Christ to pardon you and make you snowy clean, resolve you will find Him! If there is a road to Heaven, determine to find and walk in it. "And now farewell sin, farewell self-righteousness, farewell the shallow pleasures of this world! Jesus, take my heart just as it is&mdash;I give it up to You&mdash;and help me to do now what I have never done before&mdash;to put in practice what I hear, and carry out what I have been taught." So may God help you and we will meet in Heaven and we will say together there that this night's text was true, "If you know these things, happy are you if you do them." God help you to do them, now, for Christ's sake. Amen.
 
-EXPOSITION BY C. H. SPURGEON: HEBREWS 11.
+Exposition BY C. H. Spurgeon: HEBREWS 11.
 
 First, a definition of faith.
 
