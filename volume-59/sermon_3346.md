@@ -84,7 +84,7 @@ And now may the good Lord keep our thoughts Heavenward and bless us in them, for
 
 7
 
-EXPOSITION BY C. H. SPURGEON: PSALM 73.
+Exposition BY C. H. Spurgeon: PSALM 73.
 
 Here you have the Psalmist in a fainting fit. He has allowed the flesh to conquer the spirit. The observant eye of reason has, for awhile rendered dim the clear vision of faith.
 
@@ -116,4 +116,4 @@ melting down their foundation.
 
 19, 22. How are they brought into desolation, as in a moment! They are utterly consumed with terrors. As a dream when one awakes; so, O Lord, when You awake, You shall despise their image. Thus my heart was grieved, and I was pricked in my veins. So foolish was I, and ignorant: I was as a beast before You. It is a man of God that talks thus about himself. He feels that he had got to act and think as a beast might do, for a beast only calculates things according to time present&mdash;it crops the grass, is satisfied and lies down. But an immortal man ought to take a wider sweep and range in his thoughts and not merely think of today and of this present life, but of the end of time and of the eternity that lies beyond this present mortal state! And because he had failed to do so, he calls himself foolish and ignorant, and says&mdash;
 
-23, 28. Nevertheless I am continually with You: You have held me by my right hand. You shall guide me with Your counsel, and afterwards receive me to Glory. Whom have I in Heaven but You? And there is none upon earth that I desire beside You. My flesh and my heart fails: but God is the strength of my heart, and my portion forever. For, lo, they who are far from You shall perish: You have destroyed all them that desert You for harlotry But it is good for me to draw near to God: I have put my trust in the Lord GOD, that I may declare all Your works. He finds all his comfort in his God. He comes to the conclusion that whatever the portion of the ungodly may be, his is infinitely better than theirs because they have not God and he has God, who is All-in-All!
+23, 28. Nevertheless I am continually with You: You have held me by my right hand. You shall guide me with Your counsel, and afterwards receive me to Glory. Whom have I in Heaven but You? And there is none upon earth that I desire beside You. My flesh and my heart fails: but God is the strength of my heart, and my portion forever. For, lo, they who are far from You shall perish: You have destroyed all them that desert You for harlotry But it is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all Your works. He finds all his comfort in his God. He comes to the conclusion that whatever the portion of the ungodly may be, his is infinitely better than theirs because they have not God and he has God, who is All-in-All!
