@@ -12,7 +12,7 @@ Now, in the spirit of these two thoughts, let us come to this text, which is ver
 
 There are just two great and splendid gifts that God here declares He will bestow. First, the gift of Grace, and then next, the gift of Glory. We will take the first gift first in our meditations&mdash;
 
-GOD WILL GIVE GRACE.
+God WILL GIVE GRACE.
 
 To whom will He give Grace? Broadly understood, we may say that He will give Grace to His own chosen ones. So is it in the Covenant of Grace. "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion. So, then, it is not of him that wills, nor of him that runs, but of God that shows mercy." Grace is a most Sovereign thing. God has the right to give it where He pleases and He takes care that the Sovereignty shall be seen. Some of His chosen ones have gone afar into sin, but He gives them Grace, for all that. Some of them may be on the very verge of destruction and come to the last hour of life&mdash;but still, He will give them Grace&mdash;and there is not one upon whom His electing love has set the broad arrow of the Kingdom, marking that man to be a vessel of mercy, who shall pass away without receiving Divine Grace! This is a broad statement and though there are some that cavil at it, yet rest assured that it is the Truth of God!
 
