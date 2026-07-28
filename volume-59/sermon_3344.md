@@ -24,7 +24,7 @@ It will already comfort you to know that Christ has been where you are. It will 
 
 In the first place, the text&mdash;without any inquiry into the cause of unanswered prayer, seems to give&mdash;
 
-a GENERAL GUIDE FOR OUR CONDUCT.
+a general guide for our conduct.
 
 Suppose that we have been seeking some blessing from God for many months and have not obtained it? Whether it is a personal blessing, or on behalf of others, what ought to be our conduct under such a trial as that, the trial of a long delay, or an apparent refusal?
 
@@ -42,7 +42,7 @@ and you must besiege the Mercy Seat, determined to win the day, and then shall y
 
 And yet again, cease not to hope. The New Zealander has a word for hope which means, "the swimming thought," because when all other thoughts are drowned, hope still swims. She lifts her head out of the foamy waves with her tresses all trailing and sees the blue sky above her and hopes, as it is there. So if you have prayed ever so long, yet hope on! "Hope you in God, for I shall yet praise Him who is the strength of my life and my portion forever." As long as there is a place of prayer and a promise of an answer, no Believer ought to give way to despair. "Go again," said Elijah to his servant seven times! It must have been weary work to the Prophet to have to wait so long. He did not stand up once and pray to God as on Carmel&mdash;and then instantly came down the fire to continue the sacrifice&mdash;but again and again and, getting more humble in posture, with his face between his knees, he beseeches the Lord, not for fire, which was an unusual thing, but for water, which is the common gift of the skies! And though he pleads for that which the Lord, Himself, had promised, yet it did not at once come! And when his servant came back, four, five, six times, the answer was still the same&mdash;there was no sign of rain, but the brazen heavens looked down on an earth which was parched as if in an oven! "Go again!" said the Prophet, and at the seventh time, lo, there appeared the cloud like unto a man's hand&mdash;and this cloud was the sure forerunner of the deluge and storm! Christian, go again seven times! No, I will venture to say 70 times seven, for God must keep His promise! Heaven and earth may pass away, but not one jot or tittle of Jehovah's Word can fail. "The grass withers, the flower thereof fades away, but the Word of our God endures forever." Do you plead that enduring Word of God? Let no dark thoughts drive you to despair. Continue to trust! Continue to pray! Increase in your fervency and in the hope that the blessing will yet come! It did come to the Savior. The morning broke upon His midnight after all. Never tide ebbed out so far as in the Savior's case, when the great stretches of misery and sorrow were visible where once God's love had rolled in mighty floods. But when the time came, it began to turn, and see how it has turned now in mighty floods of matchless joy! The love of God has come back to our once suffering Savior and there, upon the Eternal Throne He sits, the Man, the Crucified, who bowed His head under mountains of almighty wrath, which broke in huge billows and covered His soul. Be of good courage, Christian! Hope on, poor Soul, and hope on forever!
 
-Thus much by way of general direction. But we now go on to a second point and shall inquire into&mdash; II. THE CAUSES OF UNANSWERED PRAYER.
+Thus much by way of general direction. But we now go on to a second point and shall inquire into the causes of unanswered prayer.
 
 We shall, perhaps, on this theme, get a few special directions which may be available in particular cases. Dear Friends, there are some of us who are not often troubled about unanswered prayer&mdash;on the contrary, our own experience is such that the existence of a God who hears His people's cry is reduced to an absolute, mathematical certainty!
 
@@ -110,9 +110,9 @@ Oh look now!
 
 And as to you who have never looked before, I pray the Master to open your blind eyes and cause the scales to drop, so that you may look now and, while you look, may see everything you need laid up for you in Jesus! Everything a sinner needs can be richly supplied by Him&mdash;and then the sinner can go his way rejoicing and singing, "Christ is All, and happy am I that I have sought and found Him." The Lord bless you all for His name's sake. Amen.
 
-Exposition BY C. H. Spurgeon: PSALM32.
+Exposition by C. H. Spurgeon: Psalm 32.
 
-This is a great Psalm of Grace, a Psalm in which a sinner, cleansed by Sovereign Grace, adores and blesses the mercy ofGod.
+This is a great Psalm of Grace, a Psalm in which a sinner, cleansed by Sovereign Grace, adores and blesses the mercy of God.
 
 Verse 1. Blessed is he whose transgression is forgiven, whose sin is covered. This is not a blessing for the man who says he has no sin&mdash;this is not a benediction for the innocent who talk about their own good works&mdash;but blessed is the man who, having sinned, is pardoned, whose transgression is forgiven, whose sin is covered! In a word, it is a Gospel blessing&mdash;it is the blessing of Free Grace.
 
