@@ -12,7 +12,7 @@ Let us now come to the consideration of this second of the three great blessings
 
 that&mdash;
 
-OUR LOVING LORD BRINGS HIS MOURNERS TO SIT AT a FEAST.
+OUR LOVING Lord BRINGS HIS MOURNERS TO SIT AT a FEAST.
 
 This is clearly intended, for oil was largely used by Orientals upon festive occasions. The oil which makes man's face to shine was associated with the bread which strengthens man's heart, and the wine which makes glad the heart of man,
 
@@ -78,7 +78,7 @@ How gloriously does sacred joy lift us up above the sorrows of the world! No, mo
 
 road of history with an almost noiseless tread, gliding along as though all were smooth! The record says, "It came to pass that the Lord had blessed Abraham in all things"&mdash;and yet in the previous pages we read of trials with Lot, with Hagar and Ishmael&mdash;and the grand ordeal with Isaac! Faith made his trials blessings, and his inward joy, like Aaron's rod, swallowed up all the rods of his afflictions. The same road is open to us and we have the same reasons for walking in it since the God of Abraham is our God forever and ever! He who can live by faith shall have a constant supply of the oil of joy poured upon him by the Holy Spirit&mdash;and his mourning shall flee away. Our last observation is&mdash;
 
-THE JOY WHICH GOD GIVES HIS PEOPLE IS BEST SEEN AND FREQUENTLY BEST FELT IN FELLOWSHIP.
+THE JOY WHICH God GIVES HIS PEOPLE IS BEST SEEN AND FREQUENTLY BEST FELT IN FELLOWSHIP.
 
 We began with noting that oil is connected with festivity. Sweet spices are for banquets where men feast together. Oh mourners, you will often find your souls made joyous when you assemble with your Brothers and Sisters! Bread eaten in secret is sweet and morsels behind the door are delicious, but still, the choicest and most abundant provisions are brought forth when the king's household gather around his table and realize that "they, being many, are one bread." Speaking personally, my happiest times are spent with my Brothers and Sisters in Christ in the high festivals, when the multitude keep holy day. Draw a circle around my pulpit and you have hit upon the spot where I am nearest Heaven! There the Lord has been more consciously near me than anywhere else. He has ravished my heart while I have been trying to cheer and comfort His mourners. Many of you can say the same of your pew where you are known to sit&mdash;it has been a Bethel to you and the Lord Jesus has revealed Himself to you in the midst of His people. Let us remember what delightful times we have had in prayer together. We have come into the sanctuary heavy of heart and while one Brother after another has approached the Throne of Grace for us, we have been unburdened and helped to joy in God till the Prayer Meeting has seemed to be a Heaven below, an antepast of the eternal meetings above! Thus the oil of joy is poured out in the assembly of fellowship.
 
@@ -94,7 +94,7 @@ Lastly, the Communion Table has been to many of us, above all other places in th
 
 Now, all this while I have been talking to God's people and you will say, "Have you not a word to say to the sinner?" Well, I have all the while been speaking to the sinner, too, because all this is for you if you repent of sin and believe in the Lord Jesus Christ! If you will come and have it, the Table is spread and loaded for you. No, more&mdash;"the Word is near you, even in your mouth." What? Is the Bread of Life in your mouth and will you not eat it? Poor, hungry, empty, needy sinner, can you reject what God, Himself, puts into your mouth? If angels will rejoice when you repent, depend upon it there is also joy in store for you! Come then to Jesus, just as you are! Bring no money with you, bring no fitness with you, bring no fancied goodness with you&mdash;bring your sins and lay them before your Lord. Bring your hard heart, your lack of feeling, your lack of Divine Grace and just come and find all that you need in Christ, who is waiting to bless you! When I was a child I remember how at a school festival the children were instructed to bring their own mugs with them. Now that showed the poverty of those who gave the treat, but my Master does not want you to bring anything! He supplies everything. Come as you are, with nothing about you except your needs and your willingness to be saved! When an empty, guilty, lost, undone, ruined creature is coming to a great, blessed and mighty Savior, all he has to think of is the love which invites him and the greatness of the Redeemer who will receive him! Come here, then, all you who mourn because of sin, or mourn that you cannot mourn, and, by believing in Jesus you shall obtain the oil of joy and the days of your mourning shall be ended!
 
-EXPOSITION BY C. H. SPURGEON: MARK9:20-41.
+Exposition BY C. H. Spurgeon: MARK9:20-41.
 
 This miracle is one that shows the transforming power of the Savior in a remarkable fashion.
 
