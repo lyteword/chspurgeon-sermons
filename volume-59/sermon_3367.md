@@ -2,9 +2,9 @@
 
 "However for this cause I obtained mercy, that in me, first, Jesus Christ might show forth all long-suffering, for a pattern to them which should hereafter believe on Him to life everlasting." 1 Timothy 1:16.
 
-IT is a vulgar error that the conversion of the Apostle Paul was an uncommon and exceptional event and that we cannot expect men to be saved now-a-days after the same fashion. It is said that the incident was an exception to all rules, a wonder altogether by itself. Now, my text is a flat contradiction to that notion, for it assures us that, instead of the Apostle as a receiver of the long-suffering and mercy of God being at all an exception to the rule, he was a model convert, and is to be regarded as a type and pattern of God's Grace in other Believers. The Apostle's language in the text, "for a pattern," may mean that he was what printers call a first proof, an early impression from the engraving, a specimen of those to follow. He was the typical instance of Divine long-suffering, the model after which others are fashioned. To use a metaphor from the artist's studio, Paul was the ideal sketch of a convert, an outline of the work of Jesus on mankind, a picture of Divine long-suffering. Just as artists make sketches in charcoal as the basis of their work&mdash;which outlines they paint out as the picture proceeds&mdash;so did the Lord, in the Apostle's case, make, as it were, a picture or outline sketch of His usual work of Grace. That outline, in the case of each future Believer, He works out with infinite variety of skill and produces the individual Christian, but the guiding lines are really there. All conversions are, in a high degree, similar to this pattern conversion. The transformation of persecuting Saul of Tarsus into the Apostle Paul is a typical instance of the work of Grace in the heart.
+It is a vulgar error that the conversion of the Apostle Paul was an uncommon and exceptional event and that we cannot expect men to be saved now-a-days after the same fashion. It is said that the incident was an exception to all rules, a wonder altogether by itself. Now, my text is a flat contradiction to that notion, for it assures us that, instead of the Apostle as a receiver of the long-suffering and mercy of God being at all an exception to the rule, he was a model convert, and is to be regarded as a type and pattern of God's Grace in other Believers. The Apostle's language in the text, "for a pattern," may mean that he was what printers call a first proof, an early impression from the engraving, a specimen of those to follow. He was the typical instance of Divine long-suffering, the model after which others are fashioned. To use a metaphor from the artist's studio, Paul was the ideal sketch of a convert, an outline of the work of Jesus on mankind, a picture of Divine long-suffering. Just as artists make sketches in charcoal as the basis of their work&mdash;which outlines they paint out as the picture proceeds&mdash;so did the Lord, in the Apostle's case, make, as it were, a picture or outline sketch of His usual work of Grace. That outline, in the case of each future Believer, He works out with infinite variety of skill and produces the individual Christian, but the guiding lines are really there. All conversions are, in a high degree, similar to this pattern conversion. The transformation of persecuting Saul of Tarsus into the Apostle Paul is a typical instance of the work of Grace in the heart.
 
-We will have no other preface, but proceed at once to two or three considerations. The first is that&mdash; I. IN THE CONVERSION OF PAUL, THE Lord HAD AN EYE TO OTHERS, AND IN THIS PAUL IS a PATTERN.
+We will have no other preface, but proceed at once to two or three considerations. The first is that in the conversion of Paul, the Lord had an eye to others, and in this Paul is a pattern.
 
 In every case the individual is saved, not for himself, alone, but with a view to the good of others. Those who think the Doctrine of Election to be harsh should not deny it, for it is Scriptural&mdash;but they may to their own minds soften some of its hardness by remembering that elect men bear a marked connection with the race. The Jews, as an elect people, were chosen in order to preserve the oracles of God for all nations and for all times. Men personally elected unto eternal life by Divine Grace are also elected that they may become chosen vessels to bear the name of Jesus unto others. While our Lord is said to be the Savior especially of them that believe, He is also called the Savior of all men&mdash;and while He has a special eye to the good of the one person whom He has chosen&mdash;yet through that person He has designs of love to others&mdash;perhaps even to thousands yet unborn!
 
@@ -38,9 +38,9 @@ Did you never read this passage&mdash;"You have given Him power over all flesh, 
 
 So far, then, Paul's salvation, because it had so clear a reference to others, was a pattern of all conversions. Now, secondly&mdash;
 
-PAUL's FOREMOST POSITION AS a SINNER DID NOT PREVENT HIS BECOMING FOREMOST IN
+Paul's foremost position as a sinner did not prevent his becoming foremost in
 
-GRACE AND, HEREIN, AGAIN, HE IS a PATTERN TO US.
+grace and, herein, again, he is a pattern to us.
 
 Foremost in sin, he became also foremost in service! Saul of Tarsus was a blasphemer and he is to be commended because he has not recorded any of those blasphemies. We can never object to converted burglars and chimney-sweepers of whom we hear so much, telling the story of their conversion. But when they go into dirty details, they had better hold their tongues! Paul tells us that he was a blasphemer, but he never repeats one of the blasphemies. We invent enough evil in our own hearts without being told of other men's stale profanities. If, however, any of you are so curious as to want to know what kind of blasphemies Paul could utter, you have only to converse with a converted Jew and he will tell you what horrible words some of his nation will speak against our Lord! I have no doubt that Paul, in his evil state, thought as wickedly of Christ as he could&mdash;considered Him to be an imposter, called Him so, and added many an opprobrious epithet. He does not say of himself that he was an unbeliever and an objector, but he says that he was a blasphemer, which is a very strong word, but not too strong, for the Apostle never went beyond the truth. He was a downright, thoroughgoing blasphemer who also caused others to blaspheme. Will these lines meet the eye of a profane person who feels the greatness of his sin? May God grant that he may be encouraged to seek mercy as Saul of Tarsus did, for "all manner of sin and blasphemy" does He forgive unto men!
 
@@ -56,7 +56,7 @@ What man more earnest in the defense of the Truth of God? What man more self-sac
 
 Thus we gather from our text that the Lord showed mercy to Paul. That in him, first, it might be seen that prominence in sin is no barrier to eminence in Grace, but the very reverse! Now I come to where the stress of the text lies.
 
-PAUL's CASE WAS a PATTERN OF OTHER CONVERSIONS AS AN INSTANCE OF LONG-SUFFERING.
+Paul's case was a pattern of other conversions as an instance of long-suffering.
 
 "That in me, first, Jesus Christ might show forth all long-suffering for a pattern to them which should hereafter believe." Thoughtfully observe the great long-suffering of God to Paul. He says, "He showed forth all long-suffering." Not only all the long-suffering of God that ever was shown to anybody else, but all that could be supposed to exist&mdash;all long-suffering&mdash;
 
@@ -78,7 +78,7 @@ Brother, do not despair! See what Saul was and what Paul became&mdash;and learn 
 
 Again&mdash;
 
-THE MODE OF PAUL's CONVERSION WAS ALSO MEANT TO BE a PATTERN. And with this I shall
+the mode of Paul's conversion was also meant to be a pattern. And with this I shall
 
 finish. I do not say that we may expect to receive the miraculous Revelation which was given to Paul, but yet it is a sketch
 
